@@ -1,3 +1,107 @@
+###  Публикация: 990017   (913247) от 24.02.2016
+
+Снимок телескопа Hubble - галактика NGC 4889, содержащая одну из самых больших черных дыр в известной нам части Вселенной
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический телескоп Hubble (Hubble Space Telescope) сделал новый снимок эллиптической галактики NGC 4889. Во внешнем облике этой галактики нет ничего особо выдающегося. Однако, эта галактика примечательна тем, что в ее центре находится одна из самых больших обнаруженных учеными-астрономами в доступной для изучения части Вселенной гигантских черных дыр, которую, к сожалению, уже невозможно увидеть даже при помощи самых мощных астрономических инструментов.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989393   (912811) от 24.02.2016
+
+Не верю, я – робот?! / OMG, I m a Robot! (2015) HDTVRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дани, инфантильный молодой человек, тяжело переживая уход подруги, решает покончить с собой, но внезапно обнаруживает, что он — робот…Производство: ИзраильЖанр: Фантастика, КомедияРежиссер: Таль Голдберг, Галь ЖелезнякАктеры: Йотам Ишай, Хили Ялон, Цахи Град, Дрор Керен, Инна Беккельман, Роб Шнайдер, Нели ТагарПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Павел Морозов aka PashaUpЯзык субтитров: ИвритПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825FBDF30D99E5F5713737730AD127B15B8D2FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977615   (912806) от 24.02.2016
+
+Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.3/dlc) SteamRip Let'sРlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homeworld: Deserts of Kharak - стратегия в реальном времени, которая является приквелом к серии Homeworld. Игра предлагает отправиться в экспедицию и разузнать тайны пустыни Харака. Сюжет крутиться вокруг девушки по имени Рейчел С-Джет, являющейся опытной исследовательницей. В распоряжении игроков окажется множество военной техники, включая небольшие штурмовые машины, (   Читать дальше...   )Тип издания: SteamRipРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD79662FDC870CC5BFE627D605D2D3F41629FBDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979511   (912804) от 24.02.2016
+
+Секретные материалы / The X-Files (2016) WEB-DLRip [H.264] (сезон 10, серии 1-6 из 6) ТВ3, Кравец
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фокс Малдер и Дана Скалли снова вместе. На них выходит ведущий интернет-канала Тэд О'Малли, специализирующийся на расследовании государственных секретов. По словам О'Малли, он близок к раскрытию международного заговора, скрывающего от населения всю правду об инопланетянах. Малдер готов поверить О'Малли, Скалли как всегда скептична, но, как минимум, готова выслушать (   Читать дальше...   )Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пиледжи, Уильям Б. Дэвис, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз и др.Перевод: Дублированный (ТВ3), многоголосый закадровый, профессиональный (Кравец)Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF64026E9CBE77631A93572EFC5C3F00BBC367A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989448   (912803) от 24.02.2016
 
 God of War III (2010) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.03 / ALL DLC] [Ru/En]
@@ -6,7 +110,7 @@ God of War III (2010) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.03 / ALL DLC] [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912803.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912799.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ A Better Camera v3.37 Unlocked [Ru/Multi] - Многофункциональна
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912790.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912204.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911740.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911661.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911505.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Tuxera NTFS 2016.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911493.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911490.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Bandicam 3.0.3.1025 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910953.jpg" />
+  <img src="Z:/picture/008/save_picture_910953.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910952.jpg" />
+  <img src="Z:/picture/008/save_picture_910952.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910941.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Apple призналась, что сканировала почту польз�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910069.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ KRT CLUB ATB 3.1.0.29 v4 RePack [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909948.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909824.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Microsoft Office 2016-2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909821.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909649.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ Fable: Anthology / Fable: Антология (2005-2014) [Ru/En] (1.0/1.1.3.0/1.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909641.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909631.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909462.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909387.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909350.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990611   (909241) от 26.02.2016
-
-Movavi Video Editor 11.3.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Editor - мощный и между тем достаточно простой видео редактор, позволяющий пользователю редактировать видео файлы, используя простой и дружелюбный пользовательский интерфейс. При помощи этого видео редактора, можно легко импортировать медиафайл, открыть файл DVD или 3D видео, а также записать видео или аудио поток.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A53D88559AC286275EF3683C98C46D40852B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990607   (909236) от 26.02.2016
-
-MathType 6.9b [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909236.jpg" />
-</div>
-
-
-###  Подробнее
-
-MathType — это мощный интерактивный инструмент, который кардинально меняет способ создания печатных и электронных документов, содержащих математические формулы. MathType может применяться вместе с любым текстовым и HTML-редактором, презентационной или издательской программой, и другими типами программного обеспечения - для создания формул в научных статьях, учебных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4CBD387015FCCF126B82C53BC695C34CB98857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990758   (909226) от 26.02.2016
-
-В центре внимания / Spotlight (2015) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанная на реальных событиях история журналистского расследования одного из самых громких в истории США секс-скандалов. Корреспонденты бостонской газеты разоблачают случаи педофилии, в которых обвиняются представители Церкви…Производство: США, КанадаЖанр: Триллер, Драма, Биография, ИсторияРежиссер: Том МакКартиАктеры: Марк Руффало, Майкл Китон, Рэйчел МакАдамс, Лив Шрайбер, Джон Слэттери, Стэнли Туччи, Брайан Д’Арси Джеймс, Елена Стайтелер, Джин Аморозо, Даг Мюррэй, Шэрон МакФарлэйн, Джейми Шеридан, Нил Хафф, Билли Крадап, Роберт Б. Кеннеди, Дуан Мюррэй, Брайан Чемберлен, Майкл Сирил Крейтон, Пол Гилфойл, Майкл КантримэнПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73163229665B4808E55473DDD918EDDB60CCF148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990882   (909217) от 26.02.2016
-
-Зачётный препод 2 / Fack ju Gohte 2 (2015) HDRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший грабитель, а ныне крутой препод в школе Гёте, Зеки Мюллер, обрел популярность среди учеников благодаря нетрадиционным методам преподавания. Не успел он заскучать, заполняя классные журналы и проверяя тетради, как его вовлекли в «войну школ»: для того, чтобы получить статус престижного учебного заведения, необходимо съездить с коррекционным классом старшеклассников (   Читать дальше...   )Производство: Германия, Constantin Film International, Constantin Film Produktion GmbH, Red Balloon FilmsЖанр: КомедияРежиссер: Бора ДагтекинАктеры: Элиас ЭмБарек, Йелла Хаазе, Каролина Херфурт, Катя Риман, Макс фон Гробен, Гизем Эмре, Арам Арами, Анна-Лена Кленке, Лукас Райбер, Руна ГрайнерПеревод: Дублированный (чистый звук)Продолжительность: 01:55:24Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD307EC477E1E56C2086074B3540FEE7F8DF284D
 ```
 
 https://mybot314.ru/tekegram_catalog/

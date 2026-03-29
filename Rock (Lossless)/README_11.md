@@ -1,3 +1,148 @@
+###  Публикация: 1455468   (1025641) от 19.03.2021
+
+Ringo Starr - Zoom In (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's To The Nights
+02. Zoom In Zoom Out
+03. Teach Me To Tango
+04. Waiting For The Tide To Turn(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C75948935917DD1CE9FA8D5A336E8104EA0D06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456167   (1025257) от 21.03.2021
+
+ThunderCloud - Healing The Hoop (2021) [FLAC|Lossless|tracks] <Progressive Rock, Heavy Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle [00:11:51]
+02. Talking Horses [00:08:27]
+03. Burn the Castle [00:05:06]
+04. Nightcrawler [00:09:55](   Читать дальше...   )Жанр: Progressive Rock, Heavy Blues RockПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774B14313FB95E3AE81370E7BBB318678F577ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035243   (1025004) от 22.03.2021
+
+Millenium - 19 Albums (1999 - 2020) [FLAC|Lossless|image + .cue]<Neo-Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Of Love
+02. Time Vehicle
+03. The Song Of Hope & Love
+04. Comercial Song(   Читать дальше...   )Жанр: Neo-Progressive RockПродолжительность: 19:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96E800A35E92850413DA5AB5A3B1A2BAB14E616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456680   (1024959) от 23.03.2021
+
+Boulevard - IV Luminescence (2017) [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Blue
+02. Life Is A Beautiful Thing
+03. Laugh Or Cry
+04. What I'd Give(   Читать дальше...   )Жанр: AORПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2881ACE53DECB84E44BC9FA82E3B99C419589332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456566   (1024952) от 23.03.2021
+
+Nodo Gordiano - Sonnar (2020) [FLAC|Lossless|image + .cue] <RPI, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Fool! Only Poet! (9:06)
+02. Limbic Rendez-vous (6:59)
+03. Charun (3:53)
+04. After Dusk (20:48) :(   Читать дальше...   )Жанр: RPI, Prog RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165F35C59780F8F8602E3D80982B651B7C553595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457129   (1024610) от 25.03.2021
 
 VA - Rock on! Rock it! Rock Out! (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ VA - Rock on! Rock it! Rock Out! (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024610.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Suzi Quatro - The Devil In Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024609.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Imagine Dragons - Follow You / Cutthroat (2021) Single [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024215.jpg" />
 </div>
 
 
@@ -91,7 +236,7 @@ V.A. - Legendary Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024203.jpg" />
 </div>
 
 
@@ -120,7 +265,7 @@ Terronaut - 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Post Rock, Post Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023880.jpg" />
 </div>
 
 
@@ -149,7 +294,7 @@ Black Expression - Regreso A Casa (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023870.jpg" />
 </div>
 
 
@@ -178,7 +323,7 @@ MaterialEyes - Three Of A Kind (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023869.jpg" />
 </div>
 
 
@@ -207,7 +352,7 @@ Palace - Rock And Roll Radio (2020) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023868.jpg" />
 </div>
 
 
@@ -236,7 +381,7 @@ Palace - Binary Music (2018) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023867.jpg" />
 </div>
 
 
@@ -265,7 +410,7 @@ Simon Collins - Becoming Human (2020) [FLAC|Lossless|image + .cue] <Experimental
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023327.jpg" />
 </div>
 
 
@@ -294,7 +439,7 @@ Dornenreich - Freiheit (2014) [FLAC|Lossless|tracks + .cue] <Acoustic, Neofolk, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023238.jpg" />
 </div>
 
 
@@ -323,7 +468,7 @@ Sting - Duets (2021) Japan [FLAC|Lossless|image + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023087.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ Find Me - Dark Angel (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022623.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ Ringo Starr - Bad Boy (1978) Epic Legacy, 2017 [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022548.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ Tom Petty - Full Moon Fever (1989) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022459.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ Black Bonzo | Gin Lady - 7 аlbums, 8 CD (2004-2017) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022453.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ VA - 2000's Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022243.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ Perfect Storm - No Air (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021969.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ Nad Sylvan - Spiritus Mundi (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021813.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ VA - Best Guitar Anthems (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021780.jpg" />
 </div>
 
 
@@ -584,7 +729,7 @@ VA - Rock Ballads 2021 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021667.jpg" />
 </div>
 
 
@@ -598,151 +743,6 @@ VA - Rock Ballads 2021 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76B333005D4495A35223BB6631A138C5256E3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461771   (1021642) от 11.04.2021
-
-Evohe - 77-81 (2020) 2xCD [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021642.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Sharga (16:14)
-02. K'a(18:23)
-03. Aira (13:45)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F94C680AD883354A28D3C7930E7E9DCD577355F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461759   (1021624) от 11.04.2021
-
-Dominoe - 6 albums, 7 CD (1988-2012) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dominoe - одна из лучших немецких мелодик-рок групп, основана в Графинге недалеко от Мюнхена в 1987 году гитаристом,  композитором, музыкантом и продюсером Робертом Папстом и вокалистом Йоргом Зибером. Группа стала известна в начале 1988 года благодаря флагманскому хиту "Here I Am", который французский производитель автомобилей Renault использовали в своей (   Читать дальше...   )--------------------------
-
-01. No More Money (3:57)
-02. Senses (3:49)(   Читать дальше...   )Жанр: Melodic Rock, AOR |Продолжительность: 06:07:35 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89888B0723B117100D09D9C20A28377D227C465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462724   (1021046) от 15.04.2021
-
-Stonewall Noise Orchestra - Deathtripper (2020) [FLAC|Lossless|image + .cue] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathtripper
-02. Gravity
-03. Bones
-04. The Storm(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A0B21CD95D6958CC54D78C8879DABE0696D8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462510   (1021045) от 15.04.2021
-
-Airrace - Untold Stories (2018) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Out Of Time
-02. Innocent
-03. Eyes Like Ice
-04. Different But The Same(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3D75D87262A2F030DEFB1529C58B0BF36B41C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462468   (1020956) от 15.04.2021
-
-Marc Reece - Dreamer (2021) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie
-02. Dreamer
-03. One For Hannes
-04. No Chance Child(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3366F59FC859E521F355B0471AE85F139B82D969
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1060572   (455180) от 07.10.2016
+
+Журнал | Formula рукоделия №3 (79) (июль-август-сентябрь 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте обновленный номер журнала!
+Теперь здесь будет не только вышивка крестиком, но и шитье, вязание, валяние, декор, кулинария, детское творчество и многое другое. А значит, он наконец полностью оправдает свое название.Жанр: Домоводство, вязание, рукоделие, вышивание, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469E947C95EB97AEC43CD8A3E1B3DE40178A7D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704880   (453844) от 28.09.2013
+
+Журнал | Сабрина. Спецвыпуск №11. Шапки и шарфы (2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сабрина» представляет спецвыпуск «Шапки и шарфы», в котором предложено множество вариантов аксессуаров для холодной погоды. Шапки, шарфы, перчатки, митенки, вязаные шали, накидки и сумочки. Разбавьте серые будни яркими деталями!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B6F1EE1344DBF0D0A3F74CF6D21F75ADD83739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704883   (453521) от 28.09.2013
+
+Журнал | Сабрина. Спецвыпуск №10. 100 носков (2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сабрина» представляет спецвыпуск «100 носков». Носки, носочки, пинетки и чулки – 100 идей носков для мам и малышей, для девочек и мальчиков, для прекрасных дам! Выберете свой любимый стиль, а 9 учебных курсов на страницах журнала помогут сделать их не только красивыми, но и удобными.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FF99B0AB816994AF37D4A92F84A7D4D701549D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163214   (452607) от 04.09.2017
 
 Журнал | Бронеколлекция. Спецвыпуск №1 (13). Самоходные артиллерийские установки "Акация", "Тюльпан" и "Гиацинт" (2017) [FB2]
@@ -6,7 +85,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452607.jpg" />
+  <img src="Z:/picture/008/save_picture_452607.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451525.jpg" />
+  <img src="Z:/picture/008/save_picture_451525.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451523.jpg" />
+  <img src="Z:/picture/008/save_picture_451523.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451516.jpg" />
+  <img src="Z:/picture/008/save_picture_451516.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450792.jpg" />
+  <img src="Z:/picture/008/save_picture_450792.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449571.jpg" />
+  <img src="Z:/picture/008/save_picture_449571.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449556.jpg" />
+  <img src="Z:/picture/008/save_picture_449556.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449550.jpg" />
+  <img src="Z:/picture/008/save_picture_449550.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449420.jpg" />
+  <img src="Z:/picture/008/save_picture_449420.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449418.jpg" />
+  <img src="Z:/picture/008/save_picture_449418.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449416.jpg" />
+  <img src="Z:/picture/008/save_picture_449416.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449409.jpg" />
+  <img src="Z:/picture/008/save_picture_449409.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449270.jpg" />
+  <img src="Z:/picture/008/save_picture_449270.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447376.jpg" />
+  <img src="Z:/picture/008/save_picture_447376.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447373.jpg" />
+  <img src="Z:/picture/008/save_picture_447373.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447344.jpg" />
+  <img src="Z:/picture/008/save_picture_447344.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447216.jpg" />
+  <img src="Z:/picture/008/save_picture_447216.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447214.jpg" />
+  <img src="Z:/picture/008/save_picture_447214.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447210.jpg" />
+  <img src="Z:/picture/008/save_picture_447210.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447190.jpg" />
+  <img src="Z:/picture/008/save_picture_447190.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447073.jpg" />
+  <img src="Z:/picture/008/save_picture_447073.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443835.jpg" />
+  <img src="Z:/picture/008/save_picture_443835.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441897.jpg" />
+  <img src="Z:/picture/008/save_picture_441897.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD60D65755B869A5DB4A19C78C60B921E72AC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273070   (441830) от 01.09.2019
-
-Подшивка | Woodworker West (2019) [PDF] [En] [Обновляемая]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Woodworker West - американский журнал, издаваемый раз в два месяца, посвящен столярному делу. В нем представлены: обзоры материалов, инструментов и технологий, а также идеи для творчестваЖанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717C4A5FB9AE8AB4712F9AF65131EBC8A19496E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062002   (441197) от 13.10.2016
-
-Каталог-справочник | Монеты РСФСР, СССР и России 1921-2016 годов (май 2016)
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441197.jpg" />
-</div>
-
-
-###  Подробнее
-
-В связи с неустойчивой ситуацией на российском нумизматическом рынке своевременное обновление текущих цен на различные монетные типы видится очень актуальным - что и было сделано в данном издании. Каталог содержит актуальные рыночные цены на все монеты данного периода, также указана примерная градация цен в соответствии с сохранностью монеты, план выпуска монет на (   Читать дальше...   )Жанр: НумизматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D092E1740F321695B3D15D1E8866C5FFB09756D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392202   (439621) от 25.09.2011
-
-Журнал | Treats! №2 [осень 2011] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Treats! Magazine - журнал о современной эротической фотографии. На страницах журнала представлены эксклюзивные работы от лучших фотографов, моделей, стилистов, писателей и художников со всего мира.осень 2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0842F9BC6F771DC67969EFD587F3969CEF30FD03
 ```
 
 https://mybot314.ru/tekegram_catalog/

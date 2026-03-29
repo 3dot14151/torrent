@@ -1,3 +1,31 @@
+###  Публикация: 553849   (441082) от 29.09.2012
+
+НТВ плюс | Квартирный вопрос -"Синий бархат и сетка Рабица" [02.06.2012] SATRip
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этой программы – сторонники современных, лаконичных, даже минималистичных решений с минимальным количеством вещей, но с максимальным количеством возможностей. Дарья Касацкая и Филипп Тангалычев постарались не только оправдать, но и превзойти их ожидания. Обеденный стол одновременно является рабочей поверхностью; зеркала расширяют пространство и скрывают места хранения чаев и приправ; не говоря уже о техническом оснащении новой кухни, о котором впору писать целый трактат.
+
+Первую в своей жизни спальню Екатерина и Сергей заполучили три года назад, когда въехали в эту квартиру. И именно спальню во время ремонта оставили напоследок, а после долгих раздумий написали к нам в программу. Теперь думать не надо – остается только гадать, что же мы собираемся сделать и зачем нам понадобится сетка Рабица.Жанр: ТелепередачаПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF56AEB245FBD412E9A6A40BA55ADCC8C654E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553861   (441023) от 29.09.2012
 
 НТВ плюс | Квартирный вопрос -"Загород, море и городской минимализм" [22.09.2012] SATRip
@@ -6,7 +34,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441023.jpg" />
+  <img src="Z:/picture/008/save_picture_441023.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441019.jpg" />
+  <img src="Z:/picture/008/save_picture_441019.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440523.jpg" />
+  <img src="Z:/picture/008/save_picture_440523.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440505.jpg" />
+  <img src="Z:/picture/008/save_picture_440505.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440377.jpg" />
+  <img src="Z:/picture/008/save_picture_440377.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440240.jpg" />
+  <img src="Z:/picture/008/save_picture_440240.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440229.jpg" />
+  <img src="Z:/picture/008/save_picture_440229.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440225.jpg" />
+  <img src="Z:/picture/008/save_picture_440225.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438912.jpg" />
+  <img src="Z:/picture/008/save_picture_438912.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438910.jpg" />
+  <img src="Z:/picture/008/save_picture_438910.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438905.jpg" />
+  <img src="Z:/picture/008/save_picture_438905.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438571.jpg" />
+  <img src="Z:/picture/008/save_picture_438571.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438381.jpg" />
+  <img src="Z:/picture/008/save_picture_438381.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438195.jpg" />
+  <img src="Z:/picture/008/save_picture_438195.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438092.jpg" />
+  <img src="Z:/picture/008/save_picture_438092.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437955.jpg" />
+  <img src="Z:/picture/008/save_picture_437955.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437899.jpg" />
+  <img src="Z:/picture/008/save_picture_437899.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437898.jpg" />
+  <img src="Z:/picture/008/save_picture_437898.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437888.jpg" />
+  <img src="Z:/picture/008/save_picture_437888.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437121.jpg" />
+  <img src="Z:/picture/008/save_picture_437121.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437111.jpg" />
+  <img src="Z:/picture/008/save_picture_437111.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437094.jpg" />
+  <img src="Z:/picture/008/save_picture_437094.jpg" />
 </div>
 
 
@@ -601,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437066.jpg" />
+  <img src="Z:/picture/008/save_picture_437066.jpg" />
 </div>
 
 
@@ -628,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437052.jpg" />
+  <img src="Z:/picture/008/save_picture_437052.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436624.jpg" />
+  <img src="Z:/picture/008/save_picture_436624.jpg" />
 </div>
 
 
@@ -665,32 +693,6 @@ Men’s Health – главный мужской журнал во всем ми
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554706   (436303) от 01.10.2012
-
-[Elsa4.0 VW] (04.2012) Автомобильные программы и мультимедийные материалы
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационная база по диагностике и ремонту автомобилей концерна VW AG. Содержит описания технологии ремонта, обслуживания авто, диагностики различных систем автомобиля, электрические схемы, кузовные работы, нормы времени на выполняемые работы и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1666B79A685501DD7330F37DCFA4F15CB363CC65
 ```
 
 https://mybot314.ru/tekegram_catalog/

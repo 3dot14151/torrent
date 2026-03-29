@@ -1,3 +1,107 @@
+###  Публикация: 1390125   (783270) от 14.06.2020
+
+Hotspot Shield VPN Business 9.5.9 (64-bit) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hotspot Shield VPN - самое полное решение проблем безопасности в интернете. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C81194AE951153F3892DB6AE9E53939793FCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389989   (783264) от 14.06.2020
+
+Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGorskiy® 06.2020 1DVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783264.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновлённые оригинальные русские образы ОС "Windows®  7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединённых в один образ стандартными средствами от Microsoft (DISM, AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик-установщик Stop SMS Uni Boot от Core-2. (   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C3EA73E89510413A6D746AB0D3331D244C0FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390231   (783260) от 14.06.2020
+
+Яндекс.Практикум | Профессия Python-разработчик [Часть 1 из 8] (2020) PCRec [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python-разработчик создаёт бэкенд сайтов: мозг, который принимает запросы, общается с базой данных и передаёт нужную информацию пользователю. Разработчик проектирует алгоритмы взаимодействия сайта с другими интернет-сервисами. Вы изучите язык Python: он востребован и прост. Вы также освоите важнейшие инструменты бэкендера: Django, базы данных, git. В процессе обучения (   Читать дальше...   )Жанр: Программирование, PythonПродолжительность: 05:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4201325803D9D3AAA32203E355E679401D8C4BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799036   (783259) от 14.06.2020
+
+Ozi Explorer v1.34 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783259.jpg" />
+</div>
+
+
+###  Подробнее
+
+OziExplorer для Android использует растровые карты, которые либо отсканированы или приобретены в цифровом формате. Это позволяет вам отслеживать вашу позицию на карте, полученную от GPS приемника.Тип издания: ПираткаРелиз состоялся: 08.02.2020Разработчик: OziExplorerПоддерживаемая ОС: Android  4.1/5/6/7/8/9/10+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98293085DE22302BD917802D3D8DDE7E199DA0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205837   (783116) от 11.02.2018
 
 Win 10 Tweaker 5.4 Portable by XpucT [Ru]
@@ -6,7 +110,7 @@ Win 10 Tweaker 5.4 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783116.jpg" />
+  <img src="Z:/picture/008/save_picture_783116.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783078.jpg" />
+  <img src="Z:/picture/008/save_picture_783078.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_783010.jpg" />
+  <img src="Z:/picture/005/save_picture_783010.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783008.jpg" />
+  <img src="Z:/picture/008/save_picture_783008.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ JetBrains PhpStorm 2017.3.4 Build #PS-173.4548.32 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782803.jpg" />
+  <img src="Z:/picture/008/save_picture_782803.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Destroy Windows 10 Spying 1.7 Build 100  Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782797.jpg" />
+  <img src="Z:/picture/008/save_picture_782797.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782704.jpg" />
+  <img src="Z:/picture/008/save_picture_782704.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Windows 10 2004 (x86/x64) 32in1 +/- Office 2019 by Eagle123 (06.2020) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782582.jpg" />
+  <img src="Z:/picture/008/save_picture_782582.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Adobe Photoshop CC 2018 19.1.1.42094 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782352.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ SA Contacts (старое название Excel <-> Contacts) v2.8.10 [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782346.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782345.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782277.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 06.2020 2DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782173.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782004.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781961.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781747.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781538.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781473.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Colin McRae: DiRT Коллекция [Ru/En] (RePack) 2007-2009 | R.G.ReCoding
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781466.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Hard Truck / Ex Machina Антология [Ru] (L) 2008
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781463.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Tubedigger 6.8.8 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781350.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781339.jpg" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7425945B2E6A377BE7E2EEB4D81EF82F7BB33805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207002   (781108) от 16.02.2018
-
-Photodex ProShow Producer 9.0.3793 RePack (& portable) by KpoJIuK + Effects Pack 7.0  [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781108.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProShow Producer – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D0A4933B4064F5D0AB157186C57B8284063C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200971   (781046) от 14.05.2010
-
-Туман (2010) [H.264] DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отряд молодых бойцов Российской Армии отрывается от основного строя во время марш-броска, дабы сократить путь, бежит наперерез, но попадает в туман, который переносит его в прошлое, в годы Великой Отечественной войны. Ребята, видевшие войну только в кино, попадают в лапы безжалостных событий того времени. Все на грани: храбрость, страх, любовь, ненависть, жизнь, (   Читать дальше...   )Производство: РоссияЖанр: Драма, ВоенныйРежиссер: Иван Шурховецкий, Артем АксененкоАктеры: Игорь Шмаков, Василий Ракша, Артем Крестников, Григорий Калинин, Евгений Куршинский, Дмитрий Росляков, Вячеслав Буцков, Светлана Устинова, Алексей Марков, Илья Глинников, Родион Галюченко, Дмитрий Сергин, Иван Лапин, Алексей ИльинПеревод: ОригинальныйПродолжительность: 02:31:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391430   (780921) от 20.06.2020
-
-Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный психологический экшен-триллер Beyond: Two Souls с участием голливудских суперзвезд голливудских суперзвезд Эллен Пейдж и Виллема Дефо уносит вас в увлекательное путешествие по всему миру, в котором вы проживете часть удивительной жизни Джоди Холмс. Джоди не такая как все: с рождения она обладает связью с таинственным существом с невероятными способностями. (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B188AE7AE8444FB75AB4D59419FFC02F247186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207228   (780683) от 17.02.2018
-
-Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.2.1/dlc) Repack R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая часть серии стелс-экшенов о Братстве ассасинов, которая расскажет предысторию возникновения этой тайной организации. События игры разворачиваются в Древнем Египте. Главный герой — Байек, бывший член элитной охраны, в чьи обязанности входила защита дворцов и гробниц в период эллинистического Египта.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, RPG (Open World), 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930B29DABEA5823AD0A77119C8B5CA8B960C1237
 ```
 
 https://mybot314.ru/tekegram_catalog/

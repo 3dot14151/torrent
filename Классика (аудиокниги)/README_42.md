@@ -1,3 +1,113 @@
+###  Публикация: 1429239   (175526) от 07.12.2020
+
+Агата Кристи, Уильям Шекспир и др. | Собрание радиоспектаклей (1945-2014) [MP3] [RU, EN, DE]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное собрание радиоспектаклей Агаты Кристи, Шекспира, А. Островского, Горького, Гоголя, Пушкина, Грибоедова, Чехова, Салтыкова-Щедрина, Чернышевского, Гете, Гейне, а также частично Богомолова, Бондарева, Булгакова, Харпер Ли. Радиоспектикли собраны как на русском языке, так и на языке подлиника. Все имена папок и файлов тщательно оформлены, а звуковые файлы перекодированы (   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 556:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A6D4467DC363F02AA5B4A006186B1497DD79C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827210   (174093) от 20.10.2025
+
+Александр Блок, Анна Ахматова, Марина Цветаева и др. | Серебряная осень (2025) [MP3, Ирина Патракова, Андрей Красавин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома. Русская поэзия «Серебряного века».
+Серебряный век русской поэзии – условное название периода в развитии русской поэзии, который длился с конца XIX по начало XX века. Название было дано по аналогии с «Золотым веком» русской поэзии (первая треть XIX века).
+«Серебряная осень» – композиция по стихам поэтов «Серебряного века»: Александра (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3689042F030915FB3D6F65BDD877A008F5C6F800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827123   (173428) от 20.10.2025
+
+Александр Островский | Волки и овцы (Радиоспектакль) (2025) [MP3, Эра Зиганшина, Сергей Паршин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, волнующие (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5276E2906B8064AD09847518DF53F5133737CF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323807   (172416) от 18.10.2023
+
+Джон Бойнтон Пристли | Золотое руно (2006) [MP3, Готлиб Ронинсон, Георгий Менглет и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Бойнтон Пристли (1894–1984) – английский романист, литературный критик, сценарист, драматург и театральный режиссёр, биограф и автор путевых заметок.
+
+Серия: Гостелерадиофонд. Редкие Записи. Радиоспектакль по одноименной пьесе Пристли.
+Молли, скромная горничная шикарного отеля «Золотое руно», получает в наследство от внезапно умершего дяди старые акции некогда (   Читать дальше...   )Жанр: Классика, пьеса, комедияВ ролях: Готлиб Ронинсон, Георгий Менглет, Вера Енютина и др.Издательство: ИДДК. Звуковая книгаПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111E36089601D64A759FA53A0A1365900035AF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 323810   (172412) от 18.10.2023
 
 Джон Бойнтон Пристли | Теперь пусть уходит (2006) [MP3, Марк Прудкин, Нина Гуляева и др.]
@@ -6,7 +116,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172412.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172404.jpg" />
 </div>
 
 
@@ -63,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172332.jpg" />
 </div>
 
 
@@ -91,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172227.jpg" />
 </div>
 
 
@@ -119,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172226.jpg" />
 </div>
 
 
@@ -148,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172225.jpg" />
 </div>
 
 
@@ -174,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172223.jpg" />
 </div>
 
 
@@ -202,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172222.jpg" />
 </div>
 
 
@@ -228,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172221.jpg" />
 </div>
 
 
@@ -256,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172220.jpg" />
 </div>
 
 
@@ -285,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172219.jpg" />
 </div>
 
 
@@ -313,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172218.jpg" />
 </div>
 
 
@@ -341,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172215.jpg" />
 </div>
 
 
@@ -369,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172214.jpg" />
 </div>
 
 
@@ -397,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172209.jpg" />
 </div>
 
 
@@ -423,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172208.jpg" />
 </div>
 
 
@@ -451,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172206.jpg" />
 </div>
 
 
@@ -477,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172205.jpg" />
 </div>
 
 
@@ -504,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172202.jpg" />
 </div>
 
 
@@ -532,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172198.jpg" />
 </div>
 
 
@@ -561,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172193.jpg" />
 </div>
 
 
@@ -587,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172183.jpg" />
 </div>
 
 
@@ -600,118 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF534E6D955949F700E5CE2D4346FA1AA0C7137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351358   (172022) от 20.10.2023
-
-Александр Грин | Золотая цепь (Радиоспектакль ) (2004) [MP3, Наталья Данилова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по мотивам одноименного романа.
-"Тайна" и "Приключение" - вот магические слова, которые могут закружить человека, перенести его в необыкновенный дом, похожий на лабиринт, и сделать центром событий, о которых он будет вспоминать потом всю свою жизнь: 36 часов среди сильнейших волнений и опасности, восхищения, тоски и любви.
-Таинственные (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС-Консалт». ОАО ТРК «Петербург»Продолжительность: 06:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88C2939702F0255E85E088ACC09D09CA2041341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363231   (172017) от 20.10.2023
-
-Александр Пушкин | Драматические произведения (2003) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Литературные чтения.
-В настоящем издании представлены произведения Александра Сергеевича Пушкина: «Маленькие трагедии, Русалка», «Борис Годунов», «Пиковая дама».
-
-Текст читается без сокращения.Жанр: Русская литература, классика, поэзия, прозаИздательство: Студия «АРДИС»Продолжительность: 05:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFC431C57E65F5C56A1935948EFC170AD9DBA42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450222   (172015) от 20.10.2023
-
-Александр Пушкин, Михаил Булгаков | Граф Нулин. Мастер и Маргарита. Глава VII (2004) [MP3, Сергей Юрский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда»
-
-Поэма «Граф Нулин» была написана А.С. Пушкиным в декабре 1825 г. в Михайловском. Навеяна она, по словам поэта, «Лукрецией» Шекспира и «происшествием», случившимся по соседству, в Новоржевском уезде.
-А.С. Пушкина Сергей Юрский читает всю жизнь. Его сольное концертирование началось с «Графа Нулина». Актер полностью прочел (   Читать дальше...   )Жанр: Русская литература, классика, проза, поэзияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C81DED361115CD5641AD67B3DE08547E86A8158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452400   (172012) от 20.10.2023
-
-Александр Пушкин, Николай Гоголь | Аудиотеатр Сергея Юрского. Выпуск–1 (2007) [MP3, С.Ю. Юрский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиотеатр Сергея Юрского.Жанр: Русская литература, классика, повесть, стихиПродолжительность: 02:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F297D029F42804BA750EFABE65A01D99B8C342
 ```
 
 https://mybot314.ru/tekegram_catalog/

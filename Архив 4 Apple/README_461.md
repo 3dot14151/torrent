@@ -1,3 +1,111 @@
+###  Публикация: 1262485   (294457) от 15.11.2018
+
+Adobe Photoshop CC 2019 v20.0.1 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC — программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93294BBC081DFFBEFC7D255E7E77A408BD7FA3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334512   (294354) от 29.10.2019
+
+Paragon NTFS for Mac 15.5.71 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon NTFS for macOS - самыый-самый быстрый в мире низкоуровневый драйвер файловой системы с поддержкой MacOS Sierra, специально разработанный для решения проблем взаимодействия между Windows и Mac OS X, обеспечивающий полный доступ на чтение/запись к любой версии файловой системы NTFS в среде macOS.
+
+Paragon NTFS for macOS - единственный на рынке продукт, предоставляющий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: ParagonПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC11E25FA253A4F2F6C408C61739E96B981A149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962309   (294270) от 04.12.2015
+
+Parallels Desktop for Mac Business Edition 11.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
+С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 декабря 2015Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5390F2EC1EFF57BF4056DA4FEE0F152E3BDB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079757   (294261) от 04.12.2016
+
+WebVideoHunter 5.6.8 (232) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загружайте видео на Ваш компьютер! WebVideoHunter (ранее известный как YouTubeHunter)
+Это занимает всего несколько секунд, чтобы найти и скачать видео с YouTube, Vimeo, DailyMotion, VEVO и др. YouTubeHunter загружает в видео в 15 раз быстрее, чем просмотр в реальном времени и поддерживает одновременные загрузки. YouTubeHunter имеет встроенные возможности поиска и (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2016Разработчик: YouTubeHunterПоддерживаемая ОС: Mac OS X 10.5 +Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104603276EBC129149DFB3A507282E59CE677767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079710   (294193) от 04.12.2016
 
 Postbox 5.0.9 [Multi/Ru]
@@ -6,7 +114,7 @@ Postbox 5.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294193.jpg" />
+  <img src="Z:/picture/008/save_picture_294193.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Money Pro 1.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294189.jpg" />
+  <img src="Z:/picture/008/save_picture_294189.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ Serial 1.2.5 R2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294101.jpg" />
+  <img src="Z:/picture/008/save_picture_294101.jpg" />
 </div>
 
 
@@ -90,7 +198,7 @@ SnapNDrag Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293541.jpg" />
+  <img src="Z:/picture/008/save_picture_293541.jpg" />
 </div>
 
 
@@ -119,7 +227,7 @@ iFinance 4.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293519.jpg" />
+  <img src="Z:/picture/008/save_picture_293519.jpg" />
 </div>
 
 
@@ -145,7 +253,7 @@ SQLPro Studio 1.0.320 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293497.jpg" />
+  <img src="Z:/picture/008/save_picture_293497.jpg" />
 </div>
 
 
@@ -171,7 +279,7 @@ iStatistica 4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293495.jpg" />
+  <img src="Z:/picture/008/save_picture_293495.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ A Better Finder Rename 11 v11.03 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293372.jpg" />
+  <img src="Z:/picture/008/save_picture_293372.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ PeakHour 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293364.jpg" />
+  <img src="Z:/picture/008/save_picture_293364.jpg" />
 </div>
 
 
@@ -252,7 +360,7 @@ Fission 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293363.jpg" />
+  <img src="Z:/picture/008/save_picture_293363.jpg" />
 </div>
 
 
@@ -278,7 +386,7 @@ Wirecast Pro 13.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293358.jpg" />
+  <img src="Z:/picture/008/save_picture_293358.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ Fileloupe 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293348.jpg" />
+  <img src="Z:/picture/008/save_picture_293348.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ Murus Pro Suite 1.4.19 (include Vallum 3.0.3)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293335.jpg" />
+  <img src="Z:/picture/008/save_picture_293335.jpg" />
 </div>
 
 
@@ -359,7 +467,7 @@ PhotoSweeper Х 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293333.jpg" />
+  <img src="Z:/picture/008/save_picture_293333.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ WiFiSpoof 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293318.jpg" />
+  <img src="Z:/picture/008/save_picture_293318.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ VueScan Pro 9.5.92 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293317.jpg" />
+  <img src="Z:/picture/008/save_picture_293317.jpg" />
 </div>
 
 
@@ -437,7 +545,7 @@ Color Finale Pro 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293261.jpg" />
+  <img src="Z:/picture/008/save_picture_293261.jpg" />
 </div>
 
 
@@ -463,7 +571,7 @@ Polarr Photo Editor Pro 5.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293199.jpg" />
+  <img src="Z:/picture/008/save_picture_293199.jpg" />
 </div>
 
 
@@ -491,7 +599,7 @@ Zoc Terminal 7.24.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293193.jpg" />
+  <img src="Z:/picture/008/save_picture_293193.jpg" />
 </div>
 
 
@@ -517,7 +625,7 @@ Cisdem PDF Converter OCR 7.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293185.jpg" />
+  <img src="Z:/picture/008/save_picture_293185.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ Scrivener 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292988.jpg" />
+  <img src="Z:/picture/008/save_picture_292988.jpg" />
 </div>
 
 
@@ -572,7 +680,7 @@ Compressor 4.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292975.jpg" />
+  <img src="Z:/picture/008/save_picture_292975.jpg" />
 </div>
 
 
@@ -584,117 +692,6 @@ Compressor – замечательный и мощный инструмент �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA36998610EAA3316FDD1E199BD981DB15E2E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185410   (292938) от 21.11.2017
-
-ACDSee Photo Studio 4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ACDSee Photo Studio 4 — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio 4.
-
-Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: ACD Systems International Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807BFFA011AEE3DFAEA081E45A0E1D5594358D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185476   (292736) от 21.11.2017
-
-Adobe InDesign CC 2018 v13.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InDesign CC — профессиональный продукт для проектирования дизайна любых печатных или Интернет изданий. Adobe InDesign CC обладает всеми прогрессивными возможностями и инструментами машинной верстки, с помощью которых можно быстро и эффективно разрабатывать дизайн страниц любой сложности. Программа поддерживает импорт рисунков и текста из самых разнообразных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Немецкий, Французский  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6359B511ECDFD82B98AA01C471E8042F3122BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962703   (292635) от 05.12.2015
-
-Money Pro 1.5.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro - Управляйте деньгами: бюджеты, счета, напоминания, синхронизация
- Money Pro является следующим поколением программы Money - Мои деньги (более 2 миллионов скачиваний по всему миру).
-
-Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Удобная синхронизация (iPhone, iPad, Mac). Money (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 декабря 2015Разработчик: iBear LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4404334036176BAF910FA23A00CF9D7B96993BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185506   (292604) от 21.11.2017
-
-Parallels Desktop for Mac Business Edition 13.2.0 (43213) [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop для Mac Business Edition — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение, такое как Microsoft Office, без какого-либо ущерба для быстродействия.
-
-Parallels Desktop (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2017Разработчик: Parallels Holdings LtdПоддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B68007BC781F9B2320A90D0EAF7FFE70778832
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Pompeya - 5 альбомов + 2 EP's (2011-2015) [FLAC|Lossless]<Indie, New Wav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341876.jpg" />
+  <img src="Z:/picture/008/save_picture_341876.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341798.jpg" />
+  <img src="Z:/picture/008/save_picture_341798.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341686.jpg" />
+  <img src="Z:/picture/008/save_picture_341686.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341545.jpg" />
+  <img src="Z:/picture/008/save_picture_341545.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340058.jpg" />
+  <img src="Z:/picture/005/save_picture_340058.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339007.jpg" />
+  <img src="Z:/picture/008/save_picture_339007.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - SOSтрадание. Благотворительный музыкальн�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338747.jpg" />
+  <img src="Z:/picture/008/save_picture_338747.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336782.jpg" />
+  <img src="Z:/picture/008/save_picture_336782.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Conflagration - Destructive Generation (2011) Re-recorded Version 2022 [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336619.jpg" />
+  <img src="Z:/picture/008/save_picture_336619.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336482.jpg" />
+  <img src="Z:/picture/008/save_picture_336482.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336463.jpg" />
+  <img src="Z:/picture/008/save_picture_336463.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336427.jpg" />
+  <img src="Z:/picture/008/save_picture_336427.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ ACEtone - Я всё равно останусь здесь (2022) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336414.jpg" />
+  <img src="Z:/picture/008/save_picture_336414.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336178.jpg" />
+  <img src="Z:/picture/008/save_picture_336178.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Zmey Gorynich - Vжица (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Deat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334574.jpg" />
+  <img src="Z:/picture/008/save_picture_334574.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330207.jpg" />
+  <img src="Z:/picture/008/save_picture_330207.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330176.jpg" />
+  <img src="Z:/picture/008/save_picture_330176.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329991.jpg" />
+  <img src="Z:/picture/008/save_picture_329991.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329978.jpg" />
+  <img src="Z:/picture/008/save_picture_329978.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tsygun - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Grindcore, B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329917.jpg" />
+  <img src="Z:/picture/008/save_picture_329917.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Abyssphere - 4 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329816.jpg" />
+  <img src="Z:/picture/008/save_picture_329816.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329028.jpg" />
+  <img src="Z:/picture/008/save_picture_329028.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Рок против шерсти (приложение к журналам 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328354.jpg" />
+  <img src="Z:/picture/008/save_picture_328354.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328061.jpg" />
+  <img src="Z:/picture/008/save_picture_328061.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327410.jpg" />
+  <img src="Z:/picture/008/save_picture_327410.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327376.jpg" />
+  <img src="Z:/picture/008/save_picture_327376.jpg" />
 </div>
 
 

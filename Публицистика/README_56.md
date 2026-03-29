@@ -1,3 +1,86 @@
+###  Публикация: 1573588   (407380) от 03.09.2022
+
+Дмитрий Литвин | Project Blue Beam (NASA). Проект «Голубой луч» (Синий луч, Голубое сияние) НАСА (2018) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект «Синий луч» был создан для контроля сознания масс в глобальном масштабе. Его применение может быть местным — создавать массовые беспорядки в определенных регионах, влиять на вражеские войска, чтобы вызвать у них неконтролируемую панику, или наоборот — приводить массы людей, собравшихся в каком-либо случае в одном месте, в состояние радости, граничащей с эйфорией. (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C59C26B8928DEE10B04BD9BBA2418F89E20CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563441   (404431) от 21.10.2012
+
+Владимир Семенович Высоцкий | Сборник произведений Мастера и о нем | [1988-2012] [FB2, PDF, DJVU, chm]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Семенович Высоцкий (25 января 1938, Москва, СССР — 25 июля 1980, Москва, СССР) — выдающийся советский поэт, бард, актёр, автор нескольких прозаических произведений, заслуженный артист РСФСР (1986, посмертно) и лауреат Государственной премии СССР (1987, посмертно).
+
+ Высоцкий сыграл около тридцати ролей в фильмах (в том числе «Место встречи изменить нельзя», «Маленькие трагедии», «Короткие встречи», «Хозяин тайги», «Вертикаль»). Участник постоянной труппы театра Драмы и комедии на Таганке.
+
+ Высоцкий особенно прославился исполнением собственных песен под акустическую гитару.Формат: FB2, PDF, DJVU, chm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F259ADC13B3C0E9C09EA8DC631AD87F5D4EFB58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169200   (403177) от 27.09.2017
+
+Михаил Докучаев | Я охранял Брежнева и Горбачева. Откровения генерала КГБ (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_403177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги Михаил Степанович Докучаев занимал должность заместителя начальника 9-го Главного управления КГБ СССР, обеспечивающего охрану высших руководителей Советского Союза.
+В своих воспоминаниях М. С. Докучаев прежде всего рассказывает о Л. И. Брежневе и М. С. Горбачеве, которых ему довелось охранять, — об их характере, ближайшем окружении, стиле работы, (   Читать дальше...   )Жанр: История, Спецслужбы, Биографии и мемуары, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0D78E682A2DDE8FDACCE53534EA485D7C1F85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169457   (403144) от 27.09.2017
 
 Борис Сырков | Прослушка. Предтечи Сноудена (2013) [FB2, EPUB]
@@ -6,7 +89,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403144.jpg" />
+  <img src="Z:/picture/008/save_picture_403144.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403139.jpg" />
+  <img src="Z:/picture/008/save_picture_403139.jpg" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403137.jpg" />
+  <img src="Z:/picture/008/save_picture_403137.jpg" />
 </div>
 
 
@@ -86,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403110.jpg" />
+  <img src="Z:/picture/008/save_picture_403110.jpg" />
 </div>
 
 
@@ -112,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403100.jpg" />
+  <img src="Z:/picture/008/save_picture_403100.jpg" />
 </div>
 
 
@@ -138,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403053.jpg" />
+  <img src="Z:/picture/008/save_picture_403053.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402963.jpg" />
+  <img src="Z:/picture/008/save_picture_402963.jpg" />
 </div>
 
 
@@ -193,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402404.jpg" />
+  <img src="Z:/picture/008/save_picture_402404.jpg" />
 </div>
 
 
@@ -222,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401520.jpg" />
+  <img src="Z:/picture/008/save_picture_401520.jpg" />
 </div>
 
 
@@ -250,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401514.jpg" />
+  <img src="Z:/picture/008/save_picture_401514.jpg" />
 </div>
 
 
@@ -276,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401466.jpg" />
+  <img src="Z:/picture/008/save_picture_401466.jpg" />
 </div>
 
 
@@ -303,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400579.jpg" />
+  <img src="Z:/picture/008/save_picture_400579.jpg" />
 </div>
 
 
@@ -330,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399618.jpg" />
+  <img src="Z:/picture/008/save_picture_399618.jpg" />
 </div>
 
 
@@ -356,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399531.jpg" />
+  <img src="Z:/picture/008/save_picture_399531.jpg" />
 </div>
 
 
@@ -383,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396563.jpg" />
+  <img src="Z:/picture/008/save_picture_396563.jpg" />
 </div>
 
 
@@ -409,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394730.jpg" />
+  <img src="Z:/picture/008/save_picture_394730.jpg" />
 </div>
 
 
@@ -436,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393168.jpg" />
+  <img src="Z:/picture/008/save_picture_393168.jpg" />
 </div>
 
 
@@ -463,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390651.jpg" />
+  <img src="Z:/picture/008/save_picture_390651.jpg" />
 </div>
 
 
@@ -489,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387894.jpg" />
+  <img src="Z:/picture/008/save_picture_387894.jpg" />
 </div>
 
 
@@ -515,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387704.jpg" />
+  <img src="Z:/picture/008/save_picture_387704.jpg" />
 </div>
 
 
@@ -541,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387700.jpg" />
+  <img src="Z:/picture/008/save_picture_387700.jpg" />
 </div>
 
 
@@ -567,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387693.jpg" />
+  <img src="Z:/picture/008/save_picture_387693.jpg" />
 </div>
 
 
@@ -593,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387573.jpg" />
+  <img src="Z:/picture/008/save_picture_387573.jpg" />
 </div>
 
 
@@ -604,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50124B594631F0F3CDB30274DC117F09CFB4255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174318   (387532) от 14.10.2017
-
-Зоран Аврамович | Демократия и бомбардировки. Есть ли будущее у демократии? (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Зоран Аврамович принадлежит к кругу очень известных сербских интеллектуалов, и на протяжении десятилетий он с успехом занимается политической философией и современной теоретической мыслью. Автор утверждает, что острой проблемой является сама современная демократия, ее двойственная природа, проявляющаяся, в том числе, в двуличии и «двойных стандартах». По (   Читать дальше...   )Жанр: История, ПолитикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EB4C7FF9F6CA33DC130CD8E1167691A10B1154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174278   (387522) от 14.10.2017
-
-Дмитрий Собына | Непокоренный «Беркут» (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о событиях, происходивших в Киеве с ноября 2013 по февраль 2014 г. и кардинально изменивших судьбу Украины. Они описаны непосредственным их участником – сотрудником спецподразделения «Беркут». Автор вкладывает в рассказ главного героя впечатления, раздумья и переживания, выплавленные в непростой духовно-нравственной работе. Долг, честь, предательство, любовь (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F0B547D2705BEE98872E6A6750F67268FE30DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253043   (387459) от 07.10.2018
-
-Владислав Иноземцев | Несовременная страна. Россия в мире XXI века (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия – страна, безусловно, особенная, как это любят подчеркивать кремлевские идеологи, однако сложно найти хотя бы одну сферу, в которой такая особость указывала бы на прогрессивный характер и выгодно отличала ее от остальных государств. История последних полутора десятилетий – от пугающей своими темпами деиндустриализации до попыток воссоздать советскую империю (   Читать дальше...   )Жанр: Публицистика, Современное политическое положениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903A8F5A6B2030EA7AA71AC61C4B4739BA66C973
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1063204   (435160) от 16.10.2016
+
+Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Abandoned Neighborhood (02:25)
+02. Let’s Do This One (06:31)
+03. Approaching the House (02:38)
+04. The Blindman Liar (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845A8107B06EA528F8546D8A044D896433BDAD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063200   (434818) от 16.10.2016
+
+Steve Jablonsky - Deepwater Horizon / Глубоководный горизонт (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taming the Dinosaurs (04:12)
+02. The Rig (04:49)
+03. The Monster (03:01)
+04. Hope Is Not a Tactic (03:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD557C61DCCB515B714E2AEAD1F76920E4BB7843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164902   (434663) от 12.09.2017
 
 Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
@@ -6,7 +64,7 @@ Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434663.jpg" />
+  <img src="Z:/picture/008/save_picture_434663.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gregorian - Masters Of Chant Final Chapter Tour (2016) Live [MP3|320 Kbps] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434495.jpg" />
+  <img src="Z:/picture/008/save_picture_434495.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433867.jpg" />
+  <img src="Z:/picture/008/save_picture_433867.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|i
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433862.jpg" />
+  <img src="Z:/picture/008/save_picture_433862.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Hilmar Orn Hilmarsson & Sigur Ros - Angels Of The Universe (2001) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433833.jpg" />
+  <img src="Z:/picture/008/save_picture_433833.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ SolarFlow - Imagine (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433313.jpg" />
+  <img src="Z:/picture/008/save_picture_433313.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Criminal Mind / Мыслить как преступник (2005-2015) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433270.jpg" />
+  <img src="Z:/picture/008/save_picture_433270.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Jóhann Jóhannsson (Johann Johannsson) - Mandy (Original Motion Picture Soundtr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432988.jpg" />
+  <img src="Z:/picture/008/save_picture_432988.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432531.jpg" />
+  <img src="Z:/picture/008/save_picture_432531.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432517.jpg" />
+  <img src="Z:/picture/008/save_picture_432517.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Johnny Jewel - Lost River / Как поймать монстра (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432516.jpg" />
+  <img src="Z:/picture/008/save_picture_432516.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [FLAC|Lossless|WE
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432387.jpg" />
+  <img src="Z:/picture/008/save_picture_432387.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432379.jpg" />
+  <img src="Z:/picture/008/save_picture_432379.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432155.jpg" />
+  <img src="Z:/picture/008/save_picture_432155.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Overwatch (Original Soundtrack) (2016) [FLAC|Lossless|CD|tracks]<Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432072.jpg" />
+  <img src="Z:/picture/008/save_picture_432072.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneb
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431825.jpg" />
+  <img src="Z:/picture/008/save_picture_431825.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Watkins Family Hour - Vol. II (2022) [FLAC|Lossless|tracks + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431765.jpg" />
+  <img src="Z:/picture/008/save_picture_431765.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431642.jpg" />
+  <img src="Z:/picture/008/save_picture_431642.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Francisco Canaro & Carlos Roldn - Que me quiten lo bailao (1944) [MP3|320 кб/�
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431571.jpg" />
+  <img src="Z:/picture/008/save_picture_431571.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ Francisco Canaro - Charlo - Con Francisco Canaro & Francisco Lomuto (1989) [MP3|
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431570.jpg" />
+  <img src="Z:/picture/008/save_picture_431570.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Carly Comando - Dreamlife (2015) [OGG| 400-478 кб/с]<Instrumental, Classical 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431568.jpg" />
+  <img src="Z:/picture/008/save_picture_431568.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Francisco Canaro & Roberto Firpo - Las milongas ms milongas (2000) [MP3|192 кб
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431562.jpg" />
+  <img src="Z:/picture/008/save_picture_431562.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431049.jpg" />
+  <img src="Z:/picture/008/save_picture_431049.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ VA - Relax Music Vol.1 (Star Mark Compilations) (2008) [MP3|320 kbps]<Relax, Ins
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430961.jpg" />
+  <img src="Z:/picture/005/save_picture_430961.jpg" />
 </div>
 
 
@@ -695,64 +753,6 @@ VA - Relax Music Vol.1 (Star Mark Compilations) (2008) [MP3|320 kbps]<Relax, Ins
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249775   (430938) от 25.09.2018
-
-VA - Best Day Of My Life (2018) [MP3|320 Kbps] <Alternative, Indie, Folk>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430938.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. OneRepublic - Counting Stars
-02. Maroon 5 - She Will Be Loved(   Читать дальше...   )Жанр: Alternative, Indie, FolkПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822C3EEC9E228EE7050221B41B6BCC1101C452B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063969   (430232) от 18.10.2016
-
-Boots Randolph - Live (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: Gentle On My Mind/Cotton Fields/Oh, Lonesome Me
-02. King Of The Road
-03. Shadow Of Your Smile
-04. Big Daddy(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09DB24BE1AF34D0A12B0894C3E60F56D3939246
 ```
 
 https://mybot314.ru/tekegram_catalog/

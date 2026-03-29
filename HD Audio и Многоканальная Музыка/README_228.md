@@ -1,3 +1,235 @@
+###  Публикация: 1754491   (40684) от 11.10.2024
+
+The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Out For #1 (3:17)
+02. Light It Up (2:53)
+03. The Fall Guy (2:35)
+04. Make It All Right (3:34)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F653A821D829308402A5726D6B7AAF6403F82E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754498   (40682) от 11.10.2024
+
+Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masque Of The Pink Death (3:17)
+02. Nightboat (4:23)
+03. Black Moonlight (3:07)
+04. Love Voudou (4:29)(   Читать дальше...   )Жанр: Alternative, Pop RockПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77009811FD26D3C406A7492CEF88835212663B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695340   (40673) от 11.10.2024
+
+Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ad Infinitum — швейцарско-немецкая симфо-метал группа. Первоначально это был сольный проект швейцарской певицы Мелиссы Бонни, который преобразовался в полноценную группу с приходом барабанщика Никласа Мюллера, басиста Йонаса Асплинда и гитариста Адриана Тесенвитца.2020 - Chapter I: Monarchy
+2020 - Chapter I: Revisited
+2021 - Chapter II: Legacy
+2023 - Chapter III: DownFall(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BB6ED316B3FCDC8FC10C3C88A10E24A298DA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755305   (40392) от 14.10.2024
+
+Океан Ельзи (Okean Elzy) - Lighthouse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices Are Rising [00:03:13]
+02. Lighthouse (feat. John Rzeznik) [00:03:15]
+03. Might Have Been a Dream [00:03:16]
+04. Love on Fire [00:03:39](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D25D389D0E2E0978A7822AC141F2238F67E27F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755320   (40389) от 14.10.2024
+
+October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slander My Name [00:02:43]
+02. Touch on Me [00:03:10]
+03. A Beautiful Woman [00:03:24]
+04. 3rd Shift [00:02:46](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CC8422696C367B89F59E48F88360CBE55DD66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755094   (40382) от 14.10.2024
+
+Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness Through The Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical, Vocal Music (Secular and Sacred),  ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [00:01:45]
+02. Mourn, Mourn, Day is with Darkness Fled [00:00:55]
+03. Stay Time a While Thy Flying (Version for Voice, Archlute and Electric Guitar) [00:02:48]
+04. Old Man [00:03:23](   Читать дальше...   )Жанр: Classical, Vocal Music (Secular and Sacred), Vocal RecitalsПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFACB03D3DF017E1605904266E5330F398A0321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580496   (40372) от 14.10.2024
+
+Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death Angel — филиппино-американская трэш-метал-группа из города Конкорд, штат Калифорния, образованная в 1982 году.1987 - The Ultra-Violence
+1988 - Frolic Through The Park
+1990 - Act III
+2004 - The Art Of DyingЖанр: Thrash MetalПродолжительность: 08:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755123   (40370) от 14.10.2024
+
+Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Song (3:58)
+02. Stranger (4:00)
+03. Together Whatever (4:43)
+04. Only Love (4:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA99BE29E0C72D9822755009398009DD22AE693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755129   (40369) от 14.10.2024
 
 Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Harmonica>
@@ -6,7 +238,7 @@ Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40369.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40368.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40367.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40366.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40365.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40364.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40363.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40362.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40361.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40358.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40357.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40356.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40350.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40286.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40284.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40266.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40265.jpg" />
 </div>
 
 
@@ -494,7 +726,7 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40261.jpg" />
 </div>
 
 
@@ -508,238 +740,6 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB4AB0D2AA75FE3C112977B8036EA12898FF1A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755468   (40259) от 15.10.2024
-
-Cnvx (CoNVeX) - Unfolding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Rock, Electronic Rock, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic Attacks (Album Edit) [00:03:51]
-02. Secret Signs [00:02:49]
-03. Eiskalt (Album Edit) [00:03:11]
-04. Shady Illusions [00:04:40](   Читать дальше...   )Жанр: Dark Rock, Electronic Rock, Female VocalПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6655C435ED4FC48E7051F294C53B5946D3FCD428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522707   (40116) от 17.10.2024
-
-Mylene Farmer - Studio Albums (19 releases) (1986-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <French Pop, Dance, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица, композитор, актриса и поэтесса канадского происхождения.1986 - Cendres de lune
-1988 - Ainsi soit je
-1991 - L'autre
-1995 - AnamorphoseeЖанр: French Pop, Dance, ElectronicПродолжительность: 25:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD270D99E137BE6EF9BE745E37B5BA8A350F1808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755814   (40073) от 17.10.2024
-
-Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence Was Long Forgotten (4:20)
-02. What I Have Become (4:07)
-03. MelancHoly (3:38)
-04. Under the Moon & Sun (6:09)(   Читать дальше...   )Жанр: Gothic-Doom MetalПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F9704DF508EB68451F118DD7AB5688536331AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755695   (40057) от 17.10.2024
-
-Rufus Du Sol - Inhale / Exhale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Breaks, House, Deep House, Progressive House, Indie Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhale (1:48)
-02. Lately (4:10)
-03. Breathe (3:02)
-04. Music is Better (3:56)(   Читать дальше...   )Жанр: Electronic, Breaks, House, Deep House, Progressive House, Indie DanceПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0243A64EB4CBBB5A9ABF70B6B77C1D4383FB2739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755688   (40055) от 17.10.2024
-
-Lusa - The Colour Of Space (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TMAAS (with Beth Malcolm) (4:37)
-02. Probably (with Beth Malcolm) (3:55)
-03. Hawea (6:06)
-04. Crosses (with Beth Malcolm) (5:51)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046068EEE7D19667B2886E46F1D6A9DA4FB120AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755693   (40054) от 17.10.2024
-
-Сергей Беликов - Вечерний Звонок (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ballad, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вечерний Звонок
-02. Возвращение
-03. Подари Мне Свой Взгляд(   Читать дальше...   )Жанр: Ballad, SchlagerПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F04C0C9B805E13C53449FD475EA39ABB7EBEC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755925   (39984) от 18.10.2024
-
-Kylie Minogue - Tension II (2024) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Electro-Disco, Dance-Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Camera Action [00:02:42]
-02. Taboo [00:02:48]
-03. Someone For Me [00:02:34]
-04. Good As Gone [00:03:09](   Читать дальше...   )Жанр: Electro-Disco, Dance-PopПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179AB0332A9B29EC0F93BA68CEAD81FA7BC9DDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637597   (39975) от 18.10.2024
-
-Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kamelot — американская метал-группа, играющая симфонический пауэр-метал с примесями других жанров. Группа создана в 1991 году Томасом Янгбладом и Ричардом Ворнером и получила название в честь мифического города Камелот с намеренной ошибкой (K вместо C). Несмотря на своё североамериканское происхождение, Kamelot отличается типично «европейским» звучанием.1995 - Eternity
-1996 - Dominion
-1998 - Siege Perilous
-1999 - The Fourth LegacyЖанр: Progressive/Melodic Power MetalПродолжительность: 12:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D40E16D6498A4D79E1105B2DBFC9FD66DCF90E
 ```
 
 https://mybot314.ru/tekegram_catalog/

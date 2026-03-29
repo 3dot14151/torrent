@@ -1,3 +1,57 @@
+###  Публикация: 1082712   (277254) от 13.12.2016
+
+Елена Екимова | Православная азбука в стихах (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277254.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Православная азбука в стихах» Елены Екимовой в доступной форме объясняет детям основы православной веры. Буквы помогают малышам подняться вверх по лесенке, ведущей в мир любви и света.
+Каждое стихотворение- это дружеский разговор с ребёнком, из которого он узнаёт о Боге и о душе, о добре и зле, о радости и надежде.
+Красочные иллюстрации, сопровождающие четверостишия, (   Читать дальше...   )Жанр: АзбукаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0301D1E6D0A622F6EAD3F33196346E0524EED538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187967   (276945) от 30.11.2017
+
+Н. М. Зенченко | Английский язык в картинках (1991) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга будет полезна учителям, школьникам и всем тем, кто изучает или собирается самостоятельно изучать английский язык. Книга знакомит читателя с более чем 2000 английских слов и выражений на повседневно-бытовую тему.Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77D1F55E4A23FEAA2C43454FEAD376AB6EEE68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083728   (273559) от 16.12.2016
 
 Джек Лондон | Любовь к жизни. С вопросами и ответами для почемучек (2017) [FB2]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273559.jpg" />
+  <img src="Z:/picture/008/save_picture_273559.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273087.jpg" />
+  <img src="Z:/picture/008/save_picture_273087.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272918.jpg" />
+  <img src="Z:/picture/008/save_picture_272918.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272907.jpg" />
+  <img src="Z:/picture/008/save_picture_272907.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272142.jpg" />
+  <img src="Z:/picture/008/save_picture_272142.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272050.jpg" />
+  <img src="Z:/picture/008/save_picture_272050.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271771.jpg" />
+  <img src="Z:/picture/008/save_picture_271771.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271669.jpg" />
+  <img src="Z:/picture/008/save_picture_271669.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271666.jpg" />
+  <img src="Z:/picture/008/save_picture_271666.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271665.jpg" />
+  <img src="Z:/picture/008/save_picture_271665.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271519.jpg" />
+  <img src="Z:/picture/008/save_picture_271519.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271516.jpg" />
+  <img src="Z:/picture/008/save_picture_271516.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271434.jpg" />
+  <img src="Z:/picture/008/save_picture_271434.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270033.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270003.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269995.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269942.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269641.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268336.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268259.jpg" />
+  <img src="Z:/picture/008/save_picture_268259.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267468.jpg" />
+  <img src="Z:/picture/008/save_picture_267468.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267088.jpg" />
+  <img src="Z:/picture/008/save_picture_267088.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264284.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263870.jpg" />
 </div>
 
 
@@ -626,61 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B5FB7EC80C7215C8FE22FB2408EA8693D8FF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340588   (263502) от 24.11.2019
-
-Мария Мельникова | Психология на пальцах (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь понять, кто говорит правду, а кто лжёт? Кому можно доверять, а кому – нет? Как не попасть в психологическую ловушку? Как разгадать истинные мысли и желания? Хочешь быть победителем и не попадать под чужое влияние? Тебя интересует психология человека? Тогда эта книга для тебя!
-
-Серёга и Митька, отправляясь на поиски пропавшего котенка, даже не догадывались, (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660F2981128FC04F35AF195BBA2BC5E531756DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340688   (263424) от 24.11.2019
-
-Марина Талер | Увлекательная математика для детей и взрослых (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы считаете, что математика может вызывать только скуку? И вы где-то правы!
-В одиночестве даже самое увлекательное дело может заставить заскучать. Гораздо веселее решать интереснейшие задачки в хорошей компании – такой, как научная семейка профессора Перельмана. Все три поколения этой семьи очень любят такие занятия, ведь в любом возрасте приятно ощущать себя умным (   Читать дальше...   )Жанр: Головоломки, игры, заданияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B6C53C32CEE44BD70E3F9EB8B5EA79CB04C6C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

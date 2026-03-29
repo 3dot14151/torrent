@@ -1,3 +1,130 @@
+###  Публикация: 553343   (444156) от 28.09.2012
+
+VA - Ibiza Summer Club 2012 (2012) [MP3|320 кб/с]<Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Is Crazy (feat. Catalin D, Drago) (Andy Grape Remix Edit) - Valdi
+02. My Sexy Lady (Radio Edit) - Ragga Blaaza
+03. I Want Your Love (feat. Fixxit)Жанр: DanceПродолжительность: 02:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF06301318C3249EE9E51BA39B917BC34B473C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552891   (444154) от 28.09.2012
+
+Dunkan - Freshtime (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freshtime (Original Mix) 07:07
+02. Equator (Original Mix) 07:14
+03. Carnival (Original Mix) 06:52
+04. Travelman (Original Mix) 06:06
+05. Celebrate (Original Mix) 06:50
+06. Awakening (Original Mix) 06:16
+07. Capetown (Original Mix) 06:47
+08. Shinerunner (Original Mix) 06:41
+09. Turismo (Original Mix) 06:09
+10. Russian Guide (Original Mix) 07:03(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CC2FC4B904F57B94AEBF6A2DE4B4068C16B4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248289   (444134) от 19.09.2018
+
+VA - Ministry of Progressive (50 Supreme Tunes) Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doub - Dreams (Original Mix)
+02. Alex Sounds - Dark Element (Original Mix)
+03. Kash Trivedi - Darkness (Original Mix)
+04. Daniel Casseti - The Flame Rises (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E1700C5717ED25373F302BB57284FE9A6341E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553170   (443973) от 28.09.2012
+
+Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azari & III - Reckless (With Your Love) (Neville Watson Remix) (06:33)
+02. Maceo Plex - Frisky (04:30)
+03. Jamie Jones Feat. Art Department - Our Time In Liberty (09:05)
+04. HNQO - Point Of View (06:41)
+05. Noir & Haze - Around (Rudimental Remix Edit) (03:22)
+06. Flashmob - Need In Me (Edit) (03:34)
+07. Intruder Feat. Jei - Amame (Dyed Soundorom Downtown Remix) (07:14)
+08. Infinity Ink - Infinity (05:10)
+09. Hot Since 82 - Harmon (06:40)
+10. Sandy Rivera Feat. Alisa Fedele - Avenue (Main Mix) (07:55)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870A0463C97DFAE290B59EDEA668316ECCDFE2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553352   (442257) от 29.09.2012
 
 VA - Club 86 Recordings - Ibiza Closing 12 (2012) [MP3|320 кб/с]<Progressive House,House>
@@ -6,7 +133,7 @@ VA - Club 86 Recordings - Ibiza Closing 12 (2012) [MP3|320 кб/с]<Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442257.jpg" />
+  <img src="Z:/picture/008/save_picture_442257.jpg" />
 </div>
 
 
@@ -41,7 +168,7 @@ VA - This Is It Hard Workout Pays Off! (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441835.jpg" />
+  <img src="Z:/picture/008/save_picture_441835.jpg" />
 </div>
 
 
@@ -70,7 +197,7 @@ VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441509.jpg" />
+  <img src="Z:/picture/008/save_picture_441509.jpg" />
 </div>
 
 
@@ -99,7 +226,7 @@ Peter Gun - Powder (2012) [MP3|320 кб/с]<Progressive House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438911.jpg" />
+  <img src="Z:/picture/008/save_picture_438911.jpg" />
 </div>
 
 
@@ -134,7 +261,7 @@ Various Artists - Future Bass: Ministry of Sound (2012) [MP3|320 кб/с]<Tech /
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438753.jpg" />
+  <img src="Z:/picture/008/save_picture_438753.jpg" />
 </div>
 
 
@@ -169,7 +296,7 @@ VA - Crossfit Selection 1 (2020) [MP3|320 Kbps] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438420.jpg" />
+  <img src="Z:/picture/008/save_picture_438420.jpg" />
 </div>
 
 
@@ -198,7 +325,7 @@ Alex Cortiz - Deep Deluxe (2015) [MP3|320 кб/с]<Electronic, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438315.jpg" />
+  <img src="Z:/picture/008/save_picture_438315.jpg" />
 </div>
 
 
@@ -227,7 +354,7 @@ VA - Armada Trice Amsterdam (2016) [MP3|320 Kbps] <Progressive House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437656.jpg" />
+  <img src="Z:/picture/008/save_picture_437656.jpg" />
 </div>
 
 
@@ -256,7 +383,7 @@ VA - Balance 022 (mixed by Funk D'Void) (2012) [MP3|~245 кб/с (V0)]<House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436951.jpg" />
+  <img src="Z:/picture/008/save_picture_436951.jpg" />
 </div>
 
 
@@ -291,7 +418,7 @@ VA - Dance Hits The 00s (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436073.jpg" />
+  <img src="Z:/picture/008/save_picture_436073.jpg" />
 </div>
 
 
@@ -320,7 +447,7 @@ VA - Milk & Sugar Present Beach Sessions (2018) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435716.jpg" />
+  <img src="Z:/picture/008/save_picture_435716.jpg" />
 </div>
 
 
@@ -349,7 +476,7 @@ VA - Club Traxx - Progressive House 21 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434315.jpg" />
+  <img src="Z:/picture/008/save_picture_434315.jpg" />
 </div>
 
 
@@ -378,7 +505,7 @@ VA - The Best Of Summer Season '19 (2019) [MP3|320 Kbps] <House, Tech House, Bas
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433795.jpg" />
+  <img src="Z:/picture/008/save_picture_433795.jpg" />
 </div>
 
 
@@ -407,7 +534,7 @@ Various Artists - Club House 2012 (2012) [MP3|320 кб/с]<Club House, House, Pr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431874.jpg" />
+  <img src="Z:/picture/008/save_picture_431874.jpg" />
 </div>
 
 
@@ -442,7 +569,7 @@ Dustin Nantais - Cloak / A Long Road (The Remixes) (31.08.2015) [MP3|320 кб/с
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431747.jpg" />
+  <img src="Z:/picture/008/save_picture_431747.jpg" />
 </div>
 
 
@@ -469,7 +596,7 @@ Various Artists - Catz 'n Dogz Presents Body Language Volume 12 (2012) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431707.jpg" />
+  <img src="Z:/picture/008/save_picture_431707.jpg" />
 </div>
 
 
@@ -504,7 +631,7 @@ VA - Good Bye Summer '18 (2018) [MP3|320 Kbps] <House,Future House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431388.jpg" />
+  <img src="Z:/picture/008/save_picture_431388.jpg" />
 </div>
 
 
@@ -533,7 +660,7 @@ VA - Tech House Frequencies, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431381.jpg" />
+  <img src="Z:/picture/008/save_picture_431381.jpg" />
 </div>
 
 
@@ -562,7 +689,7 @@ VA - Beatbox Rockers, Vol. 6 (50 Club Bangers) (2018) [MP3|320 Kbps] <House,Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431380.jpg" />
+  <img src="Z:/picture/008/save_picture_431380.jpg" />
 </div>
 
 
@@ -591,7 +718,7 @@ VA - Ibiza Sundance 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430883.jpg" />
+  <img src="Z:/picture/008/save_picture_430883.jpg" />
 </div>
 
 
@@ -620,7 +747,7 @@ VA - Skywalker: Leaving The Dreamhouse (1996) 2xCD, Compilation [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429793.jpg" />
+  <img src="Z:/picture/008/save_picture_429793.jpg" />
 </div>
 
 
@@ -649,7 +776,7 @@ VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429729.jpg" />
+  <img src="Z:/picture/008/save_picture_429729.jpg" />
 </div>
 
 
@@ -663,128 +790,6 @@ VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D8FA5EDFD9319F914B337187B24087A96AA0690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555974   (429508) от 04.10.2012
-
-Zedd - Clarity (Album) (02.10.2012) [MP3|256 кб/с]<Electro , Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zedd - Hourglass (Feat. Liz)
-02. Zedd - Shave It Up
-03. Zedd - Spectrum (Feat. Matthew Koma)
-04. Zedd - Lost At Sea (Feat. Ryan Tedder)
-05. Zedd - Clarity (Feat. Foxes)
-06. Zedd - Codec
-07. Zedd - Stache
-08. Zedd & Lucky Date - Fall Into The Sky (Feat. Ellie Goulding)
-09. Zedd - Follow You Down (Feat. Bright Lights)
-10. Zedd - EposЖанр: Electro , Progressive HouseПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C03427C63A0F7B160E5547C14DDA8FE756D375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249994   (429269) от 26.09.2018
-
-VA - Summer Garden Vol.1 (2018) [MP3|320 Kbps] <House, Funky, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saladin - Trust Issues (Original Mix)
-02. Mr. K-Alexi - Beautiful Chi-Biza (Original Mix)
-03. Maurice Brown & Lee Farmer - Stand Up & Dance Ft Chelsea Baratz & Chris Rob (Original Mix)
-04. Paul Johnson - After The Storm (PJ Extended Mix)(   Читать дальше...   )Жанр: House, Funky, ClubПродолжительность: 04:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA305E53A5725AD90DA1A58550C9F2BA2473B364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166068   (428648) от 15.09.2017
-
-VA - Latin Tribal Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428648.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Simon Fava – El Encanto (Dave Rose remix) (07:10)
-2. Yan Kings & Matt Petrone – Misirlou (04:23)
-3. DjM & Rachel Armenta – Besame Mucho 2k17 (06:19)
-4. Dario Nunez & Victor Perez – All Right Ya (04:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7288C2FE126E00E1C49C2622DBD03D88A3156F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166144   (428328) от 15.09.2017
-
-VA - Ibiza 2017 Closing Party [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusky – Bowed (Original Mix)
-02. Solardo – Mental Atmosphere (Original Mix)
-03. Josh Taylor & Justin Jay – Pussy Pop (Jamie Jones Remix)
-04. Luttrell – Generate (Original Mix)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 08:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1305382EF27B11F03DA436E0DFF8728F7A5F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

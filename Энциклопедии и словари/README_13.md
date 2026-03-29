@@ -1,3 +1,31 @@
+###  Публикация: 1749440   (43555) от 14.09.2024
+
+Ф. Крюкер | Гонконг. Макао. Путеводитель + мини-разговорник (2013) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путеводитель содержит 11 маршрутов, мини-разговорник, 11 внутренних карт.
+Гонконг – жемчужина Востока, Макао – многоликое сияние Европы в Азии. Два потрясающе красивых, манящих, но совершенно разных города. Их обаяние, историю, богатую архитектуру, многочисленные легенды откроет для вас путеводитель «Полиглот».
+Еще 200 лет назад этот скалистый остров служил пристанищем (   Читать дальше...   )Жанр: Путеводитель, разговорникИздательство: Москва: Аякс-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715C7DDAE233BC764E09D75A8F6EB2230F6D6D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749443   (43552) от 14.09.2024
 
 Х. Нойшеффер | Дубай. Путеводитель + мини-разговорник (2014) [PDF]
@@ -6,7 +34,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43552.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43545.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43403.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42340.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42233.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42151.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41855.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41850.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41246.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40882.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40846.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40842.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40215.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39791.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39315.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39032.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38617.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38208.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38204.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37587.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37118.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36769.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36492.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33982.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33336.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96C7BECAD6C3D79653C46E197400A6A118E5F922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768679   (33079) от 25.12.2024
-
-В. Бабенко | Птицы дач и садовых участков (2012) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированный атлас «Птицы дач и садовых участков» посвящен птицам, живущим с нами по соседству. Часто, слушая и наблюдая пернатого певца, залетевшего к нам на дачный или садовый участок, мы не знаем, как он называется, не знакомы c его повадками и особенностями биологии. Открыв эту книгу, вы узнаете о самых распространенных представителях пернатых пригородов, (   Читать дальше...   )Жанр: биологические науки, орнитология, иллюстрированный атласИздательство: АстрельФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABA6F9278527FCCAE3F1B8882DA6F40E52D17F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dashcam Viewer 3.1.9 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740969.jpg" />
+  <img src="Z:/picture/008/save_picture_740969.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Twinkstar 4.11.2000.1901 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740968.jpg" />
+  <img src="Z:/picture/008/save_picture_740968.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sonible smart:EQ2 1.1.1 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740967.jpg" />
+  <img src="Z:/picture/008/save_picture_740967.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ White Lies - FIVE (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740965.jpg" />
+  <img src="Z:/picture/008/save_picture_740965.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ BurnAware Professional 12.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740964.jpg" />
+  <img src="Z:/picture/008/save_picture_740964.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Norton 360 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740962.jpg" />
+  <img src="Z:/picture/008/save_picture_740962.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ The Beat feat Ranking Roger - Public Confidential (2019) [FLAC|Lossless|WEB-DL|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740960.jpg" />
+  <img src="Z:/picture/008/save_picture_740960.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740959.jpg" />
+  <img src="Z:/picture/008/save_picture_740959.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Norton AntiVirus 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740958.jpg" />
+  <img src="Z:/picture/008/save_picture_740958.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Devaldi - Mediterana (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740952.jpg" />
+  <img src="Z:/picture/008/save_picture_740952.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ KLS Backup 2017 Professional 9.1.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740940.jpg" />
+  <img src="Z:/picture/008/save_picture_740940.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ K-Lite Codec Pack Update 14.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740938.jpg" />
+  <img src="Z:/picture/008/save_picture_740938.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740933.jpg" />
+  <img src="Z:/picture/008/save_picture_740933.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Allavsoft Video Downloader Converter 3.14.3.6318 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740918.jpg" />
+  <img src="Z:/picture/008/save_picture_740918.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740916.jpg" />
+  <img src="Z:/picture/008/save_picture_740916.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740910.jpg" />
+  <img src="Z:/picture/008/save_picture_740910.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VueScan Pro 9.5.74 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740909.jpg" />
+  <img src="Z:/picture/008/save_picture_740909.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ USDownloader 1.3.5.9 Portable (20.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740904.jpg" />
+  <img src="Z:/picture/008/save_picture_740904.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Polarr Photo Editor 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740899.jpg" />
+  <img src="Z:/picture/008/save_picture_740899.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740896.jpg" />
+  <img src="Z:/picture/008/save_picture_740896.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Display Driver Uninstaller 18.0.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740872.jpg" />
+  <img src="Z:/picture/008/save_picture_740872.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Norton Security 22.16.4.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740862.jpg" />
+  <img src="Z:/picture/008/save_picture_740862.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740856.jpg" />
+  <img src="Z:/picture/008/save_picture_740856.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Haujobb - Alive (2018) Metropolis Records [FLAC|Lossless|WEB-DL|tracks] <EBM, ID
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740848.jpg" />
+  <img src="Z:/picture/008/save_picture_740848.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ IDM UltraCompare Pro 18.00.0.47 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740847.jpg" />
+  <img src="Z:/picture/008/save_picture_740847.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740810.jpg" />
+  <img src="Z:/picture/008/save_picture_740810.jpg" />
 </div>
 
 

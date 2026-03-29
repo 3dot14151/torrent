@@ -1,3 +1,90 @@
+###  Публикация: 1700162   (117164) от 16.02.2024
+
+UMC - CHAPTER 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Physical (Metal Version) [3:26]
+02 - Never Let Me Down (Metal Version) [2:36]
+03 - Kings & Queens (Metal Version) [2:42]
+04 - Dance Monkey (Metal Version) [4:12](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D52E377D6586EFBDACC9FCDA6796004D87E844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700158   (117160) от 16.02.2024
+
+UMC - CHAPTER 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scream & Shout (Metal Version) [5:28]
+02 - Wake Me Up (Metal Version) [3:50]
+03 - Can't Hold Us (Metal Version) [4:13]
+04 - Uptown Funk (Metal Version) [4:30](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8572D414A6DC34D1427A084BB779B5D91B1F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700338   (117030) от 17.02.2024
+
+Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Celtic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel [00:04:11]
+02. No More Fear [00:05:11]
+03. Unshakable [00:05:06]
+04. Speak to Me [00:04:43](   Читать дальше...   )Жанр: Symphonic Metal, Celtic Metal, Female VocalПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C057B07A15A48E2DB3C9FCB97B0E84698F942A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700310   (117014) от 17.02.2024
 
 Atrophy - Socialized Hate (1988) Remastered, 2007, Displeased Records [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +93,7 @@ Atrophy - Socialized Hate (1988) Remastered, 2007, Displeased Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117014.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Atrophy - Chemical Dependency (1987) Demo, Reissue, 2019, VIC Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116996.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Atrophy - Socialized Hate (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116995.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Atrophy - Violent by Nature (1990) Reissue, 2007, Metal Mind Productions [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116993.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Vanir - Epitome (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Heavy Metal, V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116892.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ For I Am King - Crown (2024) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116851.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Deaf & Dumb - Evildarkrooted... Total Dumb (2013) Compilation [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116831.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Chimeras - Silent Cries in the Stifling Haze (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116826.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Eisenkult - Vulgare, deutsche Hassmusik (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116648.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Romuvos - Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116508.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Hellman - Born, Suffering, Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116481.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Ataraxy - Revelations of the Ethereal (2012) Reissue, 2020, Dark Descent Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116334.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Ataraxy - Where All Hope Fades (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116333.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ My Darkest Time - The Last (2016) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116331.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Ataraxy - Curse of the Requiem Mass (2010) EP [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116324.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116169.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Black Sabbath - Heaven In Hartford (1980) Live, 2024 Smokin' [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116031.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115993.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Avulsion - Indoctrination into the Cult of Death (2002) Reissue, 2003, Deathgasm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115975.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Avulsion - Dimensions of Darkness (1997) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115973.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Cathubodua - Interbellum (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115831.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Dissolving of Prodigy - Time Ruins Also Beauty (1997) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115811.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115797.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E19648363DBE3E11CFBB609BFB1BFDE9332AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702403   (115701) от 25.02.2024
-
-Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Mary And The Holy Ghost [00:03:34]
-02. Strange Highways [00:06:41]
-03. Don't Talk To Strangers [00:05:48]
-04. Pain [00:03:27](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1BAA52A57FF468CD0DDE65838CE8CD5863CBC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702444   (115669) от 25.02.2024
-
-Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Peace of the Sky (01:04)
-02. Head Space (05:36)
-03. Never Again (04:13)
-04. Time's Hand (05:55)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4C603B626C34C156D9FF1A1D372FF06387B487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702409   (115666) от 25.02.2024
-
-Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] <Death ‘n’ Roll, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drachen in der Todeszone (Balgeroth Version) 00:03:45
-02. Drachenstahl und Feuer (Balgeroth Version) 00:03:50
-03. Bal (Balgeroth Version) 00:03:33
-04. Der Schrecken der Schlacht (Balgeroth Version) 00:03:05(   Читать дальше...   )Жанр: Death ‘n’ Roll, Black MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EA0E2F38FC0EA6E3F4D6528920D544CCD76005
 ```
 
 https://mybot314.ru/tekegram_catalog/

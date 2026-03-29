@@ -1,3 +1,29 @@
+###  Публикация: 1538552   (32686) от 29.12.2024
+
+Stellaris (2016) [Ru/Multi] (3.14.15926/dlc) Repack Decepticon [Galaxy Edition]
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1344E5EE139753A4AF1C7BA40A362F3E81B6BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770456   (32356) от 01.01.2025
 
 S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
@@ -6,7 +32,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.7.1846) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32356.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31617.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30934.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30666.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30475.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30474.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29964.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29239.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29232.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28939.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28836.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28747.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28573.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Warcraft: Remastered Trilogy (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157/2.0) Repac
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28331.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Men of War: Assault Squad 2  / В тылу врага: Штурм 2 (2014) [Ru/E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28311.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28195.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28114.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 17334550/dlc) R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27783.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27760.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.419.0/dlc) Repack Wagner [Pre
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27590.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27509.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ StarCraft & Brood War (1998) [Ru] (1.16.1/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27352.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27154.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.02.01/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27065.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Songs of Silence (2024) [Ru/Multi] (1.2.0-d.8104) Repack FitGirl [Deluxe Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26933.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Songs of Silence погружает игроков в фантастически
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0807D6281E6C54D78CBEBDB989531A49A662DF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781501   (26737) от 23.02.2025
-
-Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Orion предлагает игрокам исследовать безграничные просторы галактики, выступив на стороне одной из многочисленных разумных рас, населяющих вселенную. Возрожденная Master of Orion наследует лучшие черты своих знаменитых предшественниц, совмещая в себе традиционную философию 4Х (Explore, Expand, Exploit and Exterminate) и новейшие разработки индустрии.Тип издания: RepackРазработчик: NGD Studios и Wargaming.netЖанр: СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B03ABD285E911CF5BBED0F1A12EC5F150A806A
 ```
 
 https://mybot314.ru/tekegram_catalog/

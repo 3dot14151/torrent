@@ -6,7 +6,7 @@ Windows 10 Manager 2.2.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785213.jpg" />
+  <img src="Z:/picture/008/save_picture_785213.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ All in One Runtimes 2.4.5 Portable [De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785188.jpg" />
+  <img src="Z:/picture/008/save_picture_785188.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RE Vision FX Effections Plus 17.0 RePack by Team V.R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785176.jpg" />
+  <img src="Z:/picture/008/save_picture_785176.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785145.jpg" />
+  <img src="Z:/picture/008/save_picture_785145.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IObit Driver Booster Pro 7.5.0.750 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785144.jpg" />
+  <img src="Z:/picture/008/save_picture_785144.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ IObit Smart Defrag Pro 6.5.5.109 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785143.jpg" />
+  <img src="Z:/picture/008/save_picture_785143.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ScreenToGif 2.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785141.jpg" />
+  <img src="Z:/picture/008/save_picture_785141.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AMA Supercross Championship: Salt Lake City (08.06.2020) WEB-DL [H.264/1080p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785140.jpg" />
+  <img src="Z:/picture/008/save_picture_785140.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Trojan Killer 2.1.28 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785136.jpg" />
+  <img src="Z:/picture/008/save_picture_785136.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TinyWall 3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785120.jpg" />
+  <img src="Z:/picture/008/save_picture_785120.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Chasys Draw IES 5.01.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785117.jpg" />
+  <img src="Z:/picture/008/save_picture_785117.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wondershare Filmora 9.5.0.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785098.jpg" />
+  <img src="Z:/picture/008/save_picture_785098.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ IObit Driver Booster Pro 7.5.0.751 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785087.jpg" />
+  <img src="Z:/picture/008/save_picture_785087.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VIP Notes 9.9.28 (Paid) [RU]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785076.jpg" />
+  <img src="Z:/picture/008/save_picture_785076.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Despondency - Revelation IV (Rise of the Nemesis) (2009) [FLAC|Lossless|tracks +
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785065.jpg" />
+  <img src="Z:/picture/008/save_picture_785065.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ FSNotes 2.6.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785064.jpg" />
+  <img src="Z:/picture/008/save_picture_785064.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ SQLPro Studio 1.0.335 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785063.jpg" />
+  <img src="Z:/picture/008/save_picture_785063.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ myTracks 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785060.jpg" />
+  <img src="Z:/picture/008/save_picture_785060.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785055.jpg" />
+  <img src="Z:/picture/008/save_picture_785055.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Notability 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785022.jpg" />
+  <img src="Z:/picture/008/save_picture_785022.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ BestReminder v2019.01.18.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785004.jpg" />
+  <img src="Z:/picture/008/save_picture_785004.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ DiskDigger 1.20.9.2707 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785002.jpg" />
+  <img src="Z:/picture/008/save_picture_785002.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ GoodSync Enterprise 10.9.22.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785000.jpg" />
+  <img src="Z:/picture/008/save_picture_785000.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ FastStone Image Viewer 6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784992.jpg" />
+  <img src="Z:/picture/008/save_picture_784992.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Dashcam Viewer 3.1.8 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784991.jpg" />
+  <img src="Z:/picture/008/save_picture_784991.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PDF Expert 2.2.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784970.jpg" />
+  <img src="Z:/picture/008/save_picture_784970.jpg" />
 </div>
 
 

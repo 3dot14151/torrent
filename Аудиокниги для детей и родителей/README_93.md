@@ -1,3 +1,85 @@
+###  Публикация: 329166   (61113) от 01.04.2024
+
+Марк Твен | Принц и нищий (2011) [MP3, Сергей Чонишвили]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Марк Твен (1835–1910) – американский писатель.
+В книге Марка Твена рассказывается о приключениях английского принца Эдуарда Тюдора и маленького оборвыша Тома Кенти, на время поменявшихся местами. Кого из них коронуют на английский престол?Жанр: Зарубежная литература, классика, роман-сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 06:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CA696BACEBAA7EE3C4B41DD1BE194A93BA4580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395774   (61108) от 01.04.2024
+
+Марк Твен | Принц и нищий (2004) [MP3, Андрей Зарецкий]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Искатели приключений.
+Марк Твен (1835–1910) – американский писатель.
+Маленький оборванец Том Кенти никогда и не подумал бы, что есть на земле мальчик, похожий на него, как зеркальное отражение. Волею судьбы он знакомится с таким мальчиком - английским принцем Эдуардом Тюдоре и по забавной случайности они меняются местами. Каким образом разрешится эта (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, роман-сказкаИздательство: СиДиКомПродолжительность: 09:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3194D8E47E605B31E178909350706146B93472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395743   (61105) от 01.04.2024
+
+Марк Твен | Принц и нищий (Радиоспектакль) (2007) [MP3, Сергей Чонишвили и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по знаменитому роману Марка Твена. Принц и бродяга волею судьбы поменялись местами. Оба мальчика так похожи друг на друга, что никто не замечает подмены. Их ждут удивительные приключения: порою забавные, порою опасные, невероятные и захватывающе интересные!Жанр: Зарубежная литература для детей, классика, приключения, роман-сказкаВ ролях: Сергей Чонишвили, Данила Якубовский, Михаил Гульдан, Олег Щербинин, Артем Карапетян, Александр Коврижных, Ирина Якубовская, Елена Якубовская и другиеПродолжительность: 02:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6542F9CE8A728D7E4968C13043B75F3CD5E9238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 444490   (60292) от 09.04.2024
 
 Астрид Линдгрен | Пеппи Длинный чулок (Мюзикл) (2007) [MP3, Михаил Боярский и др.]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60292.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60287.jpg" />
 </div>
 
 
@@ -62,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60286.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60076.jpg" />
 </div>
 
 
@@ -117,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60033.jpg" />
 </div>
 
 
@@ -144,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60031.jpg" />
 </div>
 
 
@@ -172,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59266.jpg" />
 </div>
 
 
@@ -198,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58865.jpg" />
 </div>
 
 
@@ -227,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58199.jpg" />
 </div>
 
 
@@ -255,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57113.jpg" />
 </div>
 
 
@@ -282,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56837.jpg" />
 </div>
 
 
@@ -311,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56831.jpg" />
 </div>
 
 
@@ -338,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56618.jpg" />
 </div>
 
 
@@ -364,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56604.jpg" />
 </div>
 
 
@@ -391,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56492.jpg" />
 </div>
 
 
@@ -417,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56470.jpg" />
 </div>
 
 
@@ -444,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56466.jpg" />
 </div>
 
 
@@ -471,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56465.jpg" />
 </div>
 
 
@@ -498,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56277.jpg" />
 </div>
 
 
@@ -525,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56194.jpg" />
 </div>
 
 
@@ -553,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56092.jpg" />
 </div>
 
 
@@ -581,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55973.jpg" />
 </div>
 
 
@@ -608,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55671.jpg" />
 </div>
 
 
@@ -621,91 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D82F5D098BA12158DDF23C8DD57D6B712CFEB67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428220   (55669) от 23.05.2024
-
-Павел Бажов | Сказы (Радиоспектакль) (2010) [MP3, Инна Чурикова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звёздные сказки. Сказы Павла Петровича Бажова.
-Павел Петрович Бажов (1879–1950) – русский писатель, фольклорист, впервые выполнил литературную обработку уральских сказов. Сказы Бажова – это истории необычайной красоты и таинственности, на которых выросли многие поколения читателей. Впервые мы знакомимся с Медной горы Хозяйкой и ее любимцем Данилой-мастером, (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказыИздательство: Радио «Культура»Продолжительность: 07:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1021D9874A8CB6A10DA6F2F6D0BBBC806EE18D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341951   (55654) от 23.05.2024
-
-Павел Бажов | Синюшкин колодец (Аудиоспектакль) (2005) [MP3, Лев Дуров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиосказка для детей и не только.
-Павел Петрович Бажов (1879–1950) – русский писатель, фольклорист, впервые выполнил литературную обработку уральских сказов.
-Музыкальный спектакль по сказу Павла Петровича Бажова «Синюшкин колодец»Жанр: Русская литература для детей, классика, сказкаВ ролях: От Автора – народный артист СССР Лев Дуров
-Лукерья – заслуженная артистка России Ольга Чуваева
-Синюшка – артистка Ольга Шорохова
-Илья – артист Сергей Бурунов(   Читать дальше...   )Издательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1B8E0E982C15C7456700E7FD96BB1939CBAAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341617   (55388) от 26.05.2024
-
-Сергей Михалков, Ян Грабовский | Три поросёнка. Волк, коза и козлята (2007) [MP3, Николай Литвинов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Владимирович Михалков (1913–2009) – советский и русский писатель, поэт, баснописец, драматург, военный корреспондент во время Великой Отечественной войны, автор текста двух гимнов Советского Союза и гимна Российской Федерации, председатель СП РСФСР. Наибольшую известность Михалкову принесли его произведения для детей.
-На этом диске записаны 2 сказки: музыкальная (   Читать дальше...   )Жанр: Литература для детей, сказкаВ ролях: Николай Литвинов, Клара Румянова, Галина Иванова, Юрий Пузырев, Ирина Потоцкая, Лев Шабрин и др.Издательство: Звуковая книга, ГостелерадиофондПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A1A7E668549AE923DB476FEA9EE4F0F9058C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

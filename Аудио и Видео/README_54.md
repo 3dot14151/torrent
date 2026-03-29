@@ -6,7 +6,7 @@ VA - Helsinki Orange: Urban Chillout Music (2021) [AAC|~307 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814224.jpg" />
+  <img src="Z:/picture/008/save_picture_814224.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Nice Orange: Urban Chillout Music (2021) [AAC|~325 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814222.jpg" />
+  <img src="Z:/picture/008/save_picture_814222.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Marseille Orange: Urban Chillout Music (2021) [AAC|~309 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814221.jpg" />
+  <img src="Z:/picture/008/save_picture_814221.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Canary Islands Orange: Urban Chillout Music (2021) [AAC|~333 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814195.jpg" />
+  <img src="Z:/picture/008/save_picture_814195.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Saint-Tropez Orange: Urban Chillout Music (2021) [AAC|~308 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814191.jpg" />
+  <img src="Z:/picture/008/save_picture_814191.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kirill Karabits, Ernst‐Senff‐Chor, Staatskapelle Weimar - Prokofiev: Cantata
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814187.jpg" />
+  <img src="Z:/picture/008/save_picture_814187.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Urban Orange Music 6: Downtempo Experience (2021) [AAC|~320 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814174.jpg" />
+  <img src="Z:/picture/008/save_picture_814174.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Urban Orange Music 4: Downtempo Experience (2021) [AAC|~325 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814171.jpg" />
+  <img src="Z:/picture/008/save_picture_814171.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Urban Orange Music 3: Downtempo Experience (2021) [AAC|~324 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814168.jpg" />
+  <img src="Z:/picture/008/save_picture_814168.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Urban Orange Music 5: Downtempo Experience (2021) [AAC|~319 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814166.jpg" />
+  <img src="Z:/picture/008/save_picture_814166.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Urban Orange Music 7: Downtempo Experience (2021) [AAC|~329 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814162.jpg" />
+  <img src="Z:/picture/008/save_picture_814162.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stratavarious - Stratavarious (2021) [AAC|~350 Kbps] <Funk / Soul, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814161.jpg" />
+  <img src="Z:/picture/008/save_picture_814161.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - In Love with Lounge, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814139.jpg" />
+  <img src="Z:/picture/008/save_picture_814139.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Koan - Argonautica (White Orb Edition) (2021) [AAC|~345 Kbps] <Ambient, Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814137.jpg" />
+  <img src="Z:/picture/008/save_picture_814137.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dream Theater - A View From the Top of the World (2021) [AAC|~352 Kbps] <Progres
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814133.jpg" />
+  <img src="Z:/picture/008/save_picture_814133.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lana Del Rey - Blue Banisters (2021) [AAC|~277 Kbps] <Pop, Indie>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814121.jpg" />
+  <img src="Z:/picture/008/save_picture_814121.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Elton John - The Lockdown Sessions (2021) [AAC|~324 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814078.jpg" />
+  <img src="Z:/picture/008/save_picture_814078.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mark Knopfler - The Studio Albums 1996-2007 (2021) [AAC|~333 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814071.jpg" />
+  <img src="Z:/picture/008/save_picture_814071.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813664.jpg" />
+  <img src="Z:/picture/008/save_picture_813664.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813663.jpg" />
+  <img src="Z:/picture/008/save_picture_813663.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813660.jpg" />
+  <img src="Z:/picture/008/save_picture_813660.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813446.jpg" />
+  <img src="Z:/picture/008/save_picture_813446.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Eurovision Song Contest 2016 Stockholm (2016) [AAC|WEB-DL|256 кб/с]<Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813420.jpg" />
+  <img src="Z:/picture/008/save_picture_813420.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813290.jpg" />
+  <img src="Z:/picture/008/save_picture_813290.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813285.jpg" />
+  <img src="Z:/picture/008/save_picture_813285.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813281.jpg" />
+  <img src="Z:/picture/008/save_picture_813281.jpg" />
 </div>
 
 

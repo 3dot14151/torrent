@@ -1,3 +1,143 @@
+###  Публикация: 465103   (96043) от 09.03.2012
+
+AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affkt - Intro Feat Truffle (Original Mix) (02:08)
+02. Affkt - Bruminha (Original Mix) (04:26)
+03. Affkt & Mathias Kaden - Kadenzaffkt (Original Mix) (05:55)
+04. Affkt - Wichy Interlude (Original Mix) (00:26)
+05. Affkt - Vainilla & Guayaba (Original Mix) (02:44)
+06. Affkt - Grandiosa (Original Mix) (04:28)
+07. Affkt & dOP - El Flautista (Original Mix) (04:40)
+08. Affkt & Sutja Gutierrez - Nuvo (05:54)
+09. Affkt & Analog People In A Dig - Bonaire (06:06)
+10. Affkt - Joyvan Interlude (Original Mix) (00:22)(   Читать дальше...   )2012Жанр: Minimal,Tech House,Deep HouseПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464461   (95955) от 08.03.2012
+
+VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sandro Silva & Quintino - Epic (3:30)
+ 2. Eric Van Kleef ft Stanford - Wanna Funk (Melvin Reese Mix) (3:24)
+ 3. Mr. Jean Louis - Sensuelle (The Cube Guys Remix) (4:14)
+ 4. The Cube Guys & Luciana - Jump (Club Mix) (3:59)
+ 5. Sophie Ellis-Bextor - Starlight (The Cube Guys Remix) (4:29)
+ 6. JoeySuki - Zomp (3:44)
+ 7. Lucien Foort - Massive Passive (4:41)
+ 8. Nicky Romero - Generation 303 (4:58)
+ 9. Major Lazer ft The Partysquad - Original Don (3:59)
+ 10. Ian Carey & Rosette ft Timbaland & Brasco - Amnesia (Firebeatz Remix) (6:00)(   Читать дальше...   )Продолжительность: 01:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459789   (94976) от 29.02.2012
+
+Nina Kraviz - Nina Kraviz (2012) [MP3|320 кб/с]<Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking In The Night (feat. Hard Ton)
+02. Aus (feat. King Aus On The Mic)
+03. Ghetto Kraviz
+04. Taxi Talk
+05. False Attraction
+06. Working
+07. Choices
+08. Love Or Go
+09. Best Friend
+10. 4 Ben(   Читать дальше...   )2012Жанр: Deep House, Tech HouseПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A22D47BDF8629BF86C054B065806A59CD06E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455347   (94634) от 26.02.2012
+
+Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruud van Rijen Radio Mix (03:07)
+02. Clubcrew Radio Edit (03:05)
+03. Clubcrew Extended (04:30)
+04. Instatic Remix (05:50)
+05. Clubcrew Rmx (05:37)
+06. DJ E.B. Smallz remix (04:18)
+07. DJ E.B Smallz & Tropic S. Remix (04:18)
+08. DJ Jan Gruijters Remix (05:25)
+09. Pieter Limburg Candlelight (03:22)
+10. Instrumental (03:09)2012Жанр: HouseПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB8B3C5EE06C68999E8667AF1F5941816EDC86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487228   (90429) от 24.04.2012
 
 Naked Music Recordings - Коллекция (21 диск, 35 винилов) (1999-2010) [MP3|~148-320 кб/с]<Deep House, Downtempo, Future Jazz, Nu Disco, Lounge>
@@ -6,7 +146,7 @@ Naked Music Recordings - Коллекция (21 диск, 35 винилов) (19
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90429.jpg" />
 </div>
 
 
@@ -42,7 +182,7 @@ Sweet DJs - Happy New Year Mix (2006-2010) [MP3|128-320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85989.jpg" />
 </div>
 
 
@@ -72,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84902.jpg" />
 </div>
 
 
@@ -101,7 +241,7 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82054.jpg" />
 </div>
 
 
@@ -136,7 +276,7 @@ VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79141.jpg" />
 </div>
 
 
@@ -171,7 +311,7 @@ VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77284.jpg" />
 </div>
 
 
@@ -206,7 +346,7 @@ VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71927.jpg" />
 </div>
 
 
@@ -235,7 +375,7 @@ VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71808.jpg" />
 </div>
 
 
@@ -264,7 +404,7 @@ VA - Winter Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71775.jpg" />
 </div>
 
 
@@ -293,7 +433,7 @@ VA - Alternative EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71759.jpg" />
 </div>
 
 
@@ -322,7 +462,7 @@ VA - Electronic Dance music 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71683.jpg" />
 </div>
 
 
@@ -351,7 +491,7 @@ VA - Black Hole House Music 01-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71663.jpg" />
 </div>
 
 
@@ -380,7 +520,7 @@ VA - Deep-House Hunters, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71527.jpg" />
 </div>
 
 
@@ -409,7 +549,7 @@ VA - Deep-House Hunters, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71497.jpg" />
 </div>
 
 
@@ -438,7 +578,7 @@ VA - 100 Greatest Workout Tracks (2025) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71455.jpg" />
 </div>
 
 
@@ -467,7 +607,7 @@ VA - Sunset Mix (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71399.jpg" />
 </div>
 
 
@@ -496,7 +636,7 @@ VA - Best Of EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71242.jpg" />
 </div>
 
 
@@ -525,7 +665,7 @@ VA - Kontor Top Of the Clubs: Jan 2025 (DJ Mix) (2025) [MP3|320 Kbps] <Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71084.jpg" />
 </div>
 
 
@@ -552,7 +692,7 @@ VA - Kontor Top of the Clubs (2025) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71024.jpg" />
 </div>
 
 
@@ -581,7 +721,7 @@ PARAFRAME - Metropolis (2025) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70966.jpg" />
 </div>
 
 
@@ -610,7 +750,7 @@ A-Mase - Indian Journey (Extended) (2025) [MP3|320 Kbps] <Progressive House, Mel
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70892.jpg" />
 </div>
 
 
@@ -639,7 +779,7 @@ VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70722.jpg" />
 </div>
 
 
@@ -653,122 +793,6 @@ VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C958E2663FA5162A731A6A5BA9F60D762A9ADDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779653   (70656) от 14.02.2025
-
-VA - 50 DJ Tracks Vol. 1 (2025) [MP3|320 Kbps] <Dance, House, Club, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special D. - You (2025 Extended Mix) [3:40]
-02. Andrew Spencer & Andre Picar feat. Ice MC - It's A Rainy Day (Pete Mazell Extended Remix) [3:06]
-03. Brooklyn Bounce feat. Deso Latee & Samantha Lawrence - Love & Bass (Verano Remix) [4:08]
-04. DJ Dean & DJ Fait - Just One Life (Extended Mix) [4:32](   Читать дальше...   )Жанр: Dance, House, Club, ElectronicПродолжительность: 03:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BC583CB7AA2699250C039024EE3D21361B2B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779640   (70645) от 14.02.2025
-
-VA - Black Hole House Music 02-25 (2025) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME - Mermaids (Extended Mix) [5:47]
-02. Fonzerelli & Kryder - Moonlight Party (Extended Mix) [5:49]
-03. Christina Novelli & Linney - Fallen Ones (Tensteps Extended Remix) [4:13]
-04. ZOYA - Power (Extended Mix) [5:17](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9779C37CAA01B17860FF2623FB08AF0530C017F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779658   (70618) от 14.02.2025
-
-VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Findike - Pyramids (Ramus Remix) [7:06]
-02. Findike - Recondite (Original Mix) [7:45]
-03. Furkan Sert - Turkey (Original Mix) [5:42]
-04. Nicola Saladino - No Name (Original Mix) [8:36](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A9A751A5B2614F3CDC2B385B23761EE75B532D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779844   (70570) от 15.02.2025
-
-VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madloch & Subnode - A Fading Dream (Diego Moreira Remix) [8:16]
-02. Rockka - Noah's Ark (Original Mix) [7:05]
-03. Secretly Famous - Adrenaline Girl (Original Mix) [7:03]
-04. Fabian Balino - Sent From Above (Hobin Rude Remix) [7:05](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 09:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E4008905CAFA14ADA7DF08DAD6DAA099509DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

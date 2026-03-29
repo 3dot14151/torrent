@@ -1,3 +1,29 @@
+###  Публикация: 1530594   (728450) от 11.02.2022
+
+CGMA, Tyler Edlin | Fundamentals of Design with Tyler Edlin (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728450.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни дизайн всегда вокруг нас. Люди, одежда, здания, транспорт и т.д. Как художники и дизайнеры мы должны разбираться во всех аспектах. Хороший дизайн включает в себя планирование и организацию рабочего процесса, наравне с теоретическими знаниями. В течение следующих 8 недель мы будем разбирать основные принципы дизайна, обсуждать техники и подходы. По возможности (   Читать дальше...   )Производство: CGMAЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 13:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CF1704BB26D20CD46D574297962D5FC774C3B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127918   (728300) от 24.04.2017
 
 Austin Batchelor | Курс по креативному проектированию существ (2017) PCRec [EN]
@@ -6,7 +32,7 @@ Austin Batchelor | Курс по креативному проектирован
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728300.jpg" />
+  <img src="Z:/picture/008/save_picture_728300.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Udemy, Too Much Sugar Productions, Emilio Padulo | The Psychology of Color in Ga
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727522.jpg" />
+  <img src="Z:/picture/008/save_picture_727522.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Levelup.Digital, Pauline Boiteux | Advanced Pattern & Fabric Creation in Substan
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727515.jpg" />
+  <img src="Z:/picture/008/save_picture_727515.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Allan McKay | FX Technical Director Transformation Module 13 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724992.jpg" />
+  <img src="Z:/picture/008/save_picture_724992.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Allan McKay | FX Technical Director Transformation Module 14 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724984.jpg" />
+  <img src="Z:/picture/008/save_picture_724984.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724707.jpg" />
+  <img src="Z:/picture/008/save_picture_724707.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ IAMAG Master Classes, Jorge Barrero | Creating Cinematic Frames (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724262.jpg" />
+  <img src="Z:/picture/008/save_picture_724262.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Gumroad, Jorge Barrero | Storyboarding in Blender 2.9 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724130.jpg" />
+  <img src="Z:/picture/008/save_picture_724130.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723821.jpg" />
+  <img src="Z:/picture/008/save_picture_723821.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Vladimir Chopine | Изучение цифрового композитинга 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723817.jpg" />
+  <img src="Z:/picture/008/save_picture_723817.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722436.jpg" />
+  <img src="Z:/picture/008/save_picture_722436.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ Levelup.Digital, Simon Barle | Game-Ready Tree Creation from Maya to Unreal (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722362.jpg" />
+  <img src="Z:/picture/008/save_picture_722362.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720929.jpg" />
+  <img src="Z:/picture/008/save_picture_720929.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720925.jpg" />
+  <img src="Z:/picture/008/save_picture_720925.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720523.jpg" />
+  <img src="Z:/picture/008/save_picture_720523.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718686.jpg" />
+  <img src="Z:/picture/008/save_picture_718686.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ CGcircuit, Daviv CGMK | Houdini Elements - Smoke (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718366.jpg" />
+  <img src="Z:/picture/008/save_picture_718366.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718341.jpg" />
+  <img src="Z:/picture/008/save_picture_718341.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ VFX Grace | Volcanic Eruption | Pyro FX (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718286.jpg" />
+  <img src="Z:/picture/008/save_picture_718286.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716676.jpg" />
+  <img src="Z:/picture/008/save_picture_716676.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Allan McKay | FX Technical Director Transformation Module 11 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714887.jpg" />
+  <img src="Z:/picture/008/save_picture_714887.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ Allan McKay | FX Technical Director Transformation Module 12 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714882.jpg" />
+  <img src="Z:/picture/008/save_picture_714882.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Stephen Wells | Physics Pile In 3ds Max / Создание груды косте
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712100.jpg" />
+  <img src="Z:/picture/008/save_picture_712100.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712089.jpg" />
+  <img src="Z:/picture/008/save_picture_712089.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712015.jpg" />
+  <img src="Z:/picture/008/save_picture_712015.jpg" />
 </div>
 
 
@@ -673,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328264EF69A29A27D41910D72C751A0689E330EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130719   (712008) от 03.05.2017
-
-Айдар Абильдин | Полноценный видеокурс по After Effects и Моушн Дизайну (2016) PCRec
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый полный курс по After Effects, включающий себя все аспекты After Effects. В этом тренинге будет много практики, практических приемов и освоении навыков, также полностью будет освоена и теория и инструментарий. Потрясающий тренинг (курс) по After Effects! Изучите основы, сможете создавать потрясающую живую и динамичную анимацию, красивую и классную шейповую анимацию (   Читать дальше...   )Производство: Creativetuts.ruЖанр: Обучающее видеоПродолжительность: 56:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDA77C62AAFD4F61EE750CC81F2A23FC69CF618
 ```
 
 https://mybot314.ru/tekegram_catalog/

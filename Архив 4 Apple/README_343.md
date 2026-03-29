@@ -1,3 +1,115 @@
+###  Публикация: 1156525   (527718) от 07.08.2017
+
+Hands Off! 3.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 августа 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A79BBB1F936203E628CDE7C942ACA11D9D4585A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052543   (527715) от 14.09.2016
+
+Bartender 2.1.6 [En]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 сентября 2016Разработчик: Surtees Studios LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5845AC8AF44A6074D50ED2E57D972F21DF345B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156451   (527562) от 07.08.2017
+
+Pixellu SmartAlbums 2 v2.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы: теперь легко
+SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
+
+Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 августа 2017Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5C2512CE922859324C6EB9289461854C10702D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052768   (527330) от 15.09.2016
+
+Blocs 2.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 сентября 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8629969465324534CA2407DAAE95D6EC77A2C91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052835   (527314) от 15.09.2016
 
 Dropshelf 1.3.1 [Multi/Ru]
@@ -6,7 +118,7 @@ Dropshelf 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527314.jpg" />
+  <img src="Z:/picture/008/save_picture_527314.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ Keyboard Maestro 7.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527309.jpg" />
+  <img src="Z:/picture/008/save_picture_527309.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ OmniGraffle Pro 6.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527278.jpg" />
+  <img src="Z:/picture/008/save_picture_527278.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ Chaos Control: GTD organizer | To-Do List 1.0.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527265.jpg" />
+  <img src="Z:/picture/008/save_picture_527265.jpg" />
 </div>
 
 
@@ -116,7 +228,7 @@ SoundSource 5.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527233.jpg" />
+  <img src="Z:/picture/008/save_picture_527233.jpg" />
 </div>
 
 
@@ -143,7 +255,7 @@ Find Any File (FAF) 2.3.3b12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527232.jpg" />
+  <img src="Z:/picture/008/save_picture_527232.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ Vellum 3.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527231.jpg" />
+  <img src="Z:/picture/008/save_picture_527231.jpg" />
 </div>
 
 
@@ -197,7 +309,7 @@ Boxy SVG 3  v3.86.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527226.jpg" />
+  <img src="Z:/picture/008/save_picture_527226.jpg" />
 </div>
 
 
@@ -223,7 +335,7 @@ Picture Collage Maker 3.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527219.jpg" />
+  <img src="Z:/picture/008/save_picture_527219.jpg" />
 </div>
 
 
@@ -249,7 +361,7 @@ iExplorer 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527213.jpg" />
+  <img src="Z:/picture/008/save_picture_527213.jpg" />
 </div>
 
 
@@ -275,7 +387,7 @@ Aiseesoft Mac Blu-ray Player 6.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527198.jpg" />
+  <img src="Z:/picture/008/save_picture_527198.jpg" />
 </div>
 
 
@@ -301,7 +413,7 @@ Duplicate Photos Fixer Pro 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527160.jpg" />
+  <img src="Z:/picture/008/save_picture_527160.jpg" />
 </div>
 
 
@@ -328,7 +440,7 @@ Magnet 2.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527064.jpg" />
+  <img src="Z:/picture/008/save_picture_527064.jpg" />
 </div>
 
 
@@ -354,7 +466,7 @@ Paragon NTFS for Mac 14.2.359 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527037.jpg" />
+  <img src="Z:/picture/008/save_picture_527037.jpg" />
 </div>
 
 
@@ -382,7 +494,7 @@ Redacted 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526700.jpg" />
+  <img src="Z:/picture/008/save_picture_526700.jpg" />
 </div>
 
 
@@ -411,7 +523,7 @@ Synalyze It! Pro 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526658.jpg" />
+  <img src="Z:/picture/008/save_picture_526658.jpg" />
 </div>
 
 
@@ -440,7 +552,7 @@ FontExplorer X Pro 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526566.jpg" />
+  <img src="Z:/picture/008/save_picture_526566.jpg" />
 </div>
 
 
@@ -467,7 +579,7 @@ Audiobook Builder 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526532.jpg" />
+  <img src="Z:/picture/008/save_picture_526532.jpg" />
 </div>
 
 
@@ -495,7 +607,7 @@ Boom 2 v1.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526531.jpg" />
+  <img src="Z:/picture/008/save_picture_526531.jpg" />
 </div>
 
 
@@ -522,7 +634,7 @@ Leaf - RSS News Reader 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526454.jpg" />
+  <img src="Z:/picture/008/save_picture_526454.jpg" />
 </div>
 
 
@@ -551,7 +663,7 @@ iStat Menus 5.32 (726) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526411.jpg" />
+  <img src="Z:/picture/008/save_picture_526411.jpg" />
 </div>
 
 
@@ -580,7 +692,7 @@ Curio 10.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526124.jpg" />
+  <img src="Z:/picture/008/save_picture_526124.jpg" />
 </div>
 
 
@@ -592,115 +704,6 @@ Curio – визуальный редактор для OS X с большими 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88505A7676560FBD8F37D5539A8D0EA61AEB0114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053431   (526033) от 17.09.2016
-
-Vellum 1.3.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vellum — приложение для создания электронных книг на OS X
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, имели совместимые с ними форматы и были также удобны для чтения на бумаге. Многие приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 сентября 2016Разработчик: 180gПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DCF248E7847670A6FE0705E106A5F4C4DAAA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053515   (525957) от 17.09.2016
-
-Serial 1.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serial - современный эмулятор терминала, который будет полезен инженерам и системным администраторам для эффективной работы с серверами, сетевым оборудованием и аппаратным обеспечением.
-
-Для системных администраторов, Serial поддерживает все важные последовательности и прерывания, необходимые для подключении и управления маршрутизаторами и коммутаторами. Также включает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 сентября 2016Разработчик: Decisive Tactics, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E1CD3352D819926D89936817AFECBB986F61DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156449   (525844) от 10.08.2017
-
-Moom 3.2.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moom – управление окнами для продвинутых Mac-пользователей
-Moom небольшая, но очень полезная утилита, за счет которой можно расширить назначение зеленой кнопки “+” в OSX. Разработчиками Moom выступили люди из компании Many Tricks. Само название обязывает к созданию подобных утилит. Основная идея Moom заключена во всплывающем прозрачном меню, появляющемся при наведении (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 августа 2017Разработчик: Many TricksПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A8D5D98A32390E209F14CF54F1B5E0B4884235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157384   (525496) от 11.08.2017
-
-ProPresenter 6.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525496.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProPresenter – это система для презентаций, которая использует два экрана, предоставляя пользователям возможность легко и быстро показывать слайды на одном экране и контролировать презентацию – на другом.
-В программу встроен ProVideoPlayer, который позволяет воспроизводить видео. ProPresenter поддерживает любое разрешение экрана, что вместе с экранами новых Мас с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 августа 2017Разработчик: Renewed Vision LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA0E8AEE778102716F0AF1CE9519F6FC34BD6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748551.jpg" />
+  <img src="Z:/picture/008/save_picture_748551.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Trojan Killer 2.1.33 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748534.jpg" />
+  <img src="Z:/picture/008/save_picture_748534.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TweakPower 1.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748519.jpg" />
+  <img src="Z:/picture/008/save_picture_748519.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ XLN Audio - XO 1.1.3 STANDALONE, VSTi, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748517.jpg" />
+  <img src="Z:/picture/008/save_picture_748517.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SnapNDrag Pro - organize and edit screenshot 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748515.jpg" />
+  <img src="Z:/picture/008/save_picture_748515.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC. Секс по интернету. Безопасно? / BBC. Websex: What's
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748498.jpg" />
+  <img src="Z:/picture/008/save_picture_748498.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Clipboard Manager 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748474.jpg" />
+  <img src="Z:/picture/008/save_picture_748474.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NetWorker Pro 8.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748472.jpg" />
+  <img src="Z:/picture/008/save_picture_748472.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Yate 6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748471.jpg" />
+  <img src="Z:/picture/008/save_picture_748471.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748469.jpg" />
+  <img src="Z:/picture/008/save_picture_748469.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Armin van Buuren - A State of Trance 763 (2016) [MP3|320 кб/с] <Progressive T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748463.jpg" />
+  <img src="Z:/picture/008/save_picture_748463.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ John Illsley - Long Shadows (2016) [FLAC|Lossless|image + .cue] <Classic Rock, B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748460.jpg" />
+  <img src="Z:/picture/008/save_picture_748460.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Wise Care 365 Pro 4.18.404 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748455.jpg" />
+  <img src="Z:/picture/008/save_picture_748455.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748448.jpg" />
+  <img src="Z:/picture/008/save_picture_748448.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Whacksy Taxi 1.04 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748433.jpg" />
+  <img src="Z:/picture/008/save_picture_748433.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748429.jpg" />
+  <img src="Z:/picture/008/save_picture_748429.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ iFinance 4.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748428.jpg" />
+  <img src="Z:/picture/008/save_picture_748428.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748425.jpg" />
+  <img src="Z:/picture/008/save_picture_748425.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Artboard 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748423.jpg" />
+  <img src="Z:/picture/008/save_picture_748423.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ MacFamilyTree 8 v8.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748422.jpg" />
+  <img src="Z:/picture/008/save_picture_748422.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ MKVToolNix 31.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748412.jpg" />
+  <img src="Z:/picture/008/save_picture_748412.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ SIV (System Information Viewer) 5.50 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748404.jpg" />
+  <img src="Z:/picture/008/save_picture_748404.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Boxy SVG 3  v3.74.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748369.jpg" />
+  <img src="Z:/picture/008/save_picture_748369.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ CheckBook Pro 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748361.jpg" />
+  <img src="Z:/picture/008/save_picture_748361.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ SiteSucker 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748360.jpg" />
+  <img src="Z:/picture/008/save_picture_748360.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Best EDM in Town (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748359.jpg" />
+  <img src="Z:/picture/008/save_picture_748359.jpg" />
 </div>
 
 

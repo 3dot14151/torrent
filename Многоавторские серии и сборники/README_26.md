@@ -1,3 +1,112 @@
+###  Публикация: 493935   (249309) от 09.05.2012
+
+Книжная серия "Приказано выжить" (30 книг) [1999-2003] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приказано выжить - серия боевиков, детективов, криминальных триллеров, военных приключений от российских производителей...
+В смысле - производителей романов, а не преступлений. Хотя некоторые авторы пишут с таким знанием дела...1999-2003Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F867A4A2C78BE896076090017EFA5775F2F511B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493476   (248974) от 08.05.2012
+
+Библиотека исторических романов в 74 томах [1994] [ FB2, DJVU, FBD, JPG, EPUB, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые читатели, мы предлагаем вам библиотеку исторических романов. В нее вошли книги разных серий и разных писателей. Но все они объединены одной темой. Это художественные произведения, рассказывающие об наиболее значимых исторических событиях и о самых выдающихся неординарных исторических личностях, независимо от того какую роль они сыграли - положительную или отрицательную, оставивших яркий след в истории.
+Комплект составлен из наиболее интересных произведений современных отечественных и зарубежных писателей. В него вошли серии: "Романовы. Династия в романах", "Рюриковичи", "Сподвижники и фавориты", "Смутное время", "Временное правительство".
+
+От себя:Жанр: Исторические романыФормат: FB2, DJVU, FBD, JPG, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004EC52BC7EB1B7D9AC46716D048DC2C324EBA3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492718   (248288) от 06.05.2012
+
+Книжная серия "Мастера военных приключений" (13 томов) [2005-2011] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серию составили лучшие произведения признанных мастеров военно-приключенческого жанра, изданные в рамках суперпроекта Военные приключения с 2005 года — книги Александра Авдеенко, Александра Насибова, Георгия Свиридова, Георгия Брянцева, Генриха Гофмана, Василия Веденеева, Александра Щелокова, Игоря Болгарина, Виктора Смирнова и др.
+Каждый том (кроме одного) состоит из двух романов.2005-2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB36365C41E21428A6EEBD3E0D958EAA51AEEDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492471   (248116) от 05.05.2012
+
+Библиотека «Альтернативная история» в 1056-ти томах [1968-2012] [FB2,DOC,RTF,TXT]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернативная история — жанр фантастики, посвящённый изображению реальности, которая могла бы быть, если бы история, в один из своих переломных моментов (точек бифуркации, или точек развилки) пошла по другому пути. Не следует путать данный литературный жанр с альтернативными историческими теориями, которые предлагают считать картину прошлого, изображаемую исторической (   Читать дальше...   )Жанр: ФантастикаИздательство: Лениздат, Ленат, СамИздат, Амфора, Молодая гвардия и др.Формат: FB2,DOC,RTF,TXTКачество: ebook
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD76805485F5987F7F0348563CB05F3305F2C733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329526   (247620) от 12.06.2023
 
 Книжная серия | Проект Бориса Акунина «История Российского государства» [66 книг] (2013-2021) [FB2] [Обновляемая]
@@ -6,7 +115,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247620.jpg" />
+  <img src="Z:/picture/004/save_picture_247620.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246654.jpg" />
+  <img src="Z:/picture/004/save_picture_246654.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244604.jpg" />
+  <img src="Z:/picture/004/save_picture_244604.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242394.jpg" />
+  <img src="Z:/picture/004/save_picture_242394.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239869.jpg" />
+  <img src="Z:/picture/004/save_picture_239869.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234944.jpg" />
 </div>
 
 
@@ -163,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234255.jpg" />
 </div>
 
 
@@ -189,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233642.jpg" />
+  <img src="Z:/picture/005/save_picture_233642.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230812.jpg" />
+  <img src="Z:/picture/005/save_picture_230812.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229609.jpg" />
+  <img src="Z:/picture/004/save_picture_229609.jpg" />
 </div>
 
 
@@ -273,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228307.jpg" />
+  <img src="Z:/picture/005/save_picture_228307.jpg" />
 </div>
 
 
@@ -301,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226666.jpg" />
 </div>
 
 
@@ -328,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225760.jpg" />
+  <img src="Z:/picture/005/save_picture_225760.jpg" />
 </div>
 
 
@@ -356,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225173.jpg" />
+  <img src="Z:/picture/005/save_picture_225173.jpg" />
 </div>
 
 
@@ -385,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225066.jpg" />
+  <img src="Z:/picture/005/save_picture_225066.jpg" />
 </div>
 
 
@@ -412,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225003.jpg" />
+  <img src="Z:/picture/005/save_picture_225003.jpg" />
 </div>
 
 
@@ -438,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224614.jpg" />
+  <img src="Z:/picture/005/save_picture_224614.jpg" />
 </div>
 
 
@@ -465,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221975.jpg" />
+  <img src="Z:/picture/005/save_picture_221975.jpg" />
 </div>
 
 
@@ -491,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220889.jpg" />
+  <img src="Z:/picture/005/save_picture_220889.jpg" />
 </div>
 
 
@@ -517,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218944.jpg" />
+  <img src="Z:/picture/005/save_picture_218944.jpg" />
 </div>
 
 
@@ -544,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217551.jpg" />
 </div>
 
 
@@ -573,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217036.jpg" />
+  <img src="Z:/picture/005/save_picture_217036.jpg" />
 </div>
 
 
@@ -584,112 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2C7DDAE67700AD3540E5EF7AEB99078F5E4149F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514498   (216843) от 03.12.2021
-
-Книжная серия | Мастера исторических приключений [54 книги] (2017-2019) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216843.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новую издательскую серию «Мастера исторических приключений» включены лучшие произведения приключенческого жанра современной русской литературы.  "Мастера исторических приключений" - серия исторических приключенческих романов отечественных авторов. Тайный и опытнейший агент Ее Величества Екатерины II Анастасия Аржанова, опираясь на помощь моряков Азовской (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C2DDCCF4B33A1804D8B6D0B038C404F4014487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588327   (216710) от 12.12.2012
-
-Борис Вишневский, Дмитрий Володихин, Геннадий Прашкевич, Ант Скаландис | Подборка книг "Братья Стругацкие" [2004-2012] [fb2, pdf]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три книги о братьях Стругацких.
-Они писали так, что и о них самих читать интересно, тем более, что представленные книги содержат интервью, беседы, размышления Стругацких.Формат: fb2, pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CC095953891A6C94ECCE5CFAFFDD51E700F067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514395   (215166) от 04.12.2021
-
-Книжная серия | Mystery Line [64 книги] (2004-2008) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия Mystery Line объединяет бестселлеры известных авторов. Основной жанр - боевик, во всех своих проявлениях.
-Серия выпускалась в 2004-2008 годах. Всего издано 64 книги.Жанр: БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1160B935F39A28360813BA2A94408AA75CCEF519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832099   (213456) от 29.10.2025
-
-Книжная серия | Попaдaнцы. Древний Мир [422 книги] (2010-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелегка доля наших соотечественников, выбравших путь попаданцев - то тирранозавра с утра пораньше покормить надо, то неандертальцы из соседнего стойбища пришли на разборки, то наглые гунны осадили Рим, в котором ты вкалываешь цезарем от рассвета до заката на благо трудового древнеримского народа. Новый сборник про попаданцев, на этот раз в Древний мир.Жанр: Альтернативная история, попаданцы, приключенияИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82CBAB9886240BE855DD49D1319B0FCAC83E6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 358984   (170653) от 26.10.2023
+
+Антон Чехов | Рассказы (2006) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Библиотека школьника.
+«Рассказы» – самые веселые и трагичные, самые любимые с детства рассказы Антона Павловича Чехова – тонкого психолога и мастера подтекста, своеобразно сочетающего в своих произведениях воедино юмор, лиризм и драму…Жанр: Классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CB81818CB793328FE830F3ED2287D69C96E7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358970   (170645) от 26.10.2023
+
+Антон Чехов | Анна на шее. Избранные рассказы (2008) [MP3, Роман Стабуров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Аудиокнига. XIX век. Русская проза
+Антон Павлович Чехов (1860–1904) – непревзойденный мастер короткого рассказа, «драматург человеческих душ».
+Рассказы А.П. Чехова, вошедшие в эту книгу, лучшие образцы малой и средней прозы. При этом значительную часть их можно с полным основанием назвать маленькими романами. В этом уникальность чеховского таланта с его тонким (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: МедиаКнигаПродолжительность: 10:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30AF01B7BD70D272CB7977750E99DB6025EFAE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372825   (170617) от 26.10.2023
+
+Антон Чехов | Повести и рассказы (2002) [MP3, Владимир Самойлов и Валентина Кузнецова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: XIX век. Русская проза.
+Рассказы и повести А.П. Чехова, вошедшие в эту аудиокнигу – лучшие образцы малой и средней прозы. При этом значительную часть их можно с полным основанием назвать маленькими романами. В этом уникальность чеховского таланта с его тонким психологизмом, интонационным богатством, ненавязчивой иронией, яркой деталью.Жанр: Классика, поветь, рассказИздательство: Студия «АРДИС»Продолжительность: 13:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818F085F0DE9CD946581C8B579382605EB980D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354973   (170603) от 26.10.2023
+
+Денис Фонвизин, Александр Грибоедов, Николай Гоголь | Недоросль. Горе от ума. Ревизор (2003) [MP3, В. Герасимов, В. Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская классика. Литературные чтения.
+В аудиокнигу вошли произведения Д.И. Фонвизина «Недоросль», А.С. Грибоедова «Горе от ума» в исполнении Вячеслава Павловича Герасимова и комедия Н.В. Гоголя «Ревизор» в исполнении Владимира Ивановича Самойлова.
+
+Денис Иванович Фонвизин (1745–1792) – русский писатель.(   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 09:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14907FA91110C09498AC30E9BDC85BEC55BC48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672207   (170411) от 27.10.2023
 
 Аббат Прево | История одной гречанки. Новеллы (2011) [MP3, Ирина Воробьёва]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170411.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169913.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169869.jpg" />
 </div>
 
 
@@ -86,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169823.jpg" />
 </div>
 
 
@@ -113,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169762.jpg" />
 </div>
 
 
@@ -139,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169750.jpg" />
 </div>
 
 
@@ -165,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169739.jpg" />
 </div>
 
 
@@ -193,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169723.jpg" />
 </div>
 
 
@@ -220,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168920.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168801.jpg" />
 </div>
 
 
@@ -274,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168761.jpg" />
 </div>
 
 
@@ -301,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168731.jpg" />
 </div>
 
 
@@ -328,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168723.jpg" />
 </div>
 
 
@@ -354,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168714.jpg" />
 </div>
 
 
@@ -381,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168255.jpg" />
 </div>
 
 
@@ -409,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168199.jpg" />
 </div>
 
 
@@ -438,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168069.jpg" />
 </div>
 
 
@@ -464,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167654.jpg" />
 </div>
 
 
@@ -491,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167649.jpg" />
 </div>
 
 
@@ -520,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167644.jpg" />
 </div>
 
 
@@ -547,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167600.jpg" />
 </div>
 
 
@@ -576,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167597.jpg" />
 </div>
 
 
@@ -588,113 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC19D4DEDF7BA3F7E2C70A7C0382ED8411D80C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332575   (167548) от 29.10.2023
-
-Александр Блок и поэты Серебряного века (2005) [MP3, Алексей Емельянов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Библиотека Стекольщикова.
-Русская поэзия трех предоктябрьских десятилетий (1890–1910 гг.) представлена на диске избранными стихами не только видных мастеров, но и их менее известных и незаслуженно забытых современников. В исполнении Заслуженного артиста России Алексея Емельянова звучат более 500 стихотворений.Жанр: Русская литература, классика, поэзияИздательство: МетрополияПродолжительность: 12:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7B9C60C08D5EEC862911696B899466EA18343F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672975   (167247) от 30.10.2023
-
-Леонид Андреев | Самсон в оковах (2023) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонид Николаевич Андреев (1871–1919) – писатель и драматург удивительно тонкой и острой интуиции, оставивший неповторимый след в русской литературе. Прозу Л. Н. Андреева отличает психологизм, повышенное внимание к миру подсознания и биологическому началу в человеческой личности. «Самсон в оковах» относится к психологическим пьесам Л. Н. Андреева. Драматург называл (   Читать дальше...   )Жанр: Драма, ПьесаИздательство: Самиздат (Dtfm rec.)Продолжительность: 03:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CD5EB5BAC93A178BFF057E3347FAC88552C689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672953   (167244) от 30.10.2023
-
-Марина Цветаева | Воспоминания о поэтах (2010) [MP3, Наталия Литвинова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. Основное место в творчестве Цветаевой 1930-х гг. заняла проза, которая соединяет в себе черты лирической прозы и философской эссеистики.
-Серебряный век русской культуры отмечен яркой звездой Марины Цветаевой. Автор несравненных стихотворений и самобытной прозы, неординарная личность, окруженная слухами (   Читать дальше...   )Жанр: Русская литература, классика, воспоминания, мемуарыИздательство: МедиаКнигаПродолжительность: 13:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E03AE025959A57365128665C9F1B5A3DBFCF770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326683   (166818) от 30.10.2023
-
-Марина Цветаева | Если душа родилась крылатой... (2010) [MP3, Евгения Корницкая и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Поэзия, проза, драматургия Серебряного Века.
-Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. В сборник включены стихотворения Марины Цветаевой разных лет, «Повесть о Сонечке» и драма «Конец Казановы» основанная на мемуарах знаменитого итальянского писателя, авантюриста, дамского угодника Джованни Джакомо Казановы – история его единственной, (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, прозаИздательство: МедиаКнигаПродолжительность: 09:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5197F8EDE030EB87A1D1E2F33E56F7E811B12D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,291 @@
+###  Публикация: 1716781   (59403) от 17.04.2024
+
+HWiNFO 8.01 Build 5420 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59403.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A470DDE06CB403598C7D887D5B45307CA863FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716856   (59402) от 17.04.2024
+
+StaxRip 2.38.0 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59402.jpg" />
+</div>
+
+
+###  Подробнее
+
+StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
+Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090E01358305F675C827DE93D7ABA39E28B39C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716916   (59394) от 17.04.2024
+
+Firefox Browser ESR 115.10.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060D79FB37BBF2ED7A5CE90555B327096A50FBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716908   (59392) от 17.04.2024
+
+NetLimiter 5.3.9.0 (x64) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59392.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14F7B33191EC15E6827AD2E8666E805AD0E4646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716768   (59390) от 17.04.2024
+
+Firefox Browser 125.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363D48B16DA7F5FE51550E05E7C6C6399212DD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716885   (59389) от 17.04.2024
+
+WinSCP 6.3.3 Build 14916 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59389.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinSCP, это FTP и SFTP клиент с открытым исходным кодом для Windows систем, который поддерживает старый протокол SCP. Он обеспечивает безопасное передачу данных и файлов между разными компьютерами и позволяет использовать защищенный своего рода «туннель».
+При помощи WinSCP можно соединиться с сервером SSH (Secure Shell) по протоколу SFTP (SSH File Transfer Protocol) (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA0E149FC51E091BB5321485FB53AC6A84BD60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716718   (59388) от 17.04.2024
+
+NetLimiter 5.3.9.0 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59388.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E7661B101787C87DFD81006BDC5C2816CA8CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716931   (59385) от 17.04.2024
+
+Zoner Photo Studio X 19.2403.2.533 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0E12D0D2B5BF0F2E0BB92A463C79F822C12E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716796   (59380) от 17.04.2024
+
+IsMyHdOK 3.96 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно маленькая, но эффективная утилита для проверки производительности жестких дисков. Среди плюсов можно отметить маленький размер, портативность, простоту использования, может работать как с HDD,SSD дисками и USB накопителями, можно выполнять тест производительности, есть несколько режимов теста от быстрого до очень долгого.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC1351EDEB12A08EDA01F22210CDF97A9971619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716800   (59379) от 17.04.2024
+
+CCleaner 6.23.11010 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59379.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22D86E9EB2223C0FA1A43D8F5C3893248468A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717028   (59375) от 18.04.2024
+
+Corona Renderer 11.2 for 3ds Max 2016-2025 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5DBC95541976A218478952A7879C3FC8778848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717059   (59351) от 18.04.2024
 
 AOMEI Backupper Technician Plus 7.3.5 Repack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +294,7 @@ AOMEI Backupper Technician Plus 7.3.5 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59351.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ CCleaner 6.23.11010 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59341.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ CCleaner 6.23.11010 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59324.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59317.jpg" />
 </div>
 
 
@@ -110,7 +398,7 @@ Bandicam 7.1.1.2158 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59316.jpg" />
 </div>
 
 
@@ -136,7 +424,7 @@ Adguard 7.17.0 (7.17.4705.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59314.jpg" />
 </div>
 
 
@@ -162,7 +450,7 @@ NIUBI Partition Editor 9.9.5 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59305.jpg" />
 </div>
 
 
@@ -189,7 +477,7 @@ IObit Driver Booster Pro 11.4.0.57 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59304.jpg" />
 </div>
 
 
@@ -215,7 +503,7 @@ Google Chrome 124.0.6367.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59294.jpg" />
 </div>
 
 
@@ -241,7 +529,7 @@ Telegram Desktop 4.16.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59286.jpg" />
 </div>
 
 
@@ -269,7 +557,7 @@ MediaInfo 24.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59282.jpg" />
 </div>
 
 
@@ -295,7 +583,7 @@ Process Lasso Pro 14.0.2.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59281.jpg" />
 </div>
 
 
@@ -321,7 +609,7 @@ Google Chrome 124.0.6367.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59280.jpg" />
 </div>
 
 
@@ -347,7 +635,7 @@ Mullvad Browser 13.0.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59278.jpg" />
 </div>
 
 
@@ -374,7 +662,7 @@ Wise Registry Cleaner Pro 11.1.4.719 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59277.jpg" />
 </div>
 
 
@@ -385,295 +673,6 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6D4671162FBA20E5F5A5CDB375C7E918FF57913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717071   (59276) от 18.04.2024
-
-Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D4838501AB7DF4238D36829FD0A9FB02C97179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717200   (59274) от 18.04.2024
-
-O&O Defrag Professional 28.0 Build 10014 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59274.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого диска. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690456DA444E0368C92D4585EC9D3CFC13DEA1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717369   (59233) от 19.04.2024
-
-R-Studio Network 9.4 Build 191303 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DC65A5F8E325600303BE2317B2196B12A30867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717151   (59231) от 19.04.2024
-
-Cent Browser 5.1.1130.82 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17317671E4D3DF0BDC7DF31CE5A91BA8DCDAB69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717271   (59217) от 19.04.2024
-
-Office Installer & Office Installer+ 1.14 by Ratiborus [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A65090DC8FDD4A8A7CA125237DBB3F950EFD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717392   (59216) от 19.04.2024
-
-R-Drive Image Technician 7.2 Build 7201 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59216.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Drive Image — является эффективной утилитой для создания файлов образа диска и резервного копирования данных. Файл образа диска, содержащий точную, "байт в байт" копию жесткого диска, раздела или логического диска, может быть создан без перезагрузки компьютера и с различным уровнем сжатия данных. Созданный образ диска может быть сохранен на носителях (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD2D717B7FF73C74EFE30D1F22C2FFAE0E88C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717377   (59207) от 19.04.2024
-
-Яндекс.Браузер 24.4.1.901 (x32) / 24.4.1.899 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17E7EB1F2D9DF6185099BB48E4688D43B9981A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717280   (59205) от 19.04.2024
-
-XviD4PSP 8.1.78 Pro (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59205.jpg" />
-</div>
-
-
-###  Подробнее
-
-XviD4PSP - универсальный пакетный аудио/видео конвертер, позволяющий работать практически со всеми известными медиа форматами (AVI, DIVX, ASF, MPG, MPE, M2V, MPEG, VOB и многие другие). Программа примечательна отсутствием зависимости от наличия системных компонентов и установленных кодеков.
-Также присутствуют пресеты, позволяющие осуществлять быстрое конвертирование (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CCB31F6A723C4BA67D1EC11B827D43F6B689B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717264   (59204) от 19.04.2024
-
-Adobe Bridge 2024 14.0.4.222 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A883C727556B6B760F71C94B510F6B709A6C99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717343   (59203) от 19.04.2024
-
-GPU-Z 2.59.0 + ASUS_ROG Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59203.jpg" />
-</div>
-
-
-###  Подробнее
-
-GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3808C7060A09ADBEDC5594A186FBBC09D05EB5F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717353   (59201) от 19.04.2024
-
-Malwarebytes Windows Firewall Control 6.10.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4987D28B3170F1B4E67FD2A4EE641C9A73B684F
 ```
 
 https://mybot314.ru/tekegram_catalog/

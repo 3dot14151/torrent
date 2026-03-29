@@ -1,3 +1,82 @@
+###  Публикация: 1055936   (483297) от 24.09.2016
+
+Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в сказочном мире снов, который населяют милые и добрые существа - дримы. Как всегда бывает, в стаде таки оказывается одна паршивая овца: среди добрых дримов появляется злой по имени Дайдрим.Тип издания: LicenseРазработчик: Avalon Style EntertainmentЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132D085745FE8F4D36121A1E4EAAE7130A59B690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056026   (483100) от 24.09.2016
+
+Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vernon's Legacy - приключенческий хоррор с увлекательным сюжетом и элементами выживания. Действие разворачивается почти столетие назад. Два дня с момента смерти вашего дяди. Прибыв на место, вы узнаете, что усадьба брошена. Почему же дворецкий Алоис не встречает вас?
+Тут что-то не так.Тип издания: LicenseРазработчик: TripleBrickЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEC8B15C5F3B26E42691CC66E89BBBCA347FFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056179   (482965) от 24.09.2016
+
+Pavilion (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pavilion — это адвенчура с элементами пазла, разработанная Visiontrick Media и выполненная с видом от четвертого лица. Игра сразу же бросает вас в таинственный мир без каких-либо объяснений и вступлений. Это настоящая головоломка, полагаться в которой следует лишь на собственное визуальное и слуховое воображение. Наблюдая за окружающим миром и взаимодействуя с ним, (   Читать дальше...   )Тип издания: RepackРазработчик: Visiontrick MediaЖанр: Adventure, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4861BE86673E0E6606B4F293A5626CD26FF20BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056554   (479633) от 22.08.2017
 
 Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
@@ -6,7 +85,7 @@ Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479633.jpg" />
+  <img src="Z:/picture/008/save_picture_479633.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479523.jpg" />
+  <img src="Z:/picture/008/save_picture_479523.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478924.jpg" />
+  <img src="Z:/picture/008/save_picture_478924.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478517.jpg" />
+  <img src="Z:/picture/008/save_picture_478517.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478068.jpg" />
+  <img src="Z:/picture/008/save_picture_478068.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477842.jpg" />
+  <img src="Z:/picture/008/save_picture_477842.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477689.jpg" />
+  <img src="Z:/picture/008/save_picture_477689.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477637.jpg" />
+  <img src="Z:/picture/008/save_picture_477637.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477579.jpg" />
+  <img src="Z:/picture/008/save_picture_477579.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476690.jpg" />
+  <img src="Z:/picture/008/save_picture_476690.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475612.jpg" />
+  <img src="Z:/picture/008/save_picture_475612.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474792.jpg" />
+  <img src="Z:/picture/008/save_picture_474792.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472371.jpg" />
+  <img src="Z:/picture/008/save_picture_472371.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ The Room Dilogy (2014-2016) [Ru/En] (1.0.1/1.0.4) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472354.jpg" />
+  <img src="Z:/picture/008/save_picture_472354.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471290.jpg" />
+  <img src="Z:/picture/008/save_picture_471290.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470588.jpg" />
+  <img src="Z:/picture/008/save_picture_470588.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469751.jpg" />
+  <img src="Z:/picture/008/save_picture_469751.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467930.jpg" />
+  <img src="Z:/picture/008/save_picture_467930.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ Firewatch (2016) [Ru/En] (1.03) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467844.jpg" />
+  <img src="Z:/picture/008/save_picture_467844.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ The Raven: Legacy of a Master Thief (Episode 3: A Murder of Ravens) (2013) [En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462156.jpg" />
+  <img src="Z:/picture/008/save_picture_462156.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461841.jpg" />
+  <img src="Z:/picture/008/save_picture_461841.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461527.jpg" />
+  <img src="Z:/picture/008/save_picture_461527.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460756.jpg" />
+  <img src="Z:/picture/008/save_picture_460756.jpg" />
 </div>
 
 
@@ -598,84 +677,6 @@ Flynn & Freckles — молодой пират по имени Флинн реш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388669   (457733) от 17.09.2011
-
-Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1937-й. Антарктика. Нацисты, всегда стремившиеся отыскать доказательства своего высокого происхождения, находят что-то действительно пугающее. В нескольких ящиках на их секретной базе хранятся замороженные существа... Однако, норвежский антрополог Хемсон с помощью британской подлодки крадёт три загадочных ящика. Их атакует германский самолёт, и, прежде, чем его (   Читать дальше...   )Тип издания: RePackРазработчик: Chaosium, InfogramesЖанр: Adventure, Point&Click, HorrorЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F858B1EF87264A0280887547E44172B838A10672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568867   (457046) от 10.08.2022
-
-Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милости просим на Остров Убийц! Ваши спутники — четверка соблазнительных убийц. Несмотря на пугающую наружность, им тоже хочется романтики. Вам предстоит покорить их сердца и раскрыть мрачные тайны. Что впереди: любовь, дружба... страшная смерть?Тип издания: RepackРазработчик: PsyopЖанр: Adventure (Visual novel), CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C856239D9DD122934FB7122C83E08669BE502C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060307   (456765) от 06.10.2016
-
-Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duke Grabowski, Mighty Swashbuckler - это рисованный приключенческий квест про пиратов в духе классических The Curse of Monkey Island и Ghost Pirates of Vooju Island. Может ли самый грубый пират Азарббина стать благородным сорвиголовой? Дюк Грабовски - громила пират, который имеет доброе сердце, но привыкший решать все проблемы при помощи кулаков.Тип издания: LicenseРазработчик: Venture Moon IndustriesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45C590BA536044808D61D66828BDAA6AB433039
 ```
 
 https://mybot314.ru/tekegram_catalog/

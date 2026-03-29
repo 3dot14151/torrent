@@ -1,3 +1,160 @@
+###  Публикация: 1663537   (180975) от 01.10.2023
+
+SolidWorks 2023 SP4.0 Premium RePack by xetrin [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180975.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
+SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE3CB04AC260F67DC88DD0EB44E30F14C53CA77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578082   (180063) от 27.11.2022
+
+Андор / Andor (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Lostfilm, HDRezka Studio, TVShows
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит за пять лет до событий фильма «Изгой-один» и рассказывает о группе персонажей в период формирования Повстанческого альянса в целях борьбы против Галактической Империи. Один из таких персонажей — Кассиан Андор, вор, который становится революционером и в итоге присоединяется к сопротивлению.Производство: США / Lucasfilm Ltd.Жанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Бенджамин Карон, Тоби Хэйнс, Susanna WhiteАктеры: Диего Луна, Женевьев О’Рейли, Алекс Фернс, Уилф Сколдинг, Нуф Макьюэн, Адриа Архона, Клеменс Шик, Энтон Саундерс, Тим Фарадей, Caroline GreenПеревод: Профессиональный многоголосый (Lostfilm, HDRezka Studio, TVShows)Язык озвучки: русский, английскийСубтитры: (Forced, Full), английские (Full, SDH)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C714C47E4BFABE7620A599D7D385D4A366A36803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593153   (180061) от 27.11.2022
+
+Стражи Галактики: Праздничный спецвыпуск / The Guardians of the Galaxy Holiday Special (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стражи Галактики отмечают Рождество и отправляются на Землю, чтобы отыскать идеальный подарок для Питера Квилла.Производство: США, Marvel Studios Inc.Жанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джеймс ГаннАктеры: Крис Пратт, Пом Клементьефф, Дэйв Батиста, Брэдли Купер, Вин Дизель, Карен Гиллан, Шон Ганн, Кевин Бейкон, Мария Бакалова, Майкл РукерПеревод: Многоголосый профессиональный (RuDub), Многоголосый закадровый (ColdFilm)Субтитры: Русские, Английские, мультиязычныеПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6A3B7569E50FE596A3E9FEC426E1617B8E3C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666107   (179882) от 03.10.2023
+
+Google, Netflix и других IT-гигантов захотели заставить оплачивать развитие сетей связи в Европе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупнейшие европейские телекоммуникационные компании обратились к Европейскому Союзу с призывом обязать крупные технологические компании, такие как Netflix и Google, вносить справедливый вклад в развитие их сетей. Этот призыв был озвучен в открытом письме глав 20 компаний, включая BT, Deutsche Telekom и Telefónica, которое будет направлено Еврокомиссии и членам (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665688   (179851) от 03.10.2023
+
+Китайские учёные приблизились к созданию долговечных, ёмких и недорогих литий-серных аккумуляторов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалисты разных стран мира ведут поиск новых химических составов аккумуляторов, которые позволили бы улучшить потребительские качества тяговых батарей электромобилей сразу по нескольким критериям. Китайским учёным удалось усовершенствовать состав литий-серных батарей, увеличив их эксплуатационный ресурс без ущерба для остальных характеристик.Как поясняет Nikkei (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606002   (179734) от 03.10.2023
+
+Перри Мейсон / Perry Mason (1959-1960) SATRip (сезон 3, серии 1-26 из 26) СВ-Дубль
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_179734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перри Мэйсон - адвокат, специалист по защите дел, с первого взгляда совершенно безнадежных. Он крайне редко действует кулаками, хотя уверен в себе и не побоится пойти с голыми руками против вооруженного преступника. Козыри Мэйсона – незаурядный, аналитический ум, воля к победе, огромный багаж знаний и блестящее ораторское мастерство. Телеканал "Россия Культура" (   Читать дальше...   )Производство: США, CBS Television Network, Paisano Productions, TCF Television ProductionsЖанр: детектив, криминал, драмаРежиссер: Артур Маркс, Джесси Хиббс, Уильям Д. РасселлАктеры: Рэймонд Берр, Барбара Хейл, Уильям Хоппер, Рэй Коллинз, Уильям Тэлман, Дон Андерсон, Ли Миллер, Уэсли Лау, Джордж Э. Стоун, С. Джон ЛаунерПеревод: Многоголосый профессиональный (СВ-Дубль)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3761FF7D6973B6AE317D0B2035B347B5A39A4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428197   (179450) от 02.12.2020
 
 Profileschool, Алексей Довгуля | Ретушь для фотографа. Гибридный курс (2020) PCRec
@@ -6,7 +163,7 @@ Profileschool, Алексей Довгуля | Ретушь для фотогр�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179450.jpg" />
+  <img src="Z:/picture/005/save_picture_179450.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179121.jpg" />
 </div>
 
 
@@ -63,7 +220,7 @@ KMS Tools Portable by Ratiborus 01.11.2020 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178601.jpg" />
+  <img src="Z:/picture/005/save_picture_178601.jpg" />
 </div>
 
 
@@ -89,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178564.jpg" />
 </div>
 
 
@@ -115,7 +272,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178288.jpg" />
 </div>
 
 
@@ -141,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178271.jpg" />
+  <img src="Z:/picture/005/save_picture_178271.jpg" />
 </div>
 
 
@@ -167,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177765.jpg" />
+  <img src="Z:/picture/005/save_picture_177765.jpg" />
 </div>
 
 
@@ -193,7 +350,7 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1/dlc) Repack R.G. Catalyst [Game of the
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177762.jpg" />
+  <img src="Z:/picture/005/save_picture_177762.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177553.jpg" />
+  <img src="Z:/picture/005/save_picture_177553.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177493.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176966.jpg" />
+  <img src="Z:/picture/005/save_picture_176966.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176921.jpg" />
+  <img src="Z:/picture/005/save_picture_176921.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ VPN подал в суд на Роскомнадзор за незаконную
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176341.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Pink Floyd Solo Projects: Roger Waters, David Gilmour, Richard Wright, Nick Maso
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176215.jpg" />
+  <img src="Z:/picture/004/save_picture_176215.jpg" />
 </div>
 
 
@@ -382,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176196.jpg" />
+  <img src="Z:/picture/004/save_picture_176196.jpg" />
 </div>
 
 
@@ -408,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176111.jpg" />
+  <img src="Z:/picture/004/save_picture_176111.jpg" />
 </div>
 
 
@@ -434,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175736.jpg" />
 </div>
 
 
@@ -460,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175514.jpg" />
 </div>
 
 
@@ -486,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_175357.jpg" />
+  <img src="Z:/picture/005/save_picture_175357.jpg" />
 </div>
 
 
@@ -512,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175202.jpg" />
+  <img src="Z:/picture/004/save_picture_175202.jpg" />
 </div>
 
 
@@ -523,164 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62692276A7C0032991DEE9B1BC7CEF806204246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595681   (174673) от 06.12.2022
-
-Steganos VPN Online Shield 2.0.11 Revision 13052 (Акция COMSS от 2022.12.06) [Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steganos VPN Online Shield постоянно защищает ваши личные данные, когда Вы находитесь в Интернете. VPN-клиент блокирует действия хакеров, которые могут привести к краже важной информации, защищая Интернет-соединение надежным шифрованием, когда вы делаете онлайн-покупки, используете Интернет-банкинг или просто посещаете веб-сайты и социальные сети. Программа особенно (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0AA1B9DBB1D949A5D2A201728A27A7494843A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595769   (174361) от 07.12.2022
-
-Очередное достижение: 2000 релизов от vitolinform!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_174361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 2000 релизов от vitolinform!!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища с преодолением рубежа в 2000 релизов! Так держать!
-От всей души поздравляем
-vitolinform(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595600   (174245) от 07.12.2022
-
-История новогодних блюд: как оливье стал первым среди равных и почему селёдка носит шубу?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_174245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как ни крути, новогодний стол в России — традиция особая, и у каждой семьи есть свои любимые рецепты. Но есть и такие блюда, чья история насчитывает не одну сотню лет, и их готовят в каждом доме в конце декабря. Откуда же пришли наши любимые оливье, селёдка под шубой и ещё несколько новогодних блюд рассказываем в статье.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657104   (174222) от 11.10.2023
-
-Starfield (2023) [Multi] (1.7.36.0/dlc) Scene Rune [Premium Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: SceneРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04478B65FE9F4CFBCF35F5BB71A355EDABFC8B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430275   (173985) от 09.12.2020
-
-Adobe Acrobat Pro DC 2020.013.20074 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBDF2D4ADE8CB28BF99194E5443554B463FE63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581586   (173682) от 18.12.2018
-
-Место преступления: Лас Вегас (сезоны 1-12), Майами (сезоны 1-10), Нью-Йорк (сезоны 1-8) / CSI: Las Vegas (seasons 1-12), Miami (seasons 1-10), NY (seasons 1-8) (Crime Scene Investigation) (2000-20 ...
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лас-Вегас… Своими яркими неоновыми огнями, сотнями игровых клубов и казино он манит всё новых и новых людей. Но далеко не все из них оказываются добропорядочными гражданами. В огромном людском потоке частенько прячутся преступники всех мастей. Они убеждены, что их злодеяния останутся незамеченными. Но они сильно ошибаются, ведь в городе работает неутомимая команда (   Читать дальше...   )Жанр: Детектив, Драма, КриминалРежиссер: Роб Бэйли, Оз Скотт, Алекс Закржевский и др.Актеры: Гэри Синиз, Мелина Канакаредес, Кармине Джовинаццо, Хилл Харпер, Анна Белкнап, Эдди Кехилл, А.Дж. Баккли, Роберт ДжойПеревод: Многоголосый закадровый, профессиональный (ДТВ)Озвучка: Владимир КурдовЯзык субтитров: Русские, АнглийскиеПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813BEDBCBC428B729A69C08F1713F7F65A9933E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

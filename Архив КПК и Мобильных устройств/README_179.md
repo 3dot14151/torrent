@@ -1,3 +1,29 @@
+###  Публикация: 1806002   (12009) от 09.07.2025
+
+PhotoDirector v20.3.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший фоторедактор, обладающий всеми инструментами для оптимизации, стилизации и анимации изображений. С легкостью реализуйте свои идеи с помощью PhotoDirector. Воспользуйтесь инструментами для настройки света и оттенков, обрезки, а также масштабной коллекцией фильтров для преображения каждой детали ваших снимков. Настройки инструмента Анимация обеспечат невероятно (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.07.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67136A7C989C8546AD37F492F31F233E319979B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806046   (11975) от 10.07.2025
 
 Proton VPN 5.12.32.0 Mod [Ru]
@@ -6,7 +32,7 @@ Proton VPN 5.12.32.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11975.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Purvpn 7.9 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11856.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ ByeByeDPI v1.6.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11792.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Vanced Tube v5.4.80.158 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11773.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ TikTok Private Plus v40.8.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11770.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11734.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11729.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Shazam v16.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11693.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11586.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11562.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11559.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11558.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ DjVu Reader & Viewer (читалка) v1.0.134 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11544.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Tricky Words / Хитрое слово: слова из букв v10.0.1 Mod by 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11536.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11532.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11510.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ MultiTimer: МультиТаймер v1.9 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11486.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.19.7 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11406.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Ventusky: Прогноз погоды v46.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11405.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11400.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Photo Editor v11.7 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11395.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Smart AudioBook Player Pro v11.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11384.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11354.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Rosetta Stone: Изучение языков 8.33.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11316.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Proton VPN 5.12.36.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11245.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Proton VPN — это единственное в мире бесплатное 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:148648CB8BF00C568C958FF275AF6CB6258F0FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295850   (11035) от 19.07.2025
-
-Хеллбой / Hellboy (2019) CamRip [H.264] [MP4|1280x720]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Близится час битвы Хеллбоя с Кровавой королевой, жаждущей отомстить всему человечеству за века в заточении. Оказавшись в эпицентре столкновения миров людей и монстров, Хеллбою придется пройти через ад, чтобы предотвратить надвигающийся апокалипсис.Производство: США / Millennium FilmsЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Нил МаршаллАктеры: Дэвид Харбор, Милла Йовович, Иэн Макшейн, Саша Лейн, Дэниел Дэ Ким, Томас Хейден Чёрч, Пенелопа Митчелл, Софи Оконедо, Брин Глисон, Алистер Петри, Лайла Морс, Стивен ГрэмПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:48:01Реклама: текстовая реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5CD2D854950C9C6F2D7938CB1AA7D3FA3D9853
 ```
 
 https://mybot314.ru/tekegram_catalog/

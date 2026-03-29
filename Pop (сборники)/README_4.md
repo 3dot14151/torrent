@@ -1,3 +1,61 @@
+###  Публикация: 1475485   (1012254) от 07.06.2021
+
+VA - Evrybody Clap: Disco Party (Vol.02) (2021) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Disco Drizzle - We Are Sparta Ring Walk
+002. Harlem Dance Club - You Ll Be There
+003. Paolo Bardelli - Funky Cookie
+004. Gorillag - Gimme Gimme Gimme(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 10:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053AE7FAD34ECF217B9B49EA0309C7E50F7DFD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474893   (1012135) от 08.06.2021
+
+VA - Glam Essentials (2021) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mott the Hoople - All the Young Dudes
+02. Slade - Cum On Feel The Noize
+03. Bryan Ferry - A Hard Rain's A-Gonna Fall
+04. David Bowie - The Jean Genie (2013 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C5C3D981EC5FBD2862A58CC3608C8069A550FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474890   (1012133) от 08.06.2021
 
 VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hip-Hop, Dancehall, Future House>
@@ -6,7 +64,7 @@ VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hi
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012133.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Summer BBQ (2021) [MP3|320 Kbps] <Rhythm & Blues, Folk, Rock & Roll, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012092.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Re
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011972.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Hot Summer Play (2CD) (2021) [MP3|320 Kbps] <Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011491.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Spring White Pop Session (2021) [MP3|320 Kbps] <Pop, Dance, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010202.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Dance Play Box Music (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010155.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Golden Songs 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco, Retro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010116.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Summer Chill Pop (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009933.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - National Pop Dance Music (Vol.20) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008986.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Everybody Clap: Disco Party (Vol.04) (2021) [MP3|320 Kbps] <Disco, Remix>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008288.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Лето на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007963.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - National Pop Dance Music (Vol.21) (2021) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007745.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Hard Dance: Sound Pack #315 (2021) [MP3|320 Kbps] <Hardstyle, Hard
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007610.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Music Love: Romantic Sound Mix (2021) [MP3|320 Kbps] <Pop, Romantic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006988.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Новички в попсе Vol 9 (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006850.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - German Top 100 Single Charts 30.07.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004567.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Русские 90' (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004512.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - German Top 100 Single Charts 03.01.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003798.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Zarina Tilidze - Hit Collection (2019) [MP3|320 Kbps] <Pop, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003447.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Teach In - Bye Bye Bye (2020) (2 CD Compilation) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003194.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - The Best Caucasian Hits (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002663.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - German Top 100 Single Charts 10.01.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001049.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Модный Зимний Выпуск (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999976.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999147.jpg" />
 </div>
 
 
@@ -690,76 +748,6 @@ VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600315   (998972) от 08.01.2013
-
-VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Ken - DJ Ken Pr sente Dancehall Party 4:13
-2. Lylloo (Feat. Matt Houston) - Tu Y Yo 3:04
-3. Le la Chicot - Lov Intas 4:00
-4. Marvin - Sans Toi 4:06
-5. Colonel Reyel - Toi Moi 3:26
-6. Moussier Tombola - Logobitombo (Corde Sauter) 3:31
-7. Milca (Feat. Passi) - La Vie Va Donner 4:13
-8. Kalash (Feat. Lieutenant) - Pran Pi 3:14
-9. Ls - Jet T oublierai 4:17
-10. Dj Jairo - Kalin 4:13(   Читать дальше...   )Жанр: Dance, Pop,ClubПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600300   (998843) от 08.01.2013
-
-VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998843.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Psy - Gangnam Style (3:39)
-2. Scissor Sisters - Only the Horses (3:42)
-3. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (3:42)
-4. Federico Seven Feat Marti Caos - Night Dreams (Radio Mix) (3:59)
-5. Asaf Avidan & the Mojos - Reckoning Song (Wankelmut Remix) (3:30)
-6. Kyota - Nemo (Original Mix) (6:54)
-7. Andu Angelo Feat Rares & Joshua - Fly With You (Original Mix) (3:40)
-8. Ray Burnz - Fck The Club (Club Mix) (9:18)
-9. Calabria Vs Rob Estell - Nature (Club Mix) (4:41)
-10. Dima Koch - Eurythmic Hook (Original Mix) (5:10)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
 ```
 
 https://mybot314.ru/tekegram_catalog/

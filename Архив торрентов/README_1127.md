@@ -6,7 +6,7 @@ Sublime Merge 2.0 Build 2020 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793463.jpg" />
+  <img src="Z:/picture/008/save_picture_793463.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ TechSmith Snagit 2020.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793462.jpg" />
+  <img src="Z:/picture/008/save_picture_793462.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ One Chat Pro - All In One Messenger 4.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793461.jpg" />
+  <img src="Z:/picture/008/save_picture_793461.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793455.jpg" />
+  <img src="Z:/picture/008/save_picture_793455.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793449.jpg" />
+  <img src="Z:/picture/008/save_picture_793449.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Gateways (2012) [En] (1.15) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793447.jpg" />
+  <img src="Z:/picture/008/save_picture_793447.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Connected / Подключенные (2015) WEBRip [H.264/720p-LQ] [Трейле
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793445.jpg" />
+  <img src="Z:/picture/008/save_picture_793445.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SRWare Iron 50.0.2650.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793442.jpg" />
+  <img src="Z:/picture/008/save_picture_793442.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Ministry of Sound: I Love RnB (2016) [MP3|320 кб/с] <R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793441.jpg" />
+  <img src="Z:/picture/008/save_picture_793441.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Chaos Control: GTD organizer | To-Do List 1.0.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793440.jpg" />
+  <img src="Z:/picture/008/save_picture_793440.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ On My Own 2.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793437.jpg" />
+  <img src="Z:/picture/008/save_picture_793437.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Picture in Picture 1.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793436.jpg" />
+  <img src="Z:/picture/008/save_picture_793436.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793415.jpg" />
+  <img src="Z:/picture/008/save_picture_793415.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gilisoft Video Editor 7.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793410.jpg" />
+  <img src="Z:/picture/008/save_picture_793410.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793403.jpg" />
+  <img src="Z:/picture/008/save_picture_793403.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793399.jpg" />
+  <img src="Z:/picture/008/save_picture_793399.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793397.jpg" />
+  <img src="Z:/picture/008/save_picture_793397.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793392.jpg" />
+  <img src="Z:/picture/008/save_picture_793392.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ OCCT 6.0.0.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793391.jpg" />
+  <img src="Z:/picture/008/save_picture_793391.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ AdwCleaner 5.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793388.jpg" />
+  <img src="Z:/picture/008/save_picture_793388.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ MediaHuman YouTube Downloader 3.9.9.39 (2905) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793383.jpg" />
+  <img src="Z:/picture/008/save_picture_793383.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793377.jpg" />
+  <img src="Z:/picture/008/save_picture_793377.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ iMazing 2.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793372.jpg" />
+  <img src="Z:/picture/008/save_picture_793372.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ WinCatalog 2017 17.05 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793369.jpg" />
+  <img src="Z:/picture/008/save_picture_793369.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793363.jpg" />
+  <img src="Z:/picture/008/save_picture_793363.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ GPU-Z 2.32.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793355.jpg" />
+  <img src="Z:/picture/008/save_picture_793355.jpg" />
 </div>
 
 

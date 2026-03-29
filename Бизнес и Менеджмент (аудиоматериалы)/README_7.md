@@ -1,3 +1,111 @@
+###  Публикация: 1064075   (423052) от 21.10.2016
+
+Джордж С. Клейсон | Самый богатый человек в Вавилоне (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бестселлер Джорджа С. Клейсона, который в увлекательной художественно-исторической форме, даёт читателю ключи к успешной, богатой и счастливой жизни, раскрывая при этом многие секреты достижения самых, казалось бы не сбыточных желаний и целей.Эти «Вавилонские притчи» помогли миллионам читателей, вдохновив их на поиски успеха и богатства. Книга учит планировать свои (   Читать дальше...   )Жанр: Бизнес-литератураПродолжительность: 04:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37BAFB1FC50F2AE60F990E92675494CF0F812ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251533   (417491) от 01.10.2018
+
+Лекс Купер | Самоучитель для гения. Как раскрыть свои таланты (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что в каждом человеке спит гений, и что все мы от природы обладаем огромным потенциалом. Но, к сожалению, не всем удается его в должной мере развить.
+Что делать, если ваши достижения далеки от гениальных, если новые задачи вас пугают, а поиск решений занимает массу времени, не принося нужных результатов? Нужно стараться найти свои таланты и развивать творческое (   Читать дальше...   )Жанр: Самосовершенствование, саморазвитие, личностный ростПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C799978C2449F0EBF9DCEB2F18ED3C692F7F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168650   (408637) от 24.09.2017
+
+Марина Лукашенко  | Управление временем (2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные функции тайм – менеджмента, ключевые принципы планирования времени, а также главные секреты реализации целей в аудиокурсе управление временем от бизнес – тренера Лукашенко МариныЖанр: Бизнес литератураПродолжительность: 02:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8513988854C18D74A2608C98D7B769B29A74940F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168119   (408331) от 24.09.2017
+
+Андрей Парабеллум | Умнобедный 2 + ВИП Блок (2013) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы все делали правильно!
+Хорошо учились в школе (даже заглядывали в учебники. Иногда).
+Потом родители настояли на высшем образовании (вы не особо сопротивлялись).
+Затем вы нашли «хорошую», «перспективную» работу, с возможностью карьерного и личностного роста.(   Читать дальше...   )Жанр: Деньги, СаморазвитиеПродолжительность: 09:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4FEDA439DCB6CA2BB8D53BDD3034C99B9EDB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576054   (370832) от 12.09.2022
 
 Джим МакЛамор | Burger King. Как построить империю (2020) [MP3, Антон Ческидов]
@@ -6,7 +114,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370832.jpg" />
+  <img src="Z:/picture/008/save_picture_370832.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356312.jpg" />
+  <img src="Z:/picture/008/save_picture_356312.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349892.jpg" />
+  <img src="Z:/picture/008/save_picture_349892.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332913.jpg" />
+  <img src="Z:/picture/005/save_picture_332913.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314124.jpg" />
+  <img src="Z:/picture/008/save_picture_314124.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299455.jpg" />
+  <img src="Z:/picture/008/save_picture_299455.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264414.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261668.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261498.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260859.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260615.jpg" />
 </div>
 
 
@@ -310,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257968.jpg" />
+  <img src="Z:/picture/005/save_picture_257968.jpg" />
 </div>
 
 
@@ -337,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256769.jpg" />
+  <img src="Z:/picture/005/save_picture_256769.jpg" />
 </div>
 
 
@@ -363,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256584.jpg" />
+  <img src="Z:/picture/005/save_picture_256584.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255879.jpg" />
+  <img src="Z:/picture/005/save_picture_255879.jpg" />
 </div>
 
 
@@ -416,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255409.jpg" />
+  <img src="Z:/picture/005/save_picture_255409.jpg" />
 </div>
 
 
@@ -442,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254957.jpg" />
+  <img src="Z:/picture/005/save_picture_254957.jpg" />
 </div>
 
 
@@ -468,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254924.jpg" />
+  <img src="Z:/picture/005/save_picture_254924.jpg" />
 </div>
 
 
@@ -494,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250719.jpg" />
+  <img src="Z:/picture/004/save_picture_250719.jpg" />
 </div>
 
 
@@ -522,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250449.jpg" />
+  <img src="Z:/picture/004/save_picture_250449.jpg" />
 </div>
 
 
@@ -548,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249953.jpg" />
+  <img src="Z:/picture/004/save_picture_249953.jpg" />
 </div>
 
 
@@ -577,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249623.jpg" />
+  <img src="Z:/picture/004/save_picture_249623.jpg" />
 </div>
 
 
@@ -588,110 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E56991514593A8654394FCAB009872AFBEF968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630152   (245733) от 30.04.2023
-
-Джим Коллинз, Джерри Поррас | Построенные навечно (2009) [MP3, Вячеслав Задворных]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уинстон Черчилль однажды сказал, что написание книги проходит пять стадий. На первой это словно новая игрушка. На пятой стадии она становится тираном, заправляющим твоей жизнью. И едва ты уже готов смириться со своим рабством, как настает момент добить монстра и бросить его к ногам публики. И нам никогда бы не одолеть этого монстра без всех тех замечательных людей, (   Читать дальше...   )Жанр: Бизнес, менеджментПродолжительность: 11:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FD433AA8E5B5ACBF32765E320F481B2113E4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620413   (245609) от 20.03.2023
-
-Кай-фу Ли, Чэнь Цюфань | ИИ-2041. Десять образов нашего будущего (2022) [MP3, Игорь Сергеев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект станет определяющим событием XXI века. В течение двух десятилетий все аспекты повседневной жизни станут неузнаваемыми. ИИ приведет к беспрецедентному богатству, симбиоз человека и машины приведет к революции в медицине и образовании и создаст совершенно новые формы общения и развлечений. Однако, освобождая нас от рутинной работы, ИИ также (   Читать дальше...   )Жанр: Управление бизнесомПродолжительность: 17:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F294C85B40A0EBEC2B7BB38CA78BAB4D48D488B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620814   (245318) от 22.03.2023
-
-Надежда Котельникова | Лайфхаки по управлению личными финансами (2018) [MP3, Игорь Маринин]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деньги – основа нашей жизни, и для достижения финансовой свободы ими необходимо уметь управлять. В книге представлена личная финансовая история мамы троих детей. Даны проверенные на практике советы как в условиях нестабильного заработка человеку со средним и небольшим доходом грамотно распоряжаться деньгами и не быть зависимым от кредитов. После прочтения ее вы научитесь (   Читать дальше...   )Жанр: БизнесПродолжительность: 04:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E328CB1733D3B2BA3ABE36F0303295E892D27800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609886   (244461) от 05.02.2023
-
-Снежана Манько | Как навести порядок в финансах компании. (2018) [MP3, Снежана Манько, Марина Умнова]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без понимания реальных финансовых показателей невозможно стабильное ведение и развитие бизнеса. В крупных компаниях это знают. Финансы в них налажены и автоматизированы, а финансовые показатели используются менеджерами как приборная доска в управлении самолетом. В малом и среднем бизнесе руководители чаще всего работают «по ощущениям», а не по фактическим показателям, (   Читать дальше...   )Жанр: БизнесПродолжительность: 05:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719F39134B5005C2BA0B0D8796EF821B7AE0C3EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

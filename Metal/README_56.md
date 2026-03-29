@@ -6,7 +6,7 @@ Wolves Den - Deus Vult (2015) [MP3|320 кб/с]<Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573796.jpg" />
+  <img src="Z:/picture/008/save_picture_573796.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Manowar - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573244.jpg" />
+  <img src="Z:/picture/008/save_picture_573244.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Testament - Dark Roots Of Earth (2012) Deluxe Edition [MP3|320 кб/с]<Thrash M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573190.jpg" />
+  <img src="Z:/picture/008/save_picture_573190.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572563.jpg" />
+  <img src="Z:/picture/008/save_picture_572563.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571868.jpg" />
+  <img src="Z:/picture/008/save_picture_571868.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Korpiklaani - Manala (2012) Deluxe Edition [MP3|320 кб/с]<Folk Metal >
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570398.jpg" />
+  <img src="Z:/picture/008/save_picture_570398.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Nine Inch Nails - Add Violence (2017) EP [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570359.jpg" />
+  <img src="Z:/picture/008/save_picture_570359.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Sabaton - The Last Stand (2016) Limited Edition [MP3|320 Kbps] <Power Metal, Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570208.jpg" />
+  <img src="Z:/picture/008/save_picture_570208.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Myrath - Shehili (2019) Japanese Edition [MP3|320 kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569308.jpg" />
+  <img src="Z:/picture/008/save_picture_569308.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Gorephilia - Embodiment Of Death (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567694.jpg" />
+  <img src="Z:/picture/008/save_picture_567694.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Dark Blue Inc. - Linked To Life (2019) [MP3|320 kbps] <Melodic Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565421.jpg" />
+  <img src="Z:/picture/008/save_picture_565421.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ October Tide - In Splendor Below (2019) [MP3|320 Kbps] <Melodic Death Metal, Doo
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565417.jpg" />
+  <img src="Z:/picture/008/save_picture_565417.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Fleshgod Apocalypse - Veleno (2019) 2CD Deluxe Edition [MP3|320 Kbps] <Symphonic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565416.jpg" />
+  <img src="Z:/picture/008/save_picture_565416.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564504.jpg" />
+  <img src="Z:/picture/008/save_picture_564504.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Oomph - XXV (2015) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564405.jpg" />
+  <img src="Z:/picture/008/save_picture_564405.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Orion Child - Continuum Fracture (2019) [MP3|320 Kbps] <Power Metal, Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563977.jpg" />
+  <img src="Z:/picture/008/save_picture_563977.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Azken Auzi - Azken Auzi (2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563410.jpg" />
+  <img src="Z:/picture/008/save_picture_563410.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Wormbrood - 2 Albums (2021-2022) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563406.jpg" />
+  <img src="Z:/picture/008/save_picture_563406.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Malignant Aura - Abysmal Misfortune Is Draped Upon Me (2022) [MP3|320 Kbps] <Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563404.jpg" />
+  <img src="Z:/picture/008/save_picture_563404.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mantus - 17 альбомов (2000 - 2016) Discography [MP3|320 кб/с]<Darkwav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563117.jpg" />
+  <img src="Z:/picture/008/save_picture_563117.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kataklysm - Of Ghosts And Gods (2015) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562704.jpg" />
+  <img src="Z:/picture/008/save_picture_562704.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ A Sound Of Thunder - It Was Metal (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560445.jpg" />
+  <img src="Z:/picture/008/save_picture_560445.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Hellbringer - Awakened From The Abyss (2016) [MP3|320 Kbps] <Thrash Metal, Speed
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559694.jpg" />
+  <img src="Z:/picture/008/save_picture_559694.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ DGM - The Passage (2016) Japanese Edition  [MP3|320 Kbps] <Progressive Metal, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559691.jpg" />
+  <img src="Z:/picture/008/save_picture_559691.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559652.jpg" />
+  <img src="Z:/picture/008/save_picture_559652.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Wings of Destiny - Time (2015) [MP3|320 кб/с]<Melodic Progressive, Heavy, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559169.jpg" />
+  <img src="Z:/picture/008/save_picture_559169.jpg" />
 </div>
 
 

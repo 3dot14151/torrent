@@ -6,7 +6,7 @@ Internet Download Manager 6.40 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710415.jpg" />
+  <img src="Z:/picture/008/save_picture_710415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnView Classic 2.50.4 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710414.jpg" />
+  <img src="Z:/picture/008/save_picture_710414.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LosslessCut 3.43.0 Standantalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710413.jpg" />
+  <img src="Z:/picture/008/save_picture_710413.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VeraCrypt 1.25.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710407.jpg" />
+  <img src="Z:/picture/008/save_picture_710407.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ZD Soft Screen Recorder 10.4.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710405.jpg" />
+  <img src="Z:/picture/008/save_picture_710405.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Coolmuster Data Recovery 2.1.12 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710404.jpg" />
+  <img src="Z:/picture/008/save_picture_710404.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ YouTube Video Downloader PRO 5.8.2 (20170428) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710403.jpg" />
+  <img src="Z:/picture/008/save_picture_710403.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SRWare Iron 58.0.3050.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710396.jpg" />
+  <img src="Z:/picture/008/save_picture_710396.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ashampoo Photo Recovery 1.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710391.jpg" />
+  <img src="Z:/picture/008/save_picture_710391.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ABBYY FineReader 14.0.107.232 Corporate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710348.jpg" />
+  <img src="Z:/picture/008/save_picture_710348.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WinRAR 5.50 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710313.jpg" />
+  <img src="Z:/picture/008/save_picture_710313.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Icecream Ebook Reader Pro 4.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710292.jpg" />
+  <img src="Z:/picture/008/save_picture_710292.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.05.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710290.jpg" />
+  <img src="Z:/picture/008/save_picture_710290.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Avast Internet Security 17.4.2294 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710154.jpg" />
+  <img src="Z:/picture/008/save_picture_710154.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DriverPack Solution 17.7.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710144.jpg" />
+  <img src="Z:/picture/008/save_picture_710144.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710143.jpg" />
+  <img src="Z:/picture/008/save_picture_710143.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Avast Free Antivirus 17.4.2294 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710136.jpg" />
+  <img src="Z:/picture/008/save_picture_710136.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ ZD Soft Screen Recorder 9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710103.jpg" />
+  <img src="Z:/picture/008/save_picture_710103.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Glary Utilities Pro 5.96.0.118 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709957.jpg" />
+  <img src="Z:/picture/008/save_picture_709957.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Glary Utilities Pro 5.96.0.118 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709947.jpg" />
+  <img src="Z:/picture/008/save_picture_709947.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ WinUtilities Professional Edition 15.22 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709864.jpg" />
+  <img src="Z:/picture/008/save_picture_709864.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ USDownloader 1.3.5.9 Portable (11.06.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709837.jpg" />
+  <img src="Z:/picture/008/save_picture_709837.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Glarysoft Malware Hunter PRO 1.56.0.634 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709774.jpg" />
+  <img src="Z:/picture/008/save_picture_709774.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ SoftPerfect RAM Disk 4.0.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709766.jpg" />
+  <img src="Z:/picture/008/save_picture_709766.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ AIMP 4.02 Build 1725 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709722.jpg" />
+  <img src="Z:/picture/008/save_picture_709722.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ ZD Soft Screen Recorder 9.7 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709715.jpg" />
+  <img src="Z:/picture/008/save_picture_709715.jpg" />
 </div>
 
 

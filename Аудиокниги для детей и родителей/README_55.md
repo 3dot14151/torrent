@@ -1,3 +1,86 @@
+###  Публикация: 998759   (220394) от 21.11.2020
+
+Святослав Сахарнов | Морские сказки (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ах, сколько всего интересного происходит в море! Вы еще не знакомы с его обитателями? Любопытные наваги, хитрый рак, находчивый краб, неугомонный морской карась, жадная камбала… Хотите понаблюдать за их необычайными приключениями? Тогда скорее открывайте книжку и прислушивайтесь к плеску морских волн! Вдруг они поведают вам еще что-то, о чем пока никто не знает?Жанр: Сказки для дошкольного возрастаПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367A0A6DE5C787199713475F8A14F93951D11D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966359   (220303) от 17.12.2015
+
+В гостях у русской сказки | 5 томов  (1937-1986/2006-2012) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 01 (2CD) (1937-1986/2006)
+Том 02 (2CD) (1952, 1965, 1961/2006)
+Том 03 (2CD) (1962-1984/2007)
+Том 04 (1982, 1985/2011)(   Читать дальше...   )Жанр: Сказка / АудиоспектакльПродолжительность: 06:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35301F5192BE594D3305965761FCD5EC7A1E6FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956827   (219935) от 21.11.2020
+
+Павел Бажов | Каменный цветок, Малахитовая шкатулка, Медной горы Хозяйка и другие сказы (2003) [MP3, Вячеслав Герасимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказы Бажова впитали сюжетные мотивы народных уральских преданий и легенд и рассказы горных мастеров и старателей. Реально-бытовые элементы соседствуют в них с фантастическими фольклорными образами Хозяйки Медной горы, Великого Полоза, Огневушки-Поскакушки, козлика Серебряное копытце и других чудесных персонажей.
+
+По мотивам произведений Бажова созданы кинофильм (   Читать дальше...   )Жанр: СказкиПродолжительность: 06:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E169F6A06E0C96DD8ECA5180CBD611494A7216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966712   (219011) от 18.12.2015
 
 Михаил Пляцковский | Счастливый день (1985/1996) [WavPack]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219011.jpg" />
+  <img src="Z:/picture/005/save_picture_219011.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219003.jpg" />
+  <img src="Z:/picture/005/save_picture_219003.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218831.jpg" />
+  <img src="Z:/picture/005/save_picture_218831.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218618.jpg" />
+  <img src="Z:/picture/005/save_picture_218618.jpg" />
 </div>
 
 
@@ -110,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218600.jpg" />
+  <img src="Z:/picture/005/save_picture_218600.jpg" />
 </div>
 
 
@@ -136,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218495.jpg" />
+  <img src="Z:/picture/005/save_picture_218495.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218446.jpg" />
+  <img src="Z:/picture/005/save_picture_218446.jpg" />
 </div>
 
 
@@ -192,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218379.jpg" />
+  <img src="Z:/picture/005/save_picture_218379.jpg" />
 </div>
 
 
@@ -218,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218365.jpg" />
+  <img src="Z:/picture/005/save_picture_218365.jpg" />
 </div>
 
 
@@ -247,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218139.jpg" />
 </div>
 
 
@@ -273,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217848.jpg" />
 </div>
 
 
@@ -299,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217802.jpg" />
 </div>
 
 
@@ -326,7 +409,7 @@ VA | Новогодние сказки (2006) [MP3]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217633.jpg" />
 </div>
 
 
@@ -353,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217144.jpg" />
+  <img src="Z:/picture/005/save_picture_217144.jpg" />
 </div>
 
 
@@ -379,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217134.jpg" />
+  <img src="Z:/picture/005/save_picture_217134.jpg" />
 </div>
 
 
@@ -405,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216932.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216904.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216392.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216357.jpg" />
 </div>
 
 
@@ -510,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215916.jpg" />
 </div>
 
 
@@ -537,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214645.jpg" />
+  <img src="Z:/picture/005/save_picture_214645.jpg" />
 </div>
 
 
@@ -563,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214595.jpg" />
+  <img src="Z:/picture/005/save_picture_214595.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214431.jpg" />
+  <img src="Z:/picture/005/save_picture_214431.jpg" />
 </div>
 
 
@@ -600,88 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9082DC70A6D15B485AD6FF23C3195FD9E9CC903E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515050   (214114) от 05.12.2021
-
-Коллектив Авторск | Лунтик. Сказки. Истории генерала Шера (2016) [MP3, Анатолий Петров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можете не сомневаться: эти сказки будут интересны всем любителям знаменитого российского анимационного сериала «Лунтик». Тем более что расскажет их сам генерал Шер. Лунтик и его друзья очень любят слушать сказки. Послушайте их и вы – в компании мультяшных героев.
-
-Почему с друзьями не страшна никакая беда? Верно ли, что у страха глаза велики? Как бороться с жадными (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1DF986B30EF61AEE241BFC0726CE1E801E767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587084   (214048) от 29.10.2022
-
-Елена Лукашева | Здоровый ребёнок. Настольная книга заботливой мамы (2021) [MP3, Люба Петрова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214048.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы знаете, как правильно кормить и лечить ребенка? Нужно ли ему делать прививки, как помочь, когда режутся зубки, каким должно быть содержание подгузника… Интересно? Дальше будет еще интереснее! Ведь это всего лишь малая часть вопросов, занимающих умы молодых родителей. Информации вокруг – море, но как научиться плавать, когда с одной стороны гигантские волны слухов (   Читать дальше...   )Жанр: воспитание детей, здоровье детейПродолжительность: 05:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFD33CFF5037380D4F18B6D326D9B449DA19BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586949   (213993) от 29.10.2022
-
-Элинор Портер | Поллианна (2022) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно найти радость там, где её нет. Но если следовать правилу, точнее игре, которую придумала героиня повести американской писательницы Э. Портер «Поллианна»: «уметь радоваться жизни при любых обстоятельствах», всё обретает новый смысл. Может быть, именно в этом успех книги, которую читают во всём мире вот уже более ста лет!
-
-Произведения Элинор Портер входят в (   Читать дальше...   )Жанр: детская проза, зарубежная классика, зарубежные детские книги, книги для подростков, литература 20 векаПродолжительность: 05:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999D6A64E86C6351B92375B61532208FC8DB02C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

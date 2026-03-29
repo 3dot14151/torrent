@@ -1,3 +1,161 @@
+###  Публикация: 1693645   (29657) от 27.01.2025
+
+Военная приемка (2024) WEBRip [H.264/1080p] (часть 9, выпуски 401-450 из 450)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29657.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суперсовременном телевизионном шоу известный журналист Алексей Егоров на практике испытает самые современные виды отечественной военной техники. Вместе с ним мы побываем на секретных заводах, посетим закрытые полигоны, станем участниками самых рискованных экспериментов на суше, море и в воздухе.Производство: Россия / "ТРК "ЗВЕЗДА"Жанр: телепередача, техника, вооружениеРежиссер: Иван ЧигвинцевПродолжительность: ~00:38:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A17669065D6D3EA9A4FCBD9565EDCEF2532D1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775404   (29553) от 28.01.2025
+
+Launcher for zapret 1.6 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
+Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
+На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763400   (29549) от 28.01.2025
+
+Агентство / The Agency (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDRezka
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный агент ЦРУ, известный как Марсианин, получает приказ бросить работу под прикрытием и вернуться в Лондон. Однако вскоре в его жизнь врывается возлюбленная, которую ему пришлось оставить. Карьера, тайна личности и миссия оперативника оказываются под угрозой из-за любви.Производство: США, Франция / 101 Studios, Federation Entertainment, MTV Entertainment Studios, Smokehouse Pictures, The Originals ProductionsЖанр: триллер, драмаРежиссер: Зетна Фуэнтес, Филип Мартин, Джо РайтАктеры: Майкл Фассбендер, Джеффри Райт, Ричард Гир, Кэтрин Уотерстон, Джон Магаро, Джоди Тёрнер-Смит, Джулия Весткотт-Хаттон, Кертис Льюм, Марчин ЗаречныПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD15D1BAA824E52A41DB0CC2162A66EE2173068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776083   (29246) от 31.01.2025
+
+Дуров объяснил, почему США проигрывают Китаю в гонке ИИ-технологий
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прогресс Китая, быстро догоняющего США в области искусственного интеллекта, возник «не на пустом месте» и обусловлен превосходством китайской системы среднего образования над западной. Такое мнение выразил основатель Telegram Павел Дуров.Бизнесмен поделился своими мыслями, рассуждая об успехе чат-бота китайской компании DeepSeek, который называют более дешевым и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776086   (29055) от 01.02.2025
+
+Президентская хотелка: Дональд Трамп попросил Илона Маска поскорее вернуть домой «застрявших» на МКС астронавтов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дональд Трамп попросил Илона Маска ускорить возвращение на Землю застрявших на МКС астронавтов, которые с лета не могут прилететь домой. Об этом написал в своем аккаунте в соцсети Х Илон Маск.«Мы это сделаем», — отметил предприниматель.Пока неясно, как это весьма странное пожелание отразится на текущих планах NASA.По планам пребывание астронавтов Starliner на МКС (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821174   (29035) от 03.10.2025
+
+Бар «Один звонок» (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следователь Андрей Морозов занимается поисками пропавшего сына своей жены, которая лежит в коме. Все улики ведут к таинственному бару «Один звонок», который то исчезает, то появляется в разных местах, оставляя за собой тела убитых. Заведением управляет бармен, не просто миксующий коктейли и отпускающий циничные реплики, но и помогающий посетителям позвонить умершим. (   Читать дальше...   )Производство: Россия | «DK Entertainment»Жанр: Триллер, детектив, фэнтези, мистикаРежиссер: Сергей ФилатовАктеры: Кай Алекс Гетц, Данила Козловский, Александр Ильин, Полина Ауг, Оксана Акиньшина, Серафима Гощанская, Иван Макаревич, Марина Ворожищева, Олег Рязанцев, Артём Осипов и др.Субтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309007AD8F2EB0290882E1764A7875C8A0965559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774502   (28948) от 02.02.2025
 
 Носферату / Nosferatu (2024) WEB-DL [H.264/1080p]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28948.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ OpenAI наносит ответный удар: вышла ChatGPT o3-mini дл
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28935.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28933.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Bruno Simong | Three.js Journey - The ultimate Three.js course (2024) WEB-DL [EN
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28738.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28724.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28683.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.02.05 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28632.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ EMPO - курсы SEO с гарантией роста позиций [Прод�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28529.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ Geekbrains | Профессия Программист Android (2015) PCRec [H.2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28527.jpg" />
 </div>
 
 
@@ -245,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28509.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ Google отменяет инклюзивность
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28404.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28322.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28317.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ Adobe Photoshop 2025 26.3.0.156 (03.02.2025) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28215.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.21.0/dlc) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28110.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28109.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Navitel / Официальные карты релиза Q1 2025 v9 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28013.jpg" />
 </div>
 
 
@@ -456,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27991.jpg" />
 </div>
 
 
@@ -482,7 +640,7 @@ Kenny Wayne Shepherd - 13 Albums (1995 - 2024) 15 CD [FLAC|Lossless|image + .cue
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27905.jpg" />
 </div>
 
 
@@ -511,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27800.jpg" />
 </div>
 
 
@@ -522,166 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760962   (27794) от 13.02.2025
-
-Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniversary Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сохранив атмосферу тревоги, вызова и внутреннего напряжения и добавив новый реализм и интерактивность, Half-Life 2 открывает дверь в мир, в котором присутствие игрока влияет на все, что его окружает — от физической среды до поведения и даже эмоций как друзей, так и врагов. Игрок вновь поднимает монтировку ученого-исследователя Гордона Фримена, который обнаруживает (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511EB76DB666D465625F7C745FCAE7A0B4C6287C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778270   (27792) от 13.02.2025
-
-Партенопа / Parthenope (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950 год. В дом богатой неаполитанской семьи прямиком из Версаля доставили шикарную карету-кровать для младенца, который вот-вот родится прямо в водах Тирренского моря. На свет появилась девочка, и ее назвали Партенопой в честь древнегреческой нимфы, чьим именем когда-то нарекли Неаполь. Идеальная во всем девушка жила на полную катушку: меняла любовников и увлечения, (   Читать дальше...   )Производство: Италия, Франция / The Apartment, Pathé, Numero 10Жанр: фэнтези, драмаРежиссер: Паоло СоррентиноАктеры: Челесте Далла Порта, Стефания Сандрелли, Даниэле Рьенцо, Дарио Аита, Луиза Раньери, Сильвио Орландо, Гари Олдман, Изабелла Феррари, Пеппе Ланцетта, Марлон ЖуберПеревод: Многоголосый профессиональный (TVShows, SoundMasters)Язык озвучки: Русский, ИтальянскийСубтитры: Итальянские (Forced, SDH), АнглийскиеПродолжительность: 02:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35166129C7431979412F512C1F9A99050D6FE1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779662   (27700) от 14.02.2025
-
-Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5487 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_sep_2024_x64_dvd_c38bd9db
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
-Установлены обновления по 13 февраля 2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F350B13CAF05B2CB8478E45C10633901AF8481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644470   (27688) от 14.02.2025
-
-Атомный лес (1-10 серии из 10) (2012-2013) SATRip [обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27688.jpg" />
-</div>
-
-
-###  Подробнее
-
-События мультсериала разворачиваются в мире, пережившем Апокалипсис в виде ядерного взрыва. Главные герои — звери, обитающие в Атомном лесу. От людей в новом мире, мире будущего, остались только воспоминания, да и те не особенно приятные. Теперь основная цивилизация Земли — это разумные говорящие звери.Жанр: Компьютерная анимация, Для взрослых, ПриключенияРежиссер: Алексей ЛебедевЯзык: РусскийПродолжительность: 8 х ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA1564B355DC474313675C65EFA7C99E4F1E202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779328   (27585) от 15.02.2025
-
-Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.02.12 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27585.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 редакций Windows 10 x64 (русские и английские) с обновлениями по февраль 2025, основанных на образах версий 22H2 (LTSC на 21H2) и интегрированными системными библиотеками
-+5 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus x64 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF35961355F2C35861A45375C26A3DE9054CDD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778731   (27584) от 15.02.2025
-
-Домовенок Кузя (2024) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домовёнок Кузя сбегает из плена Бабы-яги и оказывается в квартире девочки Наташи и ее родителей. Кузе нужно найти свой волшебный сундучок, исполняющий желания. Казалось бы, цель уже близка, но на поиски Кузи и сундучка в наш мир проникает Баба-яга, и у нее есть свои коварные планы.Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: комедия, семейныйРежиссер: Виктор ЛакисовАктеры: Сергей Бурунов, Гарик Харламов, Алика Смехова, Екатерина Стулова, София Петрова, Марк Богатырев, Женя Малахова, Олег Комаров, Алексей Гаврилов, Кристина Петрова, Андрей Гаврилов, Андрей Батов, Цолак Погосян, Степан Летковский, Андрей НикульскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433D41C0948B453F563355FA3CE056B3A6F2E8CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

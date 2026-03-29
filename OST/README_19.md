@@ -6,7 +6,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340434.jpg" />
+  <img src="Z:/picture/008/save_picture_340434.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340224.jpg" />
+  <img src="Z:/picture/008/save_picture_340224.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340095.jpg" />
+  <img src="Z:/picture/008/save_picture_340095.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340094.jpg" />
+  <img src="Z:/picture/008/save_picture_340094.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340083.jpg" />
+  <img src="Z:/picture/008/save_picture_340083.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338521.jpg" />
+  <img src="Z:/picture/008/save_picture_338521.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338514.jpg" />
+  <img src="Z:/picture/008/save_picture_338514.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338188.jpg" />
+  <img src="Z:/picture/008/save_picture_338188.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337011.jpg" />
+  <img src="Z:/picture/008/save_picture_337011.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335938.jpg" />
+  <img src="Z:/picture/008/save_picture_335938.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Stranger Things / Очень странные дела (Music from the Netf
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335072.jpg" />
+  <img src="Z:/picture/008/save_picture_335072.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334385.jpg" />
+  <img src="Z:/picture/005/save_picture_334385.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333706.jpg" />
+  <img src="Z:/picture/008/save_picture_333706.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OS
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332675.jpg" />
+  <img src="Z:/picture/008/save_picture_332675.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетлан�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332526.jpg" />
+  <img src="Z:/picture/008/save_picture_332526.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Идеальный голос / Pitch Perfect OST (2012) [MP3|320 Kbps] <So
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332481.jpg" />
+  <img src="Z:/picture/008/save_picture_332481.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330580.jpg" />
+  <img src="Z:/picture/008/save_picture_330580.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327544.jpg" />
+  <img src="Z:/picture/008/save_picture_327544.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327302.jpg" />
+  <img src="Z:/picture/008/save_picture_327302.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324962.jpg" />
+  <img src="Z:/picture/008/save_picture_324962.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Скалолазка и Последний из Седьмой колыбе
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323446.jpg" />
+  <img src="Z:/picture/008/save_picture_323446.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) +
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320990.jpg" />
+  <img src="Z:/picture/008/save_picture_320990.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314993.jpg" />
+  <img src="Z:/picture/008/save_picture_314993.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314227.jpg" />
+  <img src="Z:/picture/008/save_picture_314227.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312776.jpg" />
+  <img src="Z:/picture/008/save_picture_312776.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312206.jpg" />
+  <img src="Z:/picture/008/save_picture_312206.jpg" />
 </div>
 
 

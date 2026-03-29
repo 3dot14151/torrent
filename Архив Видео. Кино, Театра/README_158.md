@@ -1,3 +1,107 @@
+###  Публикация: 1133992   (690776) от 14.05.2017
+
+Прочь / Get Out (2017) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство с родителями подружки не предвещает молодому фотографу из Нью-Йорка ничего хорошего, ведь семья девушки принадлежит к элитному обществу и живет в уединенном загородном доме. Если бы он только знал истинную причину своего приглашения, то немедленно бросился бы прочь…Производство: США / Blumhouse Productions, QC EntertainmentЖанр: Ужасы, ДетективРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Эллисон Уильямс, Кэтрин Кинер, Брэдли Уитфорд, Калеб Лэндри Джонс, Маркус Хендерсон, Бетти Гэбриел, Лейкит Стэнфилд, Стивен Рут, Лил РеллПеревод: Многоголосый закадровый, профессиональный (AlexFilm)Субтитры: Русские (полные), Английские (полные)Продолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0770009C239E76F90AAEC9A41514478972BE9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133898   (690772) от 14.05.2017
+
+Прочь / Get Out (2017) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство с родителями подружки не предвещает молодому фотографу из Нью-Йорка ничего хорошего, ведь семья девушки принадлежит к элитному обществу и живет в уединенном загородном доме. Если бы он только знал истинную причину своего приглашения, то немедленно бросился бы прочь…Производство: США / Blumhouse Productions, QC EntertainmentЖанр: Ужасы, ДетективРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Эллисон Уильямс, Кэтрин Кинер, Брэдли Уитфорд, Калеб Лэндри Джонс, Маркус Хендерсон, Бетти Гэбриел, Лейкит Стэнфилд, Стивен Рут, Лил РеллПеревод: Многоголосый закадровый, профессиональный (AlexFilm)Субтитры: Русские (полные), Английские (полные)Продолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C760500252256158CD490BDB360D7BED5D45ADC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 673723   (690556) от 01.07.2013
+
+Джек – покоритель великанов / Jack the Giant Slayer (2013) HDRip [UKR]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690556.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается с похищения принцессы, что грозит нарушить хрупкий мир между людьми и великанами. Юный фермер возглавляет вылазку в царство гигантов в надежде спасти девушку.Производство: СШАЖанр: Фэнтези, ПриключенияРежиссер: Брайан СингерАктеры: Николас Холт, Элинор Томлинсон, Юэн МакГрегор, Стэнли Туччи, Эдди Марсан, Юэн Бремнер, Иэн МакШейн, Кристофер Фэйрбэнк, Саймон Лоу, Мингус ДжонстонПеревод: Дублированный (украинский)Субтитры: ОтсутствуютПродолжительность: 01:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FDC2D5C493CDF68602EE66E78ACB6017075CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028399   (690408) от 22.06.2016
+
+Ян Гуй Фэй / Wang chao de nv ren: Yang Gui Fei (2015) HDRip [H.264]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет историю знаменитой танской наложницы Ян Гуй Фэй. Юная красавица покорила сердце немолодого императора Сюань-цзуна, и их любовь привела целую династию к гибели.Производство: КитайЖанр: Исторический, ВоенныйРежиссер: Ши ЦинАктеры: Фань БинБин, Ву Чун, Леон ЛайПеревод: Двухголосый закадровый, любительский (Ворон и Wenlana)Язык субтитров: РусскийПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680FCE9764EE523435E7976BF5A55A15AE06F017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506252   (690285) от 05.06.2012
 
 Настоящая женщина / True Women (1997) DVD9 [2 серии из 2]
@@ -6,7 +110,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690285.jpg" />
+  <img src="Z:/picture/008/save_picture_690285.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690281.jpg" />
+  <img src="Z:/picture/008/save_picture_690281.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689980.jpg" />
+  <img src="Z:/picture/008/save_picture_689980.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689965.jpg" />
+  <img src="Z:/picture/008/save_picture_689965.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689953.jpg" />
+  <img src="Z:/picture/008/save_picture_689953.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689950.jpg" />
+  <img src="Z:/picture/008/save_picture_689950.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689949.jpg" />
+  <img src="Z:/picture/008/save_picture_689949.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689933.jpg" />
+  <img src="Z:/picture/008/save_picture_689933.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689931.jpg" />
+  <img src="Z:/picture/008/save_picture_689931.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689929.jpg" />
+  <img src="Z:/picture/008/save_picture_689929.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689844.jpg" />
+  <img src="Z:/picture/008/save_picture_689844.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689839.jpg" />
+  <img src="Z:/picture/008/save_picture_689839.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689830.jpg" />
+  <img src="Z:/picture/008/save_picture_689830.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689827.jpg" />
+  <img src="Z:/picture/008/save_picture_689827.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689774.jpg" />
+  <img src="Z:/picture/008/save_picture_689774.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689772.jpg" />
+  <img src="Z:/picture/008/save_picture_689772.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689612.jpg" />
+  <img src="Z:/picture/008/save_picture_689612.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689384.jpg" />
+  <img src="Z:/picture/008/save_picture_689384.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689233.jpg" />
+  <img src="Z:/picture/008/save_picture_689233.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689220.jpg" />
+  <img src="Z:/picture/008/save_picture_689220.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689190.jpg" />
+  <img src="Z:/picture/008/save_picture_689190.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689148.jpg" />
+  <img src="Z:/picture/008/save_picture_689148.jpg" />
 </div>
 
 
@@ -576,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221896   (689051) от 27.04.2018
-
-Тоня против всех / I, Tonya (2017) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американской фигуристке Тоне Хардинг пришлось нелегко: сначала тяжелое детство с грозной матерью, потом тяжелая юность, ранний брак с проходимцем и неудачи на соревнованиях из-за заниженных судьями оценок. А потом случился скандал: во время важнейших соревнований идея запугать конкурентку идёт не по плану…Производство: США, Clubhouse Pictures (II)Жанр: Комедия, драма, биография, спортРежиссер: Крэйг ГиллеспиАктеры: Марго Робби, Себастьян Стэн, Эллисон Джэнни, Кэйтлин Карвер, Бобби Каннавейл, Маккенна Грэйс, Бояна Новакович, Джулианна Николсон, Катрин Дайер, Пол Уолтер ХаузерПеревод: Дублированный (Лицензия BD RUS); одноголосый закадровый, авторский (М.Чадов)Субтитры: Русские (Full, Full без цензуры), английские (Full, SDH, SDH-Colored)Продолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A5E68F69AB737960EC87FBE627D77E1C08DA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221831   (689044) от 27.04.2018
-
-Бегущий в лабиринте: Лекарство от смерти / Maze Runner: The Death Cure (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас возглавляет отряд выживших глейдеров, чтобы выполнить последнюю и самую опасную миссию. Ради спасения своих друзей они должны проникнуть в легендарный Последний город, смертоносный лабиринт, контролируемый ПОРОКом. Каждый, кто выживет там, наконец-то получит ответы на все вопросы, которые мучили глейдеров с момента попадания в лабиринт.Производство: США / 20th Century Fox Film CorporationЖанр: фантастика, боевик, триллерРежиссер: Уэс БоллАктеры: Дилан О`Брайэн, Ки Хонг Ли, Кая Скоделарио, Уилл Поултер, Томас Броди Сэнгстер, Патришия Кларксон, Амл Амин, Крис Шеффилд, Карл ГринПеревод: Дублированный (iTunes), Любительский многоголосый (HDRezka Studio)Субтитры: Русские, Украинские, АнглийскиеПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A88DA340905B7751A321C9AF7D6EAC77B522B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222072   (688943) от 27.04.2018
-
-Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) WEBRip [H.264/720p-LQ] [MVO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…
-Пришло время нового поколения отстаивать своё право на Землю.Производство: США, Китай, Великобритания / Clear Angle Studios, Dentsu, Double Dare You (DDY)Жанр: Фантастика, боевик, приключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Тянь Цзин, Макс Чжан, Адриа Архона, Ринко Кикучи, Каран Брэр ...Перевод: Многоголосый закадровый (HDrezka Studio)Субтитры: Корейские (хардсаб)Продолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B314C86C371A249D13A5A75FA8C0ADE6813E3F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222078   (688929) от 27.04.2018
-
-Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) WEBRip [MVO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…
-Пришло время нового поколения отстаивать своё право на Землю.Производство: США, Китай, Великобритания / Clear Angle Studios, Dentsu, Double Dare You (DDY)Жанр: Фантастика, боевик, приключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Тянь Цзин, Макс Чжан, Адриа Архона, Ринко Кикучи, Каран Брэр ...Перевод: Многоголосый закадровый (HDrezka Studio)Субтитры: Корейские (хардсаб)Продолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC6A813B6597C0B42C2D2968442D5CC971AD571
 ```
 
 https://mybot314.ru/tekegram_catalog/

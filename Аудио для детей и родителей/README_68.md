@@ -1,3 +1,87 @@
+###  Публикация: 1838046   (257780) от 20.11.2025
+
+Григорий Остер | Союзмультфильм. Котёнок по имени Гав (2006) [MP3, Александр Пожаров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союзмультфильм.
+Весёлые истории о крепкой дружбе маленького котёнка Гав и щенка, которые попадают в различные веселые истории.
+Если ты забыл, как тебя зовут, надо у кого-нибудь спросить. Главное – не ошибиться, кого спрашивать. Только тот, кто по-настоящему любит, сумеет ответить на этот вопрос. Но если котёнка зовут Гав – неприятностей не избежать…
+(   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: ФГУП Киностудия «Союзмультфильм», ТВИК-ЛИРЕКПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3BF0DC44004E3D42E14FF7D77C687426014834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838049   (257777) от 20.11.2025
+
+Жорж Санд | В гостях у сказки. Великан Иеус (2006) [MP3, Дмитрий Полонский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: В гостях у сказки.
+Имя Жорж Санд в начале XIX века для русской и западной интеллигенции было синонимом женской независимости, передовых идей, стремлений к изменению общественного строя и всемирному братству. Мало кому известно, что на исходе своей литературной деятельности Санд создала замечательные, добрые и светлые произведения «Воспоминания и впечатления» (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Тамара ГаббеИздательство: Издательский дом «Союз»Продолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1522187D55AB728913BB33C7086084137889DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837540   (257510) от 17.11.2025
+
+Алексей Николаевич Толстой | Поди туда - не знаю куда, принеси то - не знаю что… (1996) [MP3, Вера Васильева, Валерий Золотухин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мир детства.
+Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
+Русская народная сказка в литературной обработке писателя Алексея Николаевича Толстого. В некотором царстве жил-был (   Читать дальше...   )Жанр: Литература для детей, классика, русская народная сказкаИздательство: РМГ РекордзПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54431C151232C4C20F5DC39A2EE4A519737C2728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837541   (257509) от 17.11.2025
 
 Алексей Николаевич Толстой | Золотая коллекция сказок. Пойди туда - не знаю куда... (2006) [MP3, Сергей Кривошеин и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257509.jpg" />
+  <img src="Z:/picture/005/save_picture_257509.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256826.jpg" />
+  <img src="Z:/picture/005/save_picture_256826.jpg" />
 </div>
 
 
@@ -63,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256822.jpg" />
+  <img src="Z:/picture/005/save_picture_256822.jpg" />
 </div>
 
 
@@ -92,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256818.jpg" />
+  <img src="Z:/picture/005/save_picture_256818.jpg" />
 </div>
 
 
@@ -121,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256813.jpg" />
+  <img src="Z:/picture/005/save_picture_256813.jpg" />
 </div>
 
 
@@ -150,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256812.jpg" />
+  <img src="Z:/picture/005/save_picture_256812.jpg" />
 </div>
 
 
@@ -179,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256811.jpg" />
+  <img src="Z:/picture/005/save_picture_256811.jpg" />
 </div>
 
 
@@ -208,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256762.jpg" />
+  <img src="Z:/picture/005/save_picture_256762.jpg" />
 </div>
 
 
@@ -237,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256711.jpg" />
+  <img src="Z:/picture/005/save_picture_256711.jpg" />
 </div>
 
 
@@ -265,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256710.jpg" />
+  <img src="Z:/picture/005/save_picture_256710.jpg" />
 </div>
 
 
@@ -293,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255128.jpg" />
+  <img src="Z:/picture/005/save_picture_255128.jpg" />
 </div>
 
 
@@ -322,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254818.jpg" />
+  <img src="Z:/picture/005/save_picture_254818.jpg" />
 </div>
 
 
@@ -348,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254776.jpg" />
+  <img src="Z:/picture/005/save_picture_254776.jpg" />
 </div>
 
 
@@ -374,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254747.jpg" />
+  <img src="Z:/picture/005/save_picture_254747.jpg" />
 </div>
 
 
@@ -401,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252659.jpg" />
+  <img src="Z:/picture/005/save_picture_252659.jpg" />
 </div>
 
 
@@ -430,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251987.jpg" />
+  <img src="Z:/picture/004/save_picture_251987.jpg" />
 </div>
 
 
@@ -456,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251986.jpg" />
+  <img src="Z:/picture/004/save_picture_251986.jpg" />
 </div>
 
 
@@ -482,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251689.jpg" />
+  <img src="Z:/picture/004/save_picture_251689.jpg" />
 </div>
 
 
@@ -510,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251678.jpg" />
+  <img src="Z:/picture/004/save_picture_251678.jpg" />
 </div>
 
 
@@ -537,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251676.jpg" />
+  <img src="Z:/picture/004/save_picture_251676.jpg" />
 </div>
 
 
@@ -565,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251139.jpg" />
 </div>
 
 
@@ -593,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251126.jpg" />
 </div>
 
 
@@ -621,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250734.jpg" />
+  <img src="Z:/picture/004/save_picture_250734.jpg" />
 </div>
 
 
@@ -632,88 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FCD00E4D73A5A6BD42FCEE8BF04F30033FF6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834452   (249368) от 03.11.2025
-
-Самуил Маршак | Двенадцать месяцев (Аудиоспектакль) (1997) [MP3, В. Дёмин, С. Горбачёв и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Лучшее детям.
-Самуил Яковлевич Маршак (1887–1964) советский поэт, драматург, переводчик, литературный критик.
-Самая знаменитая сказка С.Я. Маршака в формате аудиоспектакля. Волшебная сказка на все времена о том, что добро всегда побеждает зло, а любовь и дружба способны преодолеть любые препятствия. Капризная принцесса требует к Новому году корзину подснежников. (   Читать дальше...   )Жанр: Русская литература, классика, сказкаИздательство: En Face TUTTI RecordsПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6545A5AD3411AC1780BA516BDF5456B163EFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834454   (249364) от 03.11.2025
-
-Самуил Маршак | Умные вещи (Радиоспектакль) (2008) [MP3, Виктор Борцов, Юрий Соломин и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самуил Яковлевич Маршак (1887–1964) советский поэт, драматург, переводчик, литературный критик.
-На весёлой и шумной ярмарочной площади, среди множества лавок с яркими вывесками есть одна удивительная лавка. Вся она увешана дорогими коврами, а над входом, большими буквами написано: «УМНЫЕ ВЕЩИ».
-Держит её высокий, слегка согбенный белобородый старик, одетый в тяжелый, (   Читать дальше...   )Жанр: Русская литература, классика, сказка-комедияИздательство: ИДДК, БизнессофтПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2805F33BA216DE44E0CE798A931495A4F9924CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491469   (246421) от 03.05.2012
-
-Редьярд Джозеф Киплинг | Маугли [1981] [MP3, Анатолий Папанов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое джунгли, спросишь ты? Джунгли — это дикий густой лес, где звери живут стаями и стадами и откуда ночью слышны их воинственные песни и боевые клики. Если человек днем отправляется в джунгли и берет с собою оружие, то и тогда у него неспокойно на сердце. А уж ночью к джунглям лучше совсем не подходить: в чаще тропического леса так легко заблудиться, погибнуть (   Читать дальше...   )Жанр: СказкаИздательство: МелодияПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2704AC59F41EAE131372DEB19B7EF5FAE8D8498
 ```
 
 https://mybot314.ru/tekegram_catalog/

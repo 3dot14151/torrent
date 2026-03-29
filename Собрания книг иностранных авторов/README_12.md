@@ -1,3 +1,83 @@
+###  Публикация: 1263026   (289758) от 18.11.2018
+
+Чарльз Вильямс | Сборник произведений [18 книг] (1991-2001) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарльз Вильямс / Charles Williams (1909 - 1975) - американский мастер крутого детектива, написал более 20 романов, а также повести и рассказы.
+Вильямс был хорошо знаком с высказыванием - "Бог создал страну, человек создал город, а дьявол создал маленький город." Действие его ранних детективов, написанных в в 1950-ых и 1960-ых, происходит в маленьких городках (   Читать дальше...   )Жанр: Детектив, триллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D221348B7EAF4EC922B638586CE6B5ADEB2EF8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263746   (286122) от 20.11.2018
+
+Фрэнк Грубер | Сборник произведений [8 книг] (1967-2008) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_286122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэнк Грубер (Frank Gruber, родился 2 февраля 1904 года, в Элмере, штат Миннесота, умер 9 декабря 1969, в Санта-Моника, Калифорния) - американский писатель, сценарист, продюсер, актер.
+Прославился благодаря своим вестернам и его детективам. Также писал под псевдонимами Стивен Акко (Stephen Acre), Чарльз К. Бостон (Charles K. Boston) и Джон К. Веддер (John K. Vedder). (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9BC44832F9E3D322100F43F2051F27C8C7985F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335883   (284083) от 04.11.2019
+
+Дэвид Эддингс | Собрание произведений [17 книг] (2000 - 2008) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Эддингс родился в 1931 году в городе Спокане, округ Вашингтон, вырос недалеко от Пьюджет-Саунд. После окончания старшей школы в 1949 году проработал год в колледже с двухгодичным обучением до получения специализации английского языка и литературы. Эддингс демонстрировал талант к драматической литературе, победил в национальном конкурсе ораторов и играл главные (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462B4F79E5EA06ED14D904697A7D446AF2F1C1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336117   (282379) от 05.11.2019
 
 Джеймс Баркли | Собрание произведений [7 книг] (2001 - 2019) [FB2]
@@ -6,7 +86,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282379.jpg" />
+  <img src="Z:/picture/008/save_picture_282379.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279995.jpg" />
+  <img src="Z:/picture/008/save_picture_279995.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279853.jpg" />
+  <img src="Z:/picture/008/save_picture_279853.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277713.jpg" />
+  <img src="Z:/picture/008/save_picture_277713.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277641.jpg" />
+  <img src="Z:/picture/008/save_picture_277641.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275180.jpg" />
+  <img src="Z:/picture/008/save_picture_275180.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270983.jpg" />
+  <img src="Z:/picture/008/save_picture_270983.jpg" />
 </div>
 
 
@@ -197,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267623.jpg" />
+  <img src="Z:/picture/008/save_picture_267623.jpg" />
 </div>
 
 
@@ -225,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266949.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265316.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264960.jpg" />
 </div>
 
 
@@ -305,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263087.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260106.jpg" />
+  <img src="Z:/picture/005/save_picture_260106.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260002.jpg" />
+  <img src="Z:/picture/005/save_picture_260002.jpg" />
 </div>
 
 
@@ -386,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258348.jpg" />
+  <img src="Z:/picture/005/save_picture_258348.jpg" />
 </div>
 
 
@@ -412,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257250.jpg" />
+  <img src="Z:/picture/005/save_picture_257250.jpg" />
 </div>
 
 
@@ -440,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254670.jpg" />
+  <img src="Z:/picture/005/save_picture_254670.jpg" />
 </div>
 
 
@@ -466,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253050.jpg" />
+  <img src="Z:/picture/005/save_picture_253050.jpg" />
 </div>
 
 
@@ -494,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250186.jpg" />
+  <img src="Z:/picture/004/save_picture_250186.jpg" />
 </div>
 
 
@@ -521,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250115.jpg" />
+  <img src="Z:/picture/004/save_picture_250115.jpg" />
 </div>
 
 
@@ -547,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245014.jpg" />
+  <img src="Z:/picture/004/save_picture_245014.jpg" />
 </div>
 
 
@@ -575,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231004.jpg" />
+  <img src="Z:/picture/004/save_picture_231004.jpg" />
 </div>
 
 
@@ -603,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227967.jpg" />
+  <img src="Z:/picture/005/save_picture_227967.jpg" />
 </div>
 
 
@@ -615,87 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2C42DAB839C9AB4A9FFEF69AE5823A1FC6D39A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268379   (227856) от 10.12.2018
-
-Эрик Эмблер | Сборник произведений [9 книг] (2003-2013) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрик Эмблер (англ. Eric Ambler; 28 июня 1909 – 22 октября 1998) - английский писатель, один из создателей, наряду с Сомерсетом Моэмом и Грэмом Грином, жанра политического триллера.
-До войны Амблер опубликовал 6 триллеров, первый из которых - "Темная граница" - вышел в 1936 году.
-Во время Второй мировой войны Амблер добровольцем вступил в артиллерийские (   Читать дальше...   )Жанр: Детектив, политический и шпионский детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5854BFAF8C6965B6F6CE68DEA7312D05C2D9A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311258   (226336) от 17.11.2020
-
-Блейк Пирс | Собрание произведений [51 книга] (2015-2020) [FB2] [Обновляемая]
-
->>След.
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блейк Пирс — автор мистических триллеров и детективов. На его счету огромное количество произведений, которые очень полюбились современным читателям, так как в них сочетается напряженный сюжет и шокирующая развязка. Главными же героями выступают молодые женщины с тяжелой судьбой.
-О жизни самого писателя известно очень мало. С раннего детства он любил триллеры и детективы (   Читать дальше...   )Жанр: Детектив, Триллер, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD1A3F5691397B95A5BF5F8E328996397D0EF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586721   (225928) от 09.12.2012
-
-Питер Джеймс (Peter James) - 21 книга [1988 - 2012] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам представлено собрание книг известного британского писателя, сценариста, продюсера Питера Джеймса (Peter James). Совсем недавно его назвали одним из самых раскрученных английских писателей в США. Романы Джеймса переведены более чем на 30 языков. Все произведения автора отличает глубокий интерес к медицине, науке и сверхъестественному.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1D4B8D18CD05572AB19A83BFFC16CF9CF7190F
 ```
 
 https://mybot314.ru/tekegram_catalog/

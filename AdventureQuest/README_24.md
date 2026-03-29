@@ -1,3 +1,81 @@
+###  Публикация: 1347942   (768828) от 28.06.2020
+
+SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый писатель Себастьян П. Хушер пропал вместе со своей семьей. Обеспокоенный редактор отправил своего ассистента в дом писателя, но, к сожалению, он так и не вернулся. Эти исчезновения вызывают ряд событий, которые вскоре приводят к обнаружению ужасного зла: безымянной сверхъестественной сущности, известной лишь как «Присутствие», что рыскает где-то в темноте (   Читать дальше...   )Тип издания: RepackРазработчик: Protocol GamesЖанр: Adventure (Horror), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB5F5E926C6B46C8F3E99484D021CB3DD177003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213305   (768786) от 16.03.2018
+
+The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1964 год. Из Британского музея пропал древний рубин, на месте преступления обнаружено вороново перо. Неужели кто-то пытается подражать знаменитому вору по кличке Ворон?T he Raven Remastered — полностью перерисованная игра с детективной историей, рассказанной от лица нескольких героев.Констебль Антон Якоб Зеллнер оказывается в центре загадочного преступления, (   Читать дальше...   )Тип издания: LicenseРазработчик: KING Art GamesЖанр: Приключение, Квест, ДетективЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEBE95772F3FF3076177BCA39C002D8D189972E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187623   (768237) от 29.06.2020
+
+Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландия, 1926 год. После известия о самоубийстве отца Дэвид Гордон впервые приезжает в родовое поместье. Мрачные тайны этого места свели с ума немало Гордонов, и следующей жертвой может стать он сам. С самого детства Дэвида терзают кошмары и видения. Он живет в страхе, что ему суждено повторить судьбу отца и пойти дорогой, ведущей к безумию и смерти. Действительно (   Читать дальше...   )Тип издания: RepackРазработчик: KING ArtЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B341660C92984B91FECB288124B48EBD6E63F175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387825   (768235) от 29.06.2020
 
 Someday You'll Return (2020) [Multi] (1.3) Repack Other s
@@ -6,7 +84,7 @@ Someday You'll Return (2020) [Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768235.jpg" />
+  <img src="Z:/picture/008/save_picture_768235.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767716.jpg" />
+  <img src="Z:/picture/008/save_picture_767716.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766519.jpg" />
+  <img src="Z:/picture/008/save_picture_766519.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766480.jpg" />
+  <img src="Z:/picture/008/save_picture_766480.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766474.jpg" />
+  <img src="Z:/picture/008/save_picture_766474.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765874.jpg" />
+  <img src="Z:/picture/008/save_picture_765874.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765839.jpg" />
+  <img src="Z:/picture/008/save_picture_765839.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Lumo (2016) [Ru/Multi] (1.11.08) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764224.jpg" />
+  <img src="Z:/picture/008/save_picture_764224.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Blair Witch (2019) [Ru/Multi] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763395.jpg" />
+  <img src="Z:/picture/008/save_picture_763395.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762462.jpg" />
+  <img src="Z:/picture/008/save_picture_762462.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack Other s [Special Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762387.jpg" />
+  <img src="Z:/picture/008/save_picture_762387.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761575.jpg" />
+  <img src="Z:/picture/008/save_picture_761575.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Not in Heaven (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761502.jpg" />
+  <img src="Z:/picture/008/save_picture_761502.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760737.jpg" />
+  <img src="Z:/picture/008/save_picture_760737.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Insane Decay of Mind (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760673.jpg" />
+  <img src="Z:/picture/008/save_picture_760673.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ The Song of Seven: Chapter One (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760596.jpg" />
+  <img src="Z:/picture/008/save_picture_760596.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Danganronpa Dilogy (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760591.jpg" />
+  <img src="Z:/picture/008/save_picture_760591.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758177.jpg" />
+  <img src="Z:/picture/008/save_picture_758177.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Backbone (2021) [Ru/Multi] (1.0.8.0/dlc) Repack Other s [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758135.jpg" />
+  <img src="Z:/picture/005/save_picture_758135.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Dreamfall Chapters (2017) [Ru/Multi] (5.7.8) License GOG [The Final Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758052.jpg" />
+  <img src="Z:/picture/008/save_picture_758052.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757999.jpg" />
+  <img src="Z:/picture/008/save_picture_757999.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755902.jpg" />
+  <img src="Z:/picture/008/save_picture_755902.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Retro Machina (2021) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754509.jpg" />
+  <img src="Z:/picture/008/save_picture_754509.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Retro Machina — это новое приключение в футуристи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:989101C32CEFF9078AE41A294DD8CDF9CE7C4613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201378   (754268) от 28.03.2018
-
-Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repack xatab [Episode 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754268.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Брюса Уэна продолжается в новой главе от Telltale Games. В этот раз ему предстоит защитить Готэм от Загадочника, который вернулся в город и совершает ужасные преступления. Джокер также не останется в стороне, ведь у него всегда припрятан козырь в рукаве.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1E7125AB68216ECC83E6E09D830B88352D38FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522747   (752807) от 10.01.2022
-
-Insomnis (2022) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Insomnis — это игра в жанре ужасов от первого лица, в которой основное внимание уделяется сюжету, исследованию и решению головоломок для продвижения по жуткой атмосфере. Игрок берёт на себя управление Джо Кастеветом, которому предстоит разобраться с таинственным поместьем.Тип издания: RepackРазработчик: Path GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104E9FD159184DB72B92B102E0CCCD8672EF9EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019091   (751631) от 22.05.2016
-
-Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в рискованное путешествие в игре Adam’s Venture: Origins! Действие игры разворачивается в бурные 20-е годы. Вместе с помощницей Эвелин вам предстоит исследовать древние развалины, искать таинственные артефакты, а самое главное - обойти злодейскую компанию Clairvaux. Adam’s Venture: Origins – новое прочтение серии игр об Адаме Вентуре.Тип издания: RepackРазработчик: Vertigo GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EE896B7BF5001D9BA2D65284CE362CB0CF0DD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

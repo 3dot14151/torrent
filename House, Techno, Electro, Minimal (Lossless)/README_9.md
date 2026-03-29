@@ -1,3 +1,90 @@
+###  Публикация: 1222943   (968696) от 08.02.2020
+
+Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Lost 200€ In A Club (04:23)
+ 02. Cool Bananas (Stringmix) (04:45)
+ 03. Starry Night (05:56)
+ 04. Camel Ride (07:21)Тип издания: Web, VinylЖанр: House/Deep HouseПродолжительность: 03:00:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4196E94AF6C57214E1C7A3432234BD6D4E6F6BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358836   (967417) от 09.02.2020
+
+P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce, Instabil [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rephrasing Dub (06:07)
+ 02. I Don't Care (Federsen Remix) (07:53)
+ 03. I Don't Care (06:40)
+ 04. Never Thought (07:11)Тип издания: CD, Web, VinylЖанр: Techno/Dub Techno/Deep House/Tech HouseПродолжительность: 03:42:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF8AB3544C49BD1936DC943B2D517D8CF14F6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149234   (967174) от 09.02.2020
+
+Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NatsQ - Before (E) (Original Mix) (04:19)
+ 02. Textural Being - Experience (NatsQ "Colored Club" Remix) (05:16)
+ 03. Textural Being - Experience (DeepWarmth Remix) (08:23)
+ 04. Textural Being - Experience (Cristiano Campos Remix) (08:38)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Ambient, Techno •Продолжительность: 10:05:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358617   (967138) от 09.02.2020
 
 Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
@@ -6,7 +93,7 @@ Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967138.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965547.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963580.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Dubfire - HYBRID: A Decade Of Dubfire (2017) Compilation [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961928.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959333.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955100.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953877.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953774.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949612.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949547.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949379.jpg" />
 </div>
 
 
@@ -321,7 +408,7 @@ VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Dr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947327.jpg" />
 </div>
 
 
@@ -350,7 +437,7 @@ Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947081.jpg" />
 </div>
 
 
@@ -379,7 +466,7 @@ Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943610.jpg" />
 </div>
 
 
@@ -408,7 +495,7 @@ VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942995.jpg" />
 </div>
 
 
@@ -437,7 +524,7 @@ Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942601.jpg" />
 </div>
 
 
@@ -466,7 +553,7 @@ Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942597.jpg" />
 </div>
 
 
@@ -495,7 +582,7 @@ cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941991.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941890.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941888.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941886.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940849.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940333.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092305   (940246) от 11.01.2017
-
-VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alex Hook - Right Now (feat. Rene) (Original Mix) [05:14]
-02 Dmitrii G - Antidote (Original Mix) [06:05]
-03 Rony Breaker - Something More (feat. Che Cherry) (Deeplomatik Vocal Mix) [06:32]
-04 Jazzyfunk - I Wanna Know (feat. Rene) (Alex Hook Remix) [05:41](   Читать дальше...   )Жанр: HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364159   (939609) от 01.03.2020
-
-Cubicolor - Hardly A Day, Hardly A Night (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (3:56)
-02. Rituals (5:05)
-03. All You Needed (4:16)
-04. Melodies (5:02)(   Читать дальше...   )Производство: Anjunadeep – ANJCD077Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CEAB02457AAD56F774F855C7F88AB9352BF9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363925   (939603) от 01.03.2020
-
-Caribou - Suddenly (2020) [FLAC|Lossless|tracks + .cue] <Experimental, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister (2:12)
-02. You And I (4:04)
-03. Sunny's Time (2:50)
-04. New Jade (3:38)(   Читать дальше...   )Производство: Merge Records – MRG708Жанр: Experimental, Progressive HouseПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC15B3277B6A7BA61EF74B067E4FB1522C5F22E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

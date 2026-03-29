@@ -1,3 +1,61 @@
+###  Публикация: 1049801   (542369) от 06.09.2016
+
+VA - Groove Huge Top Hits (2016) [MP3|268~320 Kbps] <House, Vocal House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Antoine & Timati Feat. Grigory Leps  -  London (DJ Antoine vs. Mad Mark 2k16 Radio Edit)  3:32
+02. Dave202 feat. Yono  -  Golden Child (Radio Mix)  3:30
+03. Inner Voice feat. Rebecca Louise  -  Long to Be (Original Mix)  3:23
+04. Topmodelz  -  Your Love 2015 (CJ Stone Edit)  3:36(   Читать дальше...   )Жанр: House, Vocal House, Club, DanceПродолжительность: 02:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1C62853066806E9BCB8A4566AE29BE7561ABBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049809   (542366) от 06.09.2016
+
+VA - Player Lover Melodies (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic, Melodic, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myk Bee  -  Endless Drive (Raw & Carpenter Remix)  8:22
+02. Max Millian  -  Distant Road (Radio Edit)  3:57
+03. Eximinds  -  Sunrise (Extended Mix)  5:29
+04. Gareth Emery Ft. Christina Novelli  -  Save Me (John Ocallaghan Remix)  3:25(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Melodic, EmotionalПродолжительность: 02:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A31D5A667A7AD980A76BEB06BA8F817C288E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049680   (542251) от 06.09.2016
 
 VA - Record Super Chart #452 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Club, Dance>
@@ -6,7 +64,7 @@ VA - Record Super Chart #452 (2016) [MP3|320 Kbps] <House, Electro House, Future
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542251.jpg" />
+  <img src="Z:/picture/008/save_picture_542251.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Lounge Surprise (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541489.jpg" />
+  <img src="Z:/picture/008/save_picture_541489.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ibiza 2015: Summer EDM Party (2015) [MP3|320 кб/с]<Progressive House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541402.jpg" />
+  <img src="Z:/picture/008/save_picture_541402.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Progressive House Vol.4 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541055.jpg" />
+  <img src="Z:/picture/008/save_picture_541055.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Top 100 Energy European Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541042.jpg" />
+  <img src="Z:/picture/008/save_picture_541042.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Workout Mix vol.9 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540924.jpg" />
+  <img src="Z:/picture/008/save_picture_540924.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Chillout September 2016 Top 10 September Relaxing Chill Out and Lounge Musi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540760.jpg" />
+  <img src="Z:/picture/008/save_picture_540760.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Digital Turbo Trance Sunset (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540757.jpg" />
+  <img src="Z:/picture/008/save_picture_540757.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Record Super Chart 593 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539952.jpg" />
+  <img src="Z:/picture/008/save_picture_539952.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance Desire Volume 52 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539212.jpg" />
+  <img src="Z:/picture/008/save_picture_539212.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Record Super Chart 547 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538973.jpg" />
+  <img src="Z:/picture/008/save_picture_538973.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Trance Pack (06.09.) (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538428.jpg" />
+  <img src="Z:/picture/008/save_picture_538428.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Autumn Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538280.jpg" />
+  <img src="Z:/picture/008/save_picture_538280.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Beatport Top 100 EDM Songs & DJ Tracks August (2016) [MP3|320 Kbps] <House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538175.jpg" />
+  <img src="Z:/picture/008/save_picture_538175.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Infected Mushroom - Artificial Visualisation (2004) Unreleased [FLAC|Lossless|tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538110.jpg" />
+  <img src="Z:/picture/008/save_picture_538110.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Chill & Dub (vol.8) (2012) [MP3|320 кб/с]<Chillout/DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538068.jpg" />
+  <img src="Z:/picture/008/save_picture_538068.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Record Super Chart 11.06.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537321.jpg" />
+  <img src="Z:/picture/008/save_picture_537321.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ VA - Amsterdam City Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537282.jpg" />
+  <img src="Z:/picture/008/save_picture_537282.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ VA - Progressive Euphoria DJ Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537125.jpg" />
+  <img src="Z:/picture/008/save_picture_537125.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - Burning Man: Drum And Bass Compilation (2018) [MP3|320 Kbps] <Drum And Bass
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536857.jpg" />
+  <img src="Z:/picture/008/save_picture_536857.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Jean Michel Jarre - 25 Best Songs (2015) [MP3|~245 кб/с]<Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536822.jpg" />
+  <img src="Z:/picture/008/save_picture_536822.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - Лучшие Trance Треки (2018) [MP3|320 Kbps] <Vocal Trance, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536719.jpg" />
+  <img src="Z:/picture/008/save_picture_536719.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ VA - Vertigo: Premium Techno Set (2019) [MP3|320 Kbps] <Techno, Minimal, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536493.jpg" />
+  <img src="Z:/picture/008/save_picture_536493.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ VA - Top 100 Trance Music Vol.2 (2019) [MP3|320 Kbps] <Trance, Progressive Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536396.jpg" />
+  <img src="Z:/picture/008/save_picture_536396.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ VA - Top 100 Trance Music Vol.2 (2019) [MP3|320 Kbps] <Trance, Progressive Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5A429BA51967C6BA1E3D885C7CA2FDA8D328170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926329   (535654) от 09.08.2015
-
-VA - Lounge De Luxe (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Chill Out - Parapa Pa
-02. M. Vitoria - Spain
-03. Rock-Candy - Spacial Echoe
-04. Blue Horizon - Blue Bird(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A621FA88A13EF474A3961914CECEC201E09E3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926177   (535643) от 09.08.2015
-
-VA - Honey Lounge Music Deluxe (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxea - Sunshine Delight [07:19]
-02. M. Vitoria - Chill In Out [04:49]
-03. Loungeaholic - Heaven Is A Place On Earth [04:19]
-04. Oscar Salguero - Walking In Tokyo [06:15](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69C64934CDDDF634258765C7B60EC9B9C3C7F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

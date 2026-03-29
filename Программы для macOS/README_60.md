@@ -1,3 +1,144 @@
+###  Публикация: 1283881   (732147) от 18.02.2019
+
+Bookends 13.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.02.2019Разработчик: Sonny SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940C58B8B6CC02DB4D14BE3D5E45FAFD2A4A3FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283745   (732143) от 18.02.2019
+
+iSoftPhone Pro 4.2.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732143.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSoftPhone - приложение представляет весьма симпатичный и функциональный VoIP-клиент для macOS. Интерфейс приложения выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную сеть.
+
+Программа также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2019Разработчик: Xnet CommunicationsПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA3D60E8CA908FCD1F6F9D663CFEE94D31A37C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021707   (732100) от 30.05.2016
+
+TagNotate 1.4.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tagnotate. Инновации в аннотации.
+TagNotate просмотрщик PDF и аннотатор с уникальной возможностью присвоения тегов в аннотации - вы можете создать столько различных тегов, как вы хотите, что позволяет связать с каждой аннотацией независимо от вида информации, которые важны для вас. Выбрав один или несколько тегов, вы можете собрать вместе все аннотации, которые разделяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 мая 2016Разработчик: Tim And Gerry Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF3D3E6455D7BD1D66D0DC84A0F6B7F2971A2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127397   (732082) от 21.04.2017
+
+SkyLab Studio 2.3 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732082.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вдохновленный своей собственной любовью к красивому небу".
+SkyLab Studio - изменит ваше представление о небе на фотографии.
+Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE526D70E66831ACDA53E1D9EF6853170943B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127388   (732070) от 21.04.2017
+
+TunesKit iBook Copy 2.1.2 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный конвертер iBook DRM. Удаление защиты без потери качества в IBOOK EPUB DRM Free. TunesKit IBook Copy является уникальным инструментом для удаления IBook DRM на рынке, TunesKit IBook Copy может легко снять защиту DRM от компании Apple …
+
+Обход защиты DRM iBook EPUB файлов.
+Не можете читать ваши EPUB файлы на других устройствах для чтения, как Amazon Kindle, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CAF0C36BCF143F66141D6550A30219825E6110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283824   (732063) от 18.02.2019
 
 Postico 1.5.5 [En]
@@ -6,7 +147,7 @@ Postico 1.5.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732063.jpg" />
+  <img src="Z:/picture/008/save_picture_732063.jpg" />
 </div>
 
 
@@ -35,7 +176,7 @@ Image Vectorizer 1.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731967.jpg" />
+  <img src="Z:/picture/008/save_picture_731967.jpg" />
 </div>
 
 
@@ -61,7 +202,7 @@ PaintCode for Sketch 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731903.jpg" />
+  <img src="Z:/picture/008/save_picture_731903.jpg" />
 </div>
 
 
@@ -90,7 +231,7 @@ Developer Font Tool 10.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731887.jpg" />
+  <img src="Z:/picture/008/save_picture_731887.jpg" />
 </div>
 
 
@@ -119,7 +260,7 @@ ApolloOne - Photo Video Viewer 2.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731712.jpg" />
+  <img src="Z:/picture/008/save_picture_731712.jpg" />
 </div>
 
 
@@ -145,7 +286,7 @@ Resolume Arena 5 v5.1.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731362.jpg" />
+  <img src="Z:/picture/008/save_picture_731362.jpg" />
 </div>
 
 
@@ -172,7 +313,7 @@ Command-Tab Plus 1.88 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730871.jpg" />
+  <img src="Z:/picture/008/save_picture_730871.jpg" />
 </div>
 
 
@@ -198,7 +339,7 @@ Silverstack Lab 6.4.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730855.jpg" />
+  <img src="Z:/picture/008/save_picture_730855.jpg" />
 </div>
 
 
@@ -224,7 +365,7 @@ Sandvox 2.10.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730669.jpg" />
+  <img src="Z:/picture/008/save_picture_730669.jpg" />
 </div>
 
 
@@ -252,7 +393,7 @@ Barcode Maker 2.23 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730620.jpg" />
+  <img src="Z:/picture/008/save_picture_730620.jpg" />
 </div>
 
 
@@ -278,7 +419,7 @@ Cyberduck 5.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730612.jpg" />
+  <img src="Z:/picture/008/save_picture_730612.jpg" />
 </div>
 
 
@@ -306,7 +447,7 @@ Stellar Partition Manager 3.0.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730426.jpg" />
+  <img src="Z:/picture/008/save_picture_730426.jpg" />
 </div>
 
 
@@ -334,7 +475,7 @@ Sketch 3.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730351.jpg" />
+  <img src="Z:/picture/008/save_picture_730351.jpg" />
 </div>
 
 
@@ -361,7 +502,7 @@ OCRKit 19.2.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730092.jpg" />
+  <img src="Z:/picture/008/save_picture_730092.jpg" />
 </div>
 
 
@@ -387,7 +528,7 @@ Keytty 1.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730091.jpg" />
+  <img src="Z:/picture/008/save_picture_730091.jpg" />
 </div>
 
 
@@ -414,7 +555,7 @@ Seasonality Core 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730061.jpg" />
+  <img src="Z:/picture/008/save_picture_730061.jpg" />
 </div>
 
 
@@ -440,7 +581,7 @@ Tyme2 v1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730032.jpg" />
+  <img src="Z:/picture/008/save_picture_730032.jpg" />
 </div>
 
 
@@ -468,7 +609,7 @@ LiveGrade Pro 4.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730017.jpg" />
+  <img src="Z:/picture/008/save_picture_730017.jpg" />
 </div>
 
 
@@ -495,7 +636,7 @@ Remixvideo v1.1.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729853.jpg" />
+  <img src="Z:/picture/008/save_picture_729853.jpg" />
 </div>
 
 
@@ -521,7 +662,7 @@ iZotope Plugins Bundle [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729688.jpg" />
+  <img src="Z:/picture/008/save_picture_729688.jpg" />
 </div>
 
 
@@ -547,7 +688,7 @@ Lingon X 6.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729457.jpg" />
+  <img src="Z:/picture/008/save_picture_729457.jpg" />
 </div>
 
 
@@ -560,144 +701,6 @@ Lingon X позволяет визуально создавать файлы а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830F998D0F79F0A09E703B210B055B571A5668CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284449   (728954) от 21.02.2019
-
-NetWorker 5.3.2 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728954.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - небольшая и очень простая утилита, которая из строки меню, подскажет вам текущую скорость download/upload и статистику за период - текущая/предыдущая неделя, месяц и год.Тип издания: macOS SoftwareРелиз состоялся: 17.02.2019Разработчик: Sascha SimonПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, Немецкий и упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EC23CDB5C47B436A5144296C3A54F0AA1F1ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022488   (728937) от 02.06.2016
-
-Paste 1.1.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paste — менеджер истории буфера обмена для Mac
-Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
- (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 апреля 2016Разработчик: WirelessheadsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7366A3C8B005A77BAC3C5493F14BBC2280B91585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128316   (728791) от 24.04.2017
-
-iPIN - Secure PIN & Password Safe 2.25 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы должны запомнить несколько ПИН-кода и паролей? Для различных кредитных карт, онлайн-банкинга, токена безопасности, учетных записей электронной почты и т. Д.?
-
-IPIN - и ваши PIN-коды и пароли всегда под рукой. Доступ с максимальной скоростью, как можно безопаснее и, если хотите, синхронизацией через iCloud в любое время на вашем iPhone, iPod touch, iPad и устройствах (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 февраля 2017Разработчик: IBILITIES, INCЯзык интерфейса: Английский, Французский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39E0F65678BC4AF8D3125100D4722D587DEF982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128354   (728790) от 24.04.2017
-
-Taskly - Accomplish Today 1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taskly - Выделите время для ежедневных задач с простым и интуитивно понятным интерфейсом.
-Активная задача будет видна в вашей строке меню с обратным отсчетом, чтобы вы были сосредоточены на том, что делать, и сколько времени остается для этого. Добавьте столько задач, сколько хотите, и играйте и приостанавливайте их по своему усмотрению, но обязательно завершите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.04.2017Разработчик: Victor FagerströmПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F0BA52983D11F54023182B8305B6B0D04DBC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128400   (728659) от 24.04.2017
-
-iStat 3.02 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728659.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat является весьма подробным приложением удаленного мониторинга, что позволяет проверить жизненную статистику для Mac, ПК и серверов из любой точки мира.
-iStat отображает огромный диапазон детальной статистике системы, включая процессор, память, дисковое пространство, использование сети, температуры, скорости вращения вентиляторов и многое другое.
-
-• Монитор Mac, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2016Разработчик: Bjango Pty LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BE96DA7E9C55FD8B719F33DCA9303EFC8F58C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

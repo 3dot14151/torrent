@@ -1,3 +1,236 @@
+###  Публикация: 495488   (251386) от 12.05.2012
+
+VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Taylor Swift - Ours (4:07)
+2. Дмитрий Колдун - Не С Той (3:52)
+3. Tom Stem - Love (Mennn Bass Remix) (4:11)
+4. Marina And The Diamonds - Primadonna (3:40)
+5. Eric Church - Springsteen (4:20)
+6. Dj Boor & Dj Frost Music feat SERPO & Парабит - А мне так хочется (2012) (сегодня танцуем) (Rework Version) (3:51)
+7. Аслан Махов - Улетаю (2:56)
+8. Train - Drive By (3:10)
+9. T-Killah feat. Виктория Дайнеко - Mirror Mirror (3:27)
+10. MainstreaM One - Один Шанс (M. One & Dj Seroff prod) (3:14)2012Жанр: Pop,DanceПродолжительность: 05:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EBEBFFE875A27B4B5DE26E6A52D20ED863EE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494937   (251150) от 11.05.2012
+
+VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ M.E.G feat. Карина Кокс - Там Где Ты (UnorthodoxX Classic Vox Remix)
+02. Asino Di Medico vs Terry Stone - In My Mind (Club Mix)
+03. Инфинити - Где ты (Alex Menco 2012 remix)
+04. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
+05. DJ Miller feat. Батишта - Почти Ничего
+06. Christopher S feat. Max Urban - Star (Organ Mix)
+07. Каста - Сочиняй Мечты (DJ Kopernik Remix)
+08. DJ Antoine vs. Empire Of The Sun - Walking On A Dream (DJ Pitchugin Booty Mix)
+09. Руки Вверх - Крошка моя (Wellski Radio Remix)
+10. Brilliant - Action Mode (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 04:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495164   (251070) от 11.05.2012
+
+VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.o.B feat. Playboy Tre - Just A Sign
+02. Bijue - All The Stars (Extended Mix)
+03. Sunset54 - Another Day (Fly Records Extended)
+04. Jay Toss ft. DeepSound - Sexy Senorita (Remake 2012)
+05. Travis Garland - Right Here
+06. Inna - Alright
+07. Meek Mill ft. Wale, Big Sean - Take U Home
+08. Lasgo - Sky High (Radio Edit)
+09. Cash Out feat. Akon - Cashin Out (Remix)
+10. Taylor Swift - Eyes Open (Jason Nevins Tempo Mix)2012Жанр: PopПродолжительность: 03:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7E41B96C36CE165F1C7886ED79107590C02C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835331   (250955) от 06.11.2025
+
+VA - No name compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax, Other, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soundsofenigma - Sombras Del Alma
+02 - York Patrick - Shine on Ice
+03 - Сергей  Грищук - Холодное  Очарование
+04 - Yenra - Salt & Signal(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, Sax, Other, AIПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151742A1B74FD411D77A463F4BE693EB47731C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494522   (250871) от 10.05.2012
+
+VA - Новинки Танцевального Радио DFM (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250871.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Jennifer Lopez feat. Pitbull - Dance Again
+002 Потап и Настя - Прилелето
+003 Eva - Body On Mine (Laze & Royal Electro Dubstep Remix)
+004 Макс Барских - Пылай
+005 David Guetta Feat. Usher - Without You (Nicky Romero Remix)
+006 Dan Balan - Люби
+007 Inna - Ok
+008 Миshа feat. Чук и Гек - Во Всех Новостях Весна
+009 Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
+010 Зэбосы - Загорелая Попка2012Жанр: Pop,DanceПродолжительность: 06:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBA7043801498D54D67A6A9BB006863D57FE37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494468   (250805) от 10.05.2012
+
+VA - Только Хиты на Хит FM 50\50 часть 2 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Лана Ярич - А Ты Потанцуй
+02 Avicii vs. Faithless - Jailbait Insomnia (Fran Ricarte At Night Mash Up)
+03 Ддт - Родившимся Этой Ночью
+04 Silent Circle - Tell Me Why
+05 Иван Дорн - Стыцамен (Viento & Mutti Remix)
+06 Cher - Strong Enough (Dj Ozeroff & Dj Sky feat. Lebedev Radio Remix)
+07 Dj Fudge - My Budem Vmeste
+08 Shyma - Ветрами (Flashtronica Remix)
+09 Виктория Дайнеко - Always
+10 Roxette - It's Possible (version One)2012Жанр: Pop,DanceПродолжительность: 06:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404881FF25DA769E1F0831DD5D963D957644A599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834528   (250405) от 03.11.2025
+
+VA - Music News For Forum vol.144 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250405.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Erin Bloomer - Girl's Gotta Eat (03:19)
+ 002. AGAV - Souviens-toi l'Angleterre (02:33)
+ 003. Agunda - Тепло (02:26)
+ 004. Alain Chamfort - Sur Des Images Heureuses (02:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D03757B2B016F74C90E90643523D951D30C9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562938   (250246) от 11.07.2022
 
 VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +239,7 @@ VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250246.jpg" />
+  <img src="Z:/picture/004/save_picture_250246.jpg" />
 </div>
 
 
@@ -35,7 +268,7 @@ VA - Retro remix Апрель (2022) [MP3|320 Kbps] <Club House, Russian Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250196.jpg" />
+  <img src="Z:/picture/004/save_picture_250196.jpg" />
 </div>
 
 
@@ -64,7 +297,7 @@ VA - Music News vol.202 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250128.jpg" />
+  <img src="Z:/picture/004/save_picture_250128.jpg" />
 </div>
 
 
@@ -93,7 +326,7 @@ VA - Music News vol.250 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250096.jpg" />
+  <img src="Z:/picture/004/save_picture_250096.jpg" />
 </div>
 
 
@@ -122,7 +355,7 @@ VA - Motivation Mix 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250034.jpg" />
+  <img src="Z:/picture/004/save_picture_250034.jpg" />
 </div>
 
 
@@ -151,7 +384,7 @@ VA - Русские Хиты 3 2022 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250023.jpg" />
+  <img src="Z:/picture/004/save_picture_250023.jpg" />
 </div>
 
 
@@ -180,7 +413,7 @@ VA - Billboard Hot 100 Singles Chart. 11 March 2023 (2023) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249986.jpg" />
+  <img src="Z:/picture/004/save_picture_249986.jpg" />
 </div>
 
 
@@ -209,7 +442,7 @@ VA - Music News vol.251 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249709.jpg" />
+  <img src="Z:/picture/004/save_picture_249709.jpg" />
 </div>
 
 
@@ -238,7 +471,7 @@ VA - Dance Covers 2022 - The Best Party Hits Only! (2022) [MP3|320 Kbps] <Club, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249655.jpg" />
+  <img src="Z:/picture/004/save_picture_249655.jpg" />
 </div>
 
 
@@ -267,7 +500,7 @@ VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249580.jpg" />
+  <img src="Z:/picture/004/save_picture_249580.jpg" />
 </div>
 
 
@@ -296,7 +529,7 @@ VA - Music News vol.252 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249531.jpg" />
+  <img src="Z:/picture/004/save_picture_249531.jpg" />
 </div>
 
 
@@ -325,7 +558,7 @@ VA - Зарубежная Дискотека ХХ Века (Студия «Spedi
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249528.jpg" />
+  <img src="Z:/picture/004/save_picture_249528.jpg" />
 </div>
 
 
@@ -354,7 +587,7 @@ VA - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 & tiv44 (201-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249517.jpg" />
+  <img src="Z:/picture/004/save_picture_249517.jpg" />
 </div>
 
 
@@ -383,7 +616,7 @@ VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249178.jpg" />
+  <img src="Z:/picture/004/save_picture_249178.jpg" />
 </div>
 
 
@@ -418,7 +651,7 @@ VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249103.jpg" />
+  <img src="Z:/picture/004/save_picture_249103.jpg" />
 </div>
 
 
@@ -453,7 +686,7 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248820.jpg" />
+  <img src="Z:/picture/005/save_picture_248820.jpg" />
 </div>
 
 
@@ -488,7 +721,7 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248716.jpg" />
+  <img src="Z:/picture/004/save_picture_248716.jpg" />
 </div>
 
 
@@ -523,7 +756,7 @@ VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248711.jpg" />
+  <img src="Z:/picture/004/save_picture_248711.jpg" />
 </div>
 
 
@@ -558,7 +791,7 @@ Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248575.jpg" />
+  <img src="Z:/picture/004/save_picture_248575.jpg" />
 </div>
 
 
@@ -572,251 +805,6 @@ Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D107DEA50122377FE4C1368B5DDE166753864003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493063   (248461) от 07.05.2012
-
-VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Lopez feat. Adena - Lay Me Down (Extended Mix)
-02. Groove Breaks - Hands In The Ayer (Original Mix)
-03. Andrea Del Vescovo feat. Jay - Ibiza (Extended Mix)
-04. Phoenyx & Kunala - Feel (Original Mix)
-05. Marc Simz feat. Naomi Striemer - This Is Love (Radio Edit)
-06. Will.I.Am ft. JLO & Mick Jagger - Go Hard (R3hab vs The Eye Remix)
-07. Aura Dione - Geronimo (DJ RICH-ART Remix)
-08. Taito vs. Benny G - Make A Move (Original Mix)
-09. Инфинити - Другая (Extended Mix)
-10. Pascal & Pearce feat. Juliet Harding - Disco Sun2012Жанр: Dance, ClubПродолжительность: 05:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493080   (248391) от 07.05.2012
-
-VA - Клубный Танцпол Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludovico Einaudi - Una Mattina (Alex D Remix)
-02. Rodion Suleymanov (Formula 2) & Seria - Формула Весны (Extended Mix)
-03. Froidz - Domino (Walker & Daniels Remix)
-04. DJ Oleg Klimov - Another Day (Fedor Smirnoff Edit)
-05. Sandro Silva & Oliver Twizt - Gladiator (Original Mix)
-06. Johnny Day feat. Matias Endoor & Evelyn - Only One (Marius Loves Club Mix)
-07. Fidel Wicked feat. MC Zali - Весна (Extended Mix)
-08. Ole Van Dansk - Boys Of Summer (Club Mix)
-09. Emil Lassaria & Caitlyn - Andale (Club Version)
-10. Remady & Manu-L feat. J-Son - Single Ladies (Bodybangers Club Mix)2012Жанр: Dance, ClubПродолжительность: 05:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1864BCEB07F891135C33B7310024BB01E6DD36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492623   (248233) от 06.05.2012
-
-VA - Пиратская Станция Часть 13 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Егор Сесарев - Шаги
-002 Ruslan Nigmatullin - Kiss The Sun
-003 Саша Зверева & Sasha Dith & Steve Modana - Супербой
-004 Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs Loverush Radio Edit)
-005 DJ M.E.G. feat. Сергеи? Лазарев & Тимати - Moscow to California (DJ Favorite Radio Edit)
-006 Aura Dione - Geronimo (The Disco Boys Remix Edit)
-007 Катя Чехова - Сердце тебе в ответ (Легкая версия)
-008 Bob Sinclar feat. Pitbull & DragonFly & Fatman Scoop - Rock The Boat (DJ Nejtrino & DJ Strang
-009 Мальчишник - Секс без перерыва (DJ Vengerov Remix)
-010 Jack Holiday & Mike Candys - Children 2012 (Original Higher Level Mix)2012Жанр: Pop,Dance, ClubПродолжительность: 06:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EBB5F70A58861F035D9DAB0020B1D66294225B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492791   (248146) от 06.05.2012
-
-VA - Готовься к Лету: СуперМегаДискотека (2012) [MP3|320 кб/с]<Alternative и др.>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248146.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 50 Cent vs Magic Waves - DISCO INFERNO 2011 ( Dj Najim Hassas Chillout Remix )
- 002 Black Eyed Peas, Mr Basic - My Humps (Carrot & Sasha Lyon Mash-Up)
- 003 Aventura - Obsession (Max PRIDE Harmony Remix)
- 004 Cosmos - Take Me With You (Anton Maluta & Dj Shum Remix)
- 005 Dj Alfred - Smoke on the water (Original version)
- 006 DJ Shevtsov & VIA Sirius - Дыши Глубже (DJ Shevtsov & DJ Nu-Sky Remix)
- 007 Dj Nil feat. Mischa - L.o.v.e. Спасёт Мир (Rus Acid Mix)
- 008 Jamie Woon - Lady Luck (DJ Slider Remix)
- 009 Michel Telo - Ai Se Eu Te Pego (DJ Nejtrino & DJ Stranger Remix)
- 010 Loona - Vamos A La Playa (Johan K & Eddie Mono Dirty Sax Mix)(   Читать дальше...   )2012Жанр: Alternative, Electronic, Hip-Hop, House, Jazz, Metal, Pop, Rap, Retro, Rock, TranceПродолжительность: 02:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738EAFB0918CE6E8B693BD84033037C80DFF033B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492260   (247907) от 05.05.2012
-
-VA - Top Club Hits Vol.5 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeter Avio feat. Vera fisher - I Will Stay (Vadim Koks Remix)
-02. Adrian Lux feat. Dante - Burning
-03. Remady & Manu-L vs. Nikolaz & Gant - Lift Me Up
-04. Titus1 feat. Terri B! - Let It Ring (Original Mix)
-05. DJ Denis feat. Juan Magan, Lil Jon & Baby Bash - Shuri Shuri (Jump Smokers Extended Mix)
-06. Max Urban feat. Rocky Rock - Best Party In Town (David May Extended Mix)
-07. Chris Parker - Rock'n'Roll Revolution
-08. Angel & Jozhy K - Number One (Lessov Dub Remix)
-09. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-10. Fly Project - Musica (Deepside Deejays Remix)2012Жанр: Dance, ClubПродолжительность: 05:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BFAAB0815F38EAD8D3BFAA7D39A8BC8F5909D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492121   (247882) от 05.05.2012
-
-VA - Seashore Desire #25 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anaki - 333 (Original Mix)
-002. Andrew Rayel - 550 Senta (Original Mix)
-003. Artento Divini - Adhd (Original Mix)
-004. Christian Drost & DK Project - Always Connected (Original Mix)
-005. Sean Bay - At The End Of The World (Sean Bay Remix)
-006. Boom Jinx & Daniel Kandi - Azzura (Original Mix)
-007. Airborne Angel - Before The Sun Goes Down (Original Mix)
-008. Sean Tyas feat. David Berkeley - Believe (Original Mix)
-009. Marcel Woods - Black Angus (Original Mix)
-010. Avion - Brilliant (Original Mix)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 05:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65BFD04E4A5ABEDBCCF25995CAB9FA79F998BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492128   (247880) от 05.05.2012
-
-VA - Seashore Desire #26 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247880.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fafaq - 21st Century
-002. Lunar Motion - Aozora (Original Mix)
-003. Paul Miller vs. Ronald De Foe - Aqua Virgo (Original Mix)
-004. Santerna - Aquamarine
-005. Radion 6 - B U Tiful (Original Mix)
-006. Orjan Nilsen - Between The Rays (Original)
-007. Reneek - Burning (Dave Boyle Remix)
-008. Beat Service - Charged (Original)
-009. You Are My Salvation - Chase Me
-010. Ummet Ozcan - Cocoon (Original Mix)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 05:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06AFEE905140CD8E92B68B22762222DA1E88DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1668331   (165007) от 01.11.2023
+
+Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после школы [2023, TV, 4 из 4 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф аниме: Туалетный мальчик ХанакоПроизводство: студия Lerche / ラルケЖанр: комедияРежиссер: Китамура МасакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 4 эп. по 10 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D059FB45B67E29A82987B21C641ED727F172B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498222   (164775) от 12.12.2021
 
 Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедельникам 2 [2021, Web, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164775.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163822.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162964.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162949.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162902.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162549.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Shinobi no Ittoki | Время ниндзя [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161648.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Shiroi Suna no Aquatope / Auatrope of White Sand / Акватоп белого �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161244.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Nanamaru Sanbatsu | Fastest Finger First | Семь – верно, три – �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161146.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161067.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161015.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159525.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159524.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159522.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159512.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159484.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159205.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159170.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159166.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Utawarerumono: Futari no Hakuoro / Прославленный: Два белых
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159143.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158789.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Ou-sama Game The Animation / King's Game The Animation / Королевская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158119.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158093.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158016.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157910.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8076508FFF54ED6904DDD45A7BCB5DAD7EC5E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190217   (157129) от 24.12.2017
-
-Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьницы Юри Мията и Мегуми Мегуро живут на малонаселённом островке Мияке в двухстах километрах к югу от Токио и увлекаются гонками на мотоциклах с колясками. Юри — женственная, хладнокровная и стройная девушка-водитель, управляющая тормозом и газом. Мегуми — очаровательная и импульсивная пацанка, занимающая место пассажира и использующая вес тела и акробатические (   Читать дальше...   )Производство: Студия Silver LinkЖанр: спортРежиссер: Тамура МасафумиПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C260799CFCB612A0360720A7B90A6EBDA1C201
 ```
 
 https://mybot314.ru/tekegram_catalog/

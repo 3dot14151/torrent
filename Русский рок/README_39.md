@@ -1,3 +1,118 @@
+###  Публикация: 1286166   (714710) от 01.03.2019
+
+Пикник - Сияние (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714710.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем поется в новой песне под названием Сияние группы Пикник?
+Вы, наверное, будете немного шокированы, но там поётся именно о Сиянии! Вопрос только в том, что это за Сияние? То ли это свечение загадочных огней над ночным городом? То ли тревожное мерцание далеких звёзд? Или же это внутреннее Сияние, которое ещё только зарождается в душе человека?
+Пусть на этот (   Читать дальше...   )1. СияниеЖанр: RockПродолжительность: 00:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829341A9369C371DF6BDC1ADD437E346E5F682F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286139   (714626) от 01.03.2019
+
+Би-2 - Нечётный воин 4. Часть 2 (Retro Edition) (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сон про снег (feat. Настя Полева)
+02. Песня для героя (памяти Пипа) (feat. Варя Демидова)
+03. Унисон
+04. Для тех, кто в танке(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2F1F0DB5701EE162BD52385D18C7208744B126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130518   (714226) от 02.05.2017
+
+Ломовой - Лирика (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каяться - маяться (Олег Ломовой & Юлия Пересильд)
+02. Разобрали всех девок
+03. Девочка с глазами ангела
+04. Погибаю без тебя(   Читать дальше...   )Жанр: RockПродолжительность: 00:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71707B07D9448434926395028562DCE8B786133E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130726   (714124) от 02.05.2017
+
+Abyssphere - На Пути К Забвению (2017) [MP3|320 Kbps] <Dark Metal, Doom Metal, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Двери
+2. Прозрение
+3. Один Во Тьме
+4. Carthago Delenda Est(   Читать дальше...   )Жанр: Dark Metal, Doom Metal, Melodic MetalПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC6A6443EE541AAB4646F810A0800192F997C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401077   (713308) от 08.08.2020
 
 LAMPOCHKA & Abazur - Девочка, которая хотела перепробовать всё (2020) [MP3|320 Kbps] <Pop-Rock>
@@ -6,7 +121,7 @@ LAMPOCHKA & Abazur - Девочка, которая хотела перепро�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713308.jpg" />
+  <img src="Z:/picture/008/save_picture_713308.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713300.jpg" />
+  <img src="Z:/picture/008/save_picture_713300.jpg" />
 </div>
 
 
@@ -61,7 +176,7 @@ Thundercats - The Covenant (2016) [MP3|320 кб/с]<Progressive Deathcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712131.jpg" />
+  <img src="Z:/picture/008/save_picture_712131.jpg" />
 </div>
 
 
@@ -90,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711301.jpg" />
+  <img src="Z:/picture/008/save_picture_711301.jpg" />
 </div>
 
 
@@ -119,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711010.jpg" />
+  <img src="Z:/picture/008/save_picture_711010.jpg" />
 </div>
 
 
@@ -146,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710303.jpg" />
+  <img src="Z:/picture/008/save_picture_710303.jpg" />
 </div>
 
 
@@ -175,7 +290,7 @@ Becoming A Hero - Becoming A Hero (2018) [MP3|320 Kbps] <Alternative Rock, Femal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710047.jpg" />
+  <img src="Z:/picture/008/save_picture_710047.jpg" />
 </div>
 
 
@@ -204,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709784.jpg" />
+  <img src="Z:/picture/008/save_picture_709784.jpg" />
 </div>
 
 
@@ -233,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708165.jpg" />
+  <img src="Z:/picture/008/save_picture_708165.jpg" />
 </div>
 
 
@@ -262,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707226.jpg" />
+  <img src="Z:/picture/008/save_picture_707226.jpg" />
 </div>
 
 
@@ -291,7 +406,7 @@ The Korea - Vorratokon (2022) [MP3|320 Kbps] <Alternative Metal, Modern Metal, P
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707221.jpg" />
+  <img src="Z:/picture/008/save_picture_707221.jpg" />
 </div>
 
 
@@ -320,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707136.jpg" />
+  <img src="Z:/picture/008/save_picture_707136.jpg" />
 </div>
 
 
@@ -350,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707126.jpg" />
+  <img src="Z:/picture/008/save_picture_707126.jpg" />
 </div>
 
 
@@ -379,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707000.jpg" />
+  <img src="Z:/picture/008/save_picture_707000.jpg" />
 </div>
 
 
@@ -409,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706489.jpg" />
+  <img src="Z:/picture/008/save_picture_706489.jpg" />
 </div>
 
 
@@ -435,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706180.jpg" />
+  <img src="Z:/picture/008/save_picture_706180.jpg" />
 </div>
 
 
@@ -464,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705767.jpg" />
+  <img src="Z:/picture/008/save_picture_705767.jpg" />
 </div>
 
 
@@ -493,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705345.jpg" />
+  <img src="Z:/picture/008/save_picture_705345.jpg" />
 </div>
 
 
@@ -522,7 +637,7 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [MP3|320 кб/с]<Melodi
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704713.jpg" />
+  <img src="Z:/picture/008/save_picture_704713.jpg" />
 </div>
 
 
@@ -551,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704537.jpg" />
+  <img src="Z:/picture/008/save_picture_704537.jpg" />
 </div>
 
 
@@ -580,7 +695,7 @@ Catharsis - 20 первых лет. Полное собрание сочинен
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703719.jpg" />
+  <img src="Z:/picture/008/save_picture_703719.jpg" />
 </div>
 
 
@@ -609,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703228.jpg" />
+  <img src="Z:/picture/008/save_picture_703228.jpg" />
 </div>
 
 
@@ -623,122 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B222E5C827F3649DD438D3C2A9AFAB92CBE7A2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132395   (702493) от 08.05.2017
-
-Браво - Бравоспектива (2017) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702493.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Двойной CD, в котором представлены все наши песни, вся история группы «Браво» в песнях. Плюс два трека, которые никогда не издавались. Там будет песня, которая должна была войти в саундтрек к фильму «Асса», но не вошла по разным причинам. И совершенно случайно она обнаружилась у одного из московских меломанов. Также на этом сборнике «Бравоспектива» будет песня, (   Читать дальше...   )01. Кошки
-02. Жёлтые ботинки
-03. Старый отель
-04. Ленинградский рок-н-ролл(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE92F8C9630FED4BEB22E2F5377D4B3F4C627888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220624   (702440) от 20.04.2018
-
-Tequilajazzz - Небыло (2018) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Книги
-02. Смыты дождями
-03. Прольюсь
-04. Правило рек и дождей(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE46EB91CD9214B99EC9799FE036DCE7A19761BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220625   (702011) от 20.04.2018
-
-Кукрыниксы - Последняя песня (2018) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2018 году музыканты празднуют двадцатилетие и выпускают прощальный сборник лучших композиций с символическим названием «Последняя песня». Лидер группы Алексей Горшенёв объявил о новом проекте, который будет носить его имя.CD 1:
-1. Не беда
-2. Солдатская печаль
-3. По раскрашенной душе(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D439CCD1E931F9E0F84DE32C81841EC559792DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287824   (701758) от 08.03.2019
-
-Курара - Кафка (2019) [MP3|320 Kbps] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701758.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ненастоящий мужчина
-2. Человек
-3. Барнаул
-4. Кафка(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6697BD7C44282B721940651B858BF6B53D136A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1432998   (162339) от 19.12.2020
+
+NCH Debut Professional 6.62 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записывайте и снимайте видео практически из любого источника - экрана вашего компьютера, веб-камеры или даже кассет VHS. Используйте ключевые предварительные функции, такие как цвет видео, разрешение и настройки вывода. Загрузите Debut сегодня и начните создавать свою библиотеку видеоконтента.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4974659C572DAD754296274FF8CFF6F037A46BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674095   (162331) от 04.11.2023
+
+Topaz Photo AI for Mac 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2C41F7701C4F543F87F063464D1045B46B595D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674147   (162325) от 04.11.2023
+
+Serial Box & SerialSeeker 11-2023 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162325.jpg" />
+</div>
+
+
+###  Подробнее
+
+База серийных номеров проекта iSerial.
+В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: ©2002-2021 The Three MonkeysПоддерживаемая ОС: OS X 10.5 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEF5CC276C673FFB04D5BA5310615ADC2A34D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517647   (162315) от 16.12.2021
+
+Prism 9 v9.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prism - это мощная комбинация биостатистики, подбора кривой (нелинейная регрессия) и научного построения графиков в одной комплексной программе. Легко организовывать, анализировать и графически повторять эксперименты; выбрать соответствующие статистические тесты и интерпретировать результаты.
+Prism представляет новые способы организации, анализа и графического представления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © 2021 GraphPad SoftwarПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC280C87E60313F9F451537B50C2D84F92F25AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517659   (162310) от 16.12.2021
 
 WiFi Scanner 3.0.1 [En]
@@ -6,7 +113,7 @@ WiFi Scanner 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162310.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Easy Data Transform 1.23.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162303.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Pixelmator Pro 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162299.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162241.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162209.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ iShot Pro-ScreenShot Recording 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162206.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Rhinoceros 7 v7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162200.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ BusyContacts 2022.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162198.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ Stats 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162191.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ Screegle - Clean Screen Sharing 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162184.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ ScreenFlow 9 v9.0.6 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162180.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Vellum 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162178.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ NCH Crescendo Masters Pro 8.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162175.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Moom 3.2.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162168.jpg" />
 </div>
 
 
@@ -377,7 +484,7 @@ NCH Express Burn Plus 9.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162160.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ Contacts Journal CRM 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162159.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ Mitti 2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162152.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ SQLPro for SQLite 2022.103 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162147.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ Kiosc 1.15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162144.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162140.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ Piezo 1.7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162136.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ Days - Countdown for Menu Bar 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162125.jpg" />
 </div>
 
 
@@ -577,112 +684,6 @@ Days - Countdown for Menu Bar 1.7.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DB079A9BFD68868909F0EDBAAEFAB2458C00831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598747   (162124) от 20.12.2022
-
-Amadine 1.4.4 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
-Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2022Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DD51ADE9C6393DBEEC8D7C96D6F9F3F98F6C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598838   (162117) от 20.12.2022
-
-BusyCal 2022.4.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162117.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © Busy Apps, 2007-2022Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC0EB34115A7EAEE724C476745F89CAE78501D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598680   (162101) от 20.12.2022
-
-PhoneRescue for iOS 4.2.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162101.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2022Разработчик: © 2011 - 2022 iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EA72484B1FB328B9009DF87E92671266290DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598695   (162098) от 20.12.2022
-
-Artstudio Pro 5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE78C4B3BD0CDA43C10D10AA8567D5250A4B19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

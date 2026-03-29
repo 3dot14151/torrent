@@ -1,3 +1,62 @@
+###  Публикация: 920467   (579618) от 22.07.2015
+
+Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579618.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате нападения жестоких войск организации Phantom Shell City оказался в чрезвычайном положении. Ужасные военные машины, увешанные черепами, прорываются через город, разрушая все на своем пути! National Army пытается сдержать силы Phantom, а General Krenman тем временем берет на себя неподъемную задачу и призывает на помощь единственное существо, способное (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Game FreakЖанр: Arcade, Side-scrolling Action-AdventureЯзык озвучки: Английский, французский, итальянский, немецкий, испанскийЯзык интерфейса: Английский, французский, итальянский, немецкий, испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3AAF984FF3C3018091CA3E2FAC21CA9156F2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360951   (578494) от 09.07.2011
+
+[Repack] Bit.Trip Runner [En] 2011 | John2s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bit.Trip Runner - следующая часть из серии Bit.Trip.
+Это самый быстрый, хардкорный, и самый весёлый музыкальный платформер.
+
+Гоняйте по Луне, разбивайте хрустальные стены и проскальзывайте под клацающими зубами лунных монстров!
+Прорывайтесь через роботизированные шахты и сразитесь с МайнерМехом!
+Промчитесь по Большому городу в поисках друзей, чтобы вместе победить финального босса!
+
+(   Читать дальше...)Тип издания: RePackЖанр: Arcade (Platform)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48FA96B42496F89B8C1278AB3FE8E7535C25FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360924   (578293) от 09.07.2011
 
 [Repack] Super Meat Boy [Update 21] (Multi10/+) 2011 | THETA
@@ -6,7 +65,7 @@
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578293.jpg" />
+  <img src="Z:/picture/008/save_picture_578293.jpg" />
 </div>
 
 
@@ -32,7 +91,7 @@ Serial Cleaner (2017) [Ru/Multi] (1.0.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577309.jpg" />
+  <img src="Z:/picture/008/save_picture_577309.jpg" />
 </div>
 
 
@@ -58,7 +117,7 @@ Squishy the Suicidal Pig (2014) [En] (1.0.0.6) Repack Elektra
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576988.jpg" />
+  <img src="Z:/picture/008/save_picture_576988.jpg" />
 </div>
 
 
@@ -86,7 +145,7 @@ Iron Marines (2019) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575547.jpg" />
+  <img src="Z:/picture/008/save_picture_575547.jpg" />
 </div>
 
 
@@ -112,7 +171,7 @@ Life Goes On: Done to Death (2016) [Ru/Multi] (2.02) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566574.jpg" />
+  <img src="Z:/picture/008/save_picture_566574.jpg" />
 </div>
 
 
@@ -138,7 +197,7 @@ Feist (2015) [Ru/Multi] (1.0) RePack xGhost
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566072.jpg" />
+  <img src="Z:/picture/008/save_picture_566072.jpg" />
 </div>
 
 
@@ -164,7 +223,7 @@ Shadow Bug (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564735.jpg" />
+  <img src="Z:/picture/008/save_picture_564735.jpg" />
 </div>
 
 
@@ -190,7 +249,7 @@ Westerado: Double Barreled (2015) [En] (1.0u2) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560406.jpg" />
+  <img src="Z:/picture/008/save_picture_560406.jpg" />
 </div>
 
 
@@ -216,7 +275,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord (2013) [Ru/En] (1.1.2) Re
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559101.jpg" />
+  <img src="Z:/picture/008/save_picture_559101.jpg" />
 </div>
 
 
@@ -242,7 +301,7 @@ Katana ZERO (2019) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555591.jpg" />
+  <img src="Z:/picture/008/save_picture_555591.jpg" />
 </div>
 
 
@@ -268,7 +327,7 @@ Tridents Wake (2019) [Ru/Multi] (1.01) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555389.jpg" />
+  <img src="Z:/picture/008/save_picture_555389.jpg" />
 </div>
 
 
@@ -294,7 +353,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.0/upd3/dlc) Repack Other [Special Editi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550707.jpg" />
+  <img src="Z:/picture/008/save_picture_550707.jpg" />
 </div>
 
 
@@ -320,7 +379,7 @@ Sky To Fly: Faster Than Wind (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549831.jpg" />
+  <img src="Z:/picture/008/save_picture_549831.jpg" />
 </div>
 
 
@@ -346,7 +405,7 @@ Gravilon (2015) [En] (1.8) Repack WetGrapesStudio
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549018.jpg" />
+  <img src="Z:/picture/008/save_picture_549018.jpg" />
 </div>
 
 
@@ -372,7 +431,7 @@ Rogue Legacy (2013) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547751.jpg" />
+  <img src="Z:/picture/008/save_picture_547751.jpg" />
 </div>
 
 
@@ -398,7 +457,7 @@ Shiny (2016) [Ru/Multi] (1.0.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547092.jpg" />
+  <img src="Z:/picture/008/save_picture_547092.jpg" />
 </div>
 
 
@@ -424,7 +483,7 @@ Dream Alone (2018) [Multi] (1.0/upd1) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543546.jpg" />
+  <img src="Z:/picture/008/save_picture_543546.jpg" />
 </div>
 
 
@@ -450,7 +509,7 @@ Absolute Drift (2015) [En] License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542412.jpg" />
+  <img src="Z:/picture/008/save_picture_542412.jpg" />
 </div>
 
 
@@ -476,7 +535,7 @@ Chronology (2014) [Ru/Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541806.jpg" />
+  <img src="Z:/picture/008/save_picture_541806.jpg" />
 </div>
 
 
@@ -502,7 +561,7 @@ Slain: Back From Hell (2016) [En] (5.3.6.15686141) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538565.jpg" />
+  <img src="Z:/picture/008/save_picture_538565.jpg" />
 </div>
 
 
@@ -528,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533037.jpg" />
+  <img src="Z:/picture/008/save_picture_533037.jpg" />
 </div>
 
 
@@ -554,7 +613,7 @@ Algotica - Iteration 1 (2017) [Ru/En] (1.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528400.jpg" />
+  <img src="Z:/picture/008/save_picture_528400.jpg" />
 </div>
 
 
@@ -580,7 +639,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.2) Lice
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527763.jpg" />
+  <img src="Z:/picture/008/save_picture_527763.jpg" />
 </div>
 
 
@@ -606,7 +665,7 @@ Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526822.jpg" />
+  <img src="Z:/picture/008/save_picture_526822.jpg" />
 </div>
 
 
@@ -617,58 +676,6 @@ Evil Genome (2017) [En/Ch] (1.2.022) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B03AE4EFE942943F656A4BE5BBB77E728105DAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053010   (526507) от 16.09.2016
-
-Toki Tori Dilogy (2010-2013) [Ru/Multi] (1.0.7526.8583/1.0.15191.9550) Repack Let'sPlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toki Tori 2 – веселая игрушка от студии Two Tribes, где на игроков ожидает ещё больше приключений и опасностей. Игра является продолжением популярного пазл-платформера, в котором главную роль отыгрывает цыпленок Toki Tori. В данной части вам предстоит исследовать остров покрытый буйной лесной растительностью, где обитают странные создания. Чтоб повлиять на их поведение, (   Читать дальше...   )Тип издания: RepackРазработчик: Two TribesЖанр: Platformer, Indie, Logic (Puzzle)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF901C9B608C553A5888D58F872EB8F4EE1FF4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157276   (525795) от 10.08.2017
-
-From Shadows (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525795.jpg" />
-</div>
-
-
-###  Подробнее
-
-From Shadows - это приключенческий экшен-платформер, в котором игроки выбирают одного из двух персонажей - вампира Хредерика или оборотня Георга - и отправляются в свой личный крестовый поход, уничтожая всех, кто встает у них на пути. Основной особенностью игры является смена дня и ночи, которая существенно влияет на персонажей и их противников. Игроки вольны проходить (   Читать дальше...   )Тип издания: RepackРазработчик: Revolt and RebelЖанр: Action (Platform), ArcadeЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD21610BA28AB6E951ABF9AE0787322AE0CDAF86
 ```
 
 https://mybot314.ru/tekegram_catalog/

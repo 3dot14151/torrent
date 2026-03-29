@@ -6,7 +6,7 @@ Kaspersky Small Office Security 7 20.0.14.1085 (h) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881534.jpg" />
+  <img src="Z:/picture/005/save_picture_881534.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ CCleaner 5.27.5976 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881496.jpg" />
+  <img src="Z:/picture/005/save_picture_881496.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Bat! Professional 7.4.10 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881494.jpg" />
+  <img src="Z:/picture/005/save_picture_881494.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CCleaner 5.27.5976 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881469.jpg" />
+  <img src="Z:/picture/005/save_picture_881469.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Victoria 5.27 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881438.jpg" />
+  <img src="Z:/picture/005/save_picture_881438.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Snappy Driver Installer Origin R710 / Драйверпаки 20035 [Multi/Ru] (�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881436.jpg" />
+  <img src="Z:/picture/005/save_picture_881436.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Readiris Corporate 16.0.2 Build 9591 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881356.jpg" />
+  <img src="Z:/picture/005/save_picture_881356.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ AIMP 4.13 Build 1886 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881355.jpg" />
+  <img src="Z:/picture/005/save_picture_881355.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Notepad++ 7.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881351.jpg" />
+  <img src="Z:/picture/005/save_picture_881351.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CCleaner 5.27.5976 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881345.jpg" />
+  <img src="Z:/picture/005/save_picture_881345.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ ESET NOD32 Internet Security 13.1.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881320.jpg" />
+  <img src="Z:/picture/005/save_picture_881320.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881314.jpg" />
+  <img src="Z:/picture/005/save_picture_881314.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ XnView 2.30 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881230.jpg" />
+  <img src="Z:/picture/005/save_picture_881230.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Internet Download Manager 6.27 Build 5 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881194.jpg" />
+  <img src="Z:/picture/005/save_picture_881194.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Flash Player 24.0.0.221 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881170.jpg" />
+  <img src="Z:/picture/005/save_picture_881170.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Xara Photo & Graphic Designer 365 12.5.0.48392 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881092.jpg" />
+  <img src="Z:/picture/005/save_picture_881092.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NVIDIA GeForce Desktop 378.66 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881078.jpg" />
+  <img src="Z:/picture/005/save_picture_881078.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Internet Download Manager 6.27 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881074.jpg" />
+  <img src="Z:/picture/005/save_picture_881074.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ DAEMON Tools Lite 10.5.1.230 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881071.jpg" />
+  <img src="Z:/picture/005/save_picture_881071.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ashampoo Driver Updater 1.1.0.22990 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881069.jpg" />
+  <img src="Z:/picture/005/save_picture_881069.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ TagScanner 6.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881056.jpg" />
+  <img src="Z:/picture/005/save_picture_881056.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Aiseesoft Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880968.jpg" />
+  <img src="Z:/picture/005/save_picture_880968.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AOL Shield 1.0.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880966.jpg" />
+  <img src="Z:/picture/005/save_picture_880966.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ FlylinkDC++ r503 build 19542 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880962.jpg" />
+  <img src="Z:/picture/008/save_picture_880962.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Cyberfox 45.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880951.jpg" />
+  <img src="Z:/picture/005/save_picture_880951.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CCleaner 5.27.5976 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880932.jpg" />
+  <img src="Z:/picture/005/save_picture_880932.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 1708121   (113213) от 19.03.2024
+
+Кошмарная легенда района Сибуя / Shibuya kaidan / The Locker (2004) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа молодых людей сталкивается с одним из самых страшных проклятий "Страны восходящего солнца"...Производство: Япония / Bad Taste Visual Voice, Geneon EntertainmentЖанр: ужасыРежиссер: Кэи ХорияАктеры: Асами Мидзукава, Сюдзи Касивабара, Тисато Морисита, Маюка Судзуки, Томохиса Югэ, Фумина Хара, Маки Хорикита, Кандзи Цуда, Дзё Хюга, Кэи ХорияПеревод: Одноголосый любительский (Animegroup)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18545C045E3F38A729854CFEA0D343D07F66742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713021   (112013) от 04.04.2024
+
+Скандалисты / Gwasok scandle (2008) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112013.jpg" />
+</div>
+
+
+###  Подробнее
+
+На радио, где работает ведущим Нам Хюн Су, поступил звонок от матери-одиночки. Она рассказала, что едет на встречу к своему отцу, которого никогда до этого не видела и хочет после встречи с ним стать певицей. Посмеявшись с коллегами над наивностью сельской девушки, Нам Хюн Су вернулся домой. Каково же было его удивление, когда в его дверь позвонила та самая девушка (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Lotte Entertainment, Toilet PicturesЖанр: комедия, музыкаРежиссер: Хён Чхоль КанАктеры: Тхэ Хён Чха, Иль Квон Ан, Кён Мин Хон, Сок Хён Хван, У Соль Хё Хван, Вон Ким, Мин Со Чон, Вон Чжун Чон, Ки Бан Ким, Хё Чжин Ким, Юн Хо Ким, Ён Чжун Ли, Чжи Кю Им, Сын Тэ Им, Бо Ён ПакПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (ФСГ АЛЬЯНС), английскиеПродолжительность: 01:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF23226DCF80944E16B306C3BE8C160F2C05E2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713376   (111983) от 05.04.2024
+
+Монстр / Monster / Kaibutsu (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая вдова воспитывает сына Минато в одиночку. Мальчик учится в средних классах и почти ничего не рассказывает о школе, но его странное поведение настораживает женщину. А когда Минато приходит с повреждённым ухом, мать идёт разбираться в школу — всё указывает на то, что мальчика третирует учитель, но школьное руководство не торопится ничего предпринимать.Производство: Япония / Aoi Promotion, Bun-Buku, Fuji Television Network Inc., GAGAЖанр: драмаРежиссер: Хирокадзу Корээда / Hirokazu KoreedaАктеры: Соя Курокава, Хината Хиираги, Сакура Андо, Эйта Нагаяма, Юко Танака, Акихиро Какута, Даисукэ Курода, Рю Мориока, Аю Китаура, Мицуки ТакахатаПеревод: Авторский (Ю. Сербин)Язык озвучки: Русский, японскийСубтитры: ЯпонскиеПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F02BDF999E97EB864F5BCC4C717A000CF2A2D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713437   (111975) от 05.04.2024
+
+Монстр / Kaibutsu / Monster (2023) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая вдова воспитывает сына Минато в одиночку. Мальчик учится в средних классах и почти ничего не рассказывает о школе, но его странное поведение настораживает женщину. А когда Минато приходит с повреждённым ухом, мать идёт разбираться в школу — всё указывает на то, что мальчика третирует учитель, но школьное руководство не торопится ничего предпринимать.Производство: Япония / Aoi Promotion, Bun-Buku, Fuji Television Network Inc., GAGAЖанр: драмаРежиссер: Хирокадзу КорээдаАктеры: Соя Курокава, Хината Хиираги, Сакура Андо, Эйта Нагаяма, Юко Танака, Акихиро Какута, Даисукэ Курода, Рю Мориока, Аю Китаура, Мицуки ТакахатаПеревод: Авторский (Ю. Сербин)Язык озвучки: Русский, японскийСубтитры: ЯпонскиеПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC6B201230177E9A0FB81E61344F7B72CBE93B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713881   (111809) от 07.04.2024
+
+Четыре сестры / Shimaizaka (1985) BDRip [H.264/720p] [JP / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четырёх сводных сестёр связывает необычайно тесная связь в бурные времена послевоенной Японии...Производство: Япония / Toho PicturesЖанр: драмаРежиссер: Нобухико ОбаясиАктеры: Мисако Конно, Ацуко Асано, Ясуко Савагути, Ясуко Томита, Юмико Фудзита, Вакаба Ириэ, Акико Китамура, Тору Минэгиси, Итирота Миякава, Тосинори ОмиПеревод: субтитры (DanuuJI)Язык озвучки: японскийПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5282F1CDDB3D95EC9C6CF411C10D5D0AC3B89FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718971   (110754) от 27.04.2024
 
 Мой Хатико / Zhong quan ba gong / Hachiko (2023) BDRip [H.264/720p]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110754.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110646.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110509.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110283.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110178.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109832.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109769.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109500.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109131.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109130.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109077.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109071.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109059.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108860.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108458.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108434.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108407.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107808.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107399.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107098.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107018.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91282199D351C757B49461D3B17242B8A0298CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736606   (106679) от 13.07.2024
-
-Проклятие. Дом с прислугой / The Maid (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная девушка по имени Джой устраивается горничной в дом богатой супружеской пары с маленькой дочкой, где подозрительно часто меняется прислуга. Главное правило для работников — не совать нос в чужие дела, но соблазн оказывается слишком велик, когда Джой начинает видеть призрака.Производство: Таиланд / Global Film Station, Hollywood, Thongkham FilmsЖанр: драма, мистика, триллерРежиссер: Ли ТхонгкхамАктеры: Плойнарин Сорнарин, Савика Чайядей, Тхирапхат Саякул, Ратчанок Суваннакет, Китапат Понгрыа, Каннапорн Пуангтонг, Сорабоди Чангсири, Венус Саксири, Алина Хомсангпрадит, Натани СиттхисаманПеревод: ДублированныйЯзык озвучки: русский, тайскийСубтитры: английскиеПродолжительность: 01:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9531D88AF475A1F04976E5605BBFB3A5D4F9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737921   (106426) от 20.07.2024
-
-Обратный отсчёт / Balsinjehan / Hard Hit (2021) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычным утром менеджер крупного банка Ли Сон-гю садится в машину, чтобы отвезти детей в школу и после отправиться на работу, когда в салоне звонит чужой телефон. Незнакомец сообщает, что автомобиль заминирован, требует перевести ему 1,7 млн. и передать 990 тыс. долларов наличными, а если Ли откажется, кто-то выйдет из машины или обратится в полицию — бомба под сиденьем (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, TPS CompanyЖанр: триллер, криминал, боевикРежиссер: Ким Чхан-джуАктеры: Чо У-джин, Ли Джэ-ин, Чин Гён, Ким Тхэ-юль, Чи Чхан-ук, Рю Сын-су, Ким Джи-хо, Чон Сок-хо, Чон Э-ён, Чин Ю-чханПеревод: Многоголосый профессиональный (Кипарис), Двуголосый любительский (АрхиAsia)Язык озвучки: русский, корейскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF909C4CD011F9846C0BF6C213AFA7A65E72113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738409   (106334) от 22.07.2024
-
-Объединённая зона безопасности / Gongdong gyeongbi guyeok JSA (2000) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману «DMZ» Пак Сан Ёна (1997)... 1953-й год стал для Кореи переломным моментом - южная и северная части после трёхлетней войны подписывают соглашение о перемирии. С тех пор за его исполнением следит комиссия нейтральных стран, а территория в районе линии, разделяющей "коммунистов" и "марионеток", получает название "Объединённой (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Intz.com, KTB NetworkЖанр: драма, детектив, триллерРежиссер: Чхан Ук ПакАктеры: Ён Э Ли, Бён Хон Ли, Кан Хо Сон, Тхэ У Ким, Ха Гюн Син, Чжу Бон Ки, Кристоф Хофрихтер, Мён Су Ким (II), Хан Ви Ли, Херберт Ульрих, Дэ Ён ЛиПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E980865122E51203C9CAFF870E3835D258F566C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739563   (106066) от 28.07.2024
-
-Композитор / Yin yue jia / The Composer (2019) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106066.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1940 году китайский композитор Сянь Синхай отправляется в Советский Союз, чтобы написать музыку к документальному фильму «Яньань и 8-я армия». Но начало Великой Отечественной войны помешало музыканту вернуться домой, и он осел в Алма-Ате. Там Синхай заводит дружбу с руководителем хора Казахского радио Бахытжаном Байкадамовым.Производство: Китай, Казахстан / Казахфильм, Ленфильм, Shinework PicturesЖанр: драма, военный, биография, историяРежиссер: Сирзат ЯхупАктеры: Ху Цзюнь, Юань Цуань, Берик Айтжанов, Аружан Джазильбекова, Цзюй Сюэ, Диназ НурсайдиПеревод: ДублированныйСубтитры: русские (forced - hardsub)Продолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC236EDCFECADA73D33F229A7A5AB38467C563F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739573   (106007) от 28.07.2024
-
-Токийские сумерки / Tokyo boshoku (1957) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такако поругалась со своим мужем и приехала жить к своему отцу, у которого и без того проблемы со своей второй дочерью Акико, которая ждёт ребенка, но никак не может найти своего любовника. Но мало этого, в один момент дочери узнают, что их мать, которую они долгое время считали умершей, на самом деле не просто жива, но ещё и приехала в Токио со своим новым мужем, (   Читать дальше...   )Производство: Япония / Shochiku Films Ltd.Жанр: драмаРежиссер: Ясудзиро ОдзуАктеры: Сэцуко Хара, Инэко Арима, Тисю Рю, Исудзу Ямада, Тэйдзи Такахаси, Масами Таура, Харуко Сугимура, Со Ямамура, Киндзо Син, Каматари ФудзивараПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (busiko (Олег Ланитин)), английские BDПродолжительность: 02:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E216729D4BEE51F329D2F6D5EDCFFB4B01729DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

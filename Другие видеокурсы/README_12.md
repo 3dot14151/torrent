@@ -1,3 +1,29 @@
+###  Публикация: 1668006   (174234) от 11.10.2023
+
+Sinclair Intimacy Institute, Марк Шон | Pro секс: Обратная сторона луны (2002) DVDRip [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа выпущена всемирно известным американским ИНСТИТУТОМ СЕКСОЛОГИИ СИНКЛЕР и содержит большой объем информации об нестандартных способах секса. Если вы думаете, что нестандартные способы секса не популярны, то вы ошибаетесь, опросы показывают обратное. Если между двумя взрослыми людьми достигнуто соглашение о занятии безопасным, не приводящим к нежелательной (   Читать дальше...   )Производство: Sinclair Intimacy InstituteЖанр: эротика, обучающее видеоЯзык озвучки: РусскийПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7251555B938F34F865F2C555A1A237F691B050D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827124   (173864) от 20.10.2025
 
 Левон Тонян | Оборудование и инструменты (Кожевенное дело) (2025) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173864.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173151.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Sinclaire Institute | Секреты совершенного секса [2005] 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173078.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173065.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172882.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ Patricia Llewellyn | Жить Вкусно с Джейми Оливером / Ja
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172712.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172706.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172695.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ OratoricaMedia, Владимир Тарасов - Искусство управ�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172694.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ SovaFilm, Игорь Пелинский | Худеем с умом! Меню д�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172558.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172529.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Mark Schoen | Увлекательный секс: Продвинутая сек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172151.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171633.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171478.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Udemy, Krista King | Станьте Мастером Математическо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170379.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167605.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163031.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162228.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162128.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160975.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160778.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Level One, Анна Петрова | Грамотность без зубреж�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160766.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Skillbox, Евгений Мирошниченко  | Шахматы с нуля 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154498.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147108.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ Klaus | Зеркало Интернета 2. Поиск приватной ин�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146234.jpg" />
 </div>
 
 
@@ -677,34 +703,6 @@ Klaus | Зеркало Интернета 2. Поиск приватной ин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E58BEFB507FBDE5479E6FBFE6EB955AF8532C12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679312   (139198) от 24.11.2023
-
-Синхронизация | Как понять шедевры литературы (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139198.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Улисс», «Имя розы» и «Доктор Фаустус» — выдающиеся произведения XX века, которые важно прочитать. Но часто нам сложно понять эти и другие шедевры того времени
-Джойс не использует знаки препинания в одной из глав. Почему?
-Не пытайтесь найти в этой главе логику. Это поток сознания — художественный приём, который использовали писатели-модернисты, чтобы показать, как (   Читать дальше...   )Производство: СинхронизацияЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 14:32:50Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B63FAF4301DC87F59F5FB517D37CA91A1CE5A83
 ```
 
 https://mybot314.ru/tekegram_catalog/

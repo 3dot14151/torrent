@@ -1,3 +1,88 @@
+###  Публикация: 1607622   (1043948) от 27.01.2023
+
+Trident — Blue Field, Finale Concert (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй и последний живой концерт группы Trident, сформированной из сэйю, озвучивавших героев сериала Aoki Hagane no Arpeggio: Ars Nova. Исполняются песни с альбома Blue Field, посвящённого выходу второго полнометражного фильма Aoki Hagane no Arpeggio: Ars Nova - Cadenza. 
+01. アルペジオ
+02. 変わらない場所
+03. Expose(   Читать дальше...   )Производство: Япония | FlyingDog, Inc.Жанр: J-Pop, J-RockЯзык озвучки: ЯпонскийПродолжительность: 02:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7EAB4AEB6804CBC6AFF687888458822D52EA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607294   (1043931) от 27.01.2023
+
+МузЛофт-подкаст / МузLoft. Тося Чайкина (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043931.jpg" />
+</div>
+
+
+###  Подробнее
+
+МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
+Свежая русская музыка. Про сложные отношения и работу со звездами. Всем привет, мы любим открывать для вас новые имена, знакомить с талантливыми артистами и сегодняшний выпуск как раз про такого человека. Знакомьтесь - Тося Чайкина. Ну, а дальше она сама расскажет (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: Инди-поп, поп, R`n`BЯзык озвучки: РусскийПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335B22185D5081F9DFF543B5C7B355C720CA1AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607620   (1043925) от 27.01.2023
+
+Trident — Blue Snow, 1st Live Concert (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый живой концерт группы Trident, сформированной из сэйю, озвучивавших героев сериала Aoki Hagane no Arpeggio: Ars Nova. Исполняются песни с альбома Blue Snow, посвящённого выходу первого полнометражного фильма Aoki Hagane no Arpeggio: Ars Nova - DC. 
+01. 7儿一.フイ一ルド
+02. Sentimental Blue
+03. Purest Blue(   Читать дальше...   )Производство: Япония | FlyingDog, Inc.Жанр: J-Pop, J-RockЯзык озвучки: ЯпонскийПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA21AFF0F170BAF1FA0BE30315860CBF14BAC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607738   (1043919) от 27.01.2023
 
 Японский тур T-ARA 2013 "Шкатулка с сокровищами" - концерт в Будокане / T-ARA japan tour 2013 "Treasure Box" - live in Budokan (2013) Blu-ray
@@ -6,7 +91,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043919.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043714.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043002.jpg" />
 </div>
 
 
@@ -90,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042936.jpg" />
 </div>
 
 
@@ -120,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042690.jpg" />
 </div>
 
 
@@ -149,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042476.jpg" />
 </div>
 
 
@@ -175,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042430.jpg" />
 </div>
 
 
@@ -201,7 +286,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042184.jpg" />
 </div>
 
 
@@ -230,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042167.jpg" />
 </div>
 
 
@@ -260,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042151.jpg" />
 </div>
 
 
@@ -287,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041130.jpg" />
 </div>
 
 
@@ -316,7 +401,7 @@ Bob Moses - Falling Into Focus (Live Concert Film) (2020) WEBRip [VP9/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040587.jpg" />
 </div>
 
 
@@ -345,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039354.jpg" />
 </div>
 
 
@@ -374,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038108.jpg" />
 </div>
 
 
@@ -402,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037817.jpg" />
 </div>
 
 
@@ -428,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037548.jpg" />
 </div>
 
 
@@ -457,7 +542,7 @@ The Rolling Stones - GRRR Live! (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035537.jpg" />
 </div>
 
 
@@ -483,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035527.jpg" />
 </div>
 
 
@@ -512,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035441.jpg" />
 </div>
 
 
@@ -541,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035311.jpg" />
 </div>
 
 
@@ -568,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034838.jpg" />
 </div>
 
 
@@ -596,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033953.jpg" />
 </div>
 
 
@@ -624,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033826.jpg" />
 </div>
 
 
@@ -638,87 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4C72704C29D34A7DECA367CDEA1B77910F42EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446897   (1032172) от 11.02.2021
-
-Милен Фармер - Заключительное действо / Mylene Farmer L'Ultime Creation (2020) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3) [EN / RU Sub]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о подготовке Милен и её команды к грандиозному шоу, которое состоялось в июне 2019 в Paris La Défense Arena. Все 9 концертов были аншлаговым, суммарно разошлось 240 тыс. билетов. Позднее, в том же году, о шоу был выпущен BluRay 4K "Mylene Farmer – Le Film". Предлагаемый Вашему вниманию фильм получил название «l’Ultime Création» (   Читать дальше...   )Производство: Франция, Amazon StudiosЖанр: Документальный, музыкаРежиссер: Матье СпадароПеревод: ОтсутствуетСубтитры: Русские (неотключаемые)Продолжительность: 3x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2152C9ED55D5971E85013046445BF320E1383B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450075   (1029331) от 24.02.2021
-
-Квартирник НТВ у Маргулиса. Группа КняZz (22.02.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в 2011 году группа «КняZz» собрала воедино талантливых музыкантов и единомышленников: сегодня это настоящий творческий тандем во главе с бывшим участником «Короля и Шута» Андреем Князевым. Их дебютный макси-сингл «Человек-загадка» успешно стартовал в чартах, а одноименный трек стал визитной карточкой коллектива. Но настоящая популярность к ним пришла после (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A319947B7ED6DB8186DA03F962A323BC2BA22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449941   (1028835) от 27.02.2021
-
-Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарные рок-иконы Uriah Heep были в отличном настроении, когда солнечным августовским вечером отыграли на тридцатой годовщине Wacken Open Air при огромной толпе!01. Grazed by Heaven
-02. Too Scared to Run
-03. Take Away My Soul
-04. Rainbow Demon(   Читать дальше...   )Производство: WackenTVЖанр: RockПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96E7C0BAD07D2D8CBDDECB6B43369B5534D12AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

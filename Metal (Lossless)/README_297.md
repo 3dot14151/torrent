@@ -1,3 +1,90 @@
+###  Публикация: 1432107   (165266) от 16.12.2020
+
+Disturbed - Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indestructible (4:38)
+02. Inside the Fire (3:51)
+03. Deceiver (3:49)
+04. The Night (4:46)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6D9B26F16B3777BBB828052B2DFC6795629AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597753   (165248) от 16.12.2022
+
+Ripper - Return To Death Row (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die While We're Alive
+02. Embattled
+03. The Night (Take It Back)
+04. Silent Cage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A241F267F1381DDA354D3C4C8D68717E1E8EEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516602   (165182) от 12.12.2021
+
+Lacuna Coil - Live From The Apocalypse (2021) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый концертный альбом LACUNA COIL "Live from the Apocalypse" - плод нашего беспрецедентного времени. В отличие от предыдущих живых выступлений - Visual Karma (Body, Mind and Soul) (2008), Shallow Live: Acoustic at Criminal Records (2010) и The 119 Show - Live in London (2018) - итальянцы под гнетом пандемии, хитро разработали способ, чтобы их преданные (   Читать дальше...   )01. Anima Nera (1:54)
+02. Sword of Anger (3:27)
+03. Save Me (4:28)
+04. Now or Never (4:20)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0DCA39610C4CF39F1C4B11CBFDF2C7745A1D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345986   (165156) от 17.12.2019
 
 Vanden Plas - The Ghost Xperiment - Awakening (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Vanden Plas - The Ghost Xperiment - Awakening (2019) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165156.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Cristiano Filippini's FLAMES OF HEAVEN - The Force Within (2020) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165108.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Coronatus - 10 Albums (2007-2021) [FLAC, WavPack|Lossless|image + .cue, tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165083.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Dimmu Borgir - Alive In Torment (2001) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165071.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Volbeat - Servant Of The Mind (2021) 2xCD, Limitеd Еditiоn [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165038.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Aeonian Sorrow - Forever Misery (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164650.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Edenbridge - Aphelion (2003) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164646.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164627.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164622.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Netra - Sørbyen (2011) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164606.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Edenbridge - Shine (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164602.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Netra - Mélancolie Urbaine (2010) [FLAC|Lossless|tracks + .cue] <Depressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164601.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Netra - Ingrats (2017) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164597.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164592.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Aeonian Sorrow - Into the Eternity a Moment We Are (2018) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164582.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Edenbridge - The Chronicles Of Eden (2008) 2CD [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164561.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Leprous - Pitfalls (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164540.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Veonity - Sorrows (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164500.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164484.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164439.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Bow - City Race (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164430.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Universal Mind Project - The Jaguar Priest (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164414.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164391.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8194422AE5F56CBE85E198A52BD887B957724B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432428   (164386) от 17.12.2020
-
-Volbeat - Live In Deutschland (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164386.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Intro - Lola Montez (6:38)
-02. Pelvis On Fire (2:49)
-03. Doc Holliday (5:33)(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABB1E1BF905A3A17A2838CC9F53B03F6E1DB294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597930   (164380) от 17.12.2022
-
-DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holding On 04:56
-02. Fallen World 04:08
-03. Cry Thunder 05:15
-04. Give Me the Night 04:28(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291DFAB285FE7119EA73AA2A17C8444B07337340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516986   (164375) от 13.12.2021
-
-Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164375.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Alpha - Anteludium
-02. Abyss Of Time - Countdown To Singularity
-03. The Skeleton Key(   Читать дальше...   )Жанр: Symphonic Power Metal, Gothic MetalПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962F89C072A1A604F53D67FFE370C623BAED2726
 ```
 
 https://mybot314.ru/tekegram_catalog/

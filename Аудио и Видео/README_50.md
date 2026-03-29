@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824223.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824209.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823885.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823423.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823290.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Chill Out Brainiac, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823174.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Chilling On Purple Clouds, Vol. 4 (2021) [AAC|~327 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823172.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Music from Space (Dimension A) (2021) [AAC|~319 Kbps] <Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823171.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Lo Greco Bros - Corner Jazz Club (The Unmistakable Jazz Groove of) (2021) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823170.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 3 (2021) [AAC|~317 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823158.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 2 (2021) [AAC|~352 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823047.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822842.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822706.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822323.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822152.jpg" />
+  <img src="Z:/picture/008/save_picture_822152.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822124.jpg" />
+  <img src="Z:/picture/008/save_picture_822124.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Sunset City (The Night Begins) (2021) [AAC|~332 Kbps] <Lo-Fi, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821518.jpg" />
+  <img src="Z:/picture/008/save_picture_821518.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Dawn City (The Day Begins) (2021) [AAC|~335 Kbps] <Chill Out, Downtempo, Ja
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821517.jpg" />
+  <img src="Z:/picture/008/save_picture_821517.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Disclosure: DJ-Kicks (2021) [AAC|~311 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821454.jpg" />
+  <img src="Z:/picture/008/save_picture_821454.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Spacedance, Vol. 2 (2021) [AAC|~340 Kbps] <Spacedance, Spacesynth, Retrowav
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821453.jpg" />
+  <img src="Z:/picture/008/save_picture_821453.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jazzy System - Answer Me (2020) [AAC|~313 Kbps] <Lo-Fi, Lounge, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821449.jpg" />
+  <img src="Z:/picture/008/save_picture_821449.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jazzy System - Another World (2019) [AAC|~266 Kbps] <Lo-Fi, Lounge, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821442.jpg" />
+  <img src="Z:/picture/008/save_picture_821442.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Spacedance, Vol. 1 (2021) [AAC|~356 Kbps] <Spacedance, Spacesynth, Retrowav
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821438.jpg" />
+  <img src="Z:/picture/008/save_picture_821438.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Spacedance, Vol. 3 (2021) [AAC|~322 Kbps] <Spacedance, Spacesynth, Retrowav
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821436.jpg" />
+  <img src="Z:/picture/008/save_picture_821436.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Be Phazz-a-Delic. 20 Years of Musical Delightment (2021) [AAC|~336 Kbps] <N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821428.jpg" />
+  <img src="Z:/picture/008/save_picture_821428.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820977.jpg" />
+  <img src="Z:/picture/008/save_picture_820977.jpg" />
 </div>
 
 

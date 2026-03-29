@@ -1,3 +1,29 @@
+###  Публикация: 1135208   (682266) от 18.05.2017
+
+Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_682266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стреляйте, убивайте, крадите и умирайте, как герои «Бешеных псов», в этом тактическом шутере с видом сверху и перемоткой времени.Тип издания: LicenseРазработчик: Big GamesЖанр: Action (Top-Down), StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8010E58823D54B8C82384E41B4E157A28742742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135602   (680638) от 19.05.2017
 
 EMPORIUM (2017) [En] (1.0) Repack Other s
@@ -6,7 +32,7 @@ EMPORIUM (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680638.jpg" />
+  <img src="Z:/picture/008/save_picture_680638.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680115.jpg" />
+  <img src="Z:/picture/008/save_picture_680115.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680024.jpg" />
+  <img src="Z:/picture/008/save_picture_680024.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675699.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_674011.jpg" />
+  <img src="Z:/picture/005/save_picture_674011.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673828.jpg" />
+  <img src="Z:/picture/008/save_picture_673828.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673747.jpg" />
+  <img src="Z:/picture/008/save_picture_673747.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673535.jpg" />
+  <img src="Z:/picture/008/save_picture_673535.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672945.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670522.jpg" />
+  <img src="Z:/picture/008/save_picture_670522.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_669865.jpg" />
+  <img src="Z:/picture/005/save_picture_669865.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665923.jpg" />
+  <img src="Z:/picture/005/save_picture_665923.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Zombie Rollerz: Pinball Heroes (2022) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665137.jpg" />
+  <img src="Z:/picture/008/save_picture_665137.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ LEGO City Undercover (2017) [Ru/En] (1.0/upd4) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663941.jpg" />
+  <img src="Z:/picture/008/save_picture_663941.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662947.jpg" />
+  <img src="Z:/picture/008/save_picture_662947.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Heat Guardian (2018) [Ru/Uk/En] (0.0.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662645.jpg" />
+  <img src="Z:/picture/008/save_picture_662645.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Synthetik (2018) [Ru/Multi] (15.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661653.jpg" />
+  <img src="Z:/picture/008/save_picture_661653.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660916.jpg" />
+  <img src="Z:/picture/008/save_picture_660916.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Marvel vs. Capcom: Infinite (2017) [Ru/Multi] (1.0/dlc) License PLAZA [Deluxe Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659536.jpg" />
+  <img src="Z:/picture/008/save_picture_659536.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659534.jpg" />
+  <img src="Z:/picture/008/save_picture_659534.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Lara Croft GO: The Mirror of Spirits (2015) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657526.jpg" />
+  <img src="Z:/picture/008/save_picture_657526.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656851.jpg" />
+  <img src="Z:/picture/008/save_picture_656851.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656463.jpg" />
+  <img src="Z:/picture/008/save_picture_656463.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Guitar Hero Antology / Антология Guitar Hero [En] (RePack) 2007-2009 | 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655213.jpg" />
+  <img src="Z:/picture/008/save_picture_655213.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654647.jpg" />
+  <img src="Z:/picture/008/save_picture_654647.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14CD5734E784C8172B266A05E27A02986E1553E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536355   (654639) от 28.03.2022
-
-Aztech Forgotten Gods (2022) [Ru/Multi] (1.0.8.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aztech Forgotten Gods - это динамичное приключение в антураже киберкаменного века. Вместе с юной Ачтли ты сразишься с Забытыми богами и раскроешь загадки мезоамериканского мегаполиса далекого будущего. Помоги ей обратить силу богов против них самих и воспарить над городом, как настоящему герою.Тип издания: LicenseРазработчик: LienzoЖанр: Экшн, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D712514DBA6C96D894E0EA1432692D08D8496A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

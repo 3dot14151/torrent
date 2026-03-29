@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851658.jpg" />
+  <img src="Z:/picture/008/save_picture_851658.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows and Office ISO Download Tool 4.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851657.jpg" />
+  <img src="Z:/picture/008/save_picture_851657.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows 10.0.18362.778 Version 1903 (April 2020 Update) - Оригин
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851645.jpg" />
+  <img src="Z:/picture/008/save_picture_851645.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Cent Browser 4.2.10.169 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851640.jpg" />
+  <img src="Z:/picture/008/save_picture_851640.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851633.jpg" />
+  <img src="Z:/picture/008/save_picture_851633.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Divinity: Original Sin - Enhanced Edition (2015) [Ru/Multi] (2.0.113.775) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851623.jpg" />
+  <img src="Z:/picture/008/save_picture_851623.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851622.jpg" />
+  <img src="Z:/picture/008/save_picture_851622.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SpyShelter Free Anti-Keylogger 10.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851621.jpg" />
+  <img src="Z:/picture/008/save_picture_851621.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Sascha Ring (Apparat, Moderat) - Discography 49 Releases (2001-2016) [MP3|320 kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851619.jpg" />
+  <img src="Z:/picture/008/save_picture_851619.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851612.jpg" />
+  <img src="Z:/picture/008/save_picture_851612.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851607.jpg" />
+  <img src="Z:/picture/008/save_picture_851607.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851605.jpg" />
+  <img src="Z:/picture/008/save_picture_851605.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851571.jpg" />
+  <img src="Z:/picture/008/save_picture_851571.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Byron M. Davis, David A. Jackson - The Sounds Of Nature (12CD Box Set) (1994) [M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851569.jpg" />
+  <img src="Z:/picture/008/save_picture_851569.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851542.jpg" />
+  <img src="Z:/picture/008/save_picture_851542.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Avira Free Antivirus 15.0.25.154 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851525.jpg" />
+  <img src="Z:/picture/008/save_picture_851525.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ MAMP PRO 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851524.jpg" />
+  <img src="Z:/picture/008/save_picture_851524.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851516.jpg" />
+  <img src="Z:/picture/008/save_picture_851516.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ FocusWriter 1.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851510.jpg" />
+  <img src="Z:/picture/008/save_picture_851510.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Wondershare UniConverter 11.7.5.1 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851504.jpg" />
+  <img src="Z:/picture/008/save_picture_851504.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Notepad++ 7.8.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851492.jpg" />
+  <img src="Z:/picture/008/save_picture_851492.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851478.jpg" />
+  <img src="Z:/picture/008/save_picture_851478.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Various Artists - Scontrum Series: Act I-VIII (2004-2008) [MP3|320 kbps] <Martia
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851467.jpg" />
+  <img src="Z:/picture/008/save_picture_851467.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851409.jpg" />
+  <img src="Z:/picture/008/save_picture_851409.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851407.jpg" />
+  <img src="Z:/picture/008/save_picture_851407.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Raya Pro 2.0 - panel for Adobe Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851405.jpg" />
+  <img src="Z:/picture/008/save_picture_851405.jpg" />
 </div>
 
 

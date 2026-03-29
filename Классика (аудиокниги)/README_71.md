@@ -1,3 +1,111 @@
+###  Публикация: 1739246   (106110) от 27.07.2024
+
+Константин Паустовский | Северная повесть (2017) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Георгиевич Паустовский (1892–1968) русский советский писатель.
+Гарнизонная служба в недавно покорённой Финляндии считалась очень тяжёлой, особенно на Аландских островах. В Камчатский полк ссылали провинившихся офицеров. Среди них был прапорщик Павел Бестужев, недавно переведённый в офицеры из солдат. Время было неясное и тревожное. Кончался январь 1826 (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 04:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6C103626738628F312F9B859E3DC8DEC04F7E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739242   (106082) от 27.07.2024
+
+Константин Паустовский | Рассказы (2014) [MP3, Михаил Яншин, Михаил Ульянов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Константин Георгиевич Паустовский (1892–1968) русский советский писатель.
+Радиоспектакли по одноимённым рассказам Константина Паустовского. Паустовский много писал о природе, о животных, но главный предмет его творчества – человек. Героев Паустовского отличает нравственная чистота и скромность.
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ИДДК, ГостелерадиофондПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3377A44B278670D20907F439CC4A19E78438E7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739544   (105990) от 28.07.2024
+
+Николай Лесков | Левша (2018) [MP3, Александр Симонов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105990.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Когда император Александр Павлович окончил венский совет, то он захотел по Европе проездиться и в разных государствах чудес посмотреть. Объездил он все страны и везде через свою ласковость всегда имел самые междоусобные разговоры со всякими людьми, и все его чем-нибудь удивляли и на свою сторону преклонять хотели, но при нём был донской казак Платов, который этого (   Читать дальше...   )Жанр: русская классика, социальная проза, повестиИздательство: ЛитРес: чтецПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B175DF05014B679EE9E29461017A5F5A45C84F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740629   (105862) от 02.08.2024
+
+Александр Дюма | Три мушкетёра (2022) [MP3, Григорий Перель]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Дюма – уникальный литературный феномен, а его «Три мушкетёра» – большая и неотъемлемая часть той литературы, которая увлекает с детства и оставляет впечатление на всю жизнь. Франция 17 века оживает через захватывающие приключения выдуманных персонажей и исторических личностей. Это известный всем эпос о рыцарстве, чести и безрассудстве, наполненный романтическими (   Читать дальше...   )Жанр: исторические приключения, французская классикаПеревод: Вера Вальдман, Дебора Лившиц, Ксения КсанинаИздательство: ВимбоПродолжительность: 26:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2622E4802693A1541860EB016602D71A19F1AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740628   (105833) от 02.08.2024
 
 Максим Горький | Рассказы (2007) [MP3, Дмитрий Кинге]
@@ -6,7 +114,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105833.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105831.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105827.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105825.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105773.jpg" />
 </div>
 
 
@@ -144,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105608.jpg" />
 </div>
 
 
@@ -172,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105607.jpg" />
 </div>
 
 
@@ -200,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105545.jpg" />
 </div>
 
 
@@ -227,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105543.jpg" />
 </div>
 
 
@@ -255,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105542.jpg" />
 </div>
 
 
@@ -283,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105395.jpg" />
 </div>
 
 
@@ -312,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105358.jpg" />
 </div>
 
 
@@ -339,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105340.jpg" />
 </div>
 
 
@@ -367,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105324.jpg" />
 </div>
 
 
@@ -396,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105320.jpg" />
 </div>
 
 
@@ -423,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105313.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105209.jpg" />
 </div>
 
 
@@ -480,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105010.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104952.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104934.jpg" />
 </div>
 
 
@@ -566,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104770.jpg" />
 </div>
 
 
@@ -594,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104749.jpg" />
 </div>
 
 
@@ -607,118 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BADFA48A3655CD967DFB5E0DA9B05F1B1D100E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747327   (104741) от 04.09.2024
-
-Альфонс Доде | Прекрасная нивернезка (Радиоспектакль) (1957) [MP3, Ростислав Плятт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Альфонс Доде (1840–1897) – французский романист и драматург, автор ярких рассказов из жизни Прованса, создатель знакового образа романтика и хвастуна Тартарена из Тараскона.
-Радиопостановка Всесоюзного радио по одноимённой повести французского писателя Альфонса Доде, о жизни маленького найденыша Виктора. Малыша приютила (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Всесоюзное радиоПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C98DFD2E44571DF977F27B78C207E2D25F2EFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747948   (104659) от 07.09.2024
-
-Томас Манн | Смерть в Венеции (2024) [MP3, Андрей Курилов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Томас Манн (1875–1955) – немецкий писатель, эссеист, мастер интеллектуальной прозы, сценарист, педагог.
-Томас Манн был одним из тех редких писателей, которым в равной степени удавались произведения и больших, и малых форм. Причем если в его романах содержание тяготело над формой, то в рассказах форма и содержание находились (   Читать дальше...   )Жанр: Зарубежная литература, классика, повесть, рассказИздательство: Аудиокнига (АСТ)Продолжительность: 10:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954B4AC4AA4E0ADEC1DF295930673881D9422833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747947   (104634) от 07.09.2024
-
-Томас Манн | Признания авантюриста Феликса Круля (2022) [MP3, Дмитрий Шабров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Томас Манн (1875–1955) – немецкий писатель, эссеист, мастер интеллектуальной прозы, сценарист, педагог.
-Самый необычный роман Томаса Манна, над которым писатель работал большую часть жизни, с 1911 по 1954 г., но так и не завершил его. Восхитительная пародия на «роман воспитания» и одновременно яркая стилизация под классический (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталия МанИздательство: Аудиокнига (АСТ)Продолжительность: 16:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9D890B6D71BF2398805A4DD31372920C32CF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747937   (104633) от 07.09.2024
-
-Томас Манн | Волшебная гора (2021) [MP3, Дмитрий Шабров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Томас Манн (1875–1955) – немецкий писатель, эссеист, мастер интеллектуальной прозы, сценарист, педагог.
-Что их ждет, смерть или выздоровление? «Волшебная гора» – туберкулезный санаторий в Швейцарских Альпах. Его обитатели вынуждены находиться здесь годами, общаясь с внешним миром лишь редкими письмами и телеграммами. Здесь (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Вера Станевич, Валентина КуреллаИздательство: Аудиокнига (АСТ)Продолжительность: 39:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5ECCF8E049B9745682F1868018C6ADE3AB92A34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1822156   (98581) от 05.10.2025
+
+Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немезида, богиня возмездия, потеряла рассудок. Она заражает нити судьбы порчей и карает всех, кто смеет ей помешать. Возьмите в руки оружие, встаньте бок о бок с богами и измените свою судьбу в Titan Quest II – экшен-RPG по мотивам греческой мифологии.Тип издания: RepackРазработчик: Grimlore GamesЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A122EC0E948DBE7E344320BEADE8A59F2B7EC870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822097   (94597) от 05.10.2025
+
+Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Multi] (1.0) Repack seleZen [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куда тебя приведет сила божества? В Fata Deum вы строите поселения и соперничаете с другими богами за влияние. Чем больше у вас последователей, тем большей силой вы обладаете. Ты сможешь поднимать смертных в воздух, шутки ради бросая их об землю или стать их проводником, бережно направляя к благополучию. Вне зависимости от того, добросердечное ли ты божество, жестокий (   Читать дальше...   )Тип издания: RepackРазработчик: 42 Bits EntertainmentЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF292AE9ECA0534D1BF773DED0D9196857FE32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821813   (91234) от 04.10.2025
+
+CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть – это не конец, а шаг вперед к победе. CRETE – необычное приключение от третьего лица, которое рассказывает историю о необычном месте. Заточите свои биоинженерные мечи, приготовьте свои винтовки из плоти и отточите тактические навыки. Чтобы заслужить место на Крите, вам нужно выиграть войну против Предков: таинственных богоподобных гуманоидов, которые хотят (   Читать дальше...   )Тип издания: RepackРазработчик: Mayhem Mirror StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776450   (71287) от 01.02.2025
+
+Saleblazers (2023) [Ru/Multi] (0.14.9.3) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saleblazers предлагает насладиться увлекательным опытом выживания в мультиплеерном экшене, в котором тебе предстоит создать магазин и выжить в опасном мире, наполненном различными опасностями. На этом опасном острове тебе придется строить уютные кафе или же огромные торговые центры в компании с другими игроками. Весь мир игры является реактивным песочницей, где каждый (   Читать дальше...   )Тип издания: RepackРазработчик: AIRSTRAFE INTERACTIVEЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0546E4FFCDB576F9C4B1A000840BA6DA3526ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792473   (67734) от 19.04.2025
+
+Slime Rancher 2 (2022) [Ru/Multi] (0.6.3) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slime Rancher 2 - это продолжение удостоенной наград и ставшей хитом оригинальной игры, нашедшей более 15 миллионов поклонников по всему миру. Отправьтесь вместе с Беатрикс Лебо в новое путешествие на Радужный остров, в таинственный край древних технологий и неизвестных природных ресурсов, навстречу настоящей лавине незнакомых трясуче-прыгучих слаймов. тараясь разгадать (   Читать дальше...   )Тип издания: RepackРазработчик: Monomi ParkЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4CE6D378F67C2E2AB9B0BC1748D225B1A030E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725907   (55255) от 27.05.2024
 
 Car For Sale Simulator 2023 (2023) [Ru/Multi] (0.3.4) Repack Pioneer [Early Access]
@@ -6,7 +136,7 @@ Car For Sale Simulator 2023 (2023) [Ru/Multi] (0.3.4) Repack Pioneer [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55255.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53790.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Astrox Imperium (2019) [En] (b0.0144) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51335.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Songs of Syx (2020) [En] (0.66.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50107.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Moons of Ardan (2021) [Multi] (0.11.0.16) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48861.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Beyond Hanwell (2024) [En] (0.4.4) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44063.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ GOAL! The Club Manager (2022) [Multi] (0.8.0.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42091.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41840.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.004) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40849.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Pine Harbor (2024) [Ru/Multi] (0.17) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37802.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Craftomation 101: Programming & Craft (2024) [Ru/Multi] (0.84.4) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37457.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37452.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Valheim - Ashlands (2021) [Ru/Multi] (0.219.16) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36419.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36381.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Last Plague: Blight (2024) [Ru/Multi] (0.9.8) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36296.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Endless Sky (2015) [En] (0.10.10/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36093.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ ASKA (2024) [Ru/Multi] (1.4.2711242013) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35816.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (0.10.6) Repack Wanterlude [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35789.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ The Long Drive (2019) [Ru/En] (2024.11.26b test) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35654.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34988.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Ostriv (2020) [Multi] (0.5.8.3/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34250.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Ostriv - это градостроительная стратегия, кото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D14DFA045A2AC16EC6C4E23E0D64F9D98C7C6F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765365   (34238) от 14.12.2024
-
-Forever Skies (2023) [Ru/Multi] (1.7.0) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forever Skies – это нетипичное выживание, в мире постапокалипсиса, где игроку предстоит стать капитаном дирижабля. К сожалению, протагонист единственный член экипажа, но даже это не уменьшает количество его проблем. Ведь он все равно нуждается в продовольствии, которого в воздухе практически нет за исключением редких птиц. А технике свойственно ломаться, и она требует (   Читать дальше...   )Тип издания: RepackРазработчик: Far From HomeЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F36ECC1A29B07B51A82CDCC1E84C2D993EDA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766089   (34004) от 16.12.2024
-
-Scrap Mechanic (2016) [Ru/Multi] (0.7.3) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrap Mechanic – креативный симулятор выживания, в котором нужно строить различные механизмы, добывать ресурсы и сражаться против «ретробайтов» - сумасшедших роботов. Фабула игры такова: вы – механик-робототехник, которого послали на полностью автоматизированную сельскохозяйственную планету для обслуживания и ремонта техники. При посадке ваш корабль терпит крушение, (   Читать дальше...   )Тип издания: RepackРазработчик: Axolot GamesЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1B56E7108C37B8C29930B0814F045068BDCB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767547   (33411) от 22.12.2024
-
-VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33411.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом слэшере от первого лица, появившемся благодаря усилиям одного разработчика, вам предстоит уничтожать орды врагов, исследовать миры тёмного фэнтeзи, находить мощное снаряжение и сражаться с боссами, чтобы очистить всё от скверны. В загадочном мире кроется немало секретов, а в его тёмных уголках поджидают опасности. На пути орды монстров, но моя стихийная ярость (   Читать дальше...   )Тип издания: RepackРазработчик: Nikita SozidarЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9643372B8F333CA48B68CBCF28CF2EE60A2AFB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680627   (32985) от 26.12.2024
-
-Low Magic Age (2017) [Multi] (0.91.75.2) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Low Magic Age - стратегия в средневековом сеттинге с элементами фэнтези. Создавая своего персонажа, необходимо отправиться по опасным городам, деревням и подземельям, сражаясь в пошаговом режиме. Игровой процесс дает множество возможностей, позволяя самому выбирать жизненный путь героя. Геймплей во время поединков предлагает множество самых различных вариаций: ограниченное (   Читать дальше...   )Тип издания: LicenseРазработчик: Low Magic StudiosЖанр: Стратегия, Пошаговая, ФэнтeзиЯзык субтитров: Английский, Французский, Японский и другиеЯзык интерфейса: Английский, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D057855DE03569AF337D43A3DC0C4D6C79A306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739292   (32596) от 30.12.2024
-
-Cataclismo (2024) [Ru/Multi] (0.22.0.6.417) Repack Wagner [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cataclismo вводит игроков в роль лидера, ответственного за выживание человеческого поселения. Над городом нависла постоянная угроза в виде Тумана - загадочной и смертоносной силы, порождающей гротескных существ, известных как Ужасы. Главная задача пользователя - построить и укрепить крепость, чтобы противостоять неустанным ночным нападениям. Вооружившись множеством (   Читать дальше...   )Тип издания: RepackРазработчик: Digital SunЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4723DFFA27F834FD4DC81BACD9399492290B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

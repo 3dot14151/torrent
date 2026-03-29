@@ -1,3 +1,32 @@
+###  Публикация: 1674222   (162328) от 04.11.2023
+
+††† (Crosses) - Goodnight, God Bless, I Love U, Delete (2023) [FLAC|Lossless|tracks + .cue] <Synthpop, Experimental, Electronic Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleasure (04:16)
+02. Invisible Hand (03:54)
+03. Found (03:25)
+04. Light as a Feather (03:09)(   Читать дальше...   )Жанр: Synthpop, Experimental, Electronic RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389CC70E4A9E1D10F7A92D47394756AF33874D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433124   (161989) от 19.12.2020
 
 VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synthpop, Electronic>
@@ -6,7 +35,7 @@ VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161989.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nina Hagen - Unity (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock, Pu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161856.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pet Shop Boys - Relentless (1993) Reissue, Remastered, 2023, Parlophone [FLAC|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160243.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ CJ Burnett - Heat in the Streets (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160132.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ NEONIC - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159022.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Space Holidays Vol. 14 (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158974.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Alphaville - Afternoons In Utopia (1986) [FLAC|Image+cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158646.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Future Synth - Drone (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155650.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Strike '85 - Tears in Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154082.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Alphaville - Forever Pop (2001) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153144.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Sandra - My Favourites (1999) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153018.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Daylight - 30 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Dance-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151459.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ SYNTHEVER - Around The World Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150188.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149257.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Pylot - Axiom (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, retrowave, synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149192.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149180.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148716.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146684.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Christine And The Queens - Chaleur Humaine (2014) 2016, Because Music [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146646.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ VA - Space Holidays Vol. 11 (2019) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146239.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145581.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Duran Duran - The Biggest And The Best (2012) 2CD, Compilation [FLAC|Lossless|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145543.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145537.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145500.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144630.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA7032F92746780A7832C3F0191C1B9E7FAD4060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087877   (142558) от 29.12.2016
-
-Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fade To Grey (Michael Gray Remix 2009) (7:45)
- 02. Mind Of A Toy (Dance Mix) (5:16)
- 03. We Move (Remix) (3:46)
- 04. Tar (3:33)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C99266D31C72FAB9C1D7BFCDAA0BDAB44DEA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1033218   (640286) от 10.07.2016
+
+Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) Remaster, 2011, Pacific[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [04:52]
+02. When Johnny Comes Marching Home [05:15]
+03. Deep River [05:42]
+04. Till We Meet Again [04:18](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206F5D701EAD1EA56B9F74BDD6B3BCB37BA60B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033244   (640277) от 10.07.2016
+
+Andre Fisichella - Seduction (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cotton Feeling
+02. Morning Dew
+03. Last Night
+04. Mutation(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FE864630BC74A4E19611B232169E4BB7409662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907391   (639933) от 11.06.2015
+
+Andrew Hill - Dance With Death (2012) [FLAC|Lossless]<Jazz, Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Violet [05:33]
+02. Partitions [05:52]
+03. Fish 'N Rice [07:32]
+04. Dance With Death [06:40](   Читать дальше...   )Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C41A93F3B1C4798685A63A874753D3BB3855245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907301   (639932) от 11.06.2015
+
+Dollar Brand - African Breeze (2015) [FLAC|Lossless]<Jazz, Post-Bop, African Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nim Vlula (The Rain Song) [03:27]
+02. Msunduza [02:11]
+03. Salaam (Peace) [02:06]
+04. Ancient Africa [11:26](   Читать дальше...   )Жанр: Jazz, Post-Bop, African Jazz, World FusionПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E75A39A2BCBA88BCA2DDA66D8DC51966AB0708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907239   (639931) от 11.06.2015
 
 John Patton - Along Came John (2015) [FLAC|Lossless]<Jazz, Post-Bop, Soul>
@@ -6,7 +122,7 @@ John Patton - Along Came John (2015) [FLAC|Lossless]<Jazz, Post-Bop, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639931.jpg" />
+  <img src="Z:/picture/008/save_picture_639931.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Milt Jackson - High Fly (2004) 2CD[FLAC|Lossless]<Jazz, Post-Bop, Mainstream Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639928.jpg" />
+  <img src="Z:/picture/008/save_picture_639928.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Lauren Desberg - Twenty First Century Problems (2015) [FLAC|Lossless|WEB-DL]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639733.jpg" />
+  <img src="Z:/picture/008/save_picture_639733.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Stefanie Schlesinger - Reality (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639559.jpg" />
+  <img src="Z:/picture/008/save_picture_639559.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Youn Sun Nah - She Moves On (2015) ACT [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639462.jpg" />
+  <img src="Z:/picture/008/save_picture_639462.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ James P. Johnson - 1928 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639412.jpg" />
+  <img src="Z:/picture/008/save_picture_639412.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639409.jpg" />
+  <img src="Z:/picture/008/save_picture_639409.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ron Carter and Helen Merrill - Duets (1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639375.jpg" />
+  <img src="Z:/picture/005/save_picture_639375.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Wayne Shorter Quartet - Beyond The Sound Barrier (2002 - 2004) 2005, Universal [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639204.jpg" />
+  <img src="Z:/picture/008/save_picture_639204.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639110.jpg" />
+  <img src="Z:/picture/005/save_picture_639110.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ VA - Midnight Radio - NOIR JAZZ (2016) Signora Ward Records [FLAC|Lossless|Web-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639050.jpg" />
+  <img src="Z:/picture/008/save_picture_639050.jpg" />
 </div>
 
 
@@ -337,7 +453,7 @@ Ken McIntyre - Year Of The Iron Sheep (1962) Remaster, 2010, United Artists Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638310.jpg" />
+  <img src="Z:/picture/008/save_picture_638310.jpg" />
 </div>
 
 
@@ -366,7 +482,7 @@ Jeff Richman - Like That (2010) [FLAC|Lossless]<Jazz, Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638269.jpg" />
+  <img src="Z:/picture/008/save_picture_638269.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ Omar Hakim & Rachel Z - The Trio Of Oz (2010) Ozmosis Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638242.jpg" />
+  <img src="Z:/picture/008/save_picture_638242.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Eric Le Lann & Paul Lay - Thanks a Million (2018) Gazebo [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637784.jpg" />
+  <img src="Z:/picture/008/save_picture_637784.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ Snorre Kirk - Beat (2018) Stunt Records [FLAC|Lossless|tracks + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637783.jpg" />
+  <img src="Z:/picture/008/save_picture_637783.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ The Wrong Object - Into The Herd (2019) [FLAC|Lossless|tracks + .cue] <Fusion, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637677.jpg" />
+  <img src="Z:/picture/008/save_picture_637677.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ Dewa Budjana - Mahandini (2018) [FLAC|Lossless|tracks + .cue] <World Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637674.jpg" />
+  <img src="Z:/picture/008/save_picture_637674.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ Fugu Quintet (Fugu Quartet) - Sisyphus (2016) EP [FLAC|Lossless|Web-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637673.jpg" />
+  <img src="Z:/picture/008/save_picture_637673.jpg" />
 </div>
 
 
@@ -568,7 +684,7 @@ Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637672.jpg" />
+  <img src="Z:/picture/008/save_picture_637672.jpg" />
 </div>
 
 
@@ -594,7 +710,7 @@ Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637669.jpg" />
+  <img src="Z:/picture/008/save_picture_637669.jpg" />
 </div>
 
 
@@ -623,7 +739,7 @@ Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637664.jpg" />
+  <img src="Z:/picture/008/save_picture_637664.jpg" />
 </div>
 
 
@@ -637,122 +753,6 @@ Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:862F2C524A13B237BDBF74AF6EE4AD91E41F92FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143094   (637576) от 17.06.2017
-
-Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Off to See the Wizard [01:21]
-02. Over the Rainbow [03:02]
-03. The Jitterbug [03:18]
-04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228323   (637529) от 31.05.2018
-
-McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crescent [10:32]
-02. Monk's Dream [9:35]
-03. Darn That Dream [8:18]
-04. Sweet Basil Swing [6:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC71609F65CA850DB25C49BCC6E1CCF3FC4AA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143266   (637483) от 17.06.2017
-
-Zoot Sims - Down Home (1960) 2005, Charly [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jive At Five [05:19]
-02. Doggin' Around [04:39]
-03. Avalon [04:29]
-04. I Cried For You [06:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4615D5A56B45E296B64438B6F97A588CBB7E7F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143263   (637481) от 17.06.2017
-
-Miles Davis - 'Round About Midnight (1957) 2012, Mobile Fidelity Sound Lab [WavPack|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Round Midnight [06:01]
-02. Ah-Leu-Cha [05:58]
-03. All Of You [07:07]
-04. Bye Bye Blackbird [08:00](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8B9438955A849790C3ADA267F8F66E1905FE00
 ```
 
 https://mybot314.ru/tekegram_catalog/

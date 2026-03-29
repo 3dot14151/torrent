@@ -6,7 +6,7 @@ Vivaldi 3.0.1874.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851827.jpg" />
+  <img src="Z:/picture/008/save_picture_851827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Photo Commander 16.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851825.jpg" />
+  <img src="Z:/picture/008/save_picture_851825.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gramatik - Re:Coil Deluxe (2020) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851823.jpg" />
+  <img src="Z:/picture/008/save_picture_851823.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ GPS Status & Toolbox PRO 6.2.136 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851817.jpg" />
+  <img src="Z:/picture/008/save_picture_851817.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ MetaProducts Offline Explorer Enterprise 7.1.4452 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851814.jpg" />
+  <img src="Z:/picture/008/save_picture_851814.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851792.jpg" />
+  <img src="Z:/picture/008/save_picture_851792.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - House Vip (08.04.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851774.jpg" />
+  <img src="Z:/picture/008/save_picture_851774.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851756.jpg" />
+  <img src="Z:/picture/008/save_picture_851756.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ummy Video Downloader 1.7.2.7 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851752.jpg" />
+  <img src="Z:/picture/008/save_picture_851752.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Norton Security 22.9.0.68 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851747.jpg" />
+  <img src="Z:/picture/008/save_picture_851747.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Opera 68.0.3618.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851744.jpg" />
+  <img src="Z:/picture/008/save_picture_851744.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Google Chrome 81.0.4044.122 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851743.jpg" />
+  <img src="Z:/picture/008/save_picture_851743.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Autorun Organizer 4.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851741.jpg" />
+  <img src="Z:/picture/008/save_picture_851741.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Google Chrome 81.0.4044.122 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851740.jpg" />
+  <img src="Z:/picture/008/save_picture_851740.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Ashampoo Photo Commander 16.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851736.jpg" />
+  <img src="Z:/picture/008/save_picture_851736.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851726.jpg" />
+  <img src="Z:/picture/008/save_picture_851726.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Process Hacker 2.39 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851723.jpg" />
+  <img src="Z:/picture/008/save_picture_851723.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Winstep Nexus Ultimate 16.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851713.jpg" />
+  <img src="Z:/picture/008/save_picture_851713.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851710.jpg" />
+  <img src="Z:/picture/008/save_picture_851710.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ DAEMON Tools Pro 7.1.0.0595 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851709.jpg" />
+  <img src="Z:/picture/008/save_picture_851709.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851701.jpg" />
+  <img src="Z:/picture/008/save_picture_851701.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (1997) [MP3|320 kbps]<New age, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851690.jpg" />
+  <img src="Z:/picture/008/save_picture_851690.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mystico - Mystico (2007) [MP3|320 кб/с]<New age, Enigmatic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851675.jpg" />
+  <img src="Z:/picture/008/save_picture_851675.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Michael Gettel - 10 albums (1987 - 1999) [MP3|320 кб/с]<New age>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851674.jpg" />
+  <img src="Z:/picture/008/save_picture_851674.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Erotic Dreams - Temple Of Love (1998) [MP3|320 kbps]<New age, Enigmatic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851669.jpg" />
+  <img src="Z:/picture/008/save_picture_851669.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Altap Salamander 3.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851660.jpg" />
+  <img src="Z:/picture/008/save_picture_851660.jpg" />
 </div>
 
 

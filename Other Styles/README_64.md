@@ -6,7 +6,7 @@ Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707939.jpg" />
+  <img src="Z:/picture/008/save_picture_707939.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
+  <img src="Z:/picture/008/save_picture_707843.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707521.jpg" />
+  <img src="Z:/picture/008/save_picture_707521.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706993.jpg" />
+  <img src="Z:/picture/008/save_picture_706993.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706949.jpg" />
+  <img src="Z:/picture/008/save_picture_706949.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bear McCreary - Colossal / Моя девушка – монстр (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706945.jpg" />
+  <img src="Z:/picture/008/save_picture_706945.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bear McCreary - Colossal / Моя девушка – монстр (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706938.jpg" />
+  <img src="Z:/picture/008/save_picture_706938.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706610.jpg" />
+  <img src="Z:/picture/008/save_picture_706610.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706591.jpg" />
+  <img src="Z:/picture/008/save_picture_706591.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706478.jpg" />
+  <img src="Z:/picture/008/save_picture_706478.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706136.jpg" />
+  <img src="Z:/picture/008/save_picture_706136.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705873.jpg" />
+  <img src="Z:/picture/008/save_picture_705873.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Joseph Bishara - The Conjuring 2 / Заклятие 2 (Music from the Motion Pic
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705868.jpg" />
+  <img src="Z:/picture/008/save_picture_705868.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Music For Quick Morning Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705614.jpg" />
+  <img src="Z:/picture/008/save_picture_705614.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kamal - Reiki Whale Song (2001) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705331.jpg" />
+  <img src="Z:/picture/008/save_picture_705331.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Armik - Romantic Spanish Guitar Vol.2 (2015) [FLAC|Lossless]<Latin, Flamenco>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704893.jpg" />
+  <img src="Z:/picture/008/save_picture_704893.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704154.jpg" />
+  <img src="Z:/picture/008/save_picture_704154.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703961.jpg" />
+  <img src="Z:/picture/008/save_picture_703961.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703953.jpg" />
+  <img src="Z:/picture/008/save_picture_703953.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703678.jpg" />
+  <img src="Z:/picture/008/save_picture_703678.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Tim McGraw - Not A Moment Too Soon (1994) [FLAC|Lossless|tracks + .cue] <Folk, C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703620.jpg" />
+  <img src="Z:/picture/008/save_picture_703620.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Sawyer Brown - Greatest Hits (1990) [FLAC|Lossless|tracks + .cue] <Folk, Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703619.jpg" />
+  <img src="Z:/picture/008/save_picture_703619.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Tim McGraw - Tim McGraw And The Dancehall Doctors (2002) [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703618.jpg" />
+  <img src="Z:/picture/008/save_picture_703618.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Wendy Stark - Child of Transference (1999) [MP3|320 Kbps] <New Age, Downtempo, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703615.jpg" />
+  <img src="Z:/picture/008/save_picture_703615.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Winifred Atwell - 4 альбома (1964 - 2009) [MP3|320 kbps]<Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703486.jpg" />
+  <img src="Z:/picture/008/save_picture_703486.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701706.jpg" />
+  <img src="Z:/picture/008/save_picture_701706.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841699.jpg" />
+  <img src="Z:/picture/008/save_picture_841699.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841698.jpg" />
+  <img src="Z:/picture/008/save_picture_841698.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841694.jpg" />
+  <img src="Z:/picture/008/save_picture_841694.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ jv16 PowerTools X 4.0.0.1513 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841690.jpg" />
+  <img src="Z:/picture/008/save_picture_841690.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841674.jpg" />
+  <img src="Z:/picture/008/save_picture_841674.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Neev Kennedy - The Best of Neev Kennedy (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841644.jpg" />
+  <img src="Z:/picture/008/save_picture_841644.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841643.jpg" />
+  <img src="Z:/picture/008/save_picture_841643.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Uplifting Only Top 15: March (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841641.jpg" />
+  <img src="Z:/picture/008/save_picture_841641.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Этап 1 - Clipsal 5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841636.jpg" />
+  <img src="Z:/picture/008/save_picture_841636.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kite Compositor 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841633.jpg" />
+  <img src="Z:/picture/008/save_picture_841633.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841632.jpg" />
+  <img src="Z:/picture/008/save_picture_841632.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ CloudTV 3.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841631.jpg" />
+  <img src="Z:/picture/008/save_picture_841631.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Dead Can Dance - Within The Realm Of A Dying Sun (1987) [FLAC 2.0|96/24|tracks|V
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841596.jpg" />
+  <img src="Z:/picture/008/save_picture_841596.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841595.jpg" />
+  <img src="Z:/picture/008/save_picture_841595.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841588.jpg" />
+  <img src="Z:/picture/008/save_picture_841588.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ California Sunshine - Festival Of Life (2017) [MP3|320 Kbps] <Psy-Trance, Psyche
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841545.jpg" />
+  <img src="Z:/picture/008/save_picture_841545.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Lyn 1.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841542.jpg" />
+  <img src="Z:/picture/008/save_picture_841542.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Isralienn - Psycho Plastik Form (2017) [MP3|320 Kbps] <Progressive Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841541.jpg" />
+  <img src="Z:/picture/008/save_picture_841541.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FilePane 1.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841537.jpg" />
+  <img src="Z:/picture/008/save_picture_841537.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PDF Expert 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841532.jpg" />
+  <img src="Z:/picture/008/save_picture_841532.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841529.jpg" />
+  <img src="Z:/picture/008/save_picture_841529.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mirror for Sony TV 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841528.jpg" />
+  <img src="Z:/picture/008/save_picture_841528.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PLC - Восход (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841526.jpg" />
+  <img src="Z:/picture/008/save_picture_841526.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841502.jpg" />
+  <img src="Z:/picture/008/save_picture_841502.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ WonderFox DVD Ripper Pro 7.6 RePacK by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841501.jpg" />
+  <img src="Z:/picture/008/save_picture_841501.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ DriverEasy Professional 5.0.0.18255 RePack (& Portable) by TryRooM [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841490.jpg" />
+  <img src="Z:/picture/008/save_picture_841490.jpg" />
 </div>
 
 

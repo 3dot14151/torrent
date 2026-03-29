@@ -1,3 +1,138 @@
+###  Публикация: 1391393   (780931) от 20.06.2020
+
+Udemy | HTML + CSS с Нуля до Результата (2020) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этого курса ты узнаешь, как использовать HTML5 и CSS3 для разработки web-сайта. Также ты изучишь основы написания кода на JavaScript для оживления проекта.
+Для кого этот курс:
+Этот курс предназначен для всех, кто хочет узнать о веб-разработке, независимо от уровня осведомлённости
+Это также отлично подходит для тех, кто имеет некоторый опыт в некоторых технологиях (   Читать дальше...   )Производство: Максим СукманюкЖанр: HTML, CSSПродолжительность: 12:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C91F60A3D687DA5F3AB9DA6FEC430E61241376B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209085   (779324) от 26.02.2018
+
+Udemy | Изучаем Социальную Инженерию с Нуля (2017) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Социальная инженерия, иногда называемая наукой и искусством взлома человеческого сознания, становится все более популярной в связи с повышением роли социальных сетей, электронной почты или других видов онлайн-коммуникации в нашей жизни. В сфере информационной безопасности данный термин широко используется для обозначения ряда техник, используемых киберпреступниками. (   Читать дальше...   )Жанр: Обучающий курсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 12:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4E1F09D3AEE89F8065146073A23DAF97DDAE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208248   (779306) от 26.02.2018
+
+OTUS | Разработчик full-stack на Python (2017) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель курса “Разработчик full-stack на Python” – подготовить специалиста, который сможет выполнять рядовые задачи бекенд-разработки: писать поддерживаемый код, выполнять рефакторинг, проектировать схему базы данных и взаимодействие с ней, организовать работу с ошибками и профилирование, проектировать и развивать схему взаимодействие с клиенсайдом, проводить код-ревью (   Читать дальше...   )Производство: OTUSЖанр: Программирование, PythonПродолжительность: 44:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E75CA4919EDE24366B2F7A67C59AC3BEFC445FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196634   (779169) от 27.02.2018
+
+Школа современных технологий | PHP. Уровень 1-3 (2016) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779169.jpg" />
+</div>
+
+
+###  Подробнее
+
+- PHP - уровень 1 (Базовый курс по основам PHP, одного из самых популярных языков программирования)
+- PHP - уровень 2 (Курс по PHP - уже для продвинутых)
+- PHP - уровень 3 (Курс по PHP для продвинутых)Производство: Дмитрий Лаврик, Игорь Маркин, Дмитрий ЮрьевЖанр: Программирование, PHPПродолжительность: 58:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21CD142F6E02604D0CEB3A699F71B20E0FFBC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012826   (777806) от 03.05.2016
+
+Ларченко Алексей | Базовые навыки в EDIUS 7 (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки по основным инструментам EDIUS 7. Предназначен для людей, которые еще не работали в EDIUS 7.Производство: Ларченко АлексейЖанр: Видеоредактор, монтажПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E592186B4B88A2A679301998A4C259E6466B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011493   (777798) от 03.05.2016
 
 ITVDN | Выполнение домашнего задания по курсу SQL Essential (2015) PCRec [H.264/720p]
@@ -6,7 +141,7 @@ ITVDN | Выполнение домашнего задания по курсу S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777798.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ Search Engine Education | SEO-Коучинг 9.0 (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777768.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ ITVDN | HTML & CSS (renewed) (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777765.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ ITVDN | HTML5 Web Components (2016) PCRec [H.264/1080p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777761.jpg" />
 </div>
 
 
@@ -110,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777760.jpg" />
 </div>
 
 
@@ -138,7 +273,7 @@ ITVDN | C# Essential Express (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777758.jpg" />
 </div>
 
 
@@ -164,7 +299,7 @@ ITVDN | Создание адаптивного сайта с Bootstrap 3 (2015)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777757.jpg" />
 </div>
 
 
@@ -190,7 +325,7 @@ videosharp | Игра Сокобан на C# (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777453.jpg" />
 </div>
 
 
@@ -216,7 +351,7 @@ ProfIT | PHP Готовимся к собеседованию (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777426.jpg" />
 </div>
 
 
@@ -245,7 +380,7 @@ Unity3DSchool | Основы языка C# в unity3D для написания 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777032.jpg" />
+  <img src="Z:/picture/008/save_picture_777032.jpg" />
 </div>
 
 
@@ -271,7 +406,7 @@ Geekbrains | Node.js Серверное программирование на Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776987.jpg" />
+  <img src="Z:/picture/008/save_picture_776987.jpg" />
 </div>
 
 
@@ -297,7 +432,7 @@ ProfIT | PHP-3: Повышение квалификации (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776235.jpg" />
+  <img src="Z:/picture/008/save_picture_776235.jpg" />
 </div>
 
 
@@ -323,7 +458,7 @@ Laracasts | Skills (2014-2017) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775658.jpg" />
+  <img src="Z:/picture/008/save_picture_775658.jpg" />
 </div>
 
 
@@ -352,7 +487,7 @@ Laracasts | Extra Series (2013-2018) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775654.jpg" />
+  <img src="Z:/picture/008/save_picture_775654.jpg" />
 </div>
 
 
@@ -378,7 +513,7 @@ WebForMySelf | Joomla-Профессионал: создание расшире�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775405.jpg" />
+  <img src="Z:/picture/008/save_picture_775405.jpg" />
 </div>
 
 
@@ -407,7 +542,7 @@ Udemy | Certified Metasploit Framework Professional (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773206.jpg" />
+  <img src="Z:/picture/008/save_picture_773206.jpg" />
 </div>
 
 
@@ -435,7 +570,7 @@ Udemy | Unreal Engine Blueprints The Ultimate Developer Course (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772438.jpg" />
+  <img src="Z:/picture/008/save_picture_772438.jpg" />
 </div>
 
 
@@ -461,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770875.jpg" />
+  <img src="Z:/picture/008/save_picture_770875.jpg" />
 </div>
 
 
@@ -489,7 +624,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770002.jpg" />
+  <img src="Z:/picture/008/save_picture_770002.jpg" />
 </div>
 
 
@@ -515,7 +650,7 @@ ITVDN | Unity 3D User Interface (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769998.jpg" />
+  <img src="Z:/picture/008/save_picture_769998.jpg" />
 </div>
 
 
@@ -541,7 +676,7 @@ ITVDN | Unity 3D Advanced (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769995.jpg" />
+  <img src="Z:/picture/008/save_picture_769995.jpg" />
 </div>
 
 
@@ -552,142 +687,6 @@ ITVDN | Unity 3D Advanced (2016) PCRec [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C55C8C748DC3953F9294FEBFC9789C3E1BD39BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392270   (769641) от 24.06.2020
-
-Udemy | Web приложение - IShop: Servlets, JSP, JSTL, Custom tags (2016) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для изучения основ Java Enterprise Edition (JEE) для создания web приложений с помощью языка Java.
-
-Данный курс состоит из двух частей: в первой части рассматривается  теоретический обзор основных web компонентов: Servlets, Filters,  Listeners, JSP, JSP tags, JSTL, а  также основы HTTP протокола,  а во второй части полученные теоретические знания (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 14:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8810E401103AECE3E91E7155DC0D53DAA41F3BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392681   (769014) от 27.06.2020
-
-Udemy | Макет интернет магазина - IShop: HTML, CSS, JS, Bootstrap (2016) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для быстрого ознакомления с фундаментальными знаниями HTML5, CSS, JavaScript, JQuery и Bootstrap, необходимыми для верстки функциональных HTML макетов, которые будут использованы при разработке полноценной системы с использованием других языков программирования (Java, C#, PHP, Python и т.д.)
-Данный курс состоит из двух частей: в первой части (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, HTML, CSS, JS, BootstrapПродолжительность: 07:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546DABD39D9AF3087DA80E281E2E3D65BDEF9DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392692   (769011) от 27.06.2020
-
-Udemy | Основы программирования - Крестики-нолики (на примере Java) (2016) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен для изучения основ программирования: введение в алгоритмизацию, принципов языков программирования высокого уровня, основных выражений и операторов, знакомство с итеративными и рекурсивными алгоритмами, алгоритмами сортировки и поиска и практического освоения теоретических знаний на примере реализации игры "Крестики-нолики". Основы (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 11:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107B5603FDFE5835028F673E5CFB7455DEC7A5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393015   (768867) от 28.06.2020
-
-Udemy | Web приложение - My Blog: Servlets, JSP, JSTL, JDBC, Eclipse (2016) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768867.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках данного курса будет написано Web приложение с использованием Java технологий: Servlets, JSP, JSTL, JDBC.
-В качестве среды разработки будет использовано IDE Eclipse. В  качестве UI будет выбран готовый HTML шаблон и на его базе будет создано  полноценное web приложение.Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 07:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB562C86CA2C9A988B1F9A9EA0F40B7513111811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393107   (768838) от 28.06.2020
-
-Udemy | Web приложение - My Resume на базе фреймворка Spring (2016) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768838.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках данного курса будет написано Web приложение My Resume с использованием Java технологий: Spring Core, String MVC, Spring Data JPA, Hibernate, Spring Security, Sitemesh, Spring Data ElasticSearch, JSP, JSTL, Hibernate-Validators, Facebook API, Spring Data Mongo.
-Пользовательский интерфейс построен с использованием HTML5, CSS3, Bootstrap, JQuery.
-Для долговременного (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 22:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2149344A55DEDA00F88F2B8FCBF8472A420CA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

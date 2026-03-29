@@ -1,3 +1,84 @@
+###  Публикация: 950741   (367550) от 27.10.2015
+
+Валентин Катасонов | Антикризис. Выжить и победить (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экономическая война против России идет давно, но только сейчас она приняла такие решительные и пугающие формы. Впервые за долгие годы наша страна стоит на пороге настоящей блокады. Российское имущество за рубежом арестовывается, торговля замораживается, мир как будто застыл на пороге настоящей войны, а сейчас проводится ее генеральная репетиция.
+Валентин Юрьевич (   Читать дальше...   )Жанр: Политика, Публицистика, ЭкономикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4EEFFE3541F57947B1BBD4845052034E07478F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950818   (367438) от 27.10.2015
+
+Аригор | Просвещение мужчин: Заметки Аригора (2015) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит заметки Аригора - философа Мужского Движения. Материал предназначен для просвещения мужчин в области маскулизма, взаимоотношения полов и актуализации мужчин в обществе.
+
+Небольшие по объёму, но ёмкие по смыслу заметки привлекают огромный интерес читателей, вызывают бурные дискуссии в гендерных кругах и репосты в соцсетях. Свежий взгляд на положение (   Читать дальше...   )Жанр: Маскулизм, ПросветительскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F670245033A0206A710982CAAC0E40112B47825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416421   (367338) от 16.10.2020
+
+Алексей Пушков | Миссия России. Хватит ли сил у Путина? (2020) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Константинович Пушков – политолог, профессор, глава Комитета Госдумы по международным делам, автор и ведущий популярной телевизионной программы «Постскриптум», – в своей новой книге показывает, как «перезагрузка» в российско-американских отношениях сменилась новой холодной войной США против России, обозначает основные ее этапы и приводит картину изменившейся (   Читать дальше...   )Жанр: Внешняя политика, Политология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B699CAD29AD152990A1B223F8F2DFE88E794EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328364   (366223) от 29.09.2019
 
 Д. А. Гобсон | Проблемы бедности и безработицы (1900) [PDF]
@@ -6,7 +87,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366223.jpg" />
+  <img src="Z:/picture/008/save_picture_366223.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366181.jpg" />
+  <img src="Z:/picture/008/save_picture_366181.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365995.jpg" />
+  <img src="Z:/picture/008/save_picture_365995.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365894.jpg" />
+  <img src="Z:/picture/008/save_picture_365894.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365167.jpg" />
+  <img src="Z:/picture/008/save_picture_365167.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363807.jpg" />
+  <img src="Z:/picture/008/save_picture_363807.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363200.jpg" />
+  <img src="Z:/picture/008/save_picture_363200.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363184.jpg" />
+  <img src="Z:/picture/008/save_picture_363184.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363152.jpg" />
+  <img src="Z:/picture/008/save_picture_363152.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361694.jpg" />
+  <img src="Z:/picture/008/save_picture_361694.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361658.jpg" />
+  <img src="Z:/picture/008/save_picture_361658.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361490.jpg" />
+  <img src="Z:/picture/008/save_picture_361490.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361487.jpg" />
+  <img src="Z:/picture/008/save_picture_361487.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361377.jpg" />
+  <img src="Z:/picture/008/save_picture_361377.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361354.jpg" />
+  <img src="Z:/picture/008/save_picture_361354.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361336.jpg" />
+  <img src="Z:/picture/008/save_picture_361336.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361035.jpg" />
+  <img src="Z:/picture/008/save_picture_361035.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360948.jpg" />
+  <img src="Z:/picture/008/save_picture_360948.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360773.jpg" />
+  <img src="Z:/picture/008/save_picture_360773.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360765.jpg" />
+  <img src="Z:/picture/008/save_picture_360765.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360532.jpg" />
+  <img src="Z:/picture/008/save_picture_360532.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360162.jpg" />
+  <img src="Z:/picture/008/save_picture_360162.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358981.jpg" />
+  <img src="Z:/picture/008/save_picture_358981.jpg" />
 </div>
 
 
@@ -608,88 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEB54F34AD83AE7D1A288CA49F9824B880685100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178347   (357982) от 27.10.2017
-
-Е. Королева (ред.) | Мудрость и остроумие: большая книга всех времен и народов (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что объединяет этих, казалось бы, разных творческих личностей: Козьму Пруткова, Михаила Салтыкова-Щедрина, Марка Твена, Антона Чехова, Омар Хайяма, Илью Ильфа и Евгения Петрова?
-Остроумие – вот, пожалуй, главная черта, которая им присуща. Тонко подмечать веяния времени, чутко чувствовать суть человека, точно обозначать явления, происходящие в обществе, и ярко, метко, (   Читать дальше...   )Жанр: Афоризмы и цитатыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FA7A9AB6D85895428160D1B8743A9C11EEB1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178217   (357870) от 27.10.2017
-
-Альберт Эйнштейн | Бог не играет в кости. Моя теория относительности (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бог не играет в кости…
-(Альберт Эйнштейн)
-Известный главным образом как создатель специальной и общей теории относительности, Альберт Эйнштейн стал, пожалуй, самым знаменитым ученым XX века, воплощением человеческого гения. Он коренным образом изменил наши взгляды на материю, пространство и время. Мы в благоговейном восхищении и растерянности стоим перед фигурой (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8E3A8FD8A700730E9F66F9890291D82C168624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256224   (356779) от 21.10.2018
-
-Тревор Ной | Бесцветный (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мемуары Тревора Ноя – красноречивое и трогательное повествование о том, как в полной нищете и несправедливости вырос ребенок смешанной расы, рожденный матерью-одиночкой в годы жесточайшего апартеида в ЮАР.
-Мать Тревора научила его использовать юмор, чтобы помочь справиться с жизнью, и он хорошо усвоил этот урок. Несмотря на наличие веских причин для чувства жалости (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D83E42BAE7C3FE468D9C394D2E0469F3A97BE60
 ```
 
 https://mybot314.ru/tekegram_catalog/

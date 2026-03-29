@@ -6,7 +6,7 @@ Process Explorer 12.03 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775193.jpg" />
+  <img src="Z:/picture/005/save_picture_775193.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe AIR 29.0.0.112 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775177.jpg" />
+  <img src="Z:/picture/008/save_picture_775177.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 4.8.2.464 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775117.jpg" />
+  <img src="Z:/picture/008/save_picture_775117.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mozilla Firefox Quantum 59.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775108.jpg" />
+  <img src="Z:/picture/008/save_picture_775108.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ R-Studio 8.0 Build 164486 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775068.jpg" />
+  <img src="Z:/picture/008/save_picture_775068.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Piriform CCleaner Professional 5.41.6446 RePack (& Portable) by elchupacabra  [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775039.jpg" />
+  <img src="Z:/picture/008/save_picture_775039.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CCleaner 5.41.6446 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775038.jpg" />
+  <img src="Z:/picture/008/save_picture_775038.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Flash Player 29.0.0.113 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775036.jpg" />
+  <img src="Z:/picture/008/save_picture_775036.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe Flash Player 29.0.0.113 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775026.jpg" />
+  <img src="Z:/picture/008/save_picture_775026.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft .NET Framework 4.7.2 Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775020.jpg" />
+  <img src="Z:/picture/008/save_picture_775020.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DiskDigger 1.20.9.2707 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775014.jpg" />
+  <img src="Z:/picture/008/save_picture_775014.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Allavsoft Video Downloader Converter 3.16.9.6959 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_775013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_775013.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ EssentialPIM Pro Business Edition 8.13 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775006.jpg" />
+  <img src="Z:/picture/008/save_picture_775006.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mozilla Firefox 47.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774988.jpg" />
+  <img src="Z:/picture/008/save_picture_774988.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Skype 8.37.0.98 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774942.jpg" />
+  <img src="Z:/picture/008/save_picture_774942.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Format Factory 4.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774936.jpg" />
+  <img src="Z:/picture/008/save_picture_774936.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Anvir Task Manager 8.0.5 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774931.jpg" />
+  <img src="Z:/picture/008/save_picture_774931.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ EZ CD Audio Converter 4.0.4.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774919.jpg" />
+  <img src="Z:/picture/008/save_picture_774919.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Anvir Task Manager 8.0.5 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774918.jpg" />
+  <img src="Z:/picture/008/save_picture_774918.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ RAM Saver Professional 19.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774868.jpg" />
+  <img src="Z:/picture/008/save_picture_774868.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ AMD Radeon Software Adrenalin 2019 Edition 19.1.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774864.jpg" />
+  <img src="Z:/picture/008/save_picture_774864.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ IObit Driver Booster Pro 6.2.1.254 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774852.jpg" />
+  <img src="Z:/picture/008/save_picture_774852.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Volume2 1.1.4.330 + Portable + Osd Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774849.jpg" />
+  <img src="Z:/picture/008/save_picture_774849.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Pocket Radio Player 160508 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774844.jpg" />
+  <img src="Z:/picture/008/save_picture_774844.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ FontViewOK 4.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774831.jpg" />
+  <img src="Z:/picture/008/save_picture_774831.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Volume2 1.1.6.411 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774807.jpg" />
+  <img src="Z:/picture/008/save_picture_774807.jpg" />
 </div>
 
 

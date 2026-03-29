@@ -1,3 +1,87 @@
+###  Публикация: 1405844   (481078) от 31.08.2020
+
+Юрий Кудинов (клоун Плюх) - Песни для детей любого возраста. Любимые детские песенки (2012) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ансамбль «Клоун Плюх и дети», Таня Соловьёва - Детство
+02. Клоун Плюх, клоун Швах - День рождения
+03. Клоун Плюх, клоун Швах - Клоуны и дети
+04. Клоун Плюх - Друг(   Читать дальше...   )Жанр: Детские песниПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2B99224EA359FF382E74D1D62B8BA65B67EB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 238406   (480917) от 21.09.2010
+
+Ансамбль песни и танца им. В.С. Локтева - Избранное (2006) [MP3|320 kbps]<PoP, Disco>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня о пионерской дружбе
+2. наш край
+3. Девчонки и мальчишки
+4. Школьная полька(   Читать дальше...   )Жанр: PoP, DiscoПродолжительность: 01:18:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 238121   (480661) от 21.09.2010
+
+Н. Асатрян, И. Скаженик, Ю. Миансарова - Колыбельная (2003) [FLAC|Lossless]<Детские, классические>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детские, классическиеПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566718   (480422) от 30.07.2022
 
 Виктор Пономаренко | Практическая психология для ребят. Семь эмоций семи королевств (2021) [MP3, Юлия Артёмова]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480422.jpg" />
+  <img src="Z:/picture/008/save_picture_480422.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480420.jpg" />
+  <img src="Z:/picture/008/save_picture_480420.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479682.jpg" />
+  <img src="Z:/picture/008/save_picture_479682.jpg" />
 </div>
 
 
@@ -84,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479484.jpg" />
+  <img src="Z:/picture/008/save_picture_479484.jpg" />
 </div>
 
 
@@ -111,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479376.jpg" />
+  <img src="Z:/picture/008/save_picture_479376.jpg" />
 </div>
 
 
@@ -138,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479275.jpg" />
+  <img src="Z:/picture/008/save_picture_479275.jpg" />
 </div>
 
 
@@ -164,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479135.jpg" />
+  <img src="Z:/picture/008/save_picture_479135.jpg" />
 </div>
 
 
@@ -190,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479025.jpg" />
+  <img src="Z:/picture/008/save_picture_479025.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478987.jpg" />
+  <img src="Z:/picture/008/save_picture_478987.jpg" />
 </div>
 
 
@@ -246,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478816.jpg" />
+  <img src="Z:/picture/008/save_picture_478816.jpg" />
 </div>
 
 
@@ -272,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478457.jpg" />
+  <img src="Z:/picture/008/save_picture_478457.jpg" />
 </div>
 
 
@@ -298,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478451.jpg" />
+  <img src="Z:/picture/008/save_picture_478451.jpg" />
 </div>
 
 
@@ -324,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476833.jpg" />
+  <img src="Z:/picture/008/save_picture_476833.jpg" />
 </div>
 
 
@@ -350,7 +434,7 @@ VA- The Best Disney Album In The World… Ever! (3CD) (2006) [MP3|160 kbps]<Де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476351.jpg" />
+  <img src="Z:/picture/008/save_picture_476351.jpg" />
 </div>
 
 
@@ -379,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475152.jpg" />
+  <img src="Z:/picture/008/save_picture_475152.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473200.jpg" />
+  <img src="Z:/picture/008/save_picture_473200.jpg" />
 </div>
 
 
@@ -432,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471003.jpg" />
+  <img src="Z:/picture/008/save_picture_471003.jpg" />
 </div>
 
 
@@ -461,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470420.jpg" />
+  <img src="Z:/picture/008/save_picture_470420.jpg" />
 </div>
 
 
@@ -488,7 +572,7 @@ VA - Babydream. "Songs"  Vol. 1 (2001) [MP3|192 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469616.jpg" />
+  <img src="Z:/picture/008/save_picture_469616.jpg" />
 </div>
 
 
@@ -517,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468858.jpg" />
+  <img src="Z:/picture/008/save_picture_468858.jpg" />
 </div>
 
 
@@ -543,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468160.jpg" />
+  <img src="Z:/picture/008/save_picture_468160.jpg" />
 </div>
 
 
@@ -569,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466918.jpg" />
+  <img src="Z:/picture/008/save_picture_466918.jpg" />
 </div>
 
 
@@ -595,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465018.jpg" />
+  <img src="Z:/picture/008/save_picture_465018.jpg" />
 </div>
 
 
@@ -608,90 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18C36558551559E056095CA90B9CE8BFB821AF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549102   (464867) от 19.09.2012
-
-Т.Габбе | Волшебные кольца Альманзора [1976 / 2012] [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куда только не переносит нас сказка – чудесное сочетание были и небыли. Мы оказываемся под облаками и под землёй, слышим, как переговариваются между собой птицы и звери, усваиваем диковинные названия стран и имена героев, пугаемся и облегчённо вздыхаем, когда, как и положено в сказке, разум и доброта одерживают трудную и прекрасную победу над злостью, коварством и жестокостью.
-
-Тамара Григорьевна Габбе (1903–1960) всю свою жизнь посвятила тому, чтобы для самых широких кругов любителей сказки раскрыть её прелесть, её мудрость, юмор и грусть, её глубокий смысл, её вечную юность.
-
-Сегодня нам предстоит отправиться в комедию-сказку о волшебных кольцах Альманзора. Эти простенькие оловянные кольца нельзя ни купить, ни продать. Они обладают могучей чудодейственной силой, но проявляют её только тогда, когда достаются в подарок любящим друг друга людям. И как бы ни старались глупые или трусливые, жадные или жестокие люди извлечь из этих колец силу, – им это не удастся.Жанр: Инсценировка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CC51F65AFA46EB521F7F749D93C8CF8B01977E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407613   (463992) от 08.09.2020
-
-Александр Афанасьев | Русские народные сказки (2008) [Сборник] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Николаевич Афанасьев (1826 — 1871) — русский собиратель фольклора, исследователь духовной культуры славянских народов, историк и литературовед.
-Издано несколько многотомных сборников для детей и взрослых. Таким образом, его можно считать создателем антологии русских народных сказок.
-Данный сборник содержит детские сказки среди которых есть и малоизвестные.Жанр: Детская литература. СказкиПродолжительность: 07:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80C970E7935EE16170EE47F57CC972E5874D3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246299   (463449) от 10.09.2018
-
-Владислав Крапивин | Давно закончилась осада (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман связан с Севастополем, который автор считает своей второй родиной. Главные мотивы книги — любовь к героическому прошлому, к флоту, морю и парусам. Элементы фантастики, которые вплетаются в ткань произведения, делают его приключенческие сюжеты еще более напряженными.Жанр: Детские приключенияПродолжительность: 13:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F341CE2935434FABBE87504485D53A2135792F68
 ```
 
 https://mybot314.ru/tekegram_catalog/

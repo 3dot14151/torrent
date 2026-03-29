@@ -1,624 +1,22 @@
-###  Публикация: 1387485   (791723) от 01.06.2020
+###  Публикация: 1509960   (792967) от 14.11.2021
 
-Бог грома / Mortal (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повелевать стихией, обращать в пепел прикосновением и заставлять всё живое трепетать от страха — удел языческих богов. Но что произойдет, когда планета столкнется с одним из них во плоти? Ведь этот древний Бог всего лишь человек.Производство: Норвегия, США, Великобритания / 42, Automatik Entertainment, Eldorado FilmЖанр: Фэнтези, боевик, приключенияРежиссер: Андре ОвредалАктеры: Нат Вулф, Приянка Бозе, Ибен М. Акерлие, Артур Хакалахти, Оддрун Валестранд, Равдип Сингх Баджва, Аня Нова, Суннива Линд Ховерстад, Пер Фриш, Нико РусаковПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275032   (791722) от 09.01.2019
-
-Holy State - Demo (2009) [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comatones (2:38)
- 02. Solid State Messiah (vs the Valve Viking) (3:35)
- 03. Repeat and Fade (2:10)
- 04. Skeleton Coast (2:58)Жанр: PunkПродолжительность: 00:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0BAADCC0A13E09CFD71C3974F7A8E81A76F4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275033   (791721) от 09.01.2019
-
-Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollow (1:57)
- 02. Shadows & Dust (2:53)
- 03. Death March (2:22)
- 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275039   (791720) от 09.01.2019
-
-Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Totality (39:06)Жанр: Black MetalПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6550EF1A3316E682E6C47F2E2A44BE9901FA57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274841   (791719) от 09.01.2019
-
-1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     In tenebra
-02.     La vieja sangre
-03.     Piel de mбrtir, carne de asesino
-04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274972   (791718) от 09.01.2019
-
-Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791718.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 John Coltrane - Giant Steps:
-01. Giant Steps [4:47]
-02. Cousin Mary [5:50]
-03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274843   (791717) от 09.01.2019
-
-Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enferma Humanidad
-02. Sabor a Muerte
-03. Pastores Oscuros
-04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275040   (791716) от 09.01.2019
-
-Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ars Moriendi  (4:06)
- 02. Dawn of Misery  (3:58)
- 03. Requiem  (2:02)
- 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274842   (791715) от 09.01.2019
-
-1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legado Sombrío
-02. Contemplaciones
-03. Trofeos de Honor
-04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275036   (791714) от 09.01.2019
-
-VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tortuga - Hell's Red Roads (03:25)
-02. Sylosis - Visions of Demise (04:26)
-03. Romeo Must Die - Who Died and Made You God (03:19)
-04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275042   (791713) от 09.01.2019
-
-Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peeled Back Organs (3:57)
- 02. Embalmed in Perservatives (3:10)
- 03. Slime (3:36)
- 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274838   (791712) от 09.01.2019
-
-Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth of the Universe
-02. Moonchild
-03. Surveillance Society
-04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274839   (791711) от 09.01.2019
-
-Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evermore
-02. Prisoner
-03. The Fallen
-04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274991   (791710) от 09.01.2019
-
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274946   (791709) от 09.01.2019
-
-VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Draxler - Right Time (Club Mix) 4:28
-02. Christopher G - Bassline Drops (Club Mix) 4:56
-03. Tom Bekker - What You Got (Instrumental Mix) 4:49
-04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
-
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
-
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274141   (791706) от 09.01.2019
-
-VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
-02. Find Your Way (Sunrise Mix)-Moon Rocket
-03. Baakoya (Armonica Remix)-Mabiisi
-04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274889   (791705) от 09.01.2019
-
-VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
-02. Nico Del Prato - Anymore (Radio Edit) 3:07
-03. Enormous Cats - Ready Or Not (Club Mix) 4:31
-04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274852   (791704) от 09.01.2019
-
-Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsoi (4:54)
-02. Aamu Ja Kaste (6:20)
-03. Lumikuuro (7:02)
-04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274912   (791703) от 09.01.2019
-
-Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remote (17:58)
- 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274609   (791702) от 09.01.2019
-
-Dropzone 3.7.0 [En]
+MP3 Encoder 2.18 fix [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791702.jpg" />
+  <img src="Z:/picture/008/save_picture_792967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+MP3 Encoder позволяет конвертировать различные аудиоформаты в MP3, используя простой интерфейс для высококачественного кодировщика LAME. MP3 Encoder также можно использовать как простой редактор тегов MP3.Тип издания: macOS SoftwareРелиз состоялся: 09.07.2020Разработчик: ©2021 Mark V AppsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
+magnet:?xt=urn:btih:F201C7C1A9AE3FF91FDD141AAE54DE22AEF5EA61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275067   (791701) от 09.01.2019
+###  Публикация: 1274202   (792966) от 07.01.2019
 
-Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
+Мартти Ларни | Сборник произведений [4 книги] (1973-1999) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Художественная литература
+>>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791701.jpg" />
+  <img src="Z:/picture/008/save_picture_792966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I (4:58)
-02. II (4:42)
-03. III (5:15)
-04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
+Мартти Ёханнес Ларни (фин. Martti Johannes Larni, до 1942 года носил фамилию Лайне (Laine); 22 сентября 1909, Пакила, Хельсинки - 7 марта 1993, Хельсинки) - финский писатель и журналист. Был председателем Союза писателей Финляндии. Награждён медалью "Pro Finlandia".
+В 1948-1949 и 1951-1954 Маррти Ларни жил в США. В 1948 опубликовал исторический роман "Небо (   Читать дальше...   )Жанр: Проза, юмор, сатираФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
+magnet:?xt=urn:btih:22DE2D93C204A839F1C963EEA143E09B07CBB132
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275031   (791700) от 09.01.2019
+###  Публикация: 1274655   (792965) от 07.01.2019
 
-Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
+Шрифты - Creative Market - Bilbao | Handcrafted Sans Serif - 2266873 [TTF, OTF, WOFF, EOT]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791700.jpg" />
+  <img src="Z:/picture/008/save_picture_792965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Нетакой (feat. Ксения Стрижакова)
-2. Вдруг это всё (feat. Алексей Кортнев)
-3. Селфи (feat. Валерий Сюткин)
-4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
+Бильбао - это многоязычный рукописный шрифт без засечек. С его повседневным стилем, он может быть победителем для свадебных бланков и блоггеров. Его непринужденный рукописный вид идеально подходит для логотипов, печатных цитат, приглашений на свадьбу, заголовков социальных сетей, упаковки товаров и многого другого!Формат: TTF, OTF, WOFF, EOT, SVG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
+magnet:?xt=urn:btih:A225E7B0E1488BB8646931BEE4B7662B9D02DD99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274945   (791699) от 09.01.2019
+###  Публикация: 1274518   (792964) от 07.01.2019
 
-VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
+Рождественская песенка года (07.01.2019) SATRip
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
+  <img src="Z:/picture/008/save_picture_792964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Avantgardet - Walk Of Shame
-002. Hazey Eyes - Scars (Ukiyo Remix)
-003. Horses Without Makeup - Forget About Chlorine
-004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
+Телефестиваль «Рождественская песенка года» в канун светлого праздника дарит зрителям НТВ возможность услышать уникальные дуэты звезд российской эстрады и начинающих исполнителей. В концерте принимают участие: Валерия, Александр Панайотов, Жасмин, Дина Гарипова, Сосо Павлиашвили, Олег Газманов, Стас Пьеха, а также группы «Artik & Asti», «Дискотека Авария» и «Пицца». (   Читать дальше...   )Жанр: Телепередача, ТВ-шоуПеревод: ОтсутствуетПродолжительность: 01:24:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
+magnet:?xt=urn:btih:8995DDB3562113B17310012991EF3910B99CAEB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +103,579 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274948   (791698) от 09.01.2019
+###  Публикация: 1274586   (792963) от 07.01.2019
 
-VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+А.А. Трухан, Т.В. Огородникова | Обыкновенные дифференциальные уравнения и методы их решения. Ряды. Элементы вариационного исчисления (2019) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791698.jpg" />
+  <img src="Z:/picture/008/save_picture_792963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Foreigner - Blue Morning, Blue Day
-02. Chicago - Little One
-03. Daryl Hall & John Oates - When the Morning Comes
-04. America - Don't Cross the River(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:43:51
+Учебное пособие содержит подробное изложение основных вопросов курсов «Обыкновенные дифференциальные уравнения», «Операционное исчисление», «Ряды» и «Вариационное исчисление», соответствующее требованиям к минимуму основной обязательной программы по подготовке дипломированных специалистов.
+Рассматриваются методы решения дифференциальных уравнений (ДУ) первого и второго (   Читать дальше...   )Жанр: МатематикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:967B7CC533A689DC4E66503AA89580DEA712543F
+magnet:?xt=urn:btih:34B02C1F01BADC0DCABFF1307F82F2C684EE0706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274456   (792962) от 07.01.2019
+
+Шрифты - RenegadeFonts - Hela [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hela-это высококонтрастный округлый шрифт с интерполяцией. Hela происходит от надписи старой чешской текстильной компании Helana, которая больше не существует, но вывеска все еще находится на здании.
+Поддержки кириллицы нет!Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350FBAB0BA39CA3466CCAECE83014EF9D2AA12E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274525   (792961) от 07.01.2019
+
+Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Седьмая часть захватывающей тайм-менеджмент стратегии от Groqing Grass Studio и Big Fish Games.Тип издания: UnofficialРазработчик: Groqing Grass StudioЖанр: СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E25A91ECC24026DE75EF68F47D5DC85B21F183F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274635   (792960) от 07.01.2019
+
+И. А. Блинов, А. И. Буковецкий (ред., сост.) | Финансовая энциклопедия (1924) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финансовая Энциклопедия преследует цель служить справочным пособием как для всех лиц, интересующихся финансовыми вопросами, так и в особенности для начинающих финработников, желающих ориентироваться в своей практической специальности и смежных с ней областях. Сообразно с этим заданием определилась и форма, и содержание издания. Пестрота и разнообразие тем, по которым (   Читать дальше...   )Жанр: История, политология, экономика, энциклопедия, словарь, справочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFDB1F558AD882F121C1F9766F03AF2E2AEC6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274547   (792959) от 07.01.2019
+
+Luminar 3 v3.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar первый в мире редактор фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет вас сделать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C42208F242CB4C1F4BEC0B06C0253CB7A8110FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274643   (792958) от 07.01.2019
+
+Шрифты - Creative Market - LaMonaPro"72 FontsGreek+Cyrillic - 552487 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792958.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Mona Pro (2015-2016) Концепция: La Mona Pro, Mona - это редизайн дизайна 2012 года. Греческий язык чувствителен к регистру, как и в кириллице, он содержит лигатуры, орнаменты, слои, тени, альтернативные штрихи, типографику Mona. Pro разработан с большим количеством вариантов.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21692E5BDB2BCF7363A765DB7FCFB6AE0819CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831241   (792957) от 07.01.2019
+
+Монах Павел Евергетинос | Благолюбие [4 Тома] (2010) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рукопись монахом Павлом была закончена в 1054 году. В конце XVIII века ее обнаружил преподобный Макарий Нотара, епископ Коринфский, в монастыре Кутлумуш на Святой Горе Афон, и впервые напечатал преподобный Никодим Святогорец, отредактировав и обогатив ее богословским комментарием, в Венеции в 1783 году. «Благолюбие», по словам Никодима Святогорца, — «самый верный (   Читать дальше...   )Жанр: Святоотеческое наследиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A0E4B7616BE3A65EA6989DC3B72942EFD5260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274485   (792956) от 07.01.2019
+
+А.В. Строгонов | Цифровая обработка сигналов в базисе программируемых логических интегральных схем (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматривается проектирование устройств цифровой обработки сигналов для реализации в базисе ПЛИС. Даются практические примеры проектирования цифровых фильтров с использованием высокоуровневого языка описания аппаратурных средств VHDL и мегафункций в САПР ПЛИС Altera Quartus II и Xilinx ISE Design Suite.
+Издание соответствует требованиям Федерального (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226DE9FAFC5E87EBFDA684FCA5511DC13CDEDDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274562   (792955) от 07.01.2019
+
+Воздушный проект: Лос-Анджелес / Aerial Project: Los Angeles (2018) WEBRip [H.264/2160p] [4K, UHD]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский фотограф и лауреат Пулитцеровской премии Винсент Лафоре запечатлел огни ночных мегаполисов с высоты птичьего полёта. Фотограф проводил съёмки с вертолета на высоте более двух тысяч метров, что позволило ему снять захватывающие панорамы городов с их уникальными деталями. В объектив фотографа попали такие города, как Нью-Йорк, Чикаго, Лос-Анджелес, Лас-Вегас, (   Читать дальше...   )Производство: СШАЖанр: Документальный, видовойРежиссер: Винсент ЛафореПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C27443717643E5705E850750E177FB4C66308F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274620   (792954) от 07.01.2019
+
+Шрифты - Creative Market - BullyGirl Complete - 4697 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792954.jpg" />
+</div>
+
+
+###  Подробнее
+
+BullyGirl - это два весовых нерегулярных и шумных шрифта. Он имеет 3 стилистических набора для верхних и нижних символов, для имитации ручного набора текста. Более того, у BullyGirl есть множество альтернатив и лигатур.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289D952A4E921D229955099DE59A37544BC4CA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274622   (792953) от 07.01.2019
+
+Шрифты - Creative Market - Croogla 4F Regular - 479898 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Croogla 4F это простой шрифт, который хорошо и стильно выглядит. Используйте его для различных Ваших идей и целей.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B5453AA1810B928B66AA7F8253262DEE7B3457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274339   (792952) от 07.01.2019
+
+Audirvana Plus 3.2.14 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4581A591939C540770870B8569CDC54A39B531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600773   (792951) от 07.01.2019
+
+Друг мой, Колька!.. (1961) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученики обычной средней школы организуют «тайное общество» под девизом «Помогать обиженным и слабым, мстить зубрилам и выскочкам!» Новый пионервожатый поддерживает ребят, и вскоре ему удается сделать школьную жизнь детей по-настоящему увлекательной.Жанр: ДрамаРежиссер: Александр МиттаАктеры: Анатолий Кузнецов, Борис Новиков, Савелий Крамаров, Юрий НикулинПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448F868DF44D115A328A18B122C53ADD8EC81E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274642   (792950) от 07.01.2019
+
+Шрифты - Creative Market - La Mona Kids / Cyrillic+Greek - 682077 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792950.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Mona Kids это довольно интересный шрифт, который относится к типу детской графики.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274497   (792949) от 07.01.2019
+
+Крис Скиннер | ValueWeb. Как финтех-компании используют блокчейн и мобильные технологии для создания интернета ценностей (2018) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге Крис Скиннер проводит глубокий анализ обмена ценностями в развивающемся цифровом мире. На основе примеров из практики, интервью и личных наблюдений автор объясняет, как мир переходит от традиционных валют к ValueWeb, интернету ценностей, и описывает, как технологии подрывают традиционную отрасль финансовых услуг, делая транзакции проще и дешевле, а также (   Читать дальше...   )Жанр: Банковское дело, Зарубежная деловая литература, Финансовые инструментыПеревод: Наталья ЯцюкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314E3F19F66278CF5CF860DC85A4E713C1FD5E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274426   (792948) от 07.01.2019
+
+Хэллоуин / Halloween (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зло неизменно возвращается, и им нельзя управлять. Его можно временно уничтожить, застрелить, сжечь, но вернется оно всё равно неизбежно. Майкл Майерс не закончил свое дело в Хэддонфилде, и скоро он вернётся домой, чтобы снова убивать.Производство: США / Blumhouse Productions, Miramax Films, Rough House Pictures, Trancas International Films Inc., Universal PicturesЖанр: Ужасы, ТриллерРежиссер: Дэвид Гордон ГринАктеры: Джейми Ли Кёртис, Джуди Грир, Энди Мэтичак, Джеймс Джуд Кортни, Ник Касл, Халук Бильгинер, Уилл Пэттон, Риан Риис, Джефферсон Холл, Тоби ХассПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848F4A5851F4E95FDAC0F890D1AD4848CC336525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274564   (792947) от 07.01.2019
+
+Воздушный проект: 33К / Aerial Project: 33К (2017) WEBRip [H.264/2160p] [4K, UHD]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для меня это очень особенный проект, который я задумал и направил для одного из моих любимых клиентов, который пока останется безымянным. За несколько месяцев подготовки и исследований мы модифицировали LearJet и полетели над землей, глядя прямо вниз на несметную красоту того, что может предложить нам Мать-Природа.Производство: СШАЖанр: Документальный, видовойРежиссер: Винсент ЛафореПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B044FF77DB3721C519F468792C862982704A203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509879   (792946) от 14.11.2021
+
+Евгений Вайсберг | Невероятные приключения Жирафика Виви. Книга 1 (2021) [MP3, Егор Серов; Алиса Ефименко; Лариса Брохман; Всеволод Кузнецов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виви – волшебная девочка-жираф с озорным характером и отважным сердцем – загадочно исчезает из зоопарка в Калифорнии. Научившись летать и говорить на разных языках, она отправляется в необыкновенное путешествие через Париж в Африку. Виви хочет отыскать на бескрайних просторах саванны своего Старшего Брата. По дороге её ждёт множество приключений, интересных знакомств (   Читать дальше...   )Жанр: Детская литература/СказкаПродолжительность: 02:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8469CDA9350C886BEC5B136DBDEBAB890E441D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509826   (792945) от 14.11.2021
+
+Unheilig - Lichterland - Best Of (Deluxe) (2021) [AAC|~322 Kbps] <Industrial, Gothic Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792945.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Lichter der Stadt (Radio Version) (3:44)
+1.02. Geboren um zu leben (3:49)
+1.03. Unheilig, Andreas Bourani - Wie wir waren (Single Edit) (3:36)
+1.04. Lichtermeer (3:42)(   Читать дальше...   )Жанр: Industrial, Gothic MetalПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90767717F990665D1004966A9DDB50E483D1BE30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509974   (792944) от 14.11.2021
+
+Picture Collage Maker 3 v3.7.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Picture Collage Maker — простой в использовании генератор коллажей, который превращает обычные фотографии в потрясающие подарки на память, чтобы поделиться с семьей и друзьями. С помощью всего лишь нескольких щелчков мыши, вы можете создавать разнообразные фотоколлажи, плакаты, приглашения, календари и поздравительные открытки с применением вращений, изменения размеров, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2021Разработчик: © 2019 PearlMountain Technology Co., Ltd.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD66764FD7A6B7C72FA03180C15ED2B43AF9B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509825   (792943) от 14.11.2021
+
+Acon Digital Acoustica Premium Edition 7.3.22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium — многофункциональный аудиоредактор с поддержкой многоканальных форматов объемного звука 5.1 и 7.1. Средства программы обеспечат точное управление деталями производства аудио CD (длина пауз, индексные маркеры, поля CD-TEXT). В Acoustica Premium встроен широкий диапазон инструментов профессионального качества для мастеринга и звукового дизайна, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © Acon AS.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813AD576DD27F6C45B30B50964C4449D0BE6CB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510009   (792942) от 14.11.2021
+
+Switch 1.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте командами оболочки с помощью Switch, простое контекстное меню SSH.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2021Разработчик: © code4youПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309EC6ACC7B3268B41A36D590B90561FAE2B6D59
 ```
 
 https://mybot314.ru/tekegram_catalog/

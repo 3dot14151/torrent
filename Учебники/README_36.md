@@ -1,3 +1,56 @@
+###  Публикация: 1131605   (704814) от 07.05.2017
+
+В.А. Терехов | Задачник по электронным приборам (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит задачи и вопросы по электронным приборам. Большое число вопросов и задач включено с целью связать изучение электровакуумных и полупроводниковых приборов с простейшими радиоэлектронными схемами в различных условиях работы. В настоящее издание включены задачи по современным приборам.
+Для студентов вузов, в которых изучается электроника, радиотехника, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4B42C3E5C8186611CB5423D4048D048237BB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131642   (704810) от 07.05.2017
+
+Е.А. Колосовский | Устройства приема и обработки сигналов [2-е издание] (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дисциплина «Устройства приема и обработки сигналов» является базовой для изучения специальных дисциплин и вносит непосредственный вклад в подготовку выпускника по специальности «Радиотехника». Курс лекций по дисциплине соответствует учебной программе и рассчитан на обучаемых всех специализаций. Он имеет целью оказать помощь в самостоятельном изучении теоретических (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76065C576ECFFB0AD989EEF79577173C98D3C378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131877   (704603) от 07.05.2017
 
 В.Н. Черноиван, С.Н. Леонович | Каменные работы (2014) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704603.jpg" />
+  <img src="Z:/picture/008/save_picture_704603.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704536.jpg" />
+  <img src="Z:/picture/008/save_picture_704536.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Kenneth H. Rosen | Discrete mathematics and its applications 7th ed. (+Full Solu
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704121.jpg" />
+  <img src="Z:/picture/008/save_picture_704121.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702832.jpg" />
+  <img src="Z:/picture/008/save_picture_702832.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702823.jpg" />
+  <img src="Z:/picture/008/save_picture_702823.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702816.jpg" />
+  <img src="Z:/picture/008/save_picture_702816.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702667.jpg" />
+  <img src="Z:/picture/008/save_picture_702667.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702663.jpg" />
+  <img src="Z:/picture/008/save_picture_702663.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702071.jpg" />
+  <img src="Z:/picture/008/save_picture_702071.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701630.jpg" />
+  <img src="Z:/picture/008/save_picture_701630.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701107.jpg" />
+  <img src="Z:/picture/008/save_picture_701107.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700657.jpg" />
+  <img src="Z:/picture/008/save_picture_700657.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Susanna S. Epp | Discrete Mathematics with Applications 4ed (+ Full Solution Man
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700520.jpg" />
+  <img src="Z:/picture/008/save_picture_700520.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699166.jpg" />
+  <img src="Z:/picture/008/save_picture_699166.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698120.jpg" />
+  <img src="Z:/picture/008/save_picture_698120.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698024.jpg" />
+  <img src="Z:/picture/008/save_picture_698024.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697935.jpg" />
+  <img src="Z:/picture/008/save_picture_697935.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697598.jpg" />
+  <img src="Z:/picture/008/save_picture_697598.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697502.jpg" />
+  <img src="Z:/picture/008/save_picture_697502.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697488.jpg" />
+  <img src="Z:/picture/008/save_picture_697488.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695025.jpg" />
+  <img src="Z:/picture/008/save_picture_695025.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695013.jpg" />
+  <img src="Z:/picture/008/save_picture_695013.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693797.jpg" />
+  <img src="Z:/picture/008/save_picture_693797.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693637.jpg" />
+  <img src="Z:/picture/008/save_picture_693637.jpg" />
 </div>
 
 
@@ -627,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3C28F0A0DF2B1354B3D0205E6488F903F2759C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133680   (693146) от 13.05.2017
-
-Л.Г. Лишин, О.Б. Попов | Запись цифровых аудио- и видеосигналов (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематизирована обширная информация в области современных способов записи аудио- и видеоинформации, ее накопления, хранения и преобразования в различных форматах. Представлены сведения по истории развития, принципам работы, параметрам и характеристикам различных систем записи и архивирования информации. Приведены примеры практической реализации систем записи и (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BA91462556E09CC55421B1EC7D41521BADF27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133651   (693134) от 13.05.2017
-
-А.М. Сомов и др. | Устройства СВЧ и малогабаритные антенны (2012) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены общие положения теории электромагнитных волн и устройств СВЧ, рассмотрены различные линии передачи, включая волноводы прямоугольного и круглого сечения, коаксиальные и микрополосковые линии, указаны способы согласования их сопротивлений.
-Также рассмотрены объемные резонаторы, построенные на основе линий питания, и элементы СВЧ. В завершении рассмотрены различные (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30765744B21751E04E151273FCECB1EA90F58483
 ```
 
 https://mybot314.ru/tekegram_catalog/

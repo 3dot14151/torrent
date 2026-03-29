@@ -1,3 +1,56 @@
+###  Публикация: 1398780   (1027156) от 09.03.2021
+
+Энн Райс | Собрание произведений [96 книг, 12 комиксов, 1 манга] (1976 - 2021) [FB2, PDF, DOCX, EPUB, RTF] RUS, ENG [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027156.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941 — родилась в Новом Орлеане и получила при рождении имя “Говард Аллен О’Брайен” – мать считала, что если дать дочери мужское имя, то это ей сильно поможет в будущем. Испытать это суеверие на практике не довелось, так как с первого дня учебы в школе 6-летняя девочка заставила всех называть себя “Энн” – только «Энн».
+1956 – умирает мать – алкоголичка и ревностная (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Мистика, О вампирахФормат: FB2, PDF, DOCX, EPUB, RTF, CBR, CBZ, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A8DF61D9E9046A7FC7BA97D8E4D54D5CD74A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438904   (1026862) от 11.03.2021
+
+Брайан Смит | Собрание произведений [12 книг] (2010 - 2021) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Ноя пошла под откос еще до того, как из-за вспышки неизвестного вируса человечество оказалось на пороге исчезновения. Неожиданная встреча с давно потерянной сестрой заставляет героя столкнуться лицом к лицу с призраками прошлого и последствиями тяжелой зависимости. Путешествуя по вымершим дорогам когда-то цветущего мира, Ной пытается отыскать утраченную возлюбленную, (   Читать дальше...   )Жанр: Фантастика, Мистика, Триллер, Сплаттерпанк, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0D7B55A06742433C931A63818014608E4C84CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433150   (1025933) от 17.03.2021
 
 Хью Пентикост (Джадсон Пентикост Филипс) | Сборник произведений [30 книг] (1982-2018) [FB2] [Обновляемая]
@@ -6,7 +59,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025933.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025695.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025003.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024679.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024301.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023959.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022860.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017971.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017535.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008798.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004091.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003396.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001839.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001369.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000315.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000125.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999545.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998779.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998223.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996963.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996311.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996290.jpg" />
 </div>
 
 
@@ -596,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995379.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994729.jpg" />
 </div>
 
 
@@ -638,60 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA74415367D83B70034E3AFD4C95014140399B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336179   (993082) от 16.01.2020
-
-Чайна Мьевиль | Собрание произведений [24 книги] (2006 - 2020) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чайна Том Мьевиль (англ. China Tom Miéville, род. 6 сентября 1972, Норидж) — британский писатель-фантаст. Он определяет свой жанр как «странную фантастику» (weird fiction).
-С раннего детства Мьевилль жил в Лондоне. С восемнадцати лет он преподавал английский язык, жил в Египте, где у него появился интерес к арабской культуре и ближневосточной политике. Мьевиль (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Магический реализм, Ужасы, СтимпанкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47A342A8F7B3A41189E2DADCA54592FAACC0CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609561   (990812) от 28.01.2013
-
-Джеймс Фенимор Купер | Сборник произведений [1958-2012] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Фенимор Купер (1789-1851) - знаменитый американский романист, классик приключенческой литературы.
-Свою первую книгу опубликовал в 1820 году. Это был роман под названием "Предостережение", не снискавший успеха у публики. Слава к Куперу пришла год спустя, с выходом романа "Шпион", а ещё через два года началось триумфальное шествие по миру Кожаного Чулка и его товарищей - роман "Пионеры" увидел свет в 1823 году...Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB07EBD9082E482828556650CCD971003EF7E401
 ```
 
 https://mybot314.ru/tekegram_catalog/

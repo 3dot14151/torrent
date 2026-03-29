@@ -6,7 +6,7 @@ Adobe components: Flash Player 22.0.0.192 | AIR 22.0.0.153 | Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697900.jpg" />
+  <img src="Z:/picture/008/save_picture_697900.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Luxion Keyshot Pro 6.2.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697899.jpg" />
+  <img src="Z:/picture/008/save_picture_697899.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VKMusic 4.67 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697896.jpg" />
+  <img src="Z:/picture/008/save_picture_697896.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JRiver Media Center 26.0.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697810.jpg" />
+  <img src="Z:/picture/008/save_picture_697810.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ YT Downloader 7.0.19 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697807.jpg" />
+  <img src="Z:/picture/008/save_picture_697807.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697795.jpg" />
+  <img src="Z:/picture/008/save_picture_697795.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697781.jpg" />
+  <img src="Z:/picture/008/save_picture_697781.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Ashampoo Photo Commander 16.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697711.jpg" />
+  <img src="Z:/picture/008/save_picture_697711.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Google Chrome 84.0.4147.125 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697705.jpg" />
+  <img src="Z:/picture/008/save_picture_697705.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Nox App Player 3.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697699.jpg" />
+  <img src="Z:/picture/008/save_picture_697699.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.06) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697697.jpg" />
+  <img src="Z:/picture/008/save_picture_697697.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697695.jpg" />
+  <img src="Z:/picture/008/save_picture_697695.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kaspersky Internet Security 2016 16.0.1.445 (c) MR1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697684.jpg" />
+  <img src="Z:/picture/008/save_picture_697684.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Telegram Desktop 2.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697585.jpg" />
+  <img src="Z:/picture/008/save_picture_697585.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wondershare UniConverter 12.0.3.5 Repack by elchupacabra 64-bit [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697578.jpg" />
+  <img src="Z:/picture/008/save_picture_697578.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ KMSAuto Net 2015 1.4.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697564.jpg" />
+  <img src="Z:/picture/008/save_picture_697564.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ HitmanPro 3.7.14 Build 265 RePack by norton46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697561.jpg" />
+  <img src="Z:/picture/008/save_picture_697561.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Beyond Compare Pro 4.1.6 build 21095 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697551.jpg" />
+  <img src="Z:/picture/008/save_picture_697551.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ GeoGebra 6.0.691.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697518.jpg" />
+  <img src="Z:/picture/008/save_picture_697518.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FireAlpaca 2.7.6 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697517.jpg" />
+  <img src="Z:/picture/008/save_picture_697517.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BitComet 1.86 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697511.jpg" />
+  <img src="Z:/picture/008/save_picture_697511.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Avast Secure Browser 72.0.1174.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697500.jpg" />
+  <img src="Z:/picture/008/save_picture_697500.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Wise Registry Cleaner Pro 10.1.6.677 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697499.jpg" />
+  <img src="Z:/picture/008/save_picture_697499.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Topaz Video Enhance AI 1.5.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697449.jpg" />
+  <img src="Z:/picture/008/save_picture_697449.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 16.08.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697433.jpg" />
+  <img src="Z:/picture/008/save_picture_697433.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Slimjet 3.1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697416.jpg" />
+  <img src="Z:/picture/008/save_picture_697416.jpg" />
 </div>
 
 

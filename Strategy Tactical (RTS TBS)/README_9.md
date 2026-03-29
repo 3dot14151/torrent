@@ -6,7 +6,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перестрелка [Ru/En] (L/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504086.jpg" />
+  <img src="Z:/picture/008/save_picture_504086.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) Repack R.G. Механики [De
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501929.jpg" />
+  <img src="Z:/picture/008/save_picture_501929.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Real Warfare: 1242 / История Войн: Александр Невский 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501401.jpg" />
+  <img src="Z:/picture/008/save_picture_501401.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Worms W.M.D (2016) [Ru/En] (1.0.1637/dlc) Repack Mizantrop1337
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500169.jpg" />
+  <img src="Z:/picture/008/save_picture_500169.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Pacific Storm: Allies / Стальные монстры: Союзники [Ru] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496530.jpg" />
+  <img src="Z:/picture/008/save_picture_496530.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Galaxy Reavers (2016) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491449.jpg" />
+  <img src="Z:/picture/008/save_picture_491449.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ravenmark: Scourge of Estellion (2015) [En] (1.18) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487196.jpg" />
+  <img src="Z:/picture/008/save_picture_487196.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (1.32.10.18820) Repack dixen18
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483961.jpg" />
+  <img src="Z:/picture/008/save_picture_483961.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Panzer Strategy (2018) [Ru/En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481537.jpg" />
+  <img src="Z:/picture/008/save_picture_481537.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Order of Battle: World War II  (2016) [Ru/Multi] (4.1.4/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479517.jpg" />
+  <img src="Z:/picture/008/save_picture_479517.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478505.jpg" />
+  <img src="Z:/picture/008/save_picture_478505.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475513.jpg" />
+  <img src="Z:/picture/008/save_picture_475513.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.8.2.81.5642/dlc) License RELOAD
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473419.jpg" />
+  <img src="Z:/picture/008/save_picture_473419.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.1.1) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471408.jpg" />
+  <img src="Z:/picture/008/save_picture_471408.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466992.jpg" />
+  <img src="Z:/picture/008/save_picture_466992.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Battlefleet Gothic: Armada (2016) [Ru/Multi] (1.7.9962/dlc) Repack R.G. Меха
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463502.jpg" />
+  <img src="Z:/picture/008/save_picture_463502.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462822.jpg" />
+  <img src="Z:/picture/008/save_picture_462822.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Winter Ember (2022) [Ru/Multi] (1.6.0_526e457) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461523.jpg" />
+  <img src="Z:/picture/008/save_picture_461523.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.3.85/dlc) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448033.jpg" />
+  <img src="Z:/picture/008/save_picture_448033.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (Rip/1.00.2) 2012 | Audiosl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447450.jpg" />
+  <img src="Z:/picture/008/save_picture_447450.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Black and White Антология [Ru/En] (RePack) 2001-2006 | R.G. ReCoding
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440608.jpg" />
+  <img src="Z:/picture/005/save_picture_440608.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Frozen Synapse: Prime (2014) [En/Multi] (upd4.1) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439545.jpg" />
+  <img src="Z:/picture/008/save_picture_439545.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Final Theory (2018) [En] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432491.jpg" />
+  <img src="Z:/picture/008/save_picture_432491.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430656.jpg" />
+  <img src="Z:/picture/008/save_picture_430656.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429017.jpg" />
+  <img src="Z:/picture/008/save_picture_429017.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.12) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427012.jpg" />
+  <img src="Z:/picture/008/save_picture_427012.jpg" />
 </div>
 
 

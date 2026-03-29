@@ -6,7 +6,7 @@ Project Office Pro 8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806520.jpg" />
+  <img src="Z:/picture/008/save_picture_806520.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SuperDuper! 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806518.jpg" />
+  <img src="Z:/picture/008/save_picture_806518.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SSH Config Editor Pro 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806516.jpg" />
+  <img src="Z:/picture/008/save_picture_806516.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AnyGo 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806438.jpg" />
+  <img src="Z:/picture/008/save_picture_806438.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PDF to Word&Document Converter 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806435.jpg" />
+  <img src="Z:/picture/008/save_picture_806435.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TechSmith Snagit 2021.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806434.jpg" />
+  <img src="Z:/picture/008/save_picture_806434.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Easy Data Transform 1.21.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806433.jpg" />
+  <img src="Z:/picture/008/save_picture_806433.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806432.jpg" />
+  <img src="Z:/picture/008/save_picture_806432.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FileZilla 3.56.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806429.jpg" />
+  <img src="Z:/picture/008/save_picture_806429.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806425.jpg" />
+  <img src="Z:/picture/008/save_picture_806425.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806424.jpg" />
+  <img src="Z:/picture/008/save_picture_806424.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806423.jpg" />
+  <img src="Z:/picture/008/save_picture_806423.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Music Tag Editor 2 v5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806402.jpg" />
+  <img src="Z:/picture/008/save_picture_806402.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Middle 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806401.jpg" />
+  <img src="Z:/picture/008/save_picture_806401.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ SQLPro Studio 2020.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806400.jpg" />
+  <img src="Z:/picture/008/save_picture_806400.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Acoustica Premium Edition 7.3.17 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806392.jpg" />
+  <img src="Z:/picture/008/save_picture_806392.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ HitPaw Screen Recorder 1.2.3.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806385.jpg" />
+  <img src="Z:/picture/008/save_picture_806385.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806379.jpg" />
+  <img src="Z:/picture/008/save_picture_806379.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806377.jpg" />
+  <img src="Z:/picture/008/save_picture_806377.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Thlaaflaa - Discography 5 Releases (2014-2015) [FLAC|Lossless|WEB-DL|tracks|24Bi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806376.jpg" />
+  <img src="Z:/picture/008/save_picture_806376.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.19 (0901) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806371.jpg" />
+  <img src="Z:/picture/008/save_picture_806371.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Venetian Snares - She Began To Cry Tears Of Blood Which Became Little Brick Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806369.jpg" />
+  <img src="Z:/picture/008/save_picture_806369.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806367.jpg" />
+  <img src="Z:/picture/008/save_picture_806367.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Last Autumn's Dream - Fourteen (2017) Japan [FLAC|Lossless|image + .cue] <Melodi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806363.jpg" />
+  <img src="Z:/picture/008/save_picture_806363.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ iBarcoder 3.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806357.jpg" />
+  <img src="Z:/picture/008/save_picture_806357.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ FigrCollage 2 v2.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806355.jpg" />
+  <img src="Z:/picture/008/save_picture_806355.jpg" />
 </div>
 
 

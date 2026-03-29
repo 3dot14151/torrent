@@ -1,3 +1,29 @@
+###  Публикация: 1477676   (1010727) от 16.06.2021
+
+Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Топоры наточены, команда наготове, рубашки отглажены! Все силы природы объединились против Вас и единственный путь к победе - слаженная командная работа. В этой безумной гонке со временем Вам надо валить лес и загонять скотину в хлев. Звучит просто? Ах да, мы забыли сказать про метеориты, динозавров и саму матушку-природу, готовых остановить Вас любой ценой. Время (   Читать дальше...   )Тип издания: LicenseРазработчик: 2BIGo, ARP GamesЖанр: Cooperative, Simulator, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F3253D00A3A4D6B70BD9D5A26D82921F533250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488695   (1001672) от 12.08.2021
 
 Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
@@ -6,7 +32,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001672.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001612.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989644.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Flower (2019) [Ru/Multi] (1.45) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971524.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.7.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963885.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Train Sim World 2020 (2018) [Ru/Multi] (1.0/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961709.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Train Sim World: 2020 Edition (2018) [Ru/Multi] (1.0.0.550/dlc) Repack xatab [Di
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956598.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Timber! The Logging Experts (2016) [En/De] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954945.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ World of Subways Vol. 1: New York Underground "The Path" / Метро Нью-Й�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_945960.jpg" />
+  <img src="Z:/picture/009/save_picture_945960.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944458.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944454.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931883.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Legend of Merchant (2016) [Multi] (1.83) Unofficial SiMPLEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931791.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928682.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Masters of The World: Geopolitical Simulator 3 [En] (L) 2013 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927883.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927190.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Bus Simulator 18 (2018) [Ru/Multi] (1.0/upd13/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909969.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909950.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Mainlining (2017) [En] (1.0.06.9536) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902568.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Kitaria Fables (2021) [Ru/Multi] (7286275) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896950.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ OPUS: Echo of Starsong (2021) [Multi] (7280057) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896849.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.7.c/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889688.jpg" />
+  <img src="Z:/picture/005/save_picture_889688.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Take On Mars (2017) [En] (1.0) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888506.jpg" />
+  <img src="Z:/picture/005/save_picture_888506.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.754.6956) Repack Valdeni
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885617.jpg" />
+  <img src="Z:/picture/005/save_picture_885617.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ SimAirport (2020) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879620.jpg" />
+  <img src="Z:/picture/005/save_picture_879620.jpg" />
 </div>
 
 
@@ -642,34 +668,6 @@ SimAirport (2020) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBACFCA0180A052920FAAC49B7A38766C19111F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996616   (878533) от 14.03.2016
-
-Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition]
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в новое поколение Farming Simulator!
-Farming Simulator 15 - это открытый мир и улучшенная графика и физика. Работайте на ферме в одиночку или в сетевой игре. Разводите животных, собирайте и продавайте урожай и покупайте мощную технику. В Farming Simulator 15 появилось и новое занятие: рубка деревьев.
-Вас ждет новый северный ландшафт и переработанный (   Читать дальше...   )Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5EF5C3D7606D849C0F95EA2A0316AF7A222E69
 ```
 
 https://mybot314.ru/tekegram_catalog/

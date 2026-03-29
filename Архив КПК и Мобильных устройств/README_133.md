@@ -1,3 +1,29 @@
+###  Публикация: 1759547   (101363) от 14.12.2024
+
+Photo Editor v11.1 Pro Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 14.12.2024Разработчик: dev.macgyverПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D74E8F8280C107D02BC8B5721465F69B29C55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765809   (101348) от 14.12.2024
 
 Photo Mate R3 v3.8.1 Mod by Balatan [En]
@@ -6,7 +32,7 @@ Photo Mate R3 v3.8.1 Mod by Balatan [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101348.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by NURIK kz [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101207.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Photo Studio PRO v2.7.12.3613 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100652.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Photo Lab PRO v3.13.44 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100634.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100632.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ STEEZY Studio - Learn To Dance v5.3.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100621.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100616.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Photo Studio PRO v2.7.12.3613 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100601.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Filmora - Редактор видео с AI v14.3.61 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100568.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96093.jpg" />
+  <img src="Z:/picture/005/save_picture_96093.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90942.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90736.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90490.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89896.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89168.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89091.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88988.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88680.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88508.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88498.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88489.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88473.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88454.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88374.jpg" />
 </div>
 
 
@@ -678,41 +704,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88301.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Каждый год в день 8-го марта телефонные сети России передают миллионы звонков и смс-сообщений. Трудолюбивые аналитики подсчитали, что абсолютное большинство телефонных звонков адресовано самым главным женщинам в жизни каждого человека — мамам. Мы выросли, и заготовленные заранее аппликации и букеты цветов, купленные до маминого пробуждения, — давно забытые детские привычки. Отныне мы поздравляем мам по-взрослому: дожидаемся, когда они проснутся, и набираем телефонный номер. Но что, если случится коллапс, и из-за пиковой перегруженности телефонная сеть рухнет? Итак, связи нет. Что делать? Кто-то будет ждать, пока её восстановят — поздравит вечером или даже на следующий день. А другие, как и герои нашего киноальманаха, поменяют свои планы, чтобы поздравить своих мам именно сегодня… лично… как в детстве! Восемь разных поздравлений и жизненных ситуаций. Восемь разных МАМ.Жанр: Комедия, мелодрамаРежиссер: Евгений Абызов, Сарик Андреасян, Алан БадоевПродюсер: Георгий Малков, Сарик Андреасян, Гевонд АндреасянАктеры: Сергей Безруков, Дмитрий Дюжев, Михаил Пореченков, Егор Бероев, Гоша Куценко, Петр Федоров, Федор Добронравов, Иван Добронравов, Игорь Верник, Александр ОлешкоПеревод: Оригинальный (русский)Продолжительность: 01:41:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482365   (88279) от 13.04.2012
-
-[Программа] (ANDROID 2.1+) Business Calendar
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение календарь с масштабируемым многодневным интерфейсом и большим количеством функций.
-
-Бизнес-календарь синхронизируется с календарем Google!Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash

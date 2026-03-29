@@ -1,3 +1,31 @@
+###  Публикация: 592058   (136029) от 20.12.2012
+
+Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24 серии] HDTV 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир ближайшего будущего расколот войнами, а тут еще на Землю из недр пространства-времени свалились пришельцы-кораллиане. С одной стороны, в атмосфере появилась чудесная трапар-энергия, благодаря которой стало проще летать, с другой – вокруг кораллиан время от времени гремят мощные взрывы, из которых появляются боевые джи-монстры, разрушающие все вокруг. Небольшой остров Ивато, яблоко раздора между Китаем, Японией и ныне свободной Окинавой, 15 лет назад тоже пострадал от монстра, которого уничтожила странная женщина на боевом роботе. Впрочем, местные жители чужестранку с зелеными волосами, мягко говоря, не любили и при первой же возможности сдали спецслужбам. Пожилой доктор, приютивший ее сына, единственный знал имя его матери – Эврика…
+
+И вот много лет спустя 13-летний Ао Фукай вместо первого дня в средней школе оказался в гуще событий – джи-монстр снова явился и начал разносить остров. Конечно же, в парне проснулась родовая память, он смог активировать старого робота и разнести врага до прибытия «всей королевской (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Кёда ТомокиПеревод: FooBoo \ DayteneПродолжительность: ТВ, 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93D62F8D74BB1D0E9033044A340AC6FD0281EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572066   (135735) от 21.12.2012
 
 Hikaru no Go / Хикару и Го (2001, TV, 75 + Special) DVDrip raw+rus
@@ -6,7 +34,7 @@ Hikaru no Go / Хикару и Го (2001, TV, 75 + Special) DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135735.jpg" />
+  <img src="Z:/picture/005/save_picture_135735.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135167.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134433.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134402.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134167.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133772.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ Riki-Ou: Toukatsu Jigoku | Riki-Oh: The Walls of Hell | Рики-О: За сте
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133335.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132914.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132641.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Miami Guns | Пушки Майами [2000, TV, 13 из 13] DVDRip 576p 10-bit r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132326.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132286.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132152.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131228.jpg" />
 </div>
 
 
@@ -356,7 +384,7 @@ Bishoujo Senshi Sailor Moon Super S Sailor 9 Senshi Shuuketsu! Black-Dream-Hole 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130573.jpg" />
 </div>
 
 
@@ -382,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129830.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128657.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128196.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127844.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127193.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127169.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126845.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126828.jpg" />
 </div>
 
 
@@ -594,7 +622,7 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126806.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126800.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126713.jpg" />
 </div>
 
 
@@ -659,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD93DE917609FB212D93A5A28499619339289D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624767   (126711) от 22.12.2023
-
-Доктор Стоун [ТВ-3] | Доктор Стоун: Новый Мир | Доктор Стоун: Новый Свет | Dr. Stone: New World [2023, TV, 22 из 22] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди-статуи по-прежнему спят, но гениальному учёному Сэнку отдыхать некогда: в Каменном мире с его легкой руки начинается эпоха Великих географических открытий. Команда пополняется новыми участниками, и корабль капитана Рюсуя отправляется в плавание на поиски первопричины окаменения. Впереди героев ждёт загадочный остров, хранящий тайны прошлого, и ещё больше увлекательных (   Читать дальше...   )Производство: Япония / Студия TMS Entertainment, Die4studioЖанр: Приключения, комедияРежиссер: Мацусита СюхэйЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Ados, MyAska, WhiteCrow (AniLibria.TV)Субтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 22 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62C5D6A077BBEB15DAFCD9AB6A101FF156E9C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

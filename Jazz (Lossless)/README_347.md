@@ -1,3 +1,119 @@
+###  Публикация: 1780526   (70439) от 18.02.2025
+
+VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
+02.  Lo Greco Bros - Crooked Hip (5:33)
+03.  Avex - Ain't Talking Sugo (2:29)
+04.  Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1EE2EFC25781B6010F8AC8C950FE79C321749C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780518   (70433) от 18.02.2025
+
+Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Midnight Samba (2:10)
+02.  In The Night (Live In Kildevælds Church, Copenhagen, Denmark / 1960) (5:28)
+03.  Soul Dance (4:39)
+04.  The Night Has A Thousand Eyes (4:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C236630860D623588EEDAD907DC4B677B8964E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780533   (70429) от 18.02.2025
+
+VA - Jazz Collection Tracks For Stress Relief (Volume 2) (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulstance - Around Me (4:35)
+02.  Michele Staino & Renato Cantini - Cloud (3:21)
+03.  Lo Greco Bros & Flow Bop - Blue Rainbow (5:11)
+04.  Modulo5 - Day Off (8.00 am) (2:31)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5A0637D0B2CE18F8DC36B036DF1AA4794D0408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780528   (70426) от 18.02.2025
+
+VA - Candlelight Rendezvous Romantic Smooth Jazz Instrumentals (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kool&Klean - Graceful Moves (4:00)
+02.  Chillaxing Jazz Kollektion - Drops in the Ocean (3:44)
+03.  Konstantin Klashtorni - Humble and Kind (4:07)
+04.  eJazz Artistry - Letters from Home (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501263598294CE8FE9E512299E30AE2C1AFE8778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780531   (70424) от 18.02.2025
 
 VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +122,7 @@ VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70424.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ J.J. Johnson - Vivian (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70423.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Richard Davis, Sir Roland Hanna, Frederick Waits - Persia My Dear (1987) DIW Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70422.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Woody Herman - The Jazz Collector Edition (1991) Laserlight [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70421.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Nick Brignola - Things Ain't What They Used to Be: Last Set At Sweet Basil (1992
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70420.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70382.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70381.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Kenny Barron - Beyond This Place (2024) Artwork Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70380.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Manhattan Jazz Quintet - The Sidewinder (1987) ProJazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70378.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Rob McConnell & The Boss Brass - The Jazz Album (1976) 1996, Sea Breeze Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70353.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Nick Brignola - On A Different Level (1990) Reservoir [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70352.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ralph Peterson - V (1988) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70349.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Nick Brignola - Like Old Times (1994) Reservoir [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70348.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Ken Peplowski Quintet - Mr. Gentle And Mr. Cool (1990) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70347.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Ken Peplowski - Double Exposure (1988) Concord Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70346.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Rob McConnell, Ed Bickert, Neil Swainson - Trio Sketches (1994) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70345.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Ted Dunbar - Opening Remarks (1978) 1999б Xanadu Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70321.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Earl Coleman - There's Something About An Old Love (1979) 1988, Break Time [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70320.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Abdullah Ibrahim - Fats Duke & The Monk (1973) 1994, Sackville [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70319.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Don Pullen & The African-Brazilian Connection - Ode To Life (1993) Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70316.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Kenny Garrett Quintet - Introducing Kenny Garrett (1985) Criss Cross Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70240.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookin' With Jaws And The Queen (1958) 4
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70239.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookin' With Jaws And The Queen (1958) 4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48B8A194426C1D1384BB61323090A5F55081F7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781257   (70238) от 22.02.2025
-
-Karen Stachel - A Whim And A Prayer (2023) Purple Room [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Snow [4:23]
-02. Angels Have You Heard on High (feat. Carlos Chong) [4:48]
-03. Mary Did You Know (feat. Yaritza Lopez, Irma Treminio) [5:43]
-04. Peace on Earth (feat. Derick Hughes, Carl Wheeler) [7:02](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D7E0B023B4FD8B632322CA682E475A2666DF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781265   (70237) от 22.02.2025
-
-Les Paul And His Trio - The Guitar Artistry Of Les Paul (1968) 1990, MCA Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin the Beguine [3:04]
-02. Sweet Leilani [3:04]
-03. Dark Eyes [2:42]
-04. My Isle of Golden Dreams [2:46](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A79A91808E5E4451D1CF104751309EF82364BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781461   (70195) от 23.02.2025
-
-Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown [3:43]
-02. Equinox [7:39]
-03. Liberia [7:33]
-04. Dear Lord [5:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781468   (70194) от 23.02.2025
-
-Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incognegro [5:40]
-02. Chilin' at the Sloat [8:55]
-03. Jill of All Trades [5:31]
-04. Thad's Blue Plaid [7:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8656744A3F532F7EC62EC7F11C542D5A86AD0FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

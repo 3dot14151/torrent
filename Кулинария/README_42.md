@@ -1,3 +1,29 @@
+###  Публикация: 1064906   (423181) от 21.10.2016
+
+Инна Метельская-Шереметьева | Кулинарная книга оптимистки. Домашние рецепты и вкусные истории (2016) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди множества авторских кулинарных книг эта стоит особняком, потому что она на них ничуть не похожа! А еще вы совершенно точно, начав ее читать (не удивляйтесь – это именно книга для чтения в первую очередь), не сможете оторваться. И гарантированно нагуляете себе аппетит, потому что Инна Метельская-Шереметьева не просто великолепно готовит и с бесшабашным азартом (   Читать дальше...   )Жанр: КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79415CD9EA2767EB88CD4397496D12458024C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411810   (422842) от 27.09.2020
 
 Катя Федорова | О том, что есть в Греции (2020) [FB2]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422842.jpg" />
+  <img src="Z:/picture/008/save_picture_422842.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422709.jpg" />
+  <img src="Z:/picture/008/save_picture_422709.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422698.jpg" />
+  <img src="Z:/picture/008/save_picture_422698.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422561.jpg" />
+  <img src="Z:/picture/008/save_picture_422561.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422557.jpg" />
+  <img src="Z:/picture/008/save_picture_422557.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422499.jpg" />
+  <img src="Z:/picture/008/save_picture_422499.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422475.jpg" />
+  <img src="Z:/picture/008/save_picture_422475.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422461.jpg" />
+  <img src="Z:/picture/008/save_picture_422461.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422206.jpg" />
+  <img src="Z:/picture/008/save_picture_422206.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421798.jpg" />
+  <img src="Z:/picture/008/save_picture_421798.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421263.jpg" />
+  <img src="Z:/picture/008/save_picture_421263.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417912.jpg" />
+  <img src="Z:/picture/008/save_picture_417912.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415622.jpg" />
+  <img src="Z:/picture/008/save_picture_415622.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415579.jpg" />
+  <img src="Z:/picture/008/save_picture_415579.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415474.jpg" />
+  <img src="Z:/picture/008/save_picture_415474.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415392.jpg" />
+  <img src="Z:/picture/008/save_picture_415392.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414362.jpg" />
+  <img src="Z:/picture/008/save_picture_414362.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414247.jpg" />
+  <img src="Z:/picture/008/save_picture_414247.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413633.jpg" />
+  <img src="Z:/picture/008/save_picture_413633.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413178.jpg" />
+  <img src="Z:/picture/008/save_picture_413178.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413085.jpg" />
+  <img src="Z:/picture/008/save_picture_413085.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413077.jpg" />
+  <img src="Z:/picture/008/save_picture_413077.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413016.jpg" />
+  <img src="Z:/picture/008/save_picture_413016.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412106.jpg" />
+  <img src="Z:/picture/008/save_picture_412106.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411556.jpg" />
+  <img src="Z:/picture/008/save_picture_411556.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FCE659308107CFBE0176E3308D8AB7526179126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413135   (411445) от 02.10.2020
-
-Е.Ю. Новиченкова | Мультиварка. Консервирование. Полная книга рецептов (2014) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционные заготовки на зиму можно делать с помощью мультиварки. Этот современный кухонный прибор позволяет приготовить консервы из фруктов, ягод, овощей, грибов, а также мяса и рыбы. В нем же можно проводить стерилизацию и пастеризацию банок. В мультиварке готовят различные варенья, джемы, компоты, овощные закуски, тушеное мясо и рыбу, а также маринады для заливки (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC53203FC16602F01E1AB132B746DD7B745E58F
 ```
 
 https://mybot314.ru/tekegram_catalog/

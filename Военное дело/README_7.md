@@ -1,3 +1,29 @@
+###  Публикация: 1046100   (556723) от 25.08.2016
+
+Военная приемка. Прятки на выживание (21.08.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прятки на выживание. Мы увидим новейшие системы военной маскировки. Уникальный камуфляж нового поколения маскирует не только днем, но и ночью, скрывая от всех современных приборов ночного видения. Этот костюм уже проходит государственные испытания и скоро поступит в нашу армию. Кроме того, мы покажем высокотехнологичные маскировочные сети. Они превращают танки и (   Читать дальше...   )Еженедельная программа "Военная приемка" расскажет зрителю обо всех новинках российского оборонного комплекса. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за качество выпускаемой военной техники.Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E5A27E2253D9BC737B51500AB018096137C8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046888   (550870) от 28.08.2016
 
 Военная приемка. Панцирь России (28.08.2016) SATRip
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550870.jpg" />
+  <img src="Z:/picture/008/save_picture_550870.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543666.jpg" />
+  <img src="Z:/picture/008/save_picture_543666.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542265.jpg" />
+  <img src="Z:/picture/008/save_picture_542265.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539000.jpg" />
+  <img src="Z:/picture/008/save_picture_539000.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538715.jpg" />
+  <img src="Z:/picture/008/save_picture_538715.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532254.jpg" />
+  <img src="Z:/picture/008/save_picture_532254.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530497.jpg" />
+  <img src="Z:/picture/008/save_picture_530497.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529982.jpg" />
+  <img src="Z:/picture/008/save_picture_529982.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525963.jpg" />
+  <img src="Z:/picture/008/save_picture_525963.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525897.jpg" />
+  <img src="Z:/picture/008/save_picture_525897.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524608.jpg" />
+  <img src="Z:/picture/008/save_picture_524608.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524385.jpg" />
+  <img src="Z:/picture/008/save_picture_524385.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523291.jpg" />
+  <img src="Z:/picture/008/save_picture_523291.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523162.jpg" />
+  <img src="Z:/picture/008/save_picture_523162.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522489.jpg" />
+  <img src="Z:/picture/008/save_picture_522489.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519561.jpg" />
+  <img src="Z:/picture/008/save_picture_519561.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518220.jpg" />
+  <img src="Z:/picture/008/save_picture_518220.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517334.jpg" />
+  <img src="Z:/picture/008/save_picture_517334.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517270.jpg" />
+  <img src="Z:/picture/008/save_picture_517270.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509463.jpg" />
+  <img src="Z:/picture/008/save_picture_509463.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ History Channel. Оружие войны / Weapons at War (1992-1994) SATRip (17
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503954.jpg" />
+  <img src="Z:/picture/008/save_picture_503954.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503424.jpg" />
+  <img src="Z:/picture/008/save_picture_503424.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503268.jpg" />
+  <img src="Z:/picture/008/save_picture_503268.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500367.jpg" />
+  <img src="Z:/picture/008/save_picture_500367.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492311.jpg" />
+  <img src="Z:/picture/008/save_picture_492311.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D53DFCB0BCD1107064042279887055E40FA5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054271   (492210) от 20.09.2016
-
-Военная приемка. Роботы. Войны без смерти. (18.09.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492210.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске зрители увидят то, чего раньше им никто и никогда не показывал из-за режима строгой секретности - стрельбу ударных боевых роботов российской армии! Мы проверим, насколько меткие их системы наведения - и будем стрелять даже на ходу! И вы сами увидите, насколько серьезные повреждения подобные роботы способны нанести вражеской технике. Кроме того, мы (   Читать дальше...   )Телекомпания: ЗвездаЖанр: Телепередача, ДокументальныйПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A46A4B825F822E01D74A9F50DFEB2DC0F47E3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

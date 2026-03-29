@@ -1,3 +1,119 @@
+###  Публикация: 999501   (863145) от 23.03.2016
+
+Grant Green - Talkin' About (1964) 1999, Blue Note Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Talkin' About J.C. [11:45]
+ 02.People [07:29]
+ 03.Luny Tune [07:44]
+ 04.You Don't Know What Love Is [07:39](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5EA1C882C71F3E6CE9EAC8F48995C2D817C0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999508   (863051) от 23.03.2016
+
+Coleman Hawkins - At the Golden Circle, Stockholm 1963 (2001) Dragon Records[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction [00:40]
+ 02.Oh Lady Be Good [08:38]
+ 03.If I Had You [10:38]
+ 04.Bean and the Boys [09:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5699F5BAB3BB9544E13BAA67701FF49A0B074AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375975   (862364) от 16.04.2020
+
+Olaf Polziehn Trio featuring Harry Allen - American Songbook, Vol. 2 (2003) Satin Doll Productions [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Or Leave Me [6:01]
+02. Ballad Of The Sad Young Men [6:05]
+03. Jubilee [4:31]
+04. Call Me Darling, Call Me Sweetheart, Call Me Dear [7:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F0B075DB2D738713010C529882472BD1C9093E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109186   (861098) от 26.02.2017
+
+Doug Webb - Bright Side (2016) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Society Al [06:02]
+ 02.Silver Lining [05:50]
+ 03.The Drive [03:27]
+ 04.Bahia [05:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC79CBFDCE132AAF1F6FA2270041F1EBE6F0092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108972   (861086) от 26.02.2017
 
 Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de Santiago (1998) Auvidis [FLAC|Lossless|image + .cue] <World Fusion, Cuban Jazz>
@@ -6,7 +122,7 @@ Juan Gonzalez, Julio Simon, Rey Delis, Oscar Ruiz - Cuarteto de Saxofones de San
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861086.jpg" />
+  <img src="Z:/picture/008/save_picture_861086.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gerry Mulligan & Ben Webster - Gerry Mulligan meets Ben Webster (1959) 1998, Ver
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861002.jpg" />
+  <img src="Z:/picture/008/save_picture_861002.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Kenny G - Greatest Hits (1997) [FLAC|Lossless|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860725.jpg" />
+  <img src="Z:/picture/008/save_picture_860725.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Harry Allen - Dreamer (2001) BMG [FLAC|Lossless|image + .cue] <Mainstream Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860703.jpg" />
+  <img src="Z:/picture/008/save_picture_860703.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Harry Allen with John Pizzarelli Trio - Plays The Hits of Stage & Screen (2004) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860692.jpg" />
+  <img src="Z:/picture/008/save_picture_860692.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Fiona Apple - Fetch the Bolt Cutters (2020) [FLAC|Lossless|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860238.jpg" />
+  <img src="Z:/picture/008/save_picture_860238.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Gary Peacock - The Beginnings: West Coast Years 1959-1962 (2020) Fresh Sound Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859898.jpg" />
+  <img src="Z:/picture/008/save_picture_859898.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ The Jazz Messengers - Hard Bop (1956) 1993, Sony Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859896.jpg" />
+  <img src="Z:/picture/008/save_picture_859896.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Miguel Zenon - Tipico (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859212.jpg" />
+  <img src="Z:/picture/008/save_picture_859212.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Duke Ellington - Stockholm, June 1963 (2012) La Maison du Duke [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859210.jpg" />
+  <img src="Z:/picture/008/save_picture_859210.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Jose James - Love In a Time of Madness (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859207.jpg" />
+  <img src="Z:/picture/008/save_picture_859207.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ VA - Dixieland Planet: The Best Of Dixieland (1998) M&A Group [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859205.jpg" />
+  <img src="Z:/picture/008/save_picture_859205.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Pink Martini - 5 альбомов (1997-2009) 6CD[FLAC|Lossless]<Jazz | Latin | 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859184.jpg" />
+  <img src="Z:/picture/008/save_picture_859184.jpg" />
 </div>
 
 
@@ -387,7 +503,7 @@ Cameron Graves - Planetary Prince (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859162.jpg" />
+  <img src="Z:/picture/008/save_picture_859162.jpg" />
 </div>
 
 
@@ -416,7 +532,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #5 (2016) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859149.jpg" />
+  <img src="Z:/picture/008/save_picture_859149.jpg" />
 </div>
 
 
@@ -445,7 +561,7 @@ Art Foxall - Blue Fox (1992) Audio Daddio [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858179.jpg" />
+  <img src="Z:/picture/008/save_picture_858179.jpg" />
 </div>
 
 
@@ -474,7 +590,7 @@ Bill Barron - The Tenor Stylings of Bill Barron (1961) 1993, Nippon Columbia[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857646.jpg" />
+  <img src="Z:/picture/008/save_picture_857646.jpg" />
 </div>
 
 
@@ -503,7 +619,7 @@ Duke Ellington - Vocal (1927-1947) 2СD, 2007, Camelot[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857571.jpg" />
+  <img src="Z:/picture/008/save_picture_857571.jpg" />
 </div>
 
 
@@ -532,7 +648,7 @@ The Francis Wong Quartet - Pilgrimage (1997) Music & Arts[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857492.jpg" />
+  <img src="Z:/picture/008/save_picture_857492.jpg" />
 </div>
 
 
@@ -561,7 +677,7 @@ Horace Parlan - Up & Down (1961) Remaster, 2005, Toshiba [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857491.jpg" />
+  <img src="Z:/picture/008/save_picture_857491.jpg" />
 </div>
 
 
@@ -590,7 +706,7 @@ Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857461.jpg" />
+  <img src="Z:/picture/008/save_picture_857461.jpg" />
 </div>
 
 
@@ -619,7 +735,7 @@ Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857459.jpg" />
+  <img src="Z:/picture/008/save_picture_857459.jpg" />
 </div>
 
 
@@ -633,123 +749,6 @@ Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A77B328B4443AB5C1AD95C7FAF1B408E0860974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109847   (857439) от 28.02.2017
-
-Count Basie - The Real... Count Basie (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Twelfth Street Rag
-2. Between the Devil and the Deep Blue Sea
-3. Easy Does It(   Читать дальше...   )Жанр: JazzПродолжительность: 02:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF035420934D008413B810112CDB6D378AE5545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376805   (857014) от 19.04.2020
-
-Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The A Train [2:57]
-02. Perdido [1:59]
-03. Frankie And Johnnie [3:10]
-04. Introduction & Cotton Club Stomp [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376907   (857013) от 19.04.2020
-
-Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Send Me [6:09]
-02. I Just Called to Say I Love You [4:24]
-03. You Make Me Feel Brand New [5:57]
-04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189276   (856139) от 22.03.2014
-
-Сhicago - Night & Day (Big Band) (1995) [FLAC|Lossless]<Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительный "ретро-проект" от Чикаго, при участии Линды Ронсдадт, как аранжировщика и Нельсона Риддла в качестве дирижера.
-Современное звучание классических джазовых стандартов, думаю, оставит новые впечатления у ценителей "старого" добротного джаза...01. - Chicago  (3:10)
-02. - Caravan  (3:27)
-03. - Dream A Little Dream Of Me  (3:17)
-04. - Goody Goody  (4:09)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

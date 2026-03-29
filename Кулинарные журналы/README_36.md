@@ -1,3 +1,55 @@
+###  Публикация: 1050058   (540362) от 07.09.2016
+
+Газета | Наша кухня №9 (246) (сентябрь 2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа каждого номера журнала — проверенные рецепты блюд с фотографиями. С помощью «Нашей кухни» можно без труда составить меню как на каждый день, так и для праздничного стола. Процесс приготовления блюд превратится в удовольствие!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE5C1CA04DF1F673A7CE390F6E05FA3362FCEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155199   (535314) от 02.08.2017
+
+Журнал | Всё для женщины. Спецвыпуск. На нашей кухне №3 (июнь-июль 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_535314.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании представлены лучшие рецепты, присланные в редакцию читателями от салатов, закусок, горячего до выпечки и десертов. На страницах выпуска опытные хозяйки проводят мастер-классы, делятся своими рецептами и секретами приготовления вкусных блюд.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C05A5A9BE2F7C4E24926B59A0B8CC3703BC05DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239722   (535224) от 07.08.2018
 
 Газета | Готовим вкусно! №7 (178) (июль 2018) [PDF]
@@ -6,7 +58,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535224.jpg" />
+  <img src="Z:/picture/008/save_picture_535224.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533567.jpg" />
+  <img src="Z:/picture/008/save_picture_533567.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533564.jpg" />
+  <img src="Z:/picture/008/save_picture_533564.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533558.jpg" />
+  <img src="Z:/picture/008/save_picture_533558.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533556.jpg" />
+  <img src="Z:/picture/008/save_picture_533556.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533530.jpg" />
+  <img src="Z:/picture/008/save_picture_533530.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533472.jpg" />
+  <img src="Z:/picture/008/save_picture_533472.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533408.jpg" />
+  <img src="Z:/picture/008/save_picture_533408.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532702.jpg" />
+  <img src="Z:/picture/008/save_picture_532702.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532574.jpg" />
+  <img src="Z:/picture/008/save_picture_532574.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530826.jpg" />
+  <img src="Z:/picture/008/save_picture_530826.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529213.jpg" />
+  <img src="Z:/picture/008/save_picture_529213.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529207.jpg" />
+  <img src="Z:/picture/008/save_picture_529207.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528167.jpg" />
+  <img src="Z:/picture/008/save_picture_528167.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527071.jpg" />
+  <img src="Z:/picture/008/save_picture_527071.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526657.jpg" />
+  <img src="Z:/picture/008/save_picture_526657.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524507.jpg" />
+  <img src="Z:/picture/008/save_picture_524507.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523660.jpg" />
+  <img src="Z:/picture/008/save_picture_523660.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523655.jpg" />
+  <img src="Z:/picture/008/save_picture_523655.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523335.jpg" />
+  <img src="Z:/picture/008/save_picture_523335.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523334.jpg" />
+  <img src="Z:/picture/008/save_picture_523334.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523327.jpg" />
+  <img src="Z:/picture/008/save_picture_523327.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523247.jpg" />
+  <img src="Z:/picture/008/save_picture_523247.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522908.jpg" />
+  <img src="Z:/picture/008/save_picture_522908.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462FF8302ACE1FD0DA8FDAE6C918C8F7DD9C6D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241006   (522905) от 14.08.2018
-
-Газета | Наша кухня №8 (270) (август 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522905.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наша кухня» - журнал о кулинарии. С его помощью можно запросто составить меню на каждый день и для праздничного стола, ведь в нём всё просто и доступно, так как основу каждого номера составляют проверенные читательские рецепты блюд с фотографиями. И тогда приготовление блюд превращается в удовольствие!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA73CC8FC8D947C81B74F8796B3D9A023DCCAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241037   (522848) от 14.08.2018
-
-Журнал | Сваты. Заготовки №8 (август 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах. Чтобы домашние заготовки на зиму удавались и получались легко, используйте собранные в этой рубрике надежные и проверенные тысячами хозяек рецепты. С этими (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CCBA46D828549251128D28D131FCCFF98EA902
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1674167   (161747) от 04.11.2023
+
+Study Kvo, Саня Кво | Марафон по UX UI дизайну мобильных приложений (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161747.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧТО ТЕБЕ ДАСТ ИНТЕНСИВ:
+- Поймёшь как начать карьеру в UX/UI дизайне в текущих реалиях вне зависимости от опыта работы
+- Сделаешь работу в портфолио по ux/ui-дизайну уровня middle, даже если это твой первый дизайн
+- Узнаешь фишки, которые помогают устроиться в студию начинающим дизайнерам на опыте наших выпускниковПроизводство: Study KvoЖанр: UI UX ДизайнЯзык озвучки: РусскийПродолжительность: 06:44:49Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8B6E5C8CFD6D42470E9A19D814295ACE58BA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674068   (161658) от 04.11.2023
 
 Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samurai (2022) PCRec [CN / EN Sub]
@@ -6,7 +35,7 @@ Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161658.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161526.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Skillbox, Роман Цыганов и др. | Профессия 3D-джене�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161508.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161414.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161406.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161252.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161213.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161179.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161030.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160984.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ New Maters Academy, Joe Weatherly | Introduction to Animal Anatomy (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160921.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160799.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160755.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160724.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160721.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160619.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160543.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Tilda school, Антон Командин | Резиновая верстка в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160520.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160391.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Yudaev School, Никита Юдаев | Изучаем дизайн с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160018.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159221.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159176.jpg" />
 </div>
 
 
@@ -683,35 +712,6 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CA8BE88EF469849730F72A5F67E308345F15A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676110   (159159) от 11.11.2023
-
-CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часть 1:
-
-Это первый курс из серии «Освоение ядерного оружия: ваш первый выстрел». В этом курсе вы узнаете, как собрать и завершить полный компьютерный снимок, и в ходе этого процесса вы откроете для себя мощные инструменты Nuke и его интерфейс.
-Никакого предыдущего опыта или знаний не требуется. Каждый шаг тщательно комментируется и поясняется с целью сделать вас (   Читать дальше...   )Производство: CGcircuitЖанр: КомпозитингЯзык озвучки: АнглийскийПродолжительность: 32:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FF263EFAA2E36F8212042E346CC688DF9716F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

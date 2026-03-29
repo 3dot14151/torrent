@@ -1,3 +1,32 @@
+###  Публикация: 1747681   (104714) от 06.09.2024
+
+David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Everybody Happy
+02. Lonely Is The Night
+03. Je T'Aime Means I Love You
+04. Sheitered Heart(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83216A82BDAD7389C9606FC096BEA3D4CE25C7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747582   (104642) от 07.09.2024
 
 VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -6,7 +35,7 @@ VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104642.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104641.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104638.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104612.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104548.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104547.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104542.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104522.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104357.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - DJ Hits Vol. 1000 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104331.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - DJ Hits Vol. 5100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104246.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - DJ Hits Of October 1997 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104186.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - DJ Hits Of June'97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104177.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104168.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104141.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104137.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103564.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103260.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101841.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100734.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99444.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98091.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97654.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96359.jpg" />
 </div>
 
 
@@ -729,7 +758,7 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90663.jpg" />
 </div>
 
 
@@ -749,41 +778,6 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C90C77BD9B6781A9E05C43F45896A3F2BC821D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481593   (88048) от 12.04.2012
-
-Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88048.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-Продолжительность: 01:18:15
-01. Maria Magdalena (5:57)
-02. In the Heat of the Night (5:21)
-03. Heaven Can Wait (4:05)
-04. Secret Land (4:40)
-05. Everlasting Love (3:42)
-06. Innocent Love (5:23)
-07. Stop for a Minute (4:05)
-08. One More Night (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
 ```
 
 https://mybot314.ru/tekegram_catalog/

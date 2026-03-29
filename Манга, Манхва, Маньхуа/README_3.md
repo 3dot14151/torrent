@@ -6,7 +6,7 @@ Rappi Rangai | Ninja Girls | Девушки-ниндзя (2005) [9 томов, 4
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20784.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rosario to Vampire | Розарио + Вампир (2004) [10 томов, 40 г�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20366.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fairy Tail Zero | Хвост Феи. Начало (2014) [1 том, 13 глав]
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18617.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fairy Tail | Хвост Феи (2006) [63 тома, 545 глав + 5 Кросс�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18616.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fairy Girls | Девочки-Феи (2014) [4 тома, 21 глава] [Манг
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18613.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sekirei | Сэкирэй (2004) [19 томов, 204 главы] [Манга] [Р
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18242.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18220.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Btooom! | Взрыв! (2009) [26 томов, 125 глав + Экстра] [Ма�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18217.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ KissXSis | Поцелуй сестёр (2005) [25 томов, 156 глав + Э�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18215.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Yankee-kun to Megane-chan | Хулиган и Очкарик (2006) [23 тома
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18202.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sora no Otoshimono | Утраченное небесами (2007) [20 томов
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18201.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dr. Stone | Доктор Стоун (2017) [27 томов, 233 главы + Сп
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18198.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Soul Eater | Пожиратель душ (2003) [25 томов, 117 глав] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18197.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Vagabond | Бродяга (1998) [38 томов, 327 глав + Экстра + �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18191.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Rosario to Vampire: Season II | Розарио + Вампир II (2007) [14 то
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18189.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Platinum End | Платиновый предел (2015) [14 томов, 28 гл�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18187.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Yakusoku no Neverland | Обещанный Неверленд (2016) [20 том�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18185.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Sakuranbo Syndrome - Cupid no Itazura II | Шалость купидона: Ви
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18183.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Ino-Head Gargoyle | Горгулья из парка Инокасира (2012) [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18180.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Kimi no Iru Machi | A Town Where You Live | Город, в котором ты �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17834.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Fuuka | Fuuka | Фуука (2014-2018) [20 томов, 195 глав + Экстр
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17825.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Suzuka | Suzuka | Судзука (2004-2007) [18 томов, 166 глав + Эк
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17824.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка (2014
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17823.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Takopi no Genzai | Takopi's Original Sin | Первородный грех Та�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9550.jpg" />
 </div>
 
 

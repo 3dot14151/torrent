@@ -1,3 +1,167 @@
+###  Публикация: 1160163   (475393) от 24.08.2017
+
+Kaspersky Free Antivirus 17.0.0.611.0.1532.0 (d) Repack by LcHNextGen [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антивирус Kaspersky Free (ранее Kaspersky 365) - бесплатный антивирус и веб-защита в режиме реального времени с облачными технологиями.
+Решение включает все необходимые компоненты для обеспечения базовой защиты вашего компьютера, важных данных и онлайн-активности в Интернете от самых современных угроз.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20C140604A79D737C502A9533CF93B0BCBFDEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823551   (474842) от 20.09.2014
+
+Алиса - Цирк (2014) [MP3|320 кб/с]<Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цирк
+02. Кайф и истерика
+03. Ток шок рок
+04. Такие дела, хозяин(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640BDA9C689B2B4EEDE42889DD2A16821862B286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319787   (474785) от 16.08.2019
+
+Код Красный / Red Joan (2018) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальная история русской шпионки, которая предотвратила Третью мировую войну. Британская разведка долгие годы гонялась за ней, ее имя стало легендой, но о ее подвиге мы узнали только сейчас, когда был снят гриф секретности.Производство: Великобритания / Trademark FilmsЖанр: Драма, мелодрама, биографияРежиссер: Тревор НаннАктеры: Джуди Денч, Софи Куксон, Стивен Кэмпбелл Мур, Том Хьюз, Фредди Гаминара, Лоуренс Спэллман, Тереза Србова, Бен Майлз, Робин Соанс, Кевин ФуллерПеревод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF5D381E6F8B7904482FE135E644EA62510FE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319929   (474783) от 16.08.2019
+
+Microsoft Office for Mac Standard 2019 16.28.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться.Тип издания: macOS SoftwareРелиз состоялся: 13 августа 2019Разработчик: MicrosoftПоддерживаемая ОС: macOS 10.12 и новееЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E05AEEC4DCF79E1190AC8FBAB85963115E05F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939546   (474726) от 21.09.2015
+
+Microsoft Office 2016 Professional Plus Install v3.0 by Ratiborus [Multi/Ru] (онлайн-установка)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7DFBE6B7BE22156EEFCEB66FF9439991B4E6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939148   (474721) от 21.09.2015
+
+Video Repair Utility 1.9.0.0 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная утилита может восстанавливать и исправлять поврежденные видео файлы (MOV, MP4, 3GP, M4V), которые не проигрываются Вашим медиаплеером.
+
+В данном случае восстановление подразумевает, что неповрежденные части видео/аудио могут быть восстановлены.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52201EEDCB07F3EA209CBC9410ECC777DE54AF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406339   (474630) от 03.09.2020
 
 Первый российский беспилотный вертолет проходит пробную эксплуатацию
@@ -6,7 +170,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_474630.jpg" />
+  <img src="Z:/picture/005/save_picture_474630.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ IObit Driver Booster Pro 4.0.3.322 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474499.jpg" />
+  <img src="Z:/picture/008/save_picture_474499.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.2/dlc) License CODEX [Field Marshal Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474473.jpg" />
+  <img src="Z:/picture/008/save_picture_474473.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ Fallout Tactics: Brotherhood of Steel (2001) [Ru/Multi] (1.27) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474471.jpg" />
+  <img src="Z:/picture/008/save_picture_474471.jpg" />
 </div>
 
 
@@ -110,7 +274,7 @@ Enter the Gungeon (2016) [Ru/Multi] (1.0.10/dlc) License GOG [Collector`s Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474469.jpg" />
+  <img src="Z:/picture/008/save_picture_474469.jpg" />
 </div>
 
 
@@ -136,7 +300,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.11.006) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474373.jpg" />
+  <img src="Z:/picture/008/save_picture_474373.jpg" />
 </div>
 
 
@@ -162,7 +326,7 @@ Factorio (2020) [Ru/Multi] (1.1.61) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473870.jpg" />
+  <img src="Z:/picture/008/save_picture_473870.jpg" />
 </div>
 
 
@@ -188,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473553.jpg" />
+  <img src="Z:/picture/008/save_picture_473553.jpg" />
 </div>
 
 
@@ -214,7 +378,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.11) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473526.jpg" />
+  <img src="Z:/picture/008/save_picture_473526.jpg" />
 </div>
 
 
@@ -240,7 +404,7 @@ DAEMON Tools Lite Full Pack 10.6.0.0283 RePack by KpoJIuK (25.08.2017) [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473390.jpg" />
+  <img src="Z:/picture/008/save_picture_473390.jpg" />
 </div>
 
 
@@ -266,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_472957.jpg" />
+  <img src="Z:/picture/005/save_picture_472957.jpg" />
 </div>
 
 
@@ -292,7 +456,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (214 094/dlc) License HOODLUM
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472869.jpg" />
+  <img src="Z:/picture/008/save_picture_472869.jpg" />
 </div>
 
 
@@ -318,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472859.jpg" />
+  <img src="Z:/picture/008/save_picture_472859.jpg" />
 </div>
 
 
@@ -344,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472680.jpg" />
+  <img src="Z:/picture/008/save_picture_472680.jpg" />
 </div>
 
 
@@ -370,7 +534,7 @@ FIFA 16 (2015) [Xbox360] [RegionFree] [Freeboot] [License] [Ru/Multi] [Russound]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472593.jpg" />
+  <img src="Z:/picture/008/save_picture_472593.jpg" />
 </div>
 
 
@@ -396,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472589.jpg" />
+  <img src="Z:/picture/008/save_picture_472589.jpg" />
 </div>
 
 
@@ -424,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472588.jpg" />
+  <img src="Z:/picture/008/save_picture_472588.jpg" />
 </div>
 
 
@@ -450,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_471264.jpg" />
+  <img src="Z:/picture/005/save_picture_471264.jpg" />
 </div>
 
 
@@ -476,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471120.jpg" />
+  <img src="Z:/picture/008/save_picture_471120.jpg" />
 </div>
 
 
@@ -502,7 +666,7 @@ Black Mesa [Ru/En/Multi7] (Lossless RePack/1.0) 2012 | =Чувак=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471081.jpg" />
+  <img src="Z:/picture/008/save_picture_471081.jpg" />
 </div>
 
 
@@ -514,166 +678,6 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91C648E793C36CC8B71A584A7F0BA67B79A7302C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386761   (471030) от 11.09.2011
-
-Shadow of The Colossus [Ru] (P/Emul) 2006/2010 | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471030.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету игры главный герой Вандер с телом своей мертвой возлюбленной прибывает в древний заброшенный храм, расположенный в неких Запретных землях. Он должен разрушить шестнадцать каменных идолов, победив шестнадцать огромных монстров, называемых колоссами — это требование выдвинуто загадочным бестелесным обитателем храма по имени Дормин, обещающим взамен воскресить погибшую девушку.
-
-(   Читать дальше...   )Тип издания: Репак (Эмулятор)Разработчик: Team ICOЖанр: Action / 3D / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B967DF847EC5412A4D1E7131E33CE4AB8831E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547862   (470910) от 16.09.2012
-
-Borderlands 2 [Region Free/ENG] (XGD3) (LT+ 3.0)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470910.jpg" />
-</div>
-
-
-###  Подробнее
-
-В команде с тремя соратниками по сети или же вдвоем с другом в старом добром режиме разделенного экрана отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову.
-Выберите героя, как следует снарядите его - по традиции в вашем распоряжении гигантский арсенал оружия, боеприпасов и экипировки, - и вперед! Открывайте новые тайны Пандоры, прокачивайте персонажа по мере выполнения заданий, заводите друзей и наживайте врагов - станьте героем собственной истории в полном неожиданностей мире Borderlands!Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6D0407AD9D452A95FA0DAD5C5F20040A2ADB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320057   (470654) от 18.08.2019
-
-Джон Уик 3 / John Wick: Chapter 3 - Parabellum (2019) BDRip [H.264/1080p] [MVO] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суперкиллер Джон Уик после нарушения кодекса тайной гильдии ассасинов получает статус изгоя — экскомьюникадо. За его голову назначена цена в 14 миллионов долларов, и армия самых жестоких профессиональных убийц со всего мира открывает на него кровавую охоту.Производство: США / Summit Entertainment, 87Eleven, LionsgateЖанр: Боевик, Триллер, КриминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Холли Берри, Иэн МакШейн, Лоуренс Фишборн, Марк Дакаскос, Азия Кейт Диллон, Лэнс Реддик, Тобиаш Сигал, Анжелика Хьюстон, Саид ТагмауиПеревод: Многоголосый профессиональныйСубтитры: Русские (Forced), АнглийскиеПродолжительность: 02:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E447CD9A08F74E38293454A84520AB8077C0528D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803538   (470541) от 22.09.2014
-
-Aldnoah.Zero | Альдной.Зеро [TV-1][2014, TV, 12 эп.] HDTV 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1972 году на Луне астронавты нашли Гиперврата – древний портал на Марс. Люди стали заселять Красную планету, а вскоре колонисты обнаружили технологию Предтеч под названием Альдноа. Раскрыв ее тайну и получив в руки страшное оружие, доктор Верс Рэйверс объявил себя императором Марса (переименованного в Верс) и лидером новой расы, что заменит прогнившее человечество. В 1999 году разразилась Первая межпланетная война, в ходе которой Гиперврата взорвались, уничтожив часть Луны и отрезав марсианскому войску путь (   Читать дальше...   )Жанр: боевик, научная фантастика, мехаРежиссер: Аоки ЭйПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4E86A181E9A2E7EF758501EA125E3525414EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940009   (470442) от 23.09.2015
-
-Sandboxie 5.04 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie является программой практически бесплатной - большинство из ее функций будет работать сколь угодно долго без оплаты лицензии.
-Программа позволяет запускать браузер или другую программу так, что любые изменения, связанные с использованием этой программы, сохранялись в ограниченной среде (т.н "песочнице"), которую позже можно будет целиком удалить. (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D0AAB167456710896D61B4ED61E7DBBECF7C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940084   (470377) от 23.09.2015
-
-EmEditor Professional 15.3.1 Final + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470377.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода. Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7A1B6811C729E4A00A5C3F6256BA96F1FFA949
 ```
 
 https://mybot314.ru/tekegram_catalog/

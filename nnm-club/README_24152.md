@@ -1,22 +1,25 @@
-###  Публикация: 1822295   (100810) от 06.10.2025
+###  Публикация: 1764059   (102766) от 05.12.2024
 
-96 Минут / 96 Minutes (2025) Telecine [MVO] [AD]
+Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Горячие новинки
->>Экранки с рекламой
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший сапер Сун Кан Жэнь и его невеста Хуан Синь оказываются в высокоскоростном поезде с заложенной бомбой. К ним в ловушку попадает и учитель физики Лю Кай, который сел на этот поезд, чтобы помириться с женой после скандала с изменой.Производство: ТайваньЖанр: боевик, криминалРежиссер: Цзы-Сюань ХунАктеры: По-Хунг Линь, Вивиан Сун, Бо-Чье Ван, Ли Ли-Зен, Яо Ити, Кент Цай, Фредерик Минг Чжун Ли, Ки-пин Нг, Вера ЧенПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:53:26Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+01. Can't Lose What You Never Had (feat. Jimmy Hall + Memphis Horns) (4:32)
+02. Can't Be Satisfied (feat Larry McCray) (3:54)
+03. The Stumble (3:53)
+04. Stormy Monday (9:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8DCE2DE4648EA3E628C12F237D71A194407097C
+magnet:?xt=urn:btih:10C2AF6379CAFF0F6910653ED50546DFBBC1A3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822294   (100809) от 06.10.2025
+###  Публикация: 1764187   (102765) от 05.12.2024
 
-96 Минут / 96 Minutes (2025) Telecine [H.264/1080p] [MVO] [AD]
+The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
 
->>Горячие новинки
->>Экранки с рекламой
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший сапер Сун Кан Жэнь и его невеста Хуан Синь оказываются в высокоскоростном поезде с заложенной бомбой. К ним в ловушку попадает и учитель физики Лю Кай, который сел на этот поезд, чтобы помириться с женой после скандала с изменой.Производство: ТайваньЖанр: боевик, криминалРежиссер: Цзы-Сюань ХунАктеры: По-Хунг Линь, Вивиан Сун, Бо-Чье Ван, Ли Ли-Зен, Яо Ити, Кент Цай, Фредерик Минг Чжун Ли, Ки-пин Нг, Вера ЧенПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: Английские, Китайские (hardsub)Продолжительность: 01:53:26Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+01. Toxic Envy (4:02)
+02. Unwanted (3:22)
+03. Tind (3:50)
+04. World Between Us (4:11)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B05E114EB1E4391D40E800995EC4E57962D8CCD
+magnet:?xt=urn:btih:0F4116AC9E1120B632BFDB24CB7DA62E4B85F614
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822238   (100808) от 06.10.2025
+###  Публикация: 1764056   (102764) от 05.12.2024
 
-Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary Edition]
+Август Стриндберг | Пляска смерти (2005) [MP3, Михаил Янушкевич, Александра Николаева, Владимир Яворский]
 
->>Win Игры
->>Action (FPS)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молчуны возвращаются в раундовом шутере с элементами выживания по мотивам отмеченного наградами британского хоррора Maid of Sker! Вас ждут орды уже знакомых и новых элитных чудовищ со сверхестественными способностями, оружие в стиле стим-панк, сменные ужасающие маски и загадочные цели.Тип издания: RepackРазработчик: Wales InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+"Ад - это другие," - изрек когда-то Жан-Поль Сартр. "Ад - это мы сами", - следовало бы провозгласить после знакомства с пьесой Стриндберга "Пляска смерти", созданной им в 1901 году. Механизм рождения ненависти, его безжалостная цикличность, способность безвозвратно втягивать человека-жертву в свой круговорот исследуются драматургом на (   Читать дальше...   )Жанр: Аудиоспектакль, драмаИздательство: Нигде не купишьПродолжительность: 01:35:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E520F1DCAF1EB561122C85CF3D35638DD677249
+magnet:?xt=urn:btih:E56C8AF4A8CC38127534D8DB85EF125F46BB3F85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,27 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822263   (100807) от 06.10.2025
+###  Публикация: 1764103   (102763) от 05.12.2024
 
-Голосование за дизайн новой купюры в 500 рублей
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На сайте банка России идет голосование по дизайну новой 500-рублевой банкноты.Изображение опубликовано только для привлечения внимания
-Можно выбрать изображение с обеих сторон. Какой вариант победит, такой и будет 500-рублевка.
-Для голосования необходимо зарегистрироваться и авторизоваться на сайте.(   Читать дальше...   )
+01. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit Mix) (07:39)
+02. KARMIN SHIFF, JULIANA PASINI & Kryz Santana - Ole Ola (I'm From Brazil) (New York Brazil Mix) (03:09)
+03. B.A. Lance - Summer (A Tribute To Calvin Harris) (Radio Mix) (03:38)
+04. Mikee Introna - Get It All (03:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:59:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822303   (100806) от 06.10.2025
+###  Публикация: 1764123   (102762) от 05.12.2024
 
-AnyBurn 6.6 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
+Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
 
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Any Burn - небольшая бесплатная утилита для работы с CD/DVD/Blue-ray дисками. Интерфейс программы достаточно удобен: главное окно представляет собой набор закладок, которые выбираются в зависимости от конкретной задачи. Можно записать на диск готовые образы или отдельные файлы и папки, записать Audio-CD из имеющихся файлов аудиоформата, стереть перезаписываемый диск, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (Instrumental) [3:30]
+02. Sweet Georgia Brown [3:56]
+03. Just in Time [3:12]
+04. When the Sun Comes Out [4:11](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CDAF1BB2183AC60B20D8522BF135ECF5D42C91C
+magnet:?xt=urn:btih:7E76C4A15E3EE16FE8D82239B6F5616F3E11389A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822304   (100805) от 06.10.2025
+###  Публикация: 1764035   (102761) от 05.12.2024
 
-Fast Video Cutter Joiner 6.9.1.0 RePack (& Portable) by elchupacabra [Ru/En]
+Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
 
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский
+01 - Nocturne [1:54]
+02 - Sciomancy and Sortilege [7:31]
+03 - Through Mirrors Beyond [6:25]
+04 - Of Hexcraft and Laws Three-fold [6:57](   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Black MetalПродолжительность: 00:45:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43050C77CDC9B94C59EB7DDA3B528204F3D7CAFC
+magnet:?xt=urn:btih:3CD87B08C88DCB07BB8DFD9BFA4FC0CA1E7E61C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572158   (100804) от 06.10.2025
+###  Публикация: 1764068   (102760) от 05.12.2024
 
-Душегубы (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
+Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Отечественные сериалы
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1984 год, небольшой городок под Витебском. На лесной трассе пропал грузовик с заключёнными и сопровождавшими их сотрудниками ГАИ. Начинаются поиски, в результате которых в лесу находят тело девушки. Дело поручают местному сотруднику милиции Михаилу Шахновичу, а в помощь ему присылают специалиста из Минска Леонида Ипатьева. Тот быстро понимает, что витебские коллеги (   Читать дальше...   )Производство: Россия / АМЕДИА ПродакшнЖанр: триллер, детектив, криминалРежиссер: Давид ТкебучаваАктеры: Сергей Марин, Зоя Бербер, Сергей Чирков, Софья Синицына, Вячеслав Крикунов, Александр Самойленко, Яна Сивакова, Наталия Колоскова, Мария Орлова, Юрий ТузовПродолжительность: ~00:48:00 серия
+01. Do You Remember How to Dance? (3:31)
+02. Something to Sell (3:31)
+03. HollyHood Tay - Focusing on Me (2:32)
+04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:009291416C4E13FBCD40DB48747C3A04FCB0C5FD
+magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509759   (100803) от 06.10.2025
+###  Публикация: 1764064   (102759) от 05.12.2024
 
-Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrack Bundle]
+Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Win Игры
->>RPG
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tainted Grail: Conquest - мрачная ролевая игра с пошаговыми боями и видом сверху в фэнтезийном сеттинге. Авалон умирает. Король Артур давно ушёл, а Рыцари Круглого Стола в замешательстве. Менгиры-хранители, единственное, что позволяет людям выжить в этой отдаленной стране, теряют свою силу. Ваша деревня избрала самых лучших воинов и отправила их на эпический квест, (   Читать дальше...   )Тип издания: LicenseРазработчик: Awaken Realms DigitalЖанр: Ролевая игра, Стратегия, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Old Enough to Know (3:57)
+02. Taboo Love (4:45)
+03. You Hurt Me (3:35)
+04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DF4E760DDF0354F391B9F0A083C55AA6BD897AA
+magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412631   (100802) от 06.10.2025
+###  Публикация: 1764066   (102758) от 05.12.2024
 
-Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
+Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Win Игры
->>RPG
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Talisman: Волшебное приключение от Games Workshop - это классическая настольная игра, радующая любителей фэнтези на протяжении почти 30 лет. Это игра о мастерстве принятия решений, основанных на костях и картах. Здесь есть 14 персонажей, таких как воин, ассасин, вор или волшебник и все они уникальны в своих преимуществах, недостатках и особых способностях. Чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Nomad GamesЖанр: Ролевые игры, Карточные игрыЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+01. No Fun (2:59)
+02. Six Strings Down (3:14)
+03. I'm a Man (3:17)
+04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE309DBDF9D08B079245E7732FC524955DBBEBF0
+magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,26 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 855316   (100801) от 06.10.2025
+###  Публикация: 1764054   (102757) от 05.12.2024
 
-В погоне за счастьем / The Pursuit of Happyness (2006) BDRip [1080p]
+Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Крис Гарднер — отец одиночка. Воспитывая пятилетнего сына, Крис изо всех сил старается сделать так, чтобы ребенок рос счастливым. Работая продавцом, он не может оплатить квартиру, и их выселяют.
-Оказавшись на улице, но не желая сдаваться, отец устраивается стажером в брокерскую компанию, рассчитывая получить должность специалиста. Только на протяжении стажировки (   Читать дальше...   )Производство: СШАЖанр: Драма, БиографияРежиссер: Габриэле МуччиноАктеры: Уилл Смит, Джейден Смит, Тэнди Ньютон, Брайан Хау, Джеймс Карен, Дэн Кастелланета, Курт Фуллер, Такайо Фишер, Кевин Уэст, Джордж ЧунгПеревод: Профессиональный дублированныйСубтитры: Английские, русскиеПродолжительность: 01:52:44
+01. Ain't No Sign (3:22)
+02. Detroit Crank (3:14)
+03. Bloomer Pudding (3:20)
+04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04B2705C5A34A07158EF516CE7B2169F5F9BA635
+magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,25 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822317   (100800) от 06.10.2025
+###  Публикация: 1764062   (102756) от 05.12.2024
 
-Шрифты - Creative Market - Typolio - Bold Display Font - 291511829 [OTF, TTF]
+Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Typolio — универсальный и эффектный акцидентный шрифт, созданный для смелого брендинга, редакционных заголовков, упаковки и современных дизайн-проектов. Благодаря чёткой геометрической структуре и чистым линиям, Typolio сочетает в себе модернистскую простоту и изысканную эстетику, идеально подходя для логотипов, плакатов, модных брендов, технологических стартапов (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+01. Incantation (4:38)
+02. The Preacher (5:44)
+03. I Found Your Letter (6:43)
+04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:897C027C4E786CC46CDC0109B6F3BD86C034140E
+magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,25 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822319   (100799) от 06.10.2025
+###  Публикация: 1764072   (102755) от 05.12.2024
 
-Пресеты - Goodlight presets - Pack 2 - Black & White [XMP]
+Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чёрно-белые пресеты, которых вы ещё не видели! Пакет пресетов Goodlight 2 включает 6 уникальных чёрно-белых профилей, а также фильтры зернистости и цветового тона. Чёрно-белые пресеты, не имеющие аналогов! Включает 6 уникальных пресетов, каждый из которых обладает неповторимым кинематографическим эффектом. Наши чёрно-белые пресеты — это улучшенные профили, которые (   Читать дальше...   )Формат: XMP
+01. Soul in the City (4:01)
+02. Moonlight in My Eyes (2:58)
+03. Twilight Groove (2:02)
+04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59293E164EE9D9C737E5518290D9C0DB02ADC6BF
+magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,25 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 4262   (100798) от 07.10.2025
+###  Публикация: 1764063   (102754) от 05.12.2024
 
-Персонаж / Stranger Than Fiction (2006) BDRip [H.264/1080p]
+Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм повествует о жизни Гарольда Крика, налогового инспектора. Гарольд ведёт чрезвычайно монотонную жизнь — встаёт и ложится спать в одно и то же время и даже считает движения зубной щетки, когда чистит зубы. Совершенно неожиданно он начинает слышать голос, который комментирует его действия. Гарольд обращается за помощью к психиатру, но диагноз шизофрения его не (   Читать дальше...   )Жанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк Форстер / Marc ForsterВ ролях: Уилл Феррелл, Мэгги Джилленхол, Эмма Томпсон, Дастин Хоффман, Куин Латифа, Линда Хант, Том Халс, Уильям Дик, Гай Мэсси, Марта ЭспинозаПеревод: Профессиональный (дублированный)Субтитры: нетПродолжительность: 01:52:56
+01. Blues All over You (2:45)
+02. Dance the Blues Away (2:31)
+03. I Am the Blues (3:38)
+04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2F33C66C4B63760C341F487E5E7A0D2733DF05A
+magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,25 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822321   (100797) от 06.10.2025
+###  Публикация: 1764162   (102753) от 05.12.2024
 
-Звуковые библиотеки - Bigcitiloops - Ghetto Gospel 4 [WAV]
+Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ghetto Gospel 4» содержит десять самых вдохновляющих индивидуальных сэмплов госпел-музыки. Эта проникновенная музыка — настоящий шедевр среди госпел-сэмплов для нарезки. Эти комплекты вдохновлены такими артистами, как Андре Крауч, Смоки Норфул, Марта Муницци, Кирк Франклин и многими другими.Формат: WAV
+01. Frames of Humanity (04:06)
+ 02. Legacy of the World (03:55)
+ 03. The Day We Obscured the Sun (04:20)
+ 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
+magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,25 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 527156   (100796) от 06.10.2025
+###  Публикация: 1764052   (102752) от 05.12.2024
 
-Беседы с Богом / Conversations with God (2006) DVDRip
+Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм описывает историю Нила Дональда Уолша, автора книги «Беседы с Богом». Его путешествие началось после того как он сломал шею в автомобильной катастрофе и потерял свою работу. Ему приходится жить на улице, борясь за жизнь, пытаясь найти работу, знакомясь с новыми людьми и смотря на мир по-другому. В конце концов, обессилев от ударов судьбы, он просит у Бога ответы (   Читать дальше...   )Производство: США / CWG Productions LLC, Esq. Cynthia R. Litman, Spritual Cinema CircleЖанр: драма, приключенияРежиссер: Стивен ДьютчАктеры: Генри Черни, Вилма Силва, Т. Брюс Пейдж, Ингрид Боултинг, Зилла Глори, Абдул Салаам Эль Раззас, Джерри МакГилл, Майкл А. Гурджиан, Мишель Мерринг, Бренна ХаукедальПеревод: одноголосый закадровый (любительский)Продолжительность: 01:49:01
+01. Fire It Up (4:02)
+02. Blues Man (6:55)
+03. Drinkin' Daddy (6:17)
+04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92C0A198ED5297AE72214F7DE0BD4E4E68206AF3
+magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822325   (100795) от 07.10.2025
+###  Публикация: 1764073   (102751) от 05.12.2024
 
-Шнайдер против Бакса / Schneider vs. Bax (2015) BDRip [H.264]
+The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шнайдер – наёмный убийца-профессионал. Даже в день своего рождения он обязан подчиниться заказчику, некоему Мертенсу, и ликвидировать Рамона Бакса, писателя, живущего в домишке на берегу озера, окруженного болотами. Киллеру приходится спешить, ведь дома его ждёт праздничный обед в кругу семьи. Однако в этот день всё идёт наперекосяк. Непредвиденные обстоятельства (   Читать дальше...   )Производство: Нидерланды / Czar, Graniet Film BV, Mollywood, Verenigde Arbeiders Radio Amateurs (VARA)Жанр: комедия, триллерРежиссер: Алекс Ван ВармердамАктеры: Том Де Виспеларе, Алекс Ван Вармердам, Мария Краакман, Гене Бервутс, Аннет Мальэрб, Пьер Бокма, Анри Гарсен, Лоэс Хаверкорт, Ева ван де ВийдевенПеревод: дублированный (iTunes)Язык озвучки: русский, нидерландскийСубтитры: русские, английскиеПродолжительность: 01:36:35
+01. Lude Mood (2:34)
+02. Blow A Fuse (4:28)
+03. S.O.S. (3:39)
+04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0BEFEE16458002F8CD9FE5AC92EF706CD3CF2EA
+magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,27 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822328   (100794) от 06.10.2025
+###  Публикация: 1764075   (102750) от 05.12.2024
 
-Футажи - ActionVFX - Dust Particles [MOV]
+The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Материалы для мультимедиа и дизайна
->>Футажи
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-29 реальных элементов с плавающими частицами пыли.
-Включает 14 кадров крупным планом/средним планом, 12 общих планов и 3 кадра с сильной пылью.
-Снято Камерой RED Weapon Helium 8K со скоростью 75 кадров в секунду с корректной экспозицией, которая имеет 10-битное разрешение с использованием кодека Prores 422 HQ.Формат: MOVРазрешение файлов: 2048x1080 (2K)
+01. Same Old Thing (3:51)
+02. Checking in at Midnight (3:25)
+03. Joy and Pain (3:26)
+04. My Pride, Your Shame (4:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4484ED3AAA3D64EB9A7F6CD7E23F58C8227298DE
+magnet:?xt=urn:btih:42DCD47FC63C7137F092E5138097FDFC49C0044C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,25 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822338   (100793) от 06.10.2025
+###  Публикация: 1764065   (102749) от 05.12.2024
 
-Фантастическая четвёрка: Первые шаги / The Fantastic Four: First Steps (2025) UHD BDRemux [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 7.6, 10-bit]
+Nick Evans Mowery - From the Top Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рид Ричардс, Бен Гримм, Сью Сторм и её брат Джонни должны защитить Землю от космического бога Галактуса и его приспешника - Серебряного Сёрфера. И если план Галактуса поглотить всю планету и всех её жителей кажется недостаточно ужасающим, ситуация внезапно становится личной.Производство: Великобритания, США, Канада, Новая Зеландия / Marvel Studios, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Мэтт ШекманАктеры: Педро Паскаль, Ванесса Кирби, Эбон Мосс-Бакрак, Джозеф Куинн, Ральф Айнесон, Джулия Гарнер, Наташа Лионн, Пол Уолтер Хаузер, Сара Найлз, Марк ГэтиссПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:54:42
+01. Give Peace a Try (2:51)
+02. Headed for the Break (3:22)
+03. From the Top Down (3:45)
+04. The Night I Met John Prine (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B52A0AFE11EAD8628527CB93925F2726BFCF51A9
+magnet:?xt=urn:btih:C6EB0A5C4B6F63BCE33AA3E32088F964605F2E75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822339   (100792) от 06.10.2025
+###  Публикация: 1764081   (102748) от 05.12.2024
 
-Display Driver Uninstaller 18.1.3.5 + Portable [Multi/Ru]
+Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Training Season (Instrumental) (3:08)
+02. Houdini (Instrumental) (2:26)
+03. One Kiss (Instrumental) (3:29)
+04. New Rules (Instrumental) (3:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5DA3D1B1E9F0DC0511075A3BE3CA5EE11590FB5
+magnet:?xt=urn:btih:976109725706834F3253E198A3BD86EFCE7E3CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,25 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 971352   (100791) от 06.10.2025
+###  Публикация: 1764132   (102747) от 05.12.2024
 
-Хороший год / A Good Year (2006) BDRip [H.264/1080p]
+Lizzie Thomas - Lizzie Thomas - This Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воротила Лондонской фондовой биржи, безумно умный, удачливый менеджер и по совместительству большой зануда наследует винодельню в Провансе. По прибытии во Францию он обнаруживает, что, кроме него, есть еще люди, претендующие на его законную собственность. Цепочка невероятных событий и открытий заставят его по-новому взглянуть на истинные ценности этого мира…Производство: США, Великобритания / Fox 2000 Pictures, Scott Free Productions, Ingenious Film PartnersЖанр: Драма, Мелодрама, КомедияРежиссер: Ридли СкоттАктеры: Рассел Кроу, Марион Котийяр, Альберт Финни, Фредди Хаймор, Том Холландер, Рейф Сполл, Арчи Панджаби, Ричард Койл, Эбби Корниш, Бен РайтонПеревод: Дублированный (BD EUR)Язык субтитров: Русский (форс. полн.), Английский (полн.)Продолжительность: 01:57:31
+01. This Christmas (4:10)
+02. Christmas Time Is Here (3:38)
+03. Wonderful Christmastime (4:03)
+04. It's Magic (5:16)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:23:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C202633EC91EEF00917C4C8041EBC5CF402541A7
+magnet:?xt=urn:btih:061B3C34D38CEC32003C6D61B6A965A3A6C98EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,27 +575,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822346   (100790) от 06.10.2025
+###  Публикация: 1764053   (102746) от 05.12.2024
 
-Шрифты - Creative Market - Solora - Elegant Modern Serif Font - 291506423 [OTF, TTF]
+BBR - Boogie Blues and Rock n Roll 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock & Roll>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Solora — вневременной и элегантный шрифт с засечками, призванный привнести изысканность и стиль в любой проект. Благодаря контрастным штрихам, изящным изгибам и формам букв, вдохновлённым модой, Solora идеально подходит дизайнерам, ищущим изысканный шрифт с современным оттенком.
-
-Изящные засечки и высокие пропорции шрифта Solora, созданные с вниманием (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+01. Rubberneckin (2:54)
+02. Every Little Things (3:15)
+03. You Never Can Tell (3:58)
+04. Bird on a Wire (4:22)(   Читать дальше...   )Жанр: Blues, Rock & RollПродолжительность: 00:33:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E2C9DB4ACCF7BA36D3150284B18A210B78478F0
+magnet:?xt=urn:btih:6BA384A429241F080E5CF9469D613CCA1E3753A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,27 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822348   (100789) от 06.10.2025
+###  Публикация: 1764170   (102745) от 05.12.2024
 
-3D print - PRIMAL Collectibles - Legacy of Blood August 2025 [STL, LYS]
+Asterise - Tale of a Wandering Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-♰ Древняя Кровь призывает своих Наследников! ♰
-
-Хроники ночи не просто продолжаются; они перерождаются с появлением новых наследников. В этом августе мы представляем не просто новую главу, но и самих чемпионов грядущей эпохи. Их имена шепчут в забытых залах, их сила вписана в историю рода, который не угасает. Приготовьтесь к встрече с теми, чьи амбиции (   Читать дальше...   )Формат: STL, LYS
+01 - Intro (01:09)
+ 02 - Twisted Ferryman (05:26)
+ 03 - Into Fantasy (05:33)
+ 04 - Raven (06:27)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:54:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2096C9C39F903C651F7C2F9FCA4FCF899C798816
+magnet:?xt=urn:btih:FF5C610B36321BE5FD926C510C0E32E86A1F1D37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,25 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822337   (100788) от 06.10.2025
+###  Публикация: 1764078   (102744) от 05.12.2024
 
-Фуори / Fuori / Outside (2025) BDRip [H.264] [MVO]
+Vinyl Paradise - Vinyl Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит в Риме. Писательница Голиарда Сапиенца попадает в тюрьму из-за кражи драгоценностей своей подруги. Она знакомится с двумя заключенными женщинами и заводит с ними крепкую дружбу. Выйдя на свободу, они продолжают поддерживать отношения. Их связь никто не может понять, но им самим она помогает личностно переродиться. Биографический фильм Марио Мартоне (   Читать дальше...   )Производство: Италия, Франция / Indigo Film, Rai Cinema, The Apartment, Srab Films, Le PacteЖанр: драма, биографияРежиссер: Марио МартонеАктеры: Валерия Голино, Матильда Де Анджелис, Элоди, Коррадо Фортуна, Франческо Геги, Антонио Джерарди, Каролина Рози, Дафна Скочча, Франческо Сичильяно, Соня Чжоу ФэньсяПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, итальянскийСубтитры: русские, английские, итальянскиеПродолжительность: 01:54:50
+01. Howlin' Pain (3:11)
+02. Same Old Mistakes (3:39)
+03. Sold My Soul (2:37)
+04. Makin' It Worse (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C89E99617F1FE73F4F18A636E7A0C9DF75EB8CCF
+magnet:?xt=urn:btih:E14052A9C06D86094A800882A39F3B96A33096B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,27 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822352   (100787) от 06.10.2025
+###  Публикация: 1763345   (102743) от 05.12.2024
 
-Проекты - VideoHive - Lightning Fire Logo Animation - 59633217 [AEP]
+Игорь Ашуров - 3 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Pop>
 
->>Проекты
->>Логотипы (проекты)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый проект с эффектами взрыва и молний для яркого представления вашего логотипа.
-
-Музыка очищена и предоставлена.Формат: AEP
+01. Сложная такая [00:03:52]
+02. Первая любовь [00:03:34]
+03. Обманула [00:03:42]
+04. Не отводи любимых глаз [00:04:30](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 3 CD, 01:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:048D94859E6EC0D15502EAEF4ABF48FD2B024E6A
+magnet:?xt=urn:btih:BACA2BD2812AD994011AEB4B52CAC18D66337745
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,27 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822349   (100786) от 06.10.2025
+###  Публикация: 1764070   (102742) от 05.12.2024
 
-Футажи - ActionVFX - Spark Hits Vol. 1 [MOV]
+Rens Newland & Fuse Bluezz - Still Waiting for Better Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Футажи
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 настоящих искровых эффектов. Отлично подходит для рикошетов металлических пуль и электрических проводов.
-Снято в формате RAW с частотой 60 кадров в секунду. Корректная экспозиция. 10-битное разрешение Prores 4444.
-Снято камерой RED Epic Dragon.Формат: MOVРазрешение файлов: 4096x2160 (4K)
+01. Better Days' Blues (3:57)
+02. Ric Toldon - Got the Blues in My Shoes (4:05)
+03. Peter Duke - Still Waiting for Better Days (3:44)
+04. The Bright Side of the Blues (4:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56B5BE88785236255651ECE971ED92198CCC02A3
+magnet:?xt=urn:btih:02D826EDF88721E3D223244D4CECC049F22B53D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +720,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822355   (100785) от 06.10.2025
+###  Публикация: 1764122   (102741) от 05.12.2024
 
-Полицейский по найму / Rent-a-Cop (1987) BDRip [H.264]
+Jimmy Heath - Love And Understanding (1973) 1995, Xanadu Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В результате неудачно проведенной операции по поимке торговцев наркотиками чикагский полицейский теряет напарника и два миллиона долларов. Он уходит из полиции и становится наемным охранником. Его берет на работу проститутка, которую преследует убийца-психопат.Производство: США / Kings Road Entertainment, Zealcorp Productions LimitedЖанр: боевик, триллер, комедия, криминалРежиссер: Джерри ЛондонАктеры: Берт Рейнолдс, Лайза Миннелли, Джеймс Римар, Ричард Мейсер, Дайонн Уорвик, Берни Кейси, Робби Бенсон, Джон Стэнтон, Джон П. Райан, Ларри ДолгинПеревод: Многоголосый профессиональный, авторский, одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:36:55
+01. One for Juan [7:06]
+02. In a Sentimental Mood [5:09]
+03. Heads Up! Feet Down! [7:12]
+04. Far Away Lands [5:04](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA34C1022D806E2DF6273932C6085D42A7A4B364
+magnet:?xt=urn:btih:9E5F9DC2ACB1EC47B345A7B99785EB244E2FC798
 ```
 
 https://mybot314.ru/tekegram_catalog/

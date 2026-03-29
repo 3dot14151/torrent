@@ -6,7 +6,7 @@ Do Or Die - Crows (2015) [MP3|320 кб/с]<Groove Metal, Hardcore, Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929277.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vetur - Nætur, Vist (2018-2020) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929152.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Almanac - Rush of Death (2020) [MP3|320 kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929012.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Post-Mortem - God With Horns (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927969.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Obscura - Akroasis (Akróasis) (2016) [MP3|320 кб/с] <Technical Death Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927884.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927420.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Neurosis / Tribes of Neurot / side projects - Discography (37 albums) (1988-2009
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926324.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Avantasia - Ghostlights (2016) 3CD Limited Edition Digibook [MP3|320 кб/с] <S
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925974.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Woe Of Winter - Wahnsinn (2016) EP [MP3|320 кб/с] <Funeral Doom Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924603.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Thornbridge - What Will Prevail (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924601.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Negura Bunget (Negură Bunget) - ZI (2016) Deluxe Edition [MP3|320 Kbps] <Atmosp
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924562.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ After The Burial - Dig Deep (2016) [MP3|320 кб/с] <Progressive Metalcore, Dje
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924335.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Amon Amarth - Jomsviking (2016) Japanese Edition [MP3|320 кб/с]<Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924309.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Delain - Lunar Prelude (2016) [MP3|320 кб/с] <Symphonic Metal, Melodic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924232.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Kursani - Kursani (2020) [MP3|320 Kbps] <Beatdown Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924130.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Liberate - Roma Aeterna (2021) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924002.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Addaura - 1 demo, 1 album, 1 EP (2010-2015) [MP3|207-268 Kbps] <Atmospheric Blac
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922869.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Gealdýr (Gealdyr) - Valravn (2020) [MP3|320 Kbps] <Folk & Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922018.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Burzum - Thulean Mysteries (2020) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922006.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NeoNate - В маске (2011) [MP3|320 kbps]<Melodic metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921828.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Fireleaf - Behind The Mask (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921092.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Karybdis - Samsara (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921071.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Plaag - 1 album, 1 EP (2011-2012) [MP3|210-256 Kbps] <Black Metal, Black'n'Roll>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920995.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Omnium Gatherum - Grey Heavens (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920958.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920930.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Brainstorm - Wall of Skulls (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920859.jpg" />
 </div>
 
 

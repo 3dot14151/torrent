@@ -1,3 +1,88 @@
+###  Публикация: 1670829   (171713) от 22.10.2023
+
+Квартирник у Маргулиса. Эльчин Азизов поет песни Муслима Магомаева (21.10.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Эльчина Азизова, который посвящен творчеству легендарного исполнителя, народного артиста СССР Муслима Магомаева. В программе вечера прозвучали только его песни. Уникальный голос Муслима Магомаева — звонкий и чистый баритон — с первых звуков узнаваем среди слушателей. Звезда оперы и эстрады, артист-аристократ, он сумел превратить алмаз своего дарования в настоящий (   Читать дальше...   )00:00:08  Луч солнца золотого
+00:07:42  Лучший город Земли
+00:13:43  Песне моей поверь
+00:18:13  Нам не жить друг без друга(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C9A092074248AAF6C175EC83FC77594BE479CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344559   (169627) от 11.12.2019
+
+The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два исторических шоу The Cure в 2018 году в честь их 40-летия.
+Первый фильм «CURÆTION-25: From There To Here | From Here To There» - был запечатлен на десятом и последнем вечере 25-го фестиваля Meltdown (куратор вокалист Роберт Смит) в лондонском Royal Festival Hall в июне 2018 года. Группа исполнила песню с каждого из своих 13 студийных альбомов с новыми и (   Читать дальше...   )Жанр: New Wave, Indie RockПеревод: Не требуетсяПродолжительность: 02:24:12 + 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672613   (167858) от 29.10.2023
+
+Квартирник у Маргулиса. Эрика Лундмоен (28.10.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт российской исполнительницы норвежского происхождения Эрики Лундмоен. Разноплановая певица является своего рода феноменом на отечественной эстраде. Она наглядный пример того, что, обладая талантом и будучи трудолюбивым, можно уверенно разместиться на первых строчках хит-парадов. Ее творчество невозможно вместить в рамки одного жанра — певица использует в своей (   Читать дальше...   )00:00:05  Кариба
+00:07:04  Этна
+00:15:05  Придется молчать
+00:20:49  Репликант(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431325   (167745) от 13.12.2020
 
 Квартирник НТВ у Маргулиса. Группа SHOO (12.12.2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +91,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167745.jpg" />
 </div>
 
 
@@ -32,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167682.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166844.jpg" />
 </div>
 
 
@@ -90,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166839.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166513.jpg" />
 </div>
 
 
@@ -145,7 +230,7 @@ Muse - Simulation Theory Film (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166449.jpg" />
 </div>
 
 
@@ -171,7 +256,7 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166113.jpg" />
 </div>
 
 
@@ -200,7 +285,7 @@ Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165481.jpg" />
 </div>
 
 
@@ -226,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164319.jpg" />
 </div>
 
 
@@ -255,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163239.jpg" />
 </div>
 
 
@@ -284,7 +369,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162579.jpg" />
 </div>
 
 
@@ -313,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162233.jpg" />
 </div>
 
 
@@ -340,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162224.jpg" />
 </div>
 
 
@@ -366,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161960.jpg" />
 </div>
 
 
@@ -395,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161134.jpg" />
 </div>
 
 
@@ -424,7 +509,7 @@ Def Leppard: Hits Vegas - Live at the Planet Hollywood (2020) BDRip [H.265/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160813.jpg" />
 </div>
 
 
@@ -450,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160437.jpg" />
 </div>
 
 
@@ -477,7 +562,7 @@ Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160146.jpg" />
 </div>
 
 
@@ -507,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159863.jpg" />
 </div>
 
 
@@ -534,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159853.jpg" />
 </div>
 
 
@@ -561,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159851.jpg" />
 </div>
 
 
@@ -588,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159847.jpg" />
 </div>
 
 
@@ -615,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159843.jpg" />
 </div>
 
 
@@ -627,91 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1622A9D1FCE6268621FCA91AFCCD6D4DF1A45E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599888   (159292) от 25.12.2022
-
-Квартирник у Маргулиса. Группа 7Б (24.12.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камерный концерт рок-группы «7Б» на «Квартирнике». Официальным днем рождения коллектива считается 8 марта 2001 года. Дебютный альбом «Молодые ветра» мгновенно покорил множество музыкальных хит-парадов, практически все песни стали хитами, а композиция с одноименным названием стала своеобразной визитной карточкой группы. В гостях у Евгения Маргулиса участники группы (   Читать дальше...   )00:00:06  Я пришел, чтобы петь
-00:05:00  Осень
-00:12:08  Эльдорадо
-00:20:19  Владивосход(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676282   (158926) от 12.11.2023
-
-Елена Север. «Услышь меня» (2023) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный концерт Елены Север. Это первый сольный концерт певицы, к которому она шла много лет, и одновременно удивительное шоу: сцена и весь зрительный зал с помощью мэппинговых технологий будут перевоплощаться в каждом номере.
-На сцене прозвучат как сольные композиции Елены Север, так и те, что она исполняет в дуэте с популярными артистами российской эстрады. Поздравить (   Читать дальше...   )01 - ЕЛЕНА СЕВЕР - С ума
-02 - ЕЛЕНА СЕВЕР - Услышь меня
-03 - ЕЛЕНА СЕВЕР и СТАС ПЬЕХА - О тебе
-04 - ЕЛЕНА СЕВЕР - Сны(   Читать дальше...   )Жанр: POPЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594237   (158900) от 26.12.2022
-
-Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand made smoother]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphonic Terror - Live at Wacken - концертный альбом немецкой хэви металл группы Accept, записаный с симфоническим оркестром 2 августа 2017 года на фестивале Wacken Open Air. Выпущен 23 ноября 2018 года на Nuclear Blast.Производство: Nuclear BlastЖанр: Heavy MetalЯзык: АнглийскийПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5537F49EED0C6DC3B7EC209D893F7CE1D96A6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

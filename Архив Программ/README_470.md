@@ -6,7 +6,7 @@ Ant Download Manager Pro 2.4.2 Build 80118 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799445.jpg" />
+  <img src="Z:/picture/008/save_picture_799445.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser 94.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799443.jpg" />
+  <img src="Z:/picture/008/save_picture_799443.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ThisIsWin11 0.90.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799438.jpg" />
+  <img src="Z:/picture/008/save_picture_799438.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Minstall Portable by Nomer001 2017.04 FINAL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799437.jpg" />
+  <img src="Z:/picture/008/save_picture_799437.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Autodesk AutoCAD Architecture 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799436.jpg" />
+  <img src="Z:/picture/008/save_picture_799436.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ USB 16GB Portable-Soft 02.04.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799434.jpg" />
+  <img src="Z:/picture/008/save_picture_799434.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bandizip 6.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799406.jpg" />
+  <img src="Z:/picture/008/save_picture_799406.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BestReminder v2019.01.03.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799405.jpg" />
+  <img src="Z:/picture/008/save_picture_799405.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Spotify 1.1.71.560 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799382.jpg" />
+  <img src="Z:/picture/008/save_picture_799382.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Serif Affinity Photo 1.10.4.1198 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799378.jpg" />
+  <img src="Z:/picture/008/save_picture_799378.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Process Hacker 3.0.4372 Nightly + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799376.jpg" />
+  <img src="Z:/picture/008/save_picture_799376.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ JetBrains Rider 2018.3.1 Build #RD-183.5253.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799366.jpg" />
+  <img src="Z:/picture/008/save_picture_799366.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Opera 57.0.3098.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799362.jpg" />
+  <img src="Z:/picture/008/save_picture_799362.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ JetBrains ReSharper Ultimate 2018.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799349.jpg" />
+  <img src="Z:/picture/008/save_picture_799349.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AOMEI Backupper Technician Plus 6.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799345.jpg" />
+  <img src="Z:/picture/008/save_picture_799345.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Notepad++ 7.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799332.jpg" />
+  <img src="Z:/picture/008/save_picture_799332.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ABViewer Enterprise 14.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799324.jpg" />
+  <img src="Z:/picture/008/save_picture_799324.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ DisplayFusion Pro 9.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799320.jpg" />
+  <img src="Z:/picture/008/save_picture_799320.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ iZotope - RX 9 Audio Editor Advanced 9.1.0 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799296.jpg" />
+  <img src="Z:/picture/008/save_picture_799296.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ qBittorrent 4.3.9 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799295.jpg" />
+  <img src="Z:/picture/008/save_picture_799295.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ RS Recovery Software 2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799284.jpg" />
+  <img src="Z:/picture/008/save_picture_799284.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Uninstall Tool RePack (&Portable) by D!akov 3.5.7 build 5611 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799277.jpg" />
+  <img src="Z:/picture/008/save_picture_799277.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ JetBrains PyCharm 2018.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799274.jpg" />
+  <img src="Z:/picture/008/save_picture_799274.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ RonyaSoft CD DVD Label Maker 3.2.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799184.jpg" />
+  <img src="Z:/picture/008/save_picture_799184.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Novicorp WinToFlash Professional 1.6.0001 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799174.jpg" />
+  <img src="Z:/picture/008/save_picture_799174.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Scanitto Pro 3.16 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799161.jpg" />
+  <img src="Z:/picture/008/save_picture_799161.jpg" />
 </div>
 
 

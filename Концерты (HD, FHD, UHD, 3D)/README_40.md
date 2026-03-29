@@ -1,3 +1,87 @@
+###  Публикация: 968497   (152850) от 24.12.2015
+
+Старые песни о главном 4 Посткриптум (2000) HDTVRip [H.264 / 720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в сказочном отеле времени. Его посетители - эстрадные звезды. Они все раз в столетие в новогоднюю ночь уходящего века собираются вместе. Этой ночью пространство и время чудесным образом сжимаются так, что мы одновременно можем видеть звезд из разных стран и эпох. "Время запоминается музыкой!" - таков лозунг праздника.Производство: Россия, ОРТЖанр: МузыкальныйАктеры: Алла Пугачева, Дмитрий Маликов, Татьяна Буланова, Кристина Орбакайте, Николай Фоменко, Филипп Киркоров, Виктор Сухоруков, Елена Воробей, Марина Хлебникова, Александр Буйнов, Михаил Терентьев, Елена КориковаПродолжительность: 01:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1570F3E7C4166A43B989E38364E5074F6BFEF748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518792   (152256) от 21.12.2021
+
+Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом известной группы Gregorian в сопровождении великолепных видов природы, старинных замков и убранства средневековых соборов.Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677796   (149205) от 19.11.2023
+
+Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unheilig (читается «унха́йлихь», с нем. — «нечестивый (грешный, несвятой)») — немецкая группа, образованная в 1999 году совместно музыкантом и композитором под сценическим псевдонимом Граф (Der Graf), и Грантом Стивенсом (Grant Stevens) — автором песни «Everlasting Friends» из телевизионной рекламы Holsten Pilsener и Хозе Альварез-Бриллем (Jose Alvarez-Brill), (   Читать дальше...   )01 Unter Deiner Flagge
+02 Mein Berg
+03 Freiheit
+04 Sage Ja!(   Читать дальше...   )Производство: ГерманияЖанр: Industrial Gothic MetalУчастники: Граф (вокал, программирование)
+Кристоф «Лики» Термюлен (гитара)
+Хеннинг Ферлаге (клавишные, программирование)
+Мартин «Потти» Поттхофф (ударные и перкуссия)Продолжительность: 01:50:13 + 02:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677845   (149185) от 19.11.2023
 
 Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
@@ -6,7 +90,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149185.jpg" />
 </div>
 
 
@@ -38,7 +122,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148835.jpg" />
 </div>
 
 
@@ -70,7 +154,7 @@ VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148165.jpg" />
 </div>
 
 
@@ -96,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -123,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147202.jpg" />
 </div>
 
 
@@ -152,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146933.jpg" />
 </div>
 
 
@@ -182,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146767.jpg" />
 </div>
 
 
@@ -211,7 +295,7 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146589.jpg" />
 </div>
 
 
@@ -237,7 +321,7 @@ Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146406.jpg" />
 </div>
 
 
@@ -263,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146338.jpg" />
 </div>
 
 
@@ -292,7 +376,7 @@ Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146232.jpg" />
 </div>
 
 
@@ -321,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145704.jpg" />
 </div>
 
 
@@ -347,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145464.jpg" />
 </div>
 
 
@@ -376,7 +460,7 @@ AC/DC - Live At Donington (1992) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145106.jpg" />
 </div>
 
 
@@ -408,7 +492,7 @@ AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143266.jpg" />
 </div>
 
 
@@ -440,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142275.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141214.jpg" />
 </div>
 
 
@@ -496,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139182.jpg" />
 </div>
 
 
@@ -522,7 +606,7 @@ Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138164.jpg" />
 </div>
 
 
@@ -552,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138122.jpg" />
 </div>
 
 
@@ -578,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137864.jpg" />
 </div>
 
 
@@ -604,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137820.jpg" />
 </div>
 
 
@@ -630,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137771.jpg" />
 </div>
 
 
@@ -641,92 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B81E6D990A2D1D8B2D179596F5EE0426758B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678088   (137324) от 25.11.2023
-
-AC/DC - Live At River Plate (2011) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137324.jpg" />
-</div>
-
-
-###  Подробнее
-
-AC/DC (Эй-си/ди-си; сокращённо от англ. alternating current/direct current «переменный ток/постоянный ток») - австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.01. Rock N Roll Train
-02. Hell Ain't A Bad Place To Be
-03. Back In Black
-04. Big Jack(   Читать дальше...   )Производство: СШАЖанр: Hard RockУчастники: Ангус Янг (соло-гитара, иногда бэк-вокал)
-Фил Радд (ударные, перкуссия)
-Клифф Уильямс (бас-гитара, бэк-вокал)
-Брайан Джонсон (ведущий вокал)(   Читать дальше...   )Продолжительность: 01:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3004D586E4A095D5D3F74FAE8B4C3EC08C3FD42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591320   (136149) от 20.12.2012
-
-Субботним вечером в прямом эфире / Saturday Night Live: Paul McCartney (SNL) (2012) HDTV [MPEG-2/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Пола Маккартни на шоу "Субботним вечером в прямом эфире" американского телеканала NBC 15 декабря 2012 г.01. Cut Me Some Slack (feat. Nirvana)
-02. My Valentine (feat. Joe Walsh)
-03. Simply Having a Wonderful Christmas timeЖанр: Концерт, RockПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591350   (136078) от 20.12.2012
-
-Глюк' OZA - Nowбой (2011) BDRemux
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_136078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый грандиозный проект певицы Глюк'озы! Живой концерт "NOWБОЙ" на диске Blue Ray! Программа концерта содержит, как старые, любимые всеми хиты певицы, так и новые песни. "Невеста", "Снег идёт", "Шуга" и многие другие знаковые композиции порадуют зрителя вместе с новыми, но уже полюбившимися хитами "Взмах", "Вот такая любовь", "Следы слёз" и многими другими. Каждый номер - это яркое сочетание световых эффектов, нереальных костюмов, хореографии и великолепного звука. Современное звучание и высокотехнологичная съёмка концерта позволит зрителю побывать на живом выступлении Глюк'озы не выходя из дома!Жанр: PopПеревод: ОтсутствуетПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

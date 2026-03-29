@@ -1,3 +1,73 @@
+###  Публикация: 522140   (623012) от 13.07.2012
+
+Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_623012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большой Барабан (1:29) 64 kbps
+02. Большой Барабан (1:42) 64 kbps
+03. Большой Барабан (3:16) 64 kbps
+04. Большой Барабан (3:57) 64 kbps
+05. выступление в Белых Облаках (9:06) 160 kbps
+06. выступление в Гавань Надежды (7:41) 160 kbps
+07. выступление в Картонии (11:02) 70 kbps (VBR)
+08. и Оркестр Интуитивной музыки (7:27) 160 kbps
+09. выступление на винзаводе (3:40) 89 kbps (VBR)
+10. выступление на Евроконе (7:16) 64 kbpsЖанр: Instrumental, World Music,Продолжительность: 02:37: 58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522235   (622863) от 13.07.2012
+
+Казачий ансамбль «Старина» - Казак по Дону гуляет... (2009) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622863.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На речке Камышинке (4:57)
+ 2. Вспомним, братцы, про былое (2:44)
+ 3. Не в чистом поле злодеюшки живут (5:47)
+ 4. Казак по Дону гуляет-протяжн (7:19)
+ 5. Как при балке, при лощинке (3:42)
+ 6. Вот уж полночь (4:22)
+ 7. Два ангела парили (1:09)
+ 8. По полку полковничек идёт (4:08)
+ 9. Отойди-ка горечко на время (4:37)
+ 10. Была весна (5:11)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522222   (622856) от 13.07.2012
 
 Казачий народный ансамбль Eрмаковы Лебеди - За Байкалом-морем (2005) [MP3|320 кб/с]<Folk Казачья песня>
@@ -6,7 +76,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622856.jpg" />
+  <img src="Z:/picture/008/save_picture_622856.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622811.jpg" />
+  <img src="Z:/picture/008/save_picture_622811.jpg" />
 </div>
 
 
@@ -70,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622801.jpg" />
+  <img src="Z:/picture/008/save_picture_622801.jpg" />
 </div>
 
 
@@ -105,7 +175,7 @@ VA - Spice (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622744.jpg" />
+  <img src="Z:/picture/008/save_picture_622744.jpg" />
 </div>
 
 
@@ -134,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622704.jpg" />
+  <img src="Z:/picture/008/save_picture_622704.jpg" />
 </div>
 
 
@@ -163,7 +233,7 @@ California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622654.jpg" />
+  <img src="Z:/picture/008/save_picture_622654.jpg" />
 </div>
 
 
@@ -192,7 +262,7 @@ Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622496.jpg" />
+  <img src="Z:/picture/008/save_picture_622496.jpg" />
 </div>
 
 
@@ -221,7 +291,7 @@ VA - Country Forever (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622376.jpg" />
+  <img src="Z:/picture/008/save_picture_622376.jpg" />
 </div>
 
 
@@ -250,7 +320,7 @@ Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621686.jpg" />
+  <img src="Z:/picture/005/save_picture_621686.jpg" />
 </div>
 
 
@@ -285,7 +355,7 @@ Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Na
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621548.jpg" />
+  <img src="Z:/picture/008/save_picture_621548.jpg" />
 </div>
 
 
@@ -314,7 +384,7 @@ Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Blu
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621078.jpg" />
+  <img src="Z:/picture/008/save_picture_621078.jpg" />
 </div>
 
 
@@ -343,7 +413,7 @@ Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621019.jpg" />
+  <img src="Z:/picture/008/save_picture_621019.jpg" />
 </div>
 
 
@@ -372,7 +442,7 @@ VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621005.jpg" />
+  <img src="Z:/picture/008/save_picture_621005.jpg" />
 </div>
 
 
@@ -401,7 +471,7 @@ The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620973.jpg" />
+  <img src="Z:/picture/008/save_picture_620973.jpg" />
 </div>
 
 
@@ -436,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620962.jpg" />
+  <img src="Z:/picture/008/save_picture_620962.jpg" />
 </div>
 
 
@@ -465,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620889.jpg" />
+  <img src="Z:/picture/008/save_picture_620889.jpg" />
 </div>
 
 
@@ -494,7 +564,7 @@ David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620621.jpg" />
+  <img src="Z:/picture/008/save_picture_620621.jpg" />
 </div>
 
 
@@ -523,7 +593,7 @@ VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619829.jpg" />
+  <img src="Z:/picture/008/save_picture_619829.jpg" />
 </div>
 
 
@@ -552,7 +622,7 @@ VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619827.jpg" />
+  <img src="Z:/picture/008/save_picture_619827.jpg" />
 </div>
 
 
@@ -581,7 +651,7 @@ David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619710.jpg" />
+  <img src="Z:/picture/008/save_picture_619710.jpg" />
 </div>
 
 
@@ -610,7 +680,7 @@ Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electro
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619656.jpg" />
+  <img src="Z:/picture/008/save_picture_619656.jpg" />
 </div>
 
 
@@ -639,7 +709,7 @@ VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619137.jpg" />
+  <img src="Z:/picture/008/save_picture_619137.jpg" />
 </div>
 
 
@@ -668,7 +738,7 @@ Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619070.jpg" />
+  <img src="Z:/picture/008/save_picture_619070.jpg" />
 </div>
 
 
@@ -697,7 +767,7 @@ Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619064.jpg" />
+  <img src="Z:/picture/008/save_picture_619064.jpg" />
 </div>
 
 
@@ -711,64 +781,6 @@ Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036606   (618992) от 21.07.2016
-
-Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclassical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Profondeurs
-02 - Le Royaume de Neptune
-03 - Symphonie du temps perdu
-04 - Fantasme(   Читать дальше...   )Жанр: Instrumental, NeoclassicalПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4F26F72B510B1B5DE9000200B56EDD63A90338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295510   (618799) от 13.04.2019
-
-Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'trouve ça beau (3:26)
-02. Les pieds dans le vide (3:09)
-03. Mon âme soeur est ailleurs (3:26)
-04. Années lumière (4:05)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

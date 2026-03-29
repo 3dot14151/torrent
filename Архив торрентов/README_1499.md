@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712297.jpg" />
+  <img src="Z:/picture/008/save_picture_712297.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712293.jpg" />
+  <img src="Z:/picture/008/save_picture_712293.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wondershare Filmora 8.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712276.jpg" />
+  <img src="Z:/picture/008/save_picture_712276.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712265.jpg" />
+  <img src="Z:/picture/008/save_picture_712265.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ uTorrent Pro 3.5.5 Build 46206 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712254.jpg" />
+  <img src="Z:/picture/008/save_picture_712254.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Serial Box 06-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712196.jpg" />
+  <img src="Z:/picture/008/save_picture_712196.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ VA - Chill Odyssey (Day 1) (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712191.jpg" />
+  <img src="Z:/picture/008/save_picture_712191.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712189.jpg" />
+  <img src="Z:/picture/008/save_picture_712189.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Carbon Copy Cloner 4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712137.jpg" />
+  <img src="Z:/picture/008/save_picture_712137.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712117.jpg" />
+  <img src="Z:/picture/008/save_picture_712117.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Best Of Uplifting Vocal Trance 2016 (2016) [MP3|320 кб/с] <Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712110.jpg" />
+  <img src="Z:/picture/008/save_picture_712110.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712105.jpg" />
+  <img src="Z:/picture/008/save_picture_712105.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ MInstAll Portable-Soft Lite 02.05.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712104.jpg" />
+  <img src="Z:/picture/008/save_picture_712104.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Microsoft .NET Framework 4.7 Developer Pack [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712102.jpg" />
+  <img src="Z:/picture/008/save_picture_712102.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ ASUS M51Ta (X56T) драйверы под Windows 10 (х86/х64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712093.jpg" />
+  <img src="Z:/picture/008/save_picture_712093.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Alcohol 120% 2.0.3 Build 9902 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712088.jpg" />
+  <img src="Z:/picture/008/save_picture_712088.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Seiren / Сэйрэн [2017, TV, 9 из 12 ep] WEBRip 720p Raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712087.jpg" />
+  <img src="Z:/picture/008/save_picture_712087.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712084.jpg" />
+  <img src="Z:/picture/008/save_picture_712084.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712076.jpg" />
+  <img src="Z:/picture/008/save_picture_712076.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712062.jpg" />
+  <img src="Z:/picture/008/save_picture_712062.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ AnyMP4 Video Converter Ultimate 7.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712059.jpg" />
+  <img src="Z:/picture/008/save_picture_712059.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712057.jpg" />
+  <img src="Z:/picture/008/save_picture_712057.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712056.jpg" />
+  <img src="Z:/picture/008/save_picture_712056.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711967.jpg" />
+  <img src="Z:/picture/008/save_picture_711967.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711959.jpg" />
+  <img src="Z:/picture/008/save_picture_711959.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Soft Organizer 5.11 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711958.jpg" />
+  <img src="Z:/picture/008/save_picture_711958.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Rob Zombie - The Lunar Injection Kool Aid Eclipse Conspiracy (2021) [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029677.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Memoir Sonata - Seven Hills of Rome (2023) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029629.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lordi - Screem Writers Guild (2023) [MP3|320 Kbps] <Glam Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029602.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Balate - El Quemadero (2021) [MP3|320 Kbps] <Stoner, Doom Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029593.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Caskets Open - Concrete Realms of Pain (2021) [MP3|320 Kbps] <Gothic Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029590.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mastord - To Whom Bow Even the Trees (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029389.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Moonspell - Hermitage (2021) [MP3|V0 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029340.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kreator - Under the Guillotine (2021) Explicit [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028712.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Earthshine - My Bones Shall Rest Upon The Mountain (2021) [MP3|320 Kbps] <Atmosp
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028535.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sorizon - Thanatos Rising (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028100.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Witherfall - Curse Of Autumn (2021) [MP3|320 Kbps] <Heavy Metal, Progressive Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028077.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Timeless Haunt - Dark For Life (2021) [MP3|320 Kbps] <Heavy Metal, Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027106.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bleeding Antlers - Stagmata (2021) [MP3|320 Kbps] <Psychedelic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026960.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eisbrecher - Liebe macht Monster (2021) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026932.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Evil Dream - Arctic (2021) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026755.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Suncrown - Invincible (2021) [MP3|320 Kbps] <Symphonic Epic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026621.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Red Eye Temple - Vortex (2021) [MP3|320 Kbps] <Progressive Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026613.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Stefan Petanovski - Eros (2021) [MP3|320 Kbps] <Instrumental Progressive Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026436.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Daemon Grey - Follow Your Nightmares (2021) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026416.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Batushka - Carju Niebiesnyj (2021) EP [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025795.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Paradise Lost - Gothic Live at Roadburn (2016) 2021 [MP3|320 Kbps] <Doom Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025486.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Reylobo - El Octavo Pecado (2021) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024950.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Zarpa - El Loco (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024949.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Forcefield - Saucer Separation (2021) [MP3|320 Kbps] <Progressive Metal, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024947.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Metalite - A Virtual World (2021) Japan Edition [MP3|320 Kbps] <Melodic Modern M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024913.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Zarpa - Imperia (2021) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024786.jpg" />
 </div>
 
 

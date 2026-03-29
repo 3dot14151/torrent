@@ -6,7 +6,7 @@ VA - Psychill Blossom, Vol. 1 (2020) [AAC|~323 Kbps] <Psychill, Psybient, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763548.jpg" />
+  <img src="Z:/picture/008/save_picture_763548.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Time to Chill (2012) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763547.jpg" />
+  <img src="Z:/picture/008/save_picture_763547.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 5 (2020) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763546.jpg" />
+  <img src="Z:/picture/008/save_picture_763546.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 6 (2021) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763545.jpg" />
+  <img src="Z:/picture/008/save_picture_763545.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763519.jpg" />
+  <img src="Z:/picture/008/save_picture_763519.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763503.jpg" />
+  <img src="Z:/picture/008/save_picture_763503.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763422.jpg" />
+  <img src="Z:/picture/008/save_picture_763422.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763315.jpg" />
+  <img src="Z:/picture/008/save_picture_763315.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763070.jpg" />
+  <img src="Z:/picture/008/save_picture_763070.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762634.jpg" />
+  <img src="Z:/picture/008/save_picture_762634.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762560.jpg" />
+  <img src="Z:/picture/008/save_picture_762560.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762432.jpg" />
+  <img src="Z:/picture/008/save_picture_762432.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - NYE Midnight Toast Collection 2021 (2021) [AAC|~296 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762035.jpg" />
+  <img src="Z:/picture/008/save_picture_762035.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Final Step - Disconnections (2021) [AAC|~278 Kbps] <Jazz-Rock, Fusion>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762034.jpg" />
+  <img src="Z:/picture/008/save_picture_762034.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Soul Lounge 2022 (2021) [AAC|~318 Kbps] <Soul>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762033.jpg" />
+  <img src="Z:/picture/008/save_picture_762033.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ ANGWA - Finally Free (2021) [AAC|~337 Kbps] <Afro Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762032.jpg" />
+  <img src="Z:/picture/008/save_picture_762032.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Kalavera Orquesta - Incertidumbre (2021) [AAC|~341 Kbps] <Latin Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762031.jpg" />
+  <img src="Z:/picture/008/save_picture_762031.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Armada Music Year Mix 2021, Vol. 2 (2021) [AAC|~330 Kbps] <House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762030.jpg" />
+  <img src="Z:/picture/008/save_picture_762030.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Armada Music Year Mix 2021, Vol. 1 (2021) [AAC|~331 Kbps] <House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762029.jpg" />
+  <img src="Z:/picture/008/save_picture_762029.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Lenni-Kalle Taipale Trio - Nothing To Hide (1999) [AAC|~349 Kbps] <Jazz Rock, Co
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762027.jpg" />
+  <img src="Z:/picture/008/save_picture_762027.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761991.jpg" />
+  <img src="Z:/picture/008/save_picture_761991.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761935.jpg" />
+  <img src="Z:/picture/008/save_picture_761935.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Laibach - Laibach Revisited (2020) [AAC|~327 Kbps] <Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761919.jpg" />
+  <img src="Z:/picture/008/save_picture_761919.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Sex Magick Wizards - Your Bliss My Joy (2021) [AAC|~353 Kbps] <Instrumental Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761917.jpg" />
+  <img src="Z:/picture/008/save_picture_761917.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Scoping in Twenty Twenty-One (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761906.jpg" />
+  <img src="Z:/picture/008/save_picture_761906.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761875.jpg" />
+  <img src="Z:/picture/008/save_picture_761875.jpg" />
 </div>
 
 

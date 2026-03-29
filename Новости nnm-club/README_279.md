@@ -1,3 +1,161 @@
+###  Публикация: 1728884   (53880) от 09.06.2024
+
+В работе Telegram произошел глобальный сбой, спустя более часа простоя сервис заработал снова
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53880.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тапал хомяка и нажал не туда».
+Павел Дуров раскрыл причину сбоя в Telegram
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724956   (53695) от 11.06.2024
+
+1984 / 1984 / Nineteen Eighty-Four (1984) BDRip [H.264/1080p] [Handmade correction AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа-антиутопии Джорджа Оруэлла, изданного в 1949 году. Для подавления массовых волнений Океании правящая партия заново воссоздает прошлое и настоящее. За каждым гражданином неусыпно наблюдают, каждому с помощью телевидения промывают мозги. И даже двое любовников вынуждены скрывать свои чувства, поскольку секс и межличностные отношения объявлены вне (   Читать дальше...   )Производство: Великобритания, Umbrella-Rosenblum Films Production, Virgin, Virgin Benelux, Virgin SchallplattenЖанр: фантастика, драма, экранизацияРежиссер: Майкл РедфордАктеры: Джон Хёрт, Ричард Бёртон, Сюзанна Хэмилтон, Сирил Кьюсак, Грегор Фишер, Джеймс Уолкер, Эндрю Вильде, Дэвид Тревена, Дэвид Канн, Энтони БенсонПеревод: профессиональный многоголосый, профессиональный двухголосый, одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729174   (53606) от 12.06.2024
+
+Doom: The Dark Ages официально анонсирована — со щитом-бензопилой, управляемым механическим драконом и без мультиплеера
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слухи не обманули: 9 июня на презентации Xbox Games Showcase 2024 издательство Bethesda Softworks представило Doom: The Dark Ages — следующую главу в прославленной серии шутеров от id Software.События Doom: The Dark Ages развернутся в антураже тёмного фэнтези до Doom (2016). Игрокам предстоит узнать предысторию Палача Рока и его путь от последней надежды королевства (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574982   (53600) от 12.06.2024
+
+Мои братья и сёстры / Братство / Kardeslerim (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 3, серии 1-38 (57-94) из 38) TurkishTuz
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадир, Омер, Асие и Эмель. Они братья и сёстры, которые крепко привязаны друг к другу, терявшие отца и мать, после серии печальных событий. Во всем мире они ничего не могут сделать, кроме как держаться друг за друга, держаться за руки. До тех пор, пока не откроются двери колледжа, принадлежащего преступнику Акифу Атакулу, который стал причиной их трагедииПроизводство: Турция / NGMЖанр: драмаРежиссер: Серкан БиринджиАктеры: Джелиль Налчакан, Халит Озгюр Сары, Кунейт Мете, Аху Ягту, Фадик Севин Атасой, Симге Сельчук, Йигит Кочак, Су Бурсу Джошкун, Джелиль Налчакан, Каан Севи, Дамла Су Икизоглу и др.Перевод: Одноголосый любительский (TurkishTuz)Язык озвучки: РусскийПродолжительность: ~02:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DB922167466A87817F345F1CD1303F19674B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 27707   (53590) от 12.06.2024
+
+Бодибилдинг без одежды / Muscle Elegance Mag - Gym Heat (2000) TVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренировка известных спортсменок мирового уровня по бодибилдингу  в необычном ракурсе.Жанр: БодибилдингАктеры: Denise Masino, Gayle Moher, Dayana Cadeau, Peggy SchoolcrПеревод: ОригинальныйПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729603   (53489) от 13.06.2024
+
+Microsoft остановила развёртывание катастрофической тестовой версии Windows 11 24H2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft заморозила развёртывание Windows 11 24H2 на канале Insider Release Preview. Обновление должно было принести ряд новых функций, среди которых поддержка Wi-Fi 7, Sudo для Windows, Rust в ядре Windows и различные настройки взаимодействия с пользователем. Microsoft не объяснила причину приостановки, ограничившись двумя строчками в своём блоге, однако длинный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672795   (53486) от 13.06.2024
 
 Основание: Осман / Kurulus: Osman (2023-2024) WEB-DLRip [H.264/1080p-LQ] (сезон 5, серии 1-34 (131-164) из 34) turok1990, AveTurk
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53486.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53386.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53174.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53076.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52968.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52861.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ CorelDRAW Graphics Suite 2024 25.1.0.269 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52751.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ MultiUSB-3.0+UEFI 24-05 x86 x64 [RU/EN] (авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52747.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52643.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52623.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52534.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ Intel передаст TSMC выпуск 3-нм процессоров Intel Cor
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52529.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52434.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ SpaceX показала компактную спутниковую антенн
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52413.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52328.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52309.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/Multi] (1.190/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52172.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52151.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51877.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51782.jpg" />
 </div>
 
 
@@ -515,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB3212DA4BA9C34052DA87BA770807F9FB6B012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725481   (51777) от 28.06.2024
-
-Светлаков + (2024) IPTV [H.264/720p] (сезон 1, серии 1-12 из ??) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийное скетч-шоу, в котором все главные роли исполняет комик Сергей Светлаков. Легендарные персонажи возвращаются в новых жизненных ситуациях! В прошлом заботливый депутат Юрий Венедиктович теперь мэр маленького городка, подросток Славик вырос и сам обучает сына Димона жизненным урокам во время отдыха. Кроме ставших мемами героев появятся и новые: офисный сотрудник (   Читать дальше...   )Производство: Россия / СвердловскЖанр: КомедияРежиссер: Сергей НаумовАктеры: Сергей Светлаков, Демис Карибидис, Ирина Розанова, Светлана Листова, Артемий Мильграм, Карина Сингх, Влас Кропалов, Алиса Тарасенко, Аслан Цаллати, Илхомджон АбдурахмоновПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3C22E90C342B6FEA822BDE5EC6795FC2A357AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733162   (51754) от 28.06.2024
-
-Cent Browser 5.1.1130.129 Stable + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DED89E34CEC61CAA7EC143D4E9200DB7B666C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732890   (51735) от 28.06.2024
-
-«Российский Starlink» от «Бюро 1440» впервые передал данные со спутника на Землю по стандарту 5G
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская компания «Бюро 1440» впервые провела сеанс спутниковой связи по стандарту 5G с использованием одного из спутников «Рассвет-2». Аппарат был отправлен на низкую околоземную орбиту в мае этого года в рамках проекта по созданию отечественного сервиса широкополосной спутниковой связи, способного обеспечить быстрый интернет-доступ по всей стране.В Telegram-канале (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733069   (51723) от 28.06.2024
-
-Ученые сделали кожу для роботов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые Токийского университета (Япония) вырастили кожу для «лица» робота-гуманоида. Исследование было описано в журнале Cell.Цель специалистов заключалась в создании аналога кожи для «лица» робота-гуманоида, которая бы могла передавать мимику и не отслаиваться. Результатом работы оказалась искусственная кожа на основе живых человеческих клеток.С помощью коллагена (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713766   (51683) от 29.06.2024
-
-Long Zu | Dragon Raja | Дракон Раджа [2022, Web, 16 эп.] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный и невезучий старшеклассник Лу Минфэй однажды получил письмо о зачислении в Кассельский колледж, зарубежный частный университет. После некоторых колебаний Лу Минфэй решил прояснить этот вопрос. В результате он попал в мир, где существует «Дракон», его жизнь претерпела потрясающие изменения, и он отправился в путешествие «Убить дракона».Производство: Garden CultureЖанр: приключения, фентезиРежиссер: Wang XinПеревод: официальный (crunchyroll)Язык озвучки: Японский (дубляж)Субтитры: Русские (мультисаб)Продолжительность: 16 эп. по 25 мин. + SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E6E8DE63E3A3EDF41B5108B8551058F8633A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979483   (51565) от 30.06.2024
-
-Секретные материалы / The X-Files (2016) SATRip (сезон 10, серии 1-6 из 6) ТВ3
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Дублированный - ТВ3Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316483AF4A32A53E675E6FFEB664B1E00C778E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

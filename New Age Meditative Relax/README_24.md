@@ -1,3 +1,32 @@
+###  Публикация: 1080567   (288471) от 07.12.2016
+
+Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:15)
+02. Denied (feat. Evelyne) (04:23)
+03. Never (feat. Foko) (04:37)
+04. Take Me Down (feat. Evelyne) (03:30)(   Читать дальше...   )Жанр: Ambient, Downtempo, Dream PopПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080321   (288277) от 07.12.2016
 
 Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
@@ -6,7 +35,7 @@ Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Sou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
+  <img src="Z:/picture/008/save_picture_288277.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288190.jpg" />
+  <img src="Z:/picture/008/save_picture_288190.jpg" />
 </div>
 
 
@@ -69,7 +98,7 @@ Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286265.jpg" />
+  <img src="Z:/picture/008/save_picture_286265.jpg" />
 </div>
 
 
@@ -98,7 +127,7 @@ Karunesh - Revelation (2009) [MP3|320 kbps]<New Age/Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286238.jpg" />
+  <img src="Z:/picture/008/save_picture_286238.jpg" />
 </div>
 
 
@@ -132,7 +161,7 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283033.jpg" />
+  <img src="Z:/picture/008/save_picture_283033.jpg" />
 </div>
 
 
@@ -161,7 +190,7 @@ Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283029.jpg" />
+  <img src="Z:/picture/008/save_picture_283029.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282910.jpg" />
+  <img src="Z:/picture/008/save_picture_282910.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282427.jpg" />
+  <img src="Z:/picture/008/save_picture_282427.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282104.jpg" />
+  <img src="Z:/picture/008/save_picture_282104.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280909.jpg" />
+  <img src="Z:/picture/008/save_picture_280909.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280601.jpg" />
+  <img src="Z:/picture/008/save_picture_280601.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280435.jpg" />
+  <img src="Z:/picture/008/save_picture_280435.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278955.jpg" />
+  <img src="Z:/picture/008/save_picture_278955.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278721.jpg" />
+  <img src="Z:/picture/008/save_picture_278721.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275957.jpg" />
+  <img src="Z:/picture/008/save_picture_275957.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274735.jpg" />
+  <img src="Z:/picture/008/save_picture_274735.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273638.jpg" />
+  <img src="Z:/picture/008/save_picture_273638.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273520.jpg" />
+  <img src="Z:/picture/008/save_picture_273520.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271459.jpg" />
+  <img src="Z:/picture/008/save_picture_271459.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271371.jpg" />
+  <img src="Z:/picture/008/save_picture_271371.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269510.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269508.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269430.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268868.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267474.jpg" />
+  <img src="Z:/picture/008/save_picture_267474.jpg" />
 </div>
 
 
@@ -726,35 +755,6 @@ Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339580   (264570) от 21.11.2019
-
-Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmatic, Ambientpop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah (New Version 2020) (04:58)
-02. Frozen World (Remastered Version 2020) (03:20)
-03. Pie Jesu (New Version 2020) (03:55)
-04. Fairytale Of New York (Remastered Version 2020) (04:10)(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientpopПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDE988278D6C3C0FE16268C2B7EFE635F92E434
 ```
 
 https://mybot314.ru/tekegram_catalog/

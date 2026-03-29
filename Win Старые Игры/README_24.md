@@ -1,3 +1,55 @@
+###  Публикация: 501552   (258579) от 26.05.2012
+
+Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть все той же пошаговой стратегии. Ничего принципиально нового.(   Читать дальше...   )Тип издания: RePackЖанр: Пошаговая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500834   (258210) от 24.05.2012
+
+Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 | R.G. Механики
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всех поклонников легендарной Лары Крофт ждет настоящий праздник – полностью русифицированная версия последних приключений охотницы за древними артефактами. Благодаря приятным нововведениям, упрощенной системе управления и отличной анимации игра гарантирует игрокам море удовольствия. Именно после выхода этой игры Лара Крофт удостоилась титула «Самая известная героиня видеоигр» и попала в Книгу рекордов Гиннесса. Ураганный напор, акробатическая ловкость, феерическое владение оружием и гаджетами – среди всех любителей авантюр Ларе просто нет равных. Опасные джунгли, древние гробницы, заснеженные руины и бушующие водопады – нас вновь ждут путешествие по самым экзотическим местам планеты, зрелищные бои, головокружительные трюки и противостояние хитрому, готовому на самые крайние меры, врагу.(   Читать дальше...   )Тип издания: RePackЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Multi6...Язык интерфейса: Русский, Английский, Multi6...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345CA22902142232C92E4067E1B576857CBAE507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838100   (257928) от 20.11.2025
 
 Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
@@ -6,7 +58,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257928.jpg" />
+  <img src="Z:/picture/005/save_picture_257928.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257625.jpg" />
+  <img src="Z:/picture/005/save_picture_257625.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257273.jpg" />
+  <img src="Z:/picture/005/save_picture_257273.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256996.jpg" />
+  <img src="Z:/picture/005/save_picture_256996.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256641.jpg" />
+  <img src="Z:/picture/005/save_picture_256641.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255832.jpg" />
+  <img src="Z:/picture/005/save_picture_255832.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255719.jpg" />
+  <img src="Z:/picture/005/save_picture_255719.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255620.jpg" />
+  <img src="Z:/picture/005/save_picture_255620.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255154.jpg" />
+  <img src="Z:/picture/005/save_picture_255154.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254797.jpg" />
+  <img src="Z:/picture/005/save_picture_254797.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254651.jpg" />
+  <img src="Z:/picture/005/save_picture_254651.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254055.jpg" />
+  <img src="Z:/picture/005/save_picture_254055.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253980.jpg" />
+  <img src="Z:/picture/005/save_picture_253980.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252567.jpg" />
+  <img src="Z:/picture/005/save_picture_252567.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252222.jpg" />
+  <img src="Z:/picture/004/save_picture_252222.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251879.jpg" />
+  <img src="Z:/picture/004/save_picture_251879.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251579.jpg" />
+  <img src="Z:/picture/004/save_picture_251579.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251549.jpg" />
+  <img src="Z:/picture/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250348.jpg" />
+  <img src="Z:/picture/004/save_picture_250348.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249974.jpg" />
+  <img src="Z:/picture/004/save_picture_249974.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249274.jpg" />
+  <img src="Z:/picture/005/save_picture_249274.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249063.jpg" />
+  <img src="Z:/picture/004/save_picture_249063.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249057.jpg" />
+  <img src="Z:/picture/004/save_picture_249057.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248904.jpg" />
+  <img src="Z:/picture/004/save_picture_248904.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Rival Realms (P) [Ru] 1998
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493232   (248616) от 07.05.2012
-
-Total Control (RePack) [Ru] 1995 | Pilotus
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя долгий многотысячелетний путь в своем развитии, пережив войны и катаклизмы, рождение и крушение межзвездных империй, распространив свое влияние на сотни планетных систем, человечество не нашло высшей ценности, чем человеческая жизнь. Любая попытка силовых действий мнгновенно пересекалась Объедененными Силами Быстрого Реагирования. Единственным исключением из общего правила стали вновь открытые безжизненные планеты, на которые предъявляли права одновременно несколько потенциальных владельцев. И тогда в действие приводилась специальная процедура, которая позволяла определить, кто получит над планетой ПОЛНЫЙ КОНТРОЛЬ. Единственное "табу" - ни одна человеческая жизнь не должна была оказаться под угрозой.Тип издания: RePackЖанр: Стратегия в реальном времениЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833757   (247737) от 02.11.2025
-
-Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247737.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве таинственного Хитмана, вы должны использовать скрытность и разрешение тактических проблем, чтобы войти, выпонить и выйти с задания с минимальными вниманием и максимальной эффективностью. За определенную цену вы получите доступ к самым изощренным устройствам, но от того, как вы их используете, зависит, уйдете ли вы как миллионер или уйдете навсегда.Тип издания: LicenseРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
 ```
 
 https://mybot314.ru/tekegram_catalog/

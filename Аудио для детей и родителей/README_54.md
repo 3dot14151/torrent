@@ -1,3 +1,89 @@
+###  Публикация: 588072   (450846) от 13.08.2022
+
+VA - Волшебная классика (2012) [MP3|320 кб/с]<Классическая музыка>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пётр Чайковский - Марш (2:30)
+ 2. Фредерик Шопен - Колыбельная D Flat Major Op. 57 (5:08)
+ 3. Шарль Камиль Сен-Санс - Лебедь (Карнавал животных) (2:44)
+ 4. Вольфганг Моцарт - Менуэт (2:19)(   Читать дальше...   )Жанр: Классическая музыкаПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618BE51E7865781FE449CC4597B5283654BD59FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419068   (450845) от 13.08.2022
+
+VA - Колыбельные для малышей (2011) [MP3|320 kbps]<Classic>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firefly - Бриллианты росы
+02. Firefly - В дорогу
+03. Firefly - Вечерний ветер
+04. Firefly - Говорящая рыба(   Читать дальше...   )Жанр: ClassicПродолжительность: 04:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B25921CFC37B7362D93A1CCB32F869D07E0237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551844   (450430) от 25.09.2012
+
+Елена Качур, Наталья Манушкина и др. | Раннее развитие: Кто живет в лесу [2011] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые и интересные стихи познакомят Малыша с самыми известными обитателями наших лесов. Маленький слушатель выучит их имена, узнает о том, как выглядят эти звери и птицы, познакомится с образом жизни лесных жителей, их повадками и привычками.
+
+Рекомендуется для детей 2-5 лет.Жанр: детская развивающая аудиокнигаФормат: MP3Продолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F052928CB1D64F4D28DA7233AD959FF3CEDD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409116   (449329) от 15.09.2020
 
 Владислав Крапивин | Я иду встречать брата (2019) [MP3]
@@ -6,7 +92,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449329.jpg" />
+  <img src="Z:/picture/008/save_picture_449329.jpg" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447970.jpg" />
+  <img src="Z:/picture/008/save_picture_447970.jpg" />
 </div>
 
 
@@ -58,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446187.jpg" />
+  <img src="Z:/picture/008/save_picture_446187.jpg" />
 </div>
 
 
@@ -84,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445252.jpg" />
+  <img src="Z:/picture/008/save_picture_445252.jpg" />
 </div>
 
 
@@ -110,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443150.jpg" />
+  <img src="Z:/picture/008/save_picture_443150.jpg" />
 </div>
 
 
@@ -136,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442646.jpg" />
+  <img src="Z:/picture/008/save_picture_442646.jpg" />
 </div>
 
 
@@ -162,7 +248,7 @@ VA - 555 Детских Песен (2017) [MP3|320 Kbps] <Детская , По�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442366.jpg" />
+  <img src="Z:/picture/008/save_picture_442366.jpg" />
 </div>
 
 
@@ -191,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440955.jpg" />
+  <img src="Z:/picture/008/save_picture_440955.jpg" />
 </div>
 
 
@@ -220,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440884.jpg" />
+  <img src="Z:/picture/008/save_picture_440884.jpg" />
 </div>
 
 
@@ -248,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440798.jpg" />
+  <img src="Z:/picture/008/save_picture_440798.jpg" />
 </div>
 
 
@@ -274,7 +360,7 @@ VA - Александр Кудряшов. Озорные нотки (2007) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440476.jpg" />
+  <img src="Z:/picture/008/save_picture_440476.jpg" />
 </div>
 
 
@@ -309,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438635.jpg" />
+  <img src="Z:/picture/008/save_picture_438635.jpg" />
 </div>
 
 
@@ -335,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438554.jpg" />
+  <img src="Z:/picture/008/save_picture_438554.jpg" />
 </div>
 
 
@@ -364,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438541.jpg" />
+  <img src="Z:/picture/008/save_picture_438541.jpg" />
 </div>
 
 
@@ -390,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438471.jpg" />
+  <img src="Z:/picture/008/save_picture_438471.jpg" />
 </div>
 
 
@@ -418,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438467.jpg" />
+  <img src="Z:/picture/008/save_picture_438467.jpg" />
 </div>
 
 
@@ -445,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438278.jpg" />
+  <img src="Z:/picture/008/save_picture_438278.jpg" />
 </div>
 
 
@@ -474,7 +560,7 @@ VA - Лучшие песни из детского кино (2012) [MP3|320 кб
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438277.jpg" />
+  <img src="Z:/picture/008/save_picture_438277.jpg" />
 </div>
 
 
@@ -503,7 +589,7 @@ VA - Хиты планеты. Любимые песни из мультфиль�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438139.jpg" />
+  <img src="Z:/picture/008/save_picture_438139.jpg" />
 </div>
 
 
@@ -532,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434038.jpg" />
+  <img src="Z:/picture/008/save_picture_434038.jpg" />
 </div>
 
 
@@ -560,7 +646,7 @@ VA - Волшебные голоса природы: Малыш на лугу (2
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433296.jpg" />
+  <img src="Z:/picture/008/save_picture_433296.jpg" />
 </div>
 
 
@@ -589,7 +675,7 @@ VA - Волшебные голоса природы: Малыш и птички 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433292.jpg" />
+  <img src="Z:/picture/008/save_picture_433292.jpg" />
 </div>
 
 
@@ -618,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432342.jpg" />
+  <img src="Z:/picture/008/save_picture_432342.jpg" />
 </div>
 
 
@@ -629,87 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C0500F19B08F8A6E44A1E4386A0BB41A1F724BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410946   (431560) от 23.09.2020
-
-Астрид Линдгрен | Сказки в радиоспектаклях (1965 - 1989) [Сборник] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки Астрид Линдгрен — произведения шведской писательницы, которые покорили детей всего мира. В них главными персонажами выступают дети. Они такие же, как обычные ребята. Они шалят, ссорятся с взрослыми, ведут разговоры обо всем, ввязываются в невероятные приключения и даже живут одни. Читать и слушать сказки Астрид Линдгрен с ребенком стоит, чтобы стать ему ближе, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 09:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6B7226EFC0BBE43334200C884A286D7912B676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064040   (430012) от 18.10.2016
-
-Дмитрий Емец | Таня Гроттер и исчезающий этаж (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга серии.
-Тане Гроттер сначала придётся на время вернуться в Москву к своим родственникам лопухоидам Дурневым. А после возвращения на остров Буян в школу магии Тибидохс, ей предстоит узнать всю правду о загадочном Исчезающем Этаже, снова встретиться со своим заклятым врагом злой колдуньей Чумой-дель-Торт и проверить на прочность дружбу, любовь и преданность (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 10:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB585638E01C2362D0373DED39741D5456E4AB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571764   (429660) от 23.08.2022
-
-Коллектив авторов | Профориентация (Лекторий ВШЭ) (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребёнок, ставший жертвой буллинга, не всегда готов говорить об этом маме или педагогу, однако рассказывать об этом необходимо – только так можно разобраться с проблемой и сформировать в образовательной организации правильную атмосферу. В чём причина травли? Как говорить об этом с ребёнком? Что делать родителям и учителям? Можно ли повлиять на школьный климат?
-
-Цикл (   Читать дальше...   )Жанр: педагогика, публицистика, социологияПродолжительность: 12:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB26B086A374A1747B7FACF2DB1E834569AA1226
 ```
 
 https://mybot314.ru/tekegram_catalog/

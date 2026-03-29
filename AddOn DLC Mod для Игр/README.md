@@ -7,7 +7,7 @@ Divinity: Original Sin II (2): Divine Edition (2017) [Ru] (30.04.2025) Unofficia
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053444.jpg" />
+  <img src="Z:/picture/005/save_picture_1053444.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack FitG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053281.jpg" />
+  <img src="Z:/picture/005/save_picture_1053281.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2026) [
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051685.jpg" />
+  <img src="Z:/picture/005/save_picture_1051685.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051007.jpg" />
+  <img src="Z:/picture/005/save_picture_1051007.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.8.1.1) License GOG [Pa
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049899.jpg" />
+  <img src="Z:/picture/005/save_picture_1049899.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048329.jpg" />
+  <img src="Z:/picture/008/save_picture_1048329.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048197.jpg" />
+  <img src="Z:/picture/008/save_picture_1048197.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ S.T.A.L.K.E.R. G.A.M.M.A. (2025) [Ru/En] (9.4.0) License GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047090.jpg" />
+  <img src="Z:/picture/005/save_picture_1047090.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Falcon 4.0 + BMS (1998-2016) [En] (4.37/dlc) License GOG/Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046160.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Command & Conquer Generals Contra 009 (2021) [Ru/En] (patch 3) Mod etovkusno [Fi
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039964.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Xenonauts: X-Division (2016) [En] (1.65/1.00.11c) Repack/Mod firstlast2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035302.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033584.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Half-Life (1998) [Ru] (1.1.2.2) Mod Sayan [Sayan Edition]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031074.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030158.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012046.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Grand Theft Auto: San Andreas - Super Cars (2011) [Ru] (1.5) Repack/Mod ZIG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002862.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Elder Scrolls IV: Oblivion (2019) [Ru] (Alpha 14) Repack/Mod GBRPlus [Lore M
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987609.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PILOT'S Microsoft Flight Simulator X Global Ultimate Europe & Africa (Add-on/Mes
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978654.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944790.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Microsoft Flight Simulator X - PMDG 777-200LRF/300ER (2016) [En] (1.10.7025) Uno
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934542.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fallout 2: Restoration Project (2014) [Ru/En] (2.3.3) Mod killap
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934539.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ XCOM 2 - Customization Pack [Ru/En] Mod firstlast2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921795.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889717.jpg" />
+  <img src="Z:/picture/005/save_picture_889717.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ World of Tanks: Шкурки с зонами пробития (2016) [Ru] (0.9.1
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873091.jpg" />
+  <img src="Z:/picture/008/save_picture_873091.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Far Cry - операция Кригер (2017) [Ru] (1.0) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858422.jpg" />
+  <img src="Z:/picture/008/save_picture_858422.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Homefront: The Revolution - Beyond the Walls (2017) [Ru/Multi] (1.078.1055) Lice
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840872.jpg" />
+  <img src="Z:/picture/008/save_picture_840872.jpg" />
 </div>
 
 

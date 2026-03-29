@@ -1,3 +1,109 @@
+###  Публикация: 845904   (873133) от 25.02.2015
+
+Менталист / The Mentalist (2014) WEB-DL [H.264/720p-LQ] (Сезон 7, серии 1-13 из 13) (BaibaKo)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_873133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрик Джейн — детектив и независимый консультант из Калифорнийского Бюро Расследований (CBI), он использует свои отточенные, как лезвие, навыки наблюдения для раскрытия тяжких преступлений. В самом Бюро Джейн известен за частые нарушения протокола, а также за его звездное прошлое: он работал медиумом, однако теперь сам признает, что симулировал паранормальные способности. (   Читать дальше...   )Производство: СШАЖанр: Драма, криминалРежиссер: Рэндалл Зиск, Крис Лонг, Саймон Бейкер, Роберт Данкан МакНилАктеры: Саймон Бейкер, Робин Танни, Аманда Риджетти, Тим Кенг, Овайн Йомен, Эммануэль Шрики и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Елена Григорьева, Татьяна Оболевич, Алексей Кузнецов, Виталий Ткаченко и Александр ФурманФормат: MKVПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A3D0ABB093B99F692C4B45D879690F7396554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997728   (873103) от 17.03.2016
+
+UC Browser 5.6.10764.1009 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_873103.jpg" />
+</div>
+
+
+###  Подробнее
+
+UC Browser - мировой лидер среди мобильных браузеров, работающий в 150 странах мира, на всех основных операционных системах на 11 языках. Теперь же он работает и на ПК!
+Браузер использует в работе 2 движка - Chromium и Trident, позволяя при необходимости быстро переключаться между ними.
+UC Browser полностью настраивается на индивидуальные предпочтения пользователя: (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA70FAC828171CD6DD48EB9CCF36ADD695DFF1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996384   (872956) от 17.03.2016
+
+Cornacchia | Как создавался фотоарт "Сесиль до Воланж" (2015) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_872956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В уроке подробно показана техника, с помощью которой я создаю из подручного материала наряд в духе прошлых столетий, прическу, цветочные и драгоценные аксессуары из самых обыкновенных доступных каждому исходников. Вы увидите, как я рисую золотую вышивку и украшения, обрабатываю полупрозрачные ткани и работаю с элементами фона, создающего необходимую атмосферу. Наблюдение (   Читать дальше...   )Жанр: Обучающий видеоурокПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED60CF7FCEE28821CC85665769CC7C5471EA0667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997442   (872789) от 17.03.2016
+
+Adobe Photoshop Lightroom CC 2015.5 (6.5) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_872789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA61C79BA2913083A9B59604324CF56D9FD51B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997451   (872787) от 17.03.2016
 
 Голодные игры: Сойка-пересмешница. Часть II / The Hunger Games: Mockingjay - Part 2 (2015) BDRip [H.264/720p] [Line]
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872787.jpg" />
+  <img src="Z:/picture/008/save_picture_872787.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872786.jpg" />
+  <img src="Z:/picture/008/save_picture_872786.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_872613.jpg" />
+  <img src="Z:/picture/005/save_picture_872613.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_872495.jpg" />
+  <img src="Z:/picture/005/save_picture_872495.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ ACDSee Ultimate 10.3 Build 894 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872406.jpg" />
+  <img src="Z:/picture/008/save_picture_872406.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872384.jpg" />
+  <img src="Z:/picture/008/save_picture_872384.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872346.jpg" />
+  <img src="Z:/picture/008/save_picture_872346.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ FaceGen Modeller 3.1.2 Full +Portable [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872179.jpg" />
+  <img src="Z:/picture/008/save_picture_872179.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_871481.jpg" />
+  <img src="Z:/picture/005/save_picture_871481.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_871464.jpg" />
+  <img src="Z:/picture/005/save_picture_871464.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871290.jpg" />
+  <img src="Z:/picture/008/save_picture_871290.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870981.jpg" />
+  <img src="Z:/picture/008/save_picture_870981.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870976.jpg" />
+  <img src="Z:/picture/008/save_picture_870976.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ Apple отключила для России функцию Частный уз�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_870915.jpg" />
+  <img src="Z:/picture/005/save_picture_870915.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Skype 7.33.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870698.jpg" />
+  <img src="Z:/picture/008/save_picture_870698.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ Anno 2070 (2011) [Ru/En] (2.0.7780/dlc) Repack R.G. Механики [Complete E
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870686.jpg" />
+  <img src="Z:/picture/008/save_picture_870686.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ Windows XP SP3 RUS VL+ Быстрая установка из ESD by yahoo00 v3 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870685.jpg" />
+  <img src="Z:/picture/008/save_picture_870685.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870463.jpg" />
+  <img src="Z:/picture/008/save_picture_870463.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Minecraft (2014) [Ru/Multi] (1.7.5 Final) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870454.jpg" />
+  <img src="Z:/picture/008/save_picture_870454.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870408.jpg" />
+  <img src="Z:/picture/008/save_picture_870408.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869621.jpg" />
+  <img src="Z:/picture/008/save_picture_869621.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_869529.jpg" />
+  <img src="Z:/picture/005/save_picture_869529.jpg" />
 </div>
 
 
@@ -571,116 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998158   (869406) от 19.03.2016
-
-Цензура в СМИ. Дебаты Навального и Познера. (2016) HDTVRip [H.264] [MP4|960x540]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Политик Алексей Навальный и телеведущий Владимир Познер обсудили, чем руководствуются российские телеканалы, игнорируя те или иные новости, что такое замалчивание важных событий — цензура или выбор редактора.
-
-После трагедии у станции метро «Октябрьское поле», когда полиция задержала женщину в черном хиджабе, которая держала в руках окровавленную голову ребенка, (   Читать дальше...   )Телекомпания: ДождьЖанр: ТелепередачаПродолжительность: 1:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D54ED81DDAA4873D058121F02C6849EE4682BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107047   (869389) от 21.02.2017
-
-Пиратские зеркальные сайты заблокируют навсегда
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_869389.jpg" />
-</div>
-
-
-###  Подробнее
-
-В российском законодательстве впервые появится термин "производный сайт в сети Интернет". Будет прописан порядок внесудебного ограничения по доступу к таким сайтам, нелегально распространяющим музыку, фильмы и книги. Фотографии под запрет не попадают.Правительство разместило на официальном сайте распоряжение о внесении в Госдуму законопроекта, направленного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188128   (869275) от 01.04.2010
-
-[Игры] Сборник игр для сенсорных экранов WVGA (480х800) (Windows Mobile 6-6.5 )
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник игр для кпк с экраном WVGA (480х800), состоящий из ~ 154 игр. Большинство игр проверено на работоспособность, все крякнуты, либо имеют кейген. Не забываем читать Read Me в папках с играми, где есть. …Жанр: 3D
- RPG
- Аркады
- Бильярд(   Читать дальше...   )Язык интерфейса: английский(multi) и русский
-Разрешение экрана: 480х800
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998124   (869263) от 19.03.2016
-
-JetBrains PhpStorm 2016.1 Build #PS-145.258 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869263.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF27B226D133837F1C8BFD18E5CDE3F6B4AEF3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

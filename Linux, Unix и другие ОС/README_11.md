@@ -1,3 +1,59 @@
+###  Публикация: 1023892   (722032) от 06.06.2016
+
+Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722032.jpg" />
+</div>
+
+
+###  Подробнее
+
+На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25245CD7CEBBBAFEC143B54C8E1E177CDEC30D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892974   (717085) от 27.04.2015
+
+BackBox Linux 4.2 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем. Дистрибутив теперь базируется на Ubuntu 14.04.2.
+
+Дистрибутив базируется на Ubuntu - ядро Linix kernel 3.16, и включает в себя ядро Linux 3.16 (u)EFI mode, Ruby 2.1, инсталлятор LVM + disk encryption.
+
+Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4391D34066D3B6FA4414DDEA59135F6578B7DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218932   (717022) от 12.04.2018
 
 ArchBang 110418 beta[OpenRC] [x86-64] 1xCD
@@ -6,7 +62,7 @@ ArchBang 110418 beta[OpenRC] [x86-64] 1xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717022.jpg" />
+  <img src="Z:/picture/008/save_picture_717022.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ JonDo 0.9.78 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715034.jpg" />
+  <img src="Z:/picture/008/save_picture_715034.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Mageia 5 RC [i586, x86-64] 7xDVD, 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714695.jpg" />
+  <img src="Z:/picture/008/save_picture_714695.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711957.jpg" />
+  <img src="Z:/picture/008/save_picture_711957.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711874.jpg" />
+  <img src="Z:/picture/008/save_picture_711874.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711798.jpg" />
+  <img src="Z:/picture/008/save_picture_711798.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711314.jpg" />
+  <img src="Z:/picture/008/save_picture_711314.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ ZVVАнекдоты 0.2 [x86-x64] (deb)(обновляемая авторска�
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700441.jpg" />
+  <img src="Z:/picture/008/save_picture_700441.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696876.jpg" />
+  <img src="Z:/picture/008/save_picture_696876.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696789.jpg" />
+  <img src="Z:/picture/008/save_picture_696789.jpg" />
 </div>
 
 
@@ -269,7 +325,7 @@ Kubuntu 13.10 Saucy Alpha I [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696748.jpg" />
+  <img src="Z:/picture/005/save_picture_696748.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ Lubuntu 13.10  Saucy Alpha I (легкий дистрибутив) [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696743.jpg" />
+  <img src="Z:/picture/005/save_picture_696743.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696601.jpg" />
+  <img src="Z:/picture/008/save_picture_696601.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ Ubuntu Gnome 13.10 Saucy Alpha I [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696516.jpg" />
+  <img src="Z:/picture/005/save_picture_696516.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ MKVToolNix v6.3.0 ('You can't stop me!') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694977.jpg" />
+  <img src="Z:/picture/008/save_picture_694977.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ Oracle Database 12c Release 1 (Standard Edition, Standard Edition One, and Enter
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694392.jpg" />
+  <img src="Z:/picture/008/save_picture_694392.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693934.jpg" />
+  <img src="Z:/picture/008/save_picture_693934.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691900.jpg" />
+  <img src="Z:/picture/008/save_picture_691900.jpg" />
 </div>
 
 
@@ -482,7 +538,7 @@ Fedora 19 Schrödinger's Cat Live [i686]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688809.jpg" />
+  <img src="Z:/picture/008/save_picture_688809.jpg" />
 </div>
 
 
@@ -510,7 +566,7 @@ Fedora 19 Schrödinger's Cat Live [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688740.jpg" />
+  <img src="Z:/picture/008/save_picture_688740.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ JonDo 0.9.79.1 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685634.jpg" />
+  <img src="Z:/picture/008/save_picture_685634.jpg" />
 </div>
 
 
@@ -566,7 +622,7 @@ Sabayon 16.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676115.jpg" />
+  <img src="Z:/picture/008/save_picture_676115.jpg" />
 </div>
 
 
@@ -592,7 +648,7 @@ Netrunner 16.0 Ozymandias (Plasma 5.3)  [64bit] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674843.jpg" />
 </div>
 
 
@@ -618,7 +674,7 @@ Debian Edu - Skolelinux 8.0 Jessie Beta I [i386, x86-64] DVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674834.jpg" />
 </div>
 
 
@@ -629,64 +685,6 @@ Debian Edu, также известный как Skolelinux, является д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D5DE865E499DF4C165AD7D287B975BC5FFB635C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030728   (671718) от 01.07.2016
-
-Phoenix OS 1.0.9 RC [x86] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбук. Phoenix OS является отдельной веткой разработки известной системы Remix OS и проекта Android-x86, которые имеют общую (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD96F307A7DA564BCE905EB1A11DB05A72C5F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798376   (670892) от 21.06.2014
-
-Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat объявила о выпуске операционной системы Red Hat Enterprise Linux 7. Новая система закладывает основы для создания открытых гибридных облаков.
-
-Разработанная в полном соответствии с требованиями современных центров обработки данных, система Red Hat Enterprise Linux 7 усиливает весь спектр корпоративных ИТ-технологий – от контейнеров приложений до облачных служб.
-
-Как отмечают разработчики, Red Hat Enterprise Linux 7 представляет собой согласованную единую основу, которая позволит клиентам подстроиться под современные требования и в то же время использовать преимущества вычислительных инноваций, в том числе – контейнеров Linux для обмена данными больших объемов через физические системы, виртуальные машины и облачные службы, которые составляют единое открытое гибридное облако.
-
-Изменения в Red Hat Enterprise Linux 7: Релиз основан на Fedora 19;  zero-copy в сетевых операциях; Virtio-scsi - новый слой блочных устройств - папье-маше из блочных устройств; добавление AutoNuma/SchedNuma в планировщик для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DFA34DAFE3461D38566DB82C818B4869203397
 ```
 
 https://mybot314.ru/tekegram_catalog/

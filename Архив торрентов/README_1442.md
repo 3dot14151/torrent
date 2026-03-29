@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726594.jpg" />
+  <img src="Z:/picture/008/save_picture_726594.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Transmit 5.8.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726588.jpg" />
+  <img src="Z:/picture/008/save_picture_726588.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Permute 3 v3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726581.jpg" />
+  <img src="Z:/picture/008/save_picture_726581.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Hard Trance Anthems (2001) 3CD, Compilation [MP3|320 Kbps] <Trance, Hard Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726578.jpg" />
+  <img src="Z:/picture/008/save_picture_726578.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ QLab Pro 4 v 4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726574.jpg" />
+  <img src="Z:/picture/008/save_picture_726574.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726572.jpg" />
+  <img src="Z:/picture/008/save_picture_726572.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Adrena Line - Live @ Level Klub, Poland 2017-04-22 [MP3|320 Kbps] <House, Electr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726570.jpg" />
+  <img src="Z:/picture/008/save_picture_726570.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Judy Kass - Beyond The Ash and Steel (2016) [FLAC|Lossless|WEB-DL|tracks] <Singe
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726566.jpg" />
+  <img src="Z:/picture/008/save_picture_726566.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - ELEKTRODOS. The compilation vol.1 (2015) [MP3|320 Kbps] <Electropop, Electr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726557.jpg" />
+  <img src="Z:/picture/008/save_picture_726557.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Espresso 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726553.jpg" />
+  <img src="Z:/picture/008/save_picture_726553.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - ELEKTRODOS. The compilation vol.2 (2016) [MP3|320 Kbps] <Electropop, Electr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726552.jpg" />
+  <img src="Z:/picture/008/save_picture_726552.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Future - Future Hndrxx Presents: The WIZRD (2019) [FLAC|Lossless|tracks + .cue] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726550.jpg" />
+  <img src="Z:/picture/008/save_picture_726550.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Vitamin-R 2.57 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726548.jpg" />
+  <img src="Z:/picture/008/save_picture_726548.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Mozilla Firefox Quantum ESR 60.5.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726543.jpg" />
+  <img src="Z:/picture/008/save_picture_726543.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Maxthon Browser 5.3.8.300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726536.jpg" />
+  <img src="Z:/picture/008/save_picture_726536.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726526.jpg" />
+  <img src="Z:/picture/008/save_picture_726526.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Music Paradise Player 1.0.3 (3.0.3) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726523.jpg" />
+  <img src="Z:/picture/008/save_picture_726523.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726515.jpg" />
+  <img src="Z:/picture/008/save_picture_726515.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Soft4Boost Document Converter 4.4.9.347 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726511.jpg" />
+  <img src="Z:/picture/008/save_picture_726511.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726506.jpg" />
+  <img src="Z:/picture/008/save_picture_726506.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Garbage - Strange Little Birds (2016) [MP3|VBR 213-239 кб/с] <Alternative Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726503.jpg" />
+  <img src="Z:/picture/008/save_picture_726503.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Bootstrap Studio 5.9.3 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726499.jpg" />
+  <img src="Z:/picture/008/save_picture_726499.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Monstercat 027: Cataclysm (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726495.jpg" />
+  <img src="Z:/picture/008/save_picture_726495.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ SMARTReporter 3.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726492.jpg" />
+  <img src="Z:/picture/008/save_picture_726492.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Soft4Boost Secure Eraser 4.0.5.367 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726491.jpg" />
+  <img src="Z:/picture/008/save_picture_726491.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Soft4Boost Toolbar Cleaner 4.5.7.301 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726484.jpg" />
+  <img src="Z:/picture/008/save_picture_726484.jpg" />
 </div>
 
 

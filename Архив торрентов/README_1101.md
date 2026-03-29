@@ -6,7 +6,7 @@ IObit Malware Fighter PRO (акция comss) 7.7.0.5874 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797120.jpg" />
+  <img src="Z:/picture/008/save_picture_797120.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ O&O SafeErase Professional 15.4 Build 66 RePack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797117.jpg" />
+  <img src="Z:/picture/008/save_picture_797117.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wondershare Filmora 9.4.7.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797116.jpg" />
+  <img src="Z:/picture/008/save_picture_797116.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kerish Doctor 2020 4.80 DC 25.05.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797114.jpg" />
+  <img src="Z:/picture/008/save_picture_797114.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797112.jpg" />
+  <img src="Z:/picture/008/save_picture_797112.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The KMPlayer 4.2.2.40 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797110.jpg" />
+  <img src="Z:/picture/008/save_picture_797110.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Media Encoder 2020 14.2.0.45 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797098.jpg" />
+  <img src="Z:/picture/008/save_picture_797098.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adobe Audition 2020 13.0.6.38 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797089.jpg" />
+  <img src="Z:/picture/008/save_picture_797089.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797076.jpg" />
+  <img src="Z:/picture/008/save_picture_797076.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797059.jpg" />
+  <img src="Z:/picture/008/save_picture_797059.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797058.jpg" />
+  <img src="Z:/picture/008/save_picture_797058.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797057.jpg" />
+  <img src="Z:/picture/008/save_picture_797057.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797056.jpg" />
+  <img src="Z:/picture/008/save_picture_797056.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797055.jpg" />
+  <img src="Z:/picture/008/save_picture_797055.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Jens Jakob - Another Dimension (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Bre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797053.jpg" />
+  <img src="Z:/picture/008/save_picture_797053.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797052.jpg" />
+  <img src="Z:/picture/008/save_picture_797052.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797045.jpg" />
+  <img src="Z:/picture/008/save_picture_797045.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797043.jpg" />
+  <img src="Z:/picture/008/save_picture_797043.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ BlogTouch for Blogger 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797038.jpg" />
+  <img src="Z:/picture/008/save_picture_797038.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ebia - Wavedancer (2008) [MP3|320 кб/с] <Traditional Electronic, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797037.jpg" />
+  <img src="Z:/picture/008/save_picture_797037.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Cookie 5.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797035.jpg" />
+  <img src="Z:/picture/008/save_picture_797035.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ RightFont 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797030.jpg" />
+  <img src="Z:/picture/008/save_picture_797030.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ TagScanner 6.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797018.jpg" />
+  <img src="Z:/picture/008/save_picture_797018.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797014.jpg" />
+  <img src="Z:/picture/008/save_picture_797014.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ iMazing 1.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797002.jpg" />
+  <img src="Z:/picture/008/save_picture_797002.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Радио Шансон Хиты то, что надо (2016) [MP3|256 кб
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796999.jpg" />
+  <img src="Z:/picture/008/save_picture_796999.jpg" />
 </div>
 
 

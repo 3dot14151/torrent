@@ -1,3 +1,177 @@
+###  Публикация: 1030266   (674426) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 9 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кар-Мэн - Прощай, Лондон ( 1990 )
+02. Мираж - Где Я ( 1988 )
+03. Каир - Снежная Королева ( 1991 )
+04. Бисквит - Наша Любовь ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233ACFA4A3B4E36138883B68341B6ED3F9BF3E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030269   (674412) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 10 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Волков & Дискотека Альянс ( 1992 )
+02. Принцесса Nova - Дом Зеленых Глаз ( 1994 )
+03. Рок-Острова - Стежки ( 1991 )
+04. Фея ( Светлана Разина ) - Забытая Песня ( 1990 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08943D580BD9E7CC3D9531BF90394579DF1A16E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030212   (674409) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 35 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deborah Kinley - Surprise ( 1986 )
+02. Ago - It Will Never Be ( 1982 )
+03. Monte Kristo - Money For Your Love ( 1986 )
+04. Groove Twins - Poison ( Extended Mix 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207E95F2433FA482E42748AAA4450D4E6701DED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030227   (674034) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 1 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ролик Студии Мастер ( 1989 )
+02. Мираж - Солнечное Лето ( 1988 )
+03. 1-е апреля - Доктор Берия ( 1990 )
+04. Каролина - Остановись ( 1991 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F193E33A0DBD03C7FE8B44E742E35D90351DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030527   (673799) от 30.06.2016
+
+Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bailando (English Version)
+02. Bailando (Spanish Version)
+03. Cuando Me Enamoro
+04. DUELE EL CORAZON(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084895A67E3CB967FE596B8D9A7F9F0695317784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223493   (673463) от 05.05.2018
+
+VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - Neymar (feat. UFO361)
+002. Calvin Harris & Dua Lipa - One Kiss
+003. Gzuz - Was erlebt (feat. Bonez MC)
+004. Marshmello & Anne-Marie - FRIENDS(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93B511ADE139DD2154A11A9606548C429C47095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136523   (673230) от 23.05.2017
 
 VA - Весенний хитовичок молодежный выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +180,7 @@ VA - Весенний хитовичок молодежный выпуск № 4
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673230.jpg" />
+  <img src="Z:/picture/008/save_picture_673230.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Горячая весенняя танцплощадка. Версия № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673132.jpg" />
+  <img src="Z:/picture/008/save_picture_673132.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Звездная тусовочка. Сборник № 12 (2017) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673123.jpg" />
+  <img src="Z:/picture/008/save_picture_673123.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Зажигай вместе с Europa Plus. Версия № 5 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673008.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673005.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Дискотека Хит FM. Любимая музыка выпуск № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672761.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Взрывной хит-парад Лето 50/50 (2012) [MP3|160-256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672570.jpg" />
 </div>
 
 
@@ -215,7 +389,7 @@ VA - Наурыз (2019) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672324.jpg" />
 </div>
 
 
@@ -244,7 +418,7 @@ VA - German Top 50 Official Dance Charts 04.05.2018 (2018) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671644.jpg" />
+  <img src="Z:/picture/008/save_picture_671644.jpg" />
 </div>
 
 
@@ -273,7 +447,7 @@ VA - Italo-Disco Instrumental Hits (2018) [MP3|320 Kbps] <Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671412.jpg" />
+  <img src="Z:/picture/008/save_picture_671412.jpg" />
 </div>
 
 
@@ -302,7 +476,7 @@ VA - Stardust 03: Pop Dance Mixed (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670873.jpg" />
+  <img src="Z:/picture/008/save_picture_670873.jpg" />
 </div>
 
 
@@ -331,7 +505,7 @@ VA - Летний Музыкальный Кураж (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670803.jpg" />
+  <img src="Z:/picture/008/save_picture_670803.jpg" />
 </div>
 
 
@@ -366,7 +540,7 @@ VA - Самые горячие новинки этого года Vol.2 (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670800.jpg" />
+  <img src="Z:/picture/008/save_picture_670800.jpg" />
 </div>
 
 
@@ -401,7 +575,7 @@ VA - Зажигательный Eurodance vol.4 (2017) [MP3|192-320 Kbps] <Eurod
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670780.jpg" />
+  <img src="Z:/picture/008/save_picture_670780.jpg" />
 </div>
 
 
@@ -430,7 +604,7 @@ VA - 80's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670728.jpg" />
+  <img src="Z:/picture/008/save_picture_670728.jpg" />
 </div>
 
 
@@ -459,7 +633,7 @@ VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670590.jpg" />
+  <img src="Z:/picture/008/save_picture_670590.jpg" />
 </div>
 
 
@@ -488,7 +662,7 @@ VA - Top 50 Official Dance Charts 22.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670577.jpg" />
+  <img src="Z:/picture/008/save_picture_670577.jpg" />
 </div>
 
 
@@ -517,7 +691,7 @@ VA - Зарубежная Дискотека ХХ Века - 42 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670470.jpg" />
+  <img src="Z:/picture/008/save_picture_670470.jpg" />
 </div>
 
 
@@ -546,7 +720,7 @@ VA - Зарубежная Дискотека ХХ Века - 37 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670468.jpg" />
+  <img src="Z:/picture/008/save_picture_670468.jpg" />
 </div>
 
 
@@ -575,7 +749,7 @@ VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670466.jpg" />
+  <img src="Z:/picture/008/save_picture_670466.jpg" />
 </div>
 
 
@@ -589,180 +763,6 @@ VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030930   (670465) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Murray - Commedia ( 1991 )
-02. Body Power - Dancing In The Tears ( 1985 )
-03. Radiorama - Yeti ( Remix 1989 )
-04. Mike Hammer - Supersonic Love ( Energy Mix 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030933   (670464) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Touch - The Fire Of Love ( 1986 )
-02. John Christian - Ebony Eyes ( 1987 )
-03. Key West - Jesahel ( 1988 )
-04. Alphatown - Hot Stuff ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030925   (670463) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Simmons - Lucky Guy ( Radio Version 1984 )
-02. Bronski Beat - Why ( 1985 )
-03. Aquarius - It Feels Like Summer ( Radio Version 1994 )
-04. Charlie - Spacer Woman ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030923   (670462) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellini - Samba De Janeiro ( 1997 )
-02. Bad Boys Blue - Kiss You All Over, Baby ( 1985 )
-03. Fun Fun - Gimme Some Loving ( 1988 )
-04. E-Type - Set The World On Fire ( 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030976   (670334) от 02.07.2016
-
-VA - Русская Дискотека ХХ Века - 18 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лолита - Забытые Герои ( Бони'М ) ( 1990 )
-02. Королева Наташа - Желтые Тюльпаны ( 1990 )
-03. Mr. Credo - Cosa Nostra ( 1998 )
-04. Студия Звук - Чико ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327EA327C3FD25325271A1F016611A6A39020A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030972   (670333) от 02.07.2016
-
-VA - Русская Дискотека ХХ Века - 17 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Журавлева Марина - Белая Черемуха ( 1991 )
-02. Лагуна ( Виктория Харенко ) - Вот И Все ( 1992 )
-03. Комбинация - Не Грусти ( 1991 )
-04. Игра ( Игорь Гранов ) - Неспелая Вишня ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A2A168DDA180E7CA1C6058378D07339A971C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Emsisoft Emergency Kit 2018.3.0.8532 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744621.jpg" />
+  <img src="Z:/picture/008/save_picture_744621.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG Internet Security 2016 16.81.7639 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744610.jpg" />
+  <img src="Z:/picture/008/save_picture_744610.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QuarkXPress 2016 12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744603.jpg" />
+  <img src="Z:/picture/005/save_picture_744603.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ammyy Admin Free 3.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744596.jpg" />
+  <img src="Z:/picture/005/save_picture_744596.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ammyy Admin Corporate 3.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744587.jpg" />
+  <img src="Z:/picture/008/save_picture_744587.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ KMSAuto Lite 1.5.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744581.jpg" />
+  <img src="Z:/picture/008/save_picture_744581.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VirtualBox 5.0.0 r99573 Beta 2 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744559.jpg" />
+  <img src="Z:/picture/008/save_picture_744559.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744555.jpg" />
+  <img src="Z:/picture/008/save_picture_744555.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CleanMyPC 1.9.1.1296 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744533.jpg" />
+  <img src="Z:/picture/008/save_picture_744533.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ YouTube By Click Premium 2.2.82 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744527.jpg" />
+  <img src="Z:/picture/008/save_picture_744527.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Registry First Aid Platinum 11.1.1 Build 2516 RePack (& portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744521.jpg" />
+  <img src="Z:/picture/008/save_picture_744521.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Topoformer 0.50 Beta For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744515.jpg" />
+  <img src="Z:/picture/005/save_picture_744515.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ HTC Home Apis 3.1 Build 627 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744491.jpg" />
+  <img src="Z:/picture/008/save_picture_744491.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ EASEUS Partition Master 10.5 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744480.jpg" />
+  <img src="Z:/picture/008/save_picture_744480.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Blok 4.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744479.jpg" />
+  <img src="Z:/picture/008/save_picture_744479.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ WinTools.net Premium 18.3.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744451.jpg" />
+  <img src="Z:/picture/008/save_picture_744451.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Movavi Video Converter 18.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744447.jpg" />
+  <img src="Z:/picture/008/save_picture_744447.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Avast Free Antivirus 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744441.jpg" />
+  <img src="Z:/picture/008/save_picture_744441.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DP Animation Maker 3.4.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744440.jpg" />
+  <img src="Z:/picture/008/save_picture_744440.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744438.jpg" />
+  <img src="Z:/picture/008/save_picture_744438.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Windows 10 Version 1511 (Updated Apr 2016) VL (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744428.jpg" />
+  <img src="Z:/picture/008/save_picture_744428.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Wondershare Video Editor 5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744382.jpg" />
+  <img src="Z:/picture/008/save_picture_744382.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Reveal Sound - Spire 1.1.13 (build 4027) + 640 SoundBanks (VSTi, AAX) (x86/x64) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744366.jpg" />
+  <img src="Z:/picture/008/save_picture_744366.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ EditPlus 5.0 (build 601) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744363.jpg" />
+  <img src="Z:/picture/008/save_picture_744363.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ YouTube Video Downloader PRO 5.9.5 (20180315) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744357.jpg" />
+  <img src="Z:/picture/008/save_picture_744357.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ ZBrush 2018 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744349.jpg" />
+  <img src="Z:/picture/008/save_picture_744349.jpg" />
 </div>
 
 

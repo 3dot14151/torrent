@@ -1,3 +1,29 @@
+###  Публикация: 1120810   (801880) от 31.03.2017
+
+Музей / Myujiamu (Museum) (2016) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Происходит серия убийств, причём именно в те дни, когда идёт дождь. Детектив Хисаси Савамура пытается поймать убийцу и вскоре понимает, что следующими жертвами будут его жена и сын. Подозреваемый — человек в маске лягушки.Производство: Япония, Twins JapanЖанр: Ужасы, Триллер, КриминалРежиссер: Кэйдзи ОтомоАктеры: Сюн Огури, Сюхэй Номура, Матико Оно, Томоми Маруяма, Масато Ибу, Томоко Табата, Микако Итикава, Нао ОмориПеревод: Любительский (одноголосый, закадровый) - BadBajoСубтитры: ОтсутствуетПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F732421683FBEB67B4013BA15C9382964396EB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506056   (801458) от 29.10.2021
 
 Портрет красивой девушки / Портрет красавицы / Miindo / Mi-in-do / Portrait of a Beauty (2008) BDRip [H.264] [DVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801458.jpg" />
+  <img src="Z:/picture/008/save_picture_801458.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801413.jpg" />
+  <img src="Z:/picture/008/save_picture_801413.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800904.jpg" />
+  <img src="Z:/picture/008/save_picture_800904.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800882.jpg" />
+  <img src="Z:/picture/008/save_picture_800882.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800268.jpg" />
+  <img src="Z:/picture/008/save_picture_800268.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800205.jpg" />
+  <img src="Z:/picture/008/save_picture_800205.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799566.jpg" />
+  <img src="Z:/picture/008/save_picture_799566.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799293.jpg" />
+  <img src="Z:/picture/008/save_picture_799293.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798943.jpg" />
+  <img src="Z:/picture/008/save_picture_798943.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798716.jpg" />
+  <img src="Z:/picture/008/save_picture_798716.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798256.jpg" />
+  <img src="Z:/picture/008/save_picture_798256.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798249.jpg" />
+  <img src="Z:/picture/008/save_picture_798249.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798228.jpg" />
+  <img src="Z:/picture/008/save_picture_798228.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798106.jpg" />
+  <img src="Z:/picture/008/save_picture_798106.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797895.jpg" />
+  <img src="Z:/picture/008/save_picture_797895.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797147.jpg" />
+  <img src="Z:/picture/008/save_picture_797147.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796837.jpg" />
+  <img src="Z:/picture/008/save_picture_796837.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795364.jpg" />
+  <img src="Z:/picture/008/save_picture_795364.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794670.jpg" />
+  <img src="Z:/picture/008/save_picture_794670.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794385.jpg" />
+  <img src="Z:/picture/008/save_picture_794385.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794357.jpg" />
+  <img src="Z:/picture/008/save_picture_794357.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793905.jpg" />
+  <img src="Z:/picture/008/save_picture_793905.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793341.jpg" />
+  <img src="Z:/picture/008/save_picture_793341.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793328.jpg" />
+  <img src="Z:/picture/008/save_picture_793328.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792730.jpg" />
+  <img src="Z:/picture/008/save_picture_792730.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D4B948339CCA5E821969941058D6BA2FB1C2B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508378   (792540) от 14.11.2021
-
-Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: Боевик, приключения, драмаРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: Многоголосый любительский (АрхиAsia)Субтитры: Английские, китайские (хардсаб)Продолжительность: 01:54:26Реклама: Видеоряд содержит в верхнем правом углу логотип РГ АрхиAsia
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703B8B4F46A97F11C8064931581CB862BED9A65A
 ```
 
 https://mybot314.ru/tekegram_catalog/

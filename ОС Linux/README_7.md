@@ -6,7 +6,7 @@ Sabayon 14.05 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738593.jpg" />
+  <img src="Z:/picture/008/save_picture_738593.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит б�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738007.jpg" />
+  <img src="Z:/picture/008/save_picture_738007.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Edubuntu 14.04 LTS [x86, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737147.jpg" />
+  <img src="Z:/picture/008/save_picture_737147.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Lubuntu 14.04 LTS [x86, x86-64] 4xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737030.jpg" />
+  <img src="Z:/picture/008/save_picture_737030.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ GeckoLinux "Rolling" edition 999.200729.0 [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732834.jpg" />
+  <img src="Z:/picture/008/save_picture_732834.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729374.jpg" />
+  <img src="Z:/picture/008/save_picture_729374.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ROSA Desktop Fresh R9 PLASMA 5 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729218.jpg" />
+  <img src="Z:/picture/008/save_picture_729218.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728469.jpg" />
+  <img src="Z:/picture/008/save_picture_728469.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Arch Linux 2015.04.01 [i686, x86-64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725120.jpg" />
+  <img src="Z:/picture/008/save_picture_725120.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Kubuntu 15.04 Vivid Vervet (KDE 5.x) [x86, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725112.jpg" />
+  <img src="Z:/picture/008/save_picture_725112.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Xubuntu 15.04 Vivid Vervet (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725061.jpg" />
+  <img src="Z:/picture/008/save_picture_725061.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Lubuntu 15.04 Vivid Vervet (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725059.jpg" />
+  <img src="Z:/picture/008/save_picture_725059.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724983.jpg" />
+  <img src="Z:/picture/008/save_picture_724983.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724858.jpg" />
+  <img src="Z:/picture/008/save_picture_724858.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Debian Edu - Skolelinux 10.5.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722734.jpg" />
+  <img src="Z:/picture/008/save_picture_722734.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722032.jpg" />
+  <img src="Z:/picture/008/save_picture_722032.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ BackBox Linux 4.2 (Анализ безопасности, хакинг) [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717085.jpg" />
+  <img src="Z:/picture/008/save_picture_717085.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.5 [x86-64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716909.jpg" />
+  <img src="Z:/picture/008/save_picture_716909.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ JonDo 0.9.78 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715034.jpg" />
+  <img src="Z:/picture/008/save_picture_715034.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712502.jpg" />
+  <img src="Z:/picture/008/save_picture_712502.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711957.jpg" />
+  <img src="Z:/picture/008/save_picture_711957.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711874.jpg" />
+  <img src="Z:/picture/008/save_picture_711874.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711798.jpg" />
+  <img src="Z:/picture/008/save_picture_711798.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711314.jpg" />
+  <img src="Z:/picture/008/save_picture_711314.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Linux Mint 17 Qiana [x86, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709692.jpg" />
+  <img src="Z:/picture/008/save_picture_709692.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Q4OS 1.4.11 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707507.jpg" />
+  <img src="Z:/picture/008/save_picture_707507.jpg" />
 </div>
 
 

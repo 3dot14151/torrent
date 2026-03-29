@@ -1,3 +1,55 @@
+###  Публикация: 1074929   (321285) от 22.11.2016
+
+Виктория Токарева | Своя правда (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейшая история о том, как трудно жить и выживать в нашем мире женщине. Всё было в жизни Марины: и семья, и дети, и предательство, и яркая всепоглощающая любовь, и национальные разборки, и новое предательство… Всё смогла пережить Марина и пронести свою любовь, несмотря ни на что. Оказывается, можно простить даже предательство, если по-настоящему любишь. Душа (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 02:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BFAE9796784BAFDB784FFC7D17FD0249EB0C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331750   (320885) от 17.10.2019
+
+Сара Райнер | Один момент, одно утро (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь утра, поезд из Брайтона в Лондон. Все как обычно, люди украдкой наблюдают друг за другом, впереди очередной рабочий день. Но в одно мгновение что-то меняется… И судьба Анны, Лоу и Карен никогда уже не будет прежней. Один момент, одно необыкновенное утро в поезде… Кто бы мог подумать, что история, случившаяся тогда, станет для них отправной точкой новой жизни, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAF35466628270318A17BAA8131755B53D5B25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331749   (320884) от 17.10.2019
 
 Сара Райнер | Другой день, другая ночь (2019) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320884.jpg" />
+  <img src="Z:/picture/008/save_picture_320884.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319431.jpg" />
+  <img src="Z:/picture/008/save_picture_319431.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318758.jpg" />
+  <img src="Z:/picture/008/save_picture_318758.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318746.jpg" />
+  <img src="Z:/picture/008/save_picture_318746.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318513.jpg" />
+  <img src="Z:/picture/008/save_picture_318513.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317296.jpg" />
+  <img src="Z:/picture/008/save_picture_317296.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316948.jpg" />
+  <img src="Z:/picture/008/save_picture_316948.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316813.jpg" />
+  <img src="Z:/picture/008/save_picture_316813.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316665.jpg" />
+  <img src="Z:/picture/008/save_picture_316665.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316575.jpg" />
+  <img src="Z:/picture/008/save_picture_316575.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316574.jpg" />
+  <img src="Z:/picture/008/save_picture_316574.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316571.jpg" />
+  <img src="Z:/picture/008/save_picture_316571.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316570.jpg" />
+  <img src="Z:/picture/008/save_picture_316570.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316568.jpg" />
+  <img src="Z:/picture/008/save_picture_316568.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316565.jpg" />
+  <img src="Z:/picture/008/save_picture_316565.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316564.jpg" />
+  <img src="Z:/picture/008/save_picture_316564.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316150.jpg" />
+  <img src="Z:/picture/008/save_picture_316150.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316123.jpg" />
+  <img src="Z:/picture/008/save_picture_316123.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314964.jpg" />
+  <img src="Z:/picture/008/save_picture_314964.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314849.jpg" />
+  <img src="Z:/picture/008/save_picture_314849.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314567.jpg" />
+  <img src="Z:/picture/008/save_picture_314567.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314548.jpg" />
+  <img src="Z:/picture/008/save_picture_314548.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314328.jpg" />
+  <img src="Z:/picture/008/save_picture_314328.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314309.jpg" />
+  <img src="Z:/picture/008/save_picture_314309.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF92C357C6C86A45701DCDDF25840D0A9F8B5717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182972   (312199) от 12.11.2017
-
-Курт Воннегут | Мать Тьма (1992) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании вниманию читателей предлагается роман К.Воннегута "Мать Тьма", в котором хладнокровно и с бесподобным висельным юмором исследуется роль отдельно взятого шпиона в судьбах наций.
-В романе Курта Воннегута «Мать Тьма» повествование идет от имени американского шпиона в фашистской Германии, где он работал на радио и в своих передачах настолько (   Читать дальше...   )Жанр: ДрамаПродолжительность: 05:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F524FEE1448FB110BF33D9DE0E0794E7EC4415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076140   (311737) от 26.11.2016
-
-Юстейн Гордер | Апельсиновая девушка (2004) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Апельсиновая Девушка» — это трогательное и мудрое повествование, в центре которого удивительная история любви. Пятнадцатилетний мальчик читает письмо отца, которое тот написал ему перед своей смертью 11 лет назад. Это история знакомства и любви героя и загадочной Апельсиновой девушки. Это книга, которую отец и сын пишут вместе о том, что «жизнь — это гигантская (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 06:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8B2E49B1EA630E47CB06C761A36BB46A4B90E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

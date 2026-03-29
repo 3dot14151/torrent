@@ -1,3 +1,81 @@
+###  Публикация: 1139397   (693411) от 12.03.2019
+
+RiME (2017) [Ru/Multi] (1.04) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0B43F4D13DB02F0CA8D2A2B5881E0DF33B4FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221676   (692879) от 25.04.2018
+
+PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотрите, так могла бы выглядеть игра, созданная самой Пилой! Используйте доступные предметы, обманывайте иллюзии и разгадывайте оптические головоломки, и, прежде всего, ответьте на вопрос - смеете ли вы играть со мной? Шаг в мир, вдохновленный фильмом SAW.Тип издания: LicenseРазработчик: AIREMЖанр: Adventure (Horror), Logic, PuzzleЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Украинский, Английский и другиеЯзык интерфейса: Русский, Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3F1427593E39EC05CC50CDCD6A261D95CF0DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288924   (691635) от 13.03.2019
+
+Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_691635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kageroh: Shadow Corridor — это игра в жанре хоррор, разрабатываемая KazukiShiroma для платформы PC. Окружение в игре относится к cтилистике фэнтези, а выделить особенности можно следующие: экшен, инди, хоррор.Тип издания: LicenseРазработчик: KazukiShiromaЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Корейский, ЯпонскийЯзык интерфейса: Английский, Корейский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330A77FF812B3D0642C501C4E407D3D332FCED7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221868   (691041) от 26.04.2018
 
 Inked (2018) [Multi] (20180425-1) License CODEX
@@ -6,7 +84,7 @@ Inked (2018) [Multi] (20180425-1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691041.jpg" />
+  <img src="Z:/picture/008/save_picture_691041.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690961.jpg" />
+  <img src="Z:/picture/008/save_picture_690961.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Fan (2017) [En/Fr] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690780.jpg" />
+  <img src="Z:/picture/008/save_picture_690780.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Dark Earth (1997) [Ru] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690010.jpg" />
+  <img src="Z:/picture/008/save_picture_690010.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Peaky Blinders: Mastermind (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689874.jpg" />
+  <img src="Z:/picture/008/save_picture_689874.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Battletoads (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689855.jpg" />
+  <img src="Z:/picture/008/save_picture_689855.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Breached (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688095.jpg" />
+  <img src="Z:/picture/008/save_picture_688095.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Asemblance (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688085.jpg" />
+  <img src="Z:/picture/008/save_picture_688085.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688061.jpg" />
+  <img src="Z:/picture/008/save_picture_688061.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686745.jpg" />
+  <img src="Z:/picture/008/save_picture_686745.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686515.jpg" />
+  <img src="Z:/picture/008/save_picture_686515.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686021.jpg" />
+  <img src="Z:/picture/008/save_picture_686021.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685860.jpg" />
+  <img src="Z:/picture/008/save_picture_685860.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685780.jpg" />
+  <img src="Z:/picture/008/save_picture_685780.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Breached (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685775.jpg" />
+  <img src="Z:/picture/008/save_picture_685775.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Monster Prom (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684561.jpg" />
+  <img src="Z:/picture/008/save_picture_684561.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684361.jpg" />
+  <img src="Z:/picture/008/save_picture_684361.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684351.jpg" />
+  <img src="Z:/picture/008/save_picture_684351.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683823.jpg" />
+  <img src="Z:/picture/008/save_picture_683823.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681825.jpg" />
+  <img src="Z:/picture/008/save_picture_681825.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680524.jpg" />
+  <img src="Z:/picture/008/save_picture_680524.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679943.jpg" />
+  <img src="Z:/picture/008/save_picture_679943.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679841.jpg" />
+  <img src="Z:/picture/008/save_picture_679841.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EEB82B2C2892A5DB260B555DDF9117065CCF560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135810   (678438) от 20.05.2017
-
-The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если семья - это все, что у тебя осталось… как далеко ты зайдешь, чтоб защитить ее? Четыре года спустя после того, как зомби разодрали общество на части, в хаосе возникают карманы цивилизации. Но какой ценой? Можно ли доверять людям на этом последнем рубеже? В роли Javier, молодого человека, разыскивающего семью, которой его лишили, вы встречаете девушку, в свою (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEF745FF292D0BA880D458368D5914E0D1169CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530755   (678063) от 10.03.2022
-
-Know by Heart... / Помни... (2022) [Ru/En] (1.03) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678063.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Помни...” — это игра о принятии утраты. С помощью сюжета, музыки, интуитивно понятного геймплея и атмосферных мини-игр в ней создаётся иллюзия возвращения в детство и следующего за ним взросления, осознания скоротечности времени. Игрока ожидает погружение в быт провинциального российского городка, где ещё слышны отголоски советской эпохи и жизнь хранит на себе её (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick LodgeЖанр: Adventure, Visual NovelЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F330064B610BE7A049CF9D26E8B59AA094796AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310141   (678037) от 14.05.2011
-
-Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Island: Глава 2 Осада Рыбацкого рифа [Ru] (L) 2011
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tales of Monkey Island - это пятая часть знаменитой саги, разработанная Telltale Games совместно с LucasArts. Игра начинается через несколько лет после событий, разворачивавшихся в Escape from Monkey Island. Во втором эпизоде нашей истории грозный пират Гайбраш сбежал с острова, но его рука все еще поражена заразой, а ЛеЧак, в человеческом облике, ухлёстывает за Илэйн. И надо же было, именно в этот момент, встретится с охотницей за пиратами! Она ловкий и опытный боец, но Гайбраш и сам не лыком шит. Морган ЛеФлэй только и смогла, что отрубить зараженную руку после чего, усилиями нашего героя, оказалась за бортом. Жаль, но она повредила мачту «Нарвала» и придется нам причалить на острове «Рыбацкий Риф», в городе русалок. Здесь, среди ожесточенного противостояния зараженных пиратов и невинного морского народа, и начинает развиваться история второй главы. А ситуация не простая - приходится разрываться на части, избегая упорно идущей по его следу охотницы, защищать русалок и искать лекарство от чумы. Сумеет ли наш (   Читать дальше...   )Тип издания: ЛицензияЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

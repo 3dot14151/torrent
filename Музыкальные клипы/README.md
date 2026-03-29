@@ -1,4 +1,85 @@
 https://t.me/izofen
+###  Публикация: 1861686   (1062907) от 
+
+Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская группа из четырёх участниц компании P NATION. Дебютировали 23 июня 2025 года с сингловым альбомом "F Girl"
+After Cry - первый мини-альбом Baby DONT Cry. Он был выпущен 24 марта 2026 года с "Bittersweet" в качестве заглавного трека. Релиз клипа состоялся днем ранее. Предварительный релиз "Shapeshifter" состоялся 11 марта.Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7D9C74C566994B127C1B0C1EAD222D2DE167C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861027   (1062198) от 
+
+Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская группа из пяти участниц компании TOP Media. Они дебютировали 1 ноября 2024 года с сингловым альбомом "Best Friendz".
+12 марта 2026 года ODD YOUTH выпустили свой второй сингловый альбом и клип "Babyface".Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C27A3892E43DE9724CA3A9C1858CA42C4F4123D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861051   (1062190) от 
+
+Narin - No Savior (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нарин (На Рин)- южнокорейская певица является участницей женской группы MEOVV.
+21 марта 2026 года состоялся релиз песни и клипа «NO SAVIOR» для дорамы tvN «Mad Concrete Dreams».Производство: Южная КореяЖанр: ElectronicaПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8F72570441A7AD1E81024F55E9D945E8415E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860170   (1061855) от 
 
 DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
@@ -7,7 +88,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061855.jpg" />
+  <img src="Z:/picture/005/save_picture_1061855.jpg" />
 </div>
 
 
@@ -36,7 +117,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061335.jpg" />
+  <img src="Z:/picture/005/save_picture_1061335.jpg" />
 </div>
 
 
@@ -64,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061000.jpg" />
+  <img src="Z:/picture/005/save_picture_1061000.jpg" />
 </div>
 
 
@@ -93,7 +174,7 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060999.jpg" />
+  <img src="Z:/picture/005/save_picture_1060999.jpg" />
 </div>
 
 
@@ -119,7 +200,7 @@ Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060810.jpg" />
+  <img src="Z:/picture/005/save_picture_1060810.jpg" />
 </div>
 
 
@@ -145,7 +226,7 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060477.jpg" />
+  <img src="Z:/picture/009/save_picture_1060477.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060461.jpg" />
+  <img src="Z:/picture/009/save_picture_1060461.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060460.jpg" />
+  <img src="Z:/picture/009/save_picture_1060460.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060459.jpg" />
+  <img src="Z:/picture/009/save_picture_1060459.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060458.jpg" />
+  <img src="Z:/picture/009/save_picture_1060458.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060441.jpg" />
+  <img src="Z:/picture/009/save_picture_1060441.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058361.jpg" />
+  <img src="Z:/picture/005/save_picture_1058361.jpg" />
 </div>
 
 
@@ -331,7 +412,7 @@ Baby DONT Cry - I DONT Care (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049897.jpg" />
+  <img src="Z:/picture/005/save_picture_1049897.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ Alice - Dance On (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049896.jpg" />
+  <img src="Z:/picture/005/save_picture_1049896.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049885.jpg" />
+  <img src="Z:/picture/005/save_picture_1049885.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045626.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045623.jpg" />
 </div>
 
 
@@ -466,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045390.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045034.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045031.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041893.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036126.jpg" />
 </div>
 
 
@@ -605,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035067.jpg" />
 </div>
 
 
@@ -619,88 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78DF2932F71450C9A9DCBBEB256E8CF3B644B81F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444749   (1033915) от 04.02.2021
-
-Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <Acoustic, Pop>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Габриэлла родилась и выросла в Чинне, Швеция. Начала играть на гитаре достаточно рано, её первым преподавателем был её отец. С двенадцати лет Габриэлла начала играть на гитаре, в основном в технике фингерстайл. Сначала она играла каверы других исполнителей, а также собственные аранжировки на платформе YouTube. В июле 2018 года альбом с названием "Acoustic Cover (   Читать дальше...   )01. (ABBA) Happy New Year - Gabriella Quevedo
-02. (ABBA) Lay All Your Love On Me - Gabriella Quevedo
-03. (ABBA) Money Money Money - Gabriella Quevedo
-04. (ABBA) The Winner Takes It All - Gabriella Quevedo (std)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: ~00:03:00-00:07:00 ролик, (общая 05:50:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DBA44CD2F64580B62BC40FD05A33C1974B3C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619920   (1032498) от 18.03.2023
-
-Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480921AF761699C3F435C53512DF1FC4B7DA2EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445972   (1030665) от 18.02.2021
-
-Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered upscale AI] [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030665.jpg" />
-</div>
-
-
-###  Подробнее
-
-:question:  А че писать? Клип он и есть клип, веселый, красочный. Сиськи, много Сисек. Потому и рейтинг НЕ детский, а еще коробки с презервативами полным кадром. Так что - клип точно не детский.
-Клип переделан в Топазе с увеличением размера картинки, предварительно до него была снята гребенка с оригинального DVD-сборника клипов (качество там полная дрянь). Надеюсь (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF4621DD8B644F673EA88D74295EAD400C91D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

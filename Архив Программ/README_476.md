@@ -6,7 +6,7 @@ Realtime Landscaping Architect 2018 v.18.03 +Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797690.jpg" />
+  <img src="Z:/picture/008/save_picture_797690.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SlimBrowser 7.00 Build 143 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797654.jpg" />
+  <img src="Z:/picture/008/save_picture_797654.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mozilla Firefox 47.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797652.jpg" />
+  <img src="Z:/picture/008/save_picture_797652.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ USDownloader 1.3.5.9 Portable (25.04.2016)[Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797624.jpg" />
+  <img src="Z:/picture/008/save_picture_797624.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WinUtilities Professional Edition 12.45 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797613.jpg" />
+  <img src="Z:/picture/008/save_picture_797613.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CCleaner 5.17.5590 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797600.jpg" />
+  <img src="Z:/picture/008/save_picture_797600.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CCleaner 5.17.5590 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797596.jpg" />
+  <img src="Z:/picture/008/save_picture_797596.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ YouTube Video Downloader PRO 5.5 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797594.jpg" />
+  <img src="Z:/picture/008/save_picture_797594.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WinToUSB Enterprise 2.9 Release 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797592.jpg" />
+  <img src="Z:/picture/008/save_picture_797592.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mozilla Firefox 46.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797578.jpg" />
+  <img src="Z:/picture/008/save_picture_797578.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vivaldi 1.1.453.47 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797570.jpg" />
+  <img src="Z:/picture/008/save_picture_797570.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Windows 10 Manager 1.1.2 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797568.jpg" />
+  <img src="Z:/picture/008/save_picture_797568.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CCleaner 5.17.5590 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797545.jpg" />
+  <img src="Z:/picture/008/save_picture_797545.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Format Factory 3.9.0 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797543.jpg" />
+  <img src="Z:/picture/008/save_picture_797543.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AIMP 5.00.2342 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797504.jpg" />
+  <img src="Z:/picture/008/save_picture_797504.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FreeFileSync 9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797491.jpg" />
+  <img src="Z:/picture/008/save_picture_797491.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ AVG Internet Security 2016 16.71.7596 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797480.jpg" />
+  <img src="Z:/picture/008/save_picture_797480.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AMD Radeon Software Crimson Edition 16.4.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797474.jpg" />
+  <img src="Z:/picture/008/save_picture_797474.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Piriform CCleaner Professional Plus 5.17.5590 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797471.jpg" />
+  <img src="Z:/picture/008/save_picture_797471.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ AIMP 5.00 Build 2342 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797448.jpg" />
+  <img src="Z:/picture/008/save_picture_797448.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Freeplane 1.9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797447.jpg" />
+  <img src="Z:/picture/008/save_picture_797447.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Norton Remove and Reinstall 4.4.0.71 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797434.jpg" />
+  <img src="Z:/picture/008/save_picture_797434.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ QQ Browser 10.0.608 Portable by Cento8 [Ru/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797432.jpg" />
+  <img src="Z:/picture/008/save_picture_797432.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ XnViewMP 0.89 + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797431.jpg" />
+  <img src="Z:/picture/008/save_picture_797431.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Pale Moon 27.7.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797428.jpg" />
+  <img src="Z:/picture/008/save_picture_797428.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Mozilla Firefox 46.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797418.jpg" />
+  <img src="Z:/picture/008/save_picture_797418.jpg" />
 </div>
 
 

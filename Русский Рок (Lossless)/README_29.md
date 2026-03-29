@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490895.jpg" />
+  <img src="Z:/picture/008/save_picture_490895.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490120.jpg" />
+  <img src="Z:/picture/008/save_picture_490120.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485148.jpg" />
+  <img src="Z:/picture/008/save_picture_485148.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Veladelyra - Золото погибших кораблей (2020) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483686.jpg" />
+  <img src="Z:/picture/008/save_picture_483686.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Otto Dix - Автократор (2020) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483377.jpg" />
+  <img src="Z:/picture/008/save_picture_483377.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483370.jpg" />
+  <img src="Z:/picture/008/save_picture_483370.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483219.jpg" />
+  <img src="Z:/picture/008/save_picture_483219.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482424.jpg" />
+  <img src="Z:/picture/008/save_picture_482424.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479824.jpg" />
+  <img src="Z:/picture/008/save_picture_479824.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478205.jpg" />
+  <img src="Z:/picture/008/save_picture_478205.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Tracktor Bowling - Бесконечность (2015) [FLAC|Lossless|WEB-DL]<Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475489.jpg" />
+  <img src="Z:/picture/008/save_picture_475489.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475380.jpg" />
+  <img src="Z:/picture/008/save_picture_475380.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475244.jpg" />
+  <img src="Z:/picture/008/save_picture_475244.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474014.jpg" />
+  <img src="Z:/picture/008/save_picture_474014.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473998.jpg" />
+  <img src="Z:/picture/008/save_picture_473998.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473996.jpg" />
+  <img src="Z:/picture/008/save_picture_473996.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473462.jpg" />
+  <img src="Z:/picture/008/save_picture_473462.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472756.jpg" />
+  <img src="Z:/picture/008/save_picture_472756.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 20
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470191.jpg" />
+  <img src="Z:/picture/008/save_picture_470191.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469163.jpg" />
+  <img src="Z:/picture/008/save_picture_469163.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469071.jpg" />
+  <img src="Z:/picture/008/save_picture_469071.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467098.jpg" />
+  <img src="Z:/picture/008/save_picture_467098.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466079.jpg" />
+  <img src="Z:/picture/008/save_picture_466079.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ V.A. - Монстры Рока СССР: 20 Лет Спустя (2012) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464676.jpg" />
+  <img src="Z:/picture/008/save_picture_464676.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ Znaki (Знаки) - 3 Альбома (2007-2012) [FLAC|Lossless] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464360.jpg" />
+  <img src="Z:/picture/008/save_picture_464360.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ KCHORTOO (KCHÖRTOO) - SARANCHA (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464264.jpg" />
+  <img src="Z:/picture/008/save_picture_464264.jpg" />
 </div>
 
 

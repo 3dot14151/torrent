@@ -1,3 +1,154 @@
+###  Публикация: 1541857   (642616) от 04.04.2022
+
+John Salvage & New Twenty Saints - Nikita (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Waking Up The Horse (00:04:09)
+02 - Bound (00:05:14)
+03 - Nikita (00:02:51)
+04 - Fade Away (00:04:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198EA68105CF861978EBA5CE44DD3B722F804AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032678   (642115) от 09.07.2016
+
+David M'ore - Passion, Soul & Fire (2015) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil's Ground [04:14]
+02. Love Again [05:05]
+03. Stronger Than I Realize [08:35]
+04. Johan Sebastian Blues [05:34](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D20723826C333700E5EBC16D14A73FCF8AE21DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032946   (642111) от 09.07.2016
+
+Lanterna - 3 Альбома (2001 - 2006) [APE|Lossless|image + .cue] <Folk Rock, Space Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elm Street    05:25
+02.  B Minor    05:13
+03.  Spirits    03:00
+04.  Thirty    04:10(   Читать дальше...   )Жанр: Folk Rock, Space Rock, AmbientПродолжительность: 02:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5094505B09DD5AE2817349CC391A598CA39F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906524   (641845) от 10.06.2015
+
+Orange Bicycle - Hyacinth Threads: The Morgan Blue Town Recordings (2001) [FLAC|tracks+.cue]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura's Garden 03:16
+02. Competition 02:40
+03. Lavender Girl 02:20
+04. Rainy Jane 02:58(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2111A5E6AC9DAF905428AAF1B4AE237BA0707750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518773   (641526) от 04.07.2012
+
+2:54 - 2:54 (2012) [FLAC|Lossless]<Indie-Rock, Dream-Pop, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_641526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolving
+02. You’re Early
+03. Easy Undercover
+04. A Salute
+05. Scarlet
+06. Sugar
+07. Circuitry
+08. Watcher
+09. Ride
+10. CreepingЖанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518704   (641391) от 04.07.2012
 
 Joe Walsh - Analog Man (2012) [FLAC|Lossless]<Classic Rock>
@@ -6,7 +157,7 @@ Joe Walsh - Analog Man (2012) [FLAC|Lossless]<Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641391.jpg" />
+  <img src="Z:/picture/005/save_picture_641391.jpg" />
 </div>
 
 
@@ -41,7 +192,7 @@ Blackberry Smoke - The Whippoorwill (2012) [FLAC|Lossless]<Southern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641372.jpg" />
+  <img src="Z:/picture/005/save_picture_641372.jpg" />
 </div>
 
 
@@ -76,7 +227,7 @@ Sweet - New York Connection (2012) [FLAC|Lossless]<Classic Rock, Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641245.jpg" />
+  <img src="Z:/picture/005/save_picture_641245.jpg" />
 </div>
 
 
@@ -111,7 +262,7 @@ Omega - 200 Years After The Last War & The Hall Of Floaters In The Sky (1974-197
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640861.jpg" />
+  <img src="Z:/picture/008/save_picture_640861.jpg" />
 </div>
 
 
@@ -140,7 +291,7 @@ Visitors (Ex. Rockets) - Visitors (1981) [FLAC|Lossless]<Space Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_640851.jpg" />
+  <img src="Z:/picture/005/save_picture_640851.jpg" />
 </div>
 
 
@@ -174,7 +325,7 @@ Coldplay - Mylo Xyloto (2011) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_640843.jpg" />
+  <img src="Z:/picture/005/save_picture_640843.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ Grand Funk - We're An American Band (1973) remaster, 2010, Audio Fidelity [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_640266.jpg" />
+  <img src="Z:/picture/005/save_picture_640266.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ Heart - Beautiful Broken (2016) [FLAC|Lossless|tracks] <Melodic Rock, Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640107.jpg" />
+  <img src="Z:/picture/008/save_picture_640107.jpg" />
 </div>
 
 
@@ -267,7 +418,7 @@ Chris Rea - Auberge (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639332.jpg" />
+  <img src="Z:/picture/008/save_picture_639332.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ OSI - 4 Albums, 1 EP (2003 - 2012) 10CD [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639189.jpg" />
+  <img src="Z:/picture/008/save_picture_639189.jpg" />
 </div>
 
 
@@ -325,7 +476,7 @@ Pink Floyd - Animals (1977) Reissue, 1986 [FLAC|Lossless|image + .cue] <Rock, Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638936.jpg" />
+  <img src="Z:/picture/008/save_picture_638936.jpg" />
 </div>
 
 
@@ -354,7 +505,7 @@ Iona - Another Realm (2011) 2 CD [FLAC|Lossless|tracks] <Rock, Folk Rock, Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638243.jpg" />
+  <img src="Z:/picture/008/save_picture_638243.jpg" />
 </div>
 
 
@@ -383,7 +534,7 @@ John Du Cann - The Many Sides Of 1967-1980 (2012) Remastered /2012, Angel Air/ [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638086.jpg" />
+  <img src="Z:/picture/008/save_picture_638086.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ Forest - 2 альбома (1969-1970) Remastered /2015, Warner Music Japan/ [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638085.jpg" />
+  <img src="Z:/picture/008/save_picture_638085.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ Galahad - Battle Scars (2012) [FLAC|Lossless]<Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637498.jpg" />
+  <img src="Z:/picture/005/save_picture_637498.jpg" />
 </div>
 
 
@@ -474,7 +625,7 @@ Mike Bloomfield And Al Kooper - The Live Adventures of Mike Bloomfield and Al Ko
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637491.jpg" />
+  <img src="Z:/picture/005/save_picture_637491.jpg" />
 </div>
 
 
@@ -500,7 +651,7 @@ Ayers Rock - Big Red Rock (1974) Remastered, 2016, Aztec Music [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637329.jpg" />
+  <img src="Z:/picture/008/save_picture_637329.jpg" />
 </div>
 
 
@@ -529,7 +680,7 @@ The Ring - Imaginator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637258.jpg" />
+  <img src="Z:/picture/008/save_picture_637258.jpg" />
 </div>
 
 
@@ -558,7 +709,7 @@ Lee Abraham - The Seasons Turn (2016) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636266.jpg" />
+  <img src="Z:/picture/008/save_picture_636266.jpg" />
 </div>
 
 
@@ -587,7 +738,7 @@ Vasya Club - Хiпан (2002) [FLAC|image+.cue]<Folk-Rock >
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636155.jpg" />
+  <img src="Z:/picture/008/save_picture_636155.jpg" />
 </div>
 
 
@@ -616,7 +767,7 @@ Captain Beefheart & The Magic Band - 2 альбома (1980-1982) [FLAC|image+.c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636060.jpg" />
+  <img src="Z:/picture/008/save_picture_636060.jpg" />
 </div>
 
 
@@ -630,151 +781,6 @@ Captain Beefheart & The Magic Band - 2 альбома (1980-1982) [FLAC|image+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE6876648F0B1490B6A8FDDE5ACB0C909BF9B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907988   (635968) от 13.06.2015
-
-Smokie - Changing All The Time (1975) [FLAC|image +.cue]<Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Play Your Rock'N'Roll To Me(3:19)
-02. If You Think You Know How To Love Me(3:28)
-03. It's Natural(2:40)
-04. Give It To Me(4:07)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDCCE1D96008FE8C0CB25B51EFA69E82206AF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143527   (635390) от 18.06.2017
-
-Smokey Fingers - Columbus Way (2011) [FLAC|Lossless|image + .cue] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Jack  (03:33) 
-02. The Lover  (04:45) 
-03. Chains Of Mind  (04:47) 
-04. Born To Run  (04:40) (   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05ACE9680BAE9A0F6741A468458350B4971A64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143286   (635388) от 18.06.2017
-
-The Black Sorrows - Certified Blue (2014) [FLAC|Lossless|tracks + .cue] <Roots Rock, Funk, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roaring Town  (03:17) 
-02. Certified Blue  (04:00) 
-03. Can't Give Up On You  (03:33) 
-04. Wake Me Up In Paradise  (04:38) (   Читать дальше...   )Жанр: Roots Rock, Funk, BluesПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D11F8A81ED03052E7D5C50B7024F159CD418C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542735   (635333) от 08.04.2022
-
-Fortune - Level Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence Of The Heart
-02. Judgement Day
-03. Dangerous Things
-04. I Will Hold You Up(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8371D0DFB28A7BC96861735DFD08655AF510E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143550   (635246) от 18.06.2017
-
-Jeff Lynne And Friends - Every Little Thing (2010) Compilation [FLAC|Lossless|image + .cue] <Rock, Pop-Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every little Thing (12'' remix)  (07:49) 
-02. Rockabilly Holiday  (03:50) 
-03. Heartbreak Radio  (03:01) 
-04. Sand in my eyes  (03:21) (   Читать дальше...   )Жанр: Rock, Pop-Rock, Classic RockПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F23DD5B33A1D7DAC6075E412595D6FCC89646EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

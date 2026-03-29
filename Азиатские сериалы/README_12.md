@@ -1,3 +1,81 @@
+###  Публикация: 1705377   (63610) от 08.03.2024
+
+Чингисхан / Cheng Ji Si Han / Genghis Khan (2004) DVDRip [H.264] (сезон 1, серии 1-30 из 30)
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63610.jpg" />
+</div>
+
+
+###  Подробнее
+
+800 лет назад монгольская степь была заселена множеством племен, самыми многочисленными из которых были кераиты, меркиты, татары, найманы и монголы. Эти пять крупных племен были независимыми и не подчинялись друг другу. Династия Цзинь в отношении них осуществляла политику «разделяй и властвуй», проводила разбойные набеги, сокращая население этих племен. Эта вражда (   Читать дальше...   )Производство: Китай, Монголия / China Central Television (CCTV), Inner Mongolia TelevisionЖанр: история, биография, драма, боевикРежиссер: Ван ВэньцзэАктеры: Басэн Чжабу, Сыцинь Гаова, Чжао ХэнсюаньПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, китайскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98BA834A3B778F65A19898B82F9A66D2C81F859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713481   (60624) от 06.04.2024
+
+Паразит: Серый / Gisaengsu: Deo Geurei / Parasyte: The Grey (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) LE-Production
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество подвергается нападению паразитических инопланетных организмов, которые захватывают мозг, чтобы полностью контролировать тело и пожирать других людей. Один из таких паразитов не смог установить полный контроль над своей носительницей и теперь живёт в её руке.Производство: Южная Корея, Netflix, Climax Studio, Wow PointЖанр: фантастика, боевикРежиссер: Ён Сан-хоАктеры: Чон Со-ни, Ку Гё-хван, Ли Джон-хён, Ку Щи-ён, Ким Ин-Гвон, Квон Хэ-хёПеревод: Многоголосый профессиональный (LE-Production)Язык озвучки: русский, английский, корейскийСубтитры: русские, английские (SDH), корейские (SDH), украинскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9586463D41A4B2955CCE1EA6508128C1363422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683672   (60386) от 08.04.2024
+
+Чудесные братья / Gijeokui hyeongje / Miracle Brothers (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox Стажеры
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель-неудачник Юк Дон Джу, который по уши в долгах, встречает загадочного парня Кан Сана, обладающего невероятными способностями.Производство: Южная Корея / JTBCЖанр: детектив, фэнтези, драмаРежиссер: Пак Чхан-хонАктеры: Чон У, Пэ Хён-сон, Пак Ю-рим, Ли Ги-у, Чо Бон-нэ, О Ман-сок, Со Джэ-хи, Кан Маль-гым, Ли Сон-ук, Чхве Гван-ильПеревод: Двухголосый любительский (Softbox Стажеры)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3692999B7912ABB3BAA3127361738C455D9E873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691018   (60182) от 10.04.2024
 
 Выходи замуж за моего супруга! / Nae nampyeongwa gyeolhonhaejwo / Marry My Husband (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) MKStudio
@@ -6,7 +84,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60182.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59786.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58003.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57642.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56093.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56016.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56013.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55883.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55772.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54753.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54633.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54435.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54386.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54296.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53462.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53247.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53162.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52448.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52418.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51160.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50538.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50531.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50516.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4330FBF857B23A2AFDA1936500A532C0BDBD22FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520180   (50504) от 10.07.2024
-
-Мир женатой пары / Bubuui segye / The World of the Married (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16) Мобильное телевидение
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк британского сериала "Доктор Фостер / Doctor Foster". Чжи Сон У - семейный врач. Она замужем за Ли Тхэ О, и они растят сына. Казалось бы, у нее есть все, успешная карьера и счастливая семья. Все меняется из-за измены мужа. Ли Тхэ О управляет бизнесом в сфере развлечений и мечтает стать известным режиссером. Он любит свою жену, но все равно заводит (   Читать дальше...   )Производство: Корея Южная / Joongang Tongyang Broadcasting Company (JTBC)Жанр: драмаРежиссер: Мо Ван-ильАктеры: Ким Хи-э, Пак Хэ-джун, Пак Сон-ён, Ким Ён-мин, Хан Со-хи, Ли Гён-ён, Ким Сон-гён, Чхэ Гук-хи, Ли Хак-чу, Щим Ын-уПеревод: Многоголосый профессиональный (Мобильное телевидение)Язык озвучки: Русский, корейскийСубтитры: Английские, арабские, индонезийские, малайские, тайские, вьетнамские, китайские (упрощенные)Продолжительность: ~01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E558C0F707428E9A2FEE5D613C8D16E4346CDDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243651   (50500) от 10.07.2024
-
-Беззаконный адвокат / Mubeop byeonhosa / Lawless Lawyer (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) SoftBox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бон Сан Пиль (Ли Джун Ки) - адвокат, имеющий за плечами преступное прошлое. Он больше доверяет своим кулакам, чем существующему законодательству. И чтобы выиграть дело, использует любые правовые лазейки. Одержимый мыслью о мести, он вступает в борьбу с власть имущими…Производство: Корея ЮжнаяЖанр: драма, криминалРежиссер: Ким Джин-минАктеры: Ли Джун-ги, Со Е-джи, Ли Хе-ён, Чхве Мин-су, Ём Хе-ран, Щин Ын-джон, Ан Нэ-сан, Ли Хан-ви, Ли Дэ-ён, Чон Джин-ги и др.Перевод: Двуголосый закадровый, любительский - SoftBoxПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB70503343932D882BE96DEC0B1CBD583EFE8C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499955   (50477) от 10.07.2024
-
-Поезд / Teurein / Train (2020) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12) Мобильное телевидение
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Со До Вон неумолим, когда дело доходит до привлечения преступников к ответственности. Готовый взяться за любое дело, каким бы трудным оно не было. До Вон сделал себе имя как человек, который выполнит свою работу. Но когда любимая женщина становится жертвой серийного убийцы, его мир полностью меняется. Буквально.Производство: Корея Южная / OCN, Studio DragonЖанр: детектив, криминал, фантастикаРежиссер: Рю Сын-джинАктеры: Юн Щи-юн, Кён Су-джин, Щин Со-юль, Чо Ван-ги, Чха Ёп, Ли Хан-на, Ким Дон-ён, Нам Мун-чхоль, Квон Хан-соль, Чан ЮльПеревод: Многоголосый профессиональный (Мобильное телевидение)Язык озвучки: Русский, корейскийСубтитры: АнглийскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8084C8C5256395A61DE7F053BB6EA5BAA478BE86
 ```
 
 https://mybot314.ru/tekegram_catalog/

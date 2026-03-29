@@ -1,3 +1,177 @@
+###  Публикация: 1248849   (438021) от 22.09.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа E. 1-й тур. Арсенал (Англия) — Ворскла (Украина) (20.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438021.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 сентября 2018 года, четверг. 22:00 МСК
+Лига Европы УЕФА 2018 - 2019
+Группа E. 1-й тур.
+Арсенал (Лондон, Англия) — Ворскла (Полтава, Украина)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D37E748D2D614744A5D87FEE4B9F9E316EC27C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248998   (438019) от 22.09.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа L. 1-й тур. ПАОК (Греция) — Челси (Англия) (20.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438019.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 сентября 2018 года, четверг. 19:55 МСК
+Лига Европы УЕФА 2018 - 2019
+Группа L. 1-й тур.
+ПАОК (Салоники, Греция) — Челси (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE41EE9627E56AC37F98BB717101B58661B2155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248816   (438014) от 22.09.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа G. 1-й тур. Рапид (Австрия) — Спартак (Россия) (20.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438014.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 сентября 2018 года, четверг. 19:55 МСК
+Лига Европы УЕФА 2018 - 2019
+Группа G. 1-й тур.
+Рапид (Вена, Австрия) — Спартак (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED8C69600906F86F6724F27E23556E497CE0C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062967   (438006) от 15.10.2016
+
+Хоккей. НХЛ 2016-2017. Бостон Брюинз — Коламбус Блю Джекетс (13.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438006.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2016, пятница. 02:05 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Нейшнвайд-Арена (Коламбус, США), 18144 зрителя (95 % при вместимости 19027)(   Читать дальше...   )Телекомпания: NESNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC285C543C04456E0887AE983F2A3EBF5DC65917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062946   (438004) от 15.10.2016
+
+Хоккей. НХЛ 2016-2017. Монреаль Канадиенс — Баффало Сэйбрз (13.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438004.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2016, пятница. 02:05 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: КиБэнк-центр (Баффало, США), 19070 зрителей (100 % при вместимости 19070)(   Читать дальше...   )Телекомпания: SportsNetЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FA8441F79CA7FB8ABABD71B1FA38AC4544FC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062977   (438002) от 15.10.2016
+
+Хоккей. НХЛ 2016-2017. Детройт Ред Уингз — Тампа-Бэй Лайтнинг (13.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438002.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2016, пятница. 02:30 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Fox SportsЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D521A767E2000CB482FCE1F3DA900E7D83414EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062933   (438000) от 15.10.2016
 
 Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 10-й тур. Аргентина - Парагвай (11.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
@@ -6,7 +180,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438000.jpg" />
+  <img src="Z:/picture/008/save_picture_438000.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437998.jpg" />
+  <img src="Z:/picture/008/save_picture_437998.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437996.jpg" />
+  <img src="Z:/picture/008/save_picture_437996.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437849.jpg" />
+  <img src="Z:/picture/008/save_picture_437849.jpg" />
 </div>
 
 
@@ -121,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437845.jpg" />
+  <img src="Z:/picture/008/save_picture_437845.jpg" />
 </div>
 
 
@@ -150,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437844.jpg" />
+  <img src="Z:/picture/008/save_picture_437844.jpg" />
 </div>
 
 
@@ -176,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437581.jpg" />
+  <img src="Z:/picture/008/save_picture_437581.jpg" />
 </div>
 
 
@@ -205,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437455.jpg" />
+  <img src="Z:/picture/008/save_picture_437455.jpg" />
 </div>
 
 
@@ -231,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437399.jpg" />
+  <img src="Z:/picture/008/save_picture_437399.jpg" />
 </div>
 
 
@@ -260,7 +434,7 @@ NG: Международный аэропорт Дубай. Серия 3 / Ultim
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437369.jpg" />
+  <img src="Z:/picture/008/save_picture_437369.jpg" />
 </div>
 
 
@@ -286,7 +460,7 @@ Nascar Camping World Truck Series-2017, Этап 15 — Mosports (2017) HDTVRip 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437249.jpg" />
+  <img src="Z:/picture/008/save_picture_437249.jpg" />
 </div>
 
 
@@ -312,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436177.jpg" />
+  <img src="Z:/picture/008/save_picture_436177.jpg" />
 </div>
 
 
@@ -338,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436175.jpg" />
+  <img src="Z:/picture/008/save_picture_436175.jpg" />
 </div>
 
 
@@ -364,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436165.jpg" />
+  <img src="Z:/picture/008/save_picture_436165.jpg" />
 </div>
 
 
@@ -390,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436164.jpg" />
+  <img src="Z:/picture/008/save_picture_436164.jpg" />
 </div>
 
 
@@ -416,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435866.jpg" />
+  <img src="Z:/picture/008/save_picture_435866.jpg" />
 </div>
 
 
@@ -445,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435839.jpg" />
+  <img src="Z:/picture/008/save_picture_435839.jpg" />
 </div>
 
 
@@ -474,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435782.jpg" />
+  <img src="Z:/picture/008/save_picture_435782.jpg" />
 </div>
 
 
@@ -501,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435608.jpg" />
+  <img src="Z:/picture/008/save_picture_435608.jpg" />
 </div>
 
 
@@ -530,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435447.jpg" />
+  <img src="Z:/picture/008/save_picture_435447.jpg" />
 </div>
 
 
@@ -544,165 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F0BD86ED8468250C0261A1C9A9EC71D0C9A3D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164889   (435444) от 12.09.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. 7-й тур. Обзор матчей 3-го дня (02.09.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435444.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 сентября 2017 года, суббота
-Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. 7-й тур
-День № 3:
-Группа D. 19:00 МСК 	Грузия – Ирландия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE696FFEAF2F3AB9310DE0B384480579D0C62A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391126   (435040) от 27.09.2011
-
-Рестлинг / WWE Monday Night RAW [эфир от 19.09] (2011) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435040.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAW (среди фанатов известная как Monday Night Raw) — профессиональная рестлинг программа от Международной федерации рестлинга (WWE), которая в настоящее время транслируется на USA Network в Соединенных Штатах. В настоящее время RAW является одним из брендов WWE.Жанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160F69F302534E0347C3F2D6CDE8B03199036B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164783   (434841) от 12.09.2017
-
-Moto GP. Сезон 2017. Gran Premio Tribul Mastercard di San Marino. Этап 13. Гонка (10.09.2017) WEB-DL [H.264/720p-LQ] [VO]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по шоссейно-кольцевым мотогонкам Гран-при, также MotoGP (англ. FIM Road Racing World Championship Grand Prix) — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах. В настоящее время чемпионат разделен на три класса: MotoGP, Moto2 и Moto3. Все три класса используют специальные мотоциклы-прототипы, которые отсутствуют (   Читать дальше...   )Телекомпания: BT Sport 2 HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F298EC8760CA3BFE8448B2A87CCA8F7A7CF321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945662   (433988) от 10.10.2015
-
-Футбол. Отборочный матч ЕВРО 2016. Группа С. 9 тур. Испания - Люксембург (2015) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный матч ЕВРО 2016 Испания - Люксембург.Телекомпания: НТВ+ Спорт HDЖанр: Спорт, ТелепередачаПродолжительность: 00:57:08 + 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEBAF0189D847B748525BD0A3B63A3E367B6D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945177   (433987) от 10.10.2015
-
-Футбол. Отборочный матч ЕВРО 2016. Группа D. 9 тур. Шотландия – Польша (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный матч ЕВРО 2016 Шотландия – Польша.Телекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0429E650C19904A2148B388F26FB558406F419E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945185   (433986) от 10.10.2015
-
-Футбол. Отборочный матч ЕВРО 2016. Группа F. 9 тур. Румыния - Финляндия (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный матч ЕВРО 2016 Румыния - Финляндия.Телекомпания: НТВ+ Спорт HDЖанр: Спорт, ТелепередачаПродолжительность: 00:57:35 + 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B529BA3F7FBF0E60C2B3430E8B3D291290BBC1D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

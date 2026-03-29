@@ -1,3 +1,133 @@
+###  Публикация: 1755894   (40024) от 18.10.2024
+
+Экзорцизм. Изгоняющий духов / The Spirit Hunter (2024) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученик экзорциста совершает ужасную ошибку. В результате неправильного ритуала, в погоне за легкими деньгами, он пробуждает сильного неупокоенного духа. В отчаянной попытке все исправить он делает только хуже… Дух вселяется в тело живого человека.Производство: Таиланд / Neramitnung FilmЖанр: ужасыРежиссер: Мате ЙисомбунАктеры: Прама ИманотхайПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F52123223198ED70F129FB0444180E62B91A4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755958   (39992) от 18.10.2024
+
+Хроники призрачного племени / Jiu ceng yao ta / Chronicles of the Ghostly Tribe (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1979 году в одной из пещер горной цепи Куньлунь были найдены кости загадочного существа. Ху Байи снаряжает экспедицию в глубины этих гор, чтобы отыскать ещё больше палеонтологических реликвий. Спустившись вниз, исследователи обнаруживают подземный город исчезнувшей цивилизации, которая обладала великой силой и знала тайны жизни и смерти. Радость от столь дивной (   Читать дальше...   )Производство: Китай / Beijing Global Yoodoo Films, Beijing Happy Whale EntertainmentЖанр: приключения, фэнтези, боевикРежиссер: Лу ЧуаньАктеры: Марк Чао, Яо Чэнь, Тиффани Тан, Ридиан Вон, Ли Чэнь, Фэн Ли, Чэнь Цзинь, Ли Гуанцзе, Ван Дэшунь, Ван ЦинсянПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: Русский, китайскийСубтитры: русские (IVI AI), английские, китайские (традиционные и упрощенные)Продолжительность: 01:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE48813AC0DB56AEDE8504C2E6E28B8442041EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755933   (39958) от 18.10.2024
+
+Прямо сейчас, а не после / Jigeumeun makgo geuttaeneun tteulrida (2015) BDRip [H.264/720p] [KR / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39958.jpg" />
+</div>
+
+
+###  Подробнее
+
+История простая: режиссёр по ошибке приезжает в чужой город на день раньше и проводит время со встретившейся ему художницей. Это минималистичная драма с застольными разговорами представляет зрителю две различные, отличающиеся в неочевидных мелочах, версии одной истории...Производство: Южная Корея / Jeonwonsa Film, Next Entertainment WorldЖанр: драмаРежиссер: Хон Сан-суАктеры: Чон Джэ-ён, Ким Мин-хи, Юн Ё-джон, Ки Джу-бон, Чхве Хва-джон, Ю Джун-сан, Со Ён-хва, Ко А-сонПеревод: субтитрамиЯзык озвучки: корейскийСубтитры: русские (daft-digger; dop2 AvistaZ), английскиеПродолжительность: 02:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428B314EA9A4D594EE71F71A3015E77EA6D5E54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755874   (39955) от 18.10.2024
+
+Чёрные кошки в бамбуковых зарослях / Yabu no naka no kuroneko (1968) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольная экранизация японской народной сказки "Возвращение Кошки"... Самураи изнасиловали и убили мать и невестку. А те воскресли в образах демонов-кошек, чтобы мстить обидчикам. Они завлекают и убивают солдат в бамбуковом зарослях, и бесстрашный самурай Гинтоки послан прекратить их власть...Производство: Япония / Toho CompanyЖанр: ужасы, драмаРежиссер: Канэто СиндоАктеры: Китиэмон Накамура, Нобуко Отова, Кэй Сато, Тайдзи Тонояма, Рокко Тоура, Хидэо Кандзэ, Хидеаки Есуми, Масаши Оки, Рика МизукиПеревод: профессиональный многоголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE097D5AAC5DAE7BD0E827CE8085EDDF3FE3CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756126   (39937) от 19.10.2024
+
+В тумане / Проект «Тишина» / Talchul: peurojekteu sailleonseu / Talchul: Project Silence (2024) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за сильного тумана на протяжённом мосту в аэропорт Инчхон происходит авария с участием множества автомобилей. Службы спасения не могут быстро добраться до места происшествия, и вдобавок из перевозившего их фургона на свободу вырываются созданные в рамках секретного проекта собаки-убийцы. Гражданам придётся выживать своими силами.Производство: Южная Корея / BLAAD Studios, CJ EntertainmentЖанр: фантастика, боевик, ужасыРежиссер: Тхэ Гон КимАктеры: Сон Гён Ли, Джи Хун Чжу, Хи Вон Ким (I), Сон Гын Мун, Чу Хён Пак, Су Чжон Е, Тхэ У Ким, Хи Бон Пак, Су Ан Ким, До Квон Ха, Сон Бон АнПеревод: Дублированный (Позитив)Субтитры: Русские, английские, корейскиеПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D54C208A4A5CC077A6BF31AFD540B1F5B836EBCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756157   (39935) от 19.10.2024
 
 Блуждающая тень / The Shadow Strays (2024) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39935.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39897.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39823.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39775.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39744.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39692.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39678.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39563.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39504.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39429.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39289.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39234.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39130.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39084.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38643.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38505.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38462.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38313.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37981.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37751.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37715.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF0039F1FDA54D060D1C44F4C56DDE1BE3066CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759764   (37646) от 10.11.2024
-
-Аббат Шаолиня / Shao Lin ying xiong bang / Shaolin Abbot (1979) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой послушник храма уходит в путешествие до отшельника, который обещал чертежи оружия для монахов, однако во время его отсутствия монастырь сжигают и вернувшись на останки, он решает построить новый храм, как говорится, лучше прежнего. Для этого он отправляется в Кантон, где начинает собирать деньги на строительство, однако жить ему спокойно не дадут. В частности, (   Читать дальше...   )Производство: Гонконг / Shaw BrothersЖанр: боевик, приключенияРежиссер: Хо МэнхуаАктеры: Дэвид Цзян, Ло Ле, Лили Ли, Норман Чу, Ку Куань-Чун, Вэй Си, Хелен Пун, Юн Генри Юй, Чань Шэнь, Хань ЧиангПеревод: Многоголосый профессиональный (ТВК 2x2), двухголосый любительский (Magic Blade)Язык озвучки: русский, китайский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEC0F1F968D53801E0CFDEF01851EA1A1AB40D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759683   (37639) от 11.11.2024
-
-Замок дьявола / The Elite of Devils (2024) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа студентов приезжает в средневековый замок на практику. Его владелица — герцогиня, которая, по слухам, заключила сделку с дьяволом. Друзья боятся оставаться в этом мрачном месте и решают наутро уехать. Но от их страхов дьявольская сила только растет. Чтобы пережить эту ночь, им придется узнать историю замка и победить чары ведьмы.Производство: Таиланд / Tham Studio19, Hollywood ThailandЖанр: ужасыРежиссер: Артистая Арриявонгса, Тхиракхахатхеп АрриявонгсаАктеры: Анчали Сайсунторн, Ятупорн Дангурай, Латкамон Пинройкирати, Саданан ТхипчанПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B659AB9D84CC3A34C720479569618BDAA8BAB881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759977   (37573) от 11.11.2024
-
-Семь дней / Sebeun deijeu (2007) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ю Джи Ён, известный адвокат, ещё ни разу не проиграла дела... Пока Джи Ён участвует в родительской гонке на дне рождения своей дочери, её дочь исчезает. Позже в тот же день Джи Ён звонит человек, похитивший её дочь. Звонивший сообщает, что его не интересуют её деньги, и что единственный способ когда-либо снова увидеть свою дочь - это защищать пятикратно судимого (   Читать дальше...   )Производство: Южная Корея / Prime EntertainmentЖанр: драма, криминал, детектив, триллерРежиссер: Син Ён ВонАктеры: Юнжин Ким, Ми Сук Ким, Хи Сун Пак, Хан Сон Чан, Дон Хван Чон, Кван Рок О, Бён Гиль Квон, Чжи Ён Ок, Чжин У Ян, Док Хён ЧоПеревод: любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (AiguAigu), английскиеПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC45704D8EB20BB071FE0BC7FA5FD1C2699793F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760001   (37502) от 12.11.2024
-
-Храм Шаолинь / Shao Lin Si / The Shaolin Temple (1982) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юноша, сбежавший из лагеря рабов, находит приют у монахов храма Шаолиня. Под их руководством он изучает боевые искусства, в надежде отомстить убийце своего отца - предателю-генералу. Монахи защищают героя , помогая ему свершить возмездие. Сражаясь с войсками изменника, они спасают императора, который щедро вознаграждает их.Производство: Китай, Гонконг / Chung Yuen Motion Picture Company, Zhongyuan FilmЖанр: боевик, драма, комедияРежиссер: Чжан СиньяньАктеры: Чжан Синьянь, Джет Ли, Юй Хай, Юй Чэнхуэй, Динг Лан, Ху Цзяньцан, Сунь Цзянькуй, Лю Хуайлян, Цзи Чуньхуа, Чжан Цзяньвэнь, Бянь ЛичанПеревод: Профессиональный многоголосный (МАТЧ-ТВ), авторский (С. Визгунов, А. Кашин, Королёв)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D40C8E45B8175C777A8C2CFA3C040FC6B89CB51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760254   (37303) от 14.11.2024
-
-Смертельные бойцы / Два чемпиона Шаолинь / Shao Lin yu Wu Dang / Two Champions of Shaolin (1980) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученик храма Шаолинь Тун Ченьчэнь заканчивает обучение и уходит из храма, но перед уходом монах наставляет его не спешить мстить маньчжурам, убивших его родителей, а сначала найти другого шаолиньского ученика — Ху Вэйчэня. Вскоре к ним присоединяются ещё несколько шаолиньцев. В это время глава соперничающего с Шаолинем клана Удан посылает в Кантон четырёх человек, (   Читать дальше...   )Производство: Гонконг / Shaw BrothersЖанр: боевик, драмаРежиссер: Чанг ЧеАктеры: Мэн Ло, Шенг Чианг, Ли Ванг, Фенг Лу, Чан Кэй-Сань, Шу Чи Чан, Чи-шань Чен, Хан–Куанг Чен, Чок Чоу Чеунг, Чинь Сиу-ХоПеревод: Авторский (Сергей Кузнецов)Язык озвучки: русский, китайский, английскийСубтитры: английские (full, SDH), немецкие, испанские, французскиеПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAD7399C2E7002CF712FA09D6DBD42DE643EABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

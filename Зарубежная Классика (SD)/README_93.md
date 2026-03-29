@@ -1,3 +1,85 @@
+###  Публикация: 1263241   (285932) от 20.11.2018
+
+Четыре пера / The Four Feathers (1939) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285932.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Альфреда Эдварда Вудли Мэйсона «Четыре пера» (The Four Feathers, 1902).
+1898 год. Сын бригадного генерала Хэрри Фэвершэм отказывается служить в армии, предпочтя вместо этого женитьбу на Этни Берроуз и спокойную жизнь в счастье и достатке. Свой отказ он подписывает накануне отправки его полка в Суданскую кампанию.
+Его друзья — Джон Дюррэнс, (   Читать дальше...   )Производство: Великобритания / London Film ProductionsЖанр: Драма, Мелодрама, Приключения, ВоенныйРежиссер: Золтан КордаАктеры: Джон Клементс, Ральф Ричардсон, С. Обри Смит, Джун Дюпрез, Аллан Джейес, Джек Аллен, Дональд Грэй, Фредерик Калли, Клив Бакстер, Роберт РенделПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCE0944DC0518883BC6436168B614979C640C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078229   (285896) от 08.12.2016
+
+Вавилонская блудница / La cortigiana di Babilonia (1954) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285896.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы VIII столетия до Рождества Христова, после долгой изматывающей войны, Вавилон оказался в подчинении ассирийцев. Когда исчезла всякая надежда на сопротивление, союзные вавилонянам племена были вынуждены склонить головы пред ассирийскими завоевателями и подчиниться царю Ашшуру. Один из халдейских вождей Амал отказался преклонить колени перед Ашшуром (   Читать дальше...   )Производство: Италия, Франция, Rialto, Panthon ProductionsЖанр: Боевик, Драма, ИсторическийРежиссер: Карло Людовико БрагальяАктеры: Ронда Флеминг, Рикардо Монтальбан, Ролдано Лупи, Карло Нинки, Анна Мария Мори, Тамара Леес, Армандо Аннуале, Альберто Ансельми, Джина Антонини, Джильдо БоччиПеревод: Одноголосый закадровыйПродолжительность: 01:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36419C91BF5558DDDFFF6A77925E6EDDBB158505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262871   (285596) от 20.11.2018
+
+Другая сторона полуночи / The Other Side of Midnight (1977) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285596.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Сидни Шелдона.
+Красивая француженка Ноэль Паж влюбляется в американского летчика Ларри Дугласа и верит, что он тоже любит ее. Но вскоре понимает, что жестоко обманулась в своих ожиданиях.
+Чтобы отвлечься от грустных мыслей, молодая женщина отправляется в путешествие по Европе. Но забыть Ларри она не в силах. Став любовницей греческого магната Константина (   Читать дальше...   )Производство: США / Frank Yablans PresentationsЖанр: Триллер, Драма, МелодрамаРежиссер: Чарльз ДжэрротАктеры: Мари-Франс Пизье, Джон Бек, Сьюзен Сарандон, Раф Валлоне, Клу Гулагер, Кристиан Маркан, Майкл Лернер, Соррел Бук, Энтони Пондзини, Луис ЗорикПеревод: Профессиональный (многоголосый закадровый)Субтитры: АнглийскиеПродолжительность: 02:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3059CD52941D7AAF72906E6D06EBE55883F222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182520   (285476) от 25.11.2017
 
 Вендетта по-корсикански / Les grands moyens (1976) TVRip
@@ -6,7 +88,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285476.jpg" />
+  <img src="Z:/picture/008/save_picture_285476.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284269.jpg" />
+  <img src="Z:/picture/008/save_picture_284269.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284111.jpg" />
+  <img src="Z:/picture/008/save_picture_284111.jpg" />
 </div>
 
 
@@ -85,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284078.jpg" />
+  <img src="Z:/picture/008/save_picture_284078.jpg" />
 </div>
 
 
@@ -111,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282852.jpg" />
+  <img src="Z:/picture/008/save_picture_282852.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282369.jpg" />
+  <img src="Z:/picture/008/save_picture_282369.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282333.jpg" />
+  <img src="Z:/picture/008/save_picture_282333.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282043.jpg" />
+  <img src="Z:/picture/008/save_picture_282043.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280508.jpg" />
+  <img src="Z:/picture/008/save_picture_280508.jpg" />
 </div>
 
 
@@ -243,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280308.jpg" />
+  <img src="Z:/picture/008/save_picture_280308.jpg" />
 </div>
 
 
@@ -269,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280291.jpg" />
+  <img src="Z:/picture/008/save_picture_280291.jpg" />
 </div>
 
 
@@ -295,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280073.jpg" />
+  <img src="Z:/picture/008/save_picture_280073.jpg" />
 </div>
 
 
@@ -321,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279027.jpg" />
+  <img src="Z:/picture/008/save_picture_279027.jpg" />
 </div>
 
 
@@ -348,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278975.jpg" />
+  <img src="Z:/picture/008/save_picture_278975.jpg" />
 </div>
 
 
@@ -375,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278633.jpg" />
+  <img src="Z:/picture/008/save_picture_278633.jpg" />
 </div>
 
 
@@ -401,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278485.jpg" />
+  <img src="Z:/picture/008/save_picture_278485.jpg" />
 </div>
 
 
@@ -427,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278405.jpg" />
+  <img src="Z:/picture/008/save_picture_278405.jpg" />
 </div>
 
 
@@ -453,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278366.jpg" />
+  <img src="Z:/picture/008/save_picture_278366.jpg" />
 </div>
 
 
@@ -480,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278337.jpg" />
+  <img src="Z:/picture/008/save_picture_278337.jpg" />
 </div>
 
 
@@ -507,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277501.jpg" />
+  <img src="Z:/picture/008/save_picture_277501.jpg" />
 </div>
 
 
@@ -533,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276969.jpg" />
+  <img src="Z:/picture/008/save_picture_276969.jpg" />
 </div>
 
 
@@ -559,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276745.jpg" />
+  <img src="Z:/picture/008/save_picture_276745.jpg" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276700.jpg" />
+  <img src="Z:/picture/008/save_picture_276700.jpg" />
 </div>
 
 
@@ -597,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B5A11D7A9F65DB2758A07CD12ED86F3C11B11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079284   (276632) от 13.12.2016
-
-Здесь спала Сьюзен / Susan Slept Here (1954) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарист Марк Кристофер находится в творческом кризисе. Ему надоело сочинять сценарии для дурацких комедий, а ничего серьезного написать не получается. Однажды в канун Рождества он получает неожиданный и не очень приятный подарок: друзья из полиции нравов приводят к нему в дом семнадцатилетнюю преступницу Сьюзен. Она арестована за бродяжничество и драку с моряком. (   Читать дальше...   )Производство: США / RKO Radio Pictures Inc.Жанр: Драма, КомедияРежиссер: Фрэнк ТэшлинАктеры: Дик Пауэлл, Дебби Рейнолдс, Энн Френсис, Элви Мур, Гленда Фаррелл, Хорас МакМахон, Херб Вигран, Лес Тремейн, Мара Лэйн, Мэйди НорманПеревод: Одноголосый закадровый, любительский (В. Рутилов)Язык субтитров: РусскийПродолжительность: 01:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98E255BCED1D0AD328B3FB2B6D3233CCDB8C866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080319   (275487) от 14.12.2016
-
-Казанова 70 / Casanova '70 (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для майора Росси соблазнение являлось обычным и простым занятием, женщины становились легкой добычей в его руках. Но после бурного расставания с одной из подружек, которая в пылу гнева публично называет его импотентом, Андре обнаруживает, что она почти права — он уже не жеребец, готовый к совокуплению при любых обстоятельствах.
-Теперь он способен вступать в интимную (   Читать дальше...   )Производство: Италия, Франция / Compagnia Cinematografica Champion, Euro International Film (EIA), Les Films ConcordiaЖанр: Драма, КомедияРежиссер: Марио МоничеллиАктеры: Марчелло Мастроянни, Вирна Лизи, Мариза Мелл, Мишель Мерсье, Энрико Мария Салерно, Лиана Орфей, Гуидо Альберти, Беба Лончар, Мойра Орфей, Маргарет Ли, Розмари ДекстерПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A0BBBE245A1CCCFA41703B1FE90EBA07141877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 424089   (275305) от 21.12.2011
-
-Парижские тайны / Les mysteres de Paris (1962) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маркиз Рудольф — умён, отважен, красив, азартен и великодушен. Он любит женщин, уважает дуэли и часто заключает пари. Одна из таких «невинных» великосветских «забав» приводит к смерти простого горожанина, вдова которого вскоре умирает в нищете, а красавица-дочь исчезает в лабиринте криминальных кварталов французской столицы.
-Чувствуя себя виноватым в случившемся (   Читать дальше...   )Производство: Франция, Италия / Da.Ma. Cinematografica, Produzioni Atlas Consorziate (P.A.C.)Жанр: боевик, приключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Дани Робен, Джилл Хаворт, Раймон Пеллегрен, Пьер Монди, Ален Декок, Жорж Шамара, Мадлен Барбюле, Рене Гардес, Ги ДелормПеревод: ДублированныйПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9C8CA0775EA43610B9167753E7160995641F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

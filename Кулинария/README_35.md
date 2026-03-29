@@ -1,3 +1,30 @@
+###  Публикация: 530570   (563066) от 02.08.2012
+
+К.Б. Расул | Мусульманская кухня [2011] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является не просто поваренной книгой, не простой "секретами мусульманской кухни", это - полноценное руководство по мусульманской трапезе. В ней приводятся повеления Корана о трапезе, хадисы о правилах приема пищи из таких досточтимых источников Преданий о Пророке, как "ал-Азкар" и "Рийад ас-Салихин" Имама ан-Навави. Общие сведения об этикете питания мусульман приведены по книге Мухаммада Садыка Кашгари "Адаб ас-Салихин". Разумные советы по правилам поведения за столом и обязанностям угощающего и угощающегося приведены по книге "Кабус-наме" Кейкабуса б. Кейкубада.
+Конечно же, даны многочисленные рецепты полезных, питательных и вкусных блюд различных народов, исповедующих Ислам. Надеемся, что мусульманам будут полезны главы о пищевых запретах и правилах заклания животных согласно Шариату.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6594E4B11DA093CA084D1980651E7AC55002B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923558   (562840) от 01.08.2015
 
 Сергей Кашин | Пасхальный стол (2015) [FB2]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562840.jpg" />
+  <img src="Z:/picture/008/save_picture_562840.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562635.jpg" />
+  <img src="Z:/picture/008/save_picture_562635.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562568.jpg" />
+  <img src="Z:/picture/008/save_picture_562568.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562547.jpg" />
+  <img src="Z:/picture/008/save_picture_562547.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561710.jpg" />
+  <img src="Z:/picture/008/save_picture_561710.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560712.jpg" />
+  <img src="Z:/picture/008/save_picture_560712.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559056.jpg" />
+  <img src="Z:/picture/008/save_picture_559056.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558965.jpg" />
+  <img src="Z:/picture/008/save_picture_558965.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558949.jpg" />
+  <img src="Z:/picture/008/save_picture_558949.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557861.jpg" />
+  <img src="Z:/picture/008/save_picture_557861.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557480.jpg" />
+  <img src="Z:/picture/008/save_picture_557480.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556826.jpg" />
+  <img src="Z:/picture/008/save_picture_556826.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553806.jpg" />
+  <img src="Z:/picture/008/save_picture_553806.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553143.jpg" />
+  <img src="Z:/picture/008/save_picture_553143.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549648.jpg" />
+  <img src="Z:/picture/008/save_picture_549648.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548150.jpg" />
+  <img src="Z:/picture/008/save_picture_548150.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545552.jpg" />
+  <img src="Z:/picture/008/save_picture_545552.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544220.jpg" />
+  <img src="Z:/picture/008/save_picture_544220.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543634.jpg" />
+  <img src="Z:/picture/008/save_picture_543634.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543630.jpg" />
+  <img src="Z:/picture/008/save_picture_543630.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543505.jpg" />
+  <img src="Z:/picture/008/save_picture_543505.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543498.jpg" />
+  <img src="Z:/picture/008/save_picture_543498.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541993.jpg" />
+  <img src="Z:/picture/008/save_picture_541993.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541943.jpg" />
+  <img src="Z:/picture/008/save_picture_541943.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541843.jpg" />
+  <img src="Z:/picture/008/save_picture_541843.jpg" />
 </div>
 
 
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5BFEEA62F0E1E5C1165692D558BFBE6F28052FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531826   (540036) от 06.08.2012
-
-Эркин Тузмухамедов | Шотландский виски [2001] [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540036.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается легендарная история "воды жизни", представлена технология производства, описано более 150 брэндов солодовых и купажированных виски, приведены дегустационные оценки. Издание предназначено как для профессионалов розничной торговли и ресторанного бизнеса, так и для любителей этого шотландского напитка.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7C9AA118687F01C17E8979D94F06107DDD4C13
 ```
 
 https://mybot314.ru/tekegram_catalog/

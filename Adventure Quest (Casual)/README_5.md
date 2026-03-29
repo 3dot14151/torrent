@@ -6,7 +6,7 @@ Endless Fables: The Minotaur's Curse / Сказки без конца: Прок�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933309.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Agent Walker: Secret Journey / Агент Уолкер: Таинственное
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933307.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skyhill (2015) [Ru/Multi] (1.1.20) Unofficial SiMPLEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933126.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Parallels Cross (2016) [En] (1.0.0c) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932471.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Reflections of Life 3: Dark Architect (2016) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932467.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rite of Passage 5: Heart of the Storm (2016) [En] Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932302.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mindframe: The Secret Design (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931960.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mystery Trackers 12: Queen Of Hearts / Охотники за тайнами 12: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931779.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ New York Mysteries: Secrets of the Mafia / Загадки Нью-Йорка: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928249.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Paranormal Files 7: Ghost Chapter / Паранормальные явления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926782.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks / Сказки лагун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925392.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dark City 4: Dublin (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921867.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Entwined. Strings of Deception / Запутанное дело. Нити лжи 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920414.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lost Lands 2: The Four Horsemen / Потерянные земли: Четыре 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919738.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mysteries Of The Past: Shadow Of The Daemon (2016) [En] Unofficial [Platinum Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918993.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PuppetShow 8: The Face of Humanity (2016) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918827.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918669.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Immortal Love: Letter From The Past / Бессмертная любовь: Пи�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918553.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sable Maze 5: Soul Catcher / Темный лабиринт 5: Ловец душ 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918525.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dark Romance 2: Heart of the Beast / Мрачная история. Сердце
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918387.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dark Parables 6: Jack and the Sky Kingdom / Темные Притчи 6: Дже�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917539.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Paranormal Files 5: Trials of Worth (2020) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917141.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Secret City 4: Chalk of Fate / Тайный город 4: Мел судьбы (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916980.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Detectives United: Origins / Союз детективов: Начало (2018) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915239.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Living Legends 9: Voice of the Sea / Живые легенды 9: Голос м�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911945.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Mystery Trackers 6: Raincliff’s Phantoms Game / Охотники за тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910185.jpg" />
 </div>
 
 

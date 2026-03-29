@@ -1,3 +1,61 @@
+###  Публикация: 1740961   (105716) от 04.08.2024
+
+Freakshow - A Reason Worth Dying For (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Hot Love (2:46)
+02. Be As One (3:20)
+03. A Reason Worth Dying For (4:15)
+04. By Your Side (3:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3DB57D9522E64287BCF04558C973778B494C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741170   (105698) от 05.08.2024
+
+Razzmattazz - Rock Or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Rip 04:06
+02. Rock Or Die 03:28
+03. All Night Long 03:46
+04. Hot Love 03:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688E4E8FD08FA561AB9E2F9F576E9B75A0F3786A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741855   (105610) от 08.08.2024
 
 Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105610.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lonely Fire - The Last Ride (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105571.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Revolution Saints - Against The Winds (2024) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105546.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Black Jack - Black Jack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105534.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Matt Mitchell & the Coldhearts - Matt Mitchell & the Coldhearts (2024) [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105518.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105516.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105515.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ My Design Immortal - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105507.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105494.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Matt Mitchell & the Coldhearts - Mission (2022) Ultimate Edition, 2024, Matt Mit
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105487.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105462.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105428.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105388.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105356.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Bad Boy - Private Party (1981) Limited Edition, Reissue, Remastered, 2024, Pride
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105355.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Nestor - Teenage Rebel (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105339.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Spektra - Hypnotized (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105331.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Nighthawk - Midnight Hunter (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105268.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105096.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105091.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Budderside - Good For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105066.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Mike Tramp - Songs Of White Lion, Vol. I-II (2023-2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105049.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Loss - Human Factor (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105034.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105019.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02ADAE12A63FF0D76575CA3BCE4749CFABA61422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746246   (104939) от 30.08.2024
-
-Smoke 'N' Flame - Speed Of Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On The Bus
-02. Speed Of Light
-03. Raise Your Hands
-04. Dirty & Sweet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A30787DEAE159B8F75EA1BCF3061261A4E50B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746500   (104907) от 31.08.2024
-
-Constancia - IV Evermore (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evermore
-02. Feel My Heartbeat
-03. Higher
-04. My Redemption(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCF75480349118CBB4FC07A1C5BAE7822B4F258
 ```
 
 https://mybot314.ru/tekegram_catalog/

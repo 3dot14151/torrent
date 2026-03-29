@@ -6,7 +6,7 @@ VueScan Pro 9.6.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768352.jpg" />
+  <img src="Z:/picture/008/save_picture_768352.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TagScanner 6.0.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768345.jpg" />
+  <img src="Z:/picture/008/save_picture_768345.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glarysoft Malware Hunter PRO 1.105.0.695 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768329.jpg" />
+  <img src="Z:/picture/008/save_picture_768329.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Driver Booster Pro 7.5.0.753 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768327.jpg" />
+  <img src="Z:/picture/008/save_picture_768327.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IObit Driver Booster Pro 7.5.0.753 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768322.jpg" />
+  <img src="Z:/picture/008/save_picture_768322.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aiseesoft Video Converter Ultimate 10.0.20 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768317.jpg" />
+  <img src="Z:/picture/008/save_picture_768317.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Notepad++ 7.8.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768315.jpg" />
+  <img src="Z:/picture/008/save_picture_768315.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Everything 1.4.1.932 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768313.jpg" />
+  <img src="Z:/picture/008/save_picture_768313.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768309.jpg" />
+  <img src="Z:/picture/008/save_picture_768309.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AOMEI Partition Assistant Technician Edition 8.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768302.jpg" />
+  <img src="Z:/picture/008/save_picture_768302.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ IsMyLcdOK 3.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768292.jpg" />
+  <img src="Z:/picture/008/save_picture_768292.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WifiInfoView 2.61 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768282.jpg" />
+  <img src="Z:/picture/008/save_picture_768282.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AntiPlagiarism.NET 4.96.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768278.jpg" />
+  <img src="Z:/picture/008/save_picture_768278.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Epic Privacy Browser 71.0.3578.98 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768273.jpg" />
+  <img src="Z:/picture/008/save_picture_768273.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Dism++ 10.1.1000.90 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768272.jpg" />
+  <img src="Z:/picture/008/save_picture_768272.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Blackmagic Design DaVinci Resolve Studio 15.2.3.15  RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768267.jpg" />
+  <img src="Z:/picture/008/save_picture_768267.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ UnHackMe 10.20 Build 770  RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768266.jpg" />
+  <img src="Z:/picture/008/save_picture_768266.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768261.jpg" />
+  <img src="Z:/picture/008/save_picture_768261.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ AOMEI Partition Assistant Standard Edition 8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768260.jpg" />
+  <img src="Z:/picture/008/save_picture_768260.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Advanced SystemCare Ultimate с Антивирусом 12.0.1.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768221.jpg" />
+  <img src="Z:/picture/008/save_picture_768221.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Cyberfox 52.7.1 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768175.jpg" />
+  <img src="Z:/picture/008/save_picture_768175.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mozilla Firefox ESR 52.7.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768164.jpg" />
+  <img src="Z:/picture/008/save_picture_768164.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ GoodSync Enterprise 10.8.1.1 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768157.jpg" />
+  <img src="Z:/picture/008/save_picture_768157.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Mozilla Firefox Quantum 59.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768152.jpg" />
+  <img src="Z:/picture/008/save_picture_768152.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ScreenToGif 2.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768148.jpg" />
+  <img src="Z:/picture/008/save_picture_768148.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Cimaware OfficeFIX Professional 6.123 Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768123.jpg" />
+  <img src="Z:/picture/008/save_picture_768123.jpg" />
 </div>
 
 

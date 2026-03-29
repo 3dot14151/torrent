@@ -6,7 +6,7 @@ Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579416.jpg" />
+  <img src="Z:/picture/008/save_picture_579416.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Disco Tape Vol 3 (2016) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579410.jpg" />
+  <img src="Z:/picture/008/save_picture_579410.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Doris D And The Pins - 2 Albums (1981, 1984) [MP3|320 Kbps] <Electronic, Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579368.jpg" />
+  <img src="Z:/picture/008/save_picture_579368.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eddie Drennon & The B.B.S. Unlimited - 2 Albums (1975, 1977) LP [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578121.jpg" />
+  <img src="Z:/picture/008/save_picture_578121.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - ZYX Italo Disco Spacesynth Collection 8 (2022) 2CD, Compilation [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577601.jpg" />
+  <img src="Z:/picture/008/save_picture_577601.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kebekelektrik - Kebekelektrik (1977) Reissue, 2003, Unidisc [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576541.jpg" />
+  <img src="Z:/picture/008/save_picture_576541.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Andrea True Connection - 2 Hit Albums (1976, 1977) [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576207.jpg" />
+  <img src="Z:/picture/008/save_picture_576207.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alcazar - Disco Defenders (2015) [MP3|320 кб/с]<Europop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575382.jpg" />
+  <img src="Z:/picture/008/save_picture_575382.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Luv' - Gold (1993) [MP3|320 кб/с]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574832.jpg" />
+  <img src="Z:/picture/008/save_picture_574832.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Luv - You're The Greatest Luver (1996) [MP3|320 кб/с]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574830.jpg" />
+  <img src="Z:/picture/008/save_picture_574830.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Francesco Salvi - Megasalvi (1989) [MP3|320 кб/с]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574828.jpg" />
+  <img src="Z:/picture/008/save_picture_574828.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ The New York Community Choir - The New York Community Choir (1977) Funkytowngroo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574451.jpg" />
+  <img src="Z:/picture/008/save_picture_574451.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - I Love Italo Disco Legends Vol.1-5 (2011) 5CD [MP3|320 кб/с]<Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574388.jpg" />
+  <img src="Z:/picture/008/save_picture_574388.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574353.jpg" />
+  <img src="Z:/picture/008/save_picture_574353.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - New Generation Italo Disco - The Lost Files Vol.4 (2017) [MP3|320 Kbps] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574177.jpg" />
+  <img src="Z:/picture/008/save_picture_574177.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Babe - Hollands Glorie (2003) [MP3|320 кб/с]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573060.jpg" />
+  <img src="Z:/picture/008/save_picture_573060.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Babe - Never Listen To A Bouzouki Player (2001) [MP3|320 кб/с]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573034.jpg" />
+  <img src="Z:/picture/008/save_picture_573034.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Peter Jacques Band - 3 Albums (1979-1985) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572678.jpg" />
+  <img src="Z:/picture/008/save_picture_572678.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571019.jpg" />
+  <img src="Z:/picture/008/save_picture_571019.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571017.jpg" />
+  <img src="Z:/picture/008/save_picture_571017.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Made In U.S.A. - Melodies (1977) Reissue, 2017, Octave Lab [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570348.jpg" />
+  <img src="Z:/picture/008/save_picture_570348.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Norman Harris - The Harris Machine (1980) LP [MP3|320 Kbps] <Disco, Funk, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569423.jpg" />
+  <img src="Z:/picture/008/save_picture_569423.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Disco Tape Vol 4 (2016) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568920.jpg" />
+  <img src="Z:/picture/008/save_picture_568920.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Tommy Seebach - Disco Tango (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568773.jpg" />
+  <img src="Z:/picture/008/save_picture_568773.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568732.jpg" />
+  <img src="Z:/picture/008/save_picture_568732.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567954.jpg" />
+  <img src="Z:/picture/008/save_picture_567954.jpg" />
 </div>
 
 

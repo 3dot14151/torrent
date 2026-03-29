@@ -1,3 +1,91 @@
+###  Публикация: 507171   (677049) от 11.06.2012
+
+Isis - 13 albums (1998-2012) [FLAC/APE|Lossless] <Post-Metal, Progressive metal, Sludge, Doom Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_677049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: (00:40:26)
+01. Carry (06:59)
+02. Hymn (09:31)
+03. Weight (13:29)
+04. The Beginning and the End (10:25)1998-2012Жанр: Post-Metal, Progressive metal, Sludge, Doom Metal, Post-RockПродолжительность: 06:20:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029999   (676792) от 29.06.2016
+
+Masterstroke - Sleep (2007) Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transition
+02. Killing Creatures
+03. Turn Away
+04. Under Our Command(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C13D03AE171BE0FBA88A63E3390789F1623C5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030004   (676791) от 29.06.2016
+
+Starkill - Fires of Life (2013) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal, Melodic Death Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_676791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispers of Heresy
+02. Fires of Life
+03. Sword, Spear, Blood, Fire
+04. Below the Darkest Depths(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Death Metal, Power MetalПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDB88C4B9ADFF69C1AFED35B37D2716D97E8984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029982   (676787) от 29.06.2016
 
 Glorior Belli - Sundown (The Flock That Welcomes) (2016) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +94,7 @@ Glorior Belli - Sundown (The Flock That Welcomes) (2016) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676787.jpg" />
+  <img src="Z:/picture/008/save_picture_676787.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Whyzdom - Blind (2012) Japan [FLAC|Lossless|image + .cue] <Gothic Metal, Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676784.jpg" />
+  <img src="Z:/picture/008/save_picture_676784.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ New Horizon - Gate of the Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676685.jpg" />
+  <img src="Z:/picture/008/save_picture_676685.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ Loudness - The Sun Will Rise Again (2015) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676681.jpg" />
+  <img src="Z:/picture/008/save_picture_676681.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ Sarcofago - Die... Hard!!! (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676669.jpg" />
+  <img src="Z:/picture/008/save_picture_676669.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ Year of the Cobra - ...In The Shadows Below (2016) Limited Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676466.jpg" />
+  <img src="Z:/picture/008/save_picture_676466.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ VA - A Tribute to Judas Priest (2019) [FLAC|lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676315.jpg" />
+  <img src="Z:/picture/008/save_picture_676315.jpg" />
 </div>
 
 
@@ -209,7 +297,7 @@ Annulation - Human Creatures (2004) [FLAC|Lossless]<Thrash Metal / Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675690.jpg" />
 </div>
 
 
@@ -238,7 +326,7 @@ The Ocean - 6 albums (2003-2010) [FLAC|Lossless] <Progressive Metal, Sludge, Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675308.jpg" />
 </div>
 
 
@@ -273,7 +361,7 @@ Omega Massif - 4 albums (2005-2011) [FLAC|Lossless] <Post-Metal, Sludge, Post-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675294.jpg" />
 </div>
 
 
@@ -304,7 +392,7 @@ Kobra And The Lotus - Prevail I (2017) Japan [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674899.jpg" />
 </div>
 
 
@@ -333,7 +421,7 @@ Nimrod - Return to Babylon (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673309.jpg" />
+  <img src="Z:/picture/008/save_picture_673309.jpg" />
 </div>
 
 
@@ -362,7 +450,7 @@ Parkway Drive - 6 Альбомов (2005-2018) [FLAC|tracks|Lossless]<Metalcore,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673190.jpg" />
+  <img src="Z:/picture/008/save_picture_673190.jpg" />
 </div>
 
 
@@ -391,7 +479,7 @@ Bastard of Loran - Beckoning the Red Moon (2021) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672898.jpg" />
 </div>
 
 
@@ -420,7 +508,7 @@ Obsidian Black - Judgement Day (2022) EP [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672891.jpg" />
 </div>
 
 
@@ -449,7 +537,7 @@ East Of The Wall / Year Of No Light / Rosetta ‎– Split (2010) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672709.jpg" />
 </div>
 
 
@@ -480,7 +568,7 @@ Chelsea Grin - Self Inflicted (2016) [FLAC|Lossless|tracks + .cue] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672287.jpg" />
 </div>
 
 
@@ -509,7 +597,7 @@ Rosetta - 6 albums (2005-2011) [FLAC|Lossless] <Post-Metal, Sludge, Post-Rock, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672219.jpg" />
 </div>
 
 
@@ -536,7 +624,7 @@ Ihsahn - Amr (2018) Limited Edition [FLAC|lossless|image + .cue] <Avant-garde, E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671646.jpg" />
+  <img src="Z:/picture/008/save_picture_671646.jpg" />
 </div>
 
 
@@ -565,7 +653,7 @@ Helloween - Pumpkins United (2017) Single, Japan 2018 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671521.jpg" />
+  <img src="Z:/picture/008/save_picture_671521.jpg" />
 </div>
 
 
@@ -592,7 +680,7 @@ Helloween - Sweet Seductions (Best Of Helloween) (2017) 3CD, Japan [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671323.jpg" />
+  <img src="Z:/picture/008/save_picture_671323.jpg" />
 </div>
 
 
@@ -621,7 +709,7 @@ Cynic - Uroboric Forms - The Complete Demo Recordings (2017) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671027.jpg" />
+  <img src="Z:/picture/008/save_picture_671027.jpg" />
 </div>
 
 
@@ -650,7 +738,7 @@ Wings Of Steel - Wings Of Steel (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670979.jpg" />
+  <img src="Z:/picture/008/save_picture_670979.jpg" />
 </div>
 
 
@@ -664,93 +752,6 @@ Wings Of Steel - Wings Of Steel (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:054EF53D0E34423522BF025DC800E6F0A339227F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030739   (670477) от 02.07.2016
-
-Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Depressive, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Fiancées Sont Froides
-02. La Mer, Les Ruines
-03. Le Soleil Et l'Acier
-04. Kaputt(   Читать дальше...   )Жанр: Depressive, Post-Black MetalПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137153   (669412) от 25.05.2017
-
-Foscor - Groans to the Guilty (2009) Digipack [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groans to the Guilty 04:19
-02. In Case the Seasons Break 04:48
-03. Melangia 06:26
-04. Raids To Punishment 04:33(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E8861223E6372EDAF66D3825FC36D9618EDC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291377   (668905) от 25.03.2019
-
-Melted Space - Darkening Light (2018) [FLAC|lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Void Before (01:31)
-02. Newborns (05:05)
-03. The Meaning Of This Place (04:45)
-04. From The Beginning To The End (05:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91970B429D70B0317166F5028656BC5C9D92E69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

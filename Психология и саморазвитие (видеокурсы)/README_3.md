@@ -1,3 +1,32 @@
+###  Публикация: 999912   (862060) от 23.03.2016
+
+Ричард Бэндлер | «Секреты успеха» от основателя НЛП Ричарда Бэндлера (2014) DVDRip [EN / RU Sub]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом новом ограниченном издании на ДВД «Секреты успеха», Ричард Бендлер моделирует четырех невероятно успешных людей, у которых вы научитесь, благодаря которым вдохновитесь, и чьи навыки сможете использовать в вашей собственной жизни.?
+
+Четыре звезды у которых он берет интервью:
+- Знаменитый шеф-повар и владелец сети ресторанов Альдо Зилли.(   Читать дальше...   )Производство: NLP Life TrainingЖанр: Практическая психология, Личностный ростСубтитры: Русские (вшитые, не отключаемые)Продолжительность: 02:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AE09E98DD9E56FC1CEF189893D3C1FC53D5943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001071   (853362) от 28.03.2016
 
 Радислав Гандапас | Личный и профессиональный успех: скрипты и алгоритмы (2015) WEB-DL [H.264]
@@ -6,7 +35,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853362.jpg" />
+  <img src="Z:/picture/008/save_picture_853362.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Mindvalley, Джим Квик | Супермозг (2018) WEBRip
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811536.jpg" />
+  <img src="Z:/picture/008/save_picture_811536.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799305.jpg" />
+  <img src="Z:/picture/008/save_picture_799305.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798714.jpg" />
+  <img src="Z:/picture/008/save_picture_798714.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798678.jpg" />
+  <img src="Z:/picture/008/save_picture_798678.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789584.jpg" />
+  <img src="Z:/picture/008/save_picture_789584.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789578.jpg" />
+  <img src="Z:/picture/008/save_picture_789578.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787095.jpg" />
+  <img src="Z:/picture/008/save_picture_787095.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787086.jpg" />
+  <img src="Z:/picture/008/save_picture_787086.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787078.jpg" />
+  <img src="Z:/picture/008/save_picture_787078.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787076.jpg" />
+  <img src="Z:/picture/008/save_picture_787076.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787075.jpg" />
+  <img src="Z:/picture/008/save_picture_787075.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787070.jpg" />
+  <img src="Z:/picture/008/save_picture_787070.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787069.jpg" />
+  <img src="Z:/picture/008/save_picture_787069.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787068.jpg" />
+  <img src="Z:/picture/008/save_picture_787068.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787057.jpg" />
+  <img src="Z:/picture/008/save_picture_787057.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787051.jpg" />
+  <img src="Z:/picture/008/save_picture_787051.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787042.jpg" />
+  <img src="Z:/picture/008/save_picture_787042.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773057.jpg" />
+  <img src="Z:/picture/008/save_picture_773057.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766351.jpg" />
+  <img src="Z:/picture/008/save_picture_766351.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765201.jpg" />
+  <img src="Z:/picture/008/save_picture_765201.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765198.jpg" />
+  <img src="Z:/picture/008/save_picture_765198.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765125.jpg" />
+  <img src="Z:/picture/008/save_picture_765125.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765108.jpg" />
+  <img src="Z:/picture/008/save_picture_765108.jpg" />
 </div>
 
 
@@ -692,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764186.jpg" />
+  <img src="Z:/picture/008/save_picture_764186.jpg" />
 </div>
 
 
@@ -705,34 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C63312A25C1BD46E0546DAEF092ECFDCC5F18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521717   (764179) от 03.01.2022
-
-Наталья Козелкова | Речевые технологии. «Заговори, чтобы я тебя увидел!» (2022) WEB-DL
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушатель получает в руки мощное орудие воздействия – профессиональный голос и логически выстроенную речь, умение чётко видеть и выстраивать как конечную цель любой коммуникации, так и точное видение всей речевой ситуации целиком, со всеми её смысловыми пластами.
-
-Козелкова Наталья Александровна - преподаватель авторских курсов и тренингов. Выпускница театрального (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 03:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0CD9F6E55A77AB23C4AF4766298DE255835F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

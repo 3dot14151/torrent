@@ -6,7 +6,7 @@ Cyberfox 45.0 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887781.jpg" />
+  <img src="Z:/picture/005/save_picture_887781.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FBackup 9.2.405 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887696.jpg" />
+  <img src="Z:/picture/005/save_picture_887696.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bandizip 7.19 Build 43923 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887608.jpg" />
+  <img src="Z:/picture/005/save_picture_887608.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mozilla FireFox 92.0.0.7916 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887595.jpg" />
+  <img src="Z:/picture/005/save_picture_887595.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PassMark PerformanceTest 10.1 Build 1004 RePack (& Portable) by elchupacabra [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887584.jpg" />
+  <img src="Z:/picture/005/save_picture_887584.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Firefox Browser 91.1.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887572.jpg" />
+  <img src="Z:/picture/005/save_picture_887572.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Gilisoft Video Editor 7.2.0 Portable by PortableAppC [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887570.jpg" />
+  <img src="Z:/picture/005/save_picture_887570.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Firefox Browser 92.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887563.jpg" />
+  <img src="Z:/picture/005/save_picture_887563.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ K-Lite Codec Pack Update 16.4.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887555.jpg" />
+  <img src="Z:/picture/005/save_picture_887555.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ TagScanner 6.1.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887551.jpg" />
+  <img src="Z:/picture/005/save_picture_887551.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Opera GX 78.0.4093.214 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887529.jpg" />
+  <img src="Z:/picture/005/save_picture_887529.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Slimjet 8.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887515.jpg" />
+  <img src="Z:/picture/005/save_picture_887515.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IcoFX 3.6 RePack (& Portable) by elchupakabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887512.jpg" />
+  <img src="Z:/picture/005/save_picture_887512.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Icecream PDF Editor PRO 2.52 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887490.jpg" />
+  <img src="Z:/picture/005/save_picture_887490.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Cyberfox 51.0.3 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887470.jpg" />
+  <img src="Z:/picture/005/save_picture_887470.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adobe Acrobat XI (v11.0.15) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887443.jpg" />
+  <img src="Z:/picture/005/save_picture_887443.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Bat! Professional Edition 7.4.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887440.jpg" />
+  <img src="Z:/picture/005/save_picture_887440.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Notepad3 5.21.905.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887397.jpg" />
+  <img src="Z:/picture/005/save_picture_887397.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Tor Browser Bundle 5.5.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887363.jpg" />
+  <img src="Z:/picture/005/save_picture_887363.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ AIDA64 Extreme Edition 1.60.1300 Final [RU/UA/EN] RePack от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887344.jpg" />
+  <img src="Z:/picture/005/save_picture_887344.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Cyberfox 51.0.3 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887338.jpg" />
+  <img src="Z:/picture/005/save_picture_887338.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe Acrobat Reader DC 2015.010.20060 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887337.jpg" />
+  <img src="Z:/picture/005/save_picture_887337.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Topaz Labs Photoshop Plugins Bundle 2016 (08.03.2016) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887328.jpg" />
+  <img src="Z:/picture/005/save_picture_887328.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Adobe Acrobat Professional DC (v15.10) Multilingual Updated
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887296.jpg" />
+  <img src="Z:/picture/005/save_picture_887296.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Nox App Player 7.0.1.6000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887283.jpg" />
+  <img src="Z:/picture/005/save_picture_887283.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887237.jpg" />
+  <img src="Z:/picture/005/save_picture_887237.jpg" />
 </div>
 
 

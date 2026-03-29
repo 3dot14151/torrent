@@ -1,3 +1,56 @@
+###  Публикация: 1063403   (429787) от 18.10.2016
+
+LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The Yoda Chronicles (2013) WEB-DL [H.264/720p] (Сезон 1 - 2, серии 7 из 7)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступило время тяжких испытаний. На просторах галактики бушует бесконечная война, где зловещий Дарк Сидиус и его приспешники состряпали новый план свержения Республики. Тем временем в академии джедаев, магистр Йода обучает молодых падаванов, не подозревая о надвигающейся беде. Под обличием друга, Палпатин заставил Йоду отправится на Альдераан, чтобы помочь Оби-Вану (   Читать дальше...   )Производство: Дания, КитайЖанр: Детский, Приключения, ФантастикаРежиссер: Майкл ХэгнерПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 7 серий x 00:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00872FE9E4DA5F2B4374DA06F69C1C8784F9D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 830239   (428099) от 11.10.2014
+
+Путешествия Адибу: Как устроен человек / Adiboo Adventure: Inside The Human Body (2006) SATRip (40 из 40 серий)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебный мальчик Адибу и его друг Робиток переносятся в тело человека, чтобы исследовать, как работают все органы и системы. Вместе с ними мы переживем фантастическое приключение и узнаем много нового и полезного. Ведь человек — одна из самых больших загадок природы.
+А вы знаете, как устроено человеческое тело? Знают некоторые, но не все, и особенно дети. Вот и (   Читать дальше...   )Жанр: Компьютерная анимация, ДетскийРежиссер: Эрик БастьеПерсонажи: Адибу, Робиток, Бузи, ОдилияПеревод: ДублированныйПродолжительность: 40 х 00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7A15A008EA2B84DD72055D7C175389D0230BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946027   (427072) от 13.10.2015
 
 Космический призрак / Space Ghost (1966) DVDRip (Сезон 1, серий 1- 42 из 42) [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427072.jpg" />
+  <img src="Z:/picture/008/save_picture_427072.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427008.jpg" />
+  <img src="Z:/picture/008/save_picture_427008.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425328.jpg" />
+  <img src="Z:/picture/008/save_picture_425328.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2016) WEBRip (сезон 2,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420468.jpg" />
+  <img src="Z:/picture/008/save_picture_420468.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419620.jpg" />
+  <img src="Z:/picture/008/save_picture_419620.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418095.jpg" />
+  <img src="Z:/picture/008/save_picture_418095.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417836.jpg" />
+  <img src="Z:/picture/008/save_picture_417836.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416069.jpg" />
+  <img src="Z:/picture/008/save_picture_416069.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415970.jpg" />
+  <img src="Z:/picture/008/save_picture_415970.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415564.jpg" />
+  <img src="Z:/picture/008/save_picture_415564.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415542.jpg" />
+  <img src="Z:/picture/008/save_picture_415542.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415111.jpg" />
+  <img src="Z:/picture/008/save_picture_415111.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413901.jpg" />
+  <img src="Z:/picture/008/save_picture_413901.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413328.jpg" />
+  <img src="Z:/picture/008/save_picture_413328.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413319.jpg" />
+  <img src="Z:/picture/008/save_picture_413319.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413309.jpg" />
+  <img src="Z:/picture/008/save_picture_413309.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412910.jpg" />
+  <img src="Z:/picture/008/save_picture_412910.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412345.jpg" />
+  <img src="Z:/picture/008/save_picture_412345.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411228.jpg" />
+  <img src="Z:/picture/008/save_picture_411228.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410239.jpg" />
+  <img src="Z:/picture/008/save_picture_410239.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409947.jpg" />
+  <img src="Z:/picture/008/save_picture_409947.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409790.jpg" />
+  <img src="Z:/picture/008/save_picture_409790.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404750.jpg" />
+  <img src="Z:/picture/008/save_picture_404750.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402667.jpg" />
+  <img src="Z:/picture/008/save_picture_402667.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84DA17E114A6098C58F16B5B0BAE19626757323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169906   (401079) от 29.09.2017
-
-Даша-путешественница / Dora the Explorer (2000-2014) TVRip, HDTVRip [H.264] (Сезон 1-8, серии 1-176 из 176)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои сериала — семилетняя американская девочка Даша и ее друзья. Это интерактивный мультфильм, подразумевающий активное участие маленьких зрителей в каждом приключении героев и построенный по типу обучающей компьютерной игры. В каждой серии Даша приглашает зрителей отправиться с ней в поход с конкретной целью. Подруга Даши живая Карта подсказывает маршрут (   Читать дальше...   )Производство: Канада, США / Nickelodeon StudiosЖанр: Детский, Приключения, Обучающий, Рисованная анимацияРежиссер: Генри Мэдден, Гари Конрад, Кэти МакУэйнПерсонажи: Марк Уэйнер, Харрисон Чад, Кэтлин Херлс, Саша Торо, Риган Мизрахи, Александрия Суарез, Эшли Флеминг, Джейк Барбеидж, Хосе Зелайа, Кэйтлин СанчезПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 168 серий по ~00:24:00, 8 серий по ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB6339DA6D111523C98AD0D506C271017311385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170839   (398385) от 02.10.2017
-
-Вольтрон: Защитник Вселенной. Львиный Вольтрон / Voltron: Defender of the Universe. Lion Force (1984) DVDRip (Серии 1-72 из 72 + Voltron: Fleet of Doom)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398385.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Из далёкого прошлого, из необъятных космических просторов пришла к нам легенда о подвигах Вольтрона, защитника вселенной, непобедимого робота что внушал любовь людям добрым и ужас - злым. В ту пору в мире царили спокойствие и благоденствие. Созданный на планете Земля Галактический альянс, в который вошли обитаемые планеты солнечной системы, поддерживал во вселенной (   Читать дальше...   )Производство: США, ЯпонияЖанр: Рисованная анимация, мультфильм, фантастика, семейныйРежиссер: Франклин КофодПеревод: Дублированный, многоголосый закадровый,
-профессиональный (22 и 23, 69-72 серии)Субтитры: отсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB3EF70C52D0A98030584381249C1FD285CFB3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1330016   (343063) от 09.10.2019
+
+Оно 2 / It Chapter Two (2019) WEBRip [H.264/1080p-LQ] [UKR, EN / KOR Sub] [Line] [PR]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проходит 27 лет после первой встречи ребят с демоническим Пеннивайзом. Они уже выросли, и у каждого своя жизнь. Но неожиданно их спокойное существование нарушает странный телефонный звонок, который заставляет их вновь собраться вместе.Производство: Канада, США / KatzSmith Productions, Lin Pictures, New Line CinemaЖанр: Ужасы, фэнтези, драма, экранизацияРежиссер: Андрес МускеттиАктеры: Джессика Честейн, Джеймс МакЭвой, Билл Хэйдер, Айзая Мустафа, Джей Райан, Джеймс Рэнсон, Энди Бин, Билл Скарсгард, Джейден Мартелл, Уайатт ОлеффПеревод: ОтсутствуетЯзык озвучки: Украинский, английский (оригинал)Субтитры: Корейские (вшитые, неотключаемые)Продолжительность: 02:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4F616EEB4EF85316C20B88D5174C34514DD432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580026   (332958) от 29.09.2022
 
 Быстрее пули / Bullet Train (2022) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332958.jpg" />
+  <img src="Z:/picture/008/save_picture_332958.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303891.jpg" />
+  <img src="Z:/picture/008/save_picture_303891.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303728.jpg" />
+  <img src="Z:/picture/008/save_picture_303728.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279448.jpg" />
+  <img src="Z:/picture/008/save_picture_279448.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279382.jpg" />
+  <img src="Z:/picture/008/save_picture_279382.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278267.jpg" />
+  <img src="Z:/picture/008/save_picture_278267.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276777.jpg" />
+  <img src="Z:/picture/008/save_picture_276777.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272778.jpg" />
+  <img src="Z:/picture/008/save_picture_272778.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271871.jpg" />
+  <img src="Z:/picture/008/save_picture_271871.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271806.jpg" />
+  <img src="Z:/picture/008/save_picture_271806.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271670.jpg" />
+  <img src="Z:/picture/008/save_picture_271670.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266436.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_262816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262816.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262813.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262776.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262775.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255494.jpg" />
+  <img src="Z:/picture/005/save_picture_255494.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254956.jpg" />
+  <img src="Z:/picture/005/save_picture_254956.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254716.jpg" />
+  <img src="Z:/picture/005/save_picture_254716.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252129.jpg" />
+  <img src="Z:/picture/004/save_picture_252129.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252119.jpg" />
+  <img src="Z:/picture/004/save_picture_252119.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250148.jpg" />
+  <img src="Z:/picture/004/save_picture_250148.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249797.jpg" />
+  <img src="Z:/picture/004/save_picture_249797.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244125.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244068.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B61C1E39632E45A9E8831C55BBE18141B0A8059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568530   (242921) от 08.08.2022
-
-Месть земли / Feng bao / Cloudy Mountain (2021) WEB-DL [H.265/2160p] [UKR, CHI / CHI, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: боевикРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: ДублированныйЯзык озвучки: Украинский, китайскийСубтитры: английские и китайские (hardsub)Продолжительность: 01:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031940432845DB3BB614047B80CE3BA25A8F1B5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

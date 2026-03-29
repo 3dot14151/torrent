@@ -1,3 +1,81 @@
+###  Публикация: 886161   (772063) от 07.04.2015
+
+Журнал | Nuts and Volts №7 (июль 2014) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772063.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняЖанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B345A6B0DF00E6D86DFD751199A50E28B68A11AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886167   (772049) от 07.04.2015
+
+Журнал | Nuts and Volts №8 (август 2014) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняЖанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194DDE6E4878221F0C0C7BA3E96012019EEC627F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204976   (771216) от 25.01.2019
+
+Подшивка журналов | Электронные компоненты (2018) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771216.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Электронные компоненты» — журнал издается с 1995 года, и уже более 20 лет является авторитетным источником профессиональной информации для разработчиков электронной аппаратуры, технического руководства предприятий отрасли, директоров по снабжению и надежным маркетинговым партнером для производителей и дистрибьюторов электронных компонентовЖанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78005C5B5A8A8039B15B4D464D4E22D2EB6195C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886460   (769968) от 09.04.2015
 
 Журнал | Nuts and Volts №6 (июнь 2014) [PDF] [En]
@@ -6,7 +84,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769968.jpg" />
+  <img src="Z:/picture/008/save_picture_769968.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769483.jpg" />
+  <img src="Z:/picture/008/save_picture_769483.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769139.jpg" />
+  <img src="Z:/picture/008/save_picture_769139.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768269.jpg" />
+  <img src="Z:/picture/008/save_picture_768269.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766869.jpg" />
+  <img src="Z:/picture/008/save_picture_766869.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764861.jpg" />
+  <img src="Z:/picture/008/save_picture_764861.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764462.jpg" />
+  <img src="Z:/picture/008/save_picture_764462.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764422.jpg" />
+  <img src="Z:/picture/008/save_picture_764422.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764385.jpg" />
+  <img src="Z:/picture/008/save_picture_764385.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764096.jpg" />
+  <img src="Z:/picture/008/save_picture_764096.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762871.jpg" />
+  <img src="Z:/picture/008/save_picture_762871.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761996.jpg" />
+  <img src="Z:/picture/008/save_picture_761996.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760864.jpg" />
+  <img src="Z:/picture/008/save_picture_760864.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758532.jpg" />
+  <img src="Z:/picture/008/save_picture_758532.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757191.jpg" />
+  <img src="Z:/picture/008/save_picture_757191.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751078.jpg" />
+  <img src="Z:/picture/008/save_picture_751078.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750173.jpg" />
+  <img src="Z:/picture/008/save_picture_750173.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750091.jpg" />
+  <img src="Z:/picture/008/save_picture_750091.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748470.jpg" />
+  <img src="Z:/picture/008/save_picture_748470.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747110.jpg" />
+  <img src="Z:/picture/008/save_picture_747110.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744830.jpg" />
+  <img src="Z:/picture/008/save_picture_744830.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744728.jpg" />
+  <img src="Z:/picture/008/save_picture_744728.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743632.jpg" />
+  <img src="Z:/picture/008/save_picture_743632.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB76FC4572DFEEEA47B247D41A2BD9D63F34FE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784179   (742611) от 06.05.2014
-
-Журнал | Nuts and Volts №5 (май 2014) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742611.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD46BA0C0CAD803A9B000AED5B078D0EAC32ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784161   (742586) от 06.05.2014
-
-Журнал | Nuts and Volts №4 (апрель 2014) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742586.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACD057475729E375C71059B16E5A71B8F1B8AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784272   (741263) от 07.05.2014
-
-Журнал | Stereo Video & Multimedia №4 (апрель 2014) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированный журнал «Stereo Video & Multimedia» представляет самые последние новинки аудио- и видео-продукции на украинском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми. Журнал рассчитан на широкий круг читателей, интересующихся аудио-видеоаппаратурой и её приобретением.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC577DCC2DD1D1E92BB2261CB4E2DDDB464A9FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

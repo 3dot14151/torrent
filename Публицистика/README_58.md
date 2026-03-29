@@ -1,3 +1,83 @@
+###  Публикация: 949136   (379473) от 22.10.2015
+
+Андрей Пионтковский | Призрак России. Кремлевское царство теней (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Пионтковский – известный российский публицист и политический деятель. Читателям известны его книги «Третий путь… к рабству», «Искушение Владимира Путина», «Чертова дюжина Путина» и другие.
+
+В своей новой книге Андрей Пионтковский резко и бескомпромиссно оценивает внутреннюю и внешнюю политику Кремля, экономический курс правительства, социальные «реформы» и (   Читать дальше...   )Жанр: Политика, политология, публицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D0D7CEFDDB42082D300A7979CDFC64B1F88E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949238   (378731) от 22.10.2015
+
+Михаил Зыгарь | Вся кремлевская рать. Краткая история современной России (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга рассказывает об истории России на всем протяжении правления Владимира Путина, с 2000 по 2015 год. В основу книги легли документы, открытые источники и десятки уникальных личных интервью, которые автор взял у действующих лиц из ближайшего окружения Владимира Путина. Собранные воедино, факты, события, интриги и мнения героев составляют полную картину жизни (   Читать дальше...   )Жанр: Политика, государственное управлениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7DC97D83AC0515BBF60193459757A6A1DF0690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415060   (378693) от 11.10.2020
+
+Элизабет Гилберт | Жизнь в лесу. Последний герой Америки (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – полновесное исследование современной мужской идентичности на примере увлекательной реальной истории Юстаса Конвея. В 1977 году, в возрасте семнадцати лет, Конвей покинул комфортный мегаполис, чтобы перебраться в горы Аппалачей. На протяжении более двух десятилетий он жил там, вооруженный подручными средствами, одетый в шкуры животных, которых он ловил. (   Читать дальше...   )Жанр: Биографии и Мемуары, ПриключенияПеревод: Юлия Ю. ЗмееваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3967C8759DFF5ABC0D981F166C04DAC90BFE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415346   (378675) от 11.10.2020
 
 Петр Дружинин | Загадка «Таблицы Менделеева» (2019) [FB2]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378675.jpg" />
+  <img src="Z:/picture/008/save_picture_378675.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377756.jpg" />
+  <img src="Z:/picture/008/save_picture_377756.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377374.jpg" />
+  <img src="Z:/picture/008/save_picture_377374.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376773.jpg" />
+  <img src="Z:/picture/008/save_picture_376773.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376605.jpg" />
+  <img src="Z:/picture/008/save_picture_376605.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376595.jpg" />
+  <img src="Z:/picture/008/save_picture_376595.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375760.jpg" />
+  <img src="Z:/picture/008/save_picture_375760.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374172.jpg" />
+  <img src="Z:/picture/008/save_picture_374172.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373793.jpg" />
+  <img src="Z:/picture/008/save_picture_373793.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372443.jpg" />
+  <img src="Z:/picture/008/save_picture_372443.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372282.jpg" />
+  <img src="Z:/picture/008/save_picture_372282.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372037.jpg" />
+  <img src="Z:/picture/008/save_picture_372037.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370624.jpg" />
+  <img src="Z:/picture/008/save_picture_370624.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370518.jpg" />
+  <img src="Z:/picture/008/save_picture_370518.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370384.jpg" />
+  <img src="Z:/picture/008/save_picture_370384.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369838.jpg" />
+  <img src="Z:/picture/008/save_picture_369838.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369648.jpg" />
+  <img src="Z:/picture/008/save_picture_369648.jpg" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369640.jpg" />
+  <img src="Z:/picture/008/save_picture_369640.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368028.jpg" />
+  <img src="Z:/picture/008/save_picture_368028.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368026.jpg" />
+  <img src="Z:/picture/008/save_picture_368026.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367766.jpg" />
+  <img src="Z:/picture/008/save_picture_367766.jpg" />
 </div>
 
 
@@ -569,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367754.jpg" />
+  <img src="Z:/picture/008/save_picture_367754.jpg" />
 </div>
 
 
@@ -597,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367552.jpg" />
+  <img src="Z:/picture/008/save_picture_367552.jpg" />
 </div>
 
 
@@ -608,87 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3571281D0319A5563A0A20D70DFFAA7F6266C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950741   (367550) от 27.10.2015
-
-Валентин Катасонов | Антикризис. Выжить и победить (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экономическая война против России идет давно, но только сейчас она приняла такие решительные и пугающие формы. Впервые за долгие годы наша страна стоит на пороге настоящей блокады. Российское имущество за рубежом арестовывается, торговля замораживается, мир как будто застыл на пороге настоящей войны, а сейчас проводится ее генеральная репетиция.
-Валентин Юрьевич (   Читать дальше...   )Жанр: Политика, Публицистика, ЭкономикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4EEFFE3541F57947B1BBD4845052034E07478F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950818   (367438) от 27.10.2015
-
-Аригор | Просвещение мужчин: Заметки Аригора (2015) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит заметки Аригора - философа Мужского Движения. Материал предназначен для просвещения мужчин в области маскулизма, взаимоотношения полов и актуализации мужчин в обществе.
-
-Небольшие по объёму, но ёмкие по смыслу заметки привлекают огромный интерес читателей, вызывают бурные дискуссии в гендерных кругах и репосты в соцсетях. Свежий взгляд на положение (   Читать дальше...   )Жанр: Маскулизм, ПросветительскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F670245033A0206A710982CAAC0E40112B47825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416421   (367338) от 16.10.2020
-
-Алексей Пушков | Миссия России. Хватит ли сил у Путина? (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Константинович Пушков – политолог, профессор, глава Комитета Госдумы по международным делам, автор и ведущий популярной телевизионной программы «Постскриптум», – в своей новой книге показывает, как «перезагрузка» в российско-американских отношениях сменилась новой холодной войной США против России, обозначает основные ее этапы и приводит картину изменившейся (   Читать дальше...   )Жанр: Внешняя политика, Политология, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B699CAD29AD152990A1B223F8F2DFE88E794EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

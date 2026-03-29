@@ -1,3 +1,30 @@
+###  Публикация: 1539461   (658205) от 25.03.2022
+
+Аманда Луззадер | Русалочка(Луззадер) [3 книги] (2021-2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга 1. Талисман забытых земель. ISBN: 978-5-17-137473-0. Год: 2021
+Бринн Финли идет в среднюю школу. И оказывается единственной русалочкой в классе, не способной творить магию! А без магических способностей нельзя стать стражем моря, как все остальные русалки. В школе и дома Бринн приходится притворяться умелой волшебницей, но она понимает, что долго ее ложь не (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Нина СеменоваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1DC926E0095F99D911248C889E28DCE315BC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903469   (658175) от 31.05.2015
 
 Аннелизе Ихенхойзер | Спасенное сокровище (1961) [DJVU]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658175.jpg" />
+  <img src="Z:/picture/008/save_picture_658175.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658073.jpg" />
+  <img src="Z:/picture/008/save_picture_658073.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658067.jpg" />
+  <img src="Z:/picture/008/save_picture_658067.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657860.jpg" />
+  <img src="Z:/picture/008/save_picture_657860.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657857.jpg" />
+  <img src="Z:/picture/008/save_picture_657857.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657718.jpg" />
+  <img src="Z:/picture/008/save_picture_657718.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657569.jpg" />
+  <img src="Z:/picture/008/save_picture_657569.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657278.jpg" />
+  <img src="Z:/picture/008/save_picture_657278.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657217.jpg" />
+  <img src="Z:/picture/008/save_picture_657217.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657214.jpg" />
+  <img src="Z:/picture/008/save_picture_657214.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657067.jpg" />
+  <img src="Z:/picture/008/save_picture_657067.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656888.jpg" />
+  <img src="Z:/picture/008/save_picture_656888.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656880.jpg" />
+  <img src="Z:/picture/008/save_picture_656880.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656773.jpg" />
+  <img src="Z:/picture/008/save_picture_656773.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656557.jpg" />
+  <img src="Z:/picture/008/save_picture_656557.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655695.jpg" />
+  <img src="Z:/picture/008/save_picture_655695.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655233.jpg" />
+  <img src="Z:/picture/008/save_picture_655233.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655021.jpg" />
+  <img src="Z:/picture/008/save_picture_655021.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654967.jpg" />
+  <img src="Z:/picture/008/save_picture_654967.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654465.jpg" />
+  <img src="Z:/picture/008/save_picture_654465.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654374.jpg" />
+  <img src="Z:/picture/008/save_picture_654374.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654241.jpg" />
+  <img src="Z:/picture/008/save_picture_654241.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654122.jpg" />
+  <img src="Z:/picture/008/save_picture_654122.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654078.jpg" />
+  <img src="Z:/picture/008/save_picture_654078.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654072.jpg" />
+  <img src="Z:/picture/008/save_picture_654072.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F628ACD33ED291E1045259D23FC50AA70AD8FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893835   (654045) от 03.06.2015
-
-Книжная серия | Библиотека мировой литературы для детей [Обновляемая - 2 книги] (1977 -1992) [DJVU, PDF, FB2]
-
->>След.
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека мировой литературы для детей - издание, включающее "золотой" список произведений русской и зарубежной классики, мирового фольклора, литературные и народные сказки, стихи и прозу детских писателей. Книги иллюстрировали лучшие отечественные графики. Издания печатались на хорошей бумаге, с яркими иллюстрациями. Не случайно издательство получило (   Читать дальше...   )Жанр: Детская литератураФормат: DJVU, PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3798AB01374F57FD66A6CA1FC19D2A7E08E2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

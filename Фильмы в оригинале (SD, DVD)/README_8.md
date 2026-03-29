@@ -1,3 +1,29 @@
+###  Публикация: 1181129   (335190) от 06.11.2017
+
+Бомбила / Ryde (2016) BDRip [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологии нас сближают, но порой незнакомцы становятся слишком близки к нам. Насколько вы действительно можете кому-то доверять? С новым приложением для такси никогда не знаешь, кто тебе попадётся. И сможешь ли доехать до места живым…Производство: США, Vega EntertainmentЖанр: Ужасы, ТриллерРежиссер: Brian Frank ViscigliaАктеры: Дэвид Уочс, Джессика Серфати, Ронни Альварес, Kyle Thomas Schmidt, Вероника Лорен, Дельпано Виллис, Valerie Lynn Smith, Dylan Taylor, Ририа Ниимура, Chance GuessПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA392C623F99AD5AB9319F9C8F79C1A5B7DA24C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 840890   (332307) от 14.11.2014
 
 Китайский кофе / Chinese Coffee (2000) DVDRip [EN / RU EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332307.jpg" />
+  <img src="Z:/picture/008/save_picture_332307.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331937.jpg" />
+  <img src="Z:/picture/008/save_picture_331937.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329857.jpg" />
+  <img src="Z:/picture/008/save_picture_329857.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323042.jpg" />
+  <img src="Z:/picture/008/save_picture_323042.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318872.jpg" />
+  <img src="Z:/picture/008/save_picture_318872.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315790.jpg" />
+  <img src="Z:/picture/008/save_picture_315790.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305276.jpg" />
+  <img src="Z:/picture/008/save_picture_305276.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301977.jpg" />
+  <img src="Z:/picture/008/save_picture_301977.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301968.jpg" />
+  <img src="Z:/picture/008/save_picture_301968.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299422.jpg" />
+  <img src="Z:/picture/008/save_picture_299422.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298644.jpg" />
+  <img src="Z:/picture/008/save_picture_298644.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294938.jpg" />
+  <img src="Z:/picture/008/save_picture_294938.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292847.jpg" />
+  <img src="Z:/picture/008/save_picture_292847.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289216.jpg" />
+  <img src="Z:/picture/008/save_picture_289216.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284234.jpg" />
+  <img src="Z:/picture/008/save_picture_284234.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282000.jpg" />
+  <img src="Z:/picture/008/save_picture_282000.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281548.jpg" />
+  <img src="Z:/picture/008/save_picture_281548.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274540.jpg" />
+  <img src="Z:/picture/008/save_picture_274540.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267967.jpg" />
+  <img src="Z:/picture/008/save_picture_267967.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267219.jpg" />
+  <img src="Z:/picture/008/save_picture_267219.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264352.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258274.jpg" />
+  <img src="Z:/picture/005/save_picture_258274.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255847.jpg" />
+  <img src="Z:/picture/005/save_picture_255847.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252765.jpg" />
+  <img src="Z:/picture/005/save_picture_252765.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251820.jpg" />
+  <img src="Z:/picture/005/save_picture_251820.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFD88D4ACDEBAD82ECAF1E82E3AD7E84924448E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619611   (245533) от 23.03.2023
-
-Растин / Rustin (2001) DVD5 [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Растин — название города в штате Алабама, куда после завершения своей профессиональной карьеры футболиста возвращается Билли Стаген и становится местным шерифом. Прошлое ещё не отпустило Билли, а между тем его жизнь переворачивается с ног на голову, когда в город приезжает шестнадцатилетняя девушка по имени Ли, которая утверждает, что она — его внебрачная дочь.Производство: США  /  C-Dub Productions, Dahlia Street Films, Grabba-Bat ProductionsЖанр: Драма, комедияРежиссер: Рик ДжонсонАктеры: Рик Джонсон, Мит Лоаф, Эшли Джонсон, Закари Тай Брайан, Майкл Пападжон, Shanessa Sweeney, Ли Эверетт, Лелэнд Л. Джонс, Джонатан Барби, Дэн БинПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81CBE0DFE59745EED6D6EFA65CB29449F694504
 ```
 
 https://mybot314.ru/tekegram_catalog/

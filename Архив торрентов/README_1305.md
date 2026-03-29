@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761334.jpg" />
+  <img src="Z:/picture/008/save_picture_761334.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Carsorica Vol.2 (2016) [MP3|320 кб/с] <Trance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761333.jpg" />
+  <img src="Z:/picture/008/save_picture_761333.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761330.jpg" />
+  <img src="Z:/picture/008/save_picture_761330.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mozilla Firefox 47.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761326.jpg" />
+  <img src="Z:/picture/008/save_picture_761326.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Animal Kingdom: Wildlife Expedition [Wii] [English] [NTSC-U] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761320.jpg" />
+  <img src="Z:/picture/008/save_picture_761320.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Dream Manipulation Therapy (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761227.jpg" />
+  <img src="Z:/picture/008/save_picture_761227.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Club Hits Volume One (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761223.jpg" />
+  <img src="Z:/picture/008/save_picture_761223.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761219.jpg" />
+  <img src="Z:/picture/008/save_picture_761219.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Linkin Park - Underground 1.0-9.0 (2000-2009) [MP3|192-320 kbps]<Alternative Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761199.jpg" />
+  <img src="Z:/picture/008/save_picture_761199.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761149.jpg" />
+  <img src="Z:/picture/008/save_picture_761149.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Basilisk 2018.03.21 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761134.jpg" />
+  <img src="Z:/picture/008/save_picture_761134.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761127.jpg" />
+  <img src="Z:/picture/008/save_picture_761127.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ XAMPP 1.7.4 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761121.jpg" />
+  <img src="Z:/picture/008/save_picture_761121.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ callasoiled - Lucoq HD (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761111.jpg" />
+  <img src="Z:/picture/008/save_picture_761111.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Blocs 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761109.jpg" />
+  <img src="Z:/picture/008/save_picture_761109.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Little Audio App 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761104.jpg" />
+  <img src="Z:/picture/008/save_picture_761104.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761076.jpg" />
+  <img src="Z:/picture/008/save_picture_761076.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Hard Disk Sentinel Pro 5.20 Build 9372 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761033.jpg" />
+  <img src="Z:/picture/008/save_picture_761033.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760983.jpg" />
+  <img src="Z:/picture/008/save_picture_760983.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760981.jpg" />
+  <img src="Z:/picture/008/save_picture_760981.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wise Folder Hider Free 3.32.141 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760980.jpg" />
+  <img src="Z:/picture/008/save_picture_760980.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760975.jpg" />
+  <img src="Z:/picture/008/save_picture_760975.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PrivaZer 3.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760972.jpg" />
+  <img src="Z:/picture/008/save_picture_760972.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Ana Criado & Denis Kenzo - Beautiful Creature (2016) Single [MP3|320 кб/с] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760970.jpg" />
+  <img src="Z:/picture/008/save_picture_760970.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760964.jpg" />
+  <img src="Z:/picture/005/save_picture_760964.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760962.jpg" />
+  <img src="Z:/picture/005/save_picture_760962.jpg" />
 </div>
 
 

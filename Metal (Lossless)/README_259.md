@@ -1,3 +1,90 @@
+###  Публикация: 1270203   (214468) от 18.12.2018
+
+Veiled in Scarlet - Atonement (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer to Dawn
+02. The Throne
+03. Prisoner's Sorrow
+04. Atonement(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97E8393BD8D588FC28A777602EEA4379A40CCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270233   (214295) от 18.12.2018
+
+Venom - Storm The Gates (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214295.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bring Out Your Dead [03:20]
+2. Notorious [04:15]
+3. I Dark Lord [04:40]
+4. 100 Miles To Hell [04:48](   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2369C65BB0C1E64C10CD0C00B5F20EE44C4FA8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270172   (214260) от 18.12.2018
+
+Slayer - God Hates Us All (2001) Japanese Edition [FLAC|Lossless|tracks + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Darkness of Christ (1:30)
+02.Disciple (3:36)
+03.God Send Death (3:46)
+04.New Faith (3:06)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2D808F98DF85E73A6FAEDDC369B5E9A7C136EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514909   (214143) от 05.12.2021
 
 Defiant - No more pain (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +93,7 @@ Defiant - No more pain (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214143.jpg" />
+  <img src="Z:/picture/005/save_picture_214143.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Ground - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214137.jpg" />
+  <img src="Z:/picture/005/save_picture_214137.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Despised Icon - Déterré (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214131.jpg" />
+  <img src="Z:/picture/005/save_picture_214131.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Farsot / ColdWorld - Toteninsel (Split) (2018)  [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214093.jpg" />
+  <img src="Z:/picture/005/save_picture_214093.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Kill Ritual - Kill Star Black Mark Dead Hand Pierced Heart (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214085.jpg" />
+  <img src="Z:/picture/005/save_picture_214085.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Gloom In The Corner - Trinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214082.jpg" />
+  <img src="Z:/picture/005/save_picture_214082.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ The Otolith - Folium Limina (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Vi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214071.jpg" />
+  <img src="Z:/picture/005/save_picture_214071.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Redemption - 2 Studio Albums (2016-2018) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214065.jpg" />
+  <img src="Z:/picture/005/save_picture_214065.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Demon Hunter - EXILE (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214062.jpg" />
+  <img src="Z:/picture/005/save_picture_214062.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Cult of the Fox - Blood Omens (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214032.jpg" />
+  <img src="Z:/picture/005/save_picture_214032.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Them - Fear City (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214028.jpg" />
+  <img src="Z:/picture/005/save_picture_214028.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Cryonic - Evil Mind (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214024.jpg" />
+  <img src="Z:/picture/005/save_picture_214024.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Starchild - Battle of Eternity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214020.jpg" />
+  <img src="Z:/picture/005/save_picture_214020.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Tuff - What Comes Around Goes Around (1991) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214013.jpg" />
+  <img src="Z:/picture/005/save_picture_214013.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Them - Fear City (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213985.jpg" />
+  <img src="Z:/picture/005/save_picture_213985.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Royal Hunt - Dystopia, Pt. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213961.jpg" />
+  <img src="Z:/picture/005/save_picture_213961.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Evil Minds - Eyes of Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213952.jpg" />
+  <img src="Z:/picture/005/save_picture_213952.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Evil-Minded - Lucy's Fate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213930.jpg" />
+  <img src="Z:/picture/005/save_picture_213930.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ Binary Creed - Inferno (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213923.jpg" />
+  <img src="Z:/picture/005/save_picture_213923.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Fear Factory - Recoded (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213919.jpg" />
+  <img src="Z:/picture/005/save_picture_213919.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Sodom - 40 Years at War - The Greatest Hell of Sodom (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213896.jpg" />
+  <img src="Z:/picture/005/save_picture_213896.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Fear Factory - Recoded (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213888.jpg" />
+  <img src="Z:/picture/005/save_picture_213888.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Joe Lynn Turner - Belly Of The Beast (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213878.jpg" />
+  <img src="Z:/picture/005/save_picture_213878.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Joe Lynn Turner - Belly Of The Beast (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6747326A48FD6445900E0206823832204193B875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587074   (213870) от 29.10.2022
-
-Bad Wolves - Dear Monsters (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Alt.Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Kiss [00:04:04]
-02. Never Be The Same [00:03:50]
-03. Lifeline [00:03:13]
-04. Wildfire [00:03:16](   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Post-GrungeПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721A8673DBDFF4ED57A1F97CA0965E930156E752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586870   (213857) от 29.10.2022
-
-Polyphia - Remember That You Will Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Guitar Instrumental, Jazz Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis (feat. Brasstracks) [00:03:14]
-02. Playing God [00:03:25]
-03. The Audacity (feat. Anomalie) [00:02:24]
-04. Reverie [00:04:02](   Читать дальше...   )Жанр: Progressive Metal, Guitar Instrumental, Jazz FusionПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522730ACCED9B055CFD623511087B59DA88CBD21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653955   (213838) от 18.08.2023
-
-Lake Cyanide - Lake Cyanide (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malabar (03:44)
-02. Roman Numerals (03:16)
-03. Hidden Entrance (03:38)
-04. Late Riser (06:20)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D425EAC5B29603FE8F601F34101A344B248115
 ```
 
 https://mybot314.ru/tekegram_catalog/

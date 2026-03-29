@@ -1,3 +1,291 @@
+###  Публикация: 1086177   (154102) от 23.12.2016
+
+The Bat! Voyager 7.4.0.1 Final Portable by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154102.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! Voyager - это мобильный почтовый клиент, который работает с любым портативным носителем информации: "флэшки", конверторы из USB в IDE, и так далее. The Bat! Voyager создан для того, чтобы получать и отправлять письма с любого компьютера. Программа сохранит Ваши личные шаблоны писем, защитит почту от вирусов, червей и других вредоносных программ. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106D2DAB468D30B870E5A229F55359CFAB10BAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434003   (154085) от 22.12.2020
+
+AIMP 4.70.2239 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154085.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9446A74AD5B93CAB898A525FBC04C508B1CBEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433572   (154070) от 22.12.2020
+
+AVS Audio Software 10.0.4.13 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154070.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS Audio Software представляет собой комплект из двух программ для обработки аудио файлов от AVS4YOU: AVS Audio Editor 10.0.4.553 и AVS Audio Converter 10.0.4.613.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2BAC624BC2BD12C0D3591674A49123DB26160E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518701   (154058) от 20.12.2021
+
+RegCool 1.300 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6D16C90868F1B98665A08BA3B3CB1518A0E3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086097   (154054) от 23.12.2016
+
+foobar2000 1.3.14 Stable + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154054.jpg" />
+</div>
+
+
+###  Подробнее
+
+foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BBDF2820F52F23653E1D1533BB4520849EF9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600861   (154050) от 29.12.2022
+
+Wondershare PDFelement 9.3.2.2044  Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FE5666818E09024E66B77FBB6069AEB90D9054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676893   (154039) от 15.11.2023
+
+Windows 11 Manager 1.3.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A23F0F2CCC3A6653E4C782AF32602B39A80D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518697   (154034) от 20.12.2021
+
+Firefox Browser 95.0.2 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B98F61FB09B68499FBB6040FC62B674FF42E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194742   (154033) от 26.12.2017
+
+Athentech Perfectly Clear + WorkBench 3.5.6.1140 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78094C7BBFE461E1C58AE8738990C678CC39A0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676886   (154025) от 15.11.2023
+
+NVIDIA GeForce Desktop Game Ready 546.17 WHQL + DCH [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154025.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DB6F5A533C08B7B4E43E55AE32553049DD74E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434028   (154010) от 22.12.2020
+
+UnHackMe 12.10.2020.1016 (акция Comss) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154010.jpg" />
+</div>
+
+
+###  Подробнее
+
+UnHackMe позволяет обнаруживать и удалять различного рода вредоносное ПО и потенциально нежелательные программы, в том числе скрытые угрозы - руткиты.
+Rootkit (руткит) - набор программ, которые хакер использует, чтобы замаскировать вторжение и получить доступ с привилегиями администратора к компьютеру или компьютерной сети.
+Ваша антивирусная программа может не обнаружить (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C69F377FF62EF2ADEDC9C6104E6539D929640F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270736   (154001) от 21.12.2018
 
 FolderChangesView 2.26 Portable [Ru/En]
@@ -6,7 +294,7 @@ FolderChangesView 2.26 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154001.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ OEM Info Updater 9.3 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153999.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ Wallpaper Engine 1.4.140 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153991.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ Firefox Browser 95.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153971.jpg" />
 </div>
 
 
@@ -110,7 +398,7 @@ Windows 10 Manager 3.8.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153966.jpg" />
 </div>
 
 
@@ -136,7 +424,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153965.jpg" />
 </div>
 
 
@@ -162,7 +450,7 @@ Microsoft Windows and Office ISO Download Tool 4.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153942.jpg" />
 </div>
 
 
@@ -188,7 +476,7 @@ Aiseesoft Video Converter Ultimate 10.3.20 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153933.jpg" />
 </div>
 
 
@@ -214,7 +502,7 @@ PotPlayer 231113 (1.7.22038) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153919.jpg" />
 </div>
 
 
@@ -240,7 +528,7 @@ MusicLab - RealStrat 5.0.0.7420 STANDALONE, VSTi, VSTi3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153909.jpg" />
 </div>
 
 
@@ -266,7 +554,7 @@ Display Driver Uninstaller 18.0.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153907.jpg" />
 </div>
 
 
@@ -292,7 +580,7 @@ O&O DiskImage Professional 15.1 Build 162 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153903.jpg" />
 </div>
 
 
@@ -318,7 +606,7 @@ The Bat! Professional 7.4.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153894.jpg" />
 </div>
 
 
@@ -344,7 +632,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153888.jpg" />
 </div>
 
 
@@ -371,7 +659,7 @@ Maxthon Cloud Browser 5.0.2.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153887.jpg" />
 </div>
 
 
@@ -382,295 +670,6 @@ Maxthon Cloud Browser 5.0.2.1000 Final + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B02C22BAD075136AAA1F389ACA5D61A06E957659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518610   (153881) от 20.12.2021
-
-Plexim Plecs 4.5.6 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153881.jpg" />
-</div>
-
-
-###  Подробнее
-
-PLECS® является инструментом для высокоскоростного моделирования систем силовой электроники. Он доступен в двух версиях: PLECS Blockset для гладкой интеграции с MATLAB® / Simulink® и PLECS Standalone, полностью самостоятельный продукт.
-В раздачу входит вариант Standalone для процессоров x64.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299B2CD52C28B2A078CDB4F11992689B0DA7E318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676958   (153876) от 15.11.2023
-
-Office Tool Plus 10.4.2.4 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Tool Plus - функциональная программа для работы с Office от компании Microsoft. Позволит вам выполнить модернизацию текущего офиса, допустим изменить канал обновления, если есть желание возможно удалить лишние языковые пакеты, можно сам офис полностью удалить из системы. Плюс у вас не будет больше проблем с активацией, теперь максимально легко установить ключ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979E9FD70C7C5646BF39881059D492C63090C140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676960   (153869) от 15.11.2023
-
-Smart Driver Manager Pro 7.1.1105 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Driver Manager - это быстрый, простой и безопасный способ для автоматического управления и обновления драйверов. Программа сканирует ваш компьютер и все аппаратные устройства, которые связаны и предоставить список всех драйверов нуждаются в обновлении. С просто одним щелчком мыши, Smart Driver Manager будет безопасная установка каждого обновления на вашем ПК. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE88DF819A1DE0C716984DF2CC2C6678C479A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676883   (153862) от 15.11.2023
-
-Adobe Audition 24.0.3.3 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8568BA9FBF3BC3779401A9F6788D8EE6EED027B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600915   (153858) от 29.12.2022
-
-Perfectly Clear WorkBench 4.2.0.2382 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3686A4F02D6380788F26481A4C71DFFD97FC11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086192   (153854) от 23.12.2016
-
-Ashampoo Burning Studio 18.0.1.11 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Burning Studio 18 - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A50ABB0653DFDB753637C9D96161B8FA89DF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433853   (153841) от 22.12.2020
-
-Movavi Picverse 1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Picverse предназначен как для начинающих, так и для опытных фотографов. Фоторедактор оснащен нейросетевыми функциями, которые помогут вам мгновенно получить профессиональный результат. Благодаря удобному, интуитивному интерфейсу на многих языках, включая русский, вы сможете сразу же начать работу в программе.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C561BA9F5A0B14BCA839C13A4471378A4B073A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347219   (153838) от 22.12.2019
-
-Athentech Perfectly Clear Complete 3.9.0.1711 Repack by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Athentech Perfectly Clear Complete может работать отдельно или как плагин для Photoshop и Lightroom. Позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699E47BD2CAC274D23754FF76C316A4F998944B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270991   (153837) от 21.12.2018
-
-Internet Download Manager 6.32 Build 3 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C64326371A53C4714483AFB6DCE0035066A8244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347236   (153832) от 22.12.2019
-
-Opera 65.0.3467.78 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F12FCCC08485C93E59033DE17672DF4046425E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518699   (153818) от 20.12.2021
-
-GIMP 2.10.30 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153818.jpg" />
-</div>
-
-
-###  Подробнее
-
-GIMP — это редактор, позволяющий работать со слоями, применять различные эффекты, использовать фильтры градиента, успешно использовать пользовательские шаблоны и многое, многое другое. Если, для выполнения сложных профессиональных работ потребуется что-то еще, то Вы сможете существенно расширить возможности программы с помощью более сотни плагинов. Он позволяет работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B02FD705B22BF071D067F9EB053E1D525B063A
 ```
 
 https://mybot314.ru/tekegram_catalog/

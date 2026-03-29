@@ -1,3 +1,134 @@
+###  Публикация: 1770565   (32246) от 02.01.2025
+
+Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приветствуем вас на курсе «Полное обучение MongoDB», который предоставляет все необходимые знания и навыки для успешного использования одной из ведущих NoSQL баз данных. MongoDB является мощным и гибким инструментом для эффективного управления большими объемами информации. В процессе курса вы освоите развертывание кластеров MongoDB, научитесь работать с документами (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771053   (32070) от 04.01.2025
+
+Дмитрий Лаврик | Nuxt - интенсивный базовый курс (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освоить ключевые аспекты фреймворка Nuxt и научиться создавать SPA с поддержкой рендеринга на стороне сервера, минимизировав усилия разработчика (по сравнению с реализацией SSR на чистом Vue с нуля).
+Мы стремимся создать учебный процесс, максимально приближенный к реальным условиям, поэтому сразу интегрируем Vuetify, изучая её компоненты и исследуя сложности, связанные (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 26:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247D92DC62EF7ABD7B1F65C8F744190FFFC1AA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770972   (32068) от 04.01.2025
+
+Учебный центр IBS, Игорь Судакевич  | Java Advanced I: функциональное, асинхронное и реактивное программирование (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс охватывает современные функциональные и реактивные подходы к разработке на Java, которые улучшают производительность бэкенда. В него входит изучение неблокирующего ввода-вывода NIO2, асинхронных промисов CompletableFuture, библиотек реактивного программирования RxJava и Reactor. Также курс включает интерфейс асинхронного доступа к базам данных R2DBC, потоковый (   Читать дальше...   )Производство: Учебный центр IBSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 47:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EE7115E5A71A0E506970BC5D30B7B185E0B9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770917   (32058) от 04.01.2025
+
+Slurm (Слёрм) | Data-инженер (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Data-инженер» подойдёт аналитикам данных, разработчикам и администраторам баз данных. Он охватывает темы, такие как создание дата-пайплайнов, работа с базами данных (SQL, NoSQL), оптимизация данных, использование инструментов (Python, AirFlow, Hadoop, Kafka) и многое другое. Практические задания, работа в группах и консультации экспертов помогут студентам освоить (   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 30:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC21F257D02D3408BC33CAFD69FA39AF541D18BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771244   (31977) от 05.01.2025
+
+Учебный центр IBS, Игорь Судакевич  | Java Advanced II: высокопроизводительная Java (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс нацелен на оптимизацию производительности Java-приложений. В его рамках изучаются разнообразные методы профилирования, идентификации узких мест, оптимизации виртуальной машины, настройке JVM-флагов, а также работа с библиотеками для сериализации и кэширования, хранение данных за пределами кучи, проведение бенчмаркинга, мониторинг и управление памятью, (   Читать дальше...   )Производство: Учебный центр IBSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 42:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1560BBC274B7A4D19C6148BE02B9AC01C37B9765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771307   (31963) от 05.01.2025
 
 PurpleSchool, Антон Ларичев, Игорь Орлов | Основы Golang (2024) WEB-DL [RU]
@@ -6,7 +137,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Основы Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31963.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ PurpleSchool, Антон Ларичев | Продвинутый Golang (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31962.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ Udemy, Vassilyi Gudomarov | JavaScript с нуля: Уверенный стар�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31871.jpg" />
 </div>
 
 
@@ -89,7 +220,7 @@ Techworld with Nana, Nana Janashia | DevSecOps Bootcamp (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31866.jpg" />
 </div>
 
 
@@ -117,7 +248,7 @@ Surf | Flutter-разработчик - практический онлайн-к
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31766.jpg" />
 </div>
 
 
@@ -145,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31556.jpg" />
 </div>
 
 
@@ -171,7 +302,7 @@ Product University, Виталий Капранов, Егор Котельник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31442.jpg" />
 </div>
 
 
@@ -198,7 +329,7 @@ Deworker Pro, Елисеев Дмитрий | Практики разделен�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31339.jpg" />
 </div>
 
 
@@ -226,7 +357,7 @@ Boosty, Влад Тен | Алгоритмы с нуля (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30177.jpg" />
 </div>
 
 
@@ -252,7 +383,7 @@ CyberYozh Academy | Убойный Андроид + Мультиаккаунти
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30174.jpg" />
 </div>
 
 
@@ -279,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30082.jpg" />
 </div>
 
 
@@ -307,7 +438,7 @@ CyberYozh, VektorT13, Qanon, Mik1st, Михаил Васильев | Взлом 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29867.jpg" />
 </div>
 
 
@@ -336,7 +467,7 @@ Skillbox, Максим Клочков, Анастасия Полякова | П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29865.jpg" />
 </div>
 
 
@@ -362,7 +493,7 @@ liveclasses, Михаил Кашкин | Какой язык программи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29776.jpg" />
 </div>
 
 
@@ -389,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29775.jpg" />
 </div>
 
 
@@ -415,7 +546,7 @@ AreaWeb, Михаил Протасевич, Ярослав Мурашкин | PH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29773.jpg" />
 </div>
 
 
@@ -444,7 +575,7 @@ FrontendConf | FrontendConf 2023 - Профессиональная конфер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29748.jpg" />
 </div>
 
 
@@ -472,7 +603,7 @@ CyberYozh Academy, Евгений Ивченков, Алексей Гришин 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29555.jpg" />
 </div>
 
 
@@ -498,7 +629,7 @@ JUG Ru Group | HolyJS 2024 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29526.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29453.jpg" />
 </div>
 
 
@@ -552,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29355.jpg" />
 </div>
 
 
@@ -563,145 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52C6171EDA02E88556740D5401C96C94F303442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860030   (29344) от 30.01.2025
-
-Digium | Обучение основам Asterisk / Asterisk Essentials Training (2011) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс основы Asterisk -  16 глав, включающие в себя в общей сложности около 60 видеороликов, в среднем от 5 до 6 минут каждый.Жанр: VoIPСубтитры: АнглийскийЯзык: АнглийскийПродолжительность: 06:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF09B27377F944BAC113A06C0F4399A089BE031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833545   (29217) от 31.01.2025
-
-Andrew Burgess | Building a Web App From Scratch With AngularJS (2014) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29217.jpg" />
-</div>
-
-
-###  Подробнее
-
-AngularJS удивительный фронтэнд фреймворк, который имеет оригинальный подход к созданию веб-приложений, в сравнении с любыми другими фреймворками. В этом курсе мы рассмотрим основные компоненты Angular и то, как они взаимодействуют при создании приложения.
-Мы будем создавать адресную книгу с нуля. Основное внимание в курсе, будет уделено именно Angular, но так же (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийПродолжительность: 02:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E804598309E3D2046A82EFE21F60A6A8098C112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776461   (29069) от 01.02.2025
-
-Deworker Pro, Дмитрий Елисеев | Стрим про безопасность web-приложений (2024) WEB-DLRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29069.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комментариях и чатах к предыдущим стримам часто попадалось предложение о том, что было бы интересно посмотреть или послушать что-нибудь на тему безопасной разработки web-приложений. Как про написание безопасного кода, так и про защиту сетей, виртуальных машин и контейнеров.
-
-Эта тема теперь особенно актуальна ввиду ужесточения ответственности за утечки персональных (   Читать дальше...   )Производство: Deworker ProЖанр: СтримЯзык озвучки: РусскийПродолжительность: 12:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AF201A5F81C90BCDE58BDD6E0E08723AE1BC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776449   (29054) от 01.02.2025
-
-Олег Козырев | Вся база о собеседованиях на Golang (2024) WEB-DLRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "Вся база о собеседованиях на Golang" от Senior Engineer из BigTech предназначен для подготовки к собеседованиям по языку Go. Он подходит как для начинающих, так и для опытных разработчиков, желающих освежить знания или перейти на Go с другого языка программирования.
-
-Курс закроет все основные проблемы, которые возникают на собесах:
-1) Не знаю какие (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9F09C3669EDA0D8D0E7A24A31A042D50EBDCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776699   (28963) от 02.02.2025
-
-Богдан Кухар | Администратор 1С v 3.8 (все модули) (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путь от новичка и до эксперта Администратора 1С! Узнаете лучшие приемы по качественному обслуживанию, администрированию, настройке, установке,1С Предприятия и сопутствующего программного обеспечения. Престижная профессия в шаге от Вас! Действуйте!
-Вам нужен курс если:
-Вы хотите быстро освоить профессию Администратор 1С!
-Желаете больше узнать о технической стороне (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:33:35Реклама: Ватермарки на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B3409A2FEA5CDE71A6F4EAA18DA472CD4B79BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

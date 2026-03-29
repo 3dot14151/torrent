@@ -1,3 +1,148 @@
+###  Публикация: 1804066   (13285) от 27.06.2025
+
+Orianthi - Some Kind of Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attention (03:48)
+ 02. Some Kind of Feeling (04:44)
+ 03. What I've Been Looking (05:15)
+ 04. Sharp Dressed Man (02:46)(   Читать дальше...   )Жанр: Pop Rock, Blues RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED368C480F71A6E4FD8F442E067CB52B4A8F21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804126   (13258) от 27.06.2025
+
+Jakko Jakszyk - Son Of Glen (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ode to Ballina
+02. Somewhere Between then and Now
+03. How Did I Let You Get So Old?
+04. This Kiss Never Lies(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59D8CBE7E7C9F177DD11CE3B5FC682DAB6E94E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804173   (13141) от 28.06.2025
+
+Queen - Riffs (Remastered 2011) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hammer To Fall (Remastered 2011) [4:26]
+02 - One Vision (Remastered 2011) [5:12]
+03 - I'm In Love With My Car (Remastered 2011) [3:06]
+04 - Keep Yourself Alive (2024 Mix) [3:46](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CC6B92978F735791D24D3657FAFDEAC7671110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804510   (12945) от 30.06.2025
+
+Wilco - Being There (1996) Reissue, Remastered, Deluxe Edition, Box Set, 2017, Reprise Records [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Country Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Misunderstood [6:30]
+02 - Far, Far Away [3:21]
+03 - Monday [3:33]
+04 - Outtasite (Outta Mind) [2:35](   Читать дальше...   )Жанр: Rock, Alternative Rock, Country Rock, AcousticПродолжительность: 03:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F10D7C9CD97590460B76625A8EE44A18A59786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804911   (12646) от 03.07.2025
+
+Bruce Springsteen - Lost And Found (Selections From The Lost Albums) (2025) Compilation [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12646.jpg" />
+</div>
+
+
+###  Подробнее
+
+from LA Garage Sessions '83:
+01 - Follow That Dream [3:54]
+02 - Seven Tears [1:52]
+03 - Unsatisfied Heart [5:46](   Читать дальше...   )Жанр: Folk Rock, Pop Rock, RockПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9B35366E30B8E7B7C2F9FB509451F71575718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805222   (12566) от 04.07.2025
 
 Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
@@ -6,7 +151,7 @@ Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12566.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Summer Rock Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12142.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Road Trip Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12141.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - 25 Indie Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock/Rock po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12139.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Type O Negative - Dead Again (2007) Reissue, 2022, Nuclear Blast [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12112.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Dire Straits - Brothers In Arms (1985) Box Set, 3xCD, Reissue, 2025 ,Mercury Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11963.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Queen - Anthems (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Gl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11774.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Sting - The Dream Of The Blue Turtles (1985) 2025 Expanded Edition [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11605.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Jethro Tull - Still Living In The Past (2025) Box Set, 5XCD, Compilation, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11299.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11093.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - 70s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10520.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10095.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ The B-Shakers - Kissed By The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9947.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9661.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9617.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Reef - 6 Albums, 9 Singles (1995 - 2019) 17 CD [FLAC|Lossless|tracks + .cue|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9457.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Enigma Project - Maze of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9329.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Paul McCartney - Chaos And Creation In The Backyard (2005) SHM-CD, Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9219.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ The Alan Parsons Project - Limelight - The Best Of Vol. 2 (1987) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9133.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Sting - The Soul Cages (1991) 2025 Japan 2CD Expanded Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9109.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ VA - Heavy Rock - Heavy Guitars (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9107.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ VA - Heavy Rock - Heavy Guitars (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE74BD34680D4D85138E094EE978A7898744ABEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810873   (9097) от 06.08.2025
-
-Sting - ...Nothing Like The Sun (1987) 2025 2CD Japan Expanded Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9097.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Lazarus Heart
-02. Be Still My Beating Heart
-03. Englishman In New York(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 02:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69109374AC872D0035387CF514111EF1F2061A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811264   (8907) от 08.08.2025
-
-Paul McCartney - New (2013) Japanese Edition, SHM-CD, Reissue, 2025, Capitol Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Us
-02. Alligator
-03. On My Way to Work
-04. Queenie Eye(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18CBA63FF30FDDF7EDD4A5D3753C4794FD5CDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811239   (8786) от 09.08.2025
-
-Queen - Rock N Roll (2025) Remastered, 2011 [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crazy Little Thing Called Love (Remastered 2011) [2:45]
-02 - Need Your Loving Tonight (Remastered 2011) [2:50]
-03 - Man On The Prowl (Remastered 2011) [3:26]
-04 - Rock It (Prime Jive) (Remastered 2011) [4:34](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584DF16A0A0129F69203E37DDC03876F9FDFE745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811785   (8459) от 11.08.2025
-
-VA - Rock Klassiker: 80er & 90er (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kiss - I Was Made For Lovin' You (4:28)
-02.  The Offspring - The Kids Aren't Alright (3:00)
-03.  Queen - Another One Bites The Dust (Remastered 2011) (3:35)
-04.  Billy Idol - Rebel Yell (Remastered 1999) (4:48)(   Читать дальше...   )Жанр: RockПродолжительность: 03:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484926C29E5CA5A20DEFAD423FA7755CC186178F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811774   (8457) от 11.08.2025
-
-VA - 90s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Red Hot Chili Peppers - Under the Bridge (4:24)
-02.  Fleetwood Mac - Hard Feelings (4:55)
-03.  Faith No More - Easy (3:08)
-04.  Cher - Angels Running (4:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F7BFEFA75665DCC6EB2E877F582308262FFA40
 ```
 
 https://mybot314.ru/tekegram_catalog/

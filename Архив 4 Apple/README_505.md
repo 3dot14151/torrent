@@ -1,3 +1,109 @@
+###  Публикация: 1462362   (241099) от 14.04.2021
+
+Exposure X6 v6.0.6.211  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8A2937FADAA9439525A8A2E76C183BC969A3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548342   (241044) от 02.05.2022
+
+Artstudio Pro 4.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.05.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAC93CD6D03698C38D3E84767DB6A8A50A8B8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462361   (241032) от 14.04.2021
+
+DjVu Reader Pro 2.4.8 [Ru/En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241032.jpg" />
+</div>
+
+
+###  Подробнее
+
+DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
+В целом, DjVu Reader Pro это отличная читалка книг (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: FirmShell LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EF645C9700B344839D38D6BA51D3DA56ED553B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462787   (240973) от 16.04.2021
+
+Marked 2 v2.6.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
+Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: Brett TerpstraПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94985E3575A502A73DCF3EC06B649AAE63857D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463034   (240964) от 16.04.2021
 
 Principle 6 v6.5 [En]
@@ -6,7 +112,7 @@ Principle 6 v6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240964.jpg" />
+  <img src="Z:/picture/004/save_picture_240964.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Multitouch 1.24.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240955.jpg" />
+  <img src="Z:/picture/004/save_picture_240955.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Money 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240941.jpg" />
+  <img src="Z:/picture/004/save_picture_240941.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Mac Blu-ray Player Pro 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240930.jpg" />
+  <img src="Z:/picture/004/save_picture_240930.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Acon Digital Acoustica Premium Edition 7.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240926.jpg" />
+  <img src="Z:/picture/004/save_picture_240926.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Bills v1.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240919.jpg" />
+  <img src="Z:/picture/004/save_picture_240919.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240910.jpg" />
+  <img src="Z:/picture/004/save_picture_240910.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ BetterZip 5 v5.1.1 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240904.jpg" />
+  <img src="Z:/picture/004/save_picture_240904.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Valentina Studio Pro 11.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240898.jpg" />
+  <img src="Z:/picture/004/save_picture_240898.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Irvue 2.7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240882.jpg" />
+  <img src="Z:/picture/004/save_picture_240882.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Hazel 5.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240872.jpg" />
+  <img src="Z:/picture/004/save_picture_240872.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ TextMate 2 v2.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240859.jpg" />
+  <img src="Z:/picture/004/save_picture_240859.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ Downie 4 v4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240841.jpg" />
+  <img src="Z:/picture/004/save_picture_240841.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ Acon Digital AudioLava for Mac 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240833.jpg" />
+  <img src="Z:/picture/004/save_picture_240833.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ RAR Extractor Max - Unzip 6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240824.jpg" />
+  <img src="Z:/picture/004/save_picture_240824.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ Author 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240807.jpg" />
+  <img src="Z:/picture/004/save_picture_240807.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ PDF Reader Pro 2.8.23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240798.jpg" />
+  <img src="Z:/picture/004/save_picture_240798.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ DiskCatalogMaker 8.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240784.jpg" />
+  <img src="Z:/picture/004/save_picture_240784.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ Pixea Plus 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240772.jpg" />
+  <img src="Z:/picture/004/save_picture_240772.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ Folder-Factory 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240753.jpg" />
+  <img src="Z:/picture/004/save_picture_240753.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ Cisdem DVDBurner 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240745.jpg" />
+  <img src="Z:/picture/004/save_picture_240745.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240723.jpg" />
+  <img src="Z:/picture/004/save_picture_240723.jpg" />
 </div>
 
 
@@ -578,113 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EA1738C51175958B4B31C7B4AB5C606E3228ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545416   (240717) от 19.04.2022
-
-Davinci Resolve Studio 18.0 Beta 1 U2B [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E14CEC7250AFA53B713B26F33B56EBB3EDA123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463382   (240714) от 18.04.2021
-
-System Toolkit 3.3.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240714.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411AEFF63FF2E057DD91C0A613FECF9B35FB2E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570784   (240711) от 18.08.2022
-
-macOS 12 Monterey 12.5.1 (Installer) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240711.jpg" />
-</div>
-
-
-###  Подробнее
-
-macOS Monterey открывает новые возможности для общения, обмена данными и творчества. Пользуйтесь улучшенными функциями аудио и видео, такими как пространственное аудио и режим «Портрет». Легко справляйтесь с делами благодаря таким мощным инструментам, как фокусирование, быстрые заметки и группы вкладок в Safari. Переключайтесь между устройствами благодаря трансляции (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 17.08.2022Разработчик: © 2020 Apple, Inc.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDB3359185E519BB6B72679FD48189DB7D3431F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463378   (240705) от 18.04.2021
-
-RapidWeaver 8 v8.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240705.jpg" />
-</div>
-
-
-###  Подробнее
-
-RapidWeaver 8 - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
-RapidWeaver отлично подойдет тем, кто ищет ПО для разработки красивого веб-сайта. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2021Разработчик: Realmac Software LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D60A38D2A432C0E5500AD5AE232987BE2BF35D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

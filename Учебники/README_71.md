@@ -1,3 +1,57 @@
+###  Публикация: 1180547   (340014) от 04.11.2017
+
+В. Яворский, Г. Яворская | Введение в информационные технологии (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Использование современных информационных технологий в сфере управления обеспечивает повышение качества экономической информации, её точности, объективности, оперативности, решает проблемы развития информатизаций общества и всей жизнедеятельности в стране.
+Целью данного пособия является обучение современным информационным технологиям, использованию достоверной информации, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E4B37EF91784D7E238CB7C9DCBB21B2E832847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180533   (339876) от 04.11.2017
+
+А.Т. Хроленко, А.В. Денисов | Современные информационные технологии для гуманитария. Практическое руководство (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как повысить свой профессиональный уровень с помощью различных форм дистанционного обучения, образовательных порталов и сайтов, как использовать компьютерные технологии в научно-исследовательской работе, как организовать информационную поддержку труда гуманитария — ответы на эти вопросы дает практическое руководство.
+Для студентов, аспирантов и преподавателей гуманитарных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5A67047AF9180C708F870239A13EA5E55315C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954487   (339820) от 08.11.2015
 
 В.Н. Гриднев, Г.Н. Гриднева | Проектирование коммутационных структур электронных средств (2014) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339820.jpg" />
+  <img src="Z:/picture/008/save_picture_339820.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339737.jpg" />
+  <img src="Z:/picture/008/save_picture_339737.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339726.jpg" />
+  <img src="Z:/picture/008/save_picture_339726.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339517.jpg" />
+  <img src="Z:/picture/008/save_picture_339517.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338698.jpg" />
+  <img src="Z:/picture/008/save_picture_338698.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338434.jpg" />
+  <img src="Z:/picture/008/save_picture_338434.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338431.jpg" />
+  <img src="Z:/picture/008/save_picture_338431.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338304.jpg" />
+  <img src="Z:/picture/008/save_picture_338304.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338197.jpg" />
+  <img src="Z:/picture/008/save_picture_338197.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337562.jpg" />
+  <img src="Z:/picture/008/save_picture_337562.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336654.jpg" />
+  <img src="Z:/picture/008/save_picture_336654.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335931.jpg" />
+  <img src="Z:/picture/008/save_picture_335931.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335833.jpg" />
+  <img src="Z:/picture/008/save_picture_335833.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335671.jpg" />
+  <img src="Z:/picture/008/save_picture_335671.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334730.jpg" />
+  <img src="Z:/picture/008/save_picture_334730.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334236.jpg" />
+  <img src="Z:/picture/008/save_picture_334236.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334231.jpg" />
+  <img src="Z:/picture/008/save_picture_334231.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333716.jpg" />
+  <img src="Z:/picture/008/save_picture_333716.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333528.jpg" />
+  <img src="Z:/picture/008/save_picture_333528.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333393.jpg" />
+  <img src="Z:/picture/008/save_picture_333393.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333386.jpg" />
+  <img src="Z:/picture/008/save_picture_333386.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333347.jpg" />
+  <img src="Z:/picture/008/save_picture_333347.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333233.jpg" />
+  <img src="Z:/picture/008/save_picture_333233.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327377.jpg" />
+  <img src="Z:/picture/008/save_picture_327377.jpg" />
 </div>
 
 
@@ -626,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C345F41D8EA026948A65818AB37402A65D66541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581624   (326250) от 06.10.2022
-
-С.Л. Соболев | Уравнения математической физики (1950) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе издание учебника по уравнениям математической физики.
-Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М. В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объеме количеством лекционных часов.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8C612F6ED67425086FFA5B4E166D3F46EF61DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581752   (325445) от 07.10.2022
-
-С.Л. Соболев | Уравнения математической физики (1992) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятое издание учебника по уравнениям математической физики.
-Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М. В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объеме количеством лекционных часов.Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED0EDBEC909E8086AEFC89C2088F98406CEA949
 ```
 
 https://mybot314.ru/tekegram_catalog/

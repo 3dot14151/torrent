@@ -6,7 +6,7 @@ FastStone Capture 8.1 Final RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773615.jpg" />
+  <img src="Z:/picture/008/save_picture_773615.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773545.jpg" />
+  <img src="Z:/picture/008/save_picture_773545.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Simple Run Blocker 1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773475.jpg" />
+  <img src="Z:/picture/008/save_picture_773475.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Transmission-Qt 2.84 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773462.jpg" />
+  <img src="Z:/picture/008/save_picture_773462.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ JetBrains WebStorm 10.0 Build #WS-141.456 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773405.jpg" />
+  <img src="Z:/picture/008/save_picture_773405.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Paint.NET 4.0.15 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773399.jpg" />
+  <img src="Z:/picture/008/save_picture_773399.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Silverlight 5.1.50906.0 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773393.jpg" />
+  <img src="Z:/picture/008/save_picture_773393.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AMD Radeon Software Crimson ReLive Edition 17.4.2 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773389.jpg" />
+  <img src="Z:/picture/008/save_picture_773389.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ DjVuLibre DjView 4.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773339.jpg" />
+  <img src="Z:/picture/008/save_picture_773339.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Process Lasso Pro 9.0.0.286 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773319.jpg" />
+  <img src="Z:/picture/008/save_picture_773319.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Advanced Installer 17.1.2 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773246.jpg" />
+  <img src="Z:/picture/008/save_picture_773246.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mozilla Firefox ESR 52.7.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773241.jpg" />
+  <img src="Z:/picture/008/save_picture_773241.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Vivaldi Browser 1.9.811.13 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773196.jpg" />
+  <img src="Z:/picture/008/save_picture_773196.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ jv16 PowerTools 2017 4.1.0.1703 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773191.jpg" />
+  <img src="Z:/picture/008/save_picture_773191.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TreeSize Professional 6.3.7.1230 RePack by Kopejkin [Ua/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773185.jpg" />
+  <img src="Z:/picture/008/save_picture_773185.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Daum PotPlayer 1.7.1915 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773184.jpg" />
+  <img src="Z:/picture/008/save_picture_773184.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ FastStone Image Viewer 6.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773173.jpg" />
+  <img src="Z:/picture/008/save_picture_773173.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Icecream Slideshow Maker 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773148.jpg" />
+  <img src="Z:/picture/008/save_picture_773148.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Free Studio 6.6.10.511 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773147.jpg" />
+  <img src="Z:/picture/008/save_picture_773147.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Adobe Shockwave Player 12.3.2.202 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773095.jpg" />
+  <img src="Z:/picture/008/save_picture_773095.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773090.jpg" />
+  <img src="Z:/picture/008/save_picture_773090.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ ESET Online Scanner 1.0.0.6421 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773070.jpg" />
+  <img src="Z:/picture/008/save_picture_773070.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ FastStone Capture 8.1 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773065.jpg" />
+  <img src="Z:/picture/008/save_picture_773065.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Maxthon Browser MX5 5.0.3.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773049.jpg" />
+  <img src="Z:/picture/008/save_picture_773049.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Futuremark 3DMark 2.3.3693 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773044.jpg" />
+  <img src="Z:/picture/008/save_picture_773044.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ WinToUSB Enterprise 3.5 Release 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773039.jpg" />
+  <img src="Z:/picture/008/save_picture_773039.jpg" />
 </div>
 
 

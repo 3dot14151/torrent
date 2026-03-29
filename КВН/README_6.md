@@ -1,3 +1,159 @@
+###  Публикация: 1788294   (23170) от 29.03.2025
+
+КВН-2025. Высшая лига. 1/8 финала, игра 2 (2025.03.29) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0119968EC62EDFF1B7322B75261CF91ECBB2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788470   (22425) от 05.04.2025
+
+КВН-2025. Высшая лига. 1/8 финала, игра 2 (2025.03.29) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F39B4E1148D9E63E78E84D6FBFBE252A6CF414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793829   (20092) от 27.04.2025
+
+КВН-2025. Высшая лига. 1/8 финала, игра 3 (2025.04.26) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC41CF487FBEBF0A437B4C2C7EDFB30E90C6BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794223   (20023) от 28.04.2025
+
+КВН-2025. Высшая лига. 1/8 финала, игра 3 (2025.04.26) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E3604B562128FEE65855F92295FD45DED88435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795462   (19297) от 05.05.2025
+
+КВН-2025. Высшая лига. 1/8 финала, игра 4 (2025.05.04) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586709D0527D1628A4710108F4C63D5C9FBD10CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796237   (18862) от 09.05.2025
+
+КВН-2025. Высшая лига. 1/8 финала, игра 4 (2025.05.04) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76596E76A0C4086EEFEB31A834DFA98CB722237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797642   (18014) от 17.05.2025
 
 КВН-2025. Высшая лига. 1/4 финала, игра 1 (2025.05.17) SATRip
@@ -6,7 +162,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18014.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17944.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16161.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16002.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14573.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14544.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13077.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13044.jpg" />
 </div>
 
 
@@ -220,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4219.jpg" />
 </div>
 
 
@@ -246,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3953.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3864.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3063.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2805.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2764.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_656.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_303.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_263.jpg" />
 </div>
 
 

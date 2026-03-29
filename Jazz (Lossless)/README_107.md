@@ -1,3 +1,119 @@
+###  Публикация: 1133662   (693431) от 13.05.2017
+
+Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693431.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Brown Gold [02:24]
+02. The Foolish Things [02:39]
+03. Surf Ride [03:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534655   (692470) от 03.03.2022
+
+Buddy Rich - Three Classic Albums Plus (1953 - 1955) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Monster [11:09]
+02. Sunday [10:50]
+03. A Smooth One [9:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB391CFCB0F29480EAE299CBD6D7D45B44354473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403308   (692443) от 19.08.2020
+
+Humphrey Lyttelton - Four Classic Albums Plus (1950 - 1958) 2010, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692443.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Panama Rag [2:45]
+02. Trouble In Mind [2:58]
+03. Tom Cat Blues [3:03](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 02:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEB4FBE5D3F7F20C10620726AF83A6D225C8510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403312   (692359) от 19.08.2020
+
+Jeremy Bruger - Moods (2020) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things Are Coming [4:57]
+02. Time After Time [4:01]
+03. They All Laughed [4:15]
+04. Out Of This World [5:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69870E6D1CEDF89B9EB06006A03B5BAEA8A7D6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288823   (692229) от 13.03.2019
 
 Dominique Di Piazza - Living Hope (2016) La Note Bleue Prod [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -6,7 +122,7 @@ Dominique Di Piazza - Living Hope (2016) La Note Bleue Prod [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692229.jpg" />
+  <img src="Z:/picture/008/save_picture_692229.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dizzy Gillespie - Diggin' Dizz (1937 - 1954) 2CD, 2008, Le Chant du Monde [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692227.jpg" />
+  <img src="Z:/picture/008/save_picture_692227.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Miriam Aida & Fredrik Kronkvist - Live At The Palladium (2005) Sittel Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692224.jpg" />
+  <img src="Z:/picture/008/save_picture_692224.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Anthony Braxton - Nine Compositions (Hill) (2000) CIMP [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691665.jpg" />
+  <img src="Z:/picture/008/save_picture_691665.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Hiram Bullock - First Class Vagabond (1982) 2000, JVC [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691663.jpg" />
+  <img src="Z:/picture/008/save_picture_691663.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Paul Desmond - Glad To Be Unhappy (1963, 1964) 2017, Sony Music [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691662.jpg" />
+  <img src="Z:/picture/008/save_picture_691662.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Serge Chaloff - Blue Serge (1956) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691538.jpg" />
+  <img src="Z:/picture/008/save_picture_691538.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Joanne Brackeen & Clint Houston - New True Illusion (1976) Remaster, 2015, Solid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690971.jpg" />
+  <img src="Z:/picture/008/save_picture_690971.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Warren Wolf - Convergence (2016) Mack Avenue Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690967.jpg" />
+  <img src="Z:/picture/008/save_picture_690967.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Benjamin Faugloire Project - Birth (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690965.jpg" />
+  <img src="Z:/picture/008/save_picture_690965.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Brad Mehldau Trio - Blues and Ballads (2012/2014) 2016, Nonesuch Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690878.jpg" />
+  <img src="Z:/picture/008/save_picture_690878.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Cannonball Adderley Quintet - The Price You Got To Pay To Be Free (1970) 2016, R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690877.jpg" />
+  <img src="Z:/picture/008/save_picture_690877.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Earl Hines - One For My Baby (1974) 1994, Black Lion [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690844.jpg" />
+  <img src="Z:/picture/008/save_picture_690844.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Alison Young - So Here We Are (2018) Triplet Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690599.jpg" />
+  <img src="Z:/picture/008/save_picture_690599.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Fredrik Kronkvist 3 - In The Raw (2006) Connective Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690513.jpg" />
+  <img src="Z:/picture/008/save_picture_690513.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jack Teagarden - 1934 - 1939 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689776.jpg" />
+  <img src="Z:/picture/008/save_picture_689776.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Miles Davis - Ascenseur Pour L'Echafaud (Complete Recordings) (1958) Reissue, Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689661.jpg" />
+  <img src="Z:/picture/008/save_picture_689661.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Vladimir Tolkachev (Владимир Толкачев) Big Band - Plays Duke (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689569.jpg" />
+  <img src="Z:/picture/008/save_picture_689569.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Alice Francis - Electric Shock (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689098.jpg" />
+  <img src="Z:/picture/008/save_picture_689098.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688949.jpg" />
+  <img src="Z:/picture/008/save_picture_688949.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688861.jpg" />
+  <img src="Z:/picture/008/save_picture_688861.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jimmy Smith - The Complete Sermon Sessions (1957-1958) 2CD, 2009, Groove Hut Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688856.jpg" />
+  <img src="Z:/picture/008/save_picture_688856.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FB54E0BD61458782ADEF8CC7DAE33911F9E457F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028476   (688757) от 23.06.2016
-
-Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image + .cue] <Jazz, Latin, Contemporary R&B, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Flower.
-02. As.
-03. The Secret Life Of Plants (Duet with Will Lee).
-04. Free.(   Читать дальше...   )Жанр: Jazz, Latin, Contemporary R&B, Smooth JazzПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B85133626F215D5B408793C2FC29EDE9F3A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403686   (688642) от 21.08.2020
-
-Max Kaminsky - When The Saints Go Marching In Jazz On The Campus, Ltd (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Garden Blues [3:02]
-02. Squueze Me [3:03]
-03. Go Go Go [3:12]
-04. I've Got The World On A String [3:36](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E7DC780D8F14D63EAE62C62208A5F448DDBD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403688   (688637) от 21.08.2020
-
-Horace Tapscott with The Pan Afrikan Peoples Arkestra - Why Don't You Listen?: Live at LACMA (1998) 2019, Dark Tree [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jaz ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiee! The Phantom [16:15]
-02. Caravan [13:38]
-03. Fela Fela [14:09]
-04. Why Don't You Listen? [14:24](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7E7EA1E4CD01BDEE81A1EBABF8A3E225365C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535052   (688606) от 05.03.2022
-
-Sir Roland Hanna - Apres un Reve (2003) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade [6:49]
-02. Apres un Reve [4:04]
-03. This Is My Beloved (Nocturne-String Quartet, No. 2) [3:20]
-04. Prelude (Op. 28, No. 20) [5:03](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391F8354D17E387EEBA6573F92E0F9E856B62185
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1815829   (4773) от 01.09.2025
+
+Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up From The Bottom * (3:03)
+02. Unshatter * (3:16)
+03. Let You Fade * (3:29)
+04. The Emptiness Machine (Live) * (3:18)(   Читать дальше...   )Тип издания: Digisleeve, Deluxe EditionЖанр: Alternative / Nu-Metal; Alternative RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815832   (4666) от 02.09.2025
 
 Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 2025, 2xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
@@ -6,7 +35,7 @@ Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 202
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4666.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4640.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4424.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kasabian - 10 альбомов (2004 - 2024) 15 CD [FLAC|Lossless|tracks + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3416.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3303.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Silverstein - Pink Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2924.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Prospective - The Weight Of What I've Become (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2738.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dead End Tragedy - Electrical Impulses Of Hate (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2605.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Arctic Monkeys - AM (2013) [FLAC|tracks + .cue]<Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1521.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nancy - 4 Releases (2018-2021) Digital release [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1277.jpg" />
 </div>
 
 

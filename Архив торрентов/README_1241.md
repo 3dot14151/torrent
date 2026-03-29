@@ -6,7 +6,7 @@ System Ninja 3.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774143.jpg" />
+  <img src="Z:/picture/008/save_picture_774143.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774142.jpg" />
+  <img src="Z:/picture/008/save_picture_774142.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 58.0.3135.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774140.jpg" />
+  <img src="Z:/picture/008/save_picture_774140.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Photo Editor 5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774139.jpg" />
+  <img src="Z:/picture/008/save_picture_774139.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CleanMyPC 1.9.0.1280 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774136.jpg" />
+  <img src="Z:/picture/008/save_picture_774136.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Magic Uneraser 4.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774132.jpg" />
+  <img src="Z:/picture/008/save_picture_774132.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774131.jpg" />
+  <img src="Z:/picture/008/save_picture_774131.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774121.jpg" />
+  <img src="Z:/picture/008/save_picture_774121.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Reg Organizer 8.05 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774120.jpg" />
+  <img src="Z:/picture/008/save_picture_774120.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ SoftMaker Office Professional 2018 rev 928.0313 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774118.jpg" />
+  <img src="Z:/picture/008/save_picture_774118.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774116.jpg" />
+  <img src="Z:/picture/008/save_picture_774116.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Internet Download Manager 6.25 Build 17 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774114.jpg" />
+  <img src="Z:/picture/008/save_picture_774114.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Anvir Task Manager 8.0.5 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774109.jpg" />
+  <img src="Z:/picture/008/save_picture_774109.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Anvir Task Manager 8.1.0 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774107.jpg" />
+  <img src="Z:/picture/008/save_picture_774107.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Jerry Harris - Reggae Rootsman (2016) [FLAC|Lossless|tracks] <Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774105.jpg" />
+  <img src="Z:/picture/008/save_picture_774105.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Throw Box 1.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774102.jpg" />
+  <img src="Z:/picture/008/save_picture_774102.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Opera 58.0.3135.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774096.jpg" />
+  <img src="Z:/picture/008/save_picture_774096.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Capture One Pro 12 12.0.1.35 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774092.jpg" />
+  <img src="Z:/picture/008/save_picture_774092.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Any Video Converter Professional 6.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774089.jpg" />
+  <img src="Z:/picture/008/save_picture_774089.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ MKVToolNix 30.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774085.jpg" />
+  <img src="Z:/picture/008/save_picture_774085.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Just Color Picker 5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774081.jpg" />
+  <img src="Z:/picture/008/save_picture_774081.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ System Ninja 3.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774078.jpg" />
+  <img src="Z:/picture/008/save_picture_774078.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Punto Switcher 4.4.2 Build 334 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774073.jpg" />
+  <img src="Z:/picture/008/save_picture_774073.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ uTorrent 3.5.3 Build 44358 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774072.jpg" />
+  <img src="Z:/picture/008/save_picture_774072.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Tails 3.6 [анонимный доступ в сети] [amd64] [2018-03-13] 1xD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774067.jpg" />
+  <img src="Z:/picture/008/save_picture_774067.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ The Sims 4 (2014) [En] (1.41.38.1020/dlc) License CODEX [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774062.jpg" />
+  <img src="Z:/picture/008/save_picture_774062.jpg" />
 </div>
 
 

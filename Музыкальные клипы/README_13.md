@@ -1,3 +1,87 @@
+###  Публикация: 658863   (803299) от 21.05.2013
+
+Сборник клипов - VA - Various Music part. 42 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5ive Star - More 720p (3:28)
+2. Alex M. - Greatest DJ 1080p (3:10)
+3. Aligator - Be With You (feat. Sarah West) 1080p (4:22)
+4. Andreea D - Magic Love 1080p (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0546A9A4C7FF245C60843A0F1D5DA58E73F78EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009153   (802121) от 25.04.2016
+
+Був'е - Влюбленные / Був'є - Закохані (2016) WEB-DL [H.264/2160p] [4K]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сети появился клип группы «Був'є» и Александра Положинского на песню «Закохані». Эта композиция является официальным саундтреком фильма «Жива» режиссера Тараса Химича. На данный момент создатели картины держат сюжет в секрете. «Это история женщины, а не о войне, хотя автоматы там есть», - говорит Химич.Производство: УкраинаЖанр: РокРежиссер: Тарас ХимичПродолжительность: 00:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691C0C8B62F91831FFB166D47278471F17A93686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199101   (801633) от 15.01.2018
+
+Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801633.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+105 50 Cent - Candy Shop
+106 Лигалайз - Моя Москва
+107 Trick Trick & Eminem - Welcome 2 Detroit(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536B9952B36CE79FEB6DD7F68545F8A7B4B6EA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506302   (801042) от 30.10.2021
 
 Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
@@ -6,7 +90,7 @@ Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801042.jpg" />
+  <img src="Z:/picture/008/save_picture_801042.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796792.jpg" />
+  <img src="Z:/picture/008/save_picture_796792.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792681.jpg" />
+  <img src="Z:/picture/008/save_picture_792681.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792661.jpg" />
+  <img src="Z:/picture/008/save_picture_792661.jpg" />
 </div>
 
 
@@ -114,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791949.jpg" />
+  <img src="Z:/picture/008/save_picture_791949.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790354.jpg" />
+  <img src="Z:/picture/008/save_picture_790354.jpg" />
 </div>
 
 
@@ -172,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784828.jpg" />
 </div>
 
 
@@ -201,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783038.jpg" />
+  <img src="Z:/picture/008/save_picture_783038.jpg" />
 </div>
 
 
@@ -228,7 +312,7 @@ Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780169.jpg" />
+  <img src="Z:/picture/008/save_picture_780169.jpg" />
 </div>
 
 
@@ -257,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778460.jpg" />
 </div>
 
 
@@ -286,7 +370,7 @@ Everest of Rock - 1 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777212.jpg" />
+  <img src="Z:/picture/008/save_picture_777212.jpg" />
 </div>
 
 
@@ -315,7 +399,7 @@ Wax Audio - Mashopolos (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777139.jpg" />
+  <img src="Z:/picture/008/save_picture_777139.jpg" />
 </div>
 
 
@@ -344,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777078.jpg" />
+  <img src="Z:/picture/008/save_picture_777078.jpg" />
 </div>
 
 
@@ -370,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776783.jpg" />
+  <img src="Z:/picture/008/save_picture_776783.jpg" />
 </div>
 
 
@@ -396,7 +480,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776740.jpg" />
+  <img src="Z:/picture/008/save_picture_776740.jpg" />
 </div>
 
 
@@ -425,7 +509,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776704.jpg" />
+  <img src="Z:/picture/008/save_picture_776704.jpg" />
 </div>
 
 
@@ -454,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776353.jpg" />
+  <img src="Z:/picture/008/save_picture_776353.jpg" />
 </div>
 
 
@@ -480,7 +564,7 @@ Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776301.jpg" />
+  <img src="Z:/picture/008/save_picture_776301.jpg" />
 </div>
 
 
@@ -509,7 +593,7 @@ VA - Весенний марафон № 229: (Новые Лучшие Зару�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776273.jpg" />
+  <img src="Z:/picture/008/save_picture_776273.jpg" />
 </div>
 
 
@@ -538,7 +622,7 @@ Everest of Rock - 2 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775680.jpg" />
+  <img src="Z:/picture/008/save_picture_775680.jpg" />
 </div>
 
 
@@ -567,7 +651,7 @@ Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774197.jpg" />
+  <img src="Z:/picture/008/save_picture_774197.jpg" />
 </div>
 
 
@@ -593,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774037.jpg" />
+  <img src="Z:/picture/008/save_picture_774037.jpg" />
 </div>
 
 
@@ -622,7 +706,7 @@ Everest of Rock - 3 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771350.jpg" />
+  <img src="Z:/picture/008/save_picture_771350.jpg" />
 </div>
 
 
@@ -636,91 +720,6 @@ Everest of Rock - 3 (1980) WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0CB61EBE4AF5193DB84F488CE6A3095F01CAECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391738   (771275) от 22.06.2020
-
-Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный клип от Dirty Seagulls, Nils Astrologo, Gianmarco Gabriele на песню Al Bano & Romina Power - Liberta! из альбома 1987 г.
-Потрясающий «эффект присутствия». Рим мастерски снят с помощью дрона во время пандемии в апреле 2020 г.
-Отсутствие людей на улицах и площадях напоминает Апокалипсис. Знаменитая песня Liberta! в исполнении Al Bano & Romina (   Читать дальше...   )Производство: Италия / Dirty Seagulls, Nils Astrologo, Gianmarco GabrieleЖанр: PopПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE34075B528B9D42560B1C8C775DB769A10945F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885842   (770671) от 08.04.2015
-
-VA - Весенний марафон № 163 / Видеоклипы (Зарубежный Коктейль Новинок) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (06.04.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A.M.R feat. Ai Takekawa - Beyond The Moon (Original Mix) (00:09:04)
-2. Aerosmith - Girs of summer (00:04:02)
-3. ATC - Thinking Of You (Official Video) (00:03:29)
-4. Blake Shelton - Sangria (Official Video) (00:03:56)
-5. Cimorelli - All My Friends Say (Official Video) (00:03:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, RockПродолжительность: 01.35.30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC454DA34C7FC48B825653BD25F37714F3EA8E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376707   (769165) от 26.06.2020
-
-ДДТ - Русская весна (2020) WEBRip [VP9/2160p] <Rock>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769165.jpg" />
-</div>
-
-
-###  Подробнее
-
-ДДТ - Русская весна (2020)
-CDA: ДДТ (DDT) - Галя Ходи (2018) Navigator RecordsПроизводство: Navigator RecordsЖанр: RockПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5EE05EB01D4A680ECEFBF70CFF32163E0689FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

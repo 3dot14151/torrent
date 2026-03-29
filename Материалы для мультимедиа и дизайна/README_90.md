@@ -1,3 +1,402 @@
+###  Публикация: 1508689   (796681) от 09.11.2021
+
+Текстуры - 15 Texture Backgrounds Bundle [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры льда, меха, кожи и т.д.Формат: JPGРазрешение файлов: 3600x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405C9676DDEE229F8E878F3234E102D1292B0BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011405   (796571) от 27.04.2016
+
+Футажи - Коллекция видеофутажей 4 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртая часть личной коллекции из 125 видеофутажей на различную тематикуФормат: MP4Разрешение файлов: 1280х720
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50002FA55A5F6B6A9C2D5C3F403B36C786F1F7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385769   (796523) от 26.05.2020
+
+Футажи - VideoHive - Birthday Celebrations - Balloons With Birthday Numbers - 26734641 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796523.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 различных реалистичных анимаций воздушных шаров с цифрами от 11 до 20 - летнего празднования Дня рождения. (QuickTime+альфа-каналом). Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
+Простота использования в любом программном обеспечении для редактирования.Формат: MOVРазрешение файлов: Full HD 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925FF48F02D9E2098314977D1687090B18DF6D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385777   (796515) от 26.05.2020
+
+Футажи - VideoHive - First Birthday Celebration Balloons - Baby Boy - 26731993 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796515.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 различных анимаций воздушных шаров для празднования Дня Рождения мальчика (QuickTime+Alpha).
+Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
+Простота использования в любом программном обеспечении для редактирования.Формат: MOVРазрешение файлов: Full HD 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A5C50AD77C406018CFBF42981D6076CD1F1738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385772   (796511) от 26.05.2020
+
+Футажи - VideoHive - First Birthday Celebration Balloons - Baby Girl - 26732383 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796511.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 различных анимаций воздушных шаров для празднования Дня Рождения девочки (QuickTime+Alpha).
+Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
+Простота использования в любом программном обеспечении для редактирования.Формат: MOVРазрешение файлов: Full HD 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB66024B258DFA71CA80ED805072856D685C732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011727   (796040) от 28.04.2016
+
+Экшены - GraphicRiver - Pure Art Hand Drawing - 3455359 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05132AD6BB7D8BB46C8FBABBF1DD7713B20BF9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508829   (796020) от 10.11.2021
+
+Шрифты - Summitsoft - FontPack Pro Master Collection [TTF, OTF, MSI]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это полная коллекция всех шрифтов, созданных SummitType ™ Font Foundry. Каждый шрифт в коллекциях Fontpack Pro Master Collections был разработан профессионалами, и теперь вы можете получить доступ к удивительному качеству и разнообразию, которое стало основным продуктом шрифтов SummitType. Предлагая широкий выбор стилей и типов, FontPack Pro Master Collection Edition (   Читать дальше...   )Формат: TTF, OTF, MSI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3949DE5B10D262BCABA4C73BC9249082BBF7B051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508835   (795951) от 10.11.2021
+
+Шаблоны - Creative Market - ANIMATED Instagram Stories Pack III - 3500363 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет шаблонов «Анимированные истории» III - это творческий ресурс, предназначенный для занятых блоггеров / влиятельных лиц / фрилансеров и разносторонних девушек-боссов.Формат: PSDРазрешение файлов: 1080x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0BEC98DDB35B414FA69EC845613DAC76270538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508834   (795949) от 10.11.2021
+
+Пресеты - Creative Market - 400+ Lightroom Presets Bundle - 6274176 [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 400+ профессиональных пресетов Lightroom для блоггеров и фотографов. Пресеты Lightroom созданы для всех видов внутренней и наружной фотографии Портретов, пейзажей, путешествий и т. д. Все 400+ пресетов идеально подходят для работы с вашими фотографиями всего одним щелчком мыши. Для достижения наилучшего результата мы создаем каждый пресет для разных настроек (   Читать дальше...   )Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B76C7DF3A620D89AF9F54C07E982C55938EB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385951   (795867) от 27.05.2020
+
+Растровый клипарт - Pixelbuddha - Holographic Stickers [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные изображения голографических наклеек на прозрачном фоне в двух вариациях. Материал раздается с официальной документацией.Разработчик: Jesse Makes (Paterson, NJ, USA)Формат: PNGРазрешение файлов: 2078 x 2100
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9524B84006C670F924DB0BC094C9EF3B7439B2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385954   (795844) от 27.05.2020
+
+Растровый клипарт - Pixelbuddha - Golden Alphabet Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в растре. Материал раздается с официальной документацией.Разработчик: Elen StolzФормат: PNGРазрешение файлов: 4500 x 4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4EC371D07D151523556B9A9A0AB3896B69D212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385955   (795834) от 27.05.2020
+
+Растровый клипарт - Pixelbuddha - Sunny Grape Vintage Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные 10 иллюстраций птиц и 20 иллюстраций винограда + 5 бесшовных узоров в растре на прозрачном фоне. Материал раздается с официальной документацией.Разработчик: Maria LettaФормат: PNGРазрешение файлов: 827 x 885 - 5001 x 5001
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173E0032255595F394077FF75927D2564688B88B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386023   (795781) от 27.05.2020
+
+Футажи - VideoHive - Air Strike Drone Fighter On Alpha Channel Loops V1 - 26436004 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795781.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 различных анимаций авиаударных беспилотных истребителей (QuickTime+Alpha).
+Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
+Совместимость с любым нелинейным редактором: Adobe Premiere, Adobe After Effects, Final Cut, Sony Vegas, Movie Maker, Avid.Формат: MOVРазрешение файлов: UHD (3840x2160)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2346F4BC874874EF6AC8EB9AC68D45559B8D8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385992   (795779) от 27.05.2020
+
+Футажи - VideoHive - Winter Trees - 21067914 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795779.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 различные анимации заснеженных деревьев (QuickTime+Alpha).
+Выберите, что подходит для ваших работ. Совместимость с любым нелинейным редактором: Adobe Premiere, Adobe After Effects, Final Cut, Sony Vegas, Movie Maker, Avid.Формат: MOVРазрешение файлов: Full HD 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721791EA2B7BB9100D215F7A76E857A3C1058F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385987   (795778) от 27.05.2020
+
+Футажи - VideoHive - Growing Tree - 21369075 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимация растущего и постепенно покрывающегося листвой дерева. (QuickTime+Alpha)
+Совместимость с любым нелинейным редактором: Adobe Premiere, Adobe After Effects, Final Cut, Sony Vegas, Movie Maker, Avid.Формат: MOVРазрешение файлов: Full HD 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C2B4AAA57F34757CCBCCBCA241FCE9DECF0997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509110   (795428) от 11.11.2021
 
 Звуковые библиотеки - FOUR Editors - Cinematic SFX Sound Library - 500+ [WAV, MP3, FLAC, AIFF]
@@ -6,7 +405,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795428.jpg" />
+  <img src="Z:/picture/008/save_picture_795428.jpg" />
 </div>
 
 
@@ -32,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795368.jpg" />
+  <img src="Z:/picture/008/save_picture_795368.jpg" />
 </div>
 
 
@@ -58,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795109.jpg" />
+  <img src="Z:/picture/008/save_picture_795109.jpg" />
 </div>
 
 
@@ -85,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794981.jpg" />
+  <img src="Z:/picture/008/save_picture_794981.jpg" />
 </div>
 
 
@@ -111,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794980.jpg" />
+  <img src="Z:/picture/008/save_picture_794980.jpg" />
 </div>
 
 
@@ -137,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794934.jpg" />
+  <img src="Z:/picture/008/save_picture_794934.jpg" />
 </div>
 
 
@@ -163,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794931.jpg" />
+  <img src="Z:/picture/008/save_picture_794931.jpg" />
 </div>
 
 
@@ -189,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794926.jpg" />
+  <img src="Z:/picture/008/save_picture_794926.jpg" />
 </div>
 
 
@@ -215,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794866.jpg" />
+  <img src="Z:/picture/008/save_picture_794866.jpg" />
 </div>
 
 
@@ -241,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794686.jpg" />
+  <img src="Z:/picture/008/save_picture_794686.jpg" />
 </div>
 
 
@@ -268,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794665.jpg" />
+  <img src="Z:/picture/008/save_picture_794665.jpg" />
 </div>
 
 
@@ -279,401 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:397557823270269CA40B72A103AEDFBBB7C762CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509528   (794654) от 12.11.2021
-
-3D модели - Unreal Engine - Futuristic Soldiers Pack [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794654.jpg" />
-</div>
-
-
-###  Подробнее
-
-В набор входят: 42 собранных персонажа, 60 материалов для настройки и 35 частей тела.Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAE8752B1956599AC36FF7021C1A9C946B839C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200786   (794650) от 22.01.2018
-
-3D модели - Daz 3D - Animals [DUF, EXE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз 3d моделей для DAZ 3D из категории Animals, включающий в себя сборники Animals, Dinosaurs, Fantasy, Sci-fi, Toon с офсайта.Формат: DUF, EXE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5D81CBBE2DF8E081E42FCD8EE50D1A6CF86AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509327   (794624) от 12.11.2021
-
-Сборник - Creative Fabrica - Spectacular Collection Big Bundle [PNG, DXF, EPS, SVG, PSD, AI, OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spectacular Collection Big Bundle с невероятным выбором из 500 шрифтов и 1300+ мандал, монограмм и цитат в формате SVG. Этот пакет оценивается в 10063 доллара.Формат: PNG, DXF, EPS, SVG, PSD, AI, OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CCBF841BD4227875C3E533965F85C9BFE92B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386527   (794387) от 29.05.2020
-
-Векторный клипарт - Сборник 12 июня День России [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-12 июня День России.
-146 EPS, 143 AI + preview.Формат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC3A76BEB2B0ACF67F9C0D9A9ECFDFBB9BCF749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122500   (794189) от 05.04.2017
-
-Фотография - 200 маленьких позитивчиков [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794189.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой маленькой подборке фотографии, которые сделают ваш день более позитивным и заставят улыбнуться.Формат: JPGРазрешение файлов: от 341х341 до 3100х2052
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F11D319C124B58E6C8E352174CC49064FE7782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274315   (794046) от 06.01.2019
-
-3D модели - SQUIR - Toyota IQ EV 2013 [Mental Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794046.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: Mental Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E630DB78122D0AD3E34822DD11FF32FDD29167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274213   (793996) от 06.01.2019
-
-3D модели - Hum3D - Lexus LX 2016 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793996.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки LexusФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C792141817E205FA53DBE71CA2FB68F2887B4B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274305   (793992) от 06.01.2019
-
-3D модели - Hum3D - Toyota Hilux Double Cab Chassis SR 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793992.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274218   (793991) от 06.01.2019
-
-3D модели - Hum3D - Holden Colorado Space Cab Divisional Van 2018 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793991.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки HoldenФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274441   (793946) от 06.01.2019
-
-Boom Library - DEBRIS [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793946.jpg" />
-</div>
-
-
-###  Подробнее
-
-DEBRIS BUNDLE дает вам всю мощь звукового дизайна, так как содержит 2 пакета DEBRIS DESIGNED и DEBRIS CONSTRUCTION KIT.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C457CBD6FCB446C8CAE7F73206001EFE48C53BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274209   (793932) от 06.01.2019
-
-3D модели - Hum3D - BMW X5 (G05) M sport 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793932.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: Сorona|Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, SKP, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B3A8C6C8A5B2724DDAD584F67D2BA47A6A8846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200824   (793698) от 23.01.2018
-
-3D модели - Daz 3D - Everyday [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор одежды от повседневной до вечерних платьев для DAZ 3D из категории People.
-Для Genesis 3 и Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200816   (793693) от 23.01.2018
-
-3D модели - Daz 3D - Animation [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор поз для DAZ 3D из категории Animation. В состав входят сборники с офсайта Animation, Combat, Expressions, Interacting figures, Pin up.
-G3F and G8FФормат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECCE774A520165481AE9F5FB7F5F569C3C2EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509587   (793544) от 13.11.2021
-
-Футажи - BusyBoxx - V56: Radiant Halo [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793544.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "Позвольте солнечному свету мгновенно прикоснуться к вашим кадрам! Наложите клип на ваше изображение или футаж, и в один миг измените его внешний вид, ощущение и настроение.
-Просто, эффективно, и впечатляюще. Используйте это в качестве невероятного фона! Иногда меньше - значит больше, и поэтому это поможет вам создать идеальную тонкую основу для ваших (   Читать дальше...   )Формат: MP4Разрешение файлов: 4096 x 2304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49CA82492CFACFAA1F5C482B4FA46D0203222D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012371   (793324) от 01.05.2016
-
-Экшены - GraphicRiver - CreativeArt Photoshop Action - 15380487 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFD28D109830C5A561969698C9E7920F9180A73
 ```
 
 https://mybot314.ru/tekegram_catalog/

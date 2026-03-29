@@ -1,3 +1,119 @@
+###  Публикация: 1192359   (263252) от 17.12.2017
+
+David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deck the Halls [04:20]
+02. It Came Upon a Midnight Clear [03:51]
+03. Joy to the World [03:08]
+04. White Christmas [03:23](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, ChristmasПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C320B9E34C74C763F470A1A5D297059EFF9E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192366   (263247) от 17.12.2017
+
+Mike Moreno - 3 For 3 (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Big Push [06:55]
+02. For Those Who Do [06:28]
+03. You Must Believe in Spring [07:11]
+04. Clube da Esquina No. 1 [05:38](   Читать дальше...   )Жанр: Contemporary Jazz, Guitar JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA3E3F12E6F42033FE4B0F3B9EF49D82AEACED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192364   (263180) от 17.12.2017
+
+Esperanza Spalding - Exposure & Undeveloped (2017) 2CD, Concord Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263180.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Exposure:
+01. Swimming Toward the Black Dot [04:53]
+02. Public Trance It [04:35]
+03. Heaven in Pennies (feat. Robert Glasper) [06:20](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52539EB067FB404AA4E3F5696B6EE4C10E0F9729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192463   (263159) от 17.12.2017
+
+Djabe & Steve Hackett - Life Is A Journey: The Sardinia Tapes (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Is A Journey
+02. Golden Sand
+03. Castelsardo At Night
+04. What's The News Antonio?(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6E61A295D4B744F985FBA6E6471544E8E8D6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341011   (262948) от 26.11.2019
 
 Chris Lightcap - SuperBigmouth (2019) Pyroclastic Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -6,7 +122,7 @@ Chris Lightcap - SuperBigmouth (2019) Pyroclastic Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262948.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Nat Adderley Quintet - Blue Autumn 1983 (1992) Evidence [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262947.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ralph Moore - Round Trip (1985) 1987, Reservoir [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262846.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ralph Moore - Images (1989) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262845.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Les McCann - Live at Montreux (1972) 2014, Warner [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262833.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262807.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Konstantin Klashtorni - Kool & Klean (Volume VII) (2017) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262755.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Milt Jackson - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262636.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ralph Moore - Furthermore (1990) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262536.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Tim Warfield - Tim Warfield's Jazzy Christmas (2012) Self-Released [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262534.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Toots Thielemans - Collage (1980) 2017, Sony Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262528.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Herb Alpert with Symphony and Choir - The Christmas Wish (2017) Herb Alpert Pres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262496.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jay Thomas - The Cats: Neo-Boogaloo (2012) Pony Boy Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262356.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Yusef Lateef - Lost in Sound (1961) 2003, Fresh Sound [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262278.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ David Bubba Brooks - Smooth Sailing (1998) TCB Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262277.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ralph Moore - Who It Is You Are (1994) Nippon Columbia [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262276.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262129.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262001.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262000.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261999.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261998.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261997.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193515   (261993) от 22.12.2017
-
-Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance [01:05]
-02. Don't Be That Way [03:13]
-03. Hallelujah [04:15]
-04. Obsession [03:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193720   (261992) от 22.12.2017
-
-Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summit Meeting [08:05]
-02. The Sweetest Sounds [07:45]
-03. There But For The Grace Of... [08:52]
-04. I Haven't Got Anything Better To Do [07:14](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193725   (261987) от 22.12.2017
-
-Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak Low [05:18]
-02. My Foolish Heart [06:04]
-03. What Is This Thing Called Love [04:35]
-04. Sweet And Lovely [03:37](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C8FD4FE04867CCBD7CC81E53BDE27A9EA71CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193719   (261984) от 22.12.2017
-
-Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Explain [04:26]
-02. Lover Man (Oh Where Can You Be) [04:58]
-03. God Bless the Child [04:28]
-04. Miss Brown to You [04:42](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91A64F9C8CACDE6393A2A748E828AE94E376BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

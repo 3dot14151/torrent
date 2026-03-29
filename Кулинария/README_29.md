@@ -1,3 +1,29 @@
+###  Публикация: 903846   (656774) от 01.06.2015
+
+Ксения Суворова (ред.) | Экзотический новогодний стол (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожалуй, сегодня не найти человека, который хотя бы раз в жизни не пробовал бы суши. И не смотря на то, что мода на азиатскую кухню пришла в нашу жизнь не так давно, многие блюда уже стали любимыми. Кроме того, сегодня можно купить все ингредиенты для их приготовления дома. В этой книге собраны рецепты, по которым вы сможете приготовить изумительные экзотические (   Читать дальше...   )Жанр: КулинарияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46703DCB59823E589B43753C386286D92059FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903869   (656555) от 01.06.2015
 
 Ольга Ивенская (ред.) | Осенняя кулинария (2013) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656555.jpg" />
+  <img src="Z:/picture/008/save_picture_656555.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655829.jpg" />
+  <img src="Z:/picture/008/save_picture_655829.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655783.jpg" />
+  <img src="Z:/picture/008/save_picture_655783.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654323.jpg" />
+  <img src="Z:/picture/008/save_picture_654323.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654255.jpg" />
+  <img src="Z:/picture/008/save_picture_654255.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653754.jpg" />
+  <img src="Z:/picture/008/save_picture_653754.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653595.jpg" />
+  <img src="Z:/picture/008/save_picture_653595.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653385.jpg" />
+  <img src="Z:/picture/008/save_picture_653385.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653381.jpg" />
+  <img src="Z:/picture/008/save_picture_653381.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653377.jpg" />
+  <img src="Z:/picture/008/save_picture_653377.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653372.jpg" />
+  <img src="Z:/picture/008/save_picture_653372.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653328.jpg" />
+  <img src="Z:/picture/008/save_picture_653328.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653318.jpg" />
+  <img src="Z:/picture/008/save_picture_653318.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653002.jpg" />
+  <img src="Z:/picture/008/save_picture_653002.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652999.jpg" />
+  <img src="Z:/picture/008/save_picture_652999.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652497.jpg" />
+  <img src="Z:/picture/008/save_picture_652497.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652399.jpg" />
+  <img src="Z:/picture/008/save_picture_652399.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651972.jpg" />
+  <img src="Z:/picture/008/save_picture_651972.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651655.jpg" />
+  <img src="Z:/picture/008/save_picture_651655.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651580.jpg" />
+  <img src="Z:/picture/008/save_picture_651580.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651240.jpg" />
+  <img src="Z:/picture/008/save_picture_651240.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650161.jpg" />
+  <img src="Z:/picture/008/save_picture_650161.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648509.jpg" />
+  <img src="Z:/picture/008/save_picture_648509.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647400.jpg" />
+  <img src="Z:/picture/008/save_picture_647400.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647310.jpg" />
+  <img src="Z:/picture/008/save_picture_647310.jpg" />
 </div>
 
 
@@ -655,36 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71A1135F3C2E27143697421D17FAC0D564151FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517839   (646880) от 01.07.2012
-
-И.Р.Киреевский | Кухня в горшочке [2002] [Pdf]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Керамическая посуда — не только декоративная деталь.
-Веками наши предки готовили в глиняных горшочках самые вкусные блюда. Сегодня эта старинная кулинарная технология вновь приобрела популярность.
- В книге вы найдёте рецепты супов, блюд из мяса, рыбы, овощей, круп и муки, а также десертов.
- Для приготовления этих кушаний вам потребуется несколько керамических кулинарных горшочков: отменный вкус и дразнящий аромат гарантированы!
- В XXI веке кулинарное искусство достигло высшей точки в своем развитии, удивляя нас (   Читать дальше...   )Жанр: КулинарияФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DC267B945193E42023BC1B2ED2B6F1B10B5B27
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ashampoo Burning Studio FREE 1.23.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733545.jpg" />
+  <img src="Z:/picture/008/save_picture_733545.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Notepad++ 8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733533.jpg" />
+  <img src="Z:/picture/005/save_picture_733533.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CrystalDiskInfo 8.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733522.jpg" />
+  <img src="Z:/picture/008/save_picture_733522.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Visual Studio Code 1.64.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733516.jpg" />
+  <img src="Z:/picture/008/save_picture_733516.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ventoy 1.0.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733511.jpg" />
+  <img src="Z:/picture/008/save_picture_733511.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Foxit PDF Editor Pro 11.2.1.53537 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733485.jpg" />
+  <img src="Z:/picture/005/save_picture_733485.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Cookie 6.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733464.jpg" />
+  <img src="Z:/picture/005/save_picture_733464.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SyncTime 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733463.jpg" />
+  <img src="Z:/picture/005/save_picture_733463.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MarsEdit 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733461.jpg" />
+  <img src="Z:/picture/005/save_picture_733461.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - FSOE Top 20 -  June (2020) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733459.jpg" />
+  <img src="Z:/picture/005/save_picture_733459.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ iBarcoder 3.11.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733453.jpg" />
+  <img src="Z:/picture/005/save_picture_733453.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733450.jpg" />
+  <img src="Z:/picture/008/save_picture_733450.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ FontExplorer X Pro 7 v7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733449.jpg" />
+  <img src="Z:/picture/008/save_picture_733449.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Subtitle Studio 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733447.jpg" />
+  <img src="Z:/picture/008/save_picture_733447.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733444.jpg" />
+  <img src="Z:/picture/008/save_picture_733444.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ TurboCollage 7 v7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733442.jpg" />
+  <img src="Z:/picture/005/save_picture_733442.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sadistik - Delirium (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733440.jpg" />
+  <img src="Z:/picture/008/save_picture_733440.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - A State Of Trance Top 20 July (Selected by Armin Van Buuren) - (Extended Ve
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733439.jpg" />
+  <img src="Z:/picture/008/save_picture_733439.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - A Decade of Chill Out Vocal Trance (2010 - 2020) [MP3|320 Kbps] <Trance, Or
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733438.jpg" />
+  <img src="Z:/picture/008/save_picture_733438.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Grids for Instagram 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733437.jpg" />
+  <img src="Z:/picture/008/save_picture_733437.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Image Exif Editor 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733433.jpg" />
+  <img src="Z:/picture/008/save_picture_733433.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Visual Studio 2019 Professional 16.6.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733427.jpg" />
+  <img src="Z:/picture/008/save_picture_733427.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Visual Studio 2019 Community 16.6.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733426.jpg" />
+  <img src="Z:/picture/008/save_picture_733426.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Visual Studio 2019 Enterprise 16.6.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733424.jpg" />
+  <img src="Z:/picture/008/save_picture_733424.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BluffTitler Ultimate 15.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733417.jpg" />
+  <img src="Z:/picture/008/save_picture_733417.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ CameraBag Pro 2020.30 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733409.jpg" />
+  <img src="Z:/picture/008/save_picture_733409.jpg" />
 </div>
 
 

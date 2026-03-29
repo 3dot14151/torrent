@@ -1,3 +1,235 @@
+###  Публикация: 1662814   (187452) от 19.09.2023
+
+VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Opera, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187452.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Serbami Ognor (Semiramide, Act I)
+A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
+A3 Un Di Felice (La Traviata, Act I)
+A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663183   (187201) от 20.09.2023
+
+Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Brass & Military, Marches>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187201.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Inspection
+A1 Blaydon Races
+A2 Shirley Bassey Showcase
+A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр: Brass & Military, MarchesПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662977   (187193) от 20.09.2023
+
+Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heavenly — пауэр-метал-группа из Франции, основанная в 1994 году вокалистом Бенжамином Сотто и барабанщиком Максом Пило.2000 - Coming From The Sky
+2001 - Sign Of The Winner
+2004 - Dust To Dust
+2006 - VirusЖанр: Power MetalПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591175   (187128) от 18.11.2022
+
+Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
+1996 - Evil Empire
+1999 - The Battle Of Los Angeles
+2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546406   (187108) от 20.09.2023
+
+Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_187108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heathen — группа из США, играющая в стиле спид/трэш-метал. Группа была основана в 1984 году гитаристом Ли Элтусом и ударником Карлом Сэкко.1987 - Breaking the Silence
+1991 - Victims of Deception
+2010 - The Evolution Of Chaos
+2020 - Empire Of The BlindЖанр: Technical Speed/Thrash MetalПродолжительность: 04:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572601   (187065) от 20.09.2023
+
+Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_187065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
+2007 - Hope
+2010 - Desert Call
+2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663324   (186830) от 21.09.2023
+
+The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186830.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Trumpet Overture From «The Indian Queen»
+Suite From Abdelazer
+A2 (a) Overture - Allegro
+A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663746   (186451) от 23.09.2023
+
+The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186451.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Symphonic Poem ''Finlandia'', Op. 26
+''Karelia'' Suite, Op. 11
+A2 Intermezzo
+A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663882   (186440) от 23.09.2023
 
 Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
@@ -6,7 +238,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186440.jpg" />
 </div>
 
 
@@ -33,7 +265,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186428.jpg" />
 </div>
 
 
@@ -62,7 +294,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186425.jpg" />
 </div>
 
 
@@ -91,7 +323,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186223.jpg" />
 </div>
 
 
@@ -117,7 +349,7 @@ Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186102.jpg" />
 </div>
 
 
@@ -146,7 +378,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185442.jpg" />
 </div>
 
 
@@ -175,7 +407,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -204,7 +436,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184797.jpg" />
 </div>
 
 
@@ -233,7 +465,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183997.jpg" />
 </div>
 
 
@@ -260,7 +492,7 @@ Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183669.jpg" />
 </div>
 
 
@@ -288,7 +520,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183346.jpg" />
 </div>
 
 
@@ -317,7 +549,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -346,7 +578,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182296.jpg" />
 </div>
 
 
@@ -375,7 +607,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181613.jpg" />
 </div>
 
 
@@ -404,7 +636,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181262.jpg" />
 </div>
 
 
@@ -433,7 +665,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180956.jpg" />
 </div>
 
 
@@ -462,7 +694,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -491,7 +723,7 @@ Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180664.jpg" />
+  <img src="Z:/picture/005/save_picture_180664.jpg" />
 </div>
 
 
@@ -505,237 +737,6 @@ A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665828   (180623) от 02.10.2023
-
-Мираж - Не в первый раз... (2004 / 2023) hand made, remastered [FLAC|44/16|tracks|CD-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180623.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (45:42)
-
-[4:16] 01. Я жду тебя
-[4:25] 02. Скорость(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428056   (180596) от 01.12.2020
-
-Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180596.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Angel
-A2 Risingson
-A3 Teardrop
-B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593366   (180375) от 27.11.2022
-
-Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creed — американская рок-группа из Таллахасси, США. Основателями группы стали Скотт Стэпп и Марк Тремонти, которые учились вместе во Флоридском университете. Вскоре к ним присоединились Брайан Маршалл и Скотт Филлипс.1997 - My Own Prison
-1999 - Human Clay
-2001 - Weathered
-2009 - Full CircleЖанр: Post-Grunge, Hard RockПродолжительность: 04:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666126   (180368) от 03.10.2023
-
-October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_180368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I
-02. II
-03. III
-04. IVЖанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CAA81F498E82E7CDB3A121B3B5F1E98B9685C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666081   (180259) от 03.10.2023
-
-Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipped] [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every single day (Original radio edit)
-02. Every single day (Original extended mix)
-03. Every single day (Club version)Жанр: ElectronicПродолжительность: 00:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98631A0DF3C6DBD774A515BF58FF272763772C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666297   (180248) от 03.10.2023
-
-Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_180248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolf - хэви-метал группа из Эребру, Швеция, действующая с 1995 года.2000 - Wolf
-2002 - Black Wings
-2004 - Evil Star
-2006 - The Black FlameЖанр: Heavy MetalПродолжительность: 07:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3734A623F6F496335F408F0DCE5D0A736F64FD6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666223   (180228) от 03.10.2023
-
-Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] [FLAC|Lossless|tracks] <House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hit My Heart (Radio Edit) [3:13]
-2. Hit My Heart (Sfaction Mix) [5:21]
-3. Hit My Heart (Original LP Version) [5:06]
-4. Hit My Heart (Vision Mix) [6:09](   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78423F6EC0FD903007BE53D4D051B181D1C601CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666080   (180116) от 03.10.2023
-
-Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padam Padam (2:46)
-02. Hold On To Now (3:58)
-03. Things We Do For Love (3:10)
-04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,150 @@
+###  Публикация: 1827139   (173413) от 20.10.2025
+
+Nakia - Signal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Signal (3:50)
+02.  Mary Mary (3:29)
+03.  Show It to Me (3:46)
+04.  We Can Make Believe (3:47)(   Читать дальше...   )Жанр: Rock, Alternative & IndieПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3611382035487C9E96D703A7934F7A7C7115C745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669192   (173004) от 15.10.2023
+
+Ringo Starr - Rewind Forward (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows On The Wall
+02. Feeling The Sunlight
+03. Rewind Forward
+04. Miss JeanЖанр: Pop RockПродолжительность: 00:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7861AA5DAD8CFBB12288F534F0D80EF37149B8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669535   (172674) от 17.10.2023
+
+Crocodile - The Tale of Otter, Thorn Eater, And the Colored Coyotes of Hidden City (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise Overture [00:04:03]
+02. Days Of Bravery And Cruelty [00:00:51]
+03. Thorn Eater [00:05:02]
+04. Pale Eyed Preachers [00:00:53](   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D3A1858FE4F396CCE12789AC59C87E489716BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669593   (172655) от 17.10.2023
+
+VA - All Out Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Gun Kelly - I Think I'm OKAY (2:50)
+02. The Killers - Mr. Brightside (3:43)
+03. Olivia Rodrigo - good 4 u (2:58)
+04. Empire Of The Sun - We Are The People (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B22C6AE2FF55FF2834B90ED046CE1D477CE2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670615   (171889) от 21.10.2023
+
+Dave Stewart - Who To Love: The Time Experience Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из создателей дуэта Eurythmics Дэйв Стюарт (Dave Stewart) основал новый творческий коллектив под названием The Time Experience Project.
+Как сообщил музыкант, в него входит целая группа писателей, актеров, музыкантов, исполнителей и режиссеров.
+20 октября 2023 года они выпустили «современную рок-оперу» из 10 треков под названием «Who To Love». Снятый по ней кoроткометражный (   Читать дальше...   )01. Time Is A Masterpiece
+02. Electrified
+03. Not The Sweetest Taboo
+04. Brings Me Home(   Читать дальше...   )Жанр: Pop Rock, Rock OperaПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE74CE504647AFEF7679C65920DB41F3B0B345B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670849   (171771) от 22.10.2023
 
 Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
@@ -6,7 +153,7 @@ Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171771.jpg" />
 </div>
 
 
@@ -35,7 +182,7 @@ Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171768.jpg" />
 </div>
 
 
@@ -64,7 +211,7 @@ Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171766.jpg" />
 </div>
 
 
@@ -93,7 +240,7 @@ Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171760.jpg" />
 </div>
 
 
@@ -122,7 +269,7 @@ Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171759.jpg" />
 </div>
 
 
@@ -151,7 +298,7 @@ Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171758.jpg" />
 </div>
 
 
@@ -180,7 +327,7 @@ Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171755.jpg" />
 </div>
 
 
@@ -209,7 +356,7 @@ Lana Lane - Garden Of The Moon (2002) Special Edition, 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171751.jpg" />
 </div>
 
 
@@ -238,7 +385,7 @@ Colosseum - 13 альбомов, Box Set (1969 - 2014) 26 CD [FLAC|WavPack|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171653.jpg" />
 </div>
 
 
@@ -267,7 +414,7 @@ Erik Norlander - Into The Sunset (2000) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171589.jpg" />
 </div>
 
 
@@ -296,7 +443,7 @@ Erik Norlander - Threshold (1999) Special Edition, 2CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171586.jpg" />
 </div>
 
 
@@ -325,7 +472,7 @@ Erik Norlander - Music Machine (2003) 2CD [FLAC|Lossless|image + .cue] <Symphoni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171574.jpg" />
 </div>
 
 
@@ -354,7 +501,7 @@ Erik Norlander - Stars Rain Down (2004) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171572.jpg" />
 </div>
 
 
@@ -383,7 +530,7 @@ Queen - Queen II (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171360.jpg" />
 </div>
 
 
@@ -412,7 +559,7 @@ Queen - A Night At The Opera (1975) Remaster, 2 CD Deluxe Edition, 2011, Univers
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171353.jpg" />
 </div>
 
 
@@ -441,7 +588,7 @@ The Rolling Stones - Hackney Diamonds (2023) Japan [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171345.jpg" />
 </div>
 
 
@@ -470,7 +617,7 @@ Thomas Dolby - Halloween: A Thomas Dolby Creation (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171261.jpg" />
 </div>
 
 
@@ -499,7 +646,7 @@ Giant Flying Turtles - Let the Love In (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171249.jpg" />
 </div>
 
 
@@ -528,7 +675,7 @@ Queen - A Day At The Races (1976) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171186.jpg" />
 </div>
 
 
@@ -557,7 +704,7 @@ Queen - Queen (1973) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171182.jpg" />
 </div>
 
 
@@ -586,7 +733,7 @@ Queen - Sheer Heart Attack (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171181.jpg" />
 </div>
 
 
@@ -600,151 +747,6 @@ Queen - Sheer Heart Attack (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E0D6845DD1E0F5A9FA16CBB4771AB298C33D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671579   (171167) от 25.10.2023
-
-VA - Greatest Rock Of All Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - A Kind Of Magic (Remastered 2011) (4:24)
-02. The Jam - The Eton Rifles (3:57)
-03. The Rolling Stones - Emotional Rescue (Remastered 2009) (5:39)
-04. The J. Geils Band - Love Stinks (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 03:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B550E36E9A893F18871820AB9B1FA113422F896A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671479   (171160) от 25.10.2023
-
-Queen - News Of The World (1977) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Rock You (Remastered 2011) [00:02:02]
-02. We Are The Champions (Remastered 2011) [00:02:59]
-03. Sheer Heart Attack (Remastered 2011) [00:03:27]
-04. All Dead, All Dead (Remastered 2011) [00:03:09](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EAD4804D92BD64761E1663197B5205F64C206F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671632   (171075) от 26.10.2023
-
-Gabriel Agudo - New Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free as a Bird [00:07:18]
-02. Karmatic [00:07:19]
-03. Angel’s Call [00:08:15]
-04. New Life [00:09:09](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7B114F246CE37324C559FE1966ED6609389CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671869   (171065) от 26.10.2023
-
-Nosferatu - Anthology (2006) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Nosferatu — британская музыкальная группа, исполняющая готик-рок. Своим названием команда обязана знаменитому немому фильму ужасов «Носферату». С момента образования в 1988 году коллектив добился значительного коммерческого успеха, продав более 100 тысяч копий альбомов.01. Close
-02. Inside The Devil
-03. Alone
-04. Arabian Heat(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4160B9380FFAF9B1EAA9FE17DB0D6510492A3C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671865   (171010) от 26.10.2023
-
-Queen - Hot Space (1982) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171010.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-01. Staying Power (Remastered 2011)
-02. Dancer (Remastered 2011)
-03. Back Chat (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51CE408317663BFCBF0F3D0C8DB97467784219D
 ```
 
 https://mybot314.ru/tekegram_catalog/

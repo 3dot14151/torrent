@@ -6,7 +6,7 @@ VA - Morttagua - 5 Years, Vol. 2 (2021) [AAC|~314 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225973.jpg" />
+  <img src="Z:/picture/005/save_picture_225973.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Prognoesis, Vol. 01 (2021) [AAC|~329 Kbps] <Organic House, Progressive Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225965.jpg" />
+  <img src="Z:/picture/005/save_picture_225965.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - World Of Psychill (2021) [AAC|~307 Kbps] <PsyChill, Psybient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225957.jpg" />
+  <img src="Z:/picture/005/save_picture_225957.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Dark Melodies, Vol. 4 (2021) [AAC|~330 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225950.jpg" />
+  <img src="Z:/picture/005/save_picture_225950.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Berlin Rooftop Sessions 2k22 (2021) [AAC|~308 Kbps] <Melodic House & Techno
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225944.jpg" />
+  <img src="Z:/picture/005/save_picture_225944.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paul Mauriat - Emmanuelle & Fantastic 4 Channel (2020) [AAC|~336 Kbps] <Pop, Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225913.jpg" />
+  <img src="Z:/picture/005/save_picture_225913.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Rail Tail (2021) [AAC|~337 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225912.jpg" />
+  <img src="Z:/picture/005/save_picture_225912.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Dark Melodies, Vol. 1 (2020) [AAC|~324 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225896.jpg" />
+  <img src="Z:/picture/005/save_picture_225896.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225879.jpg" />
+  <img src="Z:/picture/005/save_picture_225879.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225838.jpg" />
+  <img src="Z:/picture/005/save_picture_225838.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225795.jpg" />
+  <img src="Z:/picture/005/save_picture_225795.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - The 100, Vol. 1 (2021) [AAC|~330 Kbps] <Progressive House, Deep House, Tech
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225780.jpg" />
+  <img src="Z:/picture/005/save_picture_225780.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pink Floyd - Chillout (2021) [AAC|~320 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225738.jpg" />
+  <img src="Z:/picture/005/save_picture_225738.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Pink Floyd - Night (2021) [AAC|~334 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225559.jpg" />
+  <img src="Z:/picture/005/save_picture_225559.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pink Floyd - Home (2021) [AAC|~322 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225542.jpg" />
+  <img src="Z:/picture/005/save_picture_225542.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Pink Floyd - Play (2021) [AAC|~332 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225447.jpg" />
+  <img src="Z:/picture/005/save_picture_225447.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225442.jpg" />
+  <img src="Z:/picture/005/save_picture_225442.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225418.jpg" />
+  <img src="Z:/picture/005/save_picture_225418.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225184.jpg" />
+  <img src="Z:/picture/005/save_picture_225184.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225060.jpg" />
+  <img src="Z:/picture/005/save_picture_225060.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225001.jpg" />
+  <img src="Z:/picture/005/save_picture_225001.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Urban Orange Music 1: Downtempo Experience (2020) [AAC|~311 Kbps] <Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224522.jpg" />
+  <img src="Z:/picture/005/save_picture_224522.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Urban Orange Music 2: Downtempo Experience (2020) [AAC|~316 Kbps] <Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224473.jpg" />
+  <img src="Z:/picture/005/save_picture_224473.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224471.jpg" />
+  <img src="Z:/picture/005/save_picture_224471.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224323.jpg" />
+  <img src="Z:/picture/005/save_picture_224323.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224288.jpg" />
+  <img src="Z:/picture/005/save_picture_224288.jpg" />
 </div>
 
 

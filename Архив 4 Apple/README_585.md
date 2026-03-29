@@ -1,3 +1,109 @@
+###  Публикация: 1429061   (178488) от 04.12.2020
+
+Workspaces 2.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Workspaces запускает все, что вам нужно для вашего проекта, одним щелчком мыши. Он также хранит ссылки на все ваши важные ресурсы, поэтому вам не нужно помнить, где они находятся: Workspaces делает это за вас.
+Приложение делает переключение между проектами практически без усилий. Это супер-инструмент повышения производительности для всех, кто работает над различными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2020Разработчик: ApptoriumПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938E66C3C2062030F65CAAFA388F25E9CB669486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429026   (178476) от 04.12.2020
+
+Shortcut Bar 2.9.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
+Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61655006E400C4977D8E125DD3B5A658A2CA8A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428889   (178473) от 04.12.2020
+
+Magoshare Data Recovery Professional 4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magoshare Data Recovery - одно из самых мощных приложений для восстановления данных Mac. Это делает восстановление данных проще и глубже, а также позволяет легко и полностью восстанавливать удаленные, отформатированные или недоступные данные с жестких дисков, USB-накопителей, портативных жестких дисков, карт памяти, цифровых камер и других устройств хранения данных. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2020Разработчик: MagoshareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904715CE5A124318239F8E4F95B68D22310122E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429038   (178469) от 04.12.2020
+
+WinX DVD Ripper 6.5.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178469.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinX DVD Ripper Mac - конвертер DVD дисков, в том числе с защитой от копирования, в следующие форматы: MP4, MOV, MPEG, AVI, FLV, MP3, для iPhone, iPod, iPad, Apple TV, PSP и другие. Mac DVD Ripper способен разблокировать все технологии защиты от копирования, например, CSS, региональный код, Sony ARccOS, UOPs, Disney X-проект DRM, и т.д.Тип издания: macOS SoftwareРелиз состоялся: 03.12.2020Разработчик: Digiarty Software, IncПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B661C23465D02E0F7419072D4306D971159564E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428993   (178461) от 04.12.2020
 
 iA Writer 5.6.5 [Multi/Ru]
@@ -6,7 +112,7 @@ iA Writer 5.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178461.jpg" />
+  <img src="Z:/picture/005/save_picture_178461.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ WinX HD Video Converter for Mac 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178448.jpg" />
+  <img src="Z:/picture/005/save_picture_178448.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Tayasui Sketches Pro 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178442.jpg" />
+  <img src="Z:/picture/005/save_picture_178442.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ AYVY 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178440.jpg" />
+  <img src="Z:/picture/005/save_picture_178440.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Airy 3.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178437.jpg" />
+  <img src="Z:/picture/005/save_picture_178437.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Meta 1.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178425.jpg" />
+  <img src="Z:/picture/005/save_picture_178425.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ WiFi Explorer 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178393.jpg" />
+  <img src="Z:/picture/005/save_picture_178393.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ Translate Tab 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178326.jpg" />
+  <img src="Z:/picture/005/save_picture_178326.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ Movavi PDFChef for Mac 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178325.jpg" />
+  <img src="Z:/picture/005/save_picture_178325.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ Duplicate File Finder & Remover 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178236.jpg" />
+  <img src="Z:/picture/005/save_picture_178236.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ Sublime Text 4.0 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178211.jpg" />
+  <img src="Z:/picture/005/save_picture_178211.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ Davinci Resolve Studio 17 v17b3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178084.jpg" />
+  <img src="Z:/picture/005/save_picture_178084.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ Folx Pro 5 v5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178068.jpg" />
+  <img src="Z:/picture/005/save_picture_178068.jpg" />
 </div>
 
 
@@ -359,7 +465,7 @@ GrandTotal 7 v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177752.jpg" />
+  <img src="Z:/picture/005/save_picture_177752.jpg" />
 </div>
 
 
@@ -387,7 +493,7 @@ Timemator 2 v2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177743.jpg" />
+  <img src="Z:/picture/005/save_picture_177743.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ Mountain Duck 4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177719.jpg" />
+  <img src="Z:/picture/005/save_picture_177719.jpg" />
 </div>
 
 
@@ -442,7 +548,7 @@ Chaos Control 1.10.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177716.jpg" />
+  <img src="Z:/picture/005/save_picture_177716.jpg" />
 </div>
 
 
@@ -471,7 +577,7 @@ Playr 2.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177687.jpg" />
+  <img src="Z:/picture/005/save_picture_177687.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ NCH VideoPad Pro 8 v8.99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177676.jpg" />
+  <img src="Z:/picture/005/save_picture_177676.jpg" />
 </div>
 
 
@@ -524,7 +630,7 @@ FileMaker Pro 19 v19.1.3.315 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177638.jpg" />
+  <img src="Z:/picture/005/save_picture_177638.jpg" />
 </div>
 
 
@@ -551,7 +657,7 @@ PDF Reader Pro Edition 2.7.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177519.jpg" />
+  <img src="Z:/picture/005/save_picture_177519.jpg" />
 </div>
 
 
@@ -577,7 +683,7 @@ Principle 6 v.6.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177478.jpg" />
 </div>
 
 
@@ -588,112 +694,6 @@ Principle — приложение для Mac OS, которое позволя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B075CEC785807336165919C6D76CD6DBBCB6407B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429067   (177468) от 05.12.2020
-
-Macgo Mac Blu-ray Player Pro 3.3.20 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в macOS. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2020Разработчик: MacgoПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18367444492ACC83CDA8774609F5CB4CDAD11D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594842   (177447) от 02.12.2022
-
-Dropzone 4 Pro v.4.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BF0D997B39C4E33B40C564A92F31BD397775EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594882   (177432) от 02.12.2022
-
-DropDMG 3.6.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
-Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2022Разработчик: © 2002–2022 C-Command Software, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский, Датский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37299C41EFC7B4B6506A2B556340EEC7FC5C49F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594829   (177400) от 02.12.2022
-
-Task Office 8.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA13DA0E1EC0EBBE6FB0951FADEF1985F1D7971
 ```
 
 https://mybot314.ru/tekegram_catalog/

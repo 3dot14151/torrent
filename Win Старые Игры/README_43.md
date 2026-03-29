@@ -1,3 +1,55 @@
+###  Публикация: 414862   (7006) от 19.08.2025
+
+Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | Pilotus
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какой он, идеальный парк развлечений? Один скажет, что там не должно быть очередей, другой пожелает бесплатного мороженного, а для третьего главное - зелёные насаждения. Словом, сколько людей, столько мнений. И только с одним утверждением едва ли кто поспорит: парк аттракционов без американских горок - не парк аттракционов вовсе! Попробуйте свои силы в качестве дизайнера, (   Читать дальше...   )Тип издания: RePackРазработчик: Chris Sawyer ProductionsЖанр: Экономический симуляторЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635814   (6218) от 24.08.2025
+
+The Blackwell Deception (2011) [En] (3.5) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медиум начинает собственное расследование чреды загадочных убийств в Blackwell Deception. Игрок отправится в приключение вместе с героиней, чтобы разгадать мистическую загадку. В игре органично сочетается олдскульный стиль с косметическим апдейтом современной версии, атмосферу которым добавляет музыка и продуманные диалоги.Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634894   (6212) от 24.08.2025
 
 The Blackwell Legacy (2006) [En] (4.0c) License GOG
@@ -6,7 +58,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6212.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5024.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Emperor of the Fading Suns / Император Угасающих Звезд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4731.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4685.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4336.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3032.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2849.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_323.jpg" />
 </div>
 
 

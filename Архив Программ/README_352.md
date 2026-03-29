@@ -6,7 +6,7 @@ LINE 4.5.0.873 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871629.jpg" />
+  <img src="Z:/picture/008/save_picture_871629.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AMD Radeon Software Crimson Edition 16.3.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871610.jpg" />
+  <img src="Z:/picture/008/save_picture_871610.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mozilla Firefox 45.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871604.jpg" />
+  <img src="Z:/picture/008/save_picture_871604.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ RonyaSoft Poster Printer 3.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871461.jpg" />
+  <img src="Z:/picture/008/save_picture_871461.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Unchecky 0.4.3 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871457.jpg" />
+  <img src="Z:/picture/008/save_picture_871457.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ K-Lite Codec Pack Update 16.4.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871407.jpg" />
+  <img src="Z:/picture/008/save_picture_871407.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Soft4Boost Document Converter 4.7.9.501 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871385.jpg" />
+  <img src="Z:/picture/008/save_picture_871385.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Daum PotPlayer 1.7.351 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871374.jpg" />
+  <img src="Z:/picture/008/save_picture_871374.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ O&O Defrag Professional 19.5 Build 222 Portable by KloneB@DGuY [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871362.jpg" />
+  <img src="Z:/picture/008/save_picture_871362.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Viber 5.9.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871353.jpg" />
+  <img src="Z:/picture/008/save_picture_871353.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Shadow Defender 1.4.0.612 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871350.jpg" />
+  <img src="Z:/picture/008/save_picture_871350.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Spotify 1.1.68.628 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871240.jpg" />
+  <img src="Z:/picture/008/save_picture_871240.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Opera 79.0.4143.22 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871236.jpg" />
+  <img src="Z:/picture/008/save_picture_871236.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Photo Supreme 5.4.0.2798 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871195.jpg" />
+  <img src="Z:/picture/008/save_picture_871195.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ WinZip System Utilities Suite 1.0.648.9787 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_871174.jpg" />
+  <img src="Z:/picture/009/save_picture_871174.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WinPE 10 Sergei Strelec (x64) 2016.03.18 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871137.jpg" />
+  <img src="Z:/picture/008/save_picture_871137.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ CDBurnerXP 4.5.6.6059 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871127.jpg" />
+  <img src="Z:/picture/008/save_picture_871127.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe Photoshop Lightroom 6.5 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871125.jpg" />
+  <img src="Z:/picture/008/save_picture_871125.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Pale Moon 26.1.1 Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871116.jpg" />
+  <img src="Z:/picture/008/save_picture_871116.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ MediaInfo 21.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871077.jpg" />
+  <img src="Z:/picture/008/save_picture_871077.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AIMP 4.13 Build 1887 DC 19.02.2017 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871067.jpg" />
+  <img src="Z:/picture/008/save_picture_871067.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Daum PotPlayer 1.7.351 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871064.jpg" />
+  <img src="Z:/picture/008/save_picture_871064.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Punto Switcher 4.3.5 Build 1815 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871060.jpg" />
+  <img src="Z:/picture/008/save_picture_871060.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Daum PotPlayer 1.7.351 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871042.jpg" />
+  <img src="Z:/picture/008/save_picture_871042.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Cowboy MInstALL StartSoft Spring 2016-10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870984.jpg" />
+  <img src="Z:/picture/008/save_picture_870984.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870922.jpg" />
+  <img src="Z:/picture/008/save_picture_870922.jpg" />
 </div>
 
 

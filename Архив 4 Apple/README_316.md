@@ -1,3 +1,109 @@
+###  Публикация: 1231557   (605238) от 18.06.2018
+
+KCNcrew Pack 06-15-18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605238.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на июнь 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7698D3A3E6DA431D3FE784B4E16B83AFC04CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231519   (605168) от 18.06.2018
+
+PDF Expert 2.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605168.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert — это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: Mac OS Х 10.11 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCECD3AAE5DF2A7EB3182E1C3E2FFF6C4BCE740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231449   (605157) от 18.06.2018
+
+IObit MacBooster 7.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605157.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacBooster поможет настроить и ускорить работу OS X. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: IObitПоддерживаемая ОС: Mac OS Х 10.7 +Язык интерфейса: Английский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370FCAD8408287AC5E89477AB3BEF4ADD3B7AA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231540   (605086) от 18.06.2018
+
+Movavi Photo Editor 5.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ищете хорошую программу для обработки фото на Mac? Вы только что ее нашли! Попробуйте автоматическую коррекцию качества, удобные ручные настройки и интеллектуальные инструменты – и редактируйте фотографии в свое удовольствие. Экспериментируйте с фонами, ретушируйте кожу и наносите макияж, удаляйте лишние предметы, применяйте эффекты и фильтры, выравнивайте горизонт, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B95187802452213E0C37C209C5F595C5854DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038774   (605068) от 29.07.2016
 
 KeyFlow Pro 1.6 [En]
@@ -6,7 +112,7 @@ KeyFlow Pro 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605068.jpg" />
+  <img src="Z:/picture/008/save_picture_605068.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ OCRKit 16.7.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605064.jpg" />
+  <img src="Z:/picture/008/save_picture_605064.jpg" />
 </div>
 
 
@@ -63,7 +169,7 @@ Movavi Video Editor 5 Business 5.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604984.jpg" />
+  <img src="Z:/picture/008/save_picture_604984.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ BlueHarvest 6.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604964.jpg" />
+  <img src="Z:/picture/008/save_picture_604964.jpg" />
 </div>
 
 
@@ -118,7 +224,7 @@ ExpanDrive 5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604910.jpg" />
+  <img src="Z:/picture/008/save_picture_604910.jpg" />
 </div>
 
 
@@ -147,7 +253,7 @@ UninstallPKG 1.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604868.jpg" />
+  <img src="Z:/picture/008/save_picture_604868.jpg" />
 </div>
 
 
@@ -175,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604854.jpg" />
+  <img src="Z:/picture/008/save_picture_604854.jpg" />
 </div>
 
 
@@ -201,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604763.jpg" />
+  <img src="Z:/picture/008/save_picture_604763.jpg" />
 </div>
 
 
@@ -228,7 +334,7 @@ Ableton Live Suite 9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604701.jpg" />
+  <img src="Z:/picture/008/save_picture_604701.jpg" />
 </div>
 
 
@@ -256,7 +362,7 @@ Tipard Blu-ray Player for Mac 6.2.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604607.jpg" />
+  <img src="Z:/picture/008/save_picture_604607.jpg" />
 </div>
 
 
@@ -282,7 +388,7 @@ FSNotes 5.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604601.jpg" />
+  <img src="Z:/picture/008/save_picture_604601.jpg" />
 </div>
 
 
@@ -308,7 +414,7 @@ uDock 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604590.jpg" />
+  <img src="Z:/picture/008/save_picture_604590.jpg" />
 </div>
 
 
@@ -334,7 +440,7 @@ Focus Professional 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604584.jpg" />
+  <img src="Z:/picture/008/save_picture_604584.jpg" />
 </div>
 
 
@@ -361,7 +467,7 @@ ON1 Resize AI 2022.1 v16.1.1.12237 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604496.jpg" />
+  <img src="Z:/picture/008/save_picture_604496.jpg" />
 </div>
 
 
@@ -387,7 +493,7 @@ CADintosh X 8.8.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604492.jpg" />
+  <img src="Z:/picture/008/save_picture_604492.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ Permute 3 v3.9.1 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604489.jpg" />
+  <img src="Z:/picture/008/save_picture_604489.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604484.jpg" />
+  <img src="Z:/picture/008/save_picture_604484.jpg" />
 </div>
 
 
@@ -465,7 +571,7 @@ Downie 4 v4.5.1 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604480.jpg" />
+  <img src="Z:/picture/008/save_picture_604480.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ Speech 1.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604479.jpg" />
+  <img src="Z:/picture/008/save_picture_604479.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ Blocs 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604477.jpg" />
+  <img src="Z:/picture/008/save_picture_604477.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604467.jpg" />
+  <img src="Z:/picture/008/save_picture_604467.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ Fix My iPhone 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604428.jpg" />
+  <img src="Z:/picture/008/save_picture_604428.jpg" />
 </div>
 
 
@@ -588,113 +694,6 @@ Fix My iPhone — это инструмент для восстановлени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C98A0EE8237E0EC97D3566731A4A8DA58D65A40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546718   (604427) от 25.04.2022
-
-Barcode 2.3 beta [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Barcode - создание штрих-кода.
-Несложное приложение, включает в себя коллекцию шаблонов штрих-кодов, которые можно легко настроить в соответствии с вашими потребностями.
-Barcode предлагает Вам все необходимые инструменты, чтобы сделать свои собственные этикетки штрих-кода с очень небольшим усилием: приложение предоставляет шаблоны для наиболее популярных форматов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2022Разработчик: © 2022 Appsforlife LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D550ADF8E829BC5C726B2505DFC2CE790D9C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546724   (604422) от 25.04.2022
-
-ConceptDraw DIAGRAM 15 v15.1.0.404 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощные решения для бизнес-чертежей и диаграмм. Новейшая редакция ConceptDraw DIAGRAM (ранее известная как ConceptDraw PRO) гарантирует, что она по-прежнему остается ведущим в мире профессиональным и простым в использовании программным обеспечением для построения бизнес-диаграмм. ConceptDraw DIAGRAM предоставляет полный спектр решений для бизнес-графической документации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2022Разработчик: © 1993 — 2021 CS Odessa Corp.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBC123CE9216B32E53F364FE26A0609073CD2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546780   (604417) от 25.04.2022
-
-Pixelmator Pro 2.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2022Разработчик: © 2022 Pixelmator TeamПоддерживаемая ОС: macOS 10.15Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41C768844FDE4D026688D56172BC5D5005F0974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148250   (604409) от 05.07.2017
-
-Typeeto 1.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typeeto - это приложение, которое позволяет использовать клавиатуру Mac как Bluetooth клавиатуру для других устройств, таких как iPad, iPhone, Apple TV, Android устройства, и т.д. Используйте полномасштабную клавиатуру для ввода текста, который будет отображаться в режиме реального времени на экране устройства. Вам не нужно устанавливать какие-либо другие приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 июля 2017Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD5E55ECF7360F8046EECEAA1E904E0D8EA0232
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1153715   (557973) от 27.07.2017
+
+Китайские сказки | (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый четвертый житель Земли слышал в детстве эти волшебные, красивые и мудрые истории. Издавна народные сказки в Поднебесной, как ценную реликвию, передавали из уст в уста, из поколения в поколение. Как и большинство сказок мира, китайские сказки учат юную душу любви, учат не быть жадными, завистливыми и злыми. Из них ребята узнают, что счастье находит лишь тех, (   Читать дальше...   )Жанр: Детская литература, сказкиПродолжительность: 15:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A21C9D4E092D16B6C15C7A9C4354FE34394319F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924818   (557531) от 04.08.2015
+
+Анатолий Рыбаков | Выстрел (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557531.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третьей части популярной детской трилогии вас ждет рассказ о таинственном убийстве инженера Зимина и о том, как неразлучные друзья: Миша, Генка и Славка помогают в расследовании этого преступления. Главным подозреваемым считается местный хулиган, гроза всего района. Но Миша отказывается верить в его виновность и начинает самостоятельное расследование, в ходе которого (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280F6C590938B72709949518C34F621CBEB0C0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557068   (556520) от 12.06.2022
+
+Александра Шахова | Счастье измеряется в хвостах (2022) [MP3, Александра Шахова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга эта, написанная в полуфантазийной манере, пронизанная тёплым и тонким юмором, – не только о взаимоотношениях людей с их «братьями меньшими». Она о гармонии, которая достижима лишь в том случае, когда человек понимает, что его четырёхлапые, хвостатые, усатые домочадцы – не игрушки, а равноправные с человеком Божьи создания, «заколдованные дети», не менее детей (   Читать дальше...   )Жанр: Детская литература, Юмористическая прозаПродолжительность: 12:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09ACC4D09D4EF08B7798E25576FA50CE17C84704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306477   (555670) от 04.06.2019
 
 Виктория Ледерман | Теория невероятностей (2019) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555670.jpg" />
+  <img src="Z:/picture/008/save_picture_555670.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554259.jpg" />
+  <img src="Z:/picture/008/save_picture_554259.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552653.jpg" />
+  <img src="Z:/picture/008/save_picture_552653.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546400.jpg" />
+  <img src="Z:/picture/008/save_picture_546400.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546359.jpg" />
+  <img src="Z:/picture/008/save_picture_546359.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540567.jpg" />
+  <img src="Z:/picture/008/save_picture_540567.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538537.jpg" />
+  <img src="Z:/picture/008/save_picture_538537.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537266.jpg" />
+  <img src="Z:/picture/008/save_picture_537266.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536490.jpg" />
+  <img src="Z:/picture/008/save_picture_536490.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535771.jpg" />
+  <img src="Z:/picture/008/save_picture_535771.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535482.jpg" />
+  <img src="Z:/picture/008/save_picture_535482.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534848.jpg" />
+  <img src="Z:/picture/008/save_picture_534848.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534310.jpg" />
+  <img src="Z:/picture/008/save_picture_534310.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531163.jpg" />
+  <img src="Z:/picture/008/save_picture_531163.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529274.jpg" />
+  <img src="Z:/picture/008/save_picture_529274.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526704.jpg" />
+  <img src="Z:/picture/008/save_picture_526704.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526636.jpg" />
+  <img src="Z:/picture/008/save_picture_526636.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526549.jpg" />
+  <img src="Z:/picture/008/save_picture_526549.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525672.jpg" />
+  <img src="Z:/picture/008/save_picture_525672.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525664.jpg" />
+  <img src="Z:/picture/008/save_picture_525664.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524953.jpg" />
+  <img src="Z:/picture/008/save_picture_524953.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524832.jpg" />
+  <img src="Z:/picture/008/save_picture_524832.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524496.jpg" />
+  <img src="Z:/picture/008/save_picture_524496.jpg" />
 </div>
 
 
@@ -599,87 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888684533E3BDA5B8446642584AF5105A39D3296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372007   (523149) от 05.08.2011
-
-ООО "Вимбо" | Тёма. Русские народные сказки [2010] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Промо-диск от детского питания "Тёма". Это твой мир. Настроение у меня просто сказочное!Жанр: CказкиПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5247EDC3ABD9E3D2C5F79F619E2FFFC867460858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372417   (522332) от 06.08.2011
-
-"Нигде не купишь" | Сказки бабушки Британии (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный подбор сказочного материала - от классических волшебных историй до типично английских сказок-баллад.
-
-Многообразие сказочных героев и персонажей: умные и глупые животные, коварные ведьмы и добрые волшебники, черти и ангелы-хранители, хитрые эльфы и злые великаны, чудаки и простаки, прекрасные принцы и очаровательные принцессы, умельцы и удальцы.
-(   Читать дальше...   )Жанр: CказкиПродолжительность: 08:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8556B7DBE5BA2DCA9FE97AEEDE1B1FFB1A51A710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560210   (522043) от 28.06.2022
-
-Юрий Сотник | Маска (2022) [MP3, Елена Фортушнова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята решили отлить из гипса  маску для школьного музея. Для модели был выбран второклассни Гога Люкин, несомненно в будущем- великий композитор. Но что-то пошло не так....   Рассказ учит просчитывать последствия своих действий и не бояться ответственности.Жанр: Детская литератураПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698051251386C99BEA9135096F415F614EDD05CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

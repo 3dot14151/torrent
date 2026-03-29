@@ -1,3 +1,111 @@
+###  Публикация: 1680745   (133915) от 30.11.2023
+
+NCH DreamPlan Plus 8.61 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуализируйте и спланируйте дом своей мечты с помощью реалистичной 3D-модели дома.
+• Создайте план дома, квартиры или квартиры
+• Настраиваемые цвета, текстуры, мебель, украшения и многое другое
+• Планируйте идеи внешнего озеленения и садовых пространствТип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4E3A30061D008287306583ADBEBA43315B3525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680615   (133896) от 30.11.2023
+
+Mp3tag 1.8.11 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91097EA81F7169120BDBA42D16475324546D7F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680873   (133886) от 30.11.2023
+
+AirMail Pro 5 v.5.6.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC728D1D1372A53B5A7352B29E91824C273761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680747   (133866) от 30.11.2023
+
+uDock 4.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133866.jpg" />
+</div>
+
+
+###  Подробнее
+
+μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838C6CD15814AD282C7313E807780B153A723574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680769   (133819) от 30.11.2023
 
 Affinity Publisher 2 v.2.3.0  [Multi]
@@ -6,7 +114,7 @@ Affinity Publisher 2 v.2.3.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133819.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Affinity Designer 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133797.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Affinity Photo 2 v.2.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133748.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Ableton Live Suite 12 Beta 12.0b20 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133737.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Capture One 23 Pro 16.3.2.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133693.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ URL Manager Pro 6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133509.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ GoodTask 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133505.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Magic Disk Cleaner 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133479.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133475.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ Wondershare PDFelement Pro OCR 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133471.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ YT Saver Video Downloader & Converter for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133469.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ AnyGo 6.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133467.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ MediaInfo for Mac 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133455.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ Topaz Video AI for Mac 4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133421.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133371.jpg" />
 </div>
 
 
@@ -403,7 +511,7 @@ Topaz Photo AI for Mac 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133358.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133217.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ OmniReader Pro for Mac 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132997.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ Final Cut Pro X 10.0.7 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132889.jpg" />
 </div>
 
 
@@ -511,7 +619,7 @@ F1 2012 [Ru+multi] [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131187.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ ON1 Portrait AI 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130428.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ Focusplan Pro - Mind Map 1.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130390.jpg" />
 </div>
 
 
@@ -574,110 +682,6 @@ Focusplan - это мощное, полнофункциональное и ги�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DE3FED17C27C8D85E0C81115913C3C04B7BD3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524933   (130388) от 18.01.2022
-
-ON1 HDR 2022.1 v16.1.0.11675 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130388.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BC06D8262684E19D1DBA705F730600F38D207F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524943   (130386) от 18.01.2022
-
-ON1 Resize 2022.1 v16.1.0.11675 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130386.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Resize (ранее известный как Perfect Resize Standard) - это простое приложение для изменения размера изображений, которое предоставляет набор инструментов, предназначенных для подготовки ваших фотографий к печати. Организовать и изменить размер. ON1 Изменение размера стало намного лучше. NEW ON1 Resize теперь включает в себя один из самых быстрых способов просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70DA37E8CA0AA6A03A8ABFF4725130EEAD11454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524934   (130384) от 18.01.2022
-
-ON1 NoNoise AI 2022.1 v16.1.0.11675 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4498DFCF04ACD16615A1E3816DA08206A30B6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524928   (130382) от 18.01.2022
-
-ON1 Effects 2022.1 v16.1.0.11675 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D341D5BB990912B52ECCACC7DB3F674B45D6833F
 ```
 
 https://mybot314.ru/tekegram_catalog/

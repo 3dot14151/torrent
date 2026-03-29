@@ -6,7 +6,7 @@ CareUEyes 1.1.20 Portable by Joo Seng [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749827.jpg" />
+  <img src="Z:/picture/008/save_picture_749827.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Game WideScreener 1.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749823.jpg" />
+  <img src="Z:/picture/008/save_picture_749823.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MKVToolNix 31.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749821.jpg" />
+  <img src="Z:/picture/008/save_picture_749821.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ StartIsBack++ 2.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749815.jpg" />
+  <img src="Z:/picture/008/save_picture_749815.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ StartIsBack++ 2.8 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749814.jpg" />
+  <img src="Z:/picture/008/save_picture_749814.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CleanMyPC 1.10.0.1991 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749809.jpg" />
+  <img src="Z:/picture/008/save_picture_749809.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Waterfox Current G4.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749791.jpg" />
+  <img src="Z:/picture/008/save_picture_749791.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Google Chrome 44.0.2369.0 Developer [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749777.jpg" />
+  <img src="Z:/picture/008/save_picture_749777.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ABBYY Comparator 13.0.101.87 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749774.jpg" />
+  <img src="Z:/picture/008/save_picture_749774.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Advanced SystemCare Ultimate 9.0.1.644 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749746.jpg" />
+  <img src="Z:/picture/008/save_picture_749746.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Classic Shell 4.2.5 DC 21.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749744.jpg" />
+  <img src="Z:/picture/005/save_picture_749744.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Duplicate Cleaner Pro 4.0.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749735.jpg" />
+  <img src="Z:/picture/008/save_picture_749735.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ YouTube By Click Premium 2.2.98 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749703.jpg" />
+  <img src="Z:/picture/008/save_picture_749703.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Hekasoft Backup & Restore 0.81 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749696.jpg" />
+  <img src="Z:/picture/008/save_picture_749696.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SiSoftware Sandra Lite 20/21 R9a (версия 31.66) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749671.jpg" />
+  <img src="Z:/picture/008/save_picture_749671.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Opera 82.0.4227.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749669.jpg" />
+  <img src="Z:/picture/008/save_picture_749669.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Slate Digital - Fresh Air 1.0.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749667.jpg" />
+  <img src="Z:/picture/008/save_picture_749667.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Acronis True Image 19.0.6569 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749619.jpg" />
+  <img src="Z:/picture/005/save_picture_749619.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AdminPE10 1.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749606.jpg" />
+  <img src="Z:/picture/005/save_picture_749606.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ K-Lite Codec Pack 14.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749597.jpg" />
+  <img src="Z:/picture/005/save_picture_749597.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VeraCrypt 1.25.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749559.jpg" />
+  <img src="Z:/picture/005/save_picture_749559.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AVG AntiVirus 2015 15.0.5941 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749538.jpg" />
+  <img src="Z:/picture/008/save_picture_749538.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ IObit Driver Booster Pro 3.4.0.769 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749483.jpg" />
+  <img src="Z:/picture/008/save_picture_749483.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Sublime Text 3 Build 3114 Beta + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749482.jpg" />
+  <img src="Z:/picture/008/save_picture_749482.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Kaspersky Internet Security 2017 17.0.0.433 Beta [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749480.jpg" />
+  <img src="Z:/picture/008/save_picture_749480.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Acronis True Image 19.0.6569 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749478.jpg" />
+  <img src="Z:/picture/008/save_picture_749478.jpg" />
 </div>
 
 

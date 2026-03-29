@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730107.jpg" />
+  <img src="Z:/picture/008/save_picture_730107.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730106.jpg" />
+  <img src="Z:/picture/008/save_picture_730106.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730105.jpg" />
+  <img src="Z:/picture/008/save_picture_730105.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730103.jpg" />
+  <img src="Z:/picture/008/save_picture_730103.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ PullTube v0.9.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730102.jpg" />
+  <img src="Z:/picture/008/save_picture_730102.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ RapidWeaver 8 v8.1.5 (20654)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730099.jpg" />
+  <img src="Z:/picture/008/save_picture_730099.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Studies 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730096.jpg" />
+  <img src="Z:/picture/008/save_picture_730096.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730095.jpg" />
+  <img src="Z:/picture/008/save_picture_730095.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730089.jpg" />
+  <img src="Z:/picture/008/save_picture_730089.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Vellum 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730088.jpg" />
+  <img src="Z:/picture/008/save_picture_730088.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Au Pairs - Playing with a Different Sex (1981) Reissue, 1992, RPM Records [FLAC|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730085.jpg" />
+  <img src="Z:/picture/008/save_picture_730085.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730064.jpg" />
+  <img src="Z:/picture/008/save_picture_730064.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730063.jpg" />
+  <img src="Z:/picture/008/save_picture_730063.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Master PDF Editor 5.3.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730062.jpg" />
+  <img src="Z:/picture/008/save_picture_730062.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ EverWeb 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730059.jpg" />
+  <img src="Z:/picture/008/save_picture_730059.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730058.jpg" />
+  <img src="Z:/picture/008/save_picture_730058.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730056.jpg" />
+  <img src="Z:/picture/008/save_picture_730056.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.22 (81348) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730055.jpg" />
+  <img src="Z:/picture/008/save_picture_730055.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ ExamDiff Pro Master Edition 10.0.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730054.jpg" />
+  <img src="Z:/picture/008/save_picture_730054.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ PullTube 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730051.jpg" />
+  <img src="Z:/picture/008/save_picture_730051.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730050.jpg" />
+  <img src="Z:/picture/008/save_picture_730050.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ ExamDiff Pro Master Edition 10.0.1.8 RePack (& Portable) by elchupacabra 10.0.1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730047.jpg" />
+  <img src="Z:/picture/008/save_picture_730047.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730044.jpg" />
+  <img src="Z:/picture/008/save_picture_730044.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730041.jpg" />
+  <img src="Z:/picture/008/save_picture_730041.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Michael Chapman - 50 (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Countr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730040.jpg" />
+  <img src="Z:/picture/008/save_picture_730040.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730038.jpg" />
+  <img src="Z:/picture/008/save_picture_730038.jpg" />
 </div>
 
 

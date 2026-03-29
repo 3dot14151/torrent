@@ -1,3 +1,59 @@
+###  Публикация: 1514860   (213645) от 05.12.2021
+
+Ефимов А.В. (ред.) | Сборник задач по математике для втузов [3 книги] (1981 - 1984) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое издание известного сборника задач по математике для втузов, охватывающего множество разделов высшей математики.
+Книга 1. Линейная алгебра и основы математического анализа
+Книга 2. Специальные разделы математического анализа
+Книга 3. Специальные курсыЖанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE4DFB252241FF62871519BDFC5211AE840B3C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832403   (213505) от 30.10.2025
+
+С.Я. Адзерихо, И.М. Полонский, Н.А. Стодольник | Введение в линейную алгебру, теорию поля и ряды Фурье (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для технологических специальностей втузов.
+Книга состоит из теоретических положений, которые подкрепляются большим количеством разнообразных примеров и задач, что делает её весьма удобной для студентов-заочников и студентов, занимающихся на вечерних отделениях вузов.Жанр: МатематикаИздательство: Вышэйшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382C71F19646931F7FDA14999563F3082CB8FF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558745   (213168) от 22.06.2022
 
 Г.И. Левиев, М.Р. Трунин | Физика. Научись решать задачи сам (2022) [PDF]
@@ -6,7 +62,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213168.jpg" />
+  <img src="Z:/picture/005/save_picture_213168.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213056.jpg" />
+  <img src="Z:/picture/005/save_picture_213056.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213036.jpg" />
+  <img src="Z:/picture/005/save_picture_213036.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213032.jpg" />
+  <img src="Z:/picture/005/save_picture_213032.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212793.jpg" />
+  <img src="Z:/picture/005/save_picture_212793.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212259.jpg" />
+  <img src="Z:/picture/005/save_picture_212259.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212182.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211774.jpg" />
+  <img src="Z:/picture/005/save_picture_211774.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211667.jpg" />
+  <img src="Z:/picture/005/save_picture_211667.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211641.jpg" />
 </div>
 
 
@@ -269,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211625.jpg" />
+  <img src="Z:/picture/005/save_picture_211625.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211475.jpg" />
+  <img src="Z:/picture/005/save_picture_211475.jpg" />
 </div>
 
 
@@ -321,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211468.jpg" />
 </div>
 
 
@@ -347,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211455.jpg" />
 </div>
 
 
@@ -373,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211454.jpg" />
+  <img src="Z:/picture/005/save_picture_211454.jpg" />
 </div>
 
 
@@ -399,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211434.jpg" />
+  <img src="Z:/picture/005/save_picture_211434.jpg" />
 </div>
 
 
@@ -426,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211394.jpg" />
 </div>
 
 
@@ -453,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211317.jpg" />
 </div>
 
 
@@ -479,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211266.jpg" />
 </div>
 
 
@@ -505,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211249.jpg" />
 </div>
 
 
@@ -532,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211160.jpg" />
+  <img src="Z:/picture/005/save_picture_211160.jpg" />
 </div>
 
 
@@ -558,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211120.jpg" />
 </div>
 
 
@@ -585,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211099.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211060.jpg" />
 </div>
 
 
@@ -624,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E7C5BBDD95F18F791CA9A6E618F41AA25FE2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601937   (210989) от 03.01.2023
-
-С. В. Анофрикова | Методика преподавания физики в средней школе: Частные вопросы. (1987) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210989.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрен научно-методический анализ содержания всех разделов школьного курса физики, соответствующий программе одиннадцатилетней средней школы, дана методика формирования основных физических понятий, теорий, законов, изучаемых в средней школе, а также конкретные методические рекомендации методологического, мировоззренческого и воспитательного характера. (   Читать дальше...   )Жанр: физика, учебное пособие для студентов пединститутов по физико-математической специальностиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC91E671BFD14776CE9F22DC875ECA501508B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601969   (210952) от 03.01.2023
-
-В.А. Дубынин | Физиология сенсорных и двигательных систем (2022) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210952.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 лекций по Физиологии сенсорных и двигательных системЖанр: ФизиологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B737849681732FF91D517F15256ADC1527ECF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

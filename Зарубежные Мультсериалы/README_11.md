@@ -1,3 +1,55 @@
+###  Публикация: 1488944   (834780) от 10.10.2021
+
+Что, если...? / What If...? (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_834780.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Что если…?» (англ. What If…?) — американский анимационный сериал, созданный А.К. Брэдли для сервиса потокового вещания Disney+ и основанный на одноимённой серии комиксов Marvel. Четвёртый по счёту телесериал четвёртой фазы кинематографической вселенной Marvel. Каждый из эпизодов раскроет, что могло случиться, если бы ключевые события фильмов киновселенной произошли (   Читать дальше...   )Производство: США / Flying Bark Productions, Marvel Studios Inc.Жанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Брайан ЭндрюсПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Russian (Forced, Full), English (SDH) и другиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F8A2D7D8A87860DCBCA81EE4D048B12FDA5289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719043   (834258) от 03.04.2014
+
+Кролик Джазит / Rabbit of Dzhazit (2013) WEB-DL [H.264/720p-LQ] (Серии 01-12 из 52) [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_834258.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кролик Джазит» – красочный китайский мультсериал, населенный забавными и выразительными персонажами. Понравится любому ребенку от 3 лет. Вполне возможно, что и взрослые с удовольствием присоединятся к маленьким зрителям. «Кролик Джазит» погружает в мир музыки и удивительных приключений ушастого героя, который день за днем делает все новые открытия. Маленькому Кролику (   Читать дальше...   )Жанр: Компьютерная анимация, Приключения, ДетскийРежиссер: Чжан Юй / Cheung YuПерсонажи: Кролик Джазит и другиеПеревод: ДублированныйОзвучка / Автор перевода: Студия дубляжа «Back Board Cinema»
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C42C9A33ECF4D032B5114A9B88839D497A016E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114045   (833024) от 14.03.2017
 
 Семейка Крудс. Начало / Dawn of the Croods (2015) SATRip [H.264] QTV (сезон 1-2, серии 26 из 26) [UKR]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833024.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832781.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832685.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832542.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_829395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829395.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828530.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827358.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825876.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ LEGO Звездные войны:Приключения изобретателе
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824094.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823288.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823146.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821988.jpg" />
+  <img src="Z:/picture/008/save_picture_821988.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821082.jpg" />
+  <img src="Z:/picture/008/save_picture_821082.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820814.jpg" />
+  <img src="Z:/picture/008/save_picture_820814.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819632.jpg" />
+  <img src="Z:/picture/008/save_picture_819632.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819118.jpg" />
+  <img src="Z:/picture/008/save_picture_819118.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818810.jpg" />
+  <img src="Z:/picture/008/save_picture_818810.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817900.jpg" />
+  <img src="Z:/picture/008/save_picture_817900.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816769.jpg" />
+  <img src="Z:/picture/008/save_picture_816769.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816750.jpg" />
+  <img src="Z:/picture/008/save_picture_816750.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814973.jpg" />
+  <img src="Z:/picture/008/save_picture_814973.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814572.jpg" />
+  <img src="Z:/picture/008/save_picture_814572.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812894.jpg" />
+  <img src="Z:/picture/008/save_picture_812894.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812702.jpg" />
+  <img src="Z:/picture/008/save_picture_812702.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:834EB34567DF464AECD3E0B459238F79FE6301C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883128   (810862) от 01.04.2015
-
-Чародейки / W.I.T.C.H. (2006) DVDRip [H.264] (Сезон 2, серии 26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоначально на планете Меридиан, мире, живущем параллельно с Землей, правила легитимная власть в лице Королевы. Но в результате государственного переворота на планете установился режим принца Фобоса. Законная наследница меридианского трона Элион, дочь последней королевы была переправлена на Землю, в небольшой город Хиттерфилд верными последней королеве слугами. (   Читать дальше...   )Производство: Франция, SIP Animation ParisЖанр: Рисованная анимация, ПриключенияРежиссер: Норман ЛеБланкПерсонажи: Вилл Вэндом, Ирма Лэр, Тарани Кук, Корнелия Хейл, Хай ЛинПеревод: Полный дубляж, вкл. песниЯзык субтитров: русский, украинскийПродолжительность: 26 серии по 00:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFAE96C1804713F04E47F88B2DAB9519834F86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504761   (809916) от 24.10.2021
-
-Майя и три воина / Maya and the Three (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) Netflix
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из четырёх волшебных королевств живёт отважная и непокорная принцесса-воительница по имени Майя. Однажды древнее пророчество вынуждает её отправиться в захватывающее путешествие, чтобы сокрушить богов и спасти человеческий род.Производство: Мексика, США / Maya Entertainment, Netflix AnimationЖанр: мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресАктеры: Зои Салдана, Хейли Эрмида, Каролина Равасса, Изабела Мерсед, Стефани Беатриз, Дэнни Трехо, Рита Морено, Гаэль Гарсиа Берналь, Куин Латифа, Альфред МолинаПеревод: ДублированныйСубтитры: русские (forced, full), английские (full), украинские (full)Продолжительность: ~00:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74EE249C25A58B6972A6D18BC7E89A5F6A824FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

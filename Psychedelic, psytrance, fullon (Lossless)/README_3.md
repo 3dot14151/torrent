@@ -6,7 +6,7 @@ VA - Melodic Morning (1-5) (2000-2003) [FLAC|Lossless|tracks] <Goa-Trance, Psy-T
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520223.jpg" />
+  <img src="Z:/picture/008/save_picture_520223.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Full On (1-7) (1998-2004) [FLAC|Lossless|tracks|tracks + .cue] <Goa-Trance,
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517214.jpg" />
+  <img src="Z:/picture/008/save_picture_517214.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Audiotec (2004-2018) [FLAC|Lossless|tracks|tracks + .cue] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513884.jpg" />
+  <img src="Z:/picture/008/save_picture_513884.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Melicia (2003,2006) [FLAC|Lossless|tracks|tracks + .cue] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512853.jpg" />
+  <img src="Z:/picture/008/save_picture_512853.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Analog Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485183.jpg" />
+  <img src="Z:/picture/008/save_picture_485183.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468260.jpg" />
+  <img src="Z:/picture/008/save_picture_468260.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Astral Projection | SFX - Discography 30 Releases (1995-2019) Phonokol, Trust In
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456301.jpg" />
+  <img src="Z:/picture/008/save_picture_456301.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ RA - Earthcall (2016) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423788.jpg" />
+  <img src="Z:/picture/008/save_picture_423788.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - ZNA Gathering Retro - Futuristic Compilation II (2019) [FLAC|Lossless|WEB-D
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376713.jpg" />
+  <img src="Z:/picture/008/save_picture_376713.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Astronauts in The Solar System (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376711.jpg" />
+  <img src="Z:/picture/008/save_picture_376711.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - JOOF DJ Sessions Volume 4 (Mixed by Fonarev) (2017) [FLAC|Lossless|WEB|trac
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372439.jpg" />
+  <img src="Z:/picture/008/save_picture_372439.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Heart of Goa v.4 (Compiled & Mixed by Ovnimoon) (2016) [FLAC|Lossless|WEB-D
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364191.jpg" />
+  <img src="Z:/picture/008/save_picture_364191.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Infected Mushroom - IM25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356649.jpg" />
+  <img src="Z:/picture/008/save_picture_356649.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Battle of the Future Buddhas - The Light Behind The Sun (2019) [FLAC|Lossless|WE
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309692.jpg" />
+  <img src="Z:/picture/008/save_picture_309692.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ascent - Deep Blue Sea (2020) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299537.jpg" />
+  <img src="Z:/picture/008/save_picture_299537.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Suduaya - Loveology (2018) [FLAC|Lossless|tracks] <Psychill, Downtempo, Psybient
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267616.jpg" />
+  <img src="Z:/picture/008/save_picture_267616.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Celestial Intelligence - Incandescent (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa 
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263978.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Synthatic - Take A Ride (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242030.jpg" />
+  <img src="Z:/picture/004/save_picture_242030.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Outsiders - Be As You Are (2019) [FLAC|Lossless|WEB|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216855.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Progressive Nation (Compiled by Liquid Soul & Ace Ventura) (2019) [FLAC|Los
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166508.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ DJ RumBuRak  - The Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161902.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ovnimoon - Carjecatma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159590.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Electric Universe - Sacred Geometry (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159566.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Infected Mushroom - Part of the Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Psy-
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141621.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Pan-Pot - Forte (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronica, Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135225.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Infected Mushroom - Dream Theater REBORN (2023) Single [FLAC|Lossless|WEB-DL|tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126477.jpg" />
 </div>
 
 

@@ -1,3 +1,112 @@
+###  Публикация: 1412278   (420627) от 28.09.2020
+
+MacX MediaTrans 7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420627.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaTrans – это iOS-менеджер. С помощью Программы возможно быстро переносить различные медиафайлы между iOS девайсами и компьютером. Отличительная функция Программы - это перенос медиа с возможностью удаления DRM-защиты iTunes.
+
+MediaTrans фокусируется на одном простом деле, и делает это очень хорошо — она позволяет импортировать и экспортировать музыку, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2020Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD672C931CA889AA0ADB671A2891160CA06CAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324767   (420477) от 11.09.2019
+
+Capture One Pro 12 v12.1.3 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Phase OneПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса программы зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3CCBD7BDFB137AAB9960CD40EB3143C6B94EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251082   (420404) от 30.09.2018
+
+liquivid Video Improve 2.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420404.jpg" />
+</div>
+
+
+###  Подробнее
+
+liquivid - интуитивно понятный, простой в использовании фото / видео редактор: очистить и улучшить все свои снимки с помощью одного клика, получить удовольствие от просмотра и поделиться воспоминаниями.
+
+liquivid предлагает множество привлекательных визуальных эффектов, исправляет искажения объектива, вызванные широкоугольными объективами (большинстве actioncams), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Razvan ChisuПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0227C8FB358D0382ABA0BDC9B5CC28F0EA24018D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250927   (420403) от 30.09.2018
+
+NetWorker - Network Info App 5.1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420403.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - легкий и простой в использовании инструмент, который показывает либо текущую скорость download and upload, либо трафик сеанса вашего сетевого адаптера. Информация отображается в виде небольшого изображения в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Sascha SimonПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий и Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EAABCEF8631A95F087B77840FA0F9FD3D56830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947250   (420390) от 16.10.2015
 
 Intensify CK (Pro) 1.2.0 [En]
@@ -6,7 +115,7 @@ Intensify CK (Pro) 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420390.jpg" />
+  <img src="Z:/picture/008/save_picture_420390.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Wondershare PDFelement Pro 7.6.7.3180 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420294.jpg" />
+  <img src="Z:/picture/008/save_picture_420294.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ GraphicConverter 10 10.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420275.jpg" />
+  <img src="Z:/picture/008/save_picture_420275.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Noiseless CK (Pro) 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420256.jpg" />
+  <img src="Z:/picture/008/save_picture_420256.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ CodeRunner 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420197.jpg" />
+  <img src="Z:/picture/008/save_picture_420197.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ ProPresenter 6 v6.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420193.jpg" />
+  <img src="Z:/picture/008/save_picture_420193.jpg" />
 </div>
 
 
@@ -167,7 +276,7 @@ Snapheal CK (Pro) 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420174.jpg" />
+  <img src="Z:/picture/008/save_picture_420174.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ SMART Utility 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420173.jpg" />
+  <img src="Z:/picture/008/save_picture_420173.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420132.jpg" />
+  <img src="Z:/picture/008/save_picture_420132.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ ExpanDrive 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420092.jpg" />
+  <img src="Z:/picture/008/save_picture_420092.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ AnyTrans for iOS 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420042.jpg" />
+  <img src="Z:/picture/008/save_picture_420042.jpg" />
 </div>
 
 
@@ -305,7 +414,7 @@ Polarr Photo Editor Pro 5.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420029.jpg" />
+  <img src="Z:/picture/008/save_picture_420029.jpg" />
 </div>
 
 
@@ -333,7 +442,7 @@ HyperDock 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420026.jpg" />
+  <img src="Z:/picture/008/save_picture_420026.jpg" />
 </div>
 
 
@@ -361,7 +470,7 @@ Adobe Acrobat Pro DC 20.012.20048 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420016.jpg" />
+  <img src="Z:/picture/008/save_picture_420016.jpg" />
 </div>
 
 
@@ -387,7 +496,7 @@ Adobe InDesign 2020 15.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420013.jpg" />
+  <img src="Z:/picture/008/save_picture_420013.jpg" />
 </div>
 
 
@@ -413,7 +522,7 @@ Apple iWork: Keynote 6.6, Numbers 3.6 & Pages 5.6 (upd 15.10.2015) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419999.jpg" />
+  <img src="Z:/picture/008/save_picture_419999.jpg" />
 </div>
 
 
@@ -439,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419865.jpg" />
+  <img src="Z:/picture/008/save_picture_419865.jpg" />
 </div>
 
 
@@ -465,7 +574,7 @@ Paragon NTFS for Mac 14.0.483 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419622.jpg" />
+  <img src="Z:/picture/008/save_picture_419622.jpg" />
 </div>
 
 
@@ -493,7 +602,7 @@ Camtasia 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419590.jpg" />
+  <img src="Z:/picture/008/save_picture_419590.jpg" />
 </div>
 
 
@@ -520,7 +629,7 @@ SSH Config Editor 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419520.jpg" />
+  <img src="Z:/picture/008/save_picture_419520.jpg" />
 </div>
 
 
@@ -549,7 +658,7 @@ iThoughtsX 4.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419453.jpg" />
+  <img src="Z:/picture/008/save_picture_419453.jpg" />
 </div>
 
 
@@ -575,7 +684,7 @@ Yep 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419382.jpg" />
+  <img src="Z:/picture/008/save_picture_419382.jpg" />
 </div>
 
 
@@ -589,113 +698,6 @@ Yep — это каталогизатор PDF-файлов, iWork и офисн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826F83F9CB985A362364E75FEC041BC4317505CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065626   (419339) от 23.10.2016
-
-Vitamin-R 2 v2.40 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vitamin-R 2 — продвинутый таймер для техники Pomodoro
-Каждый из нас постоянно сталкивается с ситуацией, когда необходимо сфокусироваться на выполнении задачи, но желанное состояние потока так и не приходит. Или, когда начав работать над очень важным для вас проектом, вдруг, через некоторое время, вы обнаруживаете себя на странице Facebook или бесцельно блуждающим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2016Разработчик: Rights Reserved.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCC794775A6AA55B30D6A29BF31E292A07217FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065587   (419079) от 23.10.2016
-
-VueScan Pro 9.5.59 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419079.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 октября 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877F85903BD06BF137AF0AE8D6E3F322B6E6E199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412471   (418464) от 29.09.2020
-
-Cisdem ContactsMate 5 v5.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Cisdem ContactsMate — эффективное решение для управления контактными данными. Приложение позволяет осуществлять резервное копирование всей контактной информации, редактировать поля контактных данных, а также экспортировать адресную книгу в форматы CSV, vCard, TXT, DocX, HTML, Excel, обеспечивая удобное резервное копирование и синхронизацию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868C65831056BE7247E00CB522BBAB1A51543A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412476   (418463) от 29.09.2020
-
-Multitouch 1.18.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch!
-
-Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA48F7E23EDDAF1CCF65578E4B0B7BE1F4C7AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

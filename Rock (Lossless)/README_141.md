@@ -1,3 +1,148 @@
+###  Публикация: 1514296   (217127) от 03.12.2021
+
+The Doors - L.A. Woman (1971) (50th Anniversary Deluxe Edition) Remastered 2021, Rhino-Elektra [FLAC 2.0|192/24|tracks|WEB-DL] <Blues rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Original Stereo Mix:
+01. The Changeling (4:23)
+02. Love Her Madly (3:21)
+03. Been Down So Long (4:43)(   Читать дальше...   )Жанр: Blues rock, Psychedelic RockПродолжительность: 03:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC6828998C3CCC85083D0E4D9042725D63A133A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652633   (217063) от 12.08.2023
+
+David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Lies Love (feat. Florence Welch) (2023 Remaster) [00:05:50]
+02. Every Drop of Rain (feat. Candie Payne & St. Vincent) (2023 Remaster) [00:05:33]
+03. You'll Be Taken Care Of (feat. Tori Amos) (2023 Remaster) [00:03:25]
+04. The Rose of Tacloban (feat. Martha Wainwright) (2023 Remaster) [00:02:34](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 2 CD, 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3226040866E16E32E3F106F841D799C5F55547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343562   (217050) от 07.12.2019
+
+Michael Damian - Love Is A Mystery (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 She's In A Different World
+2 On Our Time
+3 Heart Of Stone
+4 Will You Make Up Your Mind(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C3EB8CEAB617928E391B04E4FCA80C2A94114E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343608   (216980) от 07.12.2019
+
+Waterloo - First Battle (1970) Reissue, 1999, Musea ‎[FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet Again (3:05)
+02. Why May I Not Know (3:09)
+03. Tumblin' Jack (2:36)
+04. Black Born Children (3:45)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABAD60C55C5F4291ED4E5F7449321ED84A3B1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652495   (216953) от 12.08.2023
+
+Ekseption - Ekseption (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Electric Prog Rock, Neo-Classical, Classical Crossover, Fusion, Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 5Th [00:03:23]
+02. Dharma For One [00:03:28]
+03. Little X Plus [00:03:31]
+04. Sabre Dance [00:03:46](   Читать дальше...   )Жанр: Electric Prog Rock, Neo-Classical, Classical Crossover, Fusion, Jazz-RockПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0258EC668B23F8379C86918EA36DA7DDB1998E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084968   (216938) от 20.12.2016
 
 Stick Men - Prog Noir (2016) [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
@@ -6,7 +151,7 @@ Stick Men - Prog Noir (2016) [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216938.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Stotan Falls - The Passage (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216919.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Summer Rock - The Greatest Hits for Your Festival Adventures (2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216818.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Fantasy - 2 albums, 3CD (1973-1999) [FLAC|Lossless|image + .cue] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216778.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Styx - Edge Of The Century (1990) Japan Mini LP SHM-CD, 2016 [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216721.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Trans-Siberian Orchestra - The Ghosts Of Christmas Eve (2016) [FLAC|lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216568.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Dilemma - Random Acts Of Liberation (2018) [FLAC|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215845.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Electric Light Orchestra - A New World Record (1976) Remastered, 2006, 30th Anni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215692.jpg" />
+  <img src="Z:/picture/005/save_picture_215692.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Dr. Feelgood - Classic (1988) [FLAC|Lossless|tracks + .cue]<Pub Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215636.jpg" />
+  <img src="Z:/picture/005/save_picture_215636.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Richard Soucy - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215530.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Cordovas - The Rose of Aces (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215388.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Asia - Resonance (2010) The Omega Tour 2010 - Live In Basel, Switzerland, 4th Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215363.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Chris Norman - Just A Man (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215144.jpg" />
+  <img src="Z:/picture/005/save_picture_215144.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ The Samurai Of Prog - Beyond The Wardrobe (2020) [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215045.jpg" />
+  <img src="Z:/picture/005/save_picture_215045.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Cosmograf - Heroic Materials (2022) [FLAC|Lossless|image + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214716.jpg" />
+  <img src="Z:/picture/005/save_picture_214716.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ John Fogerty - Fogerty's Factory (2020) [FLAC|Lossless|image + .cue] <Country Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214705.jpg" />
+  <img src="Z:/picture/005/save_picture_214705.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Plini - Handmade Cities (2016) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214442.jpg" />
+  <img src="Z:/picture/005/save_picture_214442.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Glacier - Island In The Sky (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214023.jpg" />
+  <img src="Z:/picture/005/save_picture_214023.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ John Fogerty - 14 albums, 25 CD (1973-2020) [FLAC|Lossless|image + .cue | tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213959.jpg" />
+  <img src="Z:/picture/005/save_picture_213959.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ David Knopfler - Shooting for the Moon (2021) [FLAC|Lossless|WEB-DL|tracks] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213889.jpg" />
+  <img src="Z:/picture/005/save_picture_213889.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213634.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C34FAFB4478024FF8F0ECD34113CCE59826DF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653876   (213600) от 18.08.2023
-
-Glen Matlock - Consequences Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head on a Stick (3:39)
-02. Consequences Coming (3:48)
-03. Magic Carpet Ride (3:29)
-04. Speaking in Tongues (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893422E57AF39EEEA80442126BFEEA1D84BA9B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651467   (213391) от 13.06.2022
-
-Gary Hughes - Once And Future King: Part I & II (2003) [WavPack|Lossless]<Melodic Hard Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kill The King [05:51]
-02.  There By The Grace Of The Gods (Go I) [05:10]
-03.  I Still Love You (I Still Do) [04:06]
-04.  Oceans Of Tears [04:30](   Читать дальше...   )Жанр: Melodic Hard Rock OperaПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE96C19AA548AACC41A67B5904751470B0BD3E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563259   (212622) от 13.07.2022
-
-Alan Parsons - From The New World (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алан Парсонс (Alan Parsons) объявил о выпуске нового альбома “From the New World”. Он поступит в продажу 15 июля в нескольких форматах, включая CD, CD/DVD, винил и бокс-сет.01.   Fare Thee Well 04:36
-02.   The Secret  04:16
-03.   Uroboros (featuring Tommy Shaw of STYX)  04:07
-04.   Don't Fade Now  04:15(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D638F28C85FFB20BB434511142C6C01055D2D91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831250   (212463) от 28.10.2025
-
-David Gilmour - The Luck And Strange Concerts (2025) 2XCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212463.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 5 A.M.
-02. Black Cat
-03. Luck and Strange(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7CED7C68E87B9EFCA542408F9DEAC30F437AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376627   (212101) от 24.07.2022
-
-Traveling Wilburys (The Traveling Wilburys) - 3 Albums, 2 Singles, 10CD (1988-2016) [FLAC|Lossless|image + .cue | tracks+.cue] <Classic Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212101.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Traveling Wilburys — супергруппа, участниками которой являлись Джордж Харрисон, Боб Дилан, Том Петти, Рой Орбисон и Джефф Линн, но под вымышленными именами. Название группы произошло от студийного сленга. «Wilburys» был жаргонным словом, выдуманным Харрисоном и Линном во время записи альбома Cloud Nine. Им они характеризовали огрехи записи, которые устранялись (   Читать дальше...   )--------------------------
-
-01. Nobody's Child (3:27)
-02. Luminere (Dave Stewart) (4:23)(   Читать дальше...   )Жанр: Classic Rock, Rock |Продолжительность: 05:30:10 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BA293C3D5EC1A92F55D7F474203523DAACE3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

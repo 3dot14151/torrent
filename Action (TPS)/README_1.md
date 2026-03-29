@@ -1,3 +1,159 @@
+###  Публикация: 1851739   (1055231) от 03.02.2026
+
+Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay [Gold Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055231.jpg" />
+</div>
+
+
+###  Подробнее
+
+После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то.Тип издания: RepackРазработчик: CAPCOMЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B9D32B15CB134BEE284ABFC92573AC593C067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851501   (1055139) от 02.02.2026
+
+Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx: Shards of Darkness – это сиквел игры Styx: Master of Shadows, выпущенной в октябре 2014 года, который продолжит повествование о гоблине Стиксе. После множества положительных отзывов прессы и теплого приема среди игроков, независимое французское издательство Focus Home Interactive (Blood Bowl, Sherlock Holmes) и компания Cyanide Studios (Blood Bowl, Game of (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710DD998C45E400E56250442F70CEBC30DAB4CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851039   (1054835) от 31.01.2026
+
+Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack dixen18 [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический научно-фантастический хоррор с элементами выживания возвращается: погрузитесь в атмосферу космического ужаса, воссозданную с нуля в мельчайших деталях. Умопомрачительная реалистичная графика, пугающе атмосферный звук и усовершенствованный игровой процесс ремейка дополняют неповторимый дух оригинальной Dead Space.Тип издания: RepackРазработчик: MotiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D213231EB8B93A50D2E669D912E2B1FF03A316F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850743   (1054716) от 29.01.2026
+
+Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Let'sРlay [Digital Deluxe]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такой игры про Соника вы ещё не видели! Откройте новые миры вместе с шустрым ёжиком Соником! В уникальном мире, полном приключений и загадок, вас ждут полчища могущественных врагов. Покоряйте новые высоты и с невероятной скоростью свободно перемещайтесь по пяти огромным островам Звездопада. Обретите силу Древних и сразитесь с и загадочными неприятелями. Вас ждёт (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic TeamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBA7266FBB4AC5418C5F8606C1E0692D65397CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850828   (1054684) от 30.01.2026
+
+Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Wanterlude [Digital Deluxe]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такой игры про Соника вы ещё не видели! Откройте новые миры вместе с шустрым ёжиком Соником! В уникальном мире, полном приключений и загадок, вас ждут полчища могущественных врагов. Покоряйте новые высоты и с невероятной скоростью свободно перемещайтесь по пяти огромным островам Звездопада. Обретите силу Древних и сразитесь с и загадочными неприятелями. Вас ждёт (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic TeamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14E8D007628F6C9435D8114914B6F9E50CEEE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850864   (1054649) от 30.01.2026
+
+Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack dixen18 [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такой игры про Соника вы ещё не видели! Откройте новые миры вместе с шустрым ёжиком Соником! В уникальном мире, полном приключений и загадок, вас ждут полчища могущественных врагов. Покоряйте новые высоты и с невероятной скоростью свободно перемещайтесь по пяти огромным островам Звездопада. Обретите силу Древних и сразитесь с и загадочными неприятелями. Вас ждёт (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic TeamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0CB62E457022E099D99CFFB114B152480730BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850888   (1054582) от 30.01.2026
 
 Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack FitGirl [Digital Deluxe Edition]
@@ -6,7 +162,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack FitGirl [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054582.jpg" />
+  <img src="Z:/picture/005/save_picture_1054582.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053919.jpg" />
+  <img src="Z:/picture/005/save_picture_1053919.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Dead Space (2023) [Ru] (Build 10602756/dlc) Repack HardwareMining [Digital Delux
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053916.jpg" />
+  <img src="Z:/picture/005/save_picture_1053916.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Deadly Premonition (2013) [Multi] (2.1.0.6) License GOG [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052896.jpg" />
+  <img src="Z:/picture/005/save_picture_1052896.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Dead Space (2023) [Ru/En] (Build 10602756/dlc) Repack Decepticon [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052562.jpg" />
+  <img src="Z:/picture/005/save_picture_1052562.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.3.0/dlc) Repack HardwareMining [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052436.jpg" />
+  <img src="Z:/picture/005/save_picture_1052436.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052386.jpg" />
+  <img src="Z:/picture/005/save_picture_1052386.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack seleZen [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052385.jpg" />
+  <img src="Z:/picture/005/save_picture_1052385.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Wanterlude [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052342.jpg" />
+  <img src="Z:/picture/005/save_picture_1052342.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack FitGirl [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052248.jpg" />
+  <img src="Z:/picture/005/save_picture_1052248.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051924.jpg" />
+  <img src="Z:/picture/005/save_picture_1051924.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051870.jpg" />
+  <img src="Z:/picture/005/save_picture_1051870.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Alan Wake Remastered (2021) [Ru/En] (34885/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051758.jpg" />
+  <img src="Z:/picture/005/save_picture_1051758.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051751.jpg" />
+  <img src="Z:/picture/005/save_picture_1051751.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Gotham Knights (2022) [Ru/Multi] (6.0.21.0/dlc) Repack Let'sРlay [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051682.jpg" />
+  <img src="Z:/picture/005/save_picture_1051682.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051622.jpg" />
+  <img src="Z:/picture/005/save_picture_1051622.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Ghost of Tsushima / Призрак Цусимы (2024) [Ru/Multi] (1053.8.1212.1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051376.jpg" />
+  <img src="Z:/picture/005/save_picture_1051376.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack Other s [Digital Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051282.jpg" />
+  <img src="Z:/picture/005/save_picture_1051282.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Dead Space (2023) [Ru/Multi] (1.1.14.17871/dlc) Repack Let'sРlay [Deluxe]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051009.jpg" />
+  <img src="Z:/picture/005/save_picture_1051009.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Yakuza 3 Remastered (2021) [Ru/Multi] (1.005a) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050940.jpg" />
+  <img src="Z:/picture/005/save_picture_1050940.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Yakuza 3 Remastered – это обновленная игра, ставшая �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD62EAFB87741CCFAB9556C70D239C51BEE23C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845680   (1050939) от 02.01.2026
-
-Yakuza 4 Remastered (2021) [Ru/Multi] (1.003a) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050939.jpg" />
-</div>
-
-
-###  Подробнее
-
-События игры происходят все в той же местности, а главным героем по-прежнему остается Кадзума Кирю. Ну а начинается все с того, что в вымышленном районе Камурочо происходит убийство члена банды Уэно Сэйва, после чего начинается самая настоящая война за округ. Ну и естественно, в эту войну был втянут и Кирю, и ему снова придется погрузиться в череду безумных сражений, (   Читать дальше...   )Тип издания: RepackРазработчик: CS1 Team (Ryu Ga Gotoku Studio)Жанр: Экшены, Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Корейский, Китайский и другиеЯзык интерфейса: Русский, Английский, Корейский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA40DB17A65011A3169102D3F55AC26A85DBD229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845609   (1050797) от 02.01.2026
-
-Yakuza 0 (2018) [Ru/Multi] (build 4746539) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блеск, гламур и безудержный декаданс 80-х годов возвращаются в Yakuza 0. Вместе с главным героем Кадзумой Кирю и постоянным участником серии Горо Мадзимой вы будете сражаться в Токио и Осаке. Сыграйте за Кадзуму Кирю и узнайте, как он оказался в мире неприятностей, когда простое взыскание долга пошло не так, и его знак оказался убит.Тип издания: RepackРазработчик: Ryu Ga Gotoku StudioЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, ЯпонскийЯзык интерфейса: Русский, Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E54F893531F6D6F759A0464097B9C377DCE079E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845497   (1050629) от 01.01.2026
-
-Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.3725.0/1.72) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем. Бывший член уличной (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Action, Racing, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D003359419C09B9E7202044D7F8738A9CE496E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843937   (1049665) от 23.12.2025
-
-Tunguska: The Visitation (2021) [Ru/Multi] (1.95-1/dlc) Repack FitGirl [Final Cut]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проживите жизнь охотника на «упырей» и раскройте тёмные секреты Тунгуски из советских времён. Отправляйтесь в путешествие по безлюдным деревням, заброшенным объектам, ядовитым болотам и зловещим туннелям в этом ужастике с элементами выживания с видом сверху и узнайте правду о таинственном падении Тунгусского метеорита в 1908 году.Тип издания: RepackРазработчик: Rotorist WorkshopЖанр: Экшены, ПриключениеЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Итальянский, УкраинскийЯзык интерфейса: Русский, Английский, Итальянский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F679CBE63C0903D74CAB90358949B27EEC939C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843441   (1049412) от 20.12.2025
-
-Dynasty Warriors 8 Empires (2015) [Multi] (1.0) Scene CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра серии Empires, в которой вы должны завоевать Древний Китай при помощи различных стратегических приемов, а также тактических битв, в которых один воин сражается с тысячей врагов. Вы станете одним из героев эпохи Троецарствия. Государство, за которое вы сражаетесь, должно объединить под своей властью весь Древний Китай, используя различные стратегические приемы (   Читать дальше...   )Тип издания: SceneРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: ЭкшеныЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, КитайскийЯзык интерфейса: Английский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7A6FF4D413EC39EF2276D4277371F12DDD4BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843522   (1049336) от 20.12.2025
-
-Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средиземноморская республика Медичи стонет под гнетом генерала Ди Равелло. Помочь может только Рико Родригес. Вас ждет более 1000 квадратных километров свободы. Множество оружия, приспособлений, видов транспорта - все, чтобы устраивать беспорядки самыми изобретательными способами.Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834488C14D8CF1D1D32B5F6CEFAB016215B5453
 ```
 
 https://mybot314.ru/tekegram_catalog/

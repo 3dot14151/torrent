@@ -1,3 +1,137 @@
+###  Публикация: 1370488   (896444) от 27.03.2020
+
+Александр Волков | Волшебник Изумрудного города [сборник] (2013) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896444.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли все сказочные повести А. М. Волкова, рассказывающие об удивительных приключениях девочки Элли и ее друзей – Страшилы, Смелого Льва и Железного Дровосека – в Волшебной стране.
+Иллюстрации к этим повестям сделал замечательный художник Л. В. Владимирский.Жанр: Детская литература, Сказочные повестиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CD46932B333038555A37EB2897F7250536CB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101227   (896416) от 06.02.2017
+
+Варвара Андреевская | Красное солнышко (1913) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатилетний Миша живет со своей матерью Марией Ивановной в небольшой комнатке, которая служит им и спальней и гостиной и кухней. Мать целыми днями работает швеей, а Миша учится в гимназии и изучает плотницкое ремесло, мечтая поскорее подрасти и начать помогать матери.
+
+Однажды в город приезжает цирк...Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2085CA6F4A97A4581B8B4FB2762DFCD4603614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101223   (896414) от 06.02.2017
+
+Эмэ Бээкман | Сийм-Силач (1974) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для среднего и старшего школьного возраста.Жанр: Детская проза, СказкаПеревод: Вера РуберФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738DA8960AD25586D7066B5ECFD64C00CB8FFEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101224   (896406) от 06.02.2017
+
+Жанна Браун | Зорькина песня (1976) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896406.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первые же дни войны девятилетняя героиня этой повести Зорька осталась без родителей и попала в детский дом.
+Так началось её вступление в жизнь. О том, как Зорька, выдержав все испытания, стала товарищем, человеком, гражданином, написана эта книга.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E2405EF171EA3B7B03E477B8702D5AAB5A8B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101219   (896179) от 06.02.2017
+
+Сергей Макеев | Я иду в детский сад (1987) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для дошкольного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DF6D57858FD5787FED007A5C8103C4582AAF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993525   (896002) от 05.03.2016
 
 Агния Сенч | Повстанчик (1926) [FB2]
@@ -6,7 +140,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896002.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895966.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895955.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895925.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895832.jpg" />
 </div>
 
 
@@ -139,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895553.jpg" />
 </div>
 
 
@@ -167,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895342.jpg" />
 </div>
 
 
@@ -193,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895307.jpg" />
 </div>
 
 
@@ -219,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895100.jpg" />
 </div>
 
 
@@ -245,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894901.jpg" />
 </div>
 
 
@@ -272,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894775.jpg" />
 </div>
 
 
@@ -298,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894764.jpg" />
 </div>
 
 
@@ -324,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894717.jpg" />
 </div>
 
 
@@ -352,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894701.jpg" />
 </div>
 
 
@@ -378,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894565.jpg" />
 </div>
 
 
@@ -405,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894539.jpg" />
 </div>
 
 
@@ -431,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894095.jpg" />
 </div>
 
 
@@ -457,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894081.jpg" />
 </div>
 
 
@@ -483,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894015.jpg" />
 </div>
 
 
@@ -511,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893930.jpg" />
 </div>
 
 
@@ -539,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893702.jpg" />
 </div>
 
 
@@ -550,141 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87C647B806DCCDE3492207D7AFEEA849B8C9440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370955   (893695) от 29.03.2020
-
-Мехтильда Глейзер | Эмма, фавн и потерянная книга (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды шестнадцатилетняя Эмма находит в библиотеке своей школы-интерната старинный блокнот, обладающий чудесным свойством – все, что в нем записано, исполняется! Очнувшись от первого шока, Эмма начинает потихоньку менять положение дел в замке Штольценбург, но оказывается в прошлом блокнот использовали не так невинно…
-Сказка про фавна, написанная в XVIII веке юной (   Читать дальше...   )Жанр: Фантастика для детей, ФэнтезиПеревод: Е. Л. ПолоцкаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB94153C4002C92F753FA7D7C5116DA1F34BA15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370970   (893692) от 29.03.2020
-
-Фредерик Ван Эден | Маленький Йоханнес (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893692.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маленький Йоханнес» – знаменитая сказка голландского писателя Фредерика Ван Эдена об удивительных приключениях мальчика в волшебном мире, полном причудливых существ.
-
-Захватывающая, трогательная и мудрая история, ставшая классикой мировой детской литературы. Неоднократно переиздававшаяся и переведенная на множество языков, эта книга – абсолютный шедевр, который (   Читать дальше...   )Жанр: Зарубежная литература для детей, Приключения для детей и подростковПеревод: Екатерина Борисовна АсоянФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C732EBF0B026C1B0F93BFBFAA71A2026B12F53F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493757   (893690) от 04.09.2021
-
-И. Егорова, М. Поркшеева, З. Таракшеева | Лучшая книга малышам (2014) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга расскажет ребенку в стихотворной форме о правилах этикета, о хороших манерах, о том, как нужно себя вести дома, на улице, в общественном транспорте и других местах. Очень важно, что благодаря ей малыш также узнает основные правила безопасности. Большие яркие иллюстрации с милыми зверушками - еще одно достоинство сборника. Глядя на них, малыш легче будет (   Читать дальше...   )Жанр: Книги для детей, Первые книги малыша. Развитие ребенка, Стихи и загадки для малышейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B26B9B61B63F439F99DFB9D4038C268C38A2601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370916   (893668) от 29.03.2020
-
-С. Мало | Русалочка (1894) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки.
-Для детей младшего школьного возраста.Жанр: Детская проза, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913D1835396C48D934C8EBE42E8E571E30E2E7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370915   (893662) от 29.03.2020
-
-Анатолий Брянчанинов (сост.) | Русские народные сказки в стихах (1895) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные сказки. В пересказе русских писателей.
-Для младшего и среднего школьного возраста.Жанр: Детская проза, Сказка, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB183B60DBC79D7295641E804974C58B93833A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

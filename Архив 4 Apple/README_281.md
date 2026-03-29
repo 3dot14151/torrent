@@ -1,3 +1,114 @@
+###  Публикация: 1134383   (688880) от 15.05.2017
+
+Movavi Video Editor 4 v4.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор видео для Mac OS от Movavi
+Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий.
+
+Просто загрузите фото и видео в программу, исправьте качество одним (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2017Разработчик: MovaviПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1DD84FD14FB1EAAD0C0FC85873C3A95097EB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028696   (688863) от 23.06.2016
+
+iA Writer 3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688863.jpg" />
+</div>
+
+
+###  Подробнее
+
+iA Writer — фон, шрифт и курсор
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июня 2016Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B39F1E9764126BD5654704443093FC34EC53A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221931   (688826) от 27.04.2018
+
+iSkysoft iMedia Converter Deluxe 10.0.6.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактируйте, конвертируйте, скачивайте, записывайте и конечно же просматривайте видео на вашем iPhone, iPad и iPod. iSkysoft iMedia Converter Deluxe воспроизводит, редактирует, записывает и изменяет любые видео файлы без потери качества.
+
+ Он обеспечивает удобный интерфейс и функции, и вам не нужно беспокоиться о потере качества во время процесса конверсии. Кроме (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: iSkysoft StudioПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC67CA004E631E3DDBE61A695C01DB9C6B677DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535071   (688697) от 05.03.2022
+
+Scrutiny 10 v10.4.15 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D813035BE8AA7AD918674BDF7C4AC8F51E11A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535025   (688694) от 05.03.2022
 
 Tinderbox 9 v9.2.0 [En]
@@ -6,7 +117,7 @@ Tinderbox 9 v9.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688694.jpg" />
+  <img src="Z:/picture/008/save_picture_688694.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Yoink 3.6.8 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688691.jpg" />
+  <img src="Z:/picture/008/save_picture_688691.jpg" />
 </div>
 
 
@@ -59,7 +170,7 @@ Export for iTunes 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688687.jpg" />
+  <img src="Z:/picture/008/save_picture_688687.jpg" />
 </div>
 
 
@@ -85,7 +196,7 @@ Rumpus PRO 8.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688677.jpg" />
+  <img src="Z:/picture/008/save_picture_688677.jpg" />
 </div>
 
 
@@ -112,7 +223,7 @@ iReal Pro 2022.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688607.jpg" />
+  <img src="Z:/picture/008/save_picture_688607.jpg" />
 </div>
 
 
@@ -138,7 +249,7 @@ Wondershare PDFelement Pro OCR 8.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688595.jpg" />
+  <img src="Z:/picture/008/save_picture_688595.jpg" />
 </div>
 
 
@@ -164,7 +275,7 @@ CRAX Commander 1.13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688514.jpg" />
+  <img src="Z:/picture/008/save_picture_688514.jpg" />
 </div>
 
 
@@ -190,7 +301,7 @@ Capture One Pro 9.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688502.jpg" />
+  <img src="Z:/picture/008/save_picture_688502.jpg" />
 </div>
 
 
@@ -217,7 +328,7 @@ Movie Collector Pro 19.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688385.jpg" />
+  <img src="Z:/picture/008/save_picture_688385.jpg" />
 </div>
 
 
@@ -243,7 +354,7 @@ EdgeView 2 v2.710 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688380.jpg" />
+  <img src="Z:/picture/008/save_picture_688380.jpg" />
 </div>
 
 
@@ -269,7 +380,7 @@ Antivirus Zap - Virus & Adware 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688287.jpg" />
+  <img src="Z:/picture/008/save_picture_688287.jpg" />
 </div>
 
 
@@ -295,7 +406,7 @@ ACDSee Photo Studio 5.1.1130 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688274.jpg" />
+  <img src="Z:/picture/008/save_picture_688274.jpg" />
 </div>
 
 
@@ -323,7 +434,7 @@ Red Giant Trapcode Suite 13.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688241.jpg" />
+  <img src="Z:/picture/008/save_picture_688241.jpg" />
 </div>
 
 
@@ -349,7 +460,7 @@ Red Giant Shooter Suite 13.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688236.jpg" />
+  <img src="Z:/picture/008/save_picture_688236.jpg" />
 </div>
 
 
@@ -377,7 +488,7 @@ DaisyDisk 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687728.jpg" />
+  <img src="Z:/picture/008/save_picture_687728.jpg" />
 </div>
 
 
@@ -405,7 +516,7 @@ TG Pro (Temperature Gauge Pro) 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687543.jpg" />
+  <img src="Z:/picture/008/save_picture_687543.jpg" />
 </div>
 
 
@@ -435,7 +546,7 @@ VueScan Pro 9.5.76 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687427.jpg" />
+  <img src="Z:/picture/008/save_picture_687427.jpg" />
 </div>
 
 
@@ -461,7 +572,7 @@ PopClip 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687225.jpg" />
+  <img src="Z:/picture/008/save_picture_687225.jpg" />
 </div>
 
 
@@ -489,7 +600,7 @@ iFlicks 2 v2.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687097.jpg" />
+  <img src="Z:/picture/008/save_picture_687097.jpg" />
 </div>
 
 
@@ -517,7 +628,7 @@ Qbserve 1.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687093.jpg" />
+  <img src="Z:/picture/008/save_picture_687093.jpg" />
 </div>
 
 
@@ -546,7 +657,7 @@ BusyCal 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686907.jpg" />
+  <img src="Z:/picture/008/save_picture_686907.jpg" />
 </div>
 
 
@@ -573,7 +684,7 @@ Boinx mimoLive 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686773.jpg" />
+  <img src="Z:/picture/008/save_picture_686773.jpg" />
 </div>
 
 
@@ -585,115 +696,6 @@ mimoLive - программное обеспечение, которое пре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B24F94B1E0125317DE78BAAA08CB15F9C757DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028966   (686766) от 24.06.2016
-
-Script Debugger 5.0.11 (706) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
-
-Редактор полностью поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июня 2016Разработчик: Late Night Software LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D248806A43C0191BA848C3614295F1A81986584F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028885   (686765) от 24.06.2016
-
-iA Writer 3.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686765.jpg" />
-</div>
-
-
-###  Подробнее
-
-iA Writer — фон, шрифт и курсор
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2016Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7E61867FDA3E8E38039E0E5F2367C6C9176937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289581   (686755) от 16.03.2019
-
-KCNcrew Pack 15-3-19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686755.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.03.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2CB501A15A5E942DEFBEADCA3EA62C690E18CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222269   (686740) от 28.04.2018
-
-Luminar 2018 v1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0653FD787FBBB676F4737734ADBE8DB56248D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

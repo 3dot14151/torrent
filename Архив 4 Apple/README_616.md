@@ -1,3 +1,110 @@
+###  Публикация: 1517052   (164578) от 13.12.2021
+
+GoodNotes 5 v5.7.54 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BA1704D4494CFE4D4DF256024F9FF5875F1425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673752   (164573) от 02.11.2023
+
+Noir – Dark Mode for Safari 2023.2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Noir — это расширение для Safari, которое автоматически добавляет темный режим на каждый посещаемый вами веб-сайт.
+Это делает просмотр веб-страниц ночью намного лучше. С Noir вы больше никогда не будете ослеплены яркими веб-сайтами.
+И результаты тоже выглядят великолепно. Noir создает собственный темный стиль для каждого посещаемого вами веб-сайта на основе цветов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2021-2022 Jeffrey KuikenПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AB48D05403F51E90869044E900D7816B2D68E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517055   (164571) от 13.12.2021
+
+PaintCode 3 v3.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © PixelCut 2021Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A604E86787967F5D953BD097D356A87190E8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517019   (164569) от 13.12.2021
+
+Stats 2.6.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C92C82D982D8A8744471B4619771D2E7F9A4A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346298   (164566) от 18.12.2019
 
 Mia for Gmail 2.4.0 [Multi/Ru]
@@ -6,7 +113,7 @@ Mia for Gmail 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164566.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ BusyCal 2021.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164564.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ iPulse 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164563.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164560.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Smultron 12.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164553.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ SideNotes 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164550.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ Cookie 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164549.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ SSH Config Editor Pro 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164544.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164543.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ Duplicate Photos Fixer Pro 2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164541.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ NCH WavePad Mater 11.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164539.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164538.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ LaunchBar 6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164534.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ iCollections 6 v6.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164533.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ System Dashboard Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164531.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ Disk Xray 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164529.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ Wattagio 1.12.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164525.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ AudioSwitcher 3.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164524.jpg" />
 </div>
 
 
@@ -487,7 +594,7 @@ Hype 4 Pro v4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164517.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ Super PhotoCut Pro 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164515.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ ImageRanger Pro Edition 1.7.8.1685 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164512.jpg" />
 </div>
 
 
@@ -565,7 +672,7 @@ Any RecScreen 2.0.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164508.jpg" />
 </div>
 
 
@@ -576,111 +683,6 @@ Any RecScreen - это простая в использовании утилит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5922812672832984D6099846B2B3864C1021465F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517056   (164505) от 13.12.2021
-
-Valentina Studio Pro 11.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDF46E716F064348959E8F6FEA3F46BC0B60027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432377   (164495) от 17.12.2020
-
-Disk Analyzer Pro 4.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Analyzer Pro - это гибкий инструмент для мгновенного предоставления подробного отчета об использовании диска. Он в мгновение ока освобождает место на диске. С помощью этого инструмента вы можете легко найти самые большие папки и файлы на вашем Mac.
-Кроме того, вы можете легко просмотреть отчет о потреблении дискового пространства, сгруппированный по размеру (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B88AB64B9641C39B9D34E730760AE059E46E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346328   (164492) от 18.12.2019
-
-NoteBurner Spotify Music Converter 1.1.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164492.jpg" />
-</div>
-
-
-###  Подробнее
-
-NoteBurner Spotify Music Converter - это хорошо продуманный аудио конвертер для Spotify. Он может удалять DRM из музыки Spotify и позволяет сохранять музыку Spotify на локальном компьютере или воспроизводить ее на музыкальном проигрывателе. Кроме того, вы можете использовать NoteBurner Spotify Music Converter для конвертации музыки Spotify в mp3, aac, flac или wav (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NoteBurner Inc.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B58D3E019D9831E87A34E46749A1C6FC47D30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432473   (164488) от 17.12.2020
-
-OmniOutliner Pro 5 v5.8.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164488.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniOutliner - удобное и чрезвычайно доступное средство создания схем. Оно идеально подходит для людей, которым требуется комфортная среда для создания структурированных текстов, отличный уровень поддержки и регулярность обновлений. В версии Essentials имеются привлекательные темы оформления, режимы печатной машинки и концентрации, функция статистики документа и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90017694F08D2868ED30396BFF6F99D4BB4402AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,117 @@
+###  Публикация: 1080331   (290415) от 06.12.2016
+
+Letter Templates for Pages 4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Letter Templates – это новый вид ваших документов, созданных в Pages.
+Новый взгляд ваших писем! Современный Letter Templates включает в себя 213 узнаваемых проектов, которые были адаптированы из различных шаблонов Jumsoft для Apple Mail.
+
+Как и его эквиваленты Mail, Letter Templates for Pages представляет исключительную коллекцию писем для бизнеса и личного пользования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0749BC69BC08ABE91A3CAEDB7C5205AA6A2C8B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080336   (290393) от 06.12.2016
+
+Shredo 1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shredo - красивая и функциональная утилита удаления файлов.
+Уничтожение данных — последовательность операций, предназначенных для осуществления программными или аппаратными средствами необратимого удаления данных, в том числе остаточной информации.
+Shredo поддерживает внешние диски и флэш-накопители.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 ноября 2016Разработчик: mymixapps.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8478C7B4D73926E40D4A065A06CD4BB2C72F44B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080260   (290324) от 06.12.2016
+
+Watts 2.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Watts - инструмент для управления батареей и помощник в её калибровке.
+Приложение меню-бара, которое, помимо обычной информации о батарее (какой источник питания используется, ток заряда батареи и оставшееся время), предоставляет дополнительные данные для получения максимальной производительности батареи. Работает на любой модели MacBook® (MacBook®, MacBook Air®, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 ноября 2016Разработчик: Binary TricksПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8381D475FC7F6034EC447F11045FD77D169BF92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080421   (290321) от 06.12.2016
+
+PDF Expert 2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290321.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - многофункциональная утилита для работы с PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06 декабря 2016Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF505CF567C90A58C63AE27B9CA9ADAD188BBC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263013   (290037) от 18.11.2018
 
 Ink2Go 1.7.32 [En]
@@ -6,7 +120,7 @@ Ink2Go 1.7.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290037.jpg" />
+  <img src="Z:/picture/008/save_picture_290037.jpg" />
 </div>
 
 
@@ -33,7 +147,7 @@ Adobe Audition CC 2017 (10.0.1) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289955.jpg" />
+  <img src="Z:/picture/008/save_picture_289955.jpg" />
 </div>
 
 
@@ -59,7 +173,7 @@ Cisdem Data Recovery 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289915.jpg" />
+  <img src="Z:/picture/008/save_picture_289915.jpg" />
 </div>
 
 
@@ -85,7 +199,7 @@ iStatistica Pro 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289890.jpg" />
+  <img src="Z:/picture/008/save_picture_289890.jpg" />
 </div>
 
 
@@ -111,7 +225,7 @@ Affinity Publisher Beta 1.8.0.499 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289888.jpg" />
+  <img src="Z:/picture/008/save_picture_289888.jpg" />
 </div>
 
 
@@ -138,7 +252,7 @@ QLab Pro 4 v4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289887.jpg" />
+  <img src="Z:/picture/008/save_picture_289887.jpg" />
 </div>
 
 
@@ -164,7 +278,7 @@ Cisdem Document Reader 4 v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289886.jpg" />
+  <img src="Z:/picture/008/save_picture_289886.jpg" />
 </div>
 
 
@@ -190,7 +304,7 @@ FastScripts 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289885.jpg" />
+  <img src="Z:/picture/008/save_picture_289885.jpg" />
 </div>
 
 
@@ -218,7 +332,7 @@ iFinance 4 v 4.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289884.jpg" />
+  <img src="Z:/picture/008/save_picture_289884.jpg" />
 </div>
 
 
@@ -244,7 +358,7 @@ Cisdem PDFPasswordRemover 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289883.jpg" />
+  <img src="Z:/picture/008/save_picture_289883.jpg" />
 </div>
 
 
@@ -271,7 +385,7 @@ Cisdem PDFCompressor 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289880.jpg" />
+  <img src="Z:/picture/008/save_picture_289880.jpg" />
 </div>
 
 
@@ -297,7 +411,7 @@ Tagr 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289879.jpg" />
+  <img src="Z:/picture/008/save_picture_289879.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ TextSoap 8.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289823.jpg" />
+  <img src="Z:/picture/008/save_picture_289823.jpg" />
 </div>
 
 
@@ -351,7 +465,7 @@ Serial Box 11.2019 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289750.jpg" />
+  <img src="Z:/picture/008/save_picture_289750.jpg" />
 </div>
 
 
@@ -380,7 +494,7 @@ iStatistica Pro 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289748.jpg" />
+  <img src="Z:/picture/008/save_picture_289748.jpg" />
 </div>
 
 
@@ -406,7 +520,7 @@ Alfred 4 Powerpack 4.0.6 (1123) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289747.jpg" />
+  <img src="Z:/picture/008/save_picture_289747.jpg" />
 </div>
 
 
@@ -435,7 +549,7 @@ iSkysoft Video Converter Ultimate 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289739.jpg" />
+  <img src="Z:/picture/008/save_picture_289739.jpg" />
 </div>
 
 
@@ -461,7 +575,7 @@ KeyKey 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289669.jpg" />
+  <img src="Z:/picture/008/save_picture_289669.jpg" />
 </div>
 
 
@@ -490,7 +604,7 @@ NeoOffice 2017.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289658.jpg" />
+  <img src="Z:/picture/008/save_picture_289658.jpg" />
 </div>
 
 
@@ -518,7 +632,7 @@ Adobe After Effects CC 2017 (14.0.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289645.jpg" />
+  <img src="Z:/picture/008/save_picture_289645.jpg" />
 </div>
 
 
@@ -545,7 +659,7 @@ Red Giant Magic Bullet Suite 13.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289636.jpg" />
+  <img src="Z:/picture/008/save_picture_289636.jpg" />
 </div>
 
 
@@ -571,7 +685,7 @@ Capture One Pro 12.0.0b4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289606.jpg" />
+  <img src="Z:/picture/008/save_picture_289606.jpg" />
 </div>
 
 
@@ -582,111 +696,6 @@ Capture One Pro один из самых мощных профессиональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B705373E45C8481EF11CF773CC884BD6B9B8888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335196   (289599) от 01.11.2019
-
-Comic Life 3 v.3.5.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comic Life - великолепное приложение, с помощью которого можно создавать комиксы и сюжеты, используя личные фотографии или рисунки.
-Взгляните по-новому на свои фотографии из различных путешествий - приложение Comic Life поможет вам создать и красиво оформить собственную историю с эффектами из комиксов. Удивите своих друзей нестандартным оформлением. Стоит отметить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2019Разработчик: plasq LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68939ABD7C83647B7A0002E3D2EC18B93C7D0626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263182   (289598) от 18.11.2018
-
-Alien Skin Exposure X4 Bundle 4.0.2.43 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3EF1276E8FBABFE2D091E6F14D4C19841FD5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335188   (289591) от 01.11.2019
-
-Worksheet Crafter Premium Edition 2019.1.8.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте свой собственный Worksheet быстро и легко. Сделайте идеальные обучающие шаблоны, рабочие листы и классные тесты для ваших  учеников всего за несколько кликов. Создайте свои Worksheet, это весело использовать и так же просто, как пользоваться Microsoft Word.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Worksheet Crafter.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33A82FBE76D0CCAF8BC51DC90AFF4DF2AF0196A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335083   (289587) от 01.11.2019
-
-iReal Pro 2019.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение предлагает простой в использовании инструмент, чтобы помочь музыкантам всех уровней освоить свое искусство, а также - предоставит вам имитацию реально звучащего бэнда так, как вы этого ожидаете.Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: Technimo LLC.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DCED59C947471942764B1B8419538CFAA2A710
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 697667   (533610) от 06.09.2013
+
+Дмитрий Глуховский | Будущее (2013) [FB2, TXT]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533610.jpg" />
+</div>
+
+
+###  Подробнее
+
+На что ты готов ради вечной жизни? Уже при нашей жизни будут сделаны открытия, которые позволят людям оставаться вечно молодыми. Смерти больше нет. Наши дети не умрут никогда. Добро пожаловать в будущее. В мир, населенный вечно юными, совершенно здоровыми, счастливыми людьми. Но будут ли они такими же, как мы? Нужны ли дети, если за них придется пожертвовать бессмертием? (   Читать дальше...   )Жанр: Контркультура, Научная фантастика, Современная русская литература, Социальная фантастикаФормат: FB2, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729F32D9F0EA47C3E1412EA00547179DCC6AAA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819612   (533491) от 07.09.2014
+
+Вадим Денисов | Путь на Кристу. Новичок (2014) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Путь на Кристу».
+Русский инженер Дарий Квачин отлично экипировался для осенней рыбалки и охоты на Енисее. Предусмотрел буквально все, вплоть до тепловизора. Единственное, чего не предусмотрел Квачин, что в пылу погони за дикими утками он провалится вместе с лодкой и всей экипировкой… в загадочное место, где мутные воды незнакомой реки пересекают (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445F7CB62C339C22F5BEE790D53195759EBA58AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926550   (533425) от 10.08.2015
 
 Елена Горелик | Уроборос (2015) [FB2]
@@ -6,7 +59,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533425.jpg" />
+  <img src="Z:/picture/008/save_picture_533425.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533316.jpg" />
+  <img src="Z:/picture/008/save_picture_533316.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533225.jpg" />
+  <img src="Z:/picture/008/save_picture_533225.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533195.jpg" />
+  <img src="Z:/picture/008/save_picture_533195.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533165.jpg" />
+  <img src="Z:/picture/008/save_picture_533165.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533074.jpg" />
+  <img src="Z:/picture/008/save_picture_533074.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533071.jpg" />
+  <img src="Z:/picture/008/save_picture_533071.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532959.jpg" />
+  <img src="Z:/picture/008/save_picture_532959.jpg" />
 </div>
 
 
@@ -228,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532743.jpg" />
+  <img src="Z:/picture/008/save_picture_532743.jpg" />
 </div>
 
 
@@ -254,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532551.jpg" />
+  <img src="Z:/picture/008/save_picture_532551.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532543.jpg" />
+  <img src="Z:/picture/008/save_picture_532543.jpg" />
 </div>
 
 
@@ -309,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532508.jpg" />
+  <img src="Z:/picture/008/save_picture_532508.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532477.jpg" />
+  <img src="Z:/picture/008/save_picture_532477.jpg" />
 </div>
 
 
@@ -363,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532377.jpg" />
+  <img src="Z:/picture/008/save_picture_532377.jpg" />
 </div>
 
 
@@ -391,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532376.jpg" />
+  <img src="Z:/picture/008/save_picture_532376.jpg" />
 </div>
 
 
@@ -417,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532373.jpg" />
+  <img src="Z:/picture/008/save_picture_532373.jpg" />
 </div>
 
 
@@ -445,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532366.jpg" />
+  <img src="Z:/picture/008/save_picture_532366.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531424.jpg" />
+  <img src="Z:/picture/008/save_picture_531424.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531358.jpg" />
+  <img src="Z:/picture/008/save_picture_531358.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531351.jpg" />
+  <img src="Z:/picture/008/save_picture_531351.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531230.jpg" />
+  <img src="Z:/picture/008/save_picture_531230.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531150.jpg" />
+  <img src="Z:/picture/008/save_picture_531150.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531146.jpg" />
+  <img src="Z:/picture/008/save_picture_531146.jpg" />
 </div>
 
 
@@ -638,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531110.jpg" />
+  <img src="Z:/picture/008/save_picture_531110.jpg" />
 </div>
 
 
@@ -651,62 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53658C1F8A7CD9445DA4369544B37AC5B6184B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051910   (530792) от 12.09.2016
-
-Вячеслав Куликовский | В дни торжества сатаны (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Укрывшись со своими приверженцами на неведомом острове, американский миллиардер наблюдает апокалиптическую картину охватившего мир коммунистического безумия, кровавых революций, бунтов, голода и нищеты. Но безмятежную жизнь островитян вскоре нарушает появление русской красавицы и ее загадочного брата…
-
-Антиутопия В. Куликовского «В дни торжества сатаны» продолжает (   Читать дальше...   )Жанр: Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CD70A4956ED070F33624BF337A83A2C5AAB77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051928   (530784) от 12.09.2016
-
-Александр Янтер и др. | Червь смерти. Метаморфозы олгой-хорхоя [Сборник] (2014) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530784.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли тексты, посвященные загадочному и смертоносному червю пустыни Гоби — олгой-хорхою. Среди них есть и научно-фантастические рассказы, и отчеты путешественников и исследователей — а также криптозоологические статьи и одна смелая научная мистификация…
-
-Второе издание книги дополнено новыми материалами и заметкой о влиянии И. Ефремова на формирование современных (   Читать дальше...   )Жанр: Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DDB737A6AFDA13B6B20B5F86AC71C685DAC026
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1561435   (515517) от 04.07.2022
+
+V Recorder - Запись видео с экрана 6.5.3 Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515517.jpg" />
+</div>
+
+
+###  Подробнее
+
+V Recorder – качественный и простой экранный рекордер со звуком. Если вы постоянно сталкиваетесь с такой проблемой, когда вам необходимо записать видео с экрана и еще со звуком, то данное приложение вам в этом отлично поможет. В данном приложении представлено множество функций, которые направлены на то, чтобы облегчить вам жизнь. И теперь с его помощью запись видео (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 30.06.2022Разработчик: VIDEOSHOW Video Editor & Video Maker LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024938BD763B9971DDBE78C181B10B2A8289E25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535448   (515409) от 17.08.2012
 
 FolderPlay v.1.8 [Программа] (S9.2-S9.4, S^3)
@@ -6,7 +32,7 @@ FolderPlay v.1.8 [Программа] (S9.2-S9.4, S^3)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515409.jpg" />
+  <img src="Z:/picture/008/save_picture_515409.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515312.jpg" />
+  <img src="Z:/picture/008/save_picture_515312.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514269.jpg" />
+  <img src="Z:/picture/008/save_picture_514269.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mosquito Simulator 2015 v1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513874.jpg" />
+  <img src="Z:/picture/008/save_picture_513874.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513702.jpg" />
+  <img src="Z:/picture/008/save_picture_513702.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Goblin Defenders 2 v1.6.308 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513647.jpg" />
+  <img src="Z:/picture/008/save_picture_513647.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513502.jpg" />
+  <img src="Z:/picture/008/save_picture_513502.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512716.jpg" />
+  <img src="Z:/picture/008/save_picture_512716.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512657.jpg" />
+  <img src="Z:/picture/008/save_picture_512657.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ QKSMS - Quick Text Messenger 3.9.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512403.jpg" />
+  <img src="Z:/picture/008/save_picture_512403.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512399.jpg" />
+  <img src="Z:/picture/008/save_picture_512399.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512179.jpg" />
+  <img src="Z:/picture/008/save_picture_512179.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ TelInfoNumber / Информация о номере v 3.4 - 1.7.33 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511635.jpg" />
+  <img src="Z:/picture/008/save_picture_511635.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Clime: Прогноз погоды и Радар 1.53.1 Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511476.jpg" />
+  <img src="Z:/picture/008/save_picture_511476.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Lark Player - YouTube Music & Audio Player 5.31.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511453.jpg" />
+  <img src="Z:/picture/008/save_picture_511453.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511452.jpg" />
+  <img src="Z:/picture/008/save_picture_511452.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ OGWhatsApp 16.20 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511437.jpg" />
+  <img src="Z:/picture/008/save_picture_511437.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511314.jpg" />
+  <img src="Z:/picture/008/save_picture_511314.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511216.jpg" />
+  <img src="Z:/picture/008/save_picture_511216.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511161.jpg" />
+  <img src="Z:/picture/008/save_picture_511161.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511066.jpg" />
+  <img src="Z:/picture/008/save_picture_511066.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Infinite Flight Simulator v15.08.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510711.jpg" />
+  <img src="Z:/picture/008/save_picture_510711.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510534.jpg" />
+  <img src="Z:/picture/008/save_picture_510534.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510449.jpg" />
+  <img src="Z:/picture/008/save_picture_510449.jpg" />
 </div>
 
 
@@ -639,41 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510321.jpg" />
+  <img src="Z:/picture/008/save_picture_510321.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Джон влюблен в красавицу Лори, у него отличная работа и большие планы на будущее. Но в их отношения вмешивается третий, давний друг Джона — Тед. Он отрывается сутки напролет, предпочитает случайные связи и не желает терять друга. Но никто на самом деле не знает на что он способен, ведь Тед — большой плюшевый медведь.Жанр: Фэнтези, КомедияРежиссер: Сет МакФарлейнПродюсер: Джейсон Кларк, Джон Джейкобс, Сет МакФарлейнАктеры: Марк Уолберг, Мила Кунис, Сет МакФарлейн, Джоэль МакХэйл, Джованни Рибизи, Патрик Варбертон, Мэтт Уолш, Джессика Барт, Аэдин Минкс, Билл СмитровичПеревод: Одноголосый закадровыйОзвучка / Автор перевода: L1Продолжительность: 01:39:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537844   (510313) от 22.08.2012
-
-[Программа](Android 1.6+) Одноклассники
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья рядом!
-Официальное приложение Одноклассники позволяет постоянно оставаться на связи
-в самой известной российской социальной сети.
 
 ## Скачать торент
 ```bash

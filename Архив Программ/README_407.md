@@ -6,7 +6,7 @@ CrystalDiskInfo 8.12.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836399.jpg" />
+  <img src="Z:/picture/008/save_picture_836399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrystalDiskInfo 8.12.10 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836398.jpg" />
+  <img src="Z:/picture/008/save_picture_836398.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Textify 1.8.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836396.jpg" />
+  <img src="Z:/picture/008/save_picture_836396.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RAM Saver Professional 21.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836395.jpg" />
+  <img src="Z:/picture/008/save_picture_836395.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BestReminder v2020.05.01.10 МирТрудМай Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836386.jpg" />
+  <img src="Z:/picture/008/save_picture_836386.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WinTools.net Premium 17.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836351.jpg" />
+  <img src="Z:/picture/008/save_picture_836351.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Flash Player 21.0.0.213 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836313.jpg" />
+  <img src="Z:/picture/008/save_picture_836313.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Topaz DeNoise AI 3.3.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836281.jpg" />
+  <img src="Z:/picture/008/save_picture_836281.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836277.jpg" />
+  <img src="Z:/picture/008/save_picture_836277.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Comfy Photo Recovery Home Edition/Office Edition/Commercial Edition 4.5 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836202.jpg" />
+  <img src="Z:/picture/008/save_picture_836202.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Windows 10 Manager 2.0.7 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836188.jpg" />
+  <img src="Z:/picture/008/save_picture_836188.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FreeFileSync 8.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836184.jpg" />
+  <img src="Z:/picture/008/save_picture_836184.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ jv16 PowerTools X 4.0.0.1514 Final RePack (& portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836164.jpg" />
+  <img src="Z:/picture/008/save_picture_836164.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Flash Player 21.0.0.213 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836159.jpg" />
+  <img src="Z:/picture/008/save_picture_836159.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Windows 10 Manager 1.1.0 Final Portable by PortableWares [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836157.jpg" />
+  <img src="Z:/picture/008/save_picture_836157.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Altap Salamander 3.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836153.jpg" />
+  <img src="Z:/picture/008/save_picture_836153.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Alcohol 120% 2.0.3 Build 8806 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836148.jpg" />
+  <img src="Z:/picture/008/save_picture_836148.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836140.jpg" />
+  <img src="Z:/picture/008/save_picture_836140.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ ThisIsWin11 0.85.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836139.jpg" />
+  <img src="Z:/picture/008/save_picture_836139.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Blackmagic Design DaVinci Resolve Studio 17.3.2 Build 8 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836134.jpg" />
+  <img src="Z:/picture/008/save_picture_836134.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Kerish Doctor 2021 4.85 (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836131.jpg" />
+  <img src="Z:/picture/008/save_picture_836131.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Internet Download Manager 6.37 Build 12 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836097.jpg" />
+  <img src="Z:/picture/008/save_picture_836097.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Cockos REAPER 6.09 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836093.jpg" />
+  <img src="Z:/picture/008/save_picture_836093.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AquaSoft Stages 10.4.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836054.jpg" />
+  <img src="Z:/picture/008/save_picture_836054.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ MakeMKV 1.9.9 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836043.jpg" />
+  <img src="Z:/picture/008/save_picture_836043.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ cFosSpeed 10.12 Build 2260 Final (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836037.jpg" />
+  <img src="Z:/picture/008/save_picture_836037.jpg" />
 </div>
 
 

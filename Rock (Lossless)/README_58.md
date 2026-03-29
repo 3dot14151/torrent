@@ -1,3 +1,150 @@
+###  Публикация: 1132856   (696939) от 11.05.2017
+
+Planet P Project -  Pink World (1984) Remastered, 2008, Renaissance Records [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Woods 01:00
+02. To Live Forever 04:00
+03. Pink World 04:29
+04. What I See 04:40(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C4CC9B633DB0645FD86B44A0BAD72E80549538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132822   (696932) от 11.05.2017
+
+VA - Dansk Rock Historie (1965-1978) 3 Box Set - 33CD, 2010 [WavPack|Lossless|image + .cue] <Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696932.jpg" />
+</div>
+
+
+###  Подробнее
+
+40 исторических альбомов на тридцати дисках,
+составляющих сливки золотого века датской рок-музыки 1965-1978 гг.
+Каждый бокс дополнен бонусным CD ранее неизданного материала!1. Dunhammeraften 05:25
+2. Itsi-bitsi 04:54
+3. Til Nashet 05:23
+4. Jensen 06:40(   Читать дальше...   )Жанр: Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-RockПродолжительность: 32:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D759BC01BCD2D2673F8C936E1855E8713F04C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132529   (696929) от 11.05.2017
+
+Manfred Mann's Earth Band -  Nightgales And Bombers (1975) Remastered, 1999, Creature Music [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirits In The Night
+02. Countdown
+03. Time Is Right
+04. Crossfade(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE01F163A61B2DC13AA740BD961F408FE9E24CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082581   (696861) от 11.05.2017
+
+Riverside - 7 Albums (2003 - 2016) [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepwalkers 7:19
+02. Rainbow Trip (2016 mix) 6:19
+03. Heavenland 5:00
+04. Return 6:50(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3357E1573BD78A417C18CD405DC1D6A8F12C48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221038   (696730) от 23.04.2018
+
+Czeslaw Niemen - Czas jak rzeka - Zlota kolekcj (2000) Compilation [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Przyjdź W Taką Noc
+2	Sen O Warszawie
+3	Wspomnienie
+4	Pod Papugami(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8456BCAC0AF7FA4311951013EA5E78E1D18F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027672   (696660) от 19.06.2016
 
 Michael Lee Firkins - Cactus Cruz (1996) [FLAC|Lossless|tracks] <Instrumental Rock, Blues Rock>
@@ -6,7 +153,7 @@ Michael Lee Firkins - Cactus Cruz (1996) [FLAC|Lossless|tracks] <Instrumental Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696660.jpg" />
+  <img src="Z:/picture/008/save_picture_696660.jpg" />
 </div>
 
 
@@ -35,7 +182,7 @@ Eric Johnson - Europe Live (2014) Live [FLAC|Lossless|tracks] <Rock, Blues, Inst
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696655.jpg" />
+  <img src="Z:/picture/008/save_picture_696655.jpg" />
 </div>
 
 
@@ -64,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696540.jpg" />
+  <img src="Z:/picture/008/save_picture_696540.jpg" />
 </div>
 
 
@@ -93,7 +240,7 @@ Yodelice - Like a million dreams (2014) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696531.jpg" />
+  <img src="Z:/picture/008/save_picture_696531.jpg" />
 </div>
 
 
@@ -122,7 +269,7 @@ Electric Light Orchestra - Balance of Power (1986) Remastered, 2007, Epic / Lega
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696422.jpg" />
+  <img src="Z:/picture/008/save_picture_696422.jpg" />
 </div>
 
 
@@ -151,7 +298,7 @@ VA - Girls Girls Girls! 75 Songs About Girls Girls Girls! (2015) 3CD [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696413.jpg" />
+  <img src="Z:/picture/008/save_picture_696413.jpg" />
 </div>
 
 
@@ -180,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696286.jpg" />
+  <img src="Z:/picture/008/save_picture_696286.jpg" />
 </div>
 
 
@@ -209,7 +356,7 @@ Neil Young - Homegrown (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695944.jpg" />
+  <img src="Z:/picture/008/save_picture_695944.jpg" />
 </div>
 
 
@@ -238,7 +385,7 @@ The Peawees - Moving Target (2018) [FLAC|Lossless|tracks + .cue] <Rock, Blues, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695926.jpg" />
+  <img src="Z:/picture/008/save_picture_695926.jpg" />
 </div>
 
 
@@ -267,7 +414,7 @@ Dave Edmunds - The Collection (1997) Compilation [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695137.jpg" />
+  <img src="Z:/picture/008/save_picture_695137.jpg" />
 </div>
 
 
@@ -296,7 +443,7 @@ Samsara Blues Experiment - One with the Universe (2017) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695033.jpg" />
+  <img src="Z:/picture/008/save_picture_695033.jpg" />
 </div>
 
 
@@ -325,7 +472,7 @@ The Zombies - Odessey And Oracle (1968) Remaster, 2004, Imperial [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694702.jpg" />
+  <img src="Z:/picture/008/save_picture_694702.jpg" />
 </div>
 
 
@@ -354,7 +501,7 @@ Elvis Presley - MTV Music History (2000) 2CD, Compilation by Halahup [APE|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694692.jpg" />
+  <img src="Z:/picture/008/save_picture_694692.jpg" />
 </div>
 
 
@@ -383,7 +530,7 @@ Alco Frisbass - Le Mystere du Gue Pucelle (2021) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694364.jpg" />
+  <img src="Z:/picture/008/save_picture_694364.jpg" />
 </div>
 
 
@@ -412,7 +559,7 @@ The Mekons - Deserted (2019) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694300.jpg" />
+  <img src="Z:/picture/008/save_picture_694300.jpg" />
 </div>
 
 
@@ -441,7 +588,7 @@ Blondie - Pollinator (2017) [FLAC|Lossless|image + .cue] <Pop Rock, Post Punk, N
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693148.jpg" />
+  <img src="Z:/picture/008/save_picture_693148.jpg" />
 </div>
 
 
@@ -470,7 +617,7 @@ Harry Styles - Harry Styles (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693021.jpg" />
+  <img src="Z:/picture/008/save_picture_693021.jpg" />
 </div>
 
 
@@ -499,7 +646,7 @@ Chris Rea - New Light Through Old Windows (1988) [FLAC|Lossless|image + .cue] <B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692990.jpg" />
+  <img src="Z:/picture/008/save_picture_692990.jpg" />
 </div>
 
 
@@ -528,7 +675,7 @@ Imelda May - Life Love Flesh Blood (Special Edition) (2017) [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692846.jpg" />
+  <img src="Z:/picture/008/save_picture_692846.jpg" />
 </div>
 
 
@@ -557,7 +704,7 @@ Tonhotel - Tonhotel (2017) [FLAC|Lossless|tracks] <Canterbury sound, Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691655.jpg" />
+  <img src="Z:/picture/008/save_picture_691655.jpg" />
 </div>
 
 
@@ -586,7 +733,7 @@ Mostly Autumn - Sight Of Day (2017) [FLAC|Lossless|tracks + .cue] <Prog Rock, Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691415.jpg" />
+  <img src="Z:/picture/008/save_picture_691415.jpg" />
 </div>
 
 
@@ -600,151 +747,6 @@ Mostly Autumn - Sight Of Day (2017) [FLAC|Lossless|tracks + .cue] <Prog Rock, Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3DF523ADEF446DEE138BDDA36C48E36AA29C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028257   (690801) от 22.06.2016
-
-The Zombies - Still Got That Hunger (2015) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving On (4:00)
-02. Chasing the Past (4:05)
-03. Edge of the Rainbow (4:10)
-04. New York (4:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A489F4403EEFF26FB4D68BD559A336A2BB270AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288997   (690512) от 14.03.2019
-
-Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690512.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stay With Me
-2. Radio Player
-3. Runaway
-4. Somewhere On Fullerton(   Читать дальше...   )Жанр: Rock, Pop-PunkПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13B746FB587C3A3239BE35FD1FC1322B54FDB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289023   (690389) от 14.03.2019
-
-Kasey Chambers & The Fireside Disciples - Campfire (2018) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	The Campfire Song (feat. Alan Pigram) 	3:33
-2 	Go On Your Way 	2:02
-3 	Orphan Heart 	3:13
-4 	Goliath Is Dead 	2:29(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD2F50B90654B317110B0C473ACB6B24B6E3E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288690   (690380) от 14.03.2019
-
-Chris De Burgh - This Way Up (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Silent World
-02. This Is Love
-03. This Weight On Me
-04. Here Is Your Paradise(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C392958A5622164001F2A629AAC8060D525CAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403523   (690331) от 20.08.2020
-
-Whitney - Light Upon the Lake (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	No Woman	[04:00]
-02.	The Falls	[02:22]
-03.	Golden Days	[04:07]
-04.	Dave's Song	[03:04](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3FA737DFAC837102492ED3ED959AB273CA9A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

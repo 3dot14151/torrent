@@ -1,3 +1,84 @@
+###  Публикация: 1569162   (455728) от 11.08.2022
+
+Вильгельм Гауф | Сказки (2022) [MP3, Елена Хафизова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцати дней не дожил великий романтик Вильгельм Гауф до своего двадцатипятилетия, но объем и великолепие сделанного им поражают.
+
+В аудиокнигу входят все сказки из сборников «Караван» (1826), «Александрийский шейх и его невольники» (1827) и «Харчевня в Шпессарте» (1828).
+(   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 15:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB24AC16DA947AEE7CF211CD2A528685A72F8FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247083   (454934) от 14.09.2018
+
+Лидия Чарская | Дом шалунов (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир маленьких шалунов является в этой книге только фоном, на котором развивается грустная повесть о случайно попавшем в эту среду мальчике с добрыми задатками. Юный читатель найдет здесь множество типов маленьких проказников, узнает об их радостях и невзгодах. И, возможно, не одно детское сердечко проникнется добрыми чувствами, познает собственные пороки и недостатки (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 04:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC99A6B423AC6A7DF14A125763D71BE1C01D6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569369   (453834) от 12.08.2022
+
+Павел Сурожский | Янтарь (2021) [MP3, Маленький Фонарщик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михайлик приехал на новое место жительства, в имение, где устроился на работу его отец. Имение располагалось у моря, между городами Мемель (ныне Клайпеда) и Либава (Любава, ныне Лиепая). Там он открывает для себя удивительный мир янтаря и прекрасных огнистых закатов...Жанр: Детская литератураПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC6FFE846C57989D5300E6B7616CC37F94444F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569386   (453656) от 12.08.2022
 
 Виктор Драгунский | Девочка на шаре (2022) [MP3, Маленький Фонарщик]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453656.jpg" />
+  <img src="Z:/picture/008/save_picture_453656.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453027.jpg" />
+  <img src="Z:/picture/008/save_picture_453027.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452860.jpg" />
+  <img src="Z:/picture/008/save_picture_452860.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451874.jpg" />
+  <img src="Z:/picture/008/save_picture_451874.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451814.jpg" />
+  <img src="Z:/picture/008/save_picture_451814.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450430.jpg" />
+  <img src="Z:/picture/008/save_picture_450430.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449329.jpg" />
+  <img src="Z:/picture/008/save_picture_449329.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447970.jpg" />
+  <img src="Z:/picture/008/save_picture_447970.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446187.jpg" />
+  <img src="Z:/picture/008/save_picture_446187.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445252.jpg" />
+  <img src="Z:/picture/008/save_picture_445252.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443150.jpg" />
+  <img src="Z:/picture/008/save_picture_443150.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442646.jpg" />
+  <img src="Z:/picture/008/save_picture_442646.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440955.jpg" />
+  <img src="Z:/picture/008/save_picture_440955.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440884.jpg" />
+  <img src="Z:/picture/008/save_picture_440884.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440798.jpg" />
+  <img src="Z:/picture/008/save_picture_440798.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438635.jpg" />
+  <img src="Z:/picture/008/save_picture_438635.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438554.jpg" />
+  <img src="Z:/picture/008/save_picture_438554.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438541.jpg" />
+  <img src="Z:/picture/008/save_picture_438541.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438471.jpg" />
+  <img src="Z:/picture/008/save_picture_438471.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438467.jpg" />
+  <img src="Z:/picture/008/save_picture_438467.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434038.jpg" />
+  <img src="Z:/picture/008/save_picture_434038.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432342.jpg" />
+  <img src="Z:/picture/008/save_picture_432342.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431560.jpg" />
+  <img src="Z:/picture/008/save_picture_431560.jpg" />
 </div>
 
 
@@ -605,87 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6B7226EFC0BBE43334200C884A286D7912B676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064040   (430012) от 18.10.2016
-
-Дмитрий Емец | Таня Гроттер и исчезающий этаж (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга серии.
-Тане Гроттер сначала придётся на время вернуться в Москву к своим родственникам лопухоидам Дурневым. А после возвращения на остров Буян в школу магии Тибидохс, ей предстоит узнать всю правду о загадочном Исчезающем Этаже, снова встретиться со своим заклятым врагом злой колдуньей Чумой-дель-Торт и проверить на прочность дружбу, любовь и преданность (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 10:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB585638E01C2362D0373DED39741D5456E4AB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571764   (429660) от 23.08.2022
-
-Коллектив авторов | Профориентация (Лекторий ВШЭ) (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребёнок, ставший жертвой буллинга, не всегда готов говорить об этом маме или педагогу, однако рассказывать об этом необходимо – только так можно разобраться с проблемой и сформировать в образовательной организации правильную атмосферу. В чём причина травли? Как говорить об этом с ребёнком? Что делать родителям и учителям? Можно ли повлиять на школьный климат?
-
-Цикл (   Читать дальше...   )Жанр: педагогика, публицистика, социологияПродолжительность: 12:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB26B086A374A1747B7FACF2DB1E834569AA1226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394941   (425858) от 01.10.2011
-
-Владислав Крапивин | Ковёр-самолёт (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказывается, летать можно не только во сне. Герои сказочной повести — самые обыкновенные ребята. Однажды летом они нашли в старом чулане ковер и узнали его тайну. С этого момента перед друзьями открылись невероятные возможности. Их ждут захватывающие приключения и замечательные путешествия, в которых отважным «летчикам» предстоит совершить множество добрых и справедливых (   Читать дальше...   )Жанр: Сказочная повестьФормат: MP3Продолжительность: 05:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDFB5468C8A9EFFC978454F2090AE0E2E217371
 ```
 
 https://mybot314.ru/tekegram_catalog/

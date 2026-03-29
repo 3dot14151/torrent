@@ -1,3 +1,111 @@
+###  Публикация: 709364   (749733) от 23.05.2016
+
+PBS. Природа - Дом животных / Nature - The Animal House (2007) BDRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные строят дома по тем же самым причинам, что и люди, но они начали это делать гораздо гораздо раньше человека... Дома животных могут быть очень простыми, но иногда ни похожи на настоящее архитектурное чудо. Все эти сооружения - вне зависимости от того, нора это, гнездо или еще что-либо - это места, где разворачиваются драмы и где порой происходят очень неординарные (   Читать дальше...   )Жанр: Документальный, природа
+
+Релиз группыПеревод: Одноголосый закадровый (профессиональный, Дмитрий Есарев)Язык субтитров: русский, английскийПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBDC1CE309031B6E41261777F4A30B99BBEE9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019508   (749620) от 23.05.2016
+
+BBC: Горькое озеро / Bitter Lake (2015) Web-DLRip [H.264/720p] [EN / RU Sub]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_749620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Политики использовали наше доверие к ним, чтобы рассказывать нам истории, придающие смысл хаосу мировых событий. Но делать это становится все сложнее, и политики, случайным образом реагируя на каждый новый кризис, — оставляют нас в недоумении и дезориентированности.
+«Горькое озеро» — это новый увлекательный и эпический фильм Адама Кертиса, который объясняет почему (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, новейшая история, политикаРежиссер: Адам Кертис (Adam Curtis)Перевод: СубтитрамиЯзык озвучки: АнглийскийСубтитры: Русский (ass) + английские субтитры отдельным файлом (.srt)Продолжительность: 02:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0D9AA01A9AE123A73802CFA58CCAF355EB19F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216506   (749094) от 31.03.2018
+
+BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал от мастеров жанра канала ВВС. На этот раз мы не просто станем свидетелями жизни животных, а перенесемся в мир миниатюры, где маленькие существа борются за жизнь наравне с большими и сильными обитателями фауны. Мы увидим, как они видят нас. Сможем заметить, как от движений маленьких животных шевелятся травинки. Уникальный спектр съемки позволит уловить самые (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-познавательный, природа, фауна, исследованиеРежиссер: Саймон БеллПеревод: Одноголосый закадровый, профессиональныйСубтитры: ДатскиеПродолжительность: 3 x ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9B7CD8B41E2F5ECF7DAE2F2556B3F411D505EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467565   (748662) от 02.05.2014
+
+BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремление жить дольше - едва ли не самая давняя человеческая мечта. Но в то время как ученые всего мира веками искали ответ, несколько изолированных сообществ нашли ответ сами собой - не подозревая об этом. На удаленном японском острове Окинава, в калифорнийском городе Лома Линда и в горах Сардинии - люди живут дольше, чем где-либо еще на земле.
+В этих уникальных сообществах группа ученых, посвятивших свою жизнь поискам эликсира долголетия, пытается раскрыть их тайны. Horizon предпринимает путешествие по всему миру, чтобы встретиться с людьми, которые могут показать нам всем, как жить более долгой и здоровой жизнью.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC42215AE9ADFC88695146DE29FC13BFFE2C9B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463157   (748586) от 02.05.2014
 
 BBC: Величайшие явления природы / Nature's Great Events (Nature's Most Amazing Events) (2009) Blu-ray [VC-1/1080i] (часть 2)
@@ -6,7 +114,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748586.jpg" />
+  <img src="Z:/picture/008/save_picture_748586.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748583.jpg" />
+  <img src="Z:/picture/008/save_picture_748583.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748582.jpg" />
+  <img src="Z:/picture/008/save_picture_748582.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748459.jpg" />
+  <img src="Z:/picture/008/save_picture_748459.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748187.jpg" />
+  <img src="Z:/picture/008/save_picture_748187.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748153.jpg" />
+  <img src="Z:/picture/008/save_picture_748153.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ NG: Китайская мегагробница. Секреты терракот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748126.jpg" />
+  <img src="Z:/picture/008/save_picture_748126.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748068.jpg" />
+  <img src="Z:/picture/008/save_picture_748068.jpg" />
 </div>
 
 
@@ -215,7 +323,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip [H.264/720p-LQ] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747936.jpg" />
+  <img src="Z:/picture/008/save_picture_747936.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip (1-4 серия 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747834.jpg" />
+  <img src="Z:/picture/008/save_picture_747834.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747830.jpg" />
+  <img src="Z:/picture/008/save_picture_747830.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747488.jpg" />
+  <img src="Z:/picture/008/save_picture_747488.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747055.jpg" />
+  <img src="Z:/picture/008/save_picture_747055.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ BBC: Что такое свет / Light Fantastic (2004)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746588.jpg" />
+  <img src="Z:/picture/008/save_picture_746588.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746533.jpg" />
+  <img src="Z:/picture/008/save_picture_746533.jpg" />
 </div>
 
 
@@ -399,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746254.jpg" />
+  <img src="Z:/picture/008/save_picture_746254.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746250.jpg" />
+  <img src="Z:/picture/008/save_picture_746250.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745900.jpg" />
+  <img src="Z:/picture/008/save_picture_745900.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745230.jpg" />
+  <img src="Z:/picture/008/save_picture_745230.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ Discovery. Легендарные места / Legendary Locations (2018) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745168.jpg" />
+  <img src="Z:/picture/008/save_picture_745168.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ Animal Planet: Животный мир Дубая / Wild Dubai (2018) HDTVRip [H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745154.jpg" />
+  <img src="Z:/picture/008/save_picture_745154.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745130.jpg" />
+  <img src="Z:/picture/008/save_picture_745130.jpg" />
 </div>
 
 
@@ -566,111 +674,6 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BC54ED3EE3F64B82EC478BC75983FBEF3EB6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342856   (745124) от 04.05.2014
-
-BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одиноки ли мы во вселенной? За последнее время люди многое узнали о планетах и звездах Солнечной системы. Известны их размеры, вес и состав, расстояние от каждой планеты до Солнца, а современные астрономические приборы, такие, как радиотелескопы и космические зонды, позволили сделать ряд гипотез о возникновении звезд.
-Сериал ВВС «Планеты» приглашает вас в невероятное (   Читать дальше...   )Производство: Великобритания / A+E Networks, British Broadcasting Corporation (BBC)Жанр: документальныйРежиссер: Дэвид МакНабПеревод: Профессиональный двухголосыйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662B0336A701A79FE59E0BD8B49337C70F45398F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334685   (743873) от 17.07.2020
-
-Тайны невидимого мира / Mysteries of the Unseen World (2013) BDRemux [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм переносит зрителей в места нашей планеты, где они никогда раньше не были, чтобы увидеть вещи, которые находятся за пределами нашего нормального зрения, но буквально прямо перед глазами. "Тайны невидимого мира" показывает явления, которые нельзя увидеть невооруженным глазом, приглашая зрителей в земные миры, которые спрятаны от нас другими масштабами (   Читать дальше...   )Производство: США, Day's End Pictures, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Луи ШварцбергПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0BF4A099E35450330A5321B534E6C7595D9659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020319   (743450) от 27.05.2016
-
-BBC: История возникновения лекарств / BBC: Pain, Pus and Poison (2013) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743450.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале британский журналист и врач Майкл Мосли расскажет о том, как были изобретены самые широко используемые и значимые лекарственные средства. Программа рассказывает о том, как наши попытки найти исцеление от самых обычных простуд до смертельных заболеваний, привели нас к осознанию важности химии, а также о том, как лекарства полностью изменили жизнь миллионов (   Читать дальше...   )Производство: BBCЖанр: ДокументальныйРежиссер: Алекс Фриман/Alex FreemanПеревод: Одноголосый закадровый, профессиональныйСубтитры: НетПродолжительность: 3 x ~ 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C742FEB895914038720474F3EFB98AD4C9FEC8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020690   (743334) от 27.05.2016
-
-Помпеи: новые секреты / Pompeii: New Secrets Revealed with Mary Beard (2016)HDTVRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историк Мэри Бирд отправляется на раскопки древнего города, застывшего во времени из-за извержения вулкана в 79 году н.э. За всё время раскопок было немало рассказано об этом городе, но, тем не менее, секретов у него ещё предостаточно, целая треть города ещё покоится в застывшей лаве, а также мы практически ничего не знаем о том, чьи тела были найдены. Используя (   Читать дальше...   )Производство: Lion Television, At Land Productions production for BBCТелекомпания: BBCЖанр: Документальный, история, исследованияРежиссер: Ян А. ХантПеревод: Одноголосый закадровый, профессиональныйСубтитры: НетФормат: AVIПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8420FBEB7318CA458292E7AFDE3E24D75501ED0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

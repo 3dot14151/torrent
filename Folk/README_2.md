@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718325.jpg" />
+  <img src="Z:/picture/008/save_picture_718325.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714139.jpg" />
+  <img src="Z:/picture/008/save_picture_714139.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689307.jpg" />
+  <img src="Z:/picture/008/save_picture_689307.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688278.jpg" />
+  <img src="Z:/picture/008/save_picture_688278.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Co
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682204.jpg" />
+  <img src="Z:/picture/008/save_picture_682204.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Jennifer Nettles (Дженнифер Неттлз) - To Celebrate Christmas (201
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680939.jpg" />
+  <img src="Z:/picture/008/save_picture_680939.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Na
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680936.jpg" />
+  <img src="Z:/picture/008/save_picture_680936.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Holly Benton - Road Trip (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673012.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664684.jpg" />
+  <img src="Z:/picture/008/save_picture_664684.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663350.jpg" />
+  <img src="Z:/picture/008/save_picture_663350.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Don Williams - The Best of Don Williams (2003) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654680.jpg" />
+  <img src="Z:/picture/008/save_picture_654680.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648418.jpg" />
+  <img src="Z:/picture/008/save_picture_648418.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646588.jpg" />
+  <img src="Z:/picture/008/save_picture_646588.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Argishty - В начале было дыхание (2016) [MP3|320 Kbps] <Armeni
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641795.jpg" />
+  <img src="Z:/picture/008/save_picture_641795.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641458.jpg" />
+  <img src="Z:/picture/008/save_picture_641458.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641160.jpg" />
+  <img src="Z:/picture/008/save_picture_641160.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639464.jpg" />
+  <img src="Z:/picture/008/save_picture_639464.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637490.jpg" />
+  <img src="Z:/picture/008/save_picture_637490.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637317.jpg" />
+  <img src="Z:/picture/005/save_picture_637317.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу пе�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635631.jpg" />
+  <img src="Z:/picture/008/save_picture_635631.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - What are you thinking about soldier / О чем задумался, слу�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635619.jpg" />
+  <img src="Z:/picture/008/save_picture_635619.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635344.jpg" />
+  <img src="Z:/picture/008/save_picture_635344.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-пе
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635203.jpg" />
+  <img src="Z:/picture/008/save_picture_635203.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630510.jpg" />
+  <img src="Z:/picture/008/save_picture_630510.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627949.jpg" />
+  <img src="Z:/picture/008/save_picture_627949.jpg" />
 </div>
 
 
@@ -775,7 +775,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627948.jpg" />
+  <img src="Z:/picture/008/save_picture_627948.jpg" />
 </div>
 
 

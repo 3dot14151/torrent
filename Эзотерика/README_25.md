@@ -1,3 +1,29 @@
+###  Публикация: 1428977   (178122) от 04.12.2020
+
+Сурья Дас | Йога исцеления себя и судьбы. Практика улыбки (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание, которое вы держите в руках, – логическое продолжение предыдущей книги автора «Йогатерапия». Простым и понятным языком Сурья Дас знакомит читателей с основами йоги – искусства, в котором он является настоящим мастером и мудрым наставником других практикующих. Сурья рассказывает о ключевых понятиях йоги, которые дополняет рекомендациями по её антистрессовому (   Читать дальше...   )Жанр: Йога, Практическая эзотерикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0765EB27B859FF6F53EA4C66A6A13CC81E38730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428985   (178050) от 04.12.2020
 
 Александр Иваницкий | АнтиВзлом Матрицы. Как выйти на тот уровень жизни, когда все получается само собой (2018) [EPUB]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178050.jpg" />
+  <img src="Z:/picture/005/save_picture_178050.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176382.jpg" />
+  <img src="Z:/picture/004/save_picture_176382.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169401.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158417.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158063.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156775.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156606.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155783.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155513.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155036.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151510.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149715.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149414.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148844.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148691.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146911.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146729.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145361.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145204.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145202.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144824.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144423.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144380.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140366.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139411.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AE8655513D15102B696DB2041A4D06182FC783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436116   (139213) от 30.12.2020
-
-Надежда Маркова | Семейные тайны. Практика системных расстановок (2020) [PDF, EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надежда Маркова – психотерапевт с богатым опытом работы, автор бестселлеров по системным расстановкам. В книге она рассказывает, какие последствия для потомков могут быть, если скрывать от родственников тайны, которые относятся к истории вашего рода и, в случае раскрытия, могут запятнать образ семьи. Скрывают «позорные» смерти: убийство или самоубийство, смерти от (   Читать дальше...   )Жанр: Психология и эзотерикаФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62E82A6F69E5600084D458C2B11B63AF654277A
 ```
 
 https://mybot314.ru/tekegram_catalog/

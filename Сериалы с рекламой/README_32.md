@@ -1,3 +1,29 @@
+###  Публикация: 1452311   (209991) от 01.07.2023
+
+Заглушение / Утонувший / The Drowning (2021) WEBRip (сезон 1, серии 1-4 из 4) WestFilm [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын Джоди, Том, пропал 9 лет назад, и с тех пор она всё ещё приходит в себя. Но когда Джоди встречает Дэниела, подростка, который невероятно похож на Тома, возродившаяся надежда угрожает её хрупкому душевному равновесию и толкает на опасный путь.Производство: Великобритания / All3Media International, Unstoppable Film and TelevisionЖанр: триллер, драма, детективРежиссер: Каролина ДжаметтаАктеры: Джилл Халфпенни, Дарах О Дубхойн, Дебора Файндлей, Дирдри Маллинз, Aaron Kane, Джонас Армстронг, Cody Molko, Руперт Пенри-Джонс, Джейд Аноука, Бабс ОлусанмокунПеревод: Многоголосый любительский (WestFilm)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют рекламные вставки (аудио / видео / баннер / текст)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524433C3CF49306FA1FE0D787E61AAA8785D4080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569991   (208390) от 11.09.2022
 
 Истории ходячих мертвецов / Tales of the Walking Dead (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) LakeFilms [AD, PR]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208390.jpg" />
+  <img src="Z:/picture/005/save_picture_208390.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208025.jpg" />
+  <img src="Z:/picture/005/save_picture_208025.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207159.jpg" />
+  <img src="Z:/picture/005/save_picture_207159.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207067.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206887.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206846.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206775.jpg" />
+  <img src="Z:/picture/005/save_picture_206775.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206770.jpg" />
+  <img src="Z:/picture/005/save_picture_206770.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205953.jpg" />
+  <img src="Z:/picture/005/save_picture_205953.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204289.jpg" />
+  <img src="Z:/picture/004/save_picture_204289.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204064.jpg" />
+  <img src="Z:/picture/004/save_picture_204064.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203211.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203149.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201924.jpg" />
+  <img src="Z:/picture/005/save_picture_201924.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200989.jpg" />
+  <img src="Z:/picture/004/save_picture_200989.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200982.jpg" />
+  <img src="Z:/picture/004/save_picture_200982.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200111.jpg" />
+  <img src="Z:/picture/005/save_picture_200111.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198964.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198958.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198763.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198707.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198633.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198445.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198403.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198390.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97F84964C94154F18A083C437F10C22E44C4998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632749   (198349) от 16.05.2023
-
-Враг общества / Ennemi public / Public Enemy (2023) WEBRip [H.264/1080p] (сезон 3, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Клоэ продолжает отчаянно искать свою младшую сестру Джессику, полиция обнаруживает след Поля Ван Акера в хорошо знакомом Беранжэ районе. Попав в Вильсар, он изображает идеального монаха. Но, движимый инстинктами, он использует любую минуту, чтобы отправиться в деревню и решить, кто станет его следующей жертвой. Кажется, только Люка может остановить его, пока (   Читать дальше...   )Производство: Бельгия / Entre Chien et Loup, Playtime Films, ProximusЖанр: драма, криминал, детектив, триллерРежиссер: Маттье ФрэнсисАктеры: Росен Жан-Жак, Клеман Мануэль, Анджело Бисон, Филипп Жозетт, Дэниэл Ханссенс, Франсуа Нейкен, Саймон Андре и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, французскийСубтитры: Русские, французскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A77F627366769C484CE1421F7F696C41EE1DFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

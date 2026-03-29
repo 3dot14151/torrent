@@ -1,3 +1,57 @@
+###  Публикация: 1259099   (323539) от 02.11.2018
+
+Дмитрий Кайгородов | Из родной природы [Часть 2] (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русские писатели и поэты о родной природе.
+Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52E7C80AA189A826C17791A57189A9BEFA84321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259097   (323536) от 02.11.2018
+
+Николай Рубакин | На необитаемом острове (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения и путешествия.
+Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298DEB9201C1DD3D013B2563DE12908D52EE1A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582516   (323345) от 09.10.2022
 
 Наталья и Василий Волковы | ВДНХ. Главная выставка страны (2016) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323345.jpg" />
+  <img src="Z:/picture/008/save_picture_323345.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322137.jpg" />
+  <img src="Z:/picture/008/save_picture_322137.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322124.jpg" />
+  <img src="Z:/picture/008/save_picture_322124.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322038.jpg" />
+  <img src="Z:/picture/008/save_picture_322038.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321818.jpg" />
+  <img src="Z:/picture/008/save_picture_321818.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321657.jpg" />
+  <img src="Z:/picture/008/save_picture_321657.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321632.jpg" />
+  <img src="Z:/picture/008/save_picture_321632.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321512.jpg" />
+  <img src="Z:/picture/008/save_picture_321512.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321316.jpg" />
+  <img src="Z:/picture/008/save_picture_321316.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319295.jpg" />
+  <img src="Z:/picture/008/save_picture_319295.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319069.jpg" />
+  <img src="Z:/picture/008/save_picture_319069.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319001.jpg" />
+  <img src="Z:/picture/008/save_picture_319001.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318945.jpg" />
+  <img src="Z:/picture/008/save_picture_318945.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318788.jpg" />
+  <img src="Z:/picture/008/save_picture_318788.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318773.jpg" />
+  <img src="Z:/picture/008/save_picture_318773.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318752.jpg" />
+  <img src="Z:/picture/008/save_picture_318752.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318751.jpg" />
+  <img src="Z:/picture/008/save_picture_318751.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318696.jpg" />
+  <img src="Z:/picture/008/save_picture_318696.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318655.jpg" />
+  <img src="Z:/picture/008/save_picture_318655.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318651.jpg" />
+  <img src="Z:/picture/008/save_picture_318651.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318650.jpg" />
+  <img src="Z:/picture/008/save_picture_318650.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318646.jpg" />
+  <img src="Z:/picture/008/save_picture_318646.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317375.jpg" />
+  <img src="Z:/picture/008/save_picture_317375.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317277.jpg" />
+  <img src="Z:/picture/008/save_picture_317277.jpg" />
 </div>
 
 
@@ -626,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D03A423464EBDB7867B3EA9D192D66006B97B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728254   (317271) от 29.11.2013
-
-С.А Субханкулова | Математика: элективный курс. Задачи с параметрами (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие может быть использовано при подготовке к экзаменам в вузы, а также окажет помощь студентам педагогических вузов, учителям, работающим в классах с углубленным изучением математики, при проведении факультативных занятий.
-Пособие состоит из 13 параграфов, к каждому из которых приведены примеры решений задач, предлагавшихся в основном на вступительных экзаменах в различные вузы страны. Приведены также упражнения трех уровней сложности А, В, С для самостоятельного решения, отдельные из них снабжены указаниями или решениями. Для удобства работы с текстом все содержание материала разбито на 34 часа учебного времени.Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC880C26C7044F132057B97E6DF46FD6D4CF905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728265   (317266) от 29.11.2013
-
-Л.Д. Лаппо, А.А. Сапожников | Решение экзаменационных задач по Алгебре за 9 класс (2002) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это пособие, основанно на учебнике "Алгебра. Сборник заданий для проведения письменного экзамена по алгебре за курс основной школы". При помощи этой книги Вы сможете запросто решить любой пример, или же проверить решенноеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20F486A4DC27A0BF372B17B845807FC53F91512
 ```
 
 https://mybot314.ru/tekegram_catalog/

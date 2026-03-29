@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719317.jpg" />
+  <img src="Z:/picture/008/save_picture_719317.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Navicat Premium 15.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719263.jpg" />
+  <img src="Z:/picture/008/save_picture_719263.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TinkerTool System 6 v.6.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719259.jpg" />
+  <img src="Z:/picture/008/save_picture_719259.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JixiPix Chromatic Edges 1.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719249.jpg" />
+  <img src="Z:/picture/008/save_picture_719249.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719243.jpg" />
+  <img src="Z:/picture/008/save_picture_719243.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719240.jpg" />
+  <img src="Z:/picture/008/save_picture_719240.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Windows 10 TP Language Pack build 10061 (x86-x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719193.jpg" />
+  <img src="Z:/picture/008/save_picture_719193.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ SAM CoDeC & DeCoDeR Pack 2015 5.85 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719186.jpg" />
+  <img src="Z:/picture/008/save_picture_719186.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719166.jpg" />
+  <img src="Z:/picture/005/save_picture_719166.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ NIIGHTS - Hellebores (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719161.jpg" />
+  <img src="Z:/picture/008/save_picture_719161.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ RightFont 5 v5.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719156.jpg" />
+  <img src="Z:/picture/008/save_picture_719156.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Vivaldi 3.2.1967.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719135.jpg" />
+  <img src="Z:/picture/008/save_picture_719135.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719133.jpg" />
+  <img src="Z:/picture/008/save_picture_719133.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719132.jpg" />
+  <img src="Z:/picture/008/save_picture_719132.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719131.jpg" />
+  <img src="Z:/picture/008/save_picture_719131.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719130.jpg" />
+  <img src="Z:/picture/008/save_picture_719130.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719129.jpg" />
+  <img src="Z:/picture/008/save_picture_719129.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719128.jpg" />
+  <img src="Z:/picture/008/save_picture_719128.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719127.jpg" />
+  <img src="Z:/picture/008/save_picture_719127.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719126.jpg" />
+  <img src="Z:/picture/008/save_picture_719126.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ iStat Menus 6.11 (986) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719122.jpg" />
+  <img src="Z:/picture/008/save_picture_719122.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Daum PotPlayer 1.7.10667 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719114.jpg" />
+  <img src="Z:/picture/008/save_picture_719114.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Dr.Web Security Space 11.0.7.4020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719109.jpg" />
+  <img src="Z:/picture/008/save_picture_719109.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719104.jpg" />
+  <img src="Z:/picture/005/save_picture_719104.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Side Liner - No Vember (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719064.jpg" />
+  <img src="Z:/picture/008/save_picture_719064.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Kinza Browser 5.3.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719061.jpg" />
+  <img src="Z:/picture/008/save_picture_719061.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408987.jpg" />
+  <img src="Z:/picture/008/save_picture_408987.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mireille Mathieu - Platinum Collection (2005) [FLAC|Lossless]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404442.jpg" />
+  <img src="Z:/picture/008/save_picture_404442.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Salvatore Adamo - Het Beste Van Adamo (2003) [FLAC|Lossless|tracks + .cue] <Chan
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367945.jpg" />
+  <img src="Z:/picture/008/save_picture_367945.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Marc Lavoine - Je descends du singe (2012) [FLAC|image+.cue]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357951.jpg" />
+  <img src="Z:/picture/008/save_picture_357951.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Mireille Mathieu - Noel (2015) [FLAC|Lossless|tracks] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356606.jpg" />
+  <img src="Z:/picture/008/save_picture_356606.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Marc Lavoine - Volume 10 (2010) [FLAC|image+.cue]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353144.jpg" />
+  <img src="Z:/picture/008/save_picture_353144.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Serge Gainsbourg - De Gainsbourg A Gainsbarre (1990) 2CD, 1994 [FLAC|Lossless|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338226.jpg" />
+  <img src="Z:/picture/008/save_picture_338226.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Helene (Hélène) Rolles - Ce train qui s'en va (1989) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303152.jpg" />
+  <img src="Z:/picture/008/save_picture_303152.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Helene (Hélène) Rolles - Pour l’amour d’un garçon (1992) [FLAC|Lossless|W
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303135.jpg" />
+  <img src="Z:/picture/008/save_picture_303135.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Helene (Hélène) Rolles - Toi... émois (1995) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301252.jpg" />
+  <img src="Z:/picture/008/save_picture_301252.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301242.jpg" />
+  <img src="Z:/picture/008/save_picture_301242.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301160.jpg" />
+  <img src="Z:/picture/008/save_picture_301160.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300801.jpg" />
+  <img src="Z:/picture/008/save_picture_300801.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298581.jpg" />
+  <img src="Z:/picture/008/save_picture_298581.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Helene (Hélène) Rolles - Hélène (2016) [FLAC|Lossless|WEB-DL|tracks] <Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298477.jpg" />
+  <img src="Z:/picture/008/save_picture_298477.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Dalida - Les Geants De La Chanson (2016) [FLAC|Lossless|tracks + .cue] <Chanson,
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287965.jpg" />
+  <img src="Z:/picture/008/save_picture_287965.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Joe Dassin - Oh, Champs-Elysees - Seine Grossen (1992) [FLAC|tracks+.cue]<Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286882.jpg" />
+  <img src="Z:/picture/008/save_picture_286882.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - The Great French Singers Collection (12CD)(2011) [MP3|320 кб/с]<French C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276179.jpg" />
+  <img src="Z:/picture/008/save_picture_276179.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Souchon - C'Est Deja Ca (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223634.jpg" />
+  <img src="Z:/picture/005/save_picture_223634.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Celine Dion - D'Eux (1995) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223400.jpg" />
+  <img src="Z:/picture/005/save_picture_223400.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Marie Laforet - Marie Laforet (2001) [FLAC|Lossless|image + .cue] <Chanson, Pop>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183964.jpg" />
+  <img src="Z:/picture/004/save_picture_183964.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171882.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157004.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144088.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102468.jpg" />
+  <img src="Z:/picture/005/save_picture_102468.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77758.jpg" />
 </div>
 
 

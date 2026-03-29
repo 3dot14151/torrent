@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762310.jpg" />
+  <img src="Z:/picture/008/save_picture_762310.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ScreenToGif 2.26.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762287.jpg" />
+  <img src="Z:/picture/008/save_picture_762287.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CyberLink PowerDVD Ultra 15.0.1510.58 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762278.jpg" />
+  <img src="Z:/picture/008/save_picture_762278.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Start Menu X 5.40 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762276.jpg" />
+  <img src="Z:/picture/008/save_picture_762276.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advanced SystemCare Pro 8.2.0.795 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762260.jpg" />
+  <img src="Z:/picture/008/save_picture_762260.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CoolUtils Total Audio Converter 5.3.0.194 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762232.jpg" />
+  <img src="Z:/picture/008/save_picture_762232.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PrivaZer 3.0.63 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762230.jpg" />
+  <img src="Z:/picture/008/save_picture_762230.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PrivaZer 4.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762219.jpg" />
+  <img src="Z:/picture/008/save_picture_762219.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SRWare Iron 83.0.4250.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762216.jpg" />
+  <img src="Z:/picture/008/save_picture_762216.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sumatra PDF 3.3.13011 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762212.jpg" />
+  <img src="Z:/picture/008/save_picture_762212.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ HDCleaner 1.297 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762211.jpg" />
+  <img src="Z:/picture/008/save_picture_762211.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Movavi Slideshow Maker 6.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762200.jpg" />
+  <img src="Z:/picture/008/save_picture_762200.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Google Earth Pro 7.1.4.1529 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762180.jpg" />
+  <img src="Z:/picture/008/save_picture_762180.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Windows 7 Manager 5.0.8 RePack (& portable) by KpoJIuK (10.04.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762179.jpg" />
+  <img src="Z:/picture/008/save_picture_762179.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Maxthon Browser 5.2.7.400 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762138.jpg" />
+  <img src="Z:/picture/008/save_picture_762138.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ reaConverter Pro 7.474 RePack by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762137.jpg" />
+  <img src="Z:/picture/008/save_picture_762137.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PrivaZer 3.0.63 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762132.jpg" />
+  <img src="Z:/picture/008/save_picture_762132.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Process Lasso Pro 9.0.0.574 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762131.jpg" />
+  <img src="Z:/picture/008/save_picture_762131.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Telegram Desktop 1.5.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762124.jpg" />
+  <img src="Z:/picture/008/save_picture_762124.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ PrivaZer 4.0.5 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762120.jpg" />
+  <img src="Z:/picture/008/save_picture_762120.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NirLauncher Package 1.23.26 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762114.jpg" />
+  <img src="Z:/picture/008/save_picture_762114.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tor Browser Bundle 4.0.8 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762076.jpg" />
+  <img src="Z:/picture/008/save_picture_762076.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Acronis BootDVD 2015 Grub4Dos Edition v.27 (4/9/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762075.jpg" />
+  <img src="Z:/picture/008/save_picture_762075.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Adobe Acrobat Pro DC 2015.007.20033 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762071.jpg" />
+  <img src="Z:/picture/008/save_picture_762071.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ WPI x86-x64 by OVGorskiy® 04.2015 1DVD (32/64 bit) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762057.jpg" />
+  <img src="Z:/picture/008/save_picture_762057.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Auslogics Disk Defrag Free 8.0.22.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762007.jpg" />
+  <img src="Z:/picture/008/save_picture_762007.jpg" />
 </div>
 
 

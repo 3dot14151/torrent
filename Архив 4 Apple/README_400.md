@@ -1,3 +1,113 @@
+###  Публикация: 1326023   (407417) от 18.09.2019
+
+BBEdit 12 12.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407417.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2019Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAEC201FE83884DC4FFB5C200E292815932BEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326008   (407414) от 18.09.2019
+
+Money Pro - Personal Finance 2.2.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C7C08FEFA42EA967533838A4F49B171A1F5E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168812   (405056) от 25.09.2017
+
+Lingon X 5.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 сентября 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B9C72E4884E9224AE88064ED8B76649B1D48AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168885   (405000) от 25.09.2017
+
+Downie 3.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – легкая загрузка видео с тысячи разных сайтов.
+Downie поддерживает более 1,100 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Поддержка 4K видео YouTube - в отличие от многих других загрузчиков YouTube, Downie поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: см. пост Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5906B40BAB3EC9DFA937044292484543DC75A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168718   (404772) от 25.09.2017
 
 Serial 1.3.5 [En]
@@ -6,7 +116,7 @@ Serial 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404772.jpg" />
+  <img src="Z:/picture/008/save_picture_404772.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ Gemini 2: The Duplicate Finder 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404591.jpg" />
+  <img src="Z:/picture/008/save_picture_404591.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ ScreenFlow 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404048.jpg" />
+  <img src="Z:/picture/008/save_picture_404048.jpg" />
 </div>
 
 
@@ -91,7 +201,7 @@ Path Finder 7.6 (1724) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403886.jpg" />
+  <img src="Z:/picture/008/save_picture_403886.jpg" />
 </div>
 
 
@@ -117,7 +227,7 @@ CleanMyMac 3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403666.jpg" />
+  <img src="Z:/picture/008/save_picture_403666.jpg" />
 </div>
 
 
@@ -146,7 +256,7 @@ Algoriddim djay Pro (Complete FX Pack) 1.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403149.jpg" />
+  <img src="Z:/picture/008/save_picture_403149.jpg" />
 </div>
 
 
@@ -173,7 +283,7 @@ Alfred Powerpack 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403140.jpg" />
+  <img src="Z:/picture/008/save_picture_403140.jpg" />
 </div>
 
 
@@ -202,7 +312,7 @@ Synalyze It! Pro 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402475.jpg" />
+  <img src="Z:/picture/008/save_picture_402475.jpg" />
 </div>
 
 
@@ -230,7 +340,7 @@ Hazel 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402473.jpg" />
+  <img src="Z:/picture/008/save_picture_402473.jpg" />
 </div>
 
 
@@ -256,7 +366,7 @@ liquivid Video Improve 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402462.jpg" />
+  <img src="Z:/picture/008/save_picture_402462.jpg" />
 </div>
 
 
@@ -284,7 +394,7 @@ OmniGraffle Pro 7.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402461.jpg" />
+  <img src="Z:/picture/008/save_picture_402461.jpg" />
 </div>
 
 
@@ -310,7 +420,7 @@ Meta 1.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402408.jpg" />
+  <img src="Z:/picture/008/save_picture_402408.jpg" />
 </div>
 
 
@@ -337,7 +447,7 @@ SketchUp Pro 2017 v17.3.116 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402157.jpg" />
+  <img src="Z:/picture/008/save_picture_402157.jpg" />
 </div>
 
 
@@ -363,7 +473,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402004.jpg" />
+  <img src="Z:/picture/008/save_picture_402004.jpg" />
 </div>
 
 
@@ -390,7 +500,7 @@ ExactScan Pro 17.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401620.jpg" />
+  <img src="Z:/picture/008/save_picture_401620.jpg" />
 </div>
 
 
@@ -416,7 +526,7 @@ App Uninstaller 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401592.jpg" />
+  <img src="Z:/picture/008/save_picture_401592.jpg" />
 </div>
 
 
@@ -444,7 +554,7 @@ OmniOutliner Pro 5.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401549.jpg" />
+  <img src="Z:/picture/008/save_picture_401549.jpg" />
 </div>
 
 
@@ -472,7 +582,7 @@ OmniFocus 2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401521.jpg" />
+  <img src="Z:/picture/008/save_picture_401521.jpg" />
 </div>
 
 
@@ -500,7 +610,7 @@ Disk Drill Enterprise 3.5.860 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401411.jpg" />
+  <img src="Z:/picture/008/save_picture_401411.jpg" />
 </div>
 
 
@@ -527,7 +637,7 @@ VMware Fusion Pro 10.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401124.jpg" />
+  <img src="Z:/picture/008/save_picture_401124.jpg" />
 </div>
 
 
@@ -554,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401080.jpg" />
+  <img src="Z:/picture/008/save_picture_401080.jpg" />
 </div>
 
 
@@ -580,7 +690,7 @@ Fanny Adams - Fanny Adams (1971) [ALAC|Lossless]<Hard Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401001.jpg" />
+  <img src="Z:/picture/008/save_picture_401001.jpg" />
 </div>
 
 
@@ -602,115 +712,6 @@ Personnel:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170166   (400603) от 30.09.2017
-
-Piezo 1.5.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo - простое и симпатичное решение для качественной записи звука, которое поможет вам записать звук из любого приложения или любого друго источника звука (аудио выход, микрофон и т.д.), при этом, практически не требуя никаких настроек. Приложение не требует никаких настроек, достаточно его запустить и выбрать из списка источников приложение. Piezo умеет записывать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C1C7A0F5D6DFB999E54B2DDC2C550A18C1C916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170157   (400572) от 30.09.2017
-
-MenuBar Stats 2.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400572.jpg" />
-</div>
-
-
-###  Подробнее
-
-MenuBar Stats - системный монитор, очистка памяти и здоровье батареи.
-Каждый модуль можно увидеть в строке меню. Каждый модуль может быть объединен в 1 окне, или в отдельном окне.
-
-Вы можете отобразить краткую информацию или максимум подробной информации, включая графики, топ-процессы и многое другое. Получать уведомления для вашего здоровья или батареи от других (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: Fabrice LeyneПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD7402C6E16A1CC08E56C9BC6B7B3591D17BB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170162   (400429) от 30.09.2017
-
-MacClean 3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики PhoneClean – популярного инструмента для очистки iOS-устройств – представили обновленное решение для компьютеров Mac. Приложение MacClean 3 позиционируется как эффективное средство с набором специальных модулей, с помощью которых можно избавить OS X от ненужных файлов.
-
-MacClean 3 содержит целый ряд новых функций для очистки Mac от неиспользуемых файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E925292C0A804A3C23810E6C876591651AF43DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170194   (400208) от 30.09.2017
-
-Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) WEB-DL [720p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400208.jpg" />
-</div>
-
-
-###  Подробнее
-
-После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Роберт Дауни мл., Майкл Китон, Мариса Томей, Джон Фавро, Джейкоб Баталон, Зендея, Лора Хэрриер, Тони Револори, Дональд ГловерПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 02:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DC9A6F17C1C09DD19C7A30F00BA2646FD6B14E
 ```
 
 https://mybot314.ru/tekegram_catalog/

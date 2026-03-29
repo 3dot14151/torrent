@@ -1,3 +1,109 @@
+###  Публикация: 1342872   (220981) от 04.12.2019
+
+NGW. Странная природа: сумасброды / Stranger than Nature. Unhinged (2019) HDTV [H.264/1080i] (серии 1-8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал "Странная природа" знакомит зрителей с самыми необычными историями из реальной жизни дикой природы.Производство: США, Tigress Productions, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Карен БеландПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342927   (220832) от 04.12.2019
+
+NG: Осушить океан: Подводные лодки-убийцы / Drain the Oceans. Killer U-Boats (2019) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первыми в мире малозаметными военными объектами стали подводные лодки, которые доказали в ходе Второй мировой войны величие королевских ВМС. Потопив немецкие корабли общим водоизмещением в 12 млн тонн, они практически обеспечили победу в этой войне. Сумев достойно ответить угрозе немецкого подводного флота, они изменили все правила ведения войны на море. Сериал "Осушить (   Читать дальше...   )Производство: США, Канада, Великобритания, 422 South, Battens Media, Mallinson Sadler Productions, National GeographicЖанр: Документальный, история, исследованияРежиссер: Алекс ВестПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7FA98729B8263F79BC306A6B5C190DB5E579D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587853   (220809) от 11.12.2012
+
+NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где же могла быть расположена легендарная Атлантида? Используя современные технологии и опираясь на записи Платона, учёные пытаются раскрыть одну из величайших тайн мира. Три научные экспедиции проверяют гипотезы о местоположении мифического, исчезнувшего города и получают поразительные результаты...
+
+РелизТелекомпания: Канада, Франция, National Geographic, "Atlantis LTD"Жанр: ДокументальныйРежиссер: Грэм БеллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC2FE9C257DDB4939023EE15B58A254B23F759F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287329   (220650) от 04.12.2019
+
+NG: Затерянные сокровища Египта / Lost Treasures of Egypt (2019) HDTV [H.264/1080i-LQ] (Сезон 1, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об исследованиях, проведенных группой египтологов, сумевших в процессе поиска ответов на тайны древних мест раскопать самую богатую древними артефактами долину царей в Египте. В течение целого сезона вы будете следить за этими неутомимыми исследователями, пользуясь беспрецедентным доступом к результатам их работы, которую они делают на переднем фронте археологии, (   Читать дальше...   )Производство: Великобритания, Windfall Films, National GeographicЖанр: Документальный, история, археологияРежиссер: Гуин УильямсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F11748D661F671B8BD1FA7CD156BFB69FED52B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343246   (219715) от 05.12.2019
 
 NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +112,7 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219715.jpg" />
+  <img src="Z:/picture/005/save_picture_219715.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219602.jpg" />
+  <img src="Z:/picture/005/save_picture_219602.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219451.jpg" />
+  <img src="Z:/picture/005/save_picture_219451.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217814.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217659.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ NG: Инстинкт выживания. Экстремальные джунгл
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217213.jpg" />
+  <img src="Z:/picture/005/save_picture_217213.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216385.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215134.jpg" />
+  <img src="Z:/picture/005/save_picture_215134.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ National Geographic. Взлом системы / Hacking the System (2014) IPTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214854.jpg" />
+  <img src="Z:/picture/005/save_picture_214854.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214041.jpg" />
+  <img src="Z:/picture/005/save_picture_214041.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212938.jpg" />
+  <img src="Z:/picture/005/save_picture_212938.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211932.jpg" />
+  <img src="Z:/picture/005/save_picture_211932.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211820.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211586.jpg" />
+  <img src="Z:/picture/005/save_picture_211586.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210877.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210231.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ NG. В поисках динозавров на Аляске / Hunting Alaskan D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210215.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210010.jpg" />
+  <img src="Z:/picture/005/save_picture_210010.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ NG. Настоящая чёрная пантера / The Real Black Panther (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209976.jpg" />
+  <img src="Z:/picture/005/save_picture_209976.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208942.jpg" />
 </div>
 
 
@@ -526,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208686.jpg" />
 </div>
 
 
@@ -552,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208081.jpg" />
 </div>
 
 
@@ -563,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:923228FB08903B19751F8E6EDE04B93238E34BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650278   (207459) от 31.07.2023
-
-Акулы и Луна - удивительная связь / Shark Side of the Moon (2022) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луна и океаны навеки связаны друг с другом. Но, возможно, эта связь далеко не ограничивается возникновением приливов и отливов. Неужели Луна управляет жизнью под водой? В сенсорной системе акул многое ещё остается непостижимым. Невероятное исследование с новейшими технологиями может связать миграции бронзовых акул-молотов с Луной...Производство: США, Roller Coaster Road, National GeographicЖанр: документальныйРежиссер: Сара Бёрнс, Алекс ШерраттУчастники: Тоби РикеттсПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2205932A17D5E8D6537C5E79CAB1FC949441E428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650639   (207391) от 02.08.2023
-
-Начало. Происхождение: Путешествие человечества / Origins: The Journey of Humankind (2017) WEB-DL [H.264/1080p] (серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы путешествуем во времени вдоль всей истории человечества в ходе интереснейшего путешествия, чтобы обнаружить ключевые начальные моменты, которые в действительности и сделали из нас современных людей. Это своеобразные "квантовые скачки" или компьютерный квест Next Big Things ("Новый хит"). Неважно, к какой точке отсчета в истории человечества (   Читать дальше...   )Производство: США, Asylum Entertainment, National GeographicЖанр: документальный, история, исследованияРежиссер: Саймон Джордж, Найал МакКормикУчастники: Джейсон СильваПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 8x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A831A5699E504BB042831D811362D3A1374001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651926   (206807) от 08.08.2023
-
-Акула - хищник в камуфляже / Camo Sharks (2022) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая белая акула - ужасная и прекрасная. Но все ли достоинства этих хищников бросаются в глаза? Двое учёных разработали теорию и беспрецедентное исследование: владеют ли эти ловкие охотники навыком маскировки, присущим самым высшим хищникам.Производство: США, Roller Coaster Road, National GeographicЖанр: документальный, исследованияРежиссер: Сара В. Бёрнс, Алекс ШерраттУчастники: Дональд Эливерт, Райан Джонсон, Гиббс КугуруПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7656B757C0CE40A0D0FBAC06B75FD7D7BF373E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930144   (206647) от 03.10.2022
-
-NG: Апокалипсис: Первая мировая война (5 серий из 5) / Apocalypse: World War I (2014) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот новый документальный сериал создан на основе более 500 часов восстановленных в цвете и озвученных архивных киноматериалов, большая часть которых ранее не показывалась. Мы перенесемся в эпицентр военных действий, от окопов северной Франции до менее известных фронтов в России, Сербии, Турции и Палестине, и также увидим повседневную жизнь гражданского населения (   Читать дальше...   )Телекомпания: France Télévisions, TV5 Québec CanadaЖанр: ДокументальныйРежиссер: Изабель Кларк, Даниэль КостельПеревод: ДублированныйПродолжительность: 5 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC7B0C8621B138336C2DC27164230F2C1A5AA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

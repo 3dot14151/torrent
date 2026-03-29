@@ -1,3 +1,119 @@
+###  Публикация: 1385974   (796065) от 27.05.2020
+
+Don Friedman Trio - Waltz For Debby (2003) 441 Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 35 W. 4th St. [4:17]
+02. I Concentrate on You [6:41]
+03. Waltz for Debby [4:34]
+04. Bud Powell [8:41](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48C3B3266CB815F90105DD6D224915D71FC2CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011917   (795687) от 29.04.2016
+
+George Adams & Don Pullen Quartet - Life Line (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Great Escape, or Run John Henry Run [04:43]
+ 02.Seriously Speaking [08:03]
+ 03.Soft Seas [07:21]
+ 04.Nature's Children [09:49](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0803FD4C1344A4C8F9E4ED76F3FB3E9CC5442DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011967   (795685) от 29.04.2016
+
+Javier Colina & Antonio Serrano - Colina Serrano Project (2009) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El blues de la alegria [04:59]
+ 02.El comandante [08:41]
+ 03.Estudio [11:58]
+ 04.Zyryab [07:51](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C7017E177C3495CEB2D4AD31404E1DD6734A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011923   (795684) от 29.04.2016
+
+Azie Mortimer - Feeling Of Jazz (1963) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Feeling Of Jazz [03:03]
+ 02.Lover Man (Oh Where Can You Be) [03:09]
+ 03.Capricious [02:25]
+ 04.Whisper Not [02:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B66C2B8FC2DCFA356A33B5047251ACF35CB2EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509120   (795677) от 11.11.2021
 
 Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
@@ -6,7 +122,7 @@ Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
+  <img src="Z:/picture/008/save_picture_795677.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
+  <img src="Z:/picture/008/save_picture_795671.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
+  <img src="Z:/picture/008/save_picture_795670.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Stan Getz & Joao Gilberto - Getz/Gilberto '76 (2016) Resonance Records[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795455.jpg" />
+  <img src="Z:/picture/008/save_picture_795455.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Winston Mankunku Ngozi - Abantwana Be Afrika (2003) Sheer Sound [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795357.jpg" />
+  <img src="Z:/picture/008/save_picture_795357.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Machito - Kenya (1958) [FLAC|Lossless|tracks] <Afro-Cuban Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795354.jpg" />
+  <img src="Z:/picture/008/save_picture_795354.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Tony Bennett - Steppin' Out (1993) Columbia [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795282.jpg" />
+  <img src="Z:/picture/008/save_picture_795282.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Tony Bennett - Tony Bennett's Greatest Hits of the '60s (2006) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795276.jpg" />
+  <img src="Z:/picture/008/save_picture_795276.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Teddy Edwards - Sunset Eyes (1959, 1960) 1998, Pacific Jazz [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795072.jpg" />
+  <img src="Z:/picture/008/save_picture_795072.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Baby Laurence - Dancemaster (1959, 1960) 2008, Classic Jazz [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795025.jpg" />
+  <img src="Z:/picture/008/save_picture_795025.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Frankie   Newton - 1937 - 1939 (1992) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795024.jpg" />
+  <img src="Z:/picture/008/save_picture_795024.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Cody Moffett - Evidence (1993) Telarc Jazz [WavPack|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795022.jpg" />
+  <img src="Z:/picture/008/save_picture_795022.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Stan Getz - Four Classic Albums: Third Set (1949 - 1958) 2CD, 2017, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795010.jpg" />
+  <img src="Z:/picture/008/save_picture_795010.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Tony Bennett & Lady Gaga - Love For Sale (2021) 2xCD [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794903.jpg" />
+  <img src="Z:/picture/008/save_picture_794903.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Leo Wright - Soul Talk (1963) Remaster, 2013, Warner[FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794873.jpg" />
+  <img src="Z:/picture/008/save_picture_794873.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Dizzy Gillespie meets The Phil Woods Quintet (1986) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794807.jpg" />
+  <img src="Z:/picture/008/save_picture_794807.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tony Bennett - Tony Bennett's Greatest Hits of the '50s (2006) Columbia [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794553.jpg" />
+  <img src="Z:/picture/008/save_picture_794553.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Miles Davis - Birth Of The Cool (1957) Remastered 2001 [FLAC|Lossless|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794477.jpg" />
+  <img src="Z:/picture/008/save_picture_794477.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Paquito D'Rivera special guest artist Arturo Sandoval - Reunion (1990) 2006, Lan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794170.jpg" />
+  <img src="Z:/picture/008/save_picture_794170.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Jimmy Smith - Organ Grinder Swing (1965) 2018, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794168.jpg" />
+  <img src="Z:/picture/008/save_picture_794168.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ McCoy Tyner - Atlantis (1974) 2CD, 1989, Victor[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793831.jpg" />
+  <img src="Z:/picture/008/save_picture_793831.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793828.jpg" />
+  <img src="Z:/picture/008/save_picture_793828.jpg" />
 </div>
 
 
@@ -629,124 +745,6 @@ Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E797157A0231A25444A3C268500E29E5C07A9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012606   (793822) от 01.05.2016
-
-Count Basie & His Atomic Band - Complete Live At The Crescendo 1958 (2016) 5CD, Phono Records[FLAC|Lossless|tracks + .cue] <Big Band, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793822.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Moten Swing #1 [05:51]
-02.Cute #1 [03:51]
-03.Sweetie Cakes [04:29](   Читать дальше...   )Жанр: Big Band, Swing, Mainstream JazzПродолжительность: 05:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5394D2F8E0592345139EE8EAB874C5655B5E19AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386594   (793791) от 30.05.2020
-
-B.B. King - Live At The Regal (1964) [FLAC|Lossless|tracks] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live At The Regal — концертный альбом Би Би Кинга. Вышел в 1965 году на лейбле ABC Records. Запись была сделана 21 ноября 1964 года на концерте в Чикаго в Regal Theater.
-
-В 2003 году журнал Rolling Stone поместил альбом Live At The Regal на 141 место своего списка «500 величайших альбомов всех времён». В списке 2012 года альбом находится также на 141 месте.01. Every Day I Have The Blues (2:39)
-02. Sweet Little Angel (4:12)
-03. It's My Own Fault (3:36)
-04. How Blue Can You Get (3:37)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BFCDACCAED73A9F388CEF2DF3864F2F877E0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122971   (793720) от 06.04.2017
-
-The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + .cue] <Post-Bop,Cool, West Coast Jaz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With The Wind And The Rain In Your Hair (5:18)
-02. Oslo (5:11)
-03. Later Blues (5:07)
-04. Detour Ahead (8:14)(   Читать дальше...   )Жанр: Post-Bop,Cool, West Coast JazПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3365517ABC0CBAB91A81BDD662F6E26541B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122904   (793719) от 06.04.2017
-
-Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.My Love For You (take 1) [03:30]
- 02.Winter [07:09]
- 03.Giant Steps [09:47]
- 04.One for J.P. [05:19](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC48F247A79DC3F74891F2835C46E81535D6E96F
 ```
 
 https://mybot314.ru/tekegram_catalog/

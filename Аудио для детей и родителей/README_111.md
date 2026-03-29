@@ -1,3 +1,87 @@
+###  Публикация: 1787859   (68699) от 27.03.2025
+
+Энид Блайтон | Знаменитый утёнок Тим (Инсценировка) (1972) [MP3, Николай Литвинов, Клара Румянова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям.
+Энид Мэри Блайтон (1897–1968) – английская писательница, автор многочисленных книг для детей и подростков, включающих сказки, рассказы и приключенческие повести.
+Сказка про любознательного, храброго и доброго утёнка Тима, который жил на птичьем дворе, утёнок Тим известен всем вокруг тем, что никогда не сидит на месте и попадает в курьёзные (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EA65C15F3DE9943BEB486EC7BA8E8332A6A1C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787868   (68698) от 27.03.2025
+
+Энид Блайтон | Знаменитый утёнок Тим (Радиоспектакль) (2022) [MP3, Светлана Письмиченко, Сергей Барковский и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детский остров.
+Энид Мэри Блайтон (1897–1968) – английская писательница, автор многочисленных книг для детей и подростков, включающих сказки, рассказы и приключенческие повести.
+Сказка «Знаменитый утёнок Тим» (1936). Жил-был утёнок Тим – ужасный непоседа, однажды забрался он в чёрную трубу и запачкался так, что родная мама не узнала и испугалась...
+(   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7050AE256577A938A15F871C82659E38347CE1EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788080   (68637) от 28.03.2025
+
+Пётр Ершов | Конёк-Горбунок (Инсценировка) (2023) [MP3, Сергей Лукьянов, Клара Лучко, Валентина Сперантова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям.
+«Конёк-горбунок» – знаменитая сказка в стихах Петра Павловича Ершова (1815–1869), не теряющая своей популярности и сегодня. Впервые сказка была опубликована в 1834 году. В ней высмеивается глупость царя и бояр, а Иван – крестьянский сын с помощью волшебного конька-горбунка побеждает своих врагов, потому что на его стороне правда, добро (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AE4D99DA2F70CE542133CA328FC24496D41EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788084   (68633) от 28.03.2025
 
 Пётр Ершов | Конёк-Горбунок (Радиопостановка) (2021) [MP3, Иван Ярофеев, Владимир Зенёв и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68633.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68527.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68526.jpg" />
 </div>
 
 
@@ -91,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68510.jpg" />
 </div>
 
 
@@ -120,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68505.jpg" />
 </div>
 
 
@@ -149,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68485.jpg" />
 </div>
 
 
@@ -176,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68483.jpg" />
 </div>
 
 
@@ -205,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68422.jpg" />
 </div>
 
 
@@ -232,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68408.jpg" />
 </div>
 
 
@@ -261,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68406.jpg" />
 </div>
 
 
@@ -289,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68366.jpg" />
 </div>
 
 
@@ -316,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68362.jpg" />
 </div>
 
 
@@ -345,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68225.jpg" />
 </div>
 
 
@@ -373,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68097.jpg" />
 </div>
 
 
@@ -401,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68022.jpg" />
 </div>
 
 
@@ -430,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67995.jpg" />
 </div>
 
 
@@ -458,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67808.jpg" />
 </div>
 
 
@@ -486,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67623.jpg" />
 </div>
 
 
@@ -512,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67480.jpg" />
 </div>
 
 
@@ -538,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67466.jpg" />
 </div>
 
 
@@ -564,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67456.jpg" />
 </div>
 
 
@@ -592,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67323.jpg" />
 </div>
 
 
@@ -620,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66417.jpg" />
 </div>
 
 
@@ -631,86 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E7C786F5C54F49448F8A1BD80C8883EEF9C9374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799623   (66376) от 29.05.2025
-
-Наталия Инина | Испытание детством: Встреча с прошлым во имя настоящего и будущего (2025) [MP3, Тутта Ларсен]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше детство, значимые события, люди, оставившие глубокий след в жизни, все, что было дорого и любимо нами, – все это внутри нас, а не только в прошлом. Этот сокрытый мир может стать нашим даром, богатством и опорой, а может обернуться проклятием, болью и тюрьмой. Что же лежит в основе нашего поведения, реакций и переживаний? Может ли наше детство быть причиной проблем (   Читать дальше...   )Жанр: Практическая психологияИздательство: Альпина Паблишер; Правообладатель: Альпина ДиджиталПродолжительность: 06:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8742DB4FF09D7131067DA57F92221BC4C1D1AD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800153   (66314) от 01.06.2025
-
-Ольга Маховская | Растим счастливого и успешного ребенка (2025) [MP3, Ирина Мокрецова-Волкова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы мечтаете стать суперродителем, чтобы растить счастливого и успешного ребенка?
-Не знаете, как преодолеть сложности в отношениях с чадом? Запутались в том, какая методика воспитания самая лучшая?
-Тогда эта книга для вас! Известный психолог Ольга Маховская расскажет вам, как, наконец, стать счастливым родителем, о которых пишут в журналах. Вы получите исчерпывающие (   Читать дальше...   )Жанр: Детская психология, Книги для родителейИздательство: ЛитРес: чтецПродолжительность: 07:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023A67AC073A0B18060F31579AFB22803177A14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804243   (65715) от 28.06.2025
-
-Александр Дюма, Жорж Санд, Жюль Верн | Классики детям. Сказки (2013) [MP3, Татьяна Телегина и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перу классиков французской литературы – Александру Дюма, Жорж Санд, Ж. Верну – принадлежат не только всемирно известные романы, но также замечательные детские сказки. Несмотря на то, что в каждой из этих историй чувствуется неповторимый стиль автора, в них есть все, чему полагается быть в сказках: чудеса и превращения, добрые феи и злые волшебники, прекрасные принцессы (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 07:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729A2B5C8BF0AADB48F4F3E95475CC5C20A87FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

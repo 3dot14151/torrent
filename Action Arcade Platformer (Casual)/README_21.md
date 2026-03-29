@@ -1,3 +1,55 @@
+###  Публикация: 1718657   (58458) от 26.04.2024
+
+Pepper Grinder (2024) [Ru/Multi] (392-full_release) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pepper Grinder - это ураганная двухмерная адвенчура, в которой ты отправишься вместе с главной героиней, дерзкой пираткой Пеппер, в захватывающее путешествие. В ее распоряжении – невероятно мощный бурильный аппарат Гриндер, с помощью которого она будет пробивать путь сквозь землю и воду, взрывать механизмы и бросаться в бой с врагами, которые посмели преградить ей (   Читать дальше...   )Тип издания: LicenseРазработчик: Ahr EchЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB333FD31E1C6FB20F21832524827C941810397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719295   (58256) от 28.04.2024
+
+ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58256.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorBlend FX: Desaturation – сплатианцы будут смешивать украденные цвета с миром и сражаться с озлобленным Лордом Эшем. Попросту говоря, в этом мире полно сочных противников, есть лужи краски, необходимо решать цветные головоломки и конечно же пережить саму смерть. Это ничто иное как захватывающее мифическое сочетание сразу нескольких популярных игровых жанров! (   Читать дальше...   )Тип издания: RepackРазработчик: Pi-Dev BulgariaЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, БолгарскийЯзык интерфейса: Английский, Болгарский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0983287831D84BD35DF476BB4FB7F4A152415CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720570   (57643) от 04.05.2024
 
 Lunar Lander Beyond (2024) [Multi] (1.0) Repack FitGirl
@@ -6,7 +58,7 @@ Lunar Lander Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57643.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57102.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hand In Hand (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56894.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.2a03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56829.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56804.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Clive 'N' Wrench (2023) [Multi] (Patch 1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56752.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56698.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56493.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Astral Ascent (2023) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56306.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Super Catboy (2023) [Ru/Multi] (1.0.4a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56122.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Last Faith (2023) [Ru/Multi] (1.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56120.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ BroodStar (2020) [En] (1.6.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55661.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.5r2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55412.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Nocturnal (2023) [Multi] (1.2.1.748) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55274.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Cuphead (2017) [Ru/Multi] (1.3.2/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55142.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55070.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.200.002) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54492.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54126.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Airhead (2024) [Ru/Multi] (13431795) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53818.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Slavania (2024) [Ru/En] (1.0.1-6160) Repack Wagner
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53759.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Braid (2024) [Multi] (20240603) Scene Tenoke [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53699.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Gargoyles Remastered (2023) [Multi] (1.01.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52444.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52427.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51208.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Crab God – это увлекательная подводная крабост
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D89B644777655BB807AD86E9017CC0EE1A6162C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734426   (51194) от 03.07.2024
-
-Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардкорный платформер в стиле рисованных каракулей с боковой прокруткой. Вы будете играть за хамелеона, рожденного воображением маленького мальчика. Используя свои способности к переключению цветов, вы можете изменять элементы игрового мира, перемещаясь по различным плоским мирам, таким как альбом для рисования, классная доска и сборник рассказов. По мере прохождения (   Читать дальше...   )Тип издания: RepackРазработчик: Cube of CubeЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B09603B06B15D4A862568B24453B177FC303F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734702   (51087) от 04.07.2024
-
-Monster Bash HD (2021) [En] (1.1.5.1) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monster Bash HD - приключенческий экшн, главным героем которого выступает персонаж по имени Джонни Даш. Его любимый пес Текс был похищен графом Чаком. Злодей утащил питомца к себе в подземный мир. Также он забрал с собой сотню других кошек и собак. Герою предстоит спуститься таинственные данжи, чтобы отвоевать у графа домашних животных других людей и вернуть своего (   Читать дальше...   )Тип издания: LicenseРазработчик: Emberheart GamesЖанр: Экшены, Приключенческие игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94E0F96F00030604306C728EAE1ADE00B2E1B79
 ```
 
 https://mybot314.ru/tekegram_catalog/

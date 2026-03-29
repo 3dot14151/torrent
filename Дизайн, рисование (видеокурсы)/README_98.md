@@ -1,3 +1,30 @@
+###  Публикация: 1564044   (19834) от 30.04.2025
+
+The Gnomon Workshop, Jordan Soler | Realistic Dog Grooming for Production with Xgen (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мастер-классе, специалист по укладке волос/шерсти Jordan Soler покажет весь процесс (с нуля), как он создает реалистичную укладку шерсти собаки, в Maya(XGen) и немного в Mari.
+Сначала преподаватель объяснит, как правильно настроить файлы и проанализировать референсные изображения. Затем, он перейдет к созданию направляющих и регулировке модификаторов, попутно, (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B39DC66C3C2409E57EF1F7D466B28AAC79DB40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794684   (19800) от 30.04.2025
 
 CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Production (2024) PCRec [EN]
@@ -6,7 +33,7 @@ CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19800.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19469.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18117.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18032.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Susan Rubin | Основы работы с цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17408.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Kerry Brooks | Яркие портреты цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17368.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17272.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ CGMA, Yves Yumol | Absolute Beginners (2020) WEB-DL [EN / EN, RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15983.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ The Gnomon Workshop, April Connors | Gesture Drawing Fundamentals (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15872.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Udemy, Sam Parulekar | Learning AutoCAD 2026 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15772.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ The Gnomon Workshop, Victor Javier Garza | Grooming in Yeti: Hair Solutions for 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15366.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15011.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14986.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14969.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14262.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ ArtStation, LaurentiuN | Ultimate 3D Weapon Tutorial for Portfolio (2025) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14021.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ Gumroad, Cane Townsend | Hard Surface in Blender [Part 1-2] (2025) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13820.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11935.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11857.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ Udemy, Marco Paoletta | Godot 4 Fast Lane: Game Development for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11834.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ Udemy, Yasar VURDEM | The Ultimate Digital Drawing Class: Portrait Paintings (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11828.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ Udemy, O- Academy | Furniture Design Using Blender (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11825.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Skillshare, PIXXO 3D | Master 3D Cloth Simulation - Blender (2023) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11646.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11639.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11631.jpg" />
 </div>
 
 
@@ -670,32 +697,6 @@ Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustration
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:915B0D10098A3A367708D6AB19426B5B42859160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806360   (11612) от 13.07.2025
-
-Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте весь потенциал AutoCAD с этим доступным для начинающих курсом, который поможет вам пройти путь от нулевого опыта до уверенного черчения и 3D-моделирования. Независимо от того, являетесь ли вы студентом, начинающим оператором САПР, чертежником или профессионалом, стремящимся повысить свою квалификацию, этот курс предлагает комплексное и практическое обучение.Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 09:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D7A56D69CEEFF6032E7EE5735B876345BD76DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

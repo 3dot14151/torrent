@@ -1,3 +1,112 @@
+###  Публикация: 562973   (405232) от 20.10.2012
+
+Книжная серия "Темный город" [2000-2004] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия "Темный город" выходила в издательстве "АСТ" в 2000-2004 годах и предшествовала серии "Холод страха".
+ Последнюю можно считать продолжением "Темного города", т. к. книги не повторялись, а тематика "укуренных насмерть" авторов выдержана с педантичной дотошностью.
+ Коснись и вздрогни! Убей, или укусят! Другого не дано (бежать, обычно, некуда).Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5765346C91C8CFFCE0D9F85580947DA38DC80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562933   (405186) от 20.10.2012
+
+Книжная серия "Черный скорпион" [1992-1993] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405186.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серию "Черный скорпион" вошли произведения зарубежных авторов в жанре триллера, хоррора и мистики.
+ Серия издавалась в течение двух лет, с 1992 по 1993 год. Всего было издано семь книг. Планировалась, но так и не была издана восьмая с романом Брайана Эллиота «Чалдеронские монахи» и сборником рассказов «Одержимые дьяволом».
+ Составители серии: Н. Демидов, К. Орленко, И. Никишин, Е. Малевский, В. Шамбур.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9E0D0CF3D198E8166DEE297651746EAFC536E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563244   (404707) от 21.10.2012
+
+Книжная серия | «Terra Nipponica» [1999-2012] [FB2, DJVU]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404707.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Terra Nipponica» - серия, объединяющая лучших авторов Японии. Сами произведения представлены в разных жанрах. От триллера - Соно Аяко. «Синева небес» до знаменитой исторической эпопеи Дзиро Осараги «Ронины из Ако», но все книги сериии объединены острым сюжетом и непредсказуемостью развития сюжетной линии. В серию входят книги от явного Андеграунда до обработанных (   Читать дальше...   )Формат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6FDAF1018A04DCAE48315C072EF2F44F136470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563333   (404371) от 21.10.2012
+
+Книжная серия | Война. Штрафбат. Они сражались за Родину! (28 книг) [2008-2012] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война. Штрафбат. Они сражались за Родину! - серия книг о героизме советских людей в Великой Отечественной войне. Штрафники тоже любят свою родину!
+Также существует серия "Штрафбат. Они сражались за Гитлера!". И у тех штрафников есть родина...Жанр: История, Военные приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EDFD3D35D4580A69AA3F745A50EEFDEF836A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564436   (402862) от 23.10.2012
 
 Книжная серия "Открой тайну" (9 книг) [2010-2012] [FB2]
@@ -6,7 +115,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402862.jpg" />
+  <img src="Z:/picture/008/save_picture_402862.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399003.jpg" />
+  <img src="Z:/picture/008/save_picture_399003.jpg" />
 </div>
 
 
@@ -62,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398727.jpg" />
+  <img src="Z:/picture/008/save_picture_398727.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395794.jpg" />
+  <img src="Z:/picture/008/save_picture_395794.jpg" />
 </div>
 
 
@@ -124,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395527.jpg" />
+  <img src="Z:/picture/008/save_picture_395527.jpg" />
 </div>
 
 
@@ -152,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395479.jpg" />
+  <img src="Z:/picture/008/save_picture_395479.jpg" />
 </div>
 
 
@@ -179,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393778.jpg" />
+  <img src="Z:/picture/008/save_picture_393778.jpg" />
 </div>
 
 
@@ -206,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393575.jpg" />
+  <img src="Z:/picture/008/save_picture_393575.jpg" />
 </div>
 
 
@@ -233,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393437.jpg" />
+  <img src="Z:/picture/008/save_picture_393437.jpg" />
 </div>
 
 
@@ -260,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393085.jpg" />
+  <img src="Z:/picture/008/save_picture_393085.jpg" />
 </div>
 
 
@@ -288,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390669.jpg" />
+  <img src="Z:/picture/008/save_picture_390669.jpg" />
 </div>
 
 
@@ -316,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390018.jpg" />
+  <img src="Z:/picture/008/save_picture_390018.jpg" />
 </div>
 
 
@@ -344,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389196.jpg" />
+  <img src="Z:/picture/008/save_picture_389196.jpg" />
 </div>
 
 
@@ -372,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387215.jpg" />
+  <img src="Z:/picture/008/save_picture_387215.jpg" />
 </div>
 
 
@@ -398,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386370.jpg" />
+  <img src="Z:/picture/008/save_picture_386370.jpg" />
 </div>
 
 
@@ -424,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386108.jpg" />
+  <img src="Z:/picture/008/save_picture_386108.jpg" />
 </div>
 
 
@@ -450,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382600.jpg" />
+  <img src="Z:/picture/008/save_picture_382600.jpg" />
 </div>
 
 
@@ -477,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380990.jpg" />
+  <img src="Z:/picture/008/save_picture_380990.jpg" />
 </div>
 
 
@@ -512,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380310.jpg" />
+  <img src="Z:/picture/008/save_picture_380310.jpg" />
 </div>
 
 
@@ -539,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380267.jpg" />
+  <img src="Z:/picture/008/save_picture_380267.jpg" />
 </div>
 
 
@@ -567,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378767.jpg" />
+  <img src="Z:/picture/008/save_picture_378767.jpg" />
 </div>
 
 
@@ -593,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377672.jpg" />
+  <img src="Z:/picture/008/save_picture_377672.jpg" />
 </div>
 
 
@@ -607,112 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E58E42528514D67323ED9230D664875F737A9B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412218   (376324) от 12.10.2020
-
-Книжная серия | Любовь в каждом городе [6 книг] (2020) [FB2]  [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джули Кэплин. Маленькое кафе в Копенгагене
-Вы когда-нибудь испытывали чувство благодарности к городу за то, что будто родились заново? Отпустили все обиды, посмеялись над неудачами и нашли себя? Кейт Синклер, молодая журналистка из Лондона, никогда не нуждалась в такой перезагрузке, но у судьбы свои планы. Копенгаген становится важным местом для Кейт. Любовь переворачивает (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D25B25CD22471BFB337A4D1E7101207D894366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574391   (375639) от 12.11.2012
-
-Книжная серия | City Style (201 книга) [2004-2011] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375639.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Style - городской стиль! Серия книг о любви в городском стиле. Это вам не деревенский стиль "завалил на сеновал". Это...гораздо лживее.
-Но главное: на 90 процентах обложек присутствуют женские ножки. Остальные части тела художника-оформителя не интересуют...Жанр: Любовный романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBCC88E4D2C16CB3A806DD9897B86E5F5D91519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949735   (374646) от 24.10.2015
-
-Книжная серия | Детектив-событие [48 книг] (2007-2015) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374646.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Детектив-событие» - серия детективных романов наших писательниц: Ксении Баженовой, Дианы Бош, Евгении Михайловой, Елены Михалковой и др.Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E166EF863AFCE1A4F37709CC39CB90A0198576A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327214   (374101) от 25.09.2019
-
-Сборник произведений | 100 лучших детективных романов всех времен (MWA) [85 книг] (XIX-XX вв) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374101.jpg" />
-</div>
-
-
-###  Подробнее
-
-«100 лучших детективных романов всех времен» — это два аналогичных литературных списка, представляющие из себя перечень лучших детективных произведений. Первый список (англ. The Top 100 Crime Novels of All Time) был составлен Британской ассоциацией писателей-криминалистов (CWA) в 1990 году, второй же (англ. The Top 100 Mystery Novels of All Time) — Ассоциацией детективных (   Читать дальше...   )Жанр: Классический детектив, Шпионский детектив, Крутой детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9596785718AF837FA83B6AD47127667B0A10A49B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1002653   (846668) от 01.04.2016
+
+Пеллегрино Артузи | Наука приготовления и искусство поглощения пищи (2016) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пеллегрино Артузи - итальянский банкир, увлекавшийся кулинарией и литературой; выпустил книгу в 71 год. За 20 лет, при его жизни, «Наука приготовления и искусство поглощения пищи» была переиздана 14 раз с суммарным тиражом 52 000 экземпляров (невиданные цифры для того времени), при этом каждое переиздание дополнялось новыми рецептами.
+В 1931-м году количество переизданий (   Читать дальше...   )Жанр: Кулинария, здоровое питаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23ED1A6315047CE354AF028A0B0EC9A89F09CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111666   (846567) от 06.03.2017
 
 Викентия Завадзкая | Литовская кухарка (1885) [DJVU]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846567.jpg" />
+  <img src="Z:/picture/008/save_picture_846567.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844944.jpg" />
+  <img src="Z:/picture/008/save_picture_844944.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844938.jpg" />
+  <img src="Z:/picture/008/save_picture_844938.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844870.jpg" />
+  <img src="Z:/picture/008/save_picture_844870.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844864.jpg" />
+  <img src="Z:/picture/008/save_picture_844864.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844788.jpg" />
+  <img src="Z:/picture/008/save_picture_844788.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844783.jpg" />
+  <img src="Z:/picture/008/save_picture_844783.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844781.jpg" />
+  <img src="Z:/picture/008/save_picture_844781.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844690.jpg" />
+  <img src="Z:/picture/008/save_picture_844690.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844686.jpg" />
+  <img src="Z:/picture/008/save_picture_844686.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844678.jpg" />
+  <img src="Z:/picture/008/save_picture_844678.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844650.jpg" />
+  <img src="Z:/picture/008/save_picture_844650.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844648.jpg" />
+  <img src="Z:/picture/008/save_picture_844648.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844559.jpg" />
+  <img src="Z:/picture/008/save_picture_844559.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844541.jpg" />
+  <img src="Z:/picture/008/save_picture_844541.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843829.jpg" />
+  <img src="Z:/picture/008/save_picture_843829.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843307.jpg" />
+  <img src="Z:/picture/008/save_picture_843307.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843011.jpg" />
+  <img src="Z:/picture/008/save_picture_843011.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842856.jpg" />
+  <img src="Z:/picture/008/save_picture_842856.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842736.jpg" />
+  <img src="Z:/picture/008/save_picture_842736.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841947.jpg" />
+  <img src="Z:/picture/008/save_picture_841947.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841426.jpg" />
+  <img src="Z:/picture/008/save_picture_841426.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841349.jpg" />
+  <img src="Z:/picture/008/save_picture_841349.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841340.jpg" />
+  <img src="Z:/picture/008/save_picture_841340.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841232.jpg" />
+  <img src="Z:/picture/008/save_picture_841232.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FACCDD87832354A61C5E7E64B240A92A643EE702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112747   (841230) от 09.03.2017
-
-А.С. Пирузян (гл. ред.) | Армянская кулинария [Два издания] (1960, 1983) [PDF, DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга « Армянская кулинария» Знакомит читателей с армянской национальной кухней. В ней приведены рецептуры и технологии приготовления разнообразных блюд. Большой интерес представляют некоторые старинные блюда армянской кухни, которые благодаря своим высоким вкусовым качествам и питательной ценности не потеряли значение до настоящего времени и могут быть рекомендованы (   Читать дальше...   )Жанр: КулинарияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B397B598357C2BB2230016B8D98C64F498DF1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

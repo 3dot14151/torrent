@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871884.jpg" />
+  <img src="Z:/picture/008/save_picture_871884.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinScan2PDF 3.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871880.jpg" />
+  <img src="Z:/picture/008/save_picture_871880.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871871.jpg" />
+  <img src="Z:/picture/008/save_picture_871871.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Telegram Desktop 0.9.32 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871870.jpg" />
+  <img src="Z:/picture/008/save_picture_871870.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cyberfox 45.0.2 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871868.jpg" />
+  <img src="Z:/picture/008/save_picture_871868.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Faasoft Audio Converter 5.2.23.5604 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871867.jpg" />
+  <img src="Z:/picture/008/save_picture_871867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871842.jpg" />
+  <img src="Z:/picture/008/save_picture_871842.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871816.jpg" />
+  <img src="Z:/picture/008/save_picture_871816.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Club Playlist (2013) [MP3|320 кб/с]<Club, Dance, Tech>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871779.jpg" />
+  <img src="Z:/picture/008/save_picture_871779.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ NewFileTime 2.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871768.jpg" />
+  <img src="Z:/picture/008/save_picture_871768.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Download Master 6.8.1.1509 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871764.jpg" />
+  <img src="Z:/picture/008/save_picture_871764.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Faasoft Video Converter 5.3.22.5834 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871760.jpg" />
+  <img src="Z:/picture/008/save_picture_871760.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871695.jpg" />
+  <img src="Z:/picture/008/save_picture_871695.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Soulver 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871670.jpg" />
+  <img src="Z:/picture/008/save_picture_871670.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Iboga Records - Set:26 (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871667.jpg" />
+  <img src="Z:/picture/008/save_picture_871667.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ LINE 4.5.0.873 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871629.jpg" />
+  <img src="Z:/picture/008/save_picture_871629.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Future Dance Hits (March 2011)  [MP3|~307 kbps]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871628.jpg" />
+  <img src="Z:/picture/008/save_picture_871628.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Car Audio Vol.12 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871612.jpg" />
+  <img src="Z:/picture/008/save_picture_871612.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ AMD Radeon Software Crimson Edition 16.3.1 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871610.jpg" />
+  <img src="Z:/picture/008/save_picture_871610.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mozilla Firefox 45.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871604.jpg" />
+  <img src="Z:/picture/008/save_picture_871604.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871596.jpg" />
+  <img src="Z:/picture/008/save_picture_871596.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Arche Goa Vol.2: Die Psy-Trance Compilation (2017) [MP3|320 Kbps] <Psy-Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871572.jpg" />
+  <img src="Z:/picture/008/save_picture_871572.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871559.jpg" />
+  <img src="Z:/picture/008/save_picture_871559.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_871501.jpg" />
+  <img src="Z:/picture/009/save_picture_871501.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Record Super Chart №179 (2011) [MP3|320 kbps]<House, Electro House, Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_871493.jpg" />
+  <img src="Z:/picture/009/save_picture_871493.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871479.jpg" />
+  <img src="Z:/picture/008/save_picture_871479.jpg" />
 </div>
 
 

@@ -1,3 +1,112 @@
+###  Публикация: 422933   (117467) от 15.02.2024
+
+Иван Гончаров | Обыкновенная история (2003) [MP3, Николай Савицкий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
+Литературное наследие Гончарова не слишком обширно. За 45 лет творчества он опубликовал три романа, книгу путевых очерков «Фрегат «Паллада», несколько нравоописательных рассказов, критических статей и мемуары. «Обыкновенная (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 16:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BE8CB260722CE2AD6D04AD30E75265EF5B3DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442105   (117464) от 15.02.2024
+
+Иван Гончаров | Обыкновенная история. Необыкновенная история (2008) [MP3, Александр Хорлин, Владимир Рыбальченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.Жанр: Русская литература, классика, повесть, мемуарыИздательство: БиблиофоникаПродолжительность: 19:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046125D18B8D8EF43E14900F56A7D0114D02010D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700066   (117389) от 15.02.2024
+
+Иван Гончаров | Обрыв (Радиоспектакль) (2003) [MP3, Наталья Тенякова, Дмитрий Брусникин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у микрофона. Из фондов «Радио России».
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
+Роман «Обрыв» был задуман автором еще в 1849 году как роман о сложных отношениях художника и общества. К 60-м годам замысел обогатился новой проблематикой, рожденной пореформенной эпохой. (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио РоссииПродолжительность: 05:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675D85C2AE121232FF86492C5DE611C997ED1725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700079   (117374) от 15.02.2024
+
+Гюстав Флобер | Простая душа (2020) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XIX век. Зарубежная проза.
+Аудиокнига «Простая душа» – произведение классика французской литературы, одного из крупнейших европейских писателей XIX века Гюстава Флобера (1821–1880). Эту маленькую повесть автор знаменитых романов «Госпожа Бовари» и «Воспитание чувств» создал в конце жизни, в 1877 году. Именно в «Простой душе» наиболее отчётливо проявляется (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB9B417539CB99940D723D6D4DC09DBF8560148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 349107   (117135) от 17.02.2024
 
 Луи Буссенар | Похитители Бриллиантов (2006) [MP3, Сергей Кирсанов]
@@ -6,7 +115,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117135.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117099.jpg" />
 </div>
 
 
@@ -62,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117056.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117020.jpg" />
 </div>
 
 
@@ -117,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116761.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116669.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116454.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116448.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116447.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116430.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116423.jpg" />
 </div>
 
 
@@ -306,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116274.jpg" />
 </div>
 
 
@@ -333,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116263.jpg" />
 </div>
 
 
@@ -360,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116260.jpg" />
 </div>
 
 
@@ -386,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116258.jpg" />
 </div>
 
 
@@ -414,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116189.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116187.jpg" />
 </div>
 
 
@@ -470,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115555.jpg" />
 </div>
 
 
@@ -498,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115533.jpg" />
 </div>
 
 
@@ -526,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115529.jpg" />
 </div>
 
 
@@ -554,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115521.jpg" />
 </div>
 
 
@@ -582,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115516.jpg" />
 </div>
 
 
@@ -594,118 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702803   (115508) от 26.02.2024
-
-Фёдор Достоевский | Бедные люди (2006) [MP3, Иннокентий Смоктуновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда». Классика в пересказе (сокращенная версия).
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-Роман «Бедные люди» – уникальная книга гения. Написанный Ф.М. (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Элитайл, СиДиКом, ГостелерадиофондПродолжительность: 04:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5A58964B35DA8168BB1AB273AB05CAA0913997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702813   (115498) от 26.02.2024
-
-Фёдор Достоевский | Хозяйка (2022) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Книги, изменившие мир.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей.
-Достоевский задумал и начал «Хозяйку» осенью 1846 г.: «работа идёт как некогда в «Бедных людях», свежо, легко и успешно» (письмо брату Михаилу, конец октября 1846 г.). Сравнение с «Бедными людьми» не было случайным. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 04:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C38900B94497377BBF94A557280471F96A0991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702804   (115496) от 26.02.2024
-
-Фёдор Достоевский | Дядюшкин сон. Чужая жена и муж под кроватью. Честный вор (2007) [MP3, Пётр Коршунков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранние повести Ф.М. Достоевского (1821–1881) дают представление о многогранном таланте этого великого знатока человеческой души, позволяют проследить его путь к творческим вершинам...
-В «Дядюшкином сне» (1859) комически повествуется о старом богатом князе и неудавшейся попытке женить его.
-В повести «Чужая жена и муж под кроватью» (1848) в гротескно-фарсовой манере (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: БиблиофоникаПродолжительность: 08:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301C6EF1ED35F8E8183D9AA8F53480D682DF7303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702800   (115495) от 26.02.2024
-
-Фёдор Достоевский | Белые ночи (2007) [MP3, Валерий Пигаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-«Школьная библиотека» продолжает знакомить своих слушателей с творчеством великого русского писателя Ф.М. Достоевского. (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: АудиокнигаПродолжительность: 02:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B5FD7A44D54EBD74DF00DF984D4461F4927B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1406658   (473071) от 04.09.2020
+
+MediaInfo 20.08.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473071.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 03.09.2020Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40ACBBB272162A18AB895FA4B23989E5CBBB7874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057759   (473059) от 29.09.2016
+
+AirFoil 5.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473059.jpg" />
+</div>
+
+
+###  Подробнее
+
+ AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62F132A844012F45CC5132FD53EADCC25658A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057840   (472911) от 29.09.2016
+
+Scrivener 2.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_472911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrivener — программа для писателей
+Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
+
+Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Literature & Latte LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E632AEC9521C5AC5C40235178B9D2A3341B9DE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057761   (472908) от 29.09.2016
+
+Aurora HDR Pro 1.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_472908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora HDR Pro, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey  Ratcliff, одного из выдающихся в мире в области  HDR фотографии с более чем 14 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 сентября 2016Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6CDA213A0ED86E37D088BA1A1CC3343ED2D48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057789   (472907) от 29.09.2016
 
 MacX Video Converter Pro 6.0.0 [Multi]
@@ -6,7 +113,7 @@ MacX Video Converter Pro 6.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472907.jpg" />
+  <img src="Z:/picture/008/save_picture_472907.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Launchpad Manager Yosemite Pro 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472748.jpg" />
+  <img src="Z:/picture/008/save_picture_472748.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ BetterZip 5 v5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472638.jpg" />
+  <img src="Z:/picture/008/save_picture_472638.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ TextMan 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472468.jpg" />
+  <img src="Z:/picture/008/save_picture_472468.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ WidsMob HDR 3.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472387.jpg" />
+  <img src="Z:/picture/008/save_picture_472387.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472384.jpg" />
+  <img src="Z:/picture/008/save_picture_472384.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ Permute 3 v3.9.7 U2B[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472367.jpg" />
+  <img src="Z:/picture/008/save_picture_472367.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Allavsoft Video Downloader Converter 3.24.9.8248 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472347.jpg" />
+  <img src="Z:/picture/008/save_picture_472347.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ Dash 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472247.jpg" />
+  <img src="Z:/picture/008/save_picture_472247.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Easy Data Transform 1.32.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472242.jpg" />
+  <img src="Z:/picture/008/save_picture_472242.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ PDF Reader Pro Edition 2.8.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472238.jpg" />
+  <img src="Z:/picture/008/save_picture_472238.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Vellum 3.3.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472121.jpg" />
+  <img src="Z:/picture/008/save_picture_472121.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ Rhinoceros 7 v7.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472107.jpg" />
+  <img src="Z:/picture/008/save_picture_472107.jpg" />
 </div>
 
 
@@ -351,7 +458,7 @@ SSH Shell 17.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471899.jpg" />
+  <img src="Z:/picture/008/save_picture_471899.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ VueScan Pro 9.5.83 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471892.jpg" />
+  <img src="Z:/picture/008/save_picture_471892.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ Sound Studio 4.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471747.jpg" />
+  <img src="Z:/picture/008/save_picture_471747.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471493.jpg" />
+  <img src="Z:/picture/008/save_picture_471493.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ Templates for Pages 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471438.jpg" />
+  <img src="Z:/picture/008/save_picture_471438.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470983.jpg" />
+  <img src="Z:/picture/008/save_picture_470983.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ BetterTouchTool 1.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470957.jpg" />
+  <img src="Z:/picture/008/save_picture_470957.jpg" />
 </div>
 
 
@@ -541,7 +648,7 @@ Folx Pro 5.10 (13853) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470913.jpg" />
+  <img src="Z:/picture/008/save_picture_470913.jpg" />
 </div>
 
 
@@ -570,7 +677,7 @@ CleanMyMac X 4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470785.jpg" />
+  <img src="Z:/picture/008/save_picture_470785.jpg" />
 </div>
 
 
@@ -583,110 +690,6 @@ CleanMyMac X заменяет собой десятки инструментов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9296C2C7D4FEE69525F30723B9437080CFBBDD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058212   (470718) от 30.09.2016
-
-MacBooster 4.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение поможет настроить и ускорить работу OS X. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Жесткий диск компьютера Mac быстро забивается ненужными файлами, такими как двоичные файлы, журналы событий, кэш и др. Это особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2016Разработчик: IObitПоддерживаемая ОС: Intel Mac OS X 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75403BBB5AA7EB718C29CB6C884E57D3A6D7425E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058034   (470701) от 30.09.2016
-
-Aurora HDR 2017 v1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora HDR 2017, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey Ratcliff, одного из выдающихся в мире в области HDR фотографии с более чем 30 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B753600EAA5B254FAC1412CDF8EC68E955A99DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567727   (470320) от 04.08.2022
-
-EdgeView 3 v3.6.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470320.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE34D5010DA2E29126C5D9BFCC2C36B3D09AA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567709   (470317) от 04.08.2022
-
-TS Calc 1.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470317.jpg" />
-</div>
-
-
-###  Подробнее
-
-TS Calc реализует числовое разрешение расчетных моделей, которые можно использовать для любых математических технических задач. Это совершенно другой подход к решению математических задач по сравнению с обычным подходом с использованием электронных таблиц. Вы можете создавать разные документы для решения любой модели.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2022Разработчик: © 2012-2022 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421FF48A0F0331649B058EE8AFC7F0435A83BE7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

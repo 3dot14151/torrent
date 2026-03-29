@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875466.jpg" />
+  <img src="Z:/picture/005/save_picture_875466.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875465.jpg" />
+  <img src="Z:/picture/008/save_picture_875465.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Радио 101: Живая акустика (1997) [FLAC|Lossless|tracks + 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875339.jpg" />
+  <img src="Z:/picture/005/save_picture_875339.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873904.jpg" />
+  <img src="Z:/picture/008/save_picture_873904.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873842.jpg" />
+  <img src="Z:/picture/008/save_picture_873842.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873167.jpg" />
+  <img src="Z:/picture/008/save_picture_873167.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873158.jpg" />
+  <img src="Z:/picture/008/save_picture_873158.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873098.jpg" />
+  <img src="Z:/picture/008/save_picture_873098.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Moscow Death Brigade - Bad Accent Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872692.jpg" />
+  <img src="Z:/picture/008/save_picture_872692.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872338.jpg" />
+  <img src="Z:/picture/008/save_picture_872338.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872285.jpg" />
+  <img src="Z:/picture/008/save_picture_872285.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871229.jpg" />
+  <img src="Z:/picture/008/save_picture_871229.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870905.jpg" />
+  <img src="Z:/picture/008/save_picture_870905.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870309.jpg" />
+  <img src="Z:/picture/008/save_picture_870309.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869821.jpg" />
+  <img src="Z:/picture/008/save_picture_869821.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869803.jpg" />
+  <img src="Z:/picture/008/save_picture_869803.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867812.jpg" />
+  <img src="Z:/picture/008/save_picture_867812.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867798.jpg" />
+  <img src="Z:/picture/008/save_picture_867798.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864625.jpg" />
+  <img src="Z:/picture/008/save_picture_864625.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864080.jpg" />
+  <img src="Z:/picture/008/save_picture_864080.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862548.jpg" />
+  <img src="Z:/picture/008/save_picture_862548.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862172.jpg" />
+  <img src="Z:/picture/008/save_picture_862172.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862039.jpg" />
+  <img src="Z:/picture/008/save_picture_862039.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Спидола 2 (2005) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll, Blues, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860383.jpg" />
+  <img src="Z:/picture/008/save_picture_860383.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860159.jpg" />
+  <img src="Z:/picture/008/save_picture_860159.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859103.jpg" />
+  <img src="Z:/picture/008/save_picture_859103.jpg" />
 </div>
 
 

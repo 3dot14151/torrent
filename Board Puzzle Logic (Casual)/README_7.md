@@ -6,7 +6,7 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46865.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Meowsterpiece Museum (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46435.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LightRay (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45675.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LightRay (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44853.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kanji Legends (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43701.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41735.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39056.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tetris Forever (2024) [Multi] (1.00) Scene Skidrow
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37236.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Fritz 19 (2023) [En] (19.3) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36907.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chess King 24 (2024) [Ru/Multi] (24.0.0.2400) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36901.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ChessBase 18 (2024) [En] (18.2) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36796.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wilmot's Warehouse (2019) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36165.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Golf Peaks (2018) [Ru/Multi] (3.60) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35048.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34993.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34616.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Chess King 25 (2024) [Ru/Multi] (25.0.0.2500) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34191.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Chess Assistant 25 (2024) [En] (12.0.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33708.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Trans Neuronica (2023) [En] (1.0.13) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33154.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Shotgun King: The Final Checkmate (2022) [Ru/Multi] (1.515g) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29449.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tetris Forever (2024) [Multi] (1.06) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20037.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wilmot Works It Out (2024) [Multi] (1.039) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17701.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Contraption Maker (2014) [En] (1.4.11/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15703.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12822.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7554.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5182.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4998.jpg" />
 </div>
 
 

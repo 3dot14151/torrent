@@ -1,3 +1,119 @@
+###  Публикация: 1779653   (70656) от 14.02.2025
+
+VA - 50 DJ Tracks Vol. 1 (2025) [MP3|320 Kbps] <Dance, House, Club, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special D. - You (2025 Extended Mix) [3:40]
+02. Andrew Spencer & Andre Picar feat. Ice MC - It's A Rainy Day (Pete Mazell Extended Remix) [3:06]
+03. Brooklyn Bounce feat. Deso Latee & Samantha Lawrence - Love & Bass (Verano Remix) [4:08]
+04. DJ Dean & DJ Fait - Just One Life (Extended Mix) [4:32](   Читать дальше...   )Жанр: Dance, House, Club, ElectronicПродолжительность: 03:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BC583CB7AA2699250C039024EE3D21361B2B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779640   (70645) от 14.02.2025
+
+VA - Black Hole House Music 02-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME - Mermaids (Extended Mix) [5:47]
+02. Fonzerelli & Kryder - Moonlight Party (Extended Mix) [5:49]
+03. Christina Novelli & Linney - Fallen Ones (Tensteps Extended Remix) [4:13]
+04. ZOYA - Power (Extended Mix) [5:17](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9779C37CAA01B17860FF2623FB08AF0530C017F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779658   (70618) от 14.02.2025
+
+VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Findike - Pyramids (Ramus Remix) [7:06]
+02. Findike - Recondite (Original Mix) [7:45]
+03. Furkan Sert - Turkey (Original Mix) [5:42]
+04. Nicola Saladino - No Name (Original Mix) [8:36](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A9A751A5B2614F3CDC2B385B23761EE75B532D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779844   (70570) от 15.02.2025
+
+VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madloch & Subnode - A Fading Dream (Diego Moreira Remix) [8:16]
+02. Rockka - Noah's Ark (Original Mix) [7:05]
+03. Secretly Famous - Adrenaline Girl (Original Mix) [7:03]
+04. Fabian Balino - Sent From Above (Hobin Rude Remix) [7:05](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 09:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E4008905CAFA14ADA7DF08DAD6DAA099509DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779855   (70565) от 15.02.2025
 
 VA - Best of Trippy Code Melodic Techno & Progressive House Vol.1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -6,7 +122,7 @@ VA - Best of Trippy Code Melodic Techno & Progressive House Vol.1 (2025) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70565.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Milk & Sugar Winter Sessions 2025 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70241.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 1 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70206.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dionigi - Hot Oxygen (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70163.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70158.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - 25 Years Of Anjuna Mixed By Luttrell (2025) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70089.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - CF Mix, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69790.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Winter Collection 2025 (2025) [MP3|320 Kbps] <Progressive House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69782.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - 3 Years Anniversary House Furia - Music Collection (2025) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69736.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - TRIPPY CODE Best of Vol.01 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69734.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Best of Trippy Code Chill House Vol.1 (2025) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69733.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Deep & Soul 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69641.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Black Hole House Music 03-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69518.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Ibiza Nights 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69395.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Exx Underground Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69344.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Exx Boundless Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69343.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Exx Muzik Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69326.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Sirup Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69325.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69155.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Hot Summer Vibes - Ibiza Session Volume 1 (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69144.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Exx Chill Miami 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68955.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Future Dance Exciters 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68929.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Future Dance Exciters 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB7209C77A671A1192681E79E7663A4F2A5DCA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786840   (68921) от 22.03.2025
-
-VA - Milk & Sugar Miami Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adelphi Music Factory - The Miracle (Original Mix) (02:23)
-02. Milk & Sugar - Higher & Higher (Daniel Steinberg Extended Remix) (05:32)
-03. Bob Sinclar - World Hold On feat. Steve Edwards (Tom Staar Extended Remix) (06:52)
-04. David Penn & Rober Gaez - Set Me Free feat. Sheilah Cuffy (DJ Kone & Marc Palacios Extended Remix) (05:36)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223289C249B69B4B7455EC02B6717D652865C460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787144   (68841) от 24.03.2025
-
-VA - WMC 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AMARI & Supanova - Love (03:19)
-02. Nils van Zandt & 2 Fabiola - Lift U Up (02:19)
-03. Kofi Sanoba - Famemba (03:16)
-04. Laurent Wery & Xerxes-K - Beautiful Face (02:32)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D6E024FA9CE466885403750B54EA3F79A65D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787361   (68801) от 25.03.2025
-
-VA - Pop Mania 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Jayden - Pictures In My Ears (02:50)
-02. Alexa Stanfield - Runnin On The Wall (02:43)
-03. Ellie Jump - Once Upon A Time (02:38)
-04. Sonya Tukker - Sweet Dreams (Pop mix) (02:54)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911E64D93037E8D77D634D55755AD834C01792E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787378   (68784) от 25.03.2025
-
-VA - Miami Music Week 2025 Sampler (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alfredo Magrini - AYO (03:00)
-02. DJ Miss Smile - Miami Life (04:55)
-03. Kris van Nuffel feat. Jordan Grace - Elly (Extended Mix) (04:03)
-04. DJ Mauritius - Alive (02:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3B27E6638EA8DEBF03A453A30D41867B624C1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

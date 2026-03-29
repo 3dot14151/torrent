@@ -1,3 +1,30 @@
+###  Публикация: 1178646   (353311) от 29.10.2017
+
+Фрейзер Квилч | TRX Force Training (2010) DVDRip [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базовые упражнения на петлях TRX
+Один из первых оригинальных DVDЖанр: Функциональный тренинг, фитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186FF0D165DB39A00E5EEAF7E829D98822EEDA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178865   (353152) от 29.10.2017
 
 Eitan Kramer | Core Workout (2017) HDTVRip [H.264] [EN]
@@ -6,7 +33,7 @@ Eitan Kramer | Core Workout (2017) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353152.jpg" />
+  <img src="Z:/picture/008/save_picture_353152.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Billy Blanks | Tae Bo Bootcamp Shred (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351724.jpg" />
+  <img src="Z:/picture/008/save_picture_351724.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Beachbody | Insanity Live ! (2016) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351719.jpg" />
+  <img src="Z:/picture/008/save_picture_351719.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Daily Burn | 7 эффективных тренировок от различны
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351709.jpg" />
+  <img src="Z:/picture/008/save_picture_351709.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Beachbody | P90X Live ! (2016) HDTVRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351704.jpg" />
+  <img src="Z:/picture/008/save_picture_351704.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Cody Storey | Tactical Bodyweight Training (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350670.jpg" />
+  <img src="Z:/picture/008/save_picture_350670.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Andy Speer | The Anarchy Workout (2015) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349371.jpg" />
+  <img src="Z:/picture/008/save_picture_349371.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ BJ Gaddour | The 21 Day MetaShred (2017) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348617.jpg" />
+  <img src="Z:/picture/008/save_picture_348617.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Cody Storey | Kettlebells DBK (2017) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348615.jpg" />
+  <img src="Z:/picture/008/save_picture_348615.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ BJ Gaddour | 10 Minute Torchers Workout (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346464.jpg" />
+  <img src="Z:/picture/008/save_picture_346464.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ David Jack | Spartacus Workouts (2016) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346453.jpg" />
+  <img src="Z:/picture/008/save_picture_346453.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ BJ Gaddour | Delta Fit Speed Shred (2014) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344225.jpg" />
+  <img src="Z:/picture/008/save_picture_344225.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Tony Horton | Double Time (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344135.jpg" />
+  <img src="Z:/picture/008/save_picture_344135.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342034.jpg" />
+  <img src="Z:/picture/008/save_picture_342034.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ Dr.Josh Axe | BurstFIT FIRE (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341958.jpg" />
+  <img src="Z:/picture/008/save_picture_341958.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ Mark Lauren | EFX: Postural Bodyweight Training (2014) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339390.jpg" />
+  <img src="Z:/picture/008/save_picture_339390.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ Mark Lauren | Mobility RX (2012) WEBRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339279.jpg" />
+  <img src="Z:/picture/008/save_picture_339279.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337468.jpg" />
+  <img src="Z:/picture/008/save_picture_337468.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ TRX TV | TRX - Endurance (2011) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335219.jpg" />
+  <img src="Z:/picture/008/save_picture_335219.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ Daily Burn | Cardio Sculpt (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334943.jpg" />
+  <img src="Z:/picture/008/save_picture_334943.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333195.jpg" />
+  <img src="Z:/picture/008/save_picture_333195.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323521.jpg" />
+  <img src="Z:/picture/008/save_picture_323521.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ Paul Levesque | WWE Power Series: Triple H (2014) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311907.jpg" />
+  <img src="Z:/picture/008/save_picture_311907.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ Jillian Michaels | Body Revolution (2012) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309244.jpg" />
+  <img src="Z:/picture/008/save_picture_309244.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304600.jpg" />
+  <img src="Z:/picture/008/save_picture_304600.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CA8FD90A1AE7292E42023679156DEBB8744DB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076976   (304176) от 29.11.2016
-
-Jillian Michaels | Kickbox FastFix (2012) DVDRip [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kickbox FastFix — это жиросжигающая кардио-тренировка от Джиллиан Майклс, основанная на упражнениях из кикбоксинга.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D928D1942FFA959DF5626BD0E8A4C6AB4416A8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

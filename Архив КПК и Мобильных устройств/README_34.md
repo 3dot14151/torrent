@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705014.jpg" />
+  <img src="Z:/picture/008/save_picture_705014.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VideoHata v1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704790.jpg" />
+  <img src="Z:/picture/008/save_picture_704790.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Smash Stickers [Игра] (Android)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704555.jpg" />
+  <img src="Z:/picture/005/save_picture_704555.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704283.jpg" />
+  <img src="Z:/picture/005/save_picture_704283.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ ZDbox (Root Task Killer) 3.9.296 [Программа] (Android 1.5+) - Упра�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704279.jpg" />
+  <img src="Z:/picture/005/save_picture_704279.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Crazy Picture 1.0.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703954.jpg" />
+  <img src="Z:/picture/008/save_picture_703954.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Mini racing adventures 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703415.jpg" />
+  <img src="Z:/picture/008/save_picture_703415.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703163.jpg" />
+  <img src="Z:/picture/008/save_picture_703163.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703133.jpg" />
+  <img src="Z:/picture/008/save_picture_703133.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703038.jpg" />
+  <img src="Z:/picture/008/save_picture_703038.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703026.jpg" />
+  <img src="Z:/picture/008/save_picture_703026.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ The Amazing Spider-Man [Трилогия] Все три [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702875.jpg" />
+  <img src="Z:/picture/008/save_picture_702875.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702307.jpg" />
+  <img src="Z:/picture/008/save_picture_702307.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Battletoads Double Dragon - The T.Bird Mission 3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701607.jpg" />
+  <img src="Z:/picture/008/save_picture_701607.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700964.jpg" />
+  <img src="Z:/picture/008/save_picture_700964.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ HF Scientific Calculator Pro 5.5.3 [En] - Научный калькулятор 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700868.jpg" />
+  <img src="Z:/picture/008/save_picture_700868.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Total Commander for Android 2.80 Final + Plugins [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700204.jpg" />
+  <img src="Z:/picture/008/save_picture_700204.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Fish Farm 2 1.3.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699211.jpg" />
+  <img src="Z:/picture/008/save_picture_699211.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ TTS Informer 1.0.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699095.jpg" />
+  <img src="Z:/picture/008/save_picture_699095.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ CallerID 1.2.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699094.jpg" />
+  <img src="Z:/picture/008/save_picture_699094.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Rayman Fiesta Run 1.2.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698771.jpg" />
+  <img src="Z:/picture/008/save_picture_698771.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698674.jpg" />
+  <img src="Z:/picture/008/save_picture_698674.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698509.jpg" />
+  <img src="Z:/picture/008/save_picture_698509.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Battery Monitor Widget Pro 3.17.1 [Ru] - Виджет батареи
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697560.jpg" />
+  <img src="Z:/picture/008/save_picture_697560.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697534.jpg" />
+  <img src="Z:/picture/008/save_picture_697534.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Ball Adventures 1.0.12 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697412.jpg" />
+  <img src="Z:/picture/008/save_picture_697412.jpg" />
 </div>
 
 

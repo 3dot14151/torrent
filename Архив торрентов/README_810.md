@@ -6,7 +6,7 @@ TweakPower 2.001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866339.jpg" />
+  <img src="Z:/picture/008/save_picture_866339.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LibreOffice 7.2.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866338.jpg" />
+  <img src="Z:/picture/008/save_picture_866338.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ForkLift 3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866336.jpg" />
+  <img src="Z:/picture/008/save_picture_866336.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866330.jpg" />
+  <img src="Z:/picture/008/save_picture_866330.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866318.jpg" />
+  <img src="Z:/picture/008/save_picture_866318.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Teorex Inpaint 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866283.jpg" />
+  <img src="Z:/picture/008/save_picture_866283.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ TheAeroClock 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866266.jpg" />
+  <img src="Z:/picture/008/save_picture_866266.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Ditto 3.21.50.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866255.jpg" />
+  <img src="Z:/picture/008/save_picture_866255.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866253.jpg" />
+  <img src="Z:/picture/008/save_picture_866253.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ zXz - 3 Albums + 2 Singles + Remix (Дискография) (2013-2016) Авто
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866252.jpg" />
+  <img src="Z:/picture/008/save_picture_866252.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ SRWare Iron 49.0.2600.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866250.jpg" />
+  <img src="Z:/picture/008/save_picture_866250.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866248.jpg" />
+  <img src="Z:/picture/008/save_picture_866248.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866246.jpg" />
+  <img src="Z:/picture/008/save_picture_866246.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Pete Rock - PeteStrumentals 2 (2015) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Ins
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866244.jpg" />
+  <img src="Z:/picture/008/save_picture_866244.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866243.jpg" />
+  <img src="Z:/picture/008/save_picture_866243.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866242.jpg" />
+  <img src="Z:/picture/008/save_picture_866242.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ BetterTouchTool 2.071 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866240.jpg" />
+  <img src="Z:/picture/008/save_picture_866240.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Mania - Небо в рукаве (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866238.jpg" />
+  <img src="Z:/picture/008/save_picture_866238.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ FileZilla 3.24.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866237.jpg" />
+  <img src="Z:/picture/008/save_picture_866237.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Time Sink 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866236.jpg" />
+  <img src="Z:/picture/008/save_picture_866236.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866230.jpg" />
+  <img src="Z:/picture/008/save_picture_866230.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ W10Privacy 3.7.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866220.jpg" />
+  <img src="Z:/picture/008/save_picture_866220.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.24) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866215.jpg" />
+  <img src="Z:/picture/008/save_picture_866215.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Microsoft SQL Server 2008 R2 RC1 WinBeta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866197.jpg" />
+  <img src="Z:/picture/008/save_picture_866197.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866139.jpg" />
+  <img src="Z:/picture/008/save_picture_866139.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866127.jpg" />
+  <img src="Z:/picture/008/save_picture_866127.jpg" />
 </div>
 
 

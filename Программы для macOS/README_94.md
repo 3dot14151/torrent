@@ -1,3 +1,141 @@
+###  Публикация: 1571664   (431762) от 22.08.2022
+
+Folder 1.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder — ваш помощник, ярый борец за ваше удобство и комфорт в любой работе на компьютере. Используйте приложение, чтобы изменить значок папки. Значок новой папки определяет, какие документы имеют высокий приоритет, а какие из них имеют нормальный или низкий приоритет. Легко увидеть, какие операции завершены полностью, какие выполнены частично, а какие еще не начаты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.08.2022Разработчик: © 2021 ZYSoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2875427D176604ED95A36A9470E8A26604EBFC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249807   (431375) от 25.09.2018
+
+popCalendar 1.8.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431375.jpg" />
+</div>
+
+
+###  Подробнее
+
+popCalendar представляет собой миниатюрный календарь , который помещается в строке меню , давая вам более быстрый доступ к вашему расписанию .
+
+Показ за месяц позволяет найти нужный вам день или дату, в то время как щелчок мышью позволяет увидеть все события этого дня.
+Все это без необходимости запуска iCal!Тип издания: macOS SoftwareРелиз состоялся: 23.09.2018Разработчик: Michaël ParrotПоддерживаемая ОС: MacOS 10.9 +Язык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209EDCA01F642BC75F74249E4E8C9CF5B06DAAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249707   (431200) от 25.09.2018
+
+iNet Network Scanner 2.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431200.jpg" />
+</div>
+
+
+###  Подробнее
+
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2018Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598921D03975B926D51AF19BBC8BE0915119730E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249817   (430552) от 25.09.2018
+
+Mindjet MindManager 11 v11.2.111 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Mindjet является разработчиком программных приложений, которые экономят время и повышают производительность, предоставляя бизнес профессионалам простой и вместе с тем мощный способ управления сложной информацией и идеями. Продукты Mindjet помогают развивать корпоративные бизнес-процессы, начинать новые проекты и поддерживать сотрудничество; эффективны как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: CorelПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3382C8DFA278CAB7CFA47B5942D39BB8E56C6FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165821   (430039) от 14.09.2017
+
+Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Raya Pro является одной из лучших панелей для Photoshop.
+Raya Pro - это плагин для вашего Фотошопа, после установки которого у вас в программе появится дополнительная панель ее видно на скриншотах. Она позволит вам максимально комфортно смешивать слои и работать с ними, у вас будут все нужные инструменты под рукой.
+
+InstaMask - это новая мощная панель маскировки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2017Разработчик: Jimmy McIntyre Software & Development LTDПоддерживаемая ОС: OS X / WindowsЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FDAA4B5E53CC7366DC01423B296FEC5432F3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411160   (429829) от 24.09.2020
 
 Antivirus Zap Pro 3.10.2.0 [Multi/Ru]
@@ -6,7 +144,7 @@ Antivirus Zap Pro 3.10.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429829.jpg" />
+  <img src="Z:/picture/008/save_picture_429829.jpg" />
 </div>
 
 
@@ -32,7 +170,7 @@ IconJar 2.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429768.jpg" />
+  <img src="Z:/picture/008/save_picture_429768.jpg" />
 </div>
 
 
@@ -60,7 +198,7 @@ WaterMarker 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429329.jpg" />
+  <img src="Z:/picture/008/save_picture_429329.jpg" />
 </div>
 
 
@@ -88,7 +226,7 @@ Money 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429288.jpg" />
+  <img src="Z:/picture/008/save_picture_429288.jpg" />
 </div>
 
 
@@ -114,7 +252,7 @@ CCleaner Professional Edition for Mac 1.18.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429240.jpg" />
+  <img src="Z:/picture/008/save_picture_429240.jpg" />
 </div>
 
 
@@ -142,7 +280,7 @@ QR Factory 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429179.jpg" />
+  <img src="Z:/picture/008/save_picture_429179.jpg" />
 </div>
 
 
@@ -169,7 +307,7 @@ OmniPlan Pro 3 v3.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429133.jpg" />
+  <img src="Z:/picture/008/save_picture_429133.jpg" />
 </div>
 
 
@@ -195,7 +333,7 @@ AirBeam Pro 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428945.jpg" />
+  <img src="Z:/picture/008/save_picture_428945.jpg" />
 </div>
 
 
@@ -223,7 +361,7 @@ Hear 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428817.jpg" />
+  <img src="Z:/picture/008/save_picture_428817.jpg" />
 </div>
 
 
@@ -251,7 +389,7 @@ ForkLift 2.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428645.jpg" />
+  <img src="Z:/picture/008/save_picture_428645.jpg" />
 </div>
 
 
@@ -278,7 +416,7 @@ Audulus 3 v3.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427553.jpg" />
+  <img src="Z:/picture/008/save_picture_427553.jpg" />
 </div>
 
 
@@ -304,7 +442,7 @@ TotalFinder 1.12.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427342.jpg" />
+  <img src="Z:/picture/008/save_picture_427342.jpg" />
 </div>
 
 
@@ -332,7 +470,7 @@ iVolume 3.7.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427065.jpg" />
+  <img src="Z:/picture/008/save_picture_427065.jpg" />
 </div>
 
 
@@ -361,7 +499,7 @@ BiglyBT 1.0.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426679.jpg" />
+  <img src="Z:/picture/008/save_picture_426679.jpg" />
 </div>
 
 
@@ -388,7 +526,7 @@ Magnet 1.9.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425667.jpg" />
+  <img src="Z:/picture/008/save_picture_425667.jpg" />
 </div>
 
 
@@ -414,7 +552,7 @@ Curio 9.4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425054.jpg" />
+  <img src="Z:/picture/008/save_picture_425054.jpg" />
 </div>
 
 
@@ -441,7 +579,7 @@ Adobe Acrobat Pro DC 20.012.20043 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424773.jpg" />
+  <img src="Z:/picture/008/save_picture_424773.jpg" />
 </div>
 
 
@@ -467,7 +605,7 @@ Xee 3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424708.jpg" />
+  <img src="Z:/picture/008/save_picture_424708.jpg" />
 </div>
 
 
@@ -495,7 +633,7 @@ DAEMON Tools iSCSI for Mac 6.3.419 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424109.jpg" />
+  <img src="Z:/picture/008/save_picture_424109.jpg" />
 </div>
 
 
@@ -522,7 +660,7 @@ TunesKit 3.5.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424073.jpg" />
+  <img src="Z:/picture/008/save_picture_424073.jpg" />
 </div>
 
 
@@ -549,7 +687,7 @@ ImaPic Pro 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424068.jpg" />
+  <img src="Z:/picture/008/save_picture_424068.jpg" />
 </div>
 
 
@@ -563,148 +701,6 @@ ImaPic простой редактор изображений, который п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98FFFF932462E05D991BC3902E58C90486A6CD38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166529   (423935) от 17.09.2017
-
-OptimUSB 7.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423935.jpg" />
-</div>
-
-
-###  Подробнее
-
-OptimUSB - приложение, которое оптимизирует ваш USB и карты памяти. Вам просто нужно запустить OptimUSB перед извлечением вашего USB-накопителя. Любые временные файлы Mac или Windows удаляются (.DS_Store, .Trashes, .Spotlight-V100, Thumbs.db и т. д.). Затем OptimUSB автоматически извлечет ваш диск из системы.
-
-Помните, что macOS генерирует временные файлы при каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2017Разработчик: HamacaSoftПоддерживаемая ОС: macOS 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA11912D801C211BEF2EE1B7041A11F787C0571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250554   (423898) от 28.09.2018
-
-Moom 3.2.12 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная утилита для быстрого изменения размера окон и их положения в Mac OS X. Добавляет новые возможности зелёной кнопки ресайза окон в Файндэр.
-
-Необходимо отметить, прозрачный pop-up идеально вписывается в идеологию новой операционной системы OSX 10.7 Lion. Внутри небольшого окошка находятся пять пиктограмм отображающих предстоящие изменения положения окна. Шестой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Many TricksПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B8B3C9D08E6538B022C5CA11E99FE761D5304E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064880   (423893) от 21.10.2016
-
-Disk Expert 2.3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Expert  - освободите ваш диск
-Disk Expert - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых  огромных файлов и папок.
-
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2015Разработчик: NektonyПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA380F525898A8DCCA1410F5C2D09513FD20FF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064883   (423785) от 21.10.2016
-
-Disk Inspector 2.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Inspector - инспектор диска
-Неиспользуемые файлы могут быть занимают значительные объемы пространства.
-Disk Inspector - приложение сканирует жесткий диск и формирует графическую диаграмму использования файловой системы. Приложение предназначено тем, кто следит за использованием дискокого пространста или например, ограничен пространством SSD диска. Вы можете (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 января 2016Разработчик: NektonyПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31FDC6E4FEE218E9E78072064FE8CB9CB63D148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064891   (423778) от 21.10.2016
-
-App Cleaner Pro 3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотр установленных приложений и удалить пакет файлов для полного удаления.
-App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений *.
-
-* Некоторые приложения не могут быть удалены, поскольку они требуют прав администратора. В этом случае, переключиться на Finder и удалите файл приложения в обычном порядке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 сентября 2016Разработчик: NektonyПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B462A004CE2C892D53DF0E56F07E2882CA436092
 ```
 
 https://mybot314.ru/tekegram_catalog/

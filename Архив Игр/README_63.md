@@ -6,7 +6,7 @@ Marooned 2: Secrets of the Akoni (P) [En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334794.jpg" />
+  <img src="Z:/picture/005/save_picture_334794.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avenue Flo: Special Delivery (P) [En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333620.jpg" />
+  <img src="Z:/picture/005/save_picture_333620.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Grow Home (2015) [Ru/Multi] (5.3.02) Repack Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333190.jpg" />
+  <img src="Z:/picture/008/save_picture_333190.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FlingSmash [Wii] [PAL] [Multi5] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333107.jpg" />
+  <img src="Z:/picture/008/save_picture_333107.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333000.jpg" />
+  <img src="Z:/picture/008/save_picture_333000.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332775.jpg" />
+  <img src="Z:/picture/005/save_picture_332775.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329588.jpg" />
+  <img src="Z:/picture/005/save_picture_329588.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Don't Starve (2013) [Ru/En] (1.134052/dlc) Repack Samael
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328956.jpg" />
+  <img src="Z:/picture/008/save_picture_328956.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_327848.jpg" />
+  <img src="Z:/picture/005/save_picture_327848.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327847.jpg" />
+  <img src="Z:/picture/008/save_picture_327847.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_327815.jpg" />
+  <img src="Z:/picture/005/save_picture_327815.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_327745.jpg" />
+  <img src="Z:/picture/005/save_picture_327745.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_327740.jpg" />
+  <img src="Z:/picture/005/save_picture_327740.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ LittleBigPlanet 3 / Little Big Planet 3 [PS3] [USA] [En] [4.65] (2014)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326159.jpg" />
+  <img src="Z:/picture/008/save_picture_326159.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Project CARS (2015) [Ru/En/De] (6.0/upd10/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325406.jpg" />
+  <img src="Z:/picture/008/save_picture_325406.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325091.jpg" />
+  <img src="Z:/picture/008/save_picture_325091.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Worms: Reloaded / Worms 2: Armageddon [Ru] (L) 2010 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325051.jpg" />
+  <img src="Z:/picture/008/save_picture_325051.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Goat Simulator (2014) [Ru/Multi] (1.3.48579/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324500.jpg" />
+  <img src="Z:/picture/008/save_picture_324500.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324224.jpg" />
+  <img src="Z:/picture/008/save_picture_324224.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324168.jpg" />
+  <img src="Z:/picture/008/save_picture_324168.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324156.jpg" />
+  <img src="Z:/picture/008/save_picture_324156.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324102.jpg" />
+  <img src="Z:/picture/008/save_picture_324102.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.03/u1) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323188.jpg" />
+  <img src="Z:/picture/008/save_picture_323188.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Far Cry 3: The Lost Expeditions Edition [En/Ru] (NoDVD/1.0) 2012 | Steam006
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321877.jpg" />
+  <img src="Z:/picture/008/save_picture_321877.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.0) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321095.jpg" />
+  <img src="Z:/picture/008/save_picture_321095.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.0.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320829.jpg" />
+  <img src="Z:/picture/008/save_picture_320829.jpg" />
 </div>
 
 

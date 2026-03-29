@@ -1,3 +1,235 @@
+###  Публикация: 1684413   (127816) от 15.12.2023
+
+System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Alternative Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127816.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Soldier Side - Intro
+A2 B.Y.O.B.
+A3 Revenga
+A4 Cigaro(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684524   (127797) от 15.12.2023
+
+Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silent Force - немецкая группа Heavy Metal/Power Metal, образованная в 1999 году.2000 - The Empire Of Future
+2001 - Infatuator
+2004 - Worlds Apart
+2007 - Walk The Earth(   Читать дальше...   )Жанр: Power MetalПродолжительность: 05:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684362   (127793) от 15.12.2023
+
+Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash/Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stam1na («Стойкость») — метал-группа из Леми, Южная Карелия, Финляндия. Их стиль можно определить как прогрессивный метал с элементами треш-, дет- и альтернативного метала. Тексты — на финском языке.2005 - Stam1na
+2006 - Uudet Kymmenen Kaskya
+2008 - Raja
+2010 - Viimeinen AtlantisЖанр: Progressive/Thrash/Heavy MetalПродолжительность: 09:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684406   (127764) от 15.12.2023
+
+Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127764.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Day That The World Breaks Down
+A2 - Sea Of Machines
+A3 - Everybody Dies
+B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684782   (127351) от 17.12.2023
+
+Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thrash, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127351.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rotten Plague
+A2 Stick In Back
+A3 Brainsuckers Spiders
+A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685955   (126869) от 20.12.2023
+
+Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126869.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Queen Of Death
+A2 Protector
+A3 Demolition
+A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685908   (126863) от 20.12.2023
+
+Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Future Warriors
+A2. Starchild
+A3. Dead Man's Hand
+A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686072   (126770) от 21.12.2023
+
+Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126770.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Люди В Ожидании
+A2 Муха На Стекле
+A3 Город
+A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685934   (126751) от 21.12.2023
 
 Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
@@ -6,7 +238,7 @@ Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBH
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126751.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126734.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126077.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126076.jpg" />
 </div>
 
 
@@ -121,7 +353,7 @@ Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126075.jpg" />
 </div>
 
 
@@ -150,7 +382,7 @@ Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126074.jpg" />
 </div>
 
 
@@ -179,7 +411,7 @@ Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125889.jpg" />
 </div>
 
 
@@ -208,7 +440,7 @@ Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125707.jpg" />
 </div>
 
 
@@ -236,7 +468,7 @@ Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125459.jpg" />
 </div>
 
 
@@ -264,7 +496,7 @@ Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Exper
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125286.jpg" />
 </div>
 
 
@@ -293,7 +525,7 @@ Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125045.jpg" />
 </div>
 
 
@@ -322,7 +554,7 @@ Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124859.jpg" />
 </div>
 
 
@@ -351,7 +583,7 @@ Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123292.jpg" />
 </div>
 
 
@@ -380,7 +612,7 @@ Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123278.jpg" />
 </div>
 
 
@@ -409,7 +641,7 @@ Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123249.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123243.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123241.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123238.jpg" />
 </div>
 
 
@@ -510,235 +742,6 @@ Infernal Poetry — итальянская дэт-метал-группа из �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E43A6BA1CA8E417795BA618AFB52F3DCDDD3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691341   (123237) от 12.01.2024
-
-Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Green Labyrinth - швейцарская прогрессив-метал группа, основанная в 2008 году.2014 - Shadow of My Past
-2023 - SequencesЖанр: Progressive MetalПродолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17FE29B954AEFD226983AE6C6E1E90B506EC7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691763   (123116) от 13.01.2024
-
-Валерий Леонтьев - Четыре альбома (1984-1988) [FLAC|Lossless|image + .cue] <New Wave, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123116.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:40:04
-
-A1 Я — Просто Певец • I'm Only A Singer
-(Л. Квинт – Н. Денисов)(   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 02:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691767   (123056) от 13.01.2024
-
-Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triple Kill - Thrash/Power Metal-группа сформированная в 2016 году в Мельбурне, Австралия.2017 - The First Kill
-2018 - Age of Rebellion
-2023 - Blackened DawnЖанр: Heavy/Thrash/Power MetalПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691668   (122926) от 14.01.2024
-
-Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acoustics, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Low Man's Lyric 08:14
-2. Helpless 03:43
-3. Tuesday's Gone (feat. Jerry Cantrell) 08:54
-4. Poor Twisted Me 04:13(   Читать дальше...   )Жанр: Acoustics, RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692087   (122760) от 15.01.2024
-
-Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122760.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Изабелла
-A2 Потому Что
-A3 Жить С Тобой
-A4 Ты Была Слишком Красива(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACA7A2AEED035ABA02D31DF17005395826B6CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692516   (122519) от 16.01.2024
-
-Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122519.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Asl
-A2. Born To Survive
-A3. You've Lost Yourself
-A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692275   (122507) от 16.01.2024
-
-Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anthem — метал-группа из Японии, основанная в 1981 году в Токио.1985 - Anthem
-1986 - Tightrope
-1987 - Bound To Break
-1988 - Gypsy WaysЖанр: Heavy/Power MetalПродолжительность: 16:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692668   (122326) от 17.01.2024
-
-Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122326.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vermin Feast
-A2 Esophageal Mutilation
-B1 Coffin Birth
-B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 384476   (482671) от 06.09.2011
+
+Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [FLAC|Lossless]<Hard Rock, Progressive Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way Or Another (4:39)
+02. Weep In Silence (5:06)
+03. Misty Eyes (4:15)
+04. Midnight (5:40)
+05. Can't Keep A Good Band Down (3:38)
+06. Woman Of The World (3:08)
+07. Footprints In the Snow (3:56)
+08. Can't Stop Singing (3:20)
+09. Make A Little Love (3:27)
+10. Confession (2:08)Жанр: Hard Rock, Progressive Rock, Heavy MetalПродолжительность: 05:14:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566502   (482429) от 29.07.2022
+
+Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galacticus
+02. Vagabond Rise
+03. Here Be Dragons
+04. Firefly(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07E4735B2DB6AD76F5BCA7BA94F2D5379D9C970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405932   (479277) от 01.09.2020
 
 Merzy - Rock the Blues (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +70,7 @@ Merzy - Rock the Blues (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479277.jpg" />
+  <img src="Z:/picture/008/save_picture_479277.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ John Wetton & Geoffrey Downes - 25 albums, 29 CD (1980-2017) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478815.jpg" />
+  <img src="Z:/picture/008/save_picture_478815.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Madhouse - Down 'N' Dirty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478639.jpg" />
+  <img src="Z:/picture/008/save_picture_478639.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Michael Schenker Group - Universal (2022) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478489.jpg" />
+  <img src="Z:/picture/008/save_picture_478489.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ Burning Rain - 3 альбомa (1999-2013) Discography [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478120.jpg" />
+  <img src="Z:/picture/008/save_picture_478120.jpg" />
 </div>
 
 
@@ -151,7 +215,7 @@ Fаir Wаrning - Рimр Yоur Раst (2016) Jараnеsе Еditiоn [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477712.jpg" />
+  <img src="Z:/picture/008/save_picture_477712.jpg" />
 </div>
 
 
@@ -180,7 +244,7 @@ Seven - 7 (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477614.jpg" />
+  <img src="Z:/picture/008/save_picture_477614.jpg" />
 </div>
 
 
@@ -209,7 +273,7 @@ Seven - Shattered (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477518.jpg" />
+  <img src="Z:/picture/008/save_picture_477518.jpg" />
 </div>
 
 
@@ -238,7 +302,7 @@ All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476490.jpg" />
+  <img src="Z:/picture/008/save_picture_476490.jpg" />
 </div>
 
 
@@ -267,7 +331,7 @@ DeVicious - Black Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476413.jpg" />
+  <img src="Z:/picture/008/save_picture_476413.jpg" />
 </div>
 
 
@@ -296,7 +360,7 @@ David Coverdale - The Early Years: Whitesnake & Northwinds (2CD) (1976-77, Reiss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476154.jpg" />
+  <img src="Z:/picture/008/save_picture_476154.jpg" />
 </div>
 
 
@@ -331,7 +395,7 @@ Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475893.jpg" />
+  <img src="Z:/picture/008/save_picture_475893.jpg" />
 </div>
 
 
@@ -363,7 +427,7 @@ Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474429.jpg" />
+  <img src="Z:/picture/008/save_picture_474429.jpg" />
 </div>
 
 
@@ -392,7 +456,7 @@ The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474427.jpg" />
+  <img src="Z:/picture/008/save_picture_474427.jpg" />
 </div>
 
 
@@ -421,7 +485,7 @@ Ultraphonix - Original Human Music (2018) [FLAC|Lossless|tracks + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474097.jpg" />
+  <img src="Z:/picture/008/save_picture_474097.jpg" />
 </div>
 
 
@@ -450,7 +514,7 @@ David Mark Pearce - Strаngе Аng3ls (2011) Jараnеsе Еditiоn [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473184.jpg" />
+  <img src="Z:/picture/008/save_picture_473184.jpg" />
 </div>
 
 
@@ -479,7 +543,7 @@ Bailey - Long Way Down (2014) Jараnеsе Еditiоn [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473060.jpg" />
+  <img src="Z:/picture/008/save_picture_473060.jpg" />
 </div>
 
 
@@ -508,7 +572,7 @@ Whitesnake - 12 Альбомов (1978-2006) [FLAC,WV|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471598.jpg" />
+  <img src="Z:/picture/008/save_picture_471598.jpg" />
 </div>
 
 
@@ -543,7 +607,7 @@ H.E.A.T - Force Majeure (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470194.jpg" />
+  <img src="Z:/picture/008/save_picture_470194.jpg" />
 </div>
 
 
@@ -572,7 +636,7 @@ White Lion - The Best Of White Lion (1992) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468126.jpg" />
+  <img src="Z:/picture/008/save_picture_468126.jpg" />
 </div>
 
 
@@ -601,7 +665,7 @@ The Isley Brothers & Santana - Power Of Peace (2017) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467462.jpg" />
+  <img src="Z:/picture/008/save_picture_467462.jpg" />
 </div>
 
 
@@ -630,7 +694,7 @@ Blackjack - Blackjack (1979) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466433.jpg" />
+  <img src="Z:/picture/008/save_picture_466433.jpg" />
 </div>
 
 
@@ -659,7 +723,7 @@ Blackjack - Worlds Apart (1980) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466072.jpg" />
+  <img src="Z:/picture/008/save_picture_466072.jpg" />
 </div>
 
 
@@ -688,7 +752,7 @@ Airbourne - Breakin' Outta Hell (2016) Limited Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465969.jpg" />
+  <img src="Z:/picture/008/save_picture_465969.jpg" />
 </div>
 
 
@@ -702,70 +766,6 @@ Airbourne - Breakin' Outta Hell (2016) Limited Edition [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6E09018577D3463127BD68A0C03F76087517EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246016   (465653) от 09.09.2018
-
-Clutch - Book of Bad Decisions (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465653.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gimme the Keys (3:33)
- 2. Spirit of '76 (3:39)
- 3. Book of Bad Decisions (3:23)
- 4. How to Shake Hands (3:52)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C379579DB9535DFA5552731A802B8AC227A2F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387589   (465278) от 14.09.2011
-
-Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Play Dirty
-03. Skin To Skin
-04. Find Another Way
-05. Up Against The Wall
-06. Hold On Tonight
-07. Can’t Catch Me
-08. Bad Reputation
-09. Daddy’s Little Girl
-10. Is That All You Want?(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

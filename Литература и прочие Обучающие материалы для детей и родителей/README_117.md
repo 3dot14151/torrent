@@ -1,3 +1,137 @@
+###  Публикация: 1005911   (831073) от 10.04.2016
+
+Евгений Астахов | Наш старый добрый двор (1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остросюжетный роман о подростках, чье четырнадцатилетие совпало с началом войны.
+В романе четыре главных героя. На их долю выпадает последний, завершающий бой второй мировой войны. И принимают они его так, как подобает солдатам, — мужественно и честно.Жанр: Детская литература, О войнеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89173918CB3790260313727AB91D56BF73305F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005806   (831063) от 10.04.2016
+
+Сергей Баруздин | Алёшка, ведро воды и гвоздь (1960) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A42B4CFE7C765D093417DB83D84E257FC151B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006151   (830533) от 10.04.2016
+
+Вацлав Станек | Иллюстрированная энциклопедия животных (1986) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший директор Пражского зоопарка д-р В. Я. Станек, автор многих фотоальбомов о жизни животных и одновременно кинооператор, сценарист и режиссер ряда фильмов о природе, знакомит читателя с результатами своих многолетних исследований огромного царства животных. Более тысячи прекрасных фотографий со всего мира, включая 16 страниц цветных снимков, описывают развитие (   Читать дальше...   )Жанр: Энциклопедия животныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4E5091A250544F0005B2685978B1DE818ECCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005875   (830469) от 10.04.2016
+
+Марина Костюхина | Детский оракул. По страницам настольно-печатных игр (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настольные игры в России были излюбленным занятием для детей и взрослых: дождливой осенью и холодной зимой семья рассаживалась вокруг стола, доставалась коробка, раскладывалось поле, вынимались фигурки — и начиналась игра.
+
+Лото, карты, панорамы, "гуськи" — все эти виды игр должны были не только развлекать, но и, по замыслу их создателей, образовывать и (   Читать дальше...   )Жанр: Настольные игрыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFFA9C15D673EEB03BBE2478B41AC6B3B838951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653179   (830378) от 07.05.2013
+
+Подшивка журналов | Весёлые картинки (482 номера) [1957-2011] [DJVU, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский юмористический журнал «Весёлые картинки» начал выходить в свет с 1956 года на волне «хрущевской оттепели».
+Идея появления журнала принадлежала Ивану Семенову - популярному карикатуристу газеты «Крокодил». Он стал первым редактором журнала. Вместе с художником Виталием Стацинским он привлек к работе своих коллег - академиков Аминадава Каневского и Алексея (   Читать дальше...   )Жанр: Детский юмористический журналФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73633813059F60C72F7AA1BA0E0A3FE1552C2AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114859   (830064) от 16.03.2017
 
 Александр Ткаченко | Житие святителя Иоанна Шанхайского в пересказе для детей (2014) [PDF, DJVU]
@@ -6,7 +140,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830064.jpg" />
 </div>
 
 
@@ -34,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829570.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829210.jpg" />
 </div>
 
 
@@ -87,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829065.jpg" />
 </div>
 
 
@@ -113,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829062.jpg" />
 </div>
 
 
@@ -141,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828697.jpg" />
 </div>
 
 
@@ -169,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828604.jpg" />
 </div>
 
 
@@ -197,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827898.jpg" />
 </div>
 
 
@@ -224,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827820.jpg" />
 </div>
 
 
@@ -250,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827767.jpg" />
 </div>
 
 
@@ -276,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827685.jpg" />
 </div>
 
 
@@ -304,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827580.jpg" />
 </div>
 
 
@@ -333,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827253.jpg" />
 </div>
 
 
@@ -359,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827250.jpg" />
 </div>
 
 
@@ -385,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827242.jpg" />
 </div>
 
 
@@ -411,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827239.jpg" />
 </div>
 
 
@@ -437,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827163.jpg" />
 </div>
 
 
@@ -463,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827161.jpg" />
 </div>
 
 
@@ -489,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826888.jpg" />
 </div>
 
 
@@ -518,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826453.jpg" />
 </div>
 
 
@@ -545,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826438.jpg" />
 </div>
 
 
@@ -556,138 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7460976AE7C742322B4BD6E3FB3A75152D08D0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196220   (825690) от 01.01.2018
-
-Л.С.Пономарёва | Удивительная математика для почемучек 5-го года жизни [2] (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издания представляют собой тетради-раскраски, задания которых направлены на формирование математических представлений у дошкольников 5-го года жизни. Тетради подготовлены в соответствии с тематическим планированием и планами-конспектами издания Л. С. Пономарёвой «Удивительная математика. Предматематическое развитие почемучек 5-го года жизни». Адресуются дошкольникам (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6C6504371FACD1AADB2B94F8535F09DA4A59B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115145   (825668) от 18.03.2017
-
-Ф. Конрад, Лу Тайли | Java для детей: учебник по программированию NetBeans 8 [8-е издание] (2015) [PDF, EPUB, AZW3] [En]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java for Kids - это учебник по программированию, состоящий из более чем 400 страниц, на которых в простых и понятных терминах показано, как создавать приложение на Java. Наше учебное пособие по Java для детей уже более 10 лет успешно используется в школах по всему миру!
-
-С этой книги вы узнаете о проектировании, объектно-ориентированном программировании, консольных (   Читать дальше...   )Жанр: Программирование на JavaФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC30DF32A9EB82561DDEF5FCEEF97EBD4D44E714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006711   (825486) от 13.04.2016
-
-А. Шаров | Приключения Ёженьки, или Сказка о нарисованных человечках (1989) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A41EB6784E515E0BC643DAD06D6BB8E67779CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502892   (825264) от 16.10.2021
-
-Клэр Харкап | Хэтти Браун и фальшивые слоны. Книга 2 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Хэтти Браун открыла холодильник, не ожидая найти в нём что-нибудь новенькое, и увидела… слона. Крохотного слона из другого мира. Это её друг Виктор, и он снова забрал девочку в свой причудливый мир. Но там Хэтти встретила ещё одного слона, который сказал, что это он – настоящий Виктор. А потом появились ещё и ещё слоны и каждый твердил, что он Виктор. Хэтти (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: М.А. СклярФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A0CC76108654446020BAF0E9E59174F53B1A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502889   (825257) от 16.10.2021
-
-Стивен Батлер | Отель «Проходите мимо». Секрет дедушки-призрака. Книга 3 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абрахам Банистер, основатель отеля «Проходите мимо», всегда был кумиром Фрэнки. Мальчик обожает своего прапрапрадедушку, ведь тот был большим любителем приключений. Но Фрэнки и представить не мог, что однажды призрак Абрахама решит заявиться в отель! Он готов раскрыть удивительные секреты, которые хранятся в этих стенах. Однако что-то Фрэнки настораживает в этом (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: О.П. БурмаковаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE7FC9A92F2776694A28B26716663F1F822120F
 ```
 
 https://mybot314.ru/tekegram_catalog/

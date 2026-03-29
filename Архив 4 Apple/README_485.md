@@ -1,3 +1,114 @@
+###  Публикация: 1340228   (264014) от 23.11.2019
+
+AnyMP4 Audio Converter for Mac 8.2.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264014.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Audio Converter - простой в использовании аудио конвертер, конвертер AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, извлечение аудио из видео файлов MPG, MPEG, MPEG2, MOV, QT, MP4, M4V, RM, RMVB, WMV, ASF, MKV, TS, MPV, AVI, 3GP, 3G2, FLV, MPV, MOD, TOD видео в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, конвертер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD98F2B3A3EC35BF00EF444F7860ABE4DC7CF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340218   (263998) от 23.11.2019
+
+TG Pro (Temperature Gauge Pro) 2.45 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263998.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA2B6EA799CCB04F8C2B949CFAAC5980844E961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340320   (263986) от 23.11.2019
+
+ProPresenter 6 v6.5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263986.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
+Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
+
+Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Корейский, Испанский и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6932865D1DAE9F9EA73597647288FFE0E25CD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340366   (263974) от 23.11.2019
+
+IconJar 2.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все ваши иконки отлично организованы в удобный интерфейс
+Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
+
+Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066ACF112A158432C3166A54C36D69455EF27246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340244   (263966) от 23.11.2019
 
 24 Hour Wallpaper 3.1 [En]
@@ -6,7 +117,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263966.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Adobe Illustrator 2020 24.0.0.332 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263941.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ WiFi Scanner 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263917.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ Capture One 20 Pro v13.0.0.177 b5
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263913.jpg" />
 </div>
 
 
@@ -111,7 +222,7 @@ Money Pro 1.8.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263884.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ RightFont 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263860.jpg" />
 </div>
 
 
@@ -169,7 +280,7 @@ SecuritySpy 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263858.jpg" />
 </div>
 
 
@@ -195,7 +306,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263802.jpg" />
 </div>
 
 
@@ -222,7 +333,7 @@ BATTLETECH v.1.8.0.629r (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263785.jpg" />
 </div>
 
 
@@ -248,7 +359,7 @@ Compressor 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263696.jpg" />
 </div>
 
 
@@ -275,7 +386,7 @@ Antivirus Zap Pro 3.8.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263631.jpg" />
 </div>
 
 
@@ -301,7 +412,7 @@ Folder-Factory 5.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_263630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_263630.jpg" />
 </div>
 
 
@@ -330,7 +441,7 @@ Swift Converter 3 v3.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263625.jpg" />
 </div>
 
 
@@ -356,7 +467,7 @@ NCH Prism Plus 5.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263612.jpg" />
 </div>
 
 
@@ -382,7 +493,7 @@ DxO FilmPack 5 ELITE Edition 5.5.25 (build 601) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263592.jpg" />
 </div>
 
 
@@ -408,7 +519,7 @@ AnyTrans for Android 7 v7.3.0 (build 20191120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263582.jpg" />
 </div>
 
 
@@ -434,7 +545,7 @@ File Cabinet Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263534.jpg" />
 </div>
 
 
@@ -463,7 +574,7 @@ Romanysoft SpeedTest 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263492.jpg" />
 </div>
 
 
@@ -490,7 +601,7 @@ KCNcrew Pack 12.15.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263487.jpg" />
 </div>
 
 
@@ -518,7 +629,7 @@ Mate – Dictionary, Translator (мгновенный переводчик) 4.0.
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263482.jpg" />
 </div>
 
 
@@ -546,7 +657,7 @@ Adobe Illustrator 2020 24.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263459.jpg" />
 </div>
 
 
@@ -572,7 +683,7 @@ Adobe Acrobat Pro DC 2019.021.20056 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263437.jpg" />
 </div>
 
 
@@ -583,112 +694,6 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30086D877DB72E636018604080D91F3741E60EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192092   (263411) от 16.12.2017
-
-iNet Network Scanner 2.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная утилита, которая iNet предоставляет Вам наиболее полную информацию о сети к которой подключен ваш Mac. Приложение показывает устройства, подключенные к вашей локальной сети, компьютер (Mac, PC) или маршрутизатор, а также сетевое имя, IP (в т.ч. Mac-адрес) и по возможности поставщика оборудования. Кроме этого, Вы можете увидеть общедоступные ресурсы (Bonjour) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2017Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E96977DAE9F382302CA0027FDECF13F45D651E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192083   (263405) от 16.12.2017
-
-Winclone Pro 6.1.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Winclone. Или как проще всего клонировать Windows на Mac.
-По непонятным причинам стандартная Дисковая утилита не работает с Windows разделами на macOS: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования разделов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2017Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405CBE70E8F847A43D9BBAC9FE2E85ECFA80FB2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340861   (263308) от 25.11.2019
-
-RightFont 5 v5.8.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
-RightFont - менеджер шрифтов с красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2019Разработчик: Markly TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A647F5EDFFE32C3556BC03C0CE7FB5E9C74A7CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340811   (263307) от 25.11.2019
-
-Coherence Pro 2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coherence Pro позволяет вам легко превратить любой веб-сайт в мощное приложение на вашем Mac. Используя переработанный инструмент создания, вы можете быстро создавать приложение с помощью встроенной функции или использовать один из нескольких новых режимов приложений для дальнейшего расширения возможностей.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299C47904F787C4D6BE9527E4C43F94AC1133880
 ```
 
 https://mybot314.ru/tekegram_catalog/

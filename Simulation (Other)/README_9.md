@@ -1,3 +1,29 @@
+###  Публикация: 1269231   (582009) от 14.05.2019
+
+Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frostpunk – первая игра в жанре "выживание общества". Как правитель последнего города на земле вы будете управлять его жителями и инфраструктурой. Какие решения вы примете во имя выживания? Как себя поведете в переломный момент? Кем при этом станете?Тип издания: RepackРазработчик: 11 bit studiosЖанр: Strategy, Simulation, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6A677685EF69AE55680EE387018716D18571A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042565   (577703) от 13.08.2016
 
 Farm Expert 2016 (2015) [Ru/Multi] (2.26/dlc) License POSTMORTEM [Deluxe Edition]
@@ -6,7 +32,7 @@ Farm Expert 2016 (2015) [Ru/Multi] (2.26/dlc) License POSTMORTEM [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577703.jpg" />
+  <img src="Z:/picture/008/save_picture_577703.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.7/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577682.jpg" />
+  <img src="Z:/picture/008/save_picture_577682.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561276.jpg" />
+  <img src="Z:/picture/008/save_picture_561276.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mars or Die! (2018) [Ru/Multi] (1.1.1) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556484.jpg" />
+  <img src="Z:/picture/008/save_picture_556484.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556314.jpg" />
+  <img src="Z:/picture/008/save_picture_556314.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Farm Expert 2017 (2016) [En/Multi] (1.105) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546205.jpg" />
+  <img src="Z:/picture/008/save_picture_546205.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Rat Simulator (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534744.jpg" />
+  <img src="Z:/picture/008/save_picture_534744.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ ZUSI 3 - Aerosoft Edition (2019) [En/De] (3.3.0.1) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532091.jpg" />
+  <img src="Z:/picture/008/save_picture_532091.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Survive on Raft (2019) [Ru/En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527876.jpg" />
+  <img src="Z:/picture/008/save_picture_527876.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Deltaplan Simulator (2017) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525125.jpg" />
+  <img src="Z:/picture/008/save_picture_525125.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525109.jpg" />
+  <img src="Z:/picture/008/save_picture_525109.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.6.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524158.jpg" />
+  <img src="Z:/picture/008/save_picture_524158.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523115.jpg" />
+  <img src="Z:/picture/008/save_picture_523115.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517822.jpg" />
+  <img src="Z:/picture/008/save_picture_517822.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515814.jpg" />
+  <img src="Z:/picture/008/save_picture_515814.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515761.jpg" />
+  <img src="Z:/picture/008/save_picture_515761.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Ship Simulator Extremes [Eng] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511648.jpg" />
+  <img src="Z:/picture/008/save_picture_511648.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502920.jpg" />
+  <img src="Z:/picture/008/save_picture_502920.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496173.jpg" />
+  <img src="Z:/picture/008/save_picture_496173.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Streamer Life Simulator (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488968.jpg" />
+  <img src="Z:/picture/008/save_picture_488968.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3406/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480578.jpg" />
+  <img src="Z:/picture/008/save_picture_480578.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Mini Maker: Make A Thing (2022) [Multi] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478332.jpg" />
+  <img src="Z:/picture/008/save_picture_478332.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Digital Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475444.jpg" />
+  <img src="Z:/picture/008/save_picture_475444.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.00.3598/1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475427.jpg" />
+  <img src="Z:/picture/008/save_picture_475427.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Digital Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473662.jpg" />
+  <img src="Z:/picture/008/save_picture_473662.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Train Sim World — железнодорожный симулятор от бр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDD2B3B6C2BC5965E8F70AEFE1B301E0FF4C97F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160972   (471125) от 26.08.2017
-
-Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.953.7721/dlc) Repack Other s [Gold Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный открытый мир ждет вас в Bus Simulator 16. Доставляйте пассажиров до пункта назначения в пяти реалистично воссозданных районах города. Управляйте двух-, трехдверными и сочлененными автобусами пригородного сообщения в час пик. Не забывайте пропускать скорые и объезжать строительные зоны. Внимательно следите за дорожной обстановкой, чтобы не угодить в аварию (   Читать дальше...   )Тип издания: RepackРазработчик: Stillalive studiosЖанр: Simulator, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D819D2089D4631A90862117EDD5C320C1CF0DC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

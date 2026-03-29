@@ -1,3 +1,81 @@
+###  Публикация: 1600350   (207232) от 16.02.2023
+
+Невероятные / Великолепные / Потрясающие / Deo paebyulleoseu / The Fabulous (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре лучших друга — два парня и две девушки — стремятся воплотить в жизнь свои мечты и реализоваться в фешен-индустрии. Один осваивает искусство фотографии, другая работает промоутером элитного бренда, третья стала моделью, а четвертый занимается дизайном одежды.Производство: Южная Корея, Gill PicturesЖанр: мелодрама, комедияРежиссер: Ким Джон-хёнАктеры: Минхо, Чхэ Су-бин, Ли Сан-ун, Пак Хи-джон, Ким Мин-гю, Щин Дон-ми, Ли Ми-до, Чхве Хи-джин, Чон Су-гён, Лим Ги-хонПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: Русские, украинские, английские, французскиеПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20254E048F9A835C859AE85030A8BFE7A1C983E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600836   (207224) от 16.02.2023
+
+Не хочу ничего решать / Я ничего не хочу делать / Amugeotdo hago sipji anha / Summer Strike (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ли Ё Рым бросает её парень, и вскоре после этого в результате несчастного случая погибает и её мать. Она переживает один из худших моментов своей жизни. Поэтому Ё Рым принимает решение жить совершенно другой жизнью и вообще ничего не делать. Она бросает работу и переезжает в маленькую деревню, где всё незнакомо. Там она знакомится с местными жителями, в том числе (   Читать дальше...   )Производство: Южная Корея, EnaЖанр: драмаРежиссер: Ли Юн-джон, Хон Мун-пхёАктеры: Ким Соль-хён, Им Щи-ван, Щин Ын-су, Пан Джэ-мин, Пак Е-ён, Квак Мин-гю, Ким ДжунПеревод: двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C71AB1FCDBF7CBE353B1DD7F5D4130B144D0CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602239   (207186) от 16.02.2023
+
+Выход на поклон / Выход на бис / Keiteunkol: namureun seoseo jukneunda / Keoteunkol / Curtain Call (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox Plus
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжа Гым Сун родилась в 30-х годах в Северной Корее, но во время войны она оказалась на территории Южной Кореи, потеряв связь со своим мужем и сыном. Ожидая воссоединения со своей семьей, Гым Сун открыла сеть отелей. Дже Хон − неизвестный театральный актер из бедной семьи. Однажды ему предлагают сыграть внука Гым Сун, и тем самым воплотить в жизнь ее последнее (   Читать дальше...   )Производство: Южная Корея, Korean Broadcasting System (KBS), Victory ContentsЖанр: драмаРежиссер: Юн Сан-хоАктеры: Кан Ха-ныль, Ко Ду-щим, Ха Джи-вон, Квон Сан-у, Сон Дон-иль, Чи Сын-хён, Хвану Сыль-хе, Стив Но, Чон Джи-со, Ким Хён-сукПеревод: двуголосый любительский (Softbox Plus*)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5031F2EC1DE50812211B6472D3BF5102E4B65E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612779   (207119) от 17.02.2023
 
 Муж на 100 дней / Baekilui Nanggoonnim / 100 Days My Prince (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16) Тайм Медиа Групп
@@ -6,7 +84,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207119.jpg" />
+  <img src="Z:/picture/005/save_picture_207119.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206309.jpg" />
+  <img src="Z:/picture/005/save_picture_206309.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205871.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205033.jpg" />
+  <img src="Z:/picture/004/save_picture_205033.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204437.jpg" />
+  <img src="Z:/picture/004/save_picture_204437.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204131.jpg" />
+  <img src="Z:/picture/004/save_picture_204131.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203668.jpg" />
+  <img src="Z:/picture/004/save_picture_203668.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203219.jpg" />
+  <img src="Z:/picture/004/save_picture_203219.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203006.jpg" />
+  <img src="Z:/picture/004/save_picture_203006.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202191.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_202050.jpg" />
+  <img src="Z:/picture/005/save_picture_202050.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201716.jpg" />
+  <img src="Z:/picture/005/save_picture_201716.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201361.jpg" />
+  <img src="Z:/picture/005/save_picture_201361.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201235.jpg" />
+  <img src="Z:/picture/005/save_picture_201235.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201110.jpg" />
+  <img src="Z:/picture/005/save_picture_201110.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200844.jpg" />
+  <img src="Z:/picture/005/save_picture_200844.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200789.jpg" />
+  <img src="Z:/picture/005/save_picture_200789.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200556.jpg" />
+  <img src="Z:/picture/005/save_picture_200556.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200283.jpg" />
+  <img src="Z:/picture/005/save_picture_200283.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200112.jpg" />
+  <img src="Z:/picture/005/save_picture_200112.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200066.jpg" />
+  <img src="Z:/picture/005/save_picture_200066.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199957.jpg" />
+  <img src="Z:/picture/005/save_picture_199957.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199648.jpg" />
+  <img src="Z:/picture/005/save_picture_199648.jpg" />
 </div>
 
 
@@ -595,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE88E2FE6A807BDC41040888E2277FC22A6C59F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614611   (199426) от 22.04.2023
-
-Скажи мне, что это любовь / Sarangira malhaeyo / Call It Love (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) DublikTV, Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Шим У Чжу стала несчастной из-за ее отца и его любовницы. После смерти отца Шим У Джу выгнала из дома женщина, с которой встречался ее отец. Желая отомстить этой женщине, она знакомится с сыном бывшей любовницы ее отца, - и понимает, что влюбилась в него.
-Хан Дон Джин — трудоголик, всю жизнь страдавший от одиночества. Его жизнь меняется после того, как он встречает (   Читать дальше...   )Производство: Южная Корея, Arc Media, Studio Santa Claus EntertainmentЖанр: мелодрамаРежиссер: Ли Гван-ён, Ким Джи-ёнАктеры: Ким Ён-гван, Ли Сон-гён, Сон Джун, Ан Хи-ён, Ким Е-вон, Нам Ги-э, Пак Чин-а, Чан Сон-бомПеревод: Многоголосый (DublikTV), Двуголосый (Softbox)Язык озвучки: русский, корейский, английскийСубтитры: английские (SDH), французскиеПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E127358C634A90A35308CE7F2878173C1C4C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607944   (199410) от 22.04.2023
-
-Хроники преступления / Приманка / Mikki / Beomjweui Yeondaegi / Decoy (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ку До Хан (Чан Гын Сок) - бывший юрист, а теперь детектив. Он гонится за правдой о нераскрытом преступлении, случившемся 8 лет назад, стараясь раскрыть дело об убийстве, которое происходит в настоящем. Те, с кем он пересекается, - это репортер с большим энтузиазмом Чон На Ён (Ли Эллия) и мошенник Но Сан Чон (Хо Сон Тхэ).Производство: Южная Корея, Coupang PlayЖанр: криминал, детектив, триллерРежиссер: Ким Хон-сонАктеры: Чан Гын-сок, Хо Сон-тхэ, Ли Элия, Ю Сон-джу, Пак Мён-хун, Ли Сон-ук, О Ён-а, Ли Вон-джон, Ли Сын-джунПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEE531E0FE01540388C6A1FDFDCA0BEADE9AFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627442   (199292) от 25.04.2023
-
-Вы окружены / Neo-hui-deul-eun po-wi-dwaess-da / Neohuideuleun powidwaetta /You're All Surrounded (2014) WEBRip [H.264/720p] (сезон 1, серии 1-20 из 20) Тайм Медиа Групп
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199292.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках кампании по борьбе с коррупцией начальник каннамского полицейского участка провела кадровую перестановку, уволила часть сотрудников, вместо которых были взяты на службу выпускники полицейской академии. Таким образом "укрепили" следственный отряд известного спеца по поимке преступников Со Пан Сока. Сможет ли четвёрка новобранцев проявить себя и (   Читать дальше...   )Производство: Южная Корея | «HB Entertainment», «SBS»Жанр: Комедия, боевик, мелодрамаРежиссер: Ю Ин-щикАктеры: Ли Сын-ги, Чха Сын-вон, Ко А-ра, О Юн-а, Ан Джэ-хён, Сон Джи-ру, Пак Чон-мин, Лим Вон-хи, Чиу, Со И-сукПеревод: Многоголосый профессиональный (Тайм Медиа Групп)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25883BCCE03DD5213E1A0047DC399F45A2F703E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

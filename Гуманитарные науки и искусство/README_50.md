@@ -1,3 +1,29 @@
+###  Публикация: 1291070   (652416) от 26.03.2019
+
+К. Маркс | Капитал [3 тома, 4 книги] (1933-1936) [DJVU, PDF] [UA]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитал - главный труд К. Маркса, в котором он, применив диалектико-материалистическую концепцию исторического процесса к исследованию капиталистического общественно-экономической формации, открыл экономический закон движения буржуазного общества и доказал неизбежность гибели капитализма и победы коммунизма.Жанр: История, политология, экономика, правоведение, социология, философия, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5169321733C39403423EEFA4208883C44279E276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030889   (652147) от 04.07.2016
 
 Т. Д. Павлов | Ленинская теория отражения в свете развития науки и практики [Том 1] (1981) [PDF]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652147.jpg" />
+  <img src="Z:/picture/008/save_picture_652147.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652029.jpg" />
+  <img src="Z:/picture/008/save_picture_652029.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651924.jpg" />
+  <img src="Z:/picture/008/save_picture_651924.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651738.jpg" />
+  <img src="Z:/picture/008/save_picture_651738.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651633.jpg" />
+  <img src="Z:/picture/008/save_picture_651633.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650690.jpg" />
+  <img src="Z:/picture/008/save_picture_650690.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650611.jpg" />
+  <img src="Z:/picture/008/save_picture_650611.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650380.jpg" />
+  <img src="Z:/picture/008/save_picture_650380.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649487.jpg" />
+  <img src="Z:/picture/008/save_picture_649487.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648514.jpg" />
+  <img src="Z:/picture/008/save_picture_648514.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646829.jpg" />
+  <img src="Z:/picture/008/save_picture_646829.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646828.jpg" />
+  <img src="Z:/picture/008/save_picture_646828.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646826.jpg" />
+  <img src="Z:/picture/008/save_picture_646826.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646824.jpg" />
+  <img src="Z:/picture/008/save_picture_646824.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646719.jpg" />
+  <img src="Z:/picture/008/save_picture_646719.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645857.jpg" />
+  <img src="Z:/picture/008/save_picture_645857.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645805.jpg" />
+  <img src="Z:/picture/008/save_picture_645805.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645796.jpg" />
+  <img src="Z:/picture/008/save_picture_645796.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645658.jpg" />
+  <img src="Z:/picture/008/save_picture_645658.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645540.jpg" />
+  <img src="Z:/picture/008/save_picture_645540.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645531.jpg" />
+  <img src="Z:/picture/008/save_picture_645531.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645506.jpg" />
+  <img src="Z:/picture/008/save_picture_645506.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645426.jpg" />
+  <img src="Z:/picture/008/save_picture_645426.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645425.jpg" />
+  <img src="Z:/picture/008/save_picture_645425.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645342.jpg" />
+  <img src="Z:/picture/008/save_picture_645342.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D4A8816E970392058B8B84430DDBB2690674E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292346   (644696) от 30.03.2019
-
-Елена Первушина | Думай, что говоришь (2019) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга расскажет о том, как... правильно рассказывать. Всем нам время от времени приходится обращаться к людям, которые едва ли поймут нас с полуслова: писать письма, готовить доклады, выступать с речами, делать посты в социальных сетях. Эта книга расскажет о "маленьких секретах", к которым писатели — люди, профессионально работающие с языком, — обычно приходят (   Читать дальше...   )Жанр: Литературоведение, Русский язык, ЯзыкознаниеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E39C8DD916A4511C8AA4C556B219EB2C28589ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

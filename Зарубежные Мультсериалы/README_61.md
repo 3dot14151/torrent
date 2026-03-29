@@ -1,3 +1,55 @@
+###  Публикация: 1765297   (33738) от 19.12.2024
+
+Секретный уровень / Secret Level (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-15 из 15) HDRezka Studio, LE-Production
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационный сериал, состоящий из оригинальных коротких историй, которые не связаны между собой сюжетами и персонажами и разворачиваются в мире популярных видеоигр — Warhammer, Dangeons & Dragons, Pac-Man, Exodus, Crossfire и других. Многих героев озвучивают известные актеры, такие как Киану Ривз, Арнольд Шварценеггер, Кевин Харт и Габриэль Луна. В качестве сценариста (   Читать дальше...   )Производство: США / Blur StudioЖанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Дэйв Уилсон, Доминик Буаден, Леон Берель, Реми Козыра, Максим ЛюэрАктеры: Киану Ривз, Арнольд Шварценеггер, Эмили Суоллоу, Адевале Акинойе-Агбаже, Элоди Юнг, Рики Уиттл, Парри Шен, Noah Manzoor, Клайв Стэнден, Клаудия ДумитПеревод: многоголосый (HDRezka Studio, LE-Production)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: ~00:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0A8A590642AFDAE6A8C5E44C3E05C58E73D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766961   (33492) от 21.12.2024
+
+Студия сновидений / Dream Productions (2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4) LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя студию в голове Райли, где мечты действительно сбываются — каждую ночь, в срок и в рамках бюджета, благодаря признанному режиссёру Пауле Персиммон.Производство: США / Pixar Animation Studios, Walt Disney Television AnimationЖанр: фэнтези, драмаРежиссер: Валери ЛаПойнт, Остин Мэдисон, Майк ДжонсАктеры: Лиза Лапира, Майя Рудольф, Тони Хейл, Ричард Айоади, Эми Полер, Филлис Смит, Элли Маки, Кенсингтон Таллман, Льюис БлэкПеревод: профессиональный многоголосый (LostFilm)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E664008D88A3F89EEA1079106E0AA533952136B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766815   (33484) от 21.12.2024
 
 Арк: Анимационный сериал / Ark: The Animated Series (2024) WEB-DLRip (сезон 1, серии 1-6 из 6)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33484.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33430.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32867.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32839.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32551.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32266.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32026.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31620.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31452.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31340.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31326.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31307.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30789.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30693.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30204.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30166.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29990.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29575.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29570.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28567.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28445.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28363.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28327.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28303.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E1D547392C86011202E7655F6AAAD436C77CF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778568   (28183) от 09.02.2025
-
-Сны оружия / Боевой ангел Алита / Battle Angel Alita / Hyper Future Vision: Gunnm (1993) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (1-2 серии из 2) Viki & Azazel [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, XXVI век. Под небесным городом Салемом находится нижний город-свалка, где живут отбросы общества. Однажды вместе с мусором в нижний город сбрасывают останки девушки-киборга, которого находит и решает починить доктор Идо. После восстановления выясняется, что у киборга нет воспоминаний.Производство: Япония / Animate Film, Geffen Pictures, KSS Inc., Madhouse, Movic Inc.Жанр: аниме, мультфильм, фантастика, боевик, драма, криминалРежиссер: Хироси ФукутомиАктеры: Мики Ито, Каппэи Ямагути, Сюнсукэ Кария, Мами Кояма, Сигэру Тиба, Рюдзабуро Отомо, Кадзухико Кисино, Кодзи Тотани, Такуми Ямадзаки, Кадзуюки СогабэПеревод: Двухголосый любительский (Viki & Azazel)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:29:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91105D5705163FC7D7F36DBF0391B07021E463FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778974   (28082) от 10.02.2025
-
-Что, если...? / What If...? (2021 - 2024) WEB-DLRip [H.264/1080p] (сезон 1-3, серии 1-26 из 26) Flarrow Films
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28082.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Что если…?» (англ. What If…?) — американский анимационный сериал, созданный А.К. Брэдли для сервиса потокового вещания Disney+ и основанный на одноимённой серии комиксов Marvel. Четвёртый по счёту телесериал четвёртой фазы кинематографической вселенной Marvel. Каждый из эпизодов раскроет, что могло случиться, если бы ключевые события фильмов киновселенной произошли (   Читать дальше...   )Производство: США / Flying Bark Productions, Marvel Studios Inc.Жанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Брайан Эндрюс, Стефан ФранкПеревод: дублированный (Flarrow Films)Язык озвучки: русскийСубтитры: русскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C8BC7B824A01F198053FA036BB96E64E1A9E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

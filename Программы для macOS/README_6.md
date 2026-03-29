@@ -1,3 +1,135 @@
+###  Публикация: 1621018   (1031439) от 23.03.2023
+
+Ultra Audio Converter for Mac 3.2.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultra Audio Converter — это удобная и простая утилита для экспорта ваших любимых аудиоформатов. Форматы экспорта совместимы с популярными потребностями и большинство устройств и редактирование тегов для mp3, m4a полностью поддерживаются. Также Ultra Music Converter может помочь вам легко извлекать и конвертировать аудиоконтент из видеоформатов. На самом деле, Ultra (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CBD243931DB8D416F1F3C623C6B8ED728F9B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621471   (1031223) от 24.03.2023
+
+GraphicConverter 11.8.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031223.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2023Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B0A5A0EA6192595CC45F2B69C4EA4F695A2283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448142   (1031206) от 16.02.2021
+
+Flyer Design – Flyer Template for Indeisgn 1.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаеры - эффективные инструменты для продвижения, независимо от того, используются ли они для бренда, бизнеса или мероприятия. Эти рекламные материалы легко распространять и с меньшими усилиями доходят до широкой аудитории. Раздайте их в местах с интенсивным пешеходным движением, таких как метро, ​​торговые центры и продуктовые магазины. Flyer Design (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2017Разработчик: xin jinПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B5CF2AFE083BDF5C8A2B222CD9681375443AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448117   (1031177) от 16.02.2021
+
+Mirror for Chromecast TV 2.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для зеркалирования экрана и звука вашего Mac на устройство Chromecast 1, 2, Ultra.
+Вы также можете транслировать личные видео с Вашего Mac на TV. Также, мы включили возможность смотреть 2 разных видео на Mac и TV одновременно.
+При использовании этого приложения с Chromecast зеркалирование экрана начнется через 30 секунд после начала зеркального отображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2021Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845C574003DEA26A7AB1868AE97F849A9C2E1441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448236   (1031176) от 16.02.2021
+
+Numi 3.30 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Numi - необычный калькулятор, который "общается" с вами на обычном языке - понимает единицы измерения, слова и имеет очень простой интерфейс. Numi может работать с валютами и различными единицами измерения. Чтобы конвертировать одну валюту в другую, нужно ввести сумму строку перевода в нужную валюту, например, $9 в евро — ответ показывается справа автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: Dmitry NikolaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01547C8EE6F1B84A009556EAB2794FDF81547B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448151   (1031173) от 16.02.2021
 
 Flyer Design – Flyer Templates for Pages 1.0 [En]
@@ -6,7 +138,7 @@ Flyer Design – Flyer Templates for Pages 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031173.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Flyer Creator - Poster Design 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031169.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ Flyer Design – Flyer Templates for Word 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031159.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Flyer Design – Flyer Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031152.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ Brochure Design - Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031148.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ CV Resume Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031124.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ Readiris Corporate 17.1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031120.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ Adobe Dreamweaver 2020 v20.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031043.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ Adobe Photoshop 2020 v21.2.5
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031006.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ Movist 2.10.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030965.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ Kodak Preps 9 v9.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030880.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ TwistedWave 25.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030717.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ Mirror for Android TV 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030708.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ IM+ All-in-One Messenger 1.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030697.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ Task Office 8.11 ARM [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030038.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ NCH Prism Plus 10.09 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030036.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ Master of Typing - Tutor 1.9.15 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029798.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ Bandizip: Archiver 7.22 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029788.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ Postico 2.0.2 dev [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029243.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ Wrise 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029072.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ GhostReader Plus 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029069.jpg" />
 </div>
 
 
@@ -543,141 +675,6 @@ GhostReader - это простое в использовании, полнос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C7CCAA9443C95C841EBC32AB6C26D81133C74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450513   (1029023) от 26.02.2021
-
-EndNote 20 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029023.jpg" />
-</div>
-
-
-###  Подробнее
-
-EndNote — коммерческая система каталогизации библиографической информацией, применяемая для управления ссылками и библиографией.
-Системы управления библиографической информацией — это системы, позволяющие исследователям, учёным и писателям создавать и повторно использовать библиографические ссылки. После того как ссылка создана, она используется для создания библиографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: ClarivateПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77EEA2FF8DFD7D36EDC8AF38269CA02C1754383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450795   (1028910) от 27.02.2021
-
-Hexels 3 v3.1.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marmoset Hexels - представляет собой инструмент для рисования, основанный на сетке, благодаря которому вы легко сможете создавать блестящие произведения искусства.
-Рисуйте что угодно: пейзажи, персонажи, вещи, домашних питомцев, с помощью Marmoset Hexels вы сможете рисовать что угодно без каких либо проблем. В приложении есть очень много различных полезных функций. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2018Разработчик: Marmoset LLCПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0C7660E2356BABC543F785248C5A1C71BFE36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450840   (1028907) от 27.02.2021
-
-Gifox Pro 2 v2.2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gifox - это прекрасно разработанное и мастерски созданное приложение, которое записывает ваш экран в анимированные gifs - отличную альтернативу статическим изображениям и полноразмерным видео.
-Gifox вводит совершенно новый способ непрерывного захвата экрана с режимом выбора окна - вы выбираете окно, и Gifox точно записывает его, даже когда он перемещается или закрывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2020Разработчик: Interactive Works LTDПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB1F32791C87F8B11E0C3E5272D6C799CBEA52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450635   (1028903) от 27.02.2021
-
-Allegorithmic Substance Alchemist 2020.3.2 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Alchemist выводит искусство создания 3D-материалов и управления ими на новый уровень, благодаря новым функциям для более простого и быстрого создания материалов. Художники могут рассчитывать на мощный, оптимизированный рабочий процесс и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 23.02.2021Разработчик: AdobeПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7B79092632329EC34BA97A68B46AD13356590B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450628   (1028823) от 27.02.2021
-
-Davinci Resolve Studio 17.0 [Multi/Rus]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.02.2021Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский ии др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1766372B0EE9175986BBFEEA8E87D652F8D181
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1457857   (1024221) от 27.03.2021
+
+Павел Крусанов, Александр Етоев (сост.) | Как мы пишем. Писатели о литературе, о времени, о себе (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подобного издания в России не было уже почти девяносто лет. Предыдущий аналог увидел свет в далеком 1930 году в Издательстве писателей в Ленинграде. В нем крупнейшие писатели той эпохи рассказывали о времени, о литературе и о себе – о том, «как мы пишем». Среди авторов были Горький, Ал. Толстой, Белый, Зощенко, Пильняк, Лавренёв, Тынянов, Шкловский и другие значимые (   Читать дальше...   )Жанр: Литературоведение, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6483868A935CB80BAC357CF3028DD4451D528599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457859   (1024207) от 27.03.2021
+
+Ричард Коннифф | ДНК миллиардера. Естественная история богатых (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024207.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если хотите знать, что Бог думает о деньгах, просто взгляните на тех, кому он их дал», – эту фразу американский журналист Ричард Коннифф поставил эпиграфом своей книги. Для изучения образа жизни, нравов и привычек богатых и сильных мира сего автор посетил самые шикарные места и самых знаменитых людей.
+Он рассматривает богачей как отдельный подвид homo sapiens с (   Читать дальше...   )Жанр: ПублицистикаПеревод: Максим ЛеоновичФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE4ED403098463FF669E4010833F903FBAEE51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458509   (1023794) от 29.03.2021
+
+Евгений Сатановский | Записные книжки дурака (2017) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евгений Сатановский – один из самых востребованных экспертов, принимающих участие в наиболее значимых политических и экономических конференциях и форумах. В книгу «Записные книжки дурака» вошли его личные эссе, ранее опубликованные в интернет-издании «Мы здесь».
+Каждое из них посвящено самым актуальным и острым вопросам геополитики. На страницах книги автор в свойственной (   Читать дальше...   )Жанр: История, Политология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FB9C42D83B7C6729E83B42A253D0F68D0357B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458610   (1023789) от 29.03.2021
 
 Леонид Млечин | Главный разведчик мог стать президентом. Карьера Евгения Примакова (2021) [EPUB]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023789.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023788.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023651.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023482.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023452.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022065.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021409.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020781.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020262.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019811.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019757.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019294.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019120.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019088.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018233.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018213.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017386.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017190.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013848.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011999.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011825.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011656.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010810.jpg" />
 </div>
 
 
@@ -597,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B596ABF5D90ADDEB4838F8A08224651189485A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478100   (1010624) от 17.06.2021
-
-Андрей Паршев | Почему Россия не Америка. Версия 2.0 (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для тех, кто рискнул остаться в России. Вы, уважаемый читатель, видимо, среди них. А иначе, зачем вы взяли книгу в руки? Для тех, кто собирается уезжать, выпускаются сотни руководств типа: «Пособие для уезжающих в Израиль, ЮАР, Чехию и т.д.». А для тех, кто остается, такого пособия нет, – но ведь вам надо что-то знать о стране, в которой вы собираетесь (   Читать дальше...   )Жанр: Политология, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742E0D50155918077C792D8BE803B6E8A93E2D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478487   (1010309) от 19.06.2021
-
-Александр Колпакиди, Валентин Мзареулов | Внешняя разведка СССР – России. 1946–2020 годы. История, структура и кадры (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010309.jpg" />
-</div>
-
-
-###  Подробнее
-
-С началом «холодной войны» советская внешняя разведка, благодаря 25-летнему участию в боях на тайном фронте, оказалась готова к новым сражениям. Серьезным испытанием для нее стала геополитическая катастрофа – распад СССР. Несмотря на трудности Служба внешней разведки РФ возродила былую славу советской предшественницы.
-Впервые подробно и достоверно рассказано о большинстве (   Читать дальше...   )Жанр: История, Спецслужбы, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFBA588CF9B98EB8A161153AB57EB022E4829BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478594   (1010151) от 20.06.2021
-
-Умберто Эко | С окраин империи. Хроники нового средневековья (2021) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умберто Эко (1932–2016) – самый знаменитый итальянский писатель нашего времени, автор мировых бестселлеров «Имя розы» (1980) и «Маятник Фуко» (1988), историк-медиевист, философ, специалист по семиотике, филолог и историк культуры, лауреат самых престижных премий, чьи книги переведены на сорок языков. В сборнике «С окраин империи» представлены эссе, выходившие в различных (   Читать дальше...   )Жанр: Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBBBA5D2D04A260099D8463701D1E131CA14B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

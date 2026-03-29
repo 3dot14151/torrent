@@ -6,7 +6,7 @@ Microsoft Edge 83.0.478.61 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758741.jpg" />
+  <img src="Z:/picture/008/save_picture_758741.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758737.jpg" />
+  <img src="Z:/picture/008/save_picture_758737.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758736.jpg" />
+  <img src="Z:/picture/008/save_picture_758736.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Bigeneric - Ormea (2016) Everest Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Dow
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758735.jpg" />
+  <img src="Z:/picture/008/save_picture_758735.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758734.jpg" />
+  <img src="Z:/picture/008/save_picture_758734.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758733.jpg" />
+  <img src="Z:/picture/008/save_picture_758733.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758731.jpg" />
+  <img src="Z:/picture/008/save_picture_758731.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Mp3tag 2.93 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758725.jpg" />
+  <img src="Z:/picture/008/save_picture_758725.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ ApowerREC 1.3.4.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758722.jpg" />
+  <img src="Z:/picture/008/save_picture_758722.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758718.jpg" />
+  <img src="Z:/picture/008/save_picture_758718.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ SolveigMM Video Splitter 5.2.1603.29 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758717.jpg" />
+  <img src="Z:/picture/008/save_picture_758717.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758716.jpg" />
+  <img src="Z:/picture/008/save_picture_758716.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ ESET Smart Security 9.0.381.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758715.jpg" />
+  <img src="Z:/picture/008/save_picture_758715.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758709.jpg" />
+  <img src="Z:/picture/008/save_picture_758709.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ESET NOD32 Antivirus 9.0.381.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758708.jpg" />
+  <img src="Z:/picture/008/save_picture_758708.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758704.jpg" />
+  <img src="Z:/picture/008/save_picture_758704.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ BluffTitler Ultimate 14.1.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758641.jpg" />
+  <img src="Z:/picture/008/save_picture_758641.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Pixelmator Pro 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758640.jpg" />
+  <img src="Z:/picture/008/save_picture_758640.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Microsoft Visual C++ Runtimes AIO (x86-x64) Repack by @ricktendo64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758639.jpg" />
+  <img src="Z:/picture/008/save_picture_758639.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wondershare UniConverter 12.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758616.jpg" />
+  <img src="Z:/picture/008/save_picture_758616.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758611.jpg" />
+  <img src="Z:/picture/008/save_picture_758611.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Teorex Inpaint 6.2 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758601.jpg" />
+  <img src="Z:/picture/008/save_picture_758601.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758552.jpg" />
+  <img src="Z:/picture/008/save_picture_758552.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758547.jpg" />
+  <img src="Z:/picture/008/save_picture_758547.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ K-Lite Codec Pack Update 16.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758533.jpg" />
+  <img src="Z:/picture/008/save_picture_758533.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ PrivaZer 4.0.38 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758529.jpg" />
+  <img src="Z:/picture/008/save_picture_758529.jpg" />
 </div>
 
 

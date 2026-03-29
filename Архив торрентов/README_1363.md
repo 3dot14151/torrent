@@ -6,7 +6,7 @@ Microsoft Edge 97.0.1072.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745188.jpg" />
+  <img src="Z:/picture/008/save_picture_745188.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HiBit Uninstaller 2.7.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745187.jpg" />
+  <img src="Z:/picture/008/save_picture_745187.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Wise Care 365 Pro 5.2.6.521 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745166.jpg" />
+  <img src="Z:/picture/008/save_picture_745166.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Mozilla Firefox Quantum 65.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745157.jpg" />
+  <img src="Z:/picture/005/save_picture_745157.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ eM Client Pro 7.2.34666.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745156.jpg" />
+  <img src="Z:/picture/008/save_picture_745156.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VideoInspector 2.15.0.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745148.jpg" />
+  <img src="Z:/picture/008/save_picture_745148.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Google Chrome 51.0.2704.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745141.jpg" />
+  <img src="Z:/picture/008/save_picture_745141.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745140.jpg" />
+  <img src="Z:/picture/008/save_picture_745140.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Google Chrome 51.0.2704.63 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745132.jpg" />
+  <img src="Z:/picture/008/save_picture_745132.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mozilla Thunderbird 91.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745098.jpg" />
+  <img src="Z:/picture/008/save_picture_745098.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ IK Multimedia - T-RackS 5 Complete 5.8.0 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745089.jpg" />
+  <img src="Z:/picture/008/save_picture_745089.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Opera 82.0.4227.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745077.jpg" />
+  <img src="Z:/picture/008/save_picture_745077.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ IK Multimedia - AmpliTube 5 Complete 5.3.0B STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745068.jpg" />
+  <img src="Z:/picture/008/save_picture_745068.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CodeLobster IDE 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745067.jpg" />
+  <img src="Z:/picture/005/save_picture_745067.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Wise Game Booster 1.37.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745052.jpg" />
+  <img src="Z:/picture/008/save_picture_745052.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ GIMP 2.10.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745050.jpg" />
+  <img src="Z:/picture/008/save_picture_745050.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Blackmagic Design DaVinci Resolve Studio 15.2.3.015 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745048.jpg" />
+  <img src="Z:/picture/008/save_picture_745048.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe Flash Player 32.0.0.142 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745038.jpg" />
+  <img src="Z:/picture/008/save_picture_745038.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Internet Download Manager 6.25 Build 20 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745035.jpg" />
+  <img src="Z:/picture/008/save_picture_745035.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Auslogics BoostSpeed 10.0.22.0 DC 12.02.2019 RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745034.jpg" />
+  <img src="Z:/picture/008/save_picture_745034.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745030.jpg" />
+  <img src="Z:/picture/008/save_picture_745030.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Astra Image PLUS 5.5.3.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745023.jpg" />
+  <img src="Z:/picture/008/save_picture_745023.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Flash Player 32.0.0.142 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745021.jpg" />
+  <img src="Z:/picture/008/save_picture_745021.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ample Guitar M III 3.0.1 VSTi, VSTi3, AAX (x64) + Library [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745020.jpg" />
+  <img src="Z:/picture/008/save_picture_745020.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ CrystalDiskInfo 8.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744989.jpg" />
+  <img src="Z:/picture/008/save_picture_744989.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Soft Organizer Pro 9.16 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744969.jpg" />
+  <img src="Z:/picture/008/save_picture_744969.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1306862   (555453) от 06.06.2019
+
+Подшивка журналов | Fantasy Art Genius Guide [4 журнала] (2012-2016) [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantasy Artist Genius Guide - журнал для тех, кто любит фэнтези и научно-фантастический жанр.
+В журнале даются пошаговые руководства как рисовать фэнтези картинки.Жанр: Digital ArtФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF06B1FBD5BB950093002A9E35F638AF27189B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307102   (555351) от 07.06.2019
 
 Журнал | Открытые системы. СУБД №2 (224) (2019) [PDF]
@@ -6,7 +33,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555351.jpg" />
+  <img src="Z:/picture/008/save_picture_555351.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555350.jpg" />
+  <img src="Z:/picture/008/save_picture_555350.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555345.jpg" />
+  <img src="Z:/picture/008/save_picture_555345.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555300.jpg" />
+  <img src="Z:/picture/008/save_picture_555300.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555057.jpg" />
+  <img src="Z:/picture/008/save_picture_555057.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554536.jpg" />
+  <img src="Z:/picture/008/save_picture_554536.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552284.jpg" />
+  <img src="Z:/picture/008/save_picture_552284.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551696.jpg" />
+  <img src="Z:/picture/008/save_picture_551696.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550598.jpg" />
+  <img src="Z:/picture/008/save_picture_550598.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549664.jpg" />
+  <img src="Z:/picture/008/save_picture_549664.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549097.jpg" />
+  <img src="Z:/picture/008/save_picture_549097.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549054.jpg" />
+  <img src="Z:/picture/008/save_picture_549054.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548767.jpg" />
+  <img src="Z:/picture/008/save_picture_548767.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548188.jpg" />
+  <img src="Z:/picture/008/save_picture_548188.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548162.jpg" />
+  <img src="Z:/picture/008/save_picture_548162.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547889.jpg" />
+  <img src="Z:/picture/008/save_picture_547889.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547710.jpg" />
+  <img src="Z:/picture/008/save_picture_547710.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547306.jpg" />
+  <img src="Z:/picture/008/save_picture_547306.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546276.jpg" />
+  <img src="Z:/picture/008/save_picture_546276.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545641.jpg" />
+  <img src="Z:/picture/008/save_picture_545641.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545446.jpg" />
+  <img src="Z:/picture/008/save_picture_545446.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541113.jpg" />
+  <img src="Z:/picture/008/save_picture_541113.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540919.jpg" />
+  <img src="Z:/picture/008/save_picture_540919.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540827.jpg" />
+  <img src="Z:/picture/008/save_picture_540827.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540491.jpg" />
+  <img src="Z:/picture/008/save_picture_540491.jpg" />
 </div>
 
 
@@ -644,32 +671,6 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BA137368752C2843A7E51835277EA317FA08C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311583   (539614) от 30.06.2019
-
-Газета | Мой друг компьютер №13 (318) (июнь 2019) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для пользователей ПК, в котором рассказывается, как выбрать компьютерную технику, установить и настроить программы, модернизировать компьютер с минимальными финансовыми затратами.Жанр: Компьютерная газетаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478C28DF0933C09C3FA9BDB52C8AC5D720856FF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

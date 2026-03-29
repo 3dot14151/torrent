@@ -1,3 +1,109 @@
+###  Публикация: 1285917   (716437) от 28.02.2019
+
+Ракета «Союз» вывела на орбиту британские спутники связи OneWeb
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_716437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская ракета-носитель «Союз-СТ-Б», стартовавшая в четверг в 00:37 мск с космодрома Куру во Французской Гвиане, вывела на орбиту Земли шесть спутников связи британской компании OneWeb. Об этом сообщила компания Arianespace, обслуживающая запуски с космодрома.На расчетную орбиту 1200 км над поверхностью Земли спутники вывел ​разгонный блок «Фрегат» (четвертая (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531917   (716308) от 18.02.2022
+
+Очередное достижение: 3000 релизов от Georgiiy!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_716308.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Очередное достижение: 3000 релизов от Georgiiy Дорогие друзья и гости клуба... И вновь Я с хорошими новостями.
+Модератор, реставратор, uploader 100+  да и в целом замечательный человек:
+Georgiiy пополнил трекер новой тысячью отборного, качественного бесплатного ПО.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285844   (716282) от 28.02.2019
+
+Volvo и Google выпустили конкурента Tesla Model 3
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_716282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Volvo в рамках бренда Polestar представила свой первый полностью электрический автомобиль Polestar 2, заявленный как конкурент Model 3 от Tesla Илона Маска. Седан разработан в сотрудничестве с Google — в нём используется специальная версия операционной системы Android с интегрированными сервисами поискового гиганта.Polestar 2 снабдили двумя электромоторами (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249886   (716265) от 28.02.2019
+
+Pathfinder: Kingmaker (2018) [Ru/Multi] (1.2.5/dlc) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая изометрическая партийная ролевая игра во вселенной Pathfinder. Насладитесь классическим игровым процессом, вдохновлённым такими играми, как Baldur's Gate и Neverwinter Nights. Исследуйте земли, завоюйте их и сделайте своим королевствомТип издания: LicenseРазработчик: Owlcat GamesЖанр: RPG, Adventure, IsometricsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3DB09C88A5A08F50EADC4C28E9978E963F94D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531814   (716233) от 18.02.2022
 
 Видеоигры патриотов. Российских разработчиков могут поддержать за счет зарубежных платформ
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716233.jpg" />
+  <img src="Z:/picture/005/save_picture_716233.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715748.jpg" />
+  <img src="Z:/picture/008/save_picture_715748.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715235.jpg" />
+  <img src="Z:/picture/005/save_picture_715235.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ OneWeb выбрал российские «Протоны» для запуск�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715225.jpg" />
+  <img src="Z:/picture/005/save_picture_715225.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715123.jpg" />
+  <img src="Z:/picture/008/save_picture_715123.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715115.jpg" />
+  <img src="Z:/picture/008/save_picture_715115.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714960.jpg" />
+  <img src="Z:/picture/008/save_picture_714960.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.04.12 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714954.jpg" />
+  <img src="Z:/picture/008/save_picture_714954.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 12.04.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714952.jpg" />
+  <img src="Z:/picture/008/save_picture_714952.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714950.jpg" />
+  <img src="Z:/picture/008/save_picture_714950.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ Endless Space 2 (2017) [Ru/En] (1.5.30.S5/dlc) Repack xatab [Digital Deluxe Edit
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714533.jpg" />
+  <img src="Z:/picture/008/save_picture_714533.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Dead or Alive 6 (2019) [Ru/Multi] (1.01/dlc) License CODEX [Digital Deluxe Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714365.jpg" />
+  <img src="Z:/picture/008/save_picture_714365.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714358.jpg" />
+  <img src="Z:/picture/008/save_picture_714358.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714348.jpg" />
+  <img src="Z:/picture/008/save_picture_714348.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714194.jpg" />
+  <img src="Z:/picture/008/save_picture_714194.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713924.jpg" />
+  <img src="Z:/picture/008/save_picture_713924.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ Adguard 6.2.357.1887 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713923.jpg" />
+  <img src="Z:/picture/008/save_picture_713923.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ Serious Metal Detecting (2017) [Ru/En] (010517) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713922.jpg" />
+  <img src="Z:/picture/008/save_picture_713922.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713916.jpg" />
+  <img src="Z:/picture/008/save_picture_713916.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713914.jpg" />
+  <img src="Z:/picture/008/save_picture_713914.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713058.jpg" />
+  <img src="Z:/picture/005/save_picture_713058.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713030.jpg" />
+  <img src="Z:/picture/008/save_picture_713030.jpg" />
 </div>
 
 
@@ -574,112 +680,6 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA448FAC49B7CF7E0C15AB138C9AF7CA6186313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024512   (713018) от 10.06.2016
-
-LoftSchool | Комплексное обучение разработке на PHP (2016) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713018.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧЕМУ ТЫ НАУЧИШЬСЯ, ПРОЙДЯ КУРС:
-Создавать современные PHP приложенияИспользуя лучшие передовые инструменты и технологии. Наша цель — дать тебе как можно больше знаний и навыков, необходимых для работы в современной веб-студии.Быстро реализовывать свою идеюИ запускать новый проект в срок от 2 дней до 2 недель.Использовать все необходимые инструменты для построения (   Читать дальше...   )Жанр: Программирование, PHP, Back-endПродолжительность: 35:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B162CE8D01EB0C058407C514A68CE237FE224F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025033   (713011) от 10.06.2016
-
-Navitel / Навител Навигатор v9.6.2526 RePack [Ru/En] - только программа навигации
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 10.06.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600BDB464BBFD9284C4C090B22DA4E7CEBD5AA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219379   (712912) от 14.04.2018
-
-Adobe Photoshop CC 2018 19.1.3 (x64) RePack by JFK2005 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CE909491FE486BFF6BBD720D437F4DCCFF4355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893559   (712665) от 29.04.2015
-
-Easy DriverPacks 6.3.2015.0310 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайская версия драйверпаков и программы-установщика, которая способна автоматически установить и обновить драйвера на вашем компьютере.
-Использование пакетов драйверов является удобным и универсальным способом автоматической установки драйверов.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77A3D13637FAD74749D9D9172E11D9F3B54398A
 ```
 
 https://mybot314.ru/tekegram_catalog/

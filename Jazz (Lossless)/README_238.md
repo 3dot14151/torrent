@@ -1,3 +1,137 @@
+###  Публикация: 496756   (253349) от 16.05.2012
+
+Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Honey's Lovin' Arms
+02. I've Got A Hankerin' (For Some Love)
+03. Victim of Love
+04. I'm Playing In Your Parlour Game
+05. Hot Lovin'
+06. Man-o-phile
+07. You're Barking Up the Right Tree
+08. You Don't Understand
+09. I'm Getting Sentimental Over You
+10. Swingin' On Nothin'(   Читать дальше...   )2011Жанр: Swing, Retro Swing, Big BandПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496160   (252847) от 14.05.2012
+
+Battista Lena Trio - Plays (2000) [FLAC|Lossless]<Contemporary Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airegin
+02. Time After Time
+03. Yesterday
+04. Falling Grace
+05. Stella By Starlight
+06. My Ideal
+07. Senor Blues
+08. Blue In Green
+09. Lover
+10. Barbados(   Читать дальше...   )2000Жанр: Contemporary Jazz, Modern JazzПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496162   (252843) от 14.05.2012
+
+Belogenis Malaby Dunn Sawyer - Twice Told Tales (2003) [FLAC|Lossless]<Post-Bop, Avant-Garde Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Ago
+02. Fable
+03. Once
+04. Chatterbox
+05. Calliope
+06. Twice Told Tales
+07. Three Wishes
+08. Always Known
+09. Again
+10. Telltale(   Читать дальше...   )2003Жанр: Post-Bop, Avant-Garde Jazz, Modern CreativeПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836238   (252453) от 09.11.2025
+
+Sarah Menescal - Moonlight Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Smooth Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe
+02. Vogue
+03. Underneath Your Clothes
+04. Complicated(   Читать дальше...   )Жанр: Bossa Nova, Smooth Jazz, LoungeПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F9D7F273826E66A87946372985AE47B7CDC8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495616   (251413) от 12.05.2012
 
 VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
@@ -6,7 +140,7 @@ VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251413.jpg" />
+  <img src="Z:/picture/004/save_picture_251413.jpg" />
 </div>
 
 
@@ -41,7 +175,7 @@ Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251166.jpg" />
 </div>
 
 
@@ -76,7 +210,7 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251128.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249821.jpg" />
+  <img src="Z:/picture/004/save_picture_249821.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249767.jpg" />
+  <img src="Z:/picture/004/save_picture_249767.jpg" />
 </div>
 
 
@@ -169,7 +303,7 @@ Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249632.jpg" />
+  <img src="Z:/picture/004/save_picture_249632.jpg" />
 </div>
 
 
@@ -198,7 +332,7 @@ Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249133.jpg" />
+  <img src="Z:/picture/004/save_picture_249133.jpg" />
 </div>
 
 
@@ -233,7 +367,7 @@ Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248874.jpg" />
+  <img src="Z:/picture/005/save_picture_248874.jpg" />
 </div>
 
 
@@ -268,7 +402,7 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248766.jpg" />
+  <img src="Z:/picture/005/save_picture_248766.jpg" />
 </div>
 
 
@@ -303,7 +437,7 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248758.jpg" />
+  <img src="Z:/picture/005/save_picture_248758.jpg" />
 </div>
 
 
@@ -338,7 +472,7 @@ Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248744.jpg" />
+  <img src="Z:/picture/005/save_picture_248744.jpg" />
 </div>
 
 
@@ -371,7 +505,7 @@ John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248424.jpg" />
+  <img src="Z:/picture/004/save_picture_248424.jpg" />
 </div>
 
 
@@ -404,7 +538,7 @@ Muggsy Spanier - Muggsy Spanier  (1944) (1997) [FLAC|Lossless]<Dixieland, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246378.jpg" />
+  <img src="Z:/picture/005/save_picture_246378.jpg" />
 </div>
 
 
@@ -439,7 +573,7 @@ Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246023.jpg" />
+  <img src="Z:/picture/004/save_picture_246023.jpg" />
 </div>
 
 
@@ -468,7 +602,7 @@ Michael Davis - Absolute Trombone (1997) Hip-Bone Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245957.jpg" />
+  <img src="Z:/picture/004/save_picture_245957.jpg" />
 </div>
 
 
@@ -497,7 +631,7 @@ The Teddy Buckner Band - In Concert At The Dixieland Jubilee (1955) 1988, Gnp Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245949.jpg" />
+  <img src="Z:/picture/004/save_picture_245949.jpg" />
 </div>
 
 
@@ -526,7 +660,7 @@ Phil Woods Quartet - European Tour Live (1980) 2CD, 1995, Red Record [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245938.jpg" />
+  <img src="Z:/picture/004/save_picture_245938.jpg" />
 </div>
 
 
@@ -555,7 +689,7 @@ Sonny Rollins - And The Contemporary Leaders (1958) 1988, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245937.jpg" />
+  <img src="Z:/picture/004/save_picture_245937.jpg" />
 </div>
 
 
@@ -584,7 +718,7 @@ Tete Montoliu - Catalonian Folksongs (1977) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245929.jpg" />
+  <img src="Z:/picture/004/save_picture_245929.jpg" />
 </div>
 
 
@@ -613,7 +747,7 @@ Johnny Smith - The New Johnny Smith Quartet (1956) Remaster, 2016, Warner[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245912.jpg" />
+  <img src="Z:/picture/004/save_picture_245912.jpg" />
 </div>
 
 
@@ -642,7 +776,7 @@ Dan Nimmer Trio - Horizons (2020) Venus Records [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245910.jpg" />
+  <img src="Z:/picture/004/save_picture_245910.jpg" />
 </div>
 
 
@@ -671,7 +805,7 @@ Steve Lacy - The Window (1988) Soul Note[FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245836.jpg" />
+  <img src="Z:/picture/004/save_picture_245836.jpg" />
 </div>
 
 
@@ -685,122 +819,6 @@ Steve Lacy - The Window (1988) Soul Note[FLAC|Lossless|tracks + .cue] <Avant-Gar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3ACBD99D79E6BC9152D906A3A0E18760D197127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511477   (245785) от 21.11.2021
-
-John Di Martino's Romantic Jazz Trio - So In Love (2010) Venus Records [FLAC|Lossless|image + .cue] <Post Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softy As in Morningsunrise [6:12]
-02. Michelle [3:42]
-03. Vesti La Giubba [2:33]
-04. Lamento Borincano [6:16](   Читать дальше...   )Жанр: Post Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318A2BFA63D2404CBF005F446799FC54B81B2E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623779   (245727) от 03.04.2023
-
-Camille Bertault - Bonjour mon amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonjour mon amour  [02:35]
-02. Acrecran  [03:30]
-03. Un grain de sable  [03:56]
-04. Bizarre  [04:28](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADED245117BE576B519D02970ADD7FCB4D7DBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448712   (245719) от 18.02.2021
-
-The Ray Camacho Band - Reach Out! (1980) 2016, PMG [FLAC|Lossless|tracks + .cue] <Funk, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reach Out (4:06)
-02. New York (5:16)
-03. Hollywood (3:44)
-04. Diggin' Deep (3:25)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAC79600AE7BF4E7321DB3F72BB354026BDBAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058507   (245707) от 01.10.2016
-
-David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Yesterday [04:05]
- 02.And I Love Her [05:47]
- 03.The Thirteenth Floor [05:57]
- 04.Ain't That Good News [03:47](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5B3DFFEA6AF288B1B7D7BBD90AD77A65CD5F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1126455   (765532) от 18.04.2017
+
+VA - Популярные весенние новинки выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Тинс - Прощай И Прости Меня 3:28
+002. Hann - На Больничном 4:04
+003. Loren - Люби 3:36
+004. Tiana - Телеграммы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3028DD3199D73822DC9D85A4B1ED0CF040BC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126610   (765478) от 18.04.2017
+
+VA - Любимые хиты весны. Сборник 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lalo Project - Честная Весна 2:58
+002. Tiana - Мне Так Жаль 3:44
+003. Pasha Leem - Чую 3:47
+004. Dante - Не Вздумай 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6032762CE94F3423FDEEA735FAD291395C06F9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126642   (765420) от 18.04.2017
 
 VA - Лучшая дискотека на Europa Plus выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - Лучшая дискотека на Europa Plus выпуск № 8 (2017) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765420.jpg" />
+  <img src="Z:/picture/008/save_picture_765420.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Music for Highway (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765059.jpg" />
+  <img src="Z:/picture/008/save_picture_765059.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Сотка популярных весенних хитов на Europa Plu
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764613.jpg" />
+  <img src="Z:/picture/008/save_picture_764613.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Joe Dassin - Compilation (2020) [MP3|320 Kbps] <Pop, Chanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764271.jpg" />
+  <img src="Z:/picture/008/save_picture_764271.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - German Top 100 Single Charts 03.07.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763736.jpg" />
+  <img src="Z:/picture/008/save_picture_763736.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Динамик MP3 Весенний Популярный Микс (2018) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763067.jpg" />
+  <img src="Z:/picture/008/save_picture_763067.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Невероятные концерты итальянцев в Росси�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762754.jpg" />
+  <img src="Z:/picture/008/save_picture_762754.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Beverley Craven - Compilation (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761908.jpg" />
+  <img src="Z:/picture/008/save_picture_761908.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Dido - Compilation (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761778.jpg" />
+  <img src="Z:/picture/008/save_picture_761778.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Moving Heroes - Compilation (2021) [MP3|320 Kbps] <Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761775.jpg" />
+  <img src="Z:/picture/008/save_picture_761775.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761663.jpg" />
+  <img src="Z:/picture/008/save_picture_761663.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - De Top 100 Aller Tijden 1985 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761452.jpg" />
+  <img src="Z:/picture/008/save_picture_761452.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - German Top 50 Official Dance Charts 01.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760627.jpg" />
+  <img src="Z:/picture/008/save_picture_760627.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Ysa Ferrer - Compilation (2019) [MP3|320 Kbps] <Pop, Pop-rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760354.jpg" />
+  <img src="Z:/picture/008/save_picture_760354.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760343.jpg" />
+  <img src="Z:/picture/008/save_picture_760343.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - National Pop Dance Music (Vol.30) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760241.jpg" />
+  <img src="Z:/picture/008/save_picture_760241.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Giusy Ferreri - Compilation (2018) [MP3|320 Kbps] <Pop, Pop-rock, Italo-pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760238.jpg" />
+  <img src="Z:/picture/008/save_picture_760238.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Bebe Rexha - Compilation (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760236.jpg" />
+  <img src="Z:/picture/008/save_picture_760236.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Route Music: Disco Night (2021) [MP3|320 Kbps] <Disco, Funky, Nu Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760225.jpg" />
+  <img src="Z:/picture/008/save_picture_760225.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Созвездие весеннее - 7 (2016) [MP3|256 кб/с] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759274.jpg" />
+  <img src="Z:/picture/008/save_picture_759274.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759017.jpg" />
+  <img src="Z:/picture/008/save_picture_759017.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Winter Sensation (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758635.jpg" />
+  <img src="Z:/picture/008/save_picture_758635.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Eighth Wonder - Compilation (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758535.jpg" />
+  <img src="Z:/picture/008/save_picture_758535.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758073.jpg" />
+  <img src="Z:/picture/008/save_picture_758073.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A8E370255D76C3F7BEF2257DA7413A3701AE0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522733   (756777) от 08.01.2022
-
-Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Ever After
-02. Sweet Hel
-03. Beatnik Trip
-04. Hallelujah(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522728   (756642) от 08.01.2022
-
-Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mademoiselle chante le blues
-02. Patou Blues
-03. Space In My Heart
-04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

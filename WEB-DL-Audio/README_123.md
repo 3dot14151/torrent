@@ -6,7 +6,7 @@ Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40366.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40365.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40364.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40363.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40362.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40361.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40358.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40356.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40350.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40286.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40266.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40261.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cnvx (CoNVeX) - Unfolding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40259.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40073.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40057.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lusa - The Colour Of Space (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40055.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kylie Minogue - Tension II (2024) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39984.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Blessed Madonna - Godspeed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <House
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39963.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Beth Hart - You Still Got Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39565.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ David Gilmour - Fifth Night Of Residency (2024) [FLAC 24/44.1|Lossless|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39515.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Philhelmon - Into the Mist of Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39454.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39430.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39411.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Queen - Queen 1 (Collector's Edition) (1973) Reissue, Remastered, 2024, Hollywoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39397.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39367.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39351.jpg" />
 </div>
 
 

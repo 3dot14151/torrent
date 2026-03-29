@@ -1,3 +1,84 @@
+###  Публикация: 1237282   (552519) от 23.07.2018
+
+Н. И. Ганин | Г. В. Плеханов - первый выдающийся теоретик и пропагандист марксизма в России (1957) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552519.jpg" />
+</div>
+
+
+###  Подробнее
+
+План изложения материала следующий:
+
+I. Социально-экономическая обстановка в России в 70-х гг. XIX века.
+(   Читать дальше...   )Жанр: История, политология, публицистика, экономика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91389A4518F631AB7810E574F8F6192C4BED7CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237227   (552291) от 23.07.2018
+
+Тами Олдхэм-Эшкрафт | Во власти стихии. Реальная история любви, суровых испытаний и выживания в открытом океане (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552291.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 сентября 1983 года Тами Олдхэм и ее жених Ричард Шарп па борту прекрасной парусной яхты покинули Таити, чтобы отправиться к берегам Калифорнии. Молодые, свободные, влюбленные в океанский простор, они надеялись, что тридцатидневный переход в Сан-Диего станет для них очередным романтическим приключением. Но внезапно приключение обернулось испытанием: 11 октября (   Читать дальше...   )Жанр: Истории из жизниФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046977FB153988AEAB571120864A8C0617045AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309259   (552146) от 18.06.2019
+
+Б. В. Левшин | Академия наук СССР в годы Великой Отечественной войны [1941-1945 гг.] (1966) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война была суровым испытанием для советского народа и созданного им социалистического общественного и государственного строя. Она явилась также серьезной проверкой творческих сил нашей науки. Этот трудный экзамен советская наука с честью выдержала. Она продемонстрировала перед всем миром свою силу и способность в короткие сроки использовать (   Читать дальше...   )Жанр: История, науковедение, политология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B287E14F5B2A519ACB582CC4DEF819CABC543E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309231   (551985) от 18.06.2019
 
 Дэниел Франклин | Мегатех. Технологии и общество 2050 года в прогнозах ученых и писателей (2018) [FB2]
@@ -6,7 +87,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551985.jpg" />
+  <img src="Z:/picture/008/save_picture_551985.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551611.jpg" />
+  <img src="Z:/picture/008/save_picture_551611.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551217.jpg" />
+  <img src="Z:/picture/008/save_picture_551217.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551210.jpg" />
+  <img src="Z:/picture/008/save_picture_551210.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549269.jpg" />
+  <img src="Z:/picture/008/save_picture_549269.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548824.jpg" />
+  <img src="Z:/picture/008/save_picture_548824.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548791.jpg" />
+  <img src="Z:/picture/008/save_picture_548791.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547967.jpg" />
+  <img src="Z:/picture/008/save_picture_547967.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547152.jpg" />
+  <img src="Z:/picture/008/save_picture_547152.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546246.jpg" />
+  <img src="Z:/picture/008/save_picture_546246.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545312.jpg" />
+  <img src="Z:/picture/008/save_picture_545312.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545252.jpg" />
+  <img src="Z:/picture/008/save_picture_545252.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544713.jpg" />
+  <img src="Z:/picture/008/save_picture_544713.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544607.jpg" />
+  <img src="Z:/picture/008/save_picture_544607.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544588.jpg" />
+  <img src="Z:/picture/008/save_picture_544588.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544587.jpg" />
+  <img src="Z:/picture/008/save_picture_544587.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544529.jpg" />
+  <img src="Z:/picture/008/save_picture_544529.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544272.jpg" />
+  <img src="Z:/picture/008/save_picture_544272.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544182.jpg" />
+  <img src="Z:/picture/008/save_picture_544182.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543770.jpg" />
+  <img src="Z:/picture/008/save_picture_543770.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540659.jpg" />
+  <img src="Z:/picture/008/save_picture_540659.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540339.jpg" />
+  <img src="Z:/picture/008/save_picture_540339.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540058.jpg" />
+  <img src="Z:/picture/008/save_picture_540058.jpg" />
 </div>
 
 
@@ -606,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BE5EDDBEB8D5B8268ED54DB1FEE2F09B79FFDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311402   (539953) от 30.06.2019
-
-Эндрю Мортон | Меган. Принцесса из Голливуда (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – интереснейшее расследование. В ней собраны подробности из личной жизни Меган Маркл, рассказанные автору близкими друзьями, соседями и коллегами актрисы. Вы узнаете о юности Меган, ее первом браке, о свидании вслепую с принцем Гарри и их конфетно-букетном периоде, о предложении руки и сердца и знакомстве с королевой Елизаветой II. А также о том, как Букингемский (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, ПублицистикаПеревод: М. С. КондрашоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535E0755BFC73CC4DEC054891FF5B419672BB741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925637   (539207) от 07.08.2015
-
-Даниэль Герен | Анархизм: от теории к практике (2013) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написанная в доступной форме книга французского общественного деятеля и писателя Даниэля Герена (1904–1988) знакомит читателей с основными идеями анархизма — социально-политической философии, идеалом которой является общество свободных личностей, основанное на самоуправлении, солидарности и отсутствии власти и принуждения. Впервые вышедшая по-французски в 1965 году (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D320F714C1FDC9517964C3ED890F55058025F325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154598   (539084) от 31.07.2017
-
-Виктор Бакин | Владимир Высоцкий без мифов и легенд (2010) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539084.jpg" />
-</div>
-
-
-###  Подробнее
-
-При жизни для большинства людей Владимир Высоцкий оставался легендой. Прошедшие без него три десятилетия расставили все по своим местам. Высоцкий не растворился даже в мифе о самом себе, который пытались творить все, кому не лень, не брезгуя никакими слухами, сплетнями, версиями о его жизни и смерти. Чем дальше отстоит от нас время Высоцкого, тем крупнее и рельефнее (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EECECF913BD5D9D08546A20BE84C4B1DC5AEE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

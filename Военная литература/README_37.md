@@ -1,3 +1,29 @@
+###  Публикация: 243332   (438733) от 11.10.2010
+
+Чарли Катшоу | Стрелковое оружие России. Новые модели [Эксмо-Пресс] [2002] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_438733.jpg" />
+</div>
+
+
+###  Подробнее
+
+имволом российского стрелкового оружия второй половины XX века, безусловно, стал автомат Калашникова. На протяжении четырех десятилетий все вновь принимаемые на вооружение образцы автоматов и пулеметов являлись, по сути, модификациями АК-47. Однако с начала 90-х годов российские оружейники показали миру десятки новых, оригинальных конструкций стрелкового оружия, многие их которых, такие, как автомат АН-94 или бесшумная снайперская винтовка ВСС, оказались поистине революционными. Тем не менее информация о них оставалась крайне скудной. Работа известного американского оружейника Чарли Катшоу, посвященная новым и перспективным российским системам вооружения и современным боеприпасам, призвана заполнить этот досадный пробел.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 243326   (438732) от 11.10.2010
 
 Крис Маршал | Энциклопедия кораблей [Полигон] [1997] [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438732.jpg" />
+  <img src="Z:/picture/005/save_picture_438732.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438205.jpg" />
+  <img src="Z:/picture/008/save_picture_438205.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438068.jpg" />
+  <img src="Z:/picture/008/save_picture_438068.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437947.jpg" />
+  <img src="Z:/picture/008/save_picture_437947.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437726.jpg" />
+  <img src="Z:/picture/008/save_picture_437726.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437671.jpg" />
+  <img src="Z:/picture/008/save_picture_437671.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437502.jpg" />
+  <img src="Z:/picture/008/save_picture_437502.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437499.jpg" />
+  <img src="Z:/picture/008/save_picture_437499.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436919.jpg" />
+  <img src="Z:/picture/008/save_picture_436919.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436360.jpg" />
+  <img src="Z:/picture/008/save_picture_436360.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436237.jpg" />
+  <img src="Z:/picture/008/save_picture_436237.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436097.jpg" />
+  <img src="Z:/picture/008/save_picture_436097.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433997.jpg" />
+  <img src="Z:/picture/008/save_picture_433997.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433586.jpg" />
+  <img src="Z:/picture/008/save_picture_433586.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433526.jpg" />
+  <img src="Z:/picture/008/save_picture_433526.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_433043.jpg" />
+  <img src="Z:/picture/005/save_picture_433043.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433038.jpg" />
+  <img src="Z:/picture/008/save_picture_433038.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431789.jpg" />
+  <img src="Z:/picture/008/save_picture_431789.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430627.jpg" />
+  <img src="Z:/picture/005/save_picture_430627.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430480.jpg" />
+  <img src="Z:/picture/008/save_picture_430480.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430205.jpg" />
+  <img src="Z:/picture/005/save_picture_430205.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429698.jpg" />
+  <img src="Z:/picture/008/save_picture_429698.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429588.jpg" />
+  <img src="Z:/picture/008/save_picture_429588.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429492.jpg" />
+  <img src="Z:/picture/008/save_picture_429492.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429422.jpg" />
+  <img src="Z:/picture/008/save_picture_429422.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5401D236D1003F571C95F3834DA3B2F7BD87FB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708671   (428757) от 09.10.2013
-
-Главное Артиллерийское Управление Красной Армии | Японский ручной пулемет обр. 1922 г. (1942) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая Памятка по обращению с японским ручным пулеметом обр. 1922 г (Тип 11) предназначена для изучения устройства материальной части и правил боевой эксплуатации.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D57421FC4106A5C2A364EFFCEAC6942031C15E
 ```
 
 https://mybot314.ru/tekegram_catalog/

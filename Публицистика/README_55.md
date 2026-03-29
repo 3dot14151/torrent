@@ -1,3 +1,81 @@
+###  Публикация: 1065648   (418590) от 23.10.2016
+
+Роберт Робинсон | Черный о красных. 44 года в Советском Союзе. Автобиография черного американца (2012) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418590.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху индустриализации Советский Союз привлекал иностранных специалистов со всего мира. Одним из них стал молодой чернокожий американец Роберт Робинсон, приехавший летом 1930 г. с завода Форда на Сталинградский тракторный - работать и обучать советских рабочих. СССР тогда предлагал зарплаты вдвое больше, чем можно было рассчитывать получить в охваченных Великой (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3FEE11EFFF416BED8E50C6918B44DA89127AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412350   (418199) от 29.09.2020
+
+Игорь Рабинер | Герои не нашего времени. Харламов, Тарасов, Яшин, Бесков в рассказах родных, друзей и учеников (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героев спорта все чаще показывают в кино. Их судьбы становятся сюжетами для кассовых художественных кинолент, «Движение вверх» и «Легенда No17» – явное тому подтверждение. Хорошо это или плохо, но слово «художественные» в данном случае на первом месте. Книга Игоря Рабинера о четырех великих спортсменах прошлого лишена «режиссерского видения» и домыслов сценаристов. (   Читать дальше...   )Жанр: Биографии и мемуары, Спорт, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D42557C28B851714F4DAA49277BFA46A0A5997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251445   (417851) от 01.10.2018
+
+Алексей Васильев | От Ленина до Путина. Россия на Ближнем и Среднем Востоке (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая работа известного ученого-востоковеда — результат его полувекового изучения Ближнего и Среднего Востока, честная и непредвзятая оценка целей, методов и средств политики Москвы, ее реальных достижений, провалов и просчетов в этом важнейшем для России регионе «третьего мира» как в советский, так и в постсоветский периоды. Впервые в международной историографии (   Читать дальше...   )Жанр: История; Политика; ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFE3810296912655CEB3DE59B90CE161460569E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251160   (417709) от 01.10.2018
 
 Юрий Мухин | Главные преступления 21 века. Узнаем ли мы правду? (2016) [FB2]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417709.jpg" />
+  <img src="Z:/picture/008/save_picture_417709.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416232.jpg" />
+  <img src="Z:/picture/008/save_picture_416232.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416224.jpg" />
+  <img src="Z:/picture/008/save_picture_416224.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415895.jpg" />
+  <img src="Z:/picture/008/save_picture_415895.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415430.jpg" />
+  <img src="Z:/picture/008/save_picture_415430.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415416.jpg" />
+  <img src="Z:/picture/008/save_picture_415416.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415051.jpg" />
+  <img src="Z:/picture/008/save_picture_415051.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415024.jpg" />
+  <img src="Z:/picture/008/save_picture_415024.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414491.jpg" />
+  <img src="Z:/picture/008/save_picture_414491.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414040.jpg" />
+  <img src="Z:/picture/008/save_picture_414040.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413862.jpg" />
+  <img src="Z:/picture/008/save_picture_413862.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413021.jpg" />
+  <img src="Z:/picture/008/save_picture_413021.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412253.jpg" />
+  <img src="Z:/picture/008/save_picture_412253.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411490.jpg" />
+  <img src="Z:/picture/008/save_picture_411490.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409861.jpg" />
+  <img src="Z:/picture/008/save_picture_409861.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409426.jpg" />
+  <img src="Z:/picture/008/save_picture_409426.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408746.jpg" />
+  <img src="Z:/picture/008/save_picture_408746.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408581.jpg" />
+  <img src="Z:/picture/008/save_picture_408581.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408256.jpg" />
+  <img src="Z:/picture/008/save_picture_408256.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408142.jpg" />
+  <img src="Z:/picture/008/save_picture_408142.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408140.jpg" />
+  <img src="Z:/picture/008/save_picture_408140.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408043.jpg" />
+  <img src="Z:/picture/008/save_picture_408043.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408039.jpg" />
+  <img src="Z:/picture/008/save_picture_408039.jpg" />
 </div>
 
 
@@ -601,89 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2578D3CBF60514B7B03F502E5EA8BDE4A20235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573588   (407380) от 03.09.2022
-
-Дмитрий Литвин | Project Blue Beam (NASA). Проект «Голубой луч» (Синий луч, Голубое сияние) НАСА (2018) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Синий луч» был создан для контроля сознания масс в глобальном масштабе. Его применение может быть местным — создавать массовые беспорядки в определенных регионах, влиять на вражеские войска, чтобы вызвать у них неконтролируемую панику, или наоборот — приводить массы людей, собравшихся в каком-либо случае в одном месте, в состояние радости, граничащей с эйфорией. (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C59C26B8928DEE10B04BD9BBA2418F89E20CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563441   (404431) от 21.10.2012
-
-Владимир Семенович Высоцкий | Сборник произведений Мастера и о нем | [1988-2012] [FB2, PDF, DJVU, chm]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Семенович Высоцкий (25 января 1938, Москва, СССР — 25 июля 1980, Москва, СССР) — выдающийся советский поэт, бард, актёр, автор нескольких прозаических произведений, заслуженный артист РСФСР (1986, посмертно) и лауреат Государственной премии СССР (1987, посмертно).
-
- Высоцкий сыграл около тридцати ролей в фильмах (в том числе «Место встречи изменить нельзя», «Маленькие трагедии», «Короткие встречи», «Хозяин тайги», «Вертикаль»). Участник постоянной труппы театра Драмы и комедии на Таганке.
-
- Высоцкий особенно прославился исполнением собственных песен под акустическую гитару.Формат: FB2, PDF, DJVU, chm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F259ADC13B3C0E9C09EA8DC631AD87F5D4EFB58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169200   (403177) от 27.09.2017
-
-Михаил Докучаев | Я охранял Брежнева и Горбачева. Откровения генерала КГБ (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги Михаил Степанович Докучаев занимал должность заместителя начальника 9-го Главного управления КГБ СССР, обеспечивающего охрану высших руководителей Советского Союза.
-В своих воспоминаниях М. С. Докучаев прежде всего рассказывает о Л. И. Брежневе и М. С. Горбачеве, которых ему довелось охранять, — об их характере, ближайшем окружении, стиле работы, (   Читать дальше...   )Жанр: История, Спецслужбы, Биографии и мемуары, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0D78E682A2DDE8FDACCE53534EA485D7C1F85C
 ```
 
 https://mybot314.ru/tekegram_catalog/

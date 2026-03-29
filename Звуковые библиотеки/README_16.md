@@ -1,3 +1,81 @@
+###  Публикация: 1422531   (308146) от 09.11.2020
+
+Звуковые библиотеки - Cinematic Studio Series - Cinematic Studio Strings v 1.1 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_308146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Studio Series представляет вам библиотеку невероятно реалистичных струнно-смычковых инструментов для Kontakt. Шепчущие гармоники и тремоло, эмоциональные легато и портаменто, а также кусающие стаккато и стаккатиссимо — Cinematic Studio Strings даст вам инструменты, необходимые, чтобы оживить вашу музыку. Библиотека имеет встроенный высококачественный ревербератор, (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2F89747FB21617E2D0DE4AC71FA2304776B217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077130   (306091) от 28.11.2016
+
+Звуковые библиотеки - Triune - Triune Sound: Fighting SFX [WAV]
+
+>>След.
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triune Sound: Fighting SFX -  поставляется с более чем 600 звуковыми "боевыми" эффектами высокого качества, готовыми к использованию, а так же с неотредактированными звуками для пользовательского использования!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B251315C3B54D97CEC0B1F8BBAE500C9E5D25257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333369   (305142) от 24.10.2019
+
+Spitfire Audio - Spitfire Solo Violin [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш высоко оцененный инструмент Total Performance для скрипки (Virtuoso) теперь можно приобрести в виде отдельной библиотеки Kontakt Player. Наша самая подробная и продвинутая сольная скрипка на сегодняшний день была исполнена всемирно известным скрипачом-виртуозом Джеком Либеком в The Hall в AIR Studios.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF71B21DD4F11021237E774E52592FEAD61126E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333206   (304953) от 24.10.2019
 
 Lens Distortions - Beginnings [WAV, MP3]
@@ -6,7 +84,7 @@ Lens Distortions - Beginnings [WAV, MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304953.jpg" />
+  <img src="Z:/picture/008/save_picture_304953.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303893.jpg" />
+  <img src="Z:/picture/008/save_picture_303893.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Best Service - Elysion [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303144.jpg" />
+  <img src="Z:/picture/008/save_picture_303144.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Spitfire Audio - Spitfire Solo Cello [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302982.jpg" />
+  <img src="Z:/picture/008/save_picture_302982.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ NNM-Club Sound Cleaner Group Collection - AudioJungle Bundle Originals 2019
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302818.jpg" />
+  <img src="Z:/picture/008/save_picture_302818.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302724.jpg" />
+  <img src="Z:/picture/008/save_picture_302724.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302074.jpg" />
+  <img src="Z:/picture/008/save_picture_302074.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301995.jpg" />
+  <img src="Z:/picture/008/save_picture_301995.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301889.jpg" />
+  <img src="Z:/picture/008/save_picture_301889.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301744.jpg" />
+  <img src="Z:/picture/008/save_picture_301744.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301734.jpg" />
+  <img src="Z:/picture/008/save_picture_301734.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301656.jpg" />
+  <img src="Z:/picture/008/save_picture_301656.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299649.jpg" />
+  <img src="Z:/picture/008/save_picture_299649.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ NNM-Club Sound Cleaner Collection - STouR - Album 3-2019
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298569.jpg" />
+  <img src="Z:/picture/008/save_picture_298569.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ NNM-Club Sound Cleaner Collection - Teacher - Album 3-2019
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298472.jpg" />
+  <img src="Z:/picture/008/save_picture_298472.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Sample Logic - Modern Animated Percussion RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296663.jpg" />
+  <img src="Z:/picture/008/save_picture_296663.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Embertone - Walker 1955 Concert D Full [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294430.jpg" />
+  <img src="Z:/picture/008/save_picture_294430.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294283.jpg" />
+  <img src="Z:/picture/008/save_picture_294283.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293285.jpg" />
+  <img src="Z:/picture/008/save_picture_293285.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ AudioJungle Pack NEXT [WAV, MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286789.jpg" />
+  <img src="Z:/picture/008/save_picture_286789.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285480.jpg" />
+  <img src="Z:/picture/008/save_picture_285480.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285475.jpg" />
+  <img src="Z:/picture/008/save_picture_285475.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Soniccouture - Moonkits [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282375.jpg" />
+  <img src="Z:/picture/008/save_picture_282375.jpg" />
 </div>
 
 
@@ -598,87 +676,6 @@ Soniccouture объявила о выпуске новой библиотеки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B57E4115A727F991F22368AD6EA01F14C1911F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336167   (282198) от 05.11.2019
-
-CL Projects - ROLAND JD-850 - RePack Андрей650071 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к погружению в мир звуков одного из большинства культовых и легендарных синтезаторов начала девяностых годов. Воссозданный для работы в инструменте KONTAKT, Roland JD-850 cодержит вдохновляющие арпеджио, пышные подклады, жирные басы, яркие лиды и потрясающие звуки синтезатора в любой комбинации.Формат: Kontakt: NICNT, NKC, NKR, NCW, NKI, NKM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80FA86777A136434807D7031C5AFEE5B6285C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264487   (280872) от 23.11.2018
-
-Звуковые библиотеки - Christmas and New Year Music Sound Bundle [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Christmas and New Year Music Sound Bundle - сборник музыкальных треков, объединенных общей тематикой - Рождество, Новый Год.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA34B4754392FAAF0AA5458A4773AC9FC59E24D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336670   (278838) от 07.11.2019
-
-Echo Sound Works - X Grand Piano - RePack Андрей650071 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы знаем, что вы думаете. Еще одно пианино? Вероятно, существует больше библиотек сэмплов для фортепиано, чем для библиотек любого другого типа, но нет таких, как X Grand.
-
-Когда мы собирались создать X Grand, у нас были две цели:
-(   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NCW, NKI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9E36CAF2A189D962CD2E0C1024B14A3889D441
 ```
 
 https://mybot314.ru/tekegram_catalog/

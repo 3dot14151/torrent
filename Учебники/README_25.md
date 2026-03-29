@@ -1,3 +1,56 @@
+###  Публикация: 1199302   (797436) от 18.01.2018
+
+Е. Константинова и др. | История мирового фотоискусства (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронный учебник «История мирового фотоискусства» предназначен для студентов вузов, обучающихся специальностям «Кино- и телеоператорство», «Режиссура кино- и телефильмов» и «Народная художественная культура», «Реставрация кинофотодокументов». Также книга будет полезна большому числу фотолюбителей, интересующихся классикой фотоискусства, мировыми тенденциями его (   Читать дальше...   )Жанр: учебник, фотографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99412CF7CA58512EE9F2D6F98E80A8C4F937B79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010764   (796988) от 27.04.2016
+
+А.С. Гилмор-мл. | Лампы с бегущей волной (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга основана на материалах лекций и семинаров по СВЧ-лампам, которые автор многократно представлял в ведущих фирмах и университетах США. В ней сосредоточены базовые знания по теории и технике наиболее востребованного в течение многих, в том числе и последних десятилетий, прибора — лампы с бегущей волной (ЛБВ).
+Книга написана доступным для широкого круга читателей (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471F1D17575236830F7DF213DF74A7B8C3C50059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199854   (796322) от 20.01.2018
 
 А.С. Копылов и др. | Водоподготовка в энергетике (2016) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796322.jpg" />
+  <img src="Z:/picture/008/save_picture_796322.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796311.jpg" />
+  <img src="Z:/picture/008/save_picture_796311.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796266.jpg" />
+  <img src="Z:/picture/008/save_picture_796266.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796254.jpg" />
+  <img src="Z:/picture/008/save_picture_796254.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796192.jpg" />
+  <img src="Z:/picture/008/save_picture_796192.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796190.jpg" />
+  <img src="Z:/picture/008/save_picture_796190.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794988.jpg" />
+  <img src="Z:/picture/008/save_picture_794988.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794932.jpg" />
+  <img src="Z:/picture/008/save_picture_794932.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794811.jpg" />
+  <img src="Z:/picture/008/save_picture_794811.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794752.jpg" />
+  <img src="Z:/picture/008/save_picture_794752.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794578.jpg" />
+  <img src="Z:/picture/008/save_picture_794578.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794254.jpg" />
+  <img src="Z:/picture/008/save_picture_794254.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794124.jpg" />
+  <img src="Z:/picture/008/save_picture_794124.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794099.jpg" />
+  <img src="Z:/picture/008/save_picture_794099.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794050.jpg" />
+  <img src="Z:/picture/008/save_picture_794050.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794047.jpg" />
+  <img src="Z:/picture/008/save_picture_794047.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793941.jpg" />
+  <img src="Z:/picture/008/save_picture_793941.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793420.jpg" />
+  <img src="Z:/picture/008/save_picture_793420.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793416.jpg" />
+  <img src="Z:/picture/008/save_picture_793416.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793306.jpg" />
+  <img src="Z:/picture/008/save_picture_793306.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793298.jpg" />
+  <img src="Z:/picture/008/save_picture_793298.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793243.jpg" />
+  <img src="Z:/picture/008/save_picture_793243.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792963.jpg" />
+  <img src="Z:/picture/008/save_picture_792963.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792956.jpg" />
+  <img src="Z:/picture/008/save_picture_792956.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226DE9FAFC5E87EBFDA684FCA5511DC13CDEDDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201305   (792769) от 24.01.2018
-
-И.Е. Иродов | Волновые процессы. Основные законы (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие содержит теоретический материал (основные идеи волновых процессов), а также разбор многочисленных примеров и задач, где показано, как (по мнению автора) надо подходить к их решению. Задачи тесно связаны с основным текстом и часто являются его развитием и дополнением. Материал книги, насколько возможно, освобожден от излишней математизации — (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC03928B4B892A8AA7E7CDEC1749C4B13E1F6FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201452   (792766) от 24.01.2018
-
-С.В.  Михеев | Основы инфракрасной техники (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии излагаются основы тепловидения и принципы создания тепловизионных приборов. Кратко описаны все основные процессы, происходящие в системах тепловидения: принципы генерирования собственного теплового излучения нагретых тел, вклад в суммарное тепловое излучение, рассматриваются материалы, применяемые в ИК технике, приёмники излучения, методы и приёмы (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDC6552268CBB37939ED544173D98EBA046E411
 ```
 
 https://mybot314.ru/tekegram_catalog/

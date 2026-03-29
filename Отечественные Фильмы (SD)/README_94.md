@@ -1,3 +1,29 @@
+###  Публикация: 63721   (333295) от 13.11.2014
+
+18-14 (2007) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_333295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под Петербургом, в окрестностях Царского Села, происходит цепь загадочных убийств. От рук неизвестного маньяка погибают молодые женщины. Эти смерти объединяет один и тот же почерк — звериная жестокость и странное орудие, которым наносятся увечья жертвам. Ужас и истерия нарушают размеренное течение жизни обитателей столичного пригорода. В народе уже придумали прозвище (   Читать дальше...   )Производство: Россия, "Нон-стоп Продакшн"Жанр: Приключения, историяРежиссер: Андрес ПуустусмааАктеры: Степан Балакшин, Стас Белозеров, Сергей Друзьяк, Иван Макаревич, Сергей Гармаш, Федор Бондарчук, Богдан Ступка, Александр Быковский, Иван Мартынов, Иван ПачинПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 49166   (333136) от 13.11.2014
 
 Скалолазка и Последний из седьмой колыбели (2007) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333136.jpg" />
+  <img src="Z:/picture/005/save_picture_333136.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333132.jpg" />
+  <img src="Z:/picture/005/save_picture_333132.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332538.jpg" />
+  <img src="Z:/picture/008/save_picture_332538.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332537.jpg" />
+  <img src="Z:/picture/008/save_picture_332537.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332054.jpg" />
+  <img src="Z:/picture/005/save_picture_332054.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332048.jpg" />
+  <img src="Z:/picture/005/save_picture_332048.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332044.jpg" />
+  <img src="Z:/picture/005/save_picture_332044.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_331917.jpg" />
+  <img src="Z:/picture/005/save_picture_331917.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330839.jpg" />
+  <img src="Z:/picture/005/save_picture_330839.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330682.jpg" />
+  <img src="Z:/picture/008/save_picture_330682.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330668.jpg" />
+  <img src="Z:/picture/008/save_picture_330668.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330626.jpg" />
+  <img src="Z:/picture/008/save_picture_330626.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329883.jpg" />
+  <img src="Z:/picture/005/save_picture_329883.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329862.jpg" />
+  <img src="Z:/picture/005/save_picture_329862.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329794.jpg" />
+  <img src="Z:/picture/005/save_picture_329794.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329702.jpg" />
+  <img src="Z:/picture/005/save_picture_329702.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329011.jpg" />
+  <img src="Z:/picture/008/save_picture_329011.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329008.jpg" />
+  <img src="Z:/picture/008/save_picture_329008.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329001.jpg" />
+  <img src="Z:/picture/005/save_picture_329001.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328905.jpg" />
+  <img src="Z:/picture/005/save_picture_328905.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328897.jpg" />
+  <img src="Z:/picture/005/save_picture_328897.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328826.jpg" />
+  <img src="Z:/picture/005/save_picture_328826.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328821.jpg" />
+  <img src="Z:/picture/005/save_picture_328821.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328819.jpg" />
+  <img src="Z:/picture/005/save_picture_328819.jpg" />
 </div>
 
 
@@ -644,39 +670,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328816.jpg" />
+  <img src="Z:/picture/005/save_picture_328816.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Алиса приезжает в Петербург. Соседями Алисы по квартире становятся девушка по имени Вэл и ее парень Валера Мертвый. Вэл работает барменом в ночном клубе. Она давно никому не верит, и привыкла рассчитывать лишь на себя. В этом мире Вэл удерживает только ее парень, из-за которого она оставила все, что ей было близко и дорого. Однажды случается так, что Вэл остается (   Читать дальше...   )Производство: Россия, кинокомпания СТВЖанр: ДрамаРежиссер: Игорь ВолошинАктеры: Ольга Сутулова, Мария Шалаева, Артур Смольянинов, Михаил Евланов, Татьяна Ткач, Татьяна Самойлова, Татьяна Рябоконь, Эдуард Марцевич, Вадим Франчук, Анастасия Дюкова, Артем ЦыпинПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 92270   (328764) от 17.11.2014
-
-Золотой ключик (2008) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герман хорош собой, богат, известен — в общем, мужчина — мечта. У него есть жена, которая подозревает его в измене. Любовница у него тоже есть — Анжела. Она пытается завести от Германа ребенка и увести его из семьи. А ещё есть Вера. Ей долго не везло в личной жизни, и теперь, встретив Германа, Вера понимает, что он — именно тот, кто ей нужен для счастья. Очень скоро (   Читать дальше...   )Производство: Россия, студия "Софит" по заказу "Централ Партнершип"Жанр: Mелодрама, комедияРежиссер: Зиновий РойзманАктеры: Дмитрий Певцов, Олеся Судзиловская, Евгения Крюкова, Елена Захарова, Сергей Газаров, Антон Макарский, Юлия Рутберг, Любовь Толкалина, Алла Ковнир, Дмитрий КомовПродолжительность: 01:52:14
 
 ## Скачать торент
 ```bash

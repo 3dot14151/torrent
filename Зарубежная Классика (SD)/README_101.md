@@ -1,3 +1,83 @@
+###  Публикация: 1643544   (232330) от 14.07.2023
+
+Короткая встреча / Brief Encounter (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая случайность свела Анну Джессон, мать благополучного семейства, и преуспевающего врача Алека Харви. Они были так близки к тому, чтобы совершить резкий поворот в жизни, но... это оказалось лишь короткой встречей.Производство: Великобритания, Италия / Carlo Ponti Cinematografica, Cecil Clarke Productions, Incorporated Television Company (ITC)Жанр: драмаРежиссер: Алан БриджесАктеры: Ричард Бёртон, Софи Лорен, Джек Хедли, Розмари Лич, Энн Фёрбэнк, Гвен Черрелл, Бенжамин Эдни, Джон Ле Мезюрье, Jumoke Debayo, Кристофер БенжаминПеревод: Многоголосый профессиональный (СВ-Дубль по заказу ГТРК Культура)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), итальянские, испанскиеПродолжительность: 01:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE02C3AFFE7334A675F0153CCA68F7A023D1C607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629081   (232134) от 27.05.2023
+
+Папа Гусь / Father Goose (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война. Уолтер Эклунд - одиночка по жизни, беспечный морской бродяга. В данный момент он работает на военно-морской флот Британии. Его местонахождение - отдаленный остров в Южном море, его задание - обнаружение вражеских самолетов.
+
+Но неожиданно тихая и спокойная боевая задача превращается в полный бедлам: учительница Кэтрин Фрэно с группой детей высаживается (   Читать дальше...   )Производство: США / Granox CompanyЖанр: мелодрама, комедия, приключения, военныйРежиссер: Ральф НельсонАктеры: Кэри Грант, Лесли Карон, Тревор Ховард, Джек Гуд, Питер Форстер, Саймон Скотт, Кен Своффорд, Шэрил Лок, Пип Спарк, Верина ГринлоуПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0E1E33DFF343367A1BD12C431D82959C2062BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629665   (231720) от 30.05.2023
+
+До свидания, мистер Чипс / Goodbye, Mr. Chips (1939) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_231720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый учитель вспоминает свою долгую жизнь и многолетнюю преподавательскую карьеру в школе-интернате для мальчиков. Он выучил несколько поколений ребятишек, помнил всех своих учеников, ставших для него настоящей семьей, а также женитьбу, которая перевернула всю его жизнь. Прототипом мистера Чипса стал Джеймс Хилтон, старый учитель, проработавший в школе Кембриджа (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer British StudiosЖанр: драма, мелодрамаРежиссер: Сэм Вуд, Сидни ФранклинАктеры: Роберт Донат, Грир Гарсон, Терри Килбёрн, Джон Миллз, Пол Хенрейд, Джудит Ферс, Лин Хардинг, Милтон Росмер, Фредерик Лейстер, Луиз ХэмптонПеревод: Двуголосый профессиональный (Светла)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BAFF0AB68A3F2889511A7E807E63E27018FF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629708   (231583) от 30.05.2023
 
 Ночью в «Зеленом Какаду» / Nachts im grunen Kakadu (1957) DVDRip [H.264]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231583.jpg" />
+  <img src="Z:/picture/005/save_picture_231583.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231481.jpg" />
+  <img src="Z:/picture/005/save_picture_231481.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231424.jpg" />
+  <img src="Z:/picture/005/save_picture_231424.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231100.jpg" />
+  <img src="Z:/picture/005/save_picture_231100.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231086.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230867.jpg" />
+  <img src="Z:/picture/005/save_picture_230867.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230665.jpg" />
+  <img src="Z:/picture/005/save_picture_230665.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230632.jpg" />
+  <img src="Z:/picture/005/save_picture_230632.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230453.jpg" />
+  <img src="Z:/picture/004/save_picture_230453.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230375.jpg" />
+  <img src="Z:/picture/005/save_picture_230375.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229961.jpg" />
+  <img src="Z:/picture/005/save_picture_229961.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229422.jpg" />
+  <img src="Z:/picture/004/save_picture_229422.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228603.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228541.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228417.jpg" />
+  <img src="Z:/picture/005/save_picture_228417.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227607.jpg" />
+  <img src="Z:/picture/005/save_picture_227607.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227444.jpg" />
+  <img src="Z:/picture/005/save_picture_227444.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227409.jpg" />
+  <img src="Z:/picture/005/save_picture_227409.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226773.jpg" />
+  <img src="Z:/picture/005/save_picture_226773.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225942.jpg" />
+  <img src="Z:/picture/005/save_picture_225942.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225823.jpg" />
+  <img src="Z:/picture/005/save_picture_225823.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225701.jpg" />
+  <img src="Z:/picture/005/save_picture_225701.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225517.jpg" />
+  <img src="Z:/picture/005/save_picture_225517.jpg" />
 </div>
 
 
@@ -596,88 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE5834E7EA65C8A9BF223FB089E0D214CFF5824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267200   (224274) от 12.12.2018
-
-Похищение сабинянок / Il ratto delle sabine (1961) DVDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация легендарного эпизода ранней римской истории.
-Что делать, если твоя страна переполнена крепкими и весьма буйными мужчинами, а женщин катастрофически не хватает? А вот в соседних краях, у сабинов, прекрасного пола явный избыток. Может быть, просто похитить нужное количество? Но как?
-
-Правитель Рима, отважный и благородный Ромул, разработал простой и быстрый (   Читать дальше...   )Производство: Италия, Франция, Югославия / C.I.P.R.A., Dubrava Film, F.I.C.I.TЖанр: приключения, комедияРежиссер: Ришар ПотьеАктеры: Роджер Мур, Милен Демонжо, Джорджия Молл, Шилла Габель, Марино Мазе, Жан Маре, Розанна Скьяффино, Фолько Люлли, Луиза Маттиоли, Франсис БланшПеревод: Профессиональный многоголосыйПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA7AFE7345489DBD9517F64D6764340FCEEA7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963000   (224028) от 15.12.2015
-
-Смерть в этом саду / La mort en ce jardin (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224028.jpg" />
-</div>
-
-
-###  Подробнее
-
-В джунглях Амазонки прячется от закона бунтовщик и убийца Шарк. Вместе с ним — четверо его заложников: пастор Лиззарди, проститутка Джин, ее любовник Кастен и его глухонемая дочь Мария. Шарк давно потерял счет собственным грехам, и его не интересует ни спасение души, ни завтрашний день.
-Но те, что оказались с ним рядом все же ищут выход из жуткого и прекрасного леса, (   Читать дальше...   )Производство: Франция, Мексика / Dismage, Producciones TepeyacЖанр: Драма, ПриключенияРежиссер: Луис БунюэльАктеры: Симона Синьоре, Шарль Ванель, Жорж Маршаль, Мишель Пикколи, Тито Хунчо, Рауль Рамирес, Луис Асевес Кастаньеда, Хорхе Мартинес де Ойос, Альберто Педре, Марк ЛамбертПеревод: Двуголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596EBA3D8BA2BD203859BE5701B637D4D78D11B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339703   (223558) от 02.12.2019
-
-Барон де Л'Эклюз / Le baron de l'ecluse (1960) DVDRip [H.264] [Remastered]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой войны 14-го года и разоренный барон, Жером Наполеон Антуан (Жан Габен) ведет роскошную жизнь благодаря своим обширным связям. Он много играет и много проигрывает. Однажды ему улыбается удача во время игры в карты с маркизом Вилламайором (Жак Кастело): он выигрывает одиннадцать миллионов и, в качестве аванса, получает яхту. Вместе с Перл (Мишлен Прель), бывшей (   Читать дальше...   )Производство: Франция, Италия / Filmsonor, Intermondia Films, CinételЖанр: КомедияРежиссер: Жан ДеланнуаАктеры: Жан Габен, Мишлен Прель, Жан Дезайи, Жак Кастело, Эме Мортимер, Жан Константин, Робер Дальбан, Пьер Луи, Луи Сенье, Жан-Пьер Жобер, Бланше БрюнуаПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E94CB43D7223B356840A2F05CCD0146FCC3959F
 ```
 
 https://mybot314.ru/tekegram_catalog/

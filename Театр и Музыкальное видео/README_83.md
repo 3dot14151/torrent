@@ -1,3 +1,171 @@
+###  Публикация: 941273   (461767) от 27.09.2015
+
+Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
+02. B*********
+03. Waidmanns Heil
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC3AD7417E148EC4BF3D3560EF5EE807177E7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941453   (461682) от 27.09.2015
+
+Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein  выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на 2DVD и 2Blu-ray стараниями лейбла Island/UMe. Соединив зажигательное выступление (   Читать дальше...   )01. Rammlied
+02. B*********
+03. Waidmanns Heil
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAC759358A754463653F3C68399EFB1FD6AE65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246532   (461419) от 11.09.2018
+
+Квартирник на НТВ у Маргулиса. Сергей Воронов и группа CrossroadZ (09.08.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461419.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришел Сергей Воронов и группа Crossroadz. За 25 лет существования они много экспериментировали со стилем, а выход за рамки блюзовой структуры помог группе найти неповторимое звучание и преданных слушателей всех возрастов. Музыкант рассказал, почему раньше не исполнял блюз на русском языке, и вспомнил, как попал в музыкальный (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE470D9D2439384CD6F59BB9D02BC18451EE8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703143   (461351) от 25.09.2013
+
+Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Highway Star
+02. Curved Air - Back Street Luv
+03. Canned Heat - Big City
+04. Deep Purple - No, No, No(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703774   (461254) от 25.09.2013
+
+Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' Blues - Livin' Blues Boogie
+02. Nazareth - Morning Dew
+03. Atomic Rooster - Break Through
+04. Guru Guru - Oxymoron(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549841   (460735) от 21.09.2012
+
+Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_460735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'bПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BF24A3B0B5456E3AF542827DEFF31F06B2E43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550362   (460733) от 21.09.2012
 
 Sika - Love Kills (2012) [H.264/1080p] WEBRip
@@ -6,7 +174,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460733.jpg" />
+  <img src="Z:/picture/008/save_picture_460733.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460729.jpg" />
+  <img src="Z:/picture/008/save_picture_460729.jpg" />
 </div>
 
 
@@ -58,7 +226,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460572.jpg" />
+  <img src="Z:/picture/008/save_picture_460572.jpg" />
 </div>
 
 
@@ -84,7 +252,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460330.jpg" />
+  <img src="Z:/picture/008/save_picture_460330.jpg" />
 </div>
 
 
@@ -110,7 +278,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460097.jpg" />
+  <img src="Z:/picture/008/save_picture_460097.jpg" />
 </div>
 
 
@@ -139,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460086.jpg" />
+  <img src="Z:/picture/008/save_picture_460086.jpg" />
 </div>
 
 
@@ -165,7 +333,7 @@ Little Big - Tacos (2020) WEBRip [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459951.jpg" />
+  <img src="Z:/picture/008/save_picture_459951.jpg" />
 </div>
 
 
@@ -191,7 +359,7 @@ VA - Rockin'1000: Stade de France, Paris (2019) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459772.jpg" />
+  <img src="Z:/picture/008/save_picture_459772.jpg" />
 </div>
 
 
@@ -220,7 +388,7 @@ Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459728.jpg" />
+  <img src="Z:/picture/008/save_picture_459728.jpg" />
 </div>
 
 
@@ -249,7 +417,7 @@ BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459652.jpg" />
+  <img src="Z:/picture/008/save_picture_459652.jpg" />
 </div>
 
 
@@ -275,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_459531.jpg" />
+  <img src="Z:/picture/005/save_picture_459531.jpg" />
 </div>
 
 
@@ -304,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459477.jpg" />
+  <img src="Z:/picture/008/save_picture_459477.jpg" />
 </div>
 
 
@@ -333,7 +501,7 @@ Emerson Lake & Palmer - 40TH Anniversary Reunion Concert (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_459468.jpg" />
+  <img src="Z:/picture/005/save_picture_459468.jpg" />
 </div>
 
 
@@ -362,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458892.jpg" />
+  <img src="Z:/picture/008/save_picture_458892.jpg" />
 </div>
 
 
@@ -389,7 +557,7 @@ Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458367.jpg" />
+  <img src="Z:/picture/008/save_picture_458367.jpg" />
 </div>
 
 
@@ -415,7 +583,7 @@ Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458365.jpg" />
+  <img src="Z:/picture/008/save_picture_458365.jpg" />
 </div>
 
 
@@ -441,7 +609,7 @@ Legends Disco Star-80 (2009) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458069.jpg" />
+  <img src="Z:/picture/008/save_picture_458069.jpg" />
 </div>
 
 
@@ -471,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456558.jpg" />
+  <img src="Z:/picture/008/save_picture_456558.jpg" />
 </div>
 
 
@@ -498,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456447.jpg" />
+  <img src="Z:/picture/008/save_picture_456447.jpg" />
 </div>
 
 
@@ -527,7 +695,7 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456154.jpg" />
+  <img src="Z:/picture/008/save_picture_456154.jpg" />
 </div>
 
 
@@ -539,194 +707,6 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389049   (456112) от 18.09.2011
-
-ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456112.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388766   (455837) от 18.09.2011
-
-Foreigner - Rockin' At The Ryman (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт ветеранов рока Foreigner 16 марта 2010 в Ryman Theatre - Nashville, USA01. Double Vision
- 02. Head Games
- 03. Cold As Ice
- 04. In Pieces(   Читать дальше...   )Жанр: Концерт, Melodic RockПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819A84CAD8434560A606EC3E24431EF66B8C310B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388947   (455669) от 18.09.2011
-
-Группа Нэнси - Дым сигарет с ментолом - 15 лет (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный сборник группы Нэнси01. Дым сигарет с ментолом (Live exclusive show)
-02. Чистый лист (Видеоклип)
-03. Отель (Видеоклип)
-04. Свадьба знатная (Live exclusive show)
-05. Светлана (Live exclusive show)
-06. Туман-туман (Live exclusive show)
-07. Горько плакала ива (Видеоклип)
-08. Дым сигарет с ментолом (Видеоклип)
-09. Ты далеко (Видеоклип)
-10. Деловой человек (Live exclusive show)Жанр: Музыкальное видеоПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1D66BB6CF300486423EBBD6E365C7B88FE6A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942224   (455158) от 30.09.2015
-
-Rammstein - In Amerika (2015) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18 000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на DVD и Blu-ray стараниями лейбла Island Records и Universal Music Enterprises. (   Читать дальше...   )01. Rammlied
-02. B********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Производство: Германия | Island Records, Universal Music EnterprisesЖанр: Industrial Metal, Hard Rock, NDHРежиссер: Ханнес РоссачерПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12E512B86569337603EDFCECBCEF857AC589F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550793   (455017) от 23.09.2012
-
-Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455017.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
-  - Beat-Club
-  - Musikladen
-  - Disco
-  - Top Of The Pops
-(в хорошем качестве VH1)Slade 71-82
-
-1. Get Down And Get With It (promo) (1971)
-2. Coz I Luv You (Top Of The Pops, 1971)
-3. Hear Me Calling (Beat-Club, 28.11.71)
-4. Look Wot You Dun (promo) (1972)
-5. Mama Weer All Crazee Now (Disco, 09.12.72)
-6. Gudbye T’Jane (TOPPOP, 1972)
-7. Bangin’ Man (Disco, 26.10.74)
-8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060386   (454721) от 07.10.2016
-
-Гудгора. Концерт Вячеслава Бутусова (03.12.2015) HDRip [H.265/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы "Ю-Питер" в Питере, в БКЗ "Октябрьский", 3 декабря 2015 года.01. Апокалиптическая
-02. Возьми меня с собой
-03. Чёрная птица-белые крылья
-04. Одинокая птица(   Читать дальше...   )Жанр: МузыкаАктеры: Вячеслав БутусовПродолжительность: 01:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E7E010729BB43618257D5B7C3EAF767226E27A
 ```
 
 https://mybot314.ru/tekegram_catalog/

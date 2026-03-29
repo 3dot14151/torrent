@@ -6,7 +6,7 @@ BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Dis
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830510.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828273.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824632.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824387.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821958.jpg" />
+  <img src="Z:/picture/008/save_picture_821958.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821481.jpg" />
+  <img src="Z:/picture/008/save_picture_821481.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820974.jpg" />
+  <img src="Z:/picture/008/save_picture_820974.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820971.jpg" />
+  <img src="Z:/picture/008/save_picture_820971.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820961.jpg" />
+  <img src="Z:/picture/008/save_picture_820961.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819248.jpg" />
+  <img src="Z:/picture/008/save_picture_819248.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819087.jpg" />
+  <img src="Z:/picture/008/save_picture_819087.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818801.jpg" />
+  <img src="Z:/picture/008/save_picture_818801.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818774.jpg" />
+  <img src="Z:/picture/008/save_picture_818774.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ BBC: Жизнь / Life (10 серий из 10) (2009) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818078.jpg" />
+  <img src="Z:/picture/008/save_picture_818078.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817504.jpg" />
+  <img src="Z:/picture/008/save_picture_817504.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816943.jpg" />
+  <img src="Z:/picture/008/save_picture_816943.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814675.jpg" />
+  <img src="Z:/picture/008/save_picture_814675.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ BBC: Планета Земля / Planet Earth (2006) [HDRip] [11 серий из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813817.jpg" />
+  <img src="Z:/picture/008/save_picture_813817.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813457.jpg" />
+  <img src="Z:/picture/008/save_picture_813457.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811699.jpg" />
+  <img src="Z:/picture/008/save_picture_811699.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811639.jpg" />
+  <img src="Z:/picture/008/save_picture_811639.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811399.jpg" />
+  <img src="Z:/picture/008/save_picture_811399.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810963.jpg" />
+  <img src="Z:/picture/008/save_picture_810963.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810274.jpg" />
+  <img src="Z:/picture/008/save_picture_810274.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809988.jpg" />
+  <img src="Z:/picture/008/save_picture_809988.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809986.jpg" />
+  <img src="Z:/picture/008/save_picture_809986.jpg" />
 </div>
 
 

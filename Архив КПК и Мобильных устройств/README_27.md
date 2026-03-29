@@ -6,7 +6,7 @@ ET Music Player Pro 1.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791788.jpg" />
+  <img src="Z:/picture/008/save_picture_791788.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Automatic Tag Editor v1.8.2.13 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791660.jpg" />
+  <img src="Z:/picture/008/save_picture_791660.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Widgets - CPU | RAM | Battery 3.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791257.jpg" />
+  <img src="Z:/picture/008/save_picture_791257.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789260.jpg" />
+  <img src="Z:/picture/008/save_picture_789260.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Easy Calculator v1.0.3 Pro [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788496.jpg" />
+  <img src="Z:/picture/008/save_picture_788496.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CCleaner Pro: ПО для очистки 6.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787739.jpg" />
+  <img src="Z:/picture/008/save_picture_787739.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ AquaMail Pro v1.18.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787506.jpg" />
+  <img src="Z:/picture/008/save_picture_787506.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ F-Stop Gallery Pro 5.3.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786529.jpg" />
+  <img src="Z:/picture/008/save_picture_786529.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786306.jpg" />
+  <img src="Z:/picture/008/save_picture_786306.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786092.jpg" />
+  <img src="Z:/picture/008/save_picture_786092.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kinoid v3.1 [Ru/En] - фильмы и сериалы для онлайн про�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786026.jpg" />
+  <img src="Z:/picture/008/save_picture_786026.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785861.jpg" />
+  <img src="Z:/picture/008/save_picture_785861.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785644.jpg" />
+  <img src="Z:/picture/008/save_picture_785644.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785562.jpg" />
+  <img src="Z:/picture/008/save_picture_785562.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VIP Notes 9.9.28 (Paid) [RU]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785076.jpg" />
+  <img src="Z:/picture/008/save_picture_785076.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Legends of lake Kitka / Легенды озера Китка 1.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782237.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Adobe Lightroom Premium 5.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782183.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Superbrush v1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781006.jpg" />
+  <img src="Z:/picture/008/save_picture_781006.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Publisher - ВК Постинг v1.2.6 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780229.jpg" />
+  <img src="Z:/picture/008/save_picture_780229.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780199.jpg" />
+  <img src="Z:/picture/008/save_picture_780199.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779846.jpg" />
+  <img src="Z:/picture/008/save_picture_779846.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Phone Analyzer Pro v1.91.02 [Ru/Multi] - менеджер приложений �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779316.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Forvo Pronunciation Guide v1.7.1 [Multi] - учиться правильному
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779083.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778519.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778508.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ AppSales v5.0.1 [Ru/Multi] - Автоматизированное отслежи
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777911.jpg" />
 </div>
 
 

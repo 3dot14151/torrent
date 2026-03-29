@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788433.jpg" />
+  <img src="Z:/picture/008/save_picture_788433.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ System Toolkit 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788422.jpg" />
+  <img src="Z:/picture/008/save_picture_788422.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GoodNotes 5 v5.7.48 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788419.jpg" />
+  <img src="Z:/picture/008/save_picture_788419.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Stats 2.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788417.jpg" />
+  <img src="Z:/picture/008/save_picture_788417.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TinkerTool System 7 v7.71 + TinkerTool 8.3  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788416.jpg" />
+  <img src="Z:/picture/008/save_picture_788416.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Easy New File 5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788412.jpg" />
+  <img src="Z:/picture/008/save_picture_788412.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ News Explorer 1.8.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788401.jpg" />
+  <img src="Z:/picture/008/save_picture_788401.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Screens 4 v4.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788400.jpg" />
+  <img src="Z:/picture/008/save_picture_788400.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ KeyCue 9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788399.jpg" />
+  <img src="Z:/picture/008/save_picture_788399.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AAct 3.9.7 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788394.jpg" />
+  <img src="Z:/picture/008/save_picture_788394.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WiFi Scanner 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788378.jpg" />
+  <img src="Z:/picture/008/save_picture_788378.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Easy Data Transform 1.22.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788375.jpg" />
+  <img src="Z:/picture/008/save_picture_788375.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MacClean 3 v3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788366.jpg" />
+  <img src="Z:/picture/008/save_picture_788366.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Balabolka 2.15.0.806 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788364.jpg" />
+  <img src="Z:/picture/008/save_picture_788364.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ WizFile 3.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788358.jpg" />
+  <img src="Z:/picture/008/save_picture_788358.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ FLIPSILV3R - Native American War Chants (2021) [MP3|320 Kbps] <Native American, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788357.jpg" />
+  <img src="Z:/picture/008/save_picture_788357.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Opera 81.0.4196.54 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788354.jpg" />
+  <img src="Z:/picture/008/save_picture_788354.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Notepad++ 8.1.9.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788348.jpg" />
+  <img src="Z:/picture/008/save_picture_788348.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ExamDiff Pro Master Edition 12.0.1.10 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788346.jpg" />
+  <img src="Z:/picture/008/save_picture_788346.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Paint.NET 4.3.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788345.jpg" />
+  <img src="Z:/picture/008/save_picture_788345.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ NirLauncher Package 1.23.54 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788343.jpg" />
+  <img src="Z:/picture/008/save_picture_788343.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ WinNTSetup 5.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788336.jpg" />
+  <img src="Z:/picture/008/save_picture_788336.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Extreme Picture Finder 3.58.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788326.jpg" />
+  <img src="Z:/picture/008/save_picture_788326.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wondershare UniConverter 13.2.1.89 (х64) Repack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788325.jpg" />
+  <img src="Z:/picture/008/save_picture_788325.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ StartAllBack 3.1.0 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788315.jpg" />
+  <img src="Z:/picture/008/save_picture_788315.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ SanDisk SSD Dashboard 3.4.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788312.jpg" />
+  <img src="Z:/picture/008/save_picture_788312.jpg" />
 </div>
 
 

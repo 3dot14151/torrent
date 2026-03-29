@@ -6,7 +6,7 @@ Vivaldi 1.9.818.44 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704720.jpg" />
+  <img src="Z:/picture/008/save_picture_704720.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CoolUtils Total Image Converter 7.1.1.150 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704717.jpg" />
+  <img src="Z:/picture/008/save_picture_704717.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ USDownloader 1.3.5.9 Portable (07.05.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704707.jpg" />
+  <img src="Z:/picture/008/save_picture_704707.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avast Clear 17.4.3482.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704701.jpg" />
+  <img src="Z:/picture/008/save_picture_704701.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ uTorrent 3.5.5 Build 45146 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704699.jpg" />
+  <img src="Z:/picture/008/save_picture_704699.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WindowsPlayer 3.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704666.jpg" />
+  <img src="Z:/picture/008/save_picture_704666.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GPU-Z 1.20.0 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704600.jpg" />
+  <img src="Z:/picture/008/save_picture_704600.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kaspersky Lab Products Remover 1.0.1246 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704530.jpg" />
+  <img src="Z:/picture/008/save_picture_704530.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Maxthon Browser 5.2.1.5000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704500.jpg" />
+  <img src="Z:/picture/008/save_picture_704500.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704420.jpg" />
+  <img src="Z:/picture/008/save_picture_704420.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ USDownloader 1.3.5.9 Portable (17.04.2018) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704321.jpg" />
+  <img src="Z:/picture/008/save_picture_704321.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Coolmuster Android Assistant 4.2.63 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704211.jpg" />
+  <img src="Z:/picture/008/save_picture_704211.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Krita 4.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704208.jpg" />
+  <img src="Z:/picture/008/save_picture_704208.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MyDraw 2.2.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704200.jpg" />
+  <img src="Z:/picture/008/save_picture_704200.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Readiris Corporate 16.0.2 Build 11398 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704194.jpg" />
+  <img src="Z:/picture/008/save_picture_704194.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Registry Life 3.29 DC 15.06.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704155.jpg" />
+  <img src="Z:/picture/008/save_picture_704155.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ W10Privacy 3.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704105.jpg" />
+  <img src="Z:/picture/008/save_picture_704105.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Free Studio 6.6.21.610 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704064.jpg" />
+  <img src="Z:/picture/008/save_picture_704064.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ K-Lite Codec Pack Update 12.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704063.jpg" />
+  <img src="Z:/picture/008/save_picture_704063.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Reg Organizer 8.11 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703975.jpg" />
+  <img src="Z:/picture/008/save_picture_703975.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Download Master 6.9.1.1517 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703965.jpg" />
+  <img src="Z:/picture/008/save_picture_703965.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ZD Soft Screen Recorder 9.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703964.jpg" />
+  <img src="Z:/picture/008/save_picture_703964.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wise Folder Hider Free 3.35.144 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703950.jpg" />
+  <img src="Z:/picture/008/save_picture_703950.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ WinUtilities Professional Edition 13.0 Portable by FCPortables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703949.jpg" />
+  <img src="Z:/picture/008/save_picture_703949.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ SiSoftware Sandra Pro Home/Business/Engineer Standard/Enterprise 2010.7.16.52 (S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703917.jpg" />
+  <img src="Z:/picture/005/save_picture_703917.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Bandicam 4.1.3.1400 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703877.jpg" />
+  <img src="Z:/picture/008/save_picture_703877.jpg" />
 </div>
 
 

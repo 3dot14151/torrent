@@ -1,3 +1,55 @@
+###  Публикация: 479412   (87009) от 07.04.2012
+
+Witchaven [En] (RePack) 1995 | Pilotus
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально эта игра позиционировалась как экшн от первого лица  с легкими ролевыми моментами. Моменты, стоит отметить, не просто легкие, а скорее невесомые. Герой, этакий средневековый охотник на ведьм, а быть может - наоборот, ведьмак, промышляет тем, что рубит нечисть. Есть такая работа - нечисть рубить.Тип издания: RePackЖанр: Экшен от первого лица (фэнтази)Язык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479832   (86985) от 07.04.2012
+
+Morpheus [Ru] (P) 1998
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - полярный исследователь, Мэтью Холмс-младший. Ваш отец потерялся во льдах много лет назад. И вот вы, так же, как он когда-то, обнаруживаете среди льдов Арктики судно, именуемое Геркуланией. Загадочное, безжизненное на первый взгляд, оно чем то притягивает вас. Вы просто не можете уйти, не поняв его загадку, не раскрыв тайну многих людей, населявших это судно. Да и чем черт не шутит, может быть найдете какую-либо информацию об отце.Тип издания: ПираткаЖанр: КвестЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479445   (86971) от 07.04.2012
 
 Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
@@ -6,7 +58,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86971.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86947.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86630.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Tomb Raider 4: The Last Revelation [En] (L) 1999
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86616.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86398.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85785.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84202.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84192.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84177.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83515.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82764.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82170.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81919.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81893.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81511.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81482.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81445.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80890.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79698.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65800.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Questron II (1988) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65796.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65795.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804456   (65664) от 29.06.2025
-
-Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игрок врывается в жизнь бывшего частного детектива Текса Мёрфи. На дворе 2042 год, последствия Третьей мировой войны, полуразрушенный город Сан-Франциско, радиация, мутанты, бомжи и мертвенно-бледная луна. Жизнь частного детектива мало похожа на жизнь счастливого человека: любовь отвернулась от нашего героя, работы нет, а бурбон стал его единственным другом. И, как (   Читать дальше...   )Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804412   (65662) от 29.06.2025
-
-Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш герой – канонический частный сыщик сороковых годов XXI века – в бизнесе добрый десяток лет. Из окна его конторы открывается вид на Чандлер Авеню, на облике которой, как и на всём Сан-Франциско, сказалась минувшая война, по улицам ходят как обычные люди, так и мутанты, обезображенные радиацией. Но от этого дел у рядового частного детектива становится не меньше.Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
 ```
 
 https://mybot314.ru/tekegram_catalog/

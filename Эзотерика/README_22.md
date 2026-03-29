@@ -1,3 +1,29 @@
+###  Публикация: 955087   (337342) от 09.11.2015
+
+Андрей Васильченко | Стоунхендж Третьего рейха (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В северной части Тевтобургского леса, окутанного германскими легендами и преданиями, находится группа скал, известная миру как Экстернштайн. Были ли эти скалы языческой святыней, которая перешла в ведение христиан? Или же культовые сооружения в них были созданы во времена Средневековья монахами, которые впервые приложили руку к обработке песчаника, создав в скалах (   Читать дальше...   )Жанр: ЭзотерикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0765D285292F1F3C28EC9CCB127A0CA4C547FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 839485   (337087) от 11.11.2014
 
 Владислав Радов | Как продлить Ваше внетелесное путешествие на 2 часа (2014) [PDF, DOCX, FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337087.jpg" />
+  <img src="Z:/picture/008/save_picture_337087.jpg" />
 </div>
 
 
@@ -36,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335496.jpg" />
+  <img src="Z:/picture/008/save_picture_335496.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335081.jpg" />
+  <img src="Z:/picture/008/save_picture_335081.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334034.jpg" />
+  <img src="Z:/picture/008/save_picture_334034.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333478.jpg" />
+  <img src="Z:/picture/008/save_picture_333478.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332364.jpg" />
+  <img src="Z:/picture/008/save_picture_332364.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332291.jpg" />
+  <img src="Z:/picture/008/save_picture_332291.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331143.jpg" />
+  <img src="Z:/picture/008/save_picture_331143.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329255.jpg" />
+  <img src="Z:/picture/008/save_picture_329255.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327433.jpg" />
+  <img src="Z:/picture/008/save_picture_327433.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320259.jpg" />
+  <img src="Z:/picture/008/save_picture_320259.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318645.jpg" />
+  <img src="Z:/picture/008/save_picture_318645.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316592.jpg" />
+  <img src="Z:/picture/008/save_picture_316592.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315674.jpg" />
+  <img src="Z:/picture/008/save_picture_315674.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309636.jpg" />
+  <img src="Z:/picture/008/save_picture_309636.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309354.jpg" />
+  <img src="Z:/picture/008/save_picture_309354.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305206.jpg" />
+  <img src="Z:/picture/008/save_picture_305206.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305042.jpg" />
+  <img src="Z:/picture/008/save_picture_305042.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304850.jpg" />
+  <img src="Z:/picture/008/save_picture_304850.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303242.jpg" />
+  <img src="Z:/picture/008/save_picture_303242.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298891.jpg" />
+  <img src="Z:/picture/008/save_picture_298891.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298707.jpg" />
+  <img src="Z:/picture/008/save_picture_298707.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298627.jpg" />
+  <img src="Z:/picture/008/save_picture_298627.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296871.jpg" />
+  <img src="Z:/picture/008/save_picture_296871.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294489.jpg" />
+  <img src="Z:/picture/008/save_picture_294489.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7744518697D60A9273A8EBEF3F2F724E67C17BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962505   (292968) от 05.12.2015
-
-Ольга Смурова | Большая книга предсказаний (2003) [PDF, DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря этой книге читатели смогут узнать о таких фактах из истории человеческой цивилизации, которые до сих пор ставят в тупик многих исследователей, проникнуть в тайны происхождения загадочного числа 666, скрижалей Моисея, а также прояснить для себя некоторые странные аспекты предсказаний Мишеля Нострадамуса, на которые многие не обратили внимания.
-К книге прилагается (   Читать дальше...   )Жанр: ГаданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F45C384B6350FE94E82036ECE372EEFA1A828CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

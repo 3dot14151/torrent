@@ -6,7 +6,7 @@ Fable: The Journey [Xbox360] [Kinect] [ENG] [Region Free] [LT+ 2.0] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445443.jpg" />
+  <img src="Z:/picture/008/save_picture_445443.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Legends of Pegasus [Ru/En] (RePack/1.0.0.4115) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445433.jpg" />
+  <img src="Z:/picture/008/save_picture_445433.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445411.jpg" />
+  <img src="Z:/picture/008/save_picture_445411.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Dragon's Dogma [PS3] [ENG] [PAL] [3.55 Kmeaw] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445324.jpg" />
+  <img src="Z:/picture/008/save_picture_445324.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Castle Crashers [En] (P) 2012 l FANiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445322.jpg" />
+  <img src="Z:/picture/008/save_picture_445322.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Elemental: War of Magic / Elemental: Войны магов [Ru] (P) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443197.jpg" />
+  <img src="Z:/picture/005/save_picture_443197.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442222.jpg" />
+  <img src="Z:/picture/008/save_picture_442222.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru/Multi] (1.07) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441804.jpg" />
+  <img src="Z:/picture/008/save_picture_441804.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Torchlight II [En] (Lossless Repack/1.9.5.1) 2012 | kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441090.jpg" />
+  <img src="Z:/picture/008/save_picture_441090.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Castle Crashers [En] (RePack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440328.jpg" />
+  <img src="Z:/picture/008/save_picture_440328.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ CheMax Rus (2013) [Ru] (13.8) Cheats
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440112.jpg" />
+  <img src="Z:/picture/008/save_picture_440112.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ UnderTale (2015) [En] (1.0.0) Repack ARMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439395.jpg" />
+  <img src="Z:/picture/008/save_picture_439395.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.1.7.2/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439154.jpg" />
+  <img src="Z:/picture/008/save_picture_439154.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ F1 2012 [Ru/En] (RePack/1.1.0.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438388.jpg" />
+  <img src="Z:/picture/008/save_picture_438388.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ F1 2012 [Ru] (RePack/1.1.0.0) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438163.jpg" />
+  <img src="Z:/picture/008/save_picture_438163.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Fifa 13 [Pal] [Eng] (2012) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437990.jpg" />
+  <img src="Z:/picture/008/save_picture_437990.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Hitman Ultimate Collection [Ru/En] (RePack) 2000-2012 l R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437795.jpg" />
+  <img src="Z:/picture/008/save_picture_437795.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (Update 2) Steam-Rip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437766.jpg" />
+  <img src="Z:/picture/008/save_picture_437766.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Jotun (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437318.jpg" />
+  <img src="Z:/picture/008/save_picture_437318.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Crash Time 5: Undercover [En] (RePack) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436135.jpg" />
+  <img src="Z:/picture/008/save_picture_436135.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Warlock: Master Of The Arcane + 4 DLC [Ru/En] (Repack/1.3.0.46) 2012 | R.G. Reve
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435862.jpg" />
+  <img src="Z:/picture/008/save_picture_435862.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (1.8.0.20) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434924.jpg" />
+  <img src="Z:/picture/008/save_picture_434924.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434201.jpg" />
+  <img src="Z:/picture/005/save_picture_434201.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434134.jpg" />
+  <img src="Z:/picture/005/save_picture_434134.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434104.jpg" />
+  <img src="Z:/picture/005/save_picture_434104.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Fantasy General II - Invasion General Edition (2019) [Multi] (01.02.11096/dlc) L
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433277.jpg" />
+  <img src="Z:/picture/008/save_picture_433277.jpg" />
 </div>
 
 

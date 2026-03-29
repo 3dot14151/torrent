@@ -1,3 +1,82 @@
+###  Публикация: 1183929   (305548) от 15.11.2017
+
+Преподобный Симеон Новый Богослов | Творения преподобного Симеона Нового Богослова. Слова и гимны [3 книги] (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305548.jpg" />
+</div>
+
+
+###  Подробнее
+
+В истории христианства третьим духовным писателем, к имени которого придано поименование Богослов, является преподобный Симеон Новый Богослов. Святой отец поучениями устными, а позднее и письменными проповедовал свой личный опыт сокровенного общения с Господом.
+       Русские православные люди познакомились с творениями Симеона Нового Богослова благодаря переводческим трудам (   Читать дальше...   )Жанр: ПравославиеПеревод: Святитель Феофан Затворник ВышенскийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDD4AB11CB91DC0A89CF3F8646A4D0F73DB4027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183875   (305533) от 15.11.2017
+
+И. В. Попов | Труды по патрологии [2 книги] (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: Православие, патрологияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5334F0E39C164BE096ED0AE4D5197CF2166F8869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894329   (305307) от 29.11.2015
+
+Св. Фома Аквинский | Сумма теологии [V Томов] (2006 - 2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сумма теологии` (Summa Theologica) - одно из самых знаменитых в истории философии произведений, главный труд великого христианского философа и богослова, крупнейшего схоласта и метафизика святого Фомы Аквинского (1225-1274), чья теология - по меткому определению Жильсона - это теология философа, а философия - философия христианского святого. Вся `Сумма...` состоит (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84E3ECFF5611A140B58D62BA2D4B8B01BD7B907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422973   (304277) от 11.11.2020
 
 Н.С. Посадский (сост.) | Участь человека после смерти по учению Церкви (2016) [FB2, EPUB]
@@ -6,7 +85,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304277.jpg" />
+  <img src="Z:/picture/008/save_picture_304277.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303527.jpg" />
+  <img src="Z:/picture/008/save_picture_303527.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303523.jpg" />
+  <img src="Z:/picture/008/save_picture_303523.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303480.jpg" />
+  <img src="Z:/picture/008/save_picture_303480.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303432.jpg" />
+  <img src="Z:/picture/008/save_picture_303432.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303412.jpg" />
+  <img src="Z:/picture/008/save_picture_303412.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303262.jpg" />
+  <img src="Z:/picture/008/save_picture_303262.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303257.jpg" />
+  <img src="Z:/picture/008/save_picture_303257.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302386.jpg" />
+  <img src="Z:/picture/008/save_picture_302386.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301499.jpg" />
+  <img src="Z:/picture/008/save_picture_301499.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301494.jpg" />
+  <img src="Z:/picture/008/save_picture_301494.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301413.jpg" />
+  <img src="Z:/picture/008/save_picture_301413.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301379.jpg" />
+  <img src="Z:/picture/008/save_picture_301379.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301367.jpg" />
+  <img src="Z:/picture/008/save_picture_301367.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301363.jpg" />
+  <img src="Z:/picture/008/save_picture_301363.jpg" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301339.jpg" />
+  <img src="Z:/picture/008/save_picture_301339.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301334.jpg" />
+  <img src="Z:/picture/008/save_picture_301334.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301070.jpg" />
+  <img src="Z:/picture/008/save_picture_301070.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299694.jpg" />
+  <img src="Z:/picture/008/save_picture_299694.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298848.jpg" />
+  <img src="Z:/picture/008/save_picture_298848.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298585.jpg" />
+  <img src="Z:/picture/008/save_picture_298585.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298132.jpg" />
+  <img src="Z:/picture/008/save_picture_298132.jpg" />
 </div>
 
 
@@ -590,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297963.jpg" />
+  <img src="Z:/picture/008/save_picture_297963.jpg" />
 </div>
 
 
@@ -601,90 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E087D92EB2A91922C7F644937E2C05580FB24071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962180   (296976) от 03.12.2015
-
-Евгений Алексеевич Торчинов | Введение в буддологию: курс лекций (2000) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой курс лекций известного петербургского востоковеда, выдающегося синолога Е. А. Торчинова, прочитанный им в 1994 — 1999 годах на философском факультете СПбГУ.
-
-В лекциях рассматриваются проблемы происхождения, формирования и развития буддизма, школы и направления религиозно-философской буддийской мысли, распространение буддизма в Тибете (   Читать дальше...   )Жанр: Религоведение, буддологияФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2E8128FA1211CE11CB28007DA04FB5424E3EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262179   (296966) от 14.11.2018
-
-Ив Аман | Отец Александр Мень. Христов свидетель в наше время (2000) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296966.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ив Аман начал писать свою книгу сразу после смерти о. Александра Меня. С тех пор прошло почти десять лет и, как это ни странно, книга эта, уже переведенная на русский, итальянский, английский и немецкий языки, ни коим образом не устарела, хотя за эти годы появилось множество публикаций: прежде всего неизданных текстов самого о.Александра, но и мемуарных.
-
-Ив (   Читать дальше...   )Жанр: БиографияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56536183DE3B01D89F763898D4BDC34A12BC296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334412   (296744) от 28.10.2019
-
-Архимандрит Савва (Мажуко) | Духовные упражнения (2019) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296744.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Духовные упражнения» — новая книга архимандрита Саввы (Мажуко), в которой автор делится своими смелыми размышлениями, предлагая читателю новый, неожиданный взгляд на духовную жизнь и прежний, полюбившийся читателям стиль: немного философии, немного юмора и много доброты.
-
-По признанию архимандрита Саввы, его книга — «диалог» между «юношей» и «старичком». На страницах (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CC2475D309B4B5BDD67F45858F2789E9064506
 ```
 
 https://mybot314.ru/tekegram_catalog/

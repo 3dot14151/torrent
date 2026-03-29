@@ -1,3 +1,142 @@
+###  Публикация: 1076212   (315771) от 24.11.2016
+
+Sketches Pro 2.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные инструменты — залог превосходных рисунков, поэтому мы создали приложение Sketches с еще более широким набором реалистичных инструментов.
+С удивительным набором инструментов и современным пользовательским интерфейсом  Sketches  является наиболее универсальным и удобным приложением для  создания рисунков.
+
+• Возможности(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 ноября 2016Разработчик: TayasuПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDDCB5ECA4212FF2A59964795A5EC9C85E3A309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332129   (315610) от 19.10.2019
+
+Adobe After Effects CC 2019 v16.1.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315610.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F417B7F59A04FB459D4C4282D80965EC4D05AA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182545   (315101) от 11.11.2017
+
+Invisible 2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Invisible - надежная и ориентированная на пользователя утилита, которая позволяет защитить паролем ваши данные и скрыть свои личные данные с помощью нескольких щелчков мыши
+
+Invisible является простым в использовании и очень интуитивным  инструментом, который предоставляет своим пользователям самый простой способ, чтобы скрыть и защитить свои личные данные от посторонних (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 ноября 2017Разработчик: SweetP ProductionsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F6E5A258D366E4AA2E60119A1D9E1C370A5CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421828   (315068) от 06.11.2020
+
+Coda 2 v2.7.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор для веб-разработчиков. Сделайте свой код красивым вместе с Coda!
+Текстовый редактор, передача файлов, SVN, CSS-редактор, терминал, доступ к книгам по разработке и многое другое. Всего насчитывается порядка ста функций, например, встроенный редактор MySQL, живые подсказки кода, в CSS редактор встроены всплывающие палитры цветов и внедрен режим просмотра результата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: Panic, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27F5E8A2660392087CFB3F0D325953C5C8AD7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182679   (314995) от 11.11.2017
+
+Web2App 2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314995.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Web2App вы можете превратить ваши любимые веб-сайты и Интернет-услуг в реальные настольные приложения.
+Просто введите URL-адрес, название приложения и ваш сайт станет реальным приложением рабочего стола, который отображается в Dock или меню баре. Вы можете использовать настольный компьютер или мобильную версию сайта.
+
+Прекратите тратить деньги на приложения, которые (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09.11.2017Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6912100E3F2C2A764A24E0CC4179CF839892108D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583346   (314986) от 01.12.2012
 
 Coda 2.0.6 [Eng]
@@ -6,7 +145,7 @@ Coda 2.0.6 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_314986.jpg" />
+  <img src="Z:/picture/005/save_picture_314986.jpg" />
 </div>
 
 
@@ -36,7 +175,7 @@ EyeTV 3.6.9 (7521) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314624.jpg" />
+  <img src="Z:/picture/008/save_picture_314624.jpg" />
 </div>
 
 
@@ -64,7 +203,7 @@ PrimoMusic Pro 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314455.jpg" />
+  <img src="Z:/picture/008/save_picture_314455.jpg" />
 </div>
 
 
@@ -90,7 +229,7 @@ Sync Checker 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314446.jpg" />
+  <img src="Z:/picture/008/save_picture_314446.jpg" />
 </div>
 
 
@@ -116,7 +255,7 @@ Trash X 1.9.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314346.jpg" />
+  <img src="Z:/picture/008/save_picture_314346.jpg" />
 </div>
 
 
@@ -142,7 +281,7 @@ Fenetre 0.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314329.jpg" />
+  <img src="Z:/picture/008/save_picture_314329.jpg" />
 </div>
 
 
@@ -171,7 +310,7 @@ Fantastical 2.5.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314298.jpg" />
+  <img src="Z:/picture/008/save_picture_314298.jpg" />
 </div>
 
 
@@ -199,7 +338,7 @@ Mirror for Smart TV apps by AirBeamTV v2.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314242.jpg" />
+  <img src="Z:/picture/008/save_picture_314242.jpg" />
 </div>
 
 
@@ -227,7 +366,7 @@ Movavi Video Converter 8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314078.jpg" />
+  <img src="Z:/picture/008/save_picture_314078.jpg" />
 </div>
 
 
@@ -253,7 +392,7 @@ Cisdem PDF to Word Converter 7.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313982.jpg" />
+  <img src="Z:/picture/008/save_picture_313982.jpg" />
 </div>
 
 
@@ -279,7 +418,7 @@ Habitify: Habit Tracker 6.0 (3001) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313886.jpg" />
+  <img src="Z:/picture/008/save_picture_313886.jpg" />
 </div>
 
 
@@ -306,7 +445,7 @@ iSkysoft iMedia Converter 2.0.7 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312916.jpg" />
+  <img src="Z:/picture/008/save_picture_312916.jpg" />
 </div>
 
 
@@ -332,7 +471,7 @@ Adobe Acrobat X Pro [En, Fr, De]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312800.jpg" />
+  <img src="Z:/picture/008/save_picture_312800.jpg" />
 </div>
 
 
@@ -358,7 +497,7 @@ Delicious Library 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312477.jpg" />
+  <img src="Z:/picture/008/save_picture_312477.jpg" />
 </div>
 
 
@@ -384,7 +523,7 @@ Submerge 3.4.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312338.jpg" />
+  <img src="Z:/picture/008/save_picture_312338.jpg" />
 </div>
 
 
@@ -410,7 +549,7 @@ PhoneRescue 3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312205.jpg" />
+  <img src="Z:/picture/008/save_picture_312205.jpg" />
 </div>
 
 
@@ -436,7 +575,7 @@ Lights Out 3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311816.jpg" />
+  <img src="Z:/picture/008/save_picture_311816.jpg" />
 </div>
 
 
@@ -462,7 +601,7 @@ DiskTools Pro 3.8.3 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_311768.jpg" />
+  <img src="Z:/picture/005/save_picture_311768.jpg" />
 </div>
 
 
@@ -497,7 +636,7 @@ GarageBand 10.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311473.jpg" />
+  <img src="Z:/picture/008/save_picture_311473.jpg" />
 </div>
 
 
@@ -523,7 +662,7 @@ Apple iWork Pages 6.3.1, Numbers 4.3.1, Keynote 7.3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311291.jpg" />
+  <img src="Z:/picture/008/save_picture_311291.jpg" />
 </div>
 
 
@@ -549,7 +688,7 @@ CursorSense 1.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310830.jpg" />
+  <img src="Z:/picture/008/save_picture_310830.jpg" />
 </div>
 
 
@@ -562,145 +701,6 @@ CursorSense - приложение, позволяющее регулирова�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99C34021714A0E08AACB36F4A674D968BA9EB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182625   (309796) от 13.11.2017
-
-Tyme 2 v1.9.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантное и простое решение отслеживания времени для фрилансеров
-Tyme это простое в использовании приложение для отслеживания времени для фрилансеров, небольших компаний и тех, кто хочет сохранить обзор своего рабочего времени.
-
-С Tyme вы сможете увидеть разложенный на уровни весь процесс работы над проектами и тем самым, контролировать все сроки и бюджет.Тип издания: OS X SoftwareРелиз состоялся: 09 ноября 2017Разработчик: Lars GerckensПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459DEFFA00A900855DD9F326C8026C71645E7EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077155   (308886) от 27.11.2016
-
-Capture Gif 1.4.4 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запишите видео с экрана в виде анимированного GIF
-С Capture Gif вы можете легко записать весь экран или только область в качестве анимированного GIF изображения. Capture Gif имеет поддержку нескольких дисплеев, поддерживает Retina дисплеи и всегда создает четкие изображения в формате GIF.
-
-При желании можно захватить курсор мыши, можно записывать область в любом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 ноября 2016Разработчик: PixelEggПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEFFFDD56DB42E8A4A6F457F9E0EA6AB7B3B093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183628   (307775) от 14.11.2017
-
-Forecast Bar - Weather and Radar 3.0.4 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню.
-
-С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.Тип издания: macOS SoftwareРелиз состоялся: 13 ноября 2017Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82706FD88BB7C58AD81ACB328EE608D6A7E3040A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333047   (307651) от 23.10.2019
-
-SSH Config Editor Pro 1.11.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: Petr HejkalПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4097A46D49257EAE577B5815562525EE9DB0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183498   (307511) от 14.11.2017
-
-AnyToISO Pro 3.8.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачали образ CD/DVD или архив в неизвестном формате? Теперь нет нужды искать и покупать дорогое коммерческое ПО, которое работает с этим форматом: одна утилита AnyToISO поддерживает все форматы, включая 7Z, BIN, DAA, DEB, DMG, IMG, ISO, ISZ, MDF, NRG, PKG, RAR, TAR.GZ, TAR.BZ2, XAR, ZIP и др. AnyToISO - cамая универсальная утилита создания ISO из оптических дисков, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2017Разработчик: CrystalIdea SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348C81C6ADBCEE982262BD59619A7EF9AAC99712
 ```
 
 https://mybot314.ru/tekegram_catalog/

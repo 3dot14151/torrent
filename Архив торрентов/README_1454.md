@@ -6,7 +6,7 @@ Viber 8.6.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723021.jpg" />
+  <img src="Z:/picture/008/save_picture_723021.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723003.jpg" />
+  <img src="Z:/picture/005/save_picture_723003.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ JRiver Media Center 26.0.103 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722960.jpg" />
+  <img src="Z:/picture/008/save_picture_722960.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722958.jpg" />
+  <img src="Z:/picture/008/save_picture_722958.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BurnAware Professional 13.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722957.jpg" />
+  <img src="Z:/picture/008/save_picture_722957.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ XMedia Recode 3.5.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722956.jpg" />
+  <img src="Z:/picture/008/save_picture_722956.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Gemini 2: The Duplicate Finder 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722950.jpg" />
+  <img src="Z:/picture/008/save_picture_722950.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Apeaksoft Data Recovery for Mac 1.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722942.jpg" />
+  <img src="Z:/picture/008/save_picture_722942.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Adobe After Effects CC 2018 v15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722929.jpg" />
+  <img src="Z:/picture/008/save_picture_722929.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ War for the Overworld (2015) [Ru/Multi] (1.0.25) Repack R.G. Механики [U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722918.jpg" />
+  <img src="Z:/picture/008/save_picture_722918.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722876.jpg" />
+  <img src="Z:/picture/008/save_picture_722876.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722875.jpg" />
+  <img src="Z:/picture/008/save_picture_722875.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ FSNotes 2.9.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722872.jpg" />
+  <img src="Z:/picture/008/save_picture_722872.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722871.jpg" />
+  <img src="Z:/picture/008/save_picture_722871.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722870.jpg" />
+  <img src="Z:/picture/008/save_picture_722870.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722869.jpg" />
+  <img src="Z:/picture/008/save_picture_722869.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722868.jpg" />
+  <img src="Z:/picture/008/save_picture_722868.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ TweakPower 1.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722863.jpg" />
+  <img src="Z:/picture/008/save_picture_722863.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722846.jpg" />
+  <img src="Z:/picture/008/save_picture_722846.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722835.jpg" />
+  <img src="Z:/picture/008/save_picture_722835.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ SiteSucker 4.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722796.jpg" />
+  <img src="Z:/picture/008/save_picture_722796.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Music Converter Pro 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722795.jpg" />
+  <img src="Z:/picture/008/save_picture_722795.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ GoodNotes 5 v5.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722790.jpg" />
+  <img src="Z:/picture/008/save_picture_722790.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722788.jpg" />
+  <img src="Z:/picture/008/save_picture_722788.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Smooze Pro 2.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722785.jpg" />
+  <img src="Z:/picture/008/save_picture_722785.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Find Any File (FAF) 2.3.3b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722784.jpg" />
+  <img src="Z:/picture/008/save_picture_722784.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Microsoft Edge 98.0.1108.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718661.jpg" />
+  <img src="Z:/picture/008/save_picture_718661.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BandLab - Cakewalk 2022.02 (Build 029) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718659.jpg" />
+  <img src="Z:/picture/008/save_picture_718659.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718650.jpg" />
+  <img src="Z:/picture/008/save_picture_718650.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kodachi Linux [анонимный доступ в сети] 7.2 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718643.jpg" />
+  <img src="Z:/picture/008/save_picture_718643.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ LibreOffice 7.0.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718633.jpg" />
+  <img src="Z:/picture/008/save_picture_718633.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VueScan Pro 9.5.75 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718630.jpg" />
+  <img src="Z:/picture/008/save_picture_718630.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Physical Dreams - Dreams Trance Vol.2 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718618.jpg" />
+  <img src="Z:/picture/008/save_picture_718618.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ TeamViewer Free 14.1.18533 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718581.jpg" />
+  <img src="Z:/picture/008/save_picture_718581.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Hands Off! 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718578.jpg" />
+  <img src="Z:/picture/008/save_picture_718578.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WinRAR 5.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718571.jpg" />
+  <img src="Z:/picture/008/save_picture_718571.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinRAR 5.70 Final RePack by ivandubskoj [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718568.jpg" />
+  <img src="Z:/picture/008/save_picture_718568.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Firefox Browser 97.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718565.jpg" />
+  <img src="Z:/picture/008/save_picture_718565.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wondershare UniConverter 13.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718559.jpg" />
+  <img src="Z:/picture/008/save_picture_718559.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VueScan Pro 9.7.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718558.jpg" />
+  <img src="Z:/picture/008/save_picture_718558.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Opera 84.0.4316.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718557.jpg" />
+  <img src="Z:/picture/008/save_picture_718557.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Overloud TH-U Premium 1.4.8 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718550.jpg" />
+  <img src="Z:/picture/008/save_picture_718550.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dollar - The Dollar Album (1982) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Syn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718531.jpg" />
+  <img src="Z:/picture/008/save_picture_718531.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ SMPlayer 17.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718525.jpg" />
+  <img src="Z:/picture/008/save_picture_718525.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718519.jpg" />
+  <img src="Z:/picture/008/save_picture_718519.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718504.jpg" />
+  <img src="Z:/picture/008/save_picture_718504.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718480.jpg" />
+  <img src="Z:/picture/008/save_picture_718480.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PC Cleaner Pro 9.0.0.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718459.jpg" />
+  <img src="Z:/picture/008/save_picture_718459.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Glary Utilities Pro 5.182.0.211 [DC 17.02.2022] RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718457.jpg" />
+  <img src="Z:/picture/008/save_picture_718457.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Paint.NET 4.3.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718455.jpg" />
+  <img src="Z:/picture/008/save_picture_718455.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ CCleaner 5.90.9443 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718453.jpg" />
+  <img src="Z:/picture/008/save_picture_718453.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ CCleaner 5.90.9443  Professional / Business / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718452.jpg" />
+  <img src="Z:/picture/008/save_picture_718452.jpg" />
 </div>
 
 

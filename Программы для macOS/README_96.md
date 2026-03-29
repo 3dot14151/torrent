@@ -1,3 +1,135 @@
+###  Публикация: 1251374   (417596) от 01.10.2018
+
+Wondershare TunesGo 9.7.2.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare TunesGo - надежная и удобная в работе программа с интуитивно понятным пользовательским интерфейсом, которая была создана, чтобы дать вам все необходимые инструменты для управления содержимом в ваших iOS и Android устройствах. Теперь в едином интерфейсе, можно вести управление девайсами и выполнять большое количество операций.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Wondershare Technology Corp.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, французский, испанский, немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F02AD4F1A5059A3301670DF8ECE65D9873D0629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572936   (417261) от 29.08.2022
+
+Brightly Pro 2.1.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Brightly Pro разработано для macOS Monterey с интуитивно понятным интерфейсом, в котором есть все функции редактирования фотографий, какие вы ожидаете, чтобы показать ваши фотографии и видео в лучшем свете, и изначально работает на компьютерах Mac с процессором Apple M1. Поднимите редактирование на новый уровень с помощью обязательных профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2022 Code Organa LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D86F37783E1C90CD02649BBCE893F5B7DD0753C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572976   (417259) от 29.08.2022
+
+Metadata Converter Pro for Mac 1.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metadata Converter - это интуитивно понятный редактор метаданных пакетных фотографий, средство просмотра и переименования. Исправьте теги метаданных EXIF ​​/ IPTC / XMP в ваших фотографиях: поместите координаты GPS, удалите личную информацию с ваших фотографий, исправьте или установите даты съемки, добавьте свои собственные авторские права и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2022Разработчик: © 2022 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78638DE9A1692F2F38D145F1E11295E733CC708A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573067   (417258) от 29.08.2022
+
+Filmage Editor 1.3.4 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное и простое в использовании программное обеспечение для редактирования видео, которое  вдохновит всех. Filmage Editor включает в себя все расширенные и базовые функции, позволяющие создавать и редактировать видео за считанные минуты, даже если вы новичок в этом. Используйте все возможности редактирования и поделитесь ими с кем угодно в мире. Дайте своим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.08.2022Разработчик: © 2019-2022 Filmage Pro Team, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA05CA09ACD92A118AB0279DEE3DA2E9BF8DDAEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573023   (417257) от 29.08.2022
+
+Synalyze It! Pro 1.26 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synalyze It! Pro - это удобный Hex-редактор.
+Synalyze It! Pro – это инновационное приложение, которое позволит вам легко редактировать и анализировать двоичные файлы любого размера.
+Особенностью Synalyze It! является расширенная поддержка большого числа символьных кодировок, что позволит вам в интерактивном режиме определять грамматики для различных форматов файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © 2010-2019 SynalysisПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB0F9ED9C600CDC44524641951467139DE7EB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573009   (417254) от 29.08.2022
 
 PDF Plus - Merge & Split PDFs 1.3.2 [En]
@@ -6,7 +138,7 @@ PDF Plus - Merge & Split PDFs 1.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417254.jpg" />
+  <img src="Z:/picture/008/save_picture_417254.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Hyperkey 0.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417251.jpg" />
+  <img src="Z:/picture/008/save_picture_417251.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ Music Converter Pro 1.6.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417120.jpg" />
+  <img src="Z:/picture/008/save_picture_417120.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Contexts 3.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417118.jpg" />
+  <img src="Z:/picture/008/save_picture_417118.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ Deflection Pro 6.5.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417104.jpg" />
+  <img src="Z:/picture/008/save_picture_417104.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ Smart Player Premium 1.1.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417097.jpg" />
+  <img src="Z:/picture/008/save_picture_417097.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ Forecast Bar 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417041.jpg" />
+  <img src="Z:/picture/008/save_picture_417041.jpg" />
 </div>
 
 
@@ -194,7 +326,7 @@ Author 8.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416896.jpg" />
+  <img src="Z:/picture/008/save_picture_416896.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ StatusDuck 0.82 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416855.jpg" />
+  <img src="Z:/picture/008/save_picture_416855.jpg" />
 </div>
 
 
@@ -250,7 +382,7 @@ iLife '11 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_416759.jpg" />
+  <img src="Z:/picture/005/save_picture_416759.jpg" />
 </div>
 
 
@@ -278,7 +410,7 @@ FruitJuice - Active Battery Health and Monitoring 2.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416682.jpg" />
+  <img src="Z:/picture/008/save_picture_416682.jpg" />
 </div>
 
 
@@ -305,7 +437,7 @@ Clearview 2.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416555.jpg" />
+  <img src="Z:/picture/008/save_picture_416555.jpg" />
 </div>
 
 
@@ -332,7 +464,7 @@ WinZip Mac Pro 10 v.10.6.6200 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416493.jpg" />
+  <img src="Z:/picture/008/save_picture_416493.jpg" />
 </div>
 
 
@@ -359,7 +491,7 @@ ExLibris 10.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416183.jpg" />
+  <img src="Z:/picture/008/save_picture_416183.jpg" />
 </div>
 
 
@@ -388,7 +520,7 @@ Toast Titanium 15.1 (4486) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416005.jpg" />
+  <img src="Z:/picture/008/save_picture_416005.jpg" />
 </div>
 
 
@@ -414,7 +546,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom 3.5.2.3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415907.jpg" />
+  <img src="Z:/picture/008/save_picture_415907.jpg" />
 </div>
 
 
@@ -440,7 +572,7 @@ NetNewsWire 4.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415851.jpg" />
+  <img src="Z:/picture/008/save_picture_415851.jpg" />
 </div>
 
 
@@ -467,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415600.jpg" />
+  <img src="Z:/picture/008/save_picture_415600.jpg" />
 </div>
 
 
@@ -493,7 +625,7 @@ JetBrains AppCode 2020.2.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415571.jpg" />
+  <img src="Z:/picture/008/save_picture_415571.jpg" />
 </div>
 
 
@@ -519,7 +651,7 @@ iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415390.jpg" />
+  <img src="Z:/picture/008/save_picture_415390.jpg" />
 </div>
 
 
@@ -546,7 +678,7 @@ Notefile 2.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415095.jpg" />
+  <img src="Z:/picture/008/save_picture_415095.jpg" />
 </div>
 
 
@@ -557,136 +689,6 @@ Notefile позволяет быстро делать заметки и синх
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19196935910C8C436807C354E52A22D4DE12B4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573220   (415055) от 30.08.2022
-
-FiveNotes 2.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415055.jpg" />
-</div>
-
-
-###  Подробнее
-
-FiveNotes (ранее известный как Quick) — это небольшой текстовый редактор, к которому вы всегда можете получить доступ, щелкнув (или нажав клавиши быстрого доступа) на его значке в меню баре, даже если вы работаете в полноэкранном приложении. Если вы предпочитаете, он может оставаться поверх окна, чтобы его можно было использовать в качестве шпаргалки. FiveNotes предлагает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2022Разработчик: © 2017-2022 ApptoriumПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8D4FB7483E969653DA70FCA27D282D3458B392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573208   (414915) от 30.08.2022
-
-QuickLinks 2.9 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414915.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuickLinks - это приложение для создания пользовательских сочетаний клавиш. Можно создать ярлык для любого любимого или регулярно используемого файла, папки, документа, приложения и т. д. Сначала выберите файл, чтобы создать ярлык для легкого доступа. Значок в строке состояния обеспечивает быстрый доступ к списку созданных ярлыков.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2017-2022 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F325D928AD64F0E41DEF88E895CB4527C89173C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573159   (414911) от 30.08.2022
-
-Dark Mode Switch 1.2.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Mode Switch - это приложение, которое позволяет быстро переключаться со светлого режима на внешний вид темного режима одним щелчком мыши.Тип издания: macOS SoftwareРелиз состоялся: 12.08.2022Разработчик: © 2022 Roberto PanettaПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F1C0ED6FB7A1C2230DC79AD70435F57199BA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573278   (414782) от 30.08.2022
-
-TextMan 1.7.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414782.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499638E75222EFD37603315054CD1FA52FA2B6F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573109   (414780) от 30.08.2022
-
-Wake on Lan for Mac 1.0.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Wake on Lan для быстрого пробуждения по локальной сети ваших устройств из строки меню.Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 2022 Lumibit GmbHПоддерживаемая ОС: macOS 12.0+Язык интерфейса: https://apps.apple.com/app/wake-on-lan-menu-bar/id1624703732
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357525D1028DC7708017B8656F61D4D23D10A96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

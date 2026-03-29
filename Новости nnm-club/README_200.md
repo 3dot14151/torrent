@@ -1,3 +1,161 @@
+###  Публикация: 259513   (332789) от 18.11.2010
+
+Пила 7 / Saw 7 (2010) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ужасы, триллер, детективРежиссер: Кевин ГротертВ ролях: Костас Мэндилор, Шон Патрик Флэнери, Тобин Белл, Кэри Элвис, Бетси Расселл, Дин Армстронг, Чэд Донелла, Джина Холден, Честер Беннингтон, Ребекка МаршаллФормат: AVI (XviD)Продолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE80DB18BB547E2CF1882F14B6F435D6BB5F8746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258664   (332772) от 18.11.2010
+
+Need for Speed: Hot Pursuit Limited Edition [Ru/Multi23] (L) 2010 l RELOADED
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332772.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Люди, известные как «козлы», подъехали на одноименных машинах…» — этот злобный анекдот как нельзя лучше характеризует отношение к силам правопорядка не только в России, но и по всему миру — в видеоиграх. Быть копом — это не круто. Их задача — мешать вам, их тачки — унылый расходный материал.
+
+Но представьте, как было бы обидно, если за обнаглевшим игроком вдруг погнались не на позорных Chevrolet Impala, и даже не новеньких Dodge Charger, а, скажем, на эксклюзивном, тюнингованном Lamborghini Reventon за полтора миллиона евро! Роль этакого копа-мажора уже не кажется зазорной. Именно ее нам предлагают освоить в Need for Speed: Hot Pursuit.Тип издания: ЛицензияЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Multi\РусскийЯзык интерфейса: Multi\Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50A314792365D5BE863E8C953BF8A12E409C42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579618   (332757) от 29.09.2022
+
+Быстрее пули / Bullet Train (2022) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро наёмных убийц оказываются в одном сверхскоростном экспрессе. Они узнают, что их миссии связаны, и пытаются выяснить, кто и зачем собрал их вместе.Производство: США / 87North, CTB Inc., Hill District MediaЖанр: боевик, комедияРежиссер: Дэвид ЛитчАктеры: Брэд Питт, Джои Кинг, Аарон Тейлор-Джонсон, Брайан Тайри Генри, Эндрю Кодзи, Хироюки Санада, Майкл Шеннон, Сандра Буллок, Бэд Банни, Логан ЛерманПеревод: многоголосый профессиональный (NewComers) 18+Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF6D892B10D586137427518457CAAF8D60CEDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258989   (332716) от 01.11.2018
+
+Windows x86 x64 Release by StartSoft 36-2018 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка может заинтересовать тех пользователей персональных компьютров которым хотелось бы иметь возможность установки четырех операционных систем Windows с одной загрузочной флешки. В состав сборки входит образ ISO, который можно распаковать на флешку размером от 16 Гигабайт. Перед началом распаковки установочных файлов из образа ISO на флешку необходимо в ней создать (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564FEF545763981A0854AAD64495B37BC1546E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955744   (331800) от 12.11.2015
+
+RadioSure PRO 2.2.1044.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331800.jpg" />
+</div>
+
+
+###  Подробнее
+
+RadioSure  это новый радио плеер, который дает возможность прослушивать множество станций в онлайн режиме. Использование такого радио - полностью бесплатно, при этом у вас есть возможность слушать массу различных радиоволн. Утилита может взаимодействовать с разнообразными форматами такими, как ogg vorbis, vma и многими другими.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272A61B42B5D47402DC9257C1D1B3AB2AF54E675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839982   (331773) от 14.11.2014
+
+Call Of Duty: Advanced Warfare [PS3] [EUR] [Ru/Pl] [4.65] [Cobra ODE / E3 ODE PRO ISO] (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Advanced Warfare — шутер от первого лица, разрабатываемый студией Sledgehammer Games при поддержке High Moon Studios. Действие Call of Duty: Advanced Warfighter разворачивается в не столь далеком будущем, в котором частные военные компании стали самыми эффективными войсками, услугами которых пользуются страны во всем мире, а самым могущественным человеком (   Читать дальше...   )Тип издания: ЛицензияРазработчик: High Moon Studios / Raven Software (Multiplayer)Жанр: Action (Shooter) / 1st PersonЯзык озвучки: Русский, ПольскийЯзык интерфейса: Русский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FE05457AE399C00D79732A13B4E74D244F71CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 260013   (331562) от 19.11.2010
 
 Осажденные мертвецами / Rammbock / Siege Of The Dead (2010) DVDRip
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331562.jpg" />
+  <img src="Z:/picture/008/save_picture_331562.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330958.jpg" />
+  <img src="Z:/picture/005/save_picture_330958.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330772.jpg" />
+  <img src="Z:/picture/008/save_picture_330772.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ JetBrains PhpStorm 10.0.1 Build #PS-143.382 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330766.jpg" />
+  <img src="Z:/picture/008/save_picture_330766.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330762.jpg" />
+  <img src="Z:/picture/008/save_picture_330762.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330759.jpg" />
+  <img src="Z:/picture/008/save_picture_330759.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ ACDSee Ultimate 9.1 Build 580 RePack by D!akov [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330757.jpg" />
+  <img src="Z:/picture/008/save_picture_330757.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330677.jpg" />
+  <img src="Z:/picture/005/save_picture_330677.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ F.E.A.R. 2: Project Origin - Дополненное издание [Ru] (P) 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330503.jpg" />
+  <img src="Z:/picture/008/save_picture_330503.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330457.jpg" />
+  <img src="Z:/picture/008/save_picture_330457.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ Torque Pro OBD2 v1.12.100 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330456.jpg" />
+  <img src="Z:/picture/008/save_picture_330456.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330154.jpg" />
+  <img src="Z:/picture/005/save_picture_330154.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330031.jpg" />
+  <img src="Z:/picture/005/save_picture_330031.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329967.jpg" />
+  <img src="Z:/picture/008/save_picture_329967.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ JetBrains PyCharm Professional 5.0.1 Build #PC-143.595 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329875.jpg" />
+  <img src="Z:/picture/008/save_picture_329875.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ Microsoft Office 2013-2016 C2R Install 4.9 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329874.jpg" />
+  <img src="Z:/picture/008/save_picture_329874.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ Corona Renderer 1.3 for 3ds Max 2011-2016 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329855.jpg" />
+  <img src="Z:/picture/008/save_picture_329855.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ ArtMoney Pro 7.44.1 Portable by KloneB@DGuY [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329852.jpg" />
+  <img src="Z:/picture/008/save_picture_329852.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ Tomb Raider: Underworld [Ru] (RePack) 2008 | R.G. Spieler
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_329580.jpg" />
+  <img src="Z:/picture/005/save_picture_329580.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329577.jpg" />
+  <img src="Z:/picture/008/save_picture_329577.jpg" />
 </div>
 
 
@@ -515,164 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8F0BE9A9356BA9D310548DC30EE2EBBC35A21C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956588   (328953) от 15.11.2015
-
-Scrivener 1.9.0.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrivener — мощный текстовый редактор для тех, кто работает с большими объемами текста (писателей, журналистов, сценаристов, ученых). Программа обеспечивает максимум возможностей для организации текста, структурирования, создания заметок, карточек, комментариев, таблиц, добавления картинок, ссылок.Язык интерфейса: Русский, английский, немецкий, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AD1FA85AA4DF34DDC1D1DB8A0409B3DCC0BCC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956765   (328952) от 15.11.2015
-
-DAEMON Tools Ultra 4.0.1.0425 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328952.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAEMON Tools Ultra — это самая мощная, функциональная и профессиональная программа для работы с образами, которую мы когда-либо создавали. Эмулируйте виртуальные приводы, создавайте загрузочные USB для восстановления операционных систем, используйте RAM-диски для того, чтобы ускорить работу ПК, и подключайтесь к удаленным USB-устройствам по протоколу iSCSI с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D846F5430ABA5699F3DE1E35297A2717B60DF9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414092   (328295) от 23.11.2011
-
-Специалист | HTML и CSS. Уровень 1. Создание сайтов по стандартам W3C и переход на HTML 5 и СSS 3 (WMV3) [2011] PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328295.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML и CSS — основные языки разметки и стилей, с помощью которых разрабатываются веб-страницы. На курсе Вы изучите основы языка разметки HTML, способы применения CSS, основы построения сайтов для сети Интернет. Вы получите необходимые навыки для построения сайтов с помощью статических страниц в сети Интернет. Успешное обучение на этом курсе даст Вам прочную базу (   Читать дальше...   )Жанр: Web-дизайнПродолжительность: 23:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7927D011E28B48BF78CD9DA1CE3032247942536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957039   (328088) от 16.11.2015
-
-Parallels Desktop for Mac Business Edition 11.1.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
-С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 ноября 2015Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F2E7565CAA56B9E2F972A5784E56C0D81CA357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957174   (328086) от 16.11.2015
-
-Двадцать восемь панфиловцев (2015) WEBRip [H.264/1080p] [Трейлер]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью 1941-го года немецкие части, стоявшие возле Волоколамска, отделяло от Москвы, каких-нибудь, два часа по шоссе. Однако, на этом шоссе стояла 316-я стрелковая дивизия, под командованием генерала И. В. Панфилова. Этот военачальник обладал настолько высоким авторитетом среди личного состава, что бойцы дивизии сами называли себя панфиловцами. А дивизию — панфиловской.Производство: РоссияЖанр: Боевик, Военный, ДрамаРежиссер: Ким Дружинин, Андрей ШальопаАктеры: Азамат Нигманов, Александр Устюгов, Яков Кучеревский, Дмитрий Пучков, Олег Фёдоров, Алексей МорозовПеревод: Не требуется (русский язык)Продолжительность: 00:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536D921992E21E90FB90BF61A7658D815026B73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957087   (328081) от 16.11.2015
-
-Проекты - VideoHive - Photo Animator - 12972961 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания анимационных эффектов для Ваших фото.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DCC7E19E99F543930F0EF3308BA0046C667F27
 ```
 
 https://mybot314.ru/tekegram_catalog/

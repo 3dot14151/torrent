@@ -6,7 +6,7 @@ TDW - The Days The Clock Stopped (2020) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178480.jpg" />
+  <img src="Z:/picture/005/save_picture_178480.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paradise Lost - Draconian Times (1995) 25th Anniversary Edition, 2020, Music For
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178377.jpg" />
+  <img src="Z:/picture/005/save_picture_178377.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Evil Seeds - Theory Of Fear (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178345.jpg" />
+  <img src="Z:/picture/005/save_picture_178345.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tzompantli - 2 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178258.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gutlocker - To Be Alive (2022) [MP3|320 Kbps] <Groove Metal, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178249.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ In The Blind - Evolve & Escape (2022) [MP3|320 Kbps] <Alternative Metal, Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178238.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sobernot - Destroy (2022) [MP3|320 Kbps] <Thrash, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178179.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [MP3|320 Kbps] <N
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178034.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Antti Martikainen - 3 Albums (2020-2022) [MP3|320 Kbps] <Power Metal, Epic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177978.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Entheos - 3 Singles, 1 EP (2015-2022) [MP3|320 Kbps] <Progressive Metalcore, Bla
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177456.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Atomic Trip - 3 Albums (2017-2022) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177440.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) EP [MP3|320 Kbps] <Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176626.jpg" />
+  <img src="Z:/picture/004/save_picture_176626.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Metaltouch - Zero Radicalism (2022) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176315.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eigenflame - Pathway to a New World (2023) [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175379.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Moon Shepherd - Between The Circles (2022) [Mp3|320kbps] <Heavy, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175177.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blind Guardian - Imaginations From The Other Side (2020) Live [MP3|320 Kbps] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174476.jpg" />
+  <img src="Z:/picture/004/save_picture_174476.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Amberian Dawn - 10 Releases (2008-2022) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174378.jpg" />
+  <img src="Z:/picture/004/save_picture_174378.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tarja Turunen - Best of: Living the Dream (2022) Remastered [MP3|320 Kbps] <Symp
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173685.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Eagon - Equilibrium (2023) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173233.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VCTMS - Vol. V The Hurt Collection (2023) [MP3|320 Kbps] <Metalcore / Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173050.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nailwound - An Ode to Misery (2023) [MP3|320 Kbps] <Metalcore, Hardcore, Downtem
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173034.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Oni - The Silver Line (2023) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173019.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Birth Asphyxia - Human Obelisk (2012) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172680.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Decembre Noir - Your Sunset | My Sunrise (2023) [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172672.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dominance - Slaughter of Human Offerings in the New Age Of Pan (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172642.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172362.jpg" />
 </div>
 
 

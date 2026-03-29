@@ -6,7 +6,7 @@ Total Video Player Pro 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714798.jpg" />
+  <img src="Z:/picture/008/save_picture_714798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Solange - When I Get Home (2019) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714796.jpg" />
+  <img src="Z:/picture/008/save_picture_714796.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mozilla Firefox Quantum 65.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714794.jpg" />
+  <img src="Z:/picture/008/save_picture_714794.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ uTorrent 3.5.5 Build 45095 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714792.jpg" />
+  <img src="Z:/picture/008/save_picture_714792.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714776.jpg" />
+  <img src="Z:/picture/005/save_picture_714776.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Topaz DeNoise AI 2.2.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714761.jpg" />
+  <img src="Z:/picture/008/save_picture_714761.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-08-07) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714759.jpg" />
+  <img src="Z:/picture/008/save_picture_714759.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714754.jpg" />
+  <img src="Z:/picture/008/save_picture_714754.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ MetaProducts Offline Explorer Enterprise 7.8.4660 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714753.jpg" />
+  <img src="Z:/picture/008/save_picture_714753.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714723.jpg" />
+  <img src="Z:/picture/008/save_picture_714723.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Maxthon Browser 5.2.7.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714714.jpg" />
+  <img src="Z:/picture/008/save_picture_714714.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Comedy Баттл (2019.03.01) WEB-DLRip (сезон 9, выпуск 7)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714713.jpg" />
+  <img src="Z:/picture/008/save_picture_714713.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Total Commander 8.51a Final MAX-Pack Extended 2015.04.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714697.jpg" />
+  <img src="Z:/picture/008/save_picture_714697.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ IObit Driver Booster Pro 2.3.1.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714696.jpg" />
+  <img src="Z:/picture/008/save_picture_714696.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ USB Safely Remove 5.3.8.1233 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714688.jpg" />
+  <img src="Z:/picture/008/save_picture_714688.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 07.08.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714657.jpg" />
+  <img src="Z:/picture/008/save_picture_714657.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ MSD Organizer v13.7 (SharewareOnSale) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714655.jpg" />
+  <img src="Z:/picture/008/save_picture_714655.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Windows Repair Toolbox 3.0.2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714648.jpg" />
+  <img src="Z:/picture/008/save_picture_714648.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Flash Master Kit 1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714607.jpg" />
+  <img src="Z:/picture/008/save_picture_714607.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Gauntlet (2014) [Ru/En] (1.12/5dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714588.jpg" />
+  <img src="Z:/picture/008/save_picture_714588.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ BELOFF 2020.08 Lite [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714542.jpg" />
+  <img src="Z:/picture/008/save_picture_714542.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ RAM Saver Professional 22.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714525.jpg" />
+  <img src="Z:/picture/008/save_picture_714525.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ WinTools.net Premium 22.2.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714520.jpg" />
+  <img src="Z:/picture/008/save_picture_714520.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Perfectly Clear WorkBench 4.0.1.2238 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714519.jpg" />
+  <img src="Z:/picture/008/save_picture_714519.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Process Lasso Pro 10.4.4.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714514.jpg" />
+  <img src="Z:/picture/008/save_picture_714514.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ CherryTree 0.99.46 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714513.jpg" />
+  <img src="Z:/picture/008/save_picture_714513.jpg" />
 </div>
 
 

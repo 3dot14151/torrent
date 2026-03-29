@@ -1,3 +1,81 @@
+###  Публикация: 1652263   (194539) от 10.08.2023
+
+One More Island (2022) [Multi] (1.8.1) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Став последним губернатором королевы, постройте колониальную империю во имя Ее. Захватывайте острова, собирайте их природные ресурсы, стройте производственные цепочки и превратите заброшенный аванпост в мятежный шумный мегаполис в самом сердце коммерческой империи Нового Света! Королева Старого Света взывает к вам! Поскольку владения Ее Величества расширяются, нам (   Читать дальше...   )Тип издания: LicenseРазработчик: Berg GamesЖанр: Стратегия в реальном времени, Симулятор поселенияЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Нидерландский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Нидерландский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A35158FC4D6B813BFAE32E635B0FD825BFA640C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655009   (193857) от 23.08.2023
+
+Cantata (2023) [En] (1.01/dlc) Scene Tenoke
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выберите командира из одной из трех фракций. Исследуйте, расширяйте и выживайте в кампаниях, происходящих на таинственной планете, пропитанной мистическими научно-фантастическими знаниями! Сражайтесь в тактических пошаговых сражениях на больших картах. Модифицируйте игру и сделайте ее своей! Cantata - тактическая стратегическая игра с участием персонажей, в которой (   Читать дальше...   )Тип издания: SceneРазработчик: Afterschool StudioЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D715E02DFEEAB963D0D092B88C58EA87CBE0CB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663977   (186156) от 24.09.2023
+
+InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186156.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfraSpace дает возможность юзерам стать мэрами городов будущего. Данный градостроительный симулятор использует научно-фантастический сеттинг. Пользователи управляют марсианскими колониями. Постепенно эти поселения разрастаются до мегаполисов. Инди-тайтл предлагает расслабляющий геймплей. В InfraSpace геймеры добывают ресурсы, строят здания и удовлетворяют потребности (   Читать дальше...   )Тип издания: SceneРазработчик: Dionic SoftwareЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1051A77FB9D8B50B162614E03E1A5D2F65AC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663931   (186148) от 24.09.2023
 
 Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
@@ -6,7 +84,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186148.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173725.jpg" />
+  <img src="Z:/picture/004/save_picture_173725.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173124.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173093.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172903.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171802.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169783.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168955.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168855.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Citizens: On Mars (2023) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167519.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163645.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162247.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160719.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Moviehouse - The Film Studio Tycoon (2023) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160712.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Frozen Cortex (2015) [En] (2.0.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159758.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156198.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Transport giant / Транспортный олигарх + Новый конт�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155599.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Coral Island (2023) [Multi] (1.0/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151770.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148024.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144997.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141816.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141277.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138277.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970720   (137469) от 31.12.2015
-
-Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы проводите всю свою жизнь, стараясь угодить богам. Вы сражаетесь и погибаете смертью храбрых. А теперь только представьте! Бедные викинги стоят пред вратами Асгарда, ожидая, что их пустят в Вальхаллу. Но неблагодарные боги не собираются дать им заслуженную награду и закрывают врата прямо у них перед носом.Тип издания: SteamRipРазработчик: Funatics SoftwareЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32E60DCC0A6C449D2D5F40DAE577E653C218F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088723   (137454) от 31.12.2016
-
-Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [Gold Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое прошлое, холодная война в самом разгаре... Не совсем честным путем вам удается захватить власть на одном из островов Карибского бассейна. Тропико – отныне территория вашей диктатуры, а вы – всесильный «Эль Президенто». Независимо от того, превратите ли вы Тропико в туристический рай или же в современную промышленную страну – вам придется отчитываться за (   Читать дальше...   )Тип издания: LicenseРазработчик: Haemimont GamesЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681278   (132915) от 02.12.2023
-
-Pro Basketball Manager 2024 (2023) [Ru/Multi] (1.22-20112023) Scene Tenoke
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Basketball Manager 2024 предлагает стать тренером и генеральным менеджером более 2000 профессиональных баскетбольных команд, выступающих в 90 национальных лигах, включая 16 женских, в 60 странах мира. Игра погружает вас в динамичный мир элитных баскетбольных соревнований, предлагая испытать себя в 175 турнирах самого высокого уровня. Ваша роль выходит за пределы (   Читать дальше...   )Тип издания: SceneРазработчик: Umix StudiosЖанр: Инди, Симуляторы, Спортивные игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63E1A5FC844170C8835D95363DDD5A559C6C23E
 ```
 
 https://mybot314.ru/tekegram_catalog/

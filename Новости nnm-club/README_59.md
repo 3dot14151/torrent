@@ -1,3 +1,107 @@
+###  Публикация: 1377561   (851002) от 22.04.2020
+
+Comodo Internet Security Premium 12.2.2.7036 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CA3F73206742F60D96404A8230C8A11DE9D511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377320   (850989) от 22.04.2020
+
+ДАУ. Дегенерация / DAU. Degeneration (2020) WEBRip [H.264/1080p-LQ] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850989.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1950-е. Секретный НИИ проводит научные и оккультные эксперименты над животными и людьми по созданию идеального человека. Генерал КГБ и его подчиненные закрывают глаза на эротические похождения директора Института, на скандальные дебоши выдающихся ученых и на их жестокие и безумные исследования. Однажды в лабораторию под видом испытуемых прибывают представители (   Читать дальше...   )Производство: Германия, Украина, Великобритания, Россия / Phenomen Berlin Filmproduktions, Phenomen Ukraine, PhenomenЖанр: ДрамаРежиссер: Илья Хржановский, Илья ПермяковАктеры: Владимир Ажиппо, Дмитрий Каледин, Ольга Шкабарня, Алексей Блинов, Виктория Скицкая, Максим Марцинкевич, Зоя Попова, Алина Алексеева, Алексей Трифонов, Кристина ВолошинаПеревод: Не требуется (Русский)Субтитры: АнглийскиеПродолжительность: 06:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D3390C61D14D82F77A401EADD774E98DA174FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305401   (850746) от 10.03.2011
+
+Спецслужбы: троллинг в сети (2011) HDRip [720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_850746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни для кого не секрет, что сегодня телевизионная аудитория уверенным темпом снижает свою численноcть, и всё больше и больше людей перестают смотреть телевизор, предпочитаю ему интернет. В начале февраля 2011 года было объявлено о создании "Жанр: Документальный, Телепередача, ВидовойПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09FB98182CFB821908B0F3585547468599C4884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317379   (850672) от 30.09.2021
+
+Атака мертвецов: Осовец (2018) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850672.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 августа 1915 года. После нескольких безуспешных попыток штурма позиций русской армии командование немецких войск решается на новую. Накануне атаки на позиции немцев доставляют баллоны с хлором. О готовящемся применении химического оружия случайно узнаёт подпоручик Котлинский, но у него нет времени и возможности защитить своих людей. Всё, что ему остаётся — настроить (   Читать дальше...   )Производство: Россия, Беларусь / SerB Production, WargamingЖанр: Короткометражный, военныйРежиссер: Василий ЧигинскийАктеры: Иван Добронравов, Александр Вдовин, Анвар Либабов, Витас Эйзенах, Ярослав Химченко, Дмитрий Буренков, Алексей Шемес, Роман Фомин, Павел Балабанов, Петр СтупинСубтитры: ОтсутствуютПродолжительность: 00:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DB28780D0DBAFB61036953C1A3BD72FBE7D769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498924   (850669) от 30.09.2021
 
 Microsoft Office 2016-2021 LTSC Professional Plus / Standard + Visio + Project 16.0.14430.20234 (2021.09) (W10) RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +110,7 @@ Microsoft Office 2016-2021 LTSC Professional Plus / Standard + Visio + Project 1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850669.jpg" />
+  <img src="Z:/picture/008/save_picture_850669.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850667.jpg" />
+  <img src="Z:/picture/008/save_picture_850667.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849936.jpg" />
+  <img src="Z:/picture/008/save_picture_849936.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Movavi Video Editor 11.4.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849933.jpg" />
+  <img src="Z:/picture/008/save_picture_849933.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Bat! Professional 7.4.16 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849676.jpg" />
+  <img src="Z:/picture/008/save_picture_849676.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849675.jpg" />
+  <img src="Z:/picture/008/save_picture_849675.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ OTUS | Framework Laravel (2020) PCRec [H.264] (части 1-2) [Обновляе
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849349.jpg" />
+  <img src="Z:/picture/008/save_picture_849349.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Outward (2019) [Ru/Multi] (1.3.7c/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849042.jpg" />
+  <img src="Z:/picture/008/save_picture_849042.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848903.jpg" />
+  <img src="Z:/picture/008/save_picture_848903.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848659.jpg" />
+  <img src="Z:/picture/008/save_picture_848659.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Avid Media Composer 8.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848633.jpg" />
+  <img src="Z:/picture/008/save_picture_848633.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848311.jpg" />
+  <img src="Z:/picture/008/save_picture_848311.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ SOMA (2015) [Ru/Multi] (1.10) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848110.jpg" />
+  <img src="Z:/picture/008/save_picture_848110.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848090.jpg" />
+  <img src="Z:/picture/008/save_picture_848090.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848086.jpg" />
+  <img src="Z:/picture/008/save_picture_848086.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Daum PotPlayer 1.7.661 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847953.jpg" />
+  <img src="Z:/picture/008/save_picture_847953.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847771.jpg" />
+  <img src="Z:/picture/008/save_picture_847771.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Windows 8.1 SevenMod RUS-ENG x86 -10in1- Activated v2 (AIO)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847752.jpg" />
+  <img src="Z:/picture/008/save_picture_847752.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Ubuntu 20.04 Focal Fossa LTS [amd64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847540.jpg" />
+  <img src="Z:/picture/008/save_picture_847540.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847530.jpg" />
+  <img src="Z:/picture/008/save_picture_847530.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846715.jpg" />
+  <img src="Z:/picture/008/save_picture_846715.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846690.jpg" />
+  <img src="Z:/picture/008/save_picture_846690.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB0368AAC518A05F4C9CF0E16C85426FF8CBE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002600   (846208) от 01.04.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) Blu-ray [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный  (iTunes)Язык субтитров: Русский, английскийПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250EF3F26EC0C23F955BC3EF02717CB35E5244C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002606   (846198) от 01.04.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный  (iTunes)Язык субтитров: Русский (forced на титры и речь пришельцев, iTunes, notabenoid),, английскийПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44B1E35F32576F4399769ECF9AE5568C5D3F921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994880   (846193) от 01.04.2016
-
-Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9293BD0A5FDE2FD4E6A5AB46F2485E70BB7F0C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999532   (846191) от 01.04.2016
-
-Полицейский с Рублёвки (2016) DVB [H.264] (серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846191.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Полицейский с Рублёвки» — это история о Грише Измайлове, полицейском, который призван охранять покой и порядок в самом элитном районе России, где живут невероятно богатые люди. Ему приходится расследовать дела, в которые впутываются жители Рублевки, и делает он это нередко превышая свои полномочия. Грише около 30 лет, он красив, одинок, богат, циничен, азартен и (   Читать дальше...   )Производство: Россия / "АВ Контент" по заказу  тнтЖанр: драма, комедияРежиссер: Илья КуликовАктеры: Александр Петров, Александра Бортич, Сергей Бурунов, Татьяна Бабенкова, Софья Каштанова, Роман Попов, Ростислав Гулбис, Анастасия Стежко, Лилия Лаврова, Виктория Тарасова, Анна Котова, Сергей Калашников, Сергей Штатнов, Владимир РузановПродолжительность: ~ 00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B683FCDF09770AF5AAC0C0FCA246001ECCB2B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1179745   (346184) от 01.11.2017
+
+HighLights | Основы веб-дизайна (2016) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс идеален для начинающих! Также подойдет тем, кто хочет углубить свои знания и улучшить качество работ. На этом курсе много практики в виде домашних заданий. В финале курса вы создадите дизайн собственного сайта!Жанр: ДизайнПродолжительность: 17:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC4BE10A9CE74A82CCD7BB4644B03A191D107FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578628   (344926) от 23.09.2022
 
 Вольница, Алексей Брин | Рендер на прокачку: Правильно выставляем освещение (v.3) (2022) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344926.jpg" />
+  <img src="Z:/picture/008/save_picture_344926.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Modular Environments in Unreal Engine 5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342440.jpg" />
+  <img src="Z:/picture/008/save_picture_342440.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Skillshare | Explaining How We Use Face-Tracking In Our Videos (Tiktok Filter) (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339573.jpg" />
+  <img src="Z:/picture/008/save_picture_339573.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Skillshare | Create a Pixelated Glitch Effect using Adobe After Effects (2020) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339337.jpg" />
+  <img src="Z:/picture/008/save_picture_339337.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Gumroad | Митч Леуве 7 книг + уроки / Mitch Leeuwe 7 Books + T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339231.jpg" />
+  <img src="Z:/picture/008/save_picture_339231.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339221.jpg" />
+  <img src="Z:/picture/008/save_picture_339221.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338814.jpg" />
+  <img src="Z:/picture/008/save_picture_338814.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Udemy, Joakim Tornhill | Become a Material Guru in Blender 2.8 (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335954.jpg" />
+  <img src="Z:/picture/008/save_picture_335954.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335085.jpg" />
+  <img src="Z:/picture/008/save_picture_335085.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334907.jpg" />
+  <img src="Z:/picture/008/save_picture_334907.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334720.jpg" />
+  <img src="Z:/picture/008/save_picture_334720.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334674.jpg" />
+  <img src="Z:/picture/008/save_picture_334674.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334667.jpg" />
+  <img src="Z:/picture/008/save_picture_334667.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333396.jpg" />
+  <img src="Z:/picture/008/save_picture_333396.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333265.jpg" />
+  <img src="Z:/picture/008/save_picture_333265.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ Udemy | Создание ретро футуристичного автомоб�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333243.jpg" />
+  <img src="Z:/picture/008/save_picture_333243.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332765.jpg" />
+  <img src="Z:/picture/008/save_picture_332765.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332764.jpg" />
+  <img src="Z:/picture/008/save_picture_332764.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ Jan Urschel | Реалистичный сэт-дизайн в Blender 2.82 / Rea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332417.jpg" />
+  <img src="Z:/picture/008/save_picture_332417.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Jan Urschel | Кинематографичный сэт-дизайн в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332357.jpg" />
+  <img src="Z:/picture/008/save_picture_332357.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Jan Urschel | Дизайн 3D окружения для производства
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332279.jpg" />
+  <img src="Z:/picture/008/save_picture_332279.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Jan Urschel | Создание скетча 3D окружения в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332278.jpg" />
+  <img src="Z:/picture/008/save_picture_332278.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331805.jpg" />
+  <img src="Z:/picture/008/save_picture_331805.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Jan Urschel | Процедурные ландшафты в Blender 2.80 / Proced
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331127.jpg" />
+  <img src="Z:/picture/008/save_picture_331127.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Land
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331045.jpg" />
+  <img src="Z:/picture/008/save_picture_331045.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Land
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABD7D6A879E0A7B2AAFFAEF9556982701C53DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956021   (330823) от 13.11.2015
-
-Григорий Коченов, Дмитрий Демидовский | Адаптивный дизайн и разработка сайтов (2015) PCRec [H.264/1080p]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы получите базовые знания в области адаптивного дизайна. Узнаете его идеологию, подходы и основные технологии. Поймете, как работают адаптивные сайты, из каких компонентов они состоят и какие этапы разработки проходят. Избежите основных ошибок при прототипировании и научитесь тестировать свои страницы. Курс адресован начинающим дизайнерам и разработчикам, а также (   Читать дальше...   )Жанр: Адаптивный дизайнПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5B64F449F1353B94A79788A3C3D61020C3D781
 ```
 
 https://mybot314.ru/tekegram_catalog/

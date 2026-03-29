@@ -1,3 +1,195 @@
+###  Публикация: 970653   (137891) от 31.12.2015
+
+VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 276 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Натали - Новогодние игрушки (03:44)
+002. Белый день - Новый год (03:00)
+003. Emin - Boomerang (02:56)
+004. Frank Sinatra - Jingle Bells jingle bells (02:04)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158F17911E66F111CCA46E646AC1A32691E1485E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196025   (137621) от 31.12.2017
+
+VA - Новогоднее Настроение: Русский Популярный Сборник (2017) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инфинити - Увлечение
+002. Serebro - В Космосе
+003. Полина Гагарина - Обезоружена
+004. Настя Задорожная - Я Луна(   Читать дальше...   )Жанр: PopПродолжительность: 09:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349167   (137473) от 31.12.2019
+
+VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всех С Наступающим! В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2019 год. Это 5я часть сборника. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Сергей Лазарев — Близко
+02. Макс Барских — Лей Не Жалей (Lavrushkin & Max Roven Remi
+03. Grosu — Луна (Xm Remix) (Radio Edit)
+04. Emin — Ночь Тает В Абсенте(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45ABB217286A636E06FF39F5841C0898D6920914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592062   (136243) от 20.12.2012
+
+VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Grand And Glazunov feat.Ирина Кулькова - Убегаю (Radio Mix)
+02. Dj Nikita Noskow feat Marlena - Время Настало (Radio Edit)
+03. Dj Onegin feat. Олеся Астапова - Тайна
+04. Dj Smash feat. Достучаться До Небес - Мерси Баку
+05. Gypsy - Джинсы
+06. Larson - Прости Меня Если Сможешь
+07. Lissa Wassabi - Громче
+08. MC Zali feat. Кира Лондон - Далеко
+09. MC Zali feat. Кира Лондон - Мальчик Мой
+10. Misty - Я Верю В Твою ЛюбовьЖанр: Pop, DanceПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593612   (134899) от 24.12.2012
+
+VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134899.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Баженова - Все О Чем Мечтаю
+002. Анжелика Агурбаш - Для Тебя
+003. Джиган - Нас Больше Нет (Michael Yousher Remix)
+004. Перестрелки - Глаза
+005. Леонид Агутин И Thomas N'evergreen - Ай-Яй-Яй
+006. Snookers - Ready 2 Party (Stefy De Cicco Radio Mix)
+007. Жасмин, Николай Басков, Сергей Лазарев, Зара И Слава - Как В Детстве
+008. Brandy - Wildest Dreams
+009. Fly Project feat. MC Zali & Trinity - Певица Из Села
+010. Паулина Анис - Ангел Хранитель(   Читать дальше...   )Жанр: РорПродолжительность: 12:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED025013388037E1B3F122B2D845AC913F8BA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593609   (134880) от 24.12.2012
+
+VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Лазарев - Слезы В Моём Сердце
+02. Anastacia - One
+03. 5sta Family - Пуэрто Рико
+04. August Rush feat. Natalie Voice - So Many Times
+05. Светлана Светикова - Буду
+06. Lovers vs. Lanfranchi & Farina - Think
+07. Размер Project - Водка Стайл
+08. Manian feat. Carlprit - Don't Stop The Dance (Video Edit)
+09. Нюша - Queen Of The Night
+10. Medina - Fool (I Feel Bad For You)Жанр: РорПродолжительность: 05:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593615   (134813) от 24.12.2012
 
 VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/с]<Рор, Dance>
@@ -6,7 +198,7 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134813.jpg" />
 </div>
 
 
@@ -41,7 +233,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134771.jpg" />
 </div>
 
 
@@ -76,7 +268,7 @@ VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134710.jpg" />
 </div>
 
 
@@ -111,7 +303,7 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134563.jpg" />
 </div>
 
 
@@ -146,7 +338,7 @@ VA - Живёт моя отрада. Застольные песни (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134454.jpg" />
 </div>
 
 
@@ -181,7 +373,7 @@ VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134200.jpg" />
 </div>
 
 
@@ -216,7 +408,7 @@ VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133678.jpg" />
 </div>
 
 
@@ -251,7 +443,7 @@ VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133675.jpg" />
 </div>
 
 
@@ -286,7 +478,7 @@ VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133597.jpg" />
 </div>
 
 
@@ -312,7 +504,7 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133582.jpg" />
 </div>
 
 
@@ -347,7 +539,7 @@ VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133492.jpg" />
 </div>
 
 
@@ -382,7 +574,7 @@ VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133112.jpg" />
 </div>
 
 
@@ -417,7 +609,7 @@ VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132716.jpg" />
 </div>
 
 
@@ -452,7 +644,7 @@ VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132699.jpg" />
 </div>
 
 
@@ -487,7 +679,7 @@ VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132695.jpg" />
 </div>
 
 
@@ -522,7 +714,7 @@ Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132627.jpg" />
 </div>
 
 
@@ -551,7 +743,7 @@ VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131651.jpg" />
 </div>
 
 
@@ -578,7 +770,7 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131645.jpg" />
 </div>
 
 
@@ -613,7 +805,7 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131542.jpg" />
 </div>
 
 
@@ -648,7 +840,7 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130898.jpg" />
 </div>
 
 
@@ -668,198 +860,6 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78951DB74AE1B9309128417F54281637F3232E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682856   (130835) от 09.12.2023
-
-VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malik Harris - Sticks & Stones (00:03:27)
-02. Sasha Lopez Feat. & Elianne - Fashionista (00:02:50)
-03. Vasco Rossi - Gli Sbagli Che Fai (00:04:16)
-04. Тайпан Feat. & Li Za - С Тобой (00:02:19)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25B1ECC75FC58BF8CA91FB8B00504FA03E4A87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524836   (130439) от 18.01.2022
-
-VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Easy On Me
-02. GAYLE - abcdefu
-03. Walker Hayes - Fancy Like
-04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 05:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001C231E7CECF8FA3311CA65109B110BF0211375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489980   (129871) от 01.05.2012
-
-VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129871.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Glamour - Хищница (3:31)
-2. Елена Терлеева - Немая Любовь (4:01)
-3. Анжелика Агурбаш - Это Любовь (3:07)
-4. Саша Зверева & El Ray - Как прежде (3:42)
-5. Вика Дайнеко - Сотри его из memory (Radu Sirbu remix) (3:02)
-6. Никита - Бессонница (2:46)
-7. Настя Любимова и DJ Haipa - Чужая Я (Radio Edit) (3:34)
-8. Кристина Орбакайте - Птица-обида (3:07)
-9. Vanguarde - Gimme Gimme Gimme (Abba) (3:24)
-10. Quest Pistols - Ты так красива (DJ Vengerov remix) (3:12)2012Жанр: PopПродолжительность: 06:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923AD2F0B746E79CB97C62BBD6B942A89087B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490368   (129747) от 01.05.2012
-
-VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Martin Silence Feat. Kika - Me And You
-002 Авраам Руссо - Нелюбимая
-003 Freaky Boys - Take Me Away (Extended Mix)
-004 Dan Balan - Люби
-005 Professor Green Feat. Emeli Sande - Read All About It (Cahill Dub Mix)
-006 Дилайс - Нежно-Нежно
-007 Grooves Featflip Da Scrip - Make Noize (Club Mix)
-008 Бурановские Бабушки - Party
-009 Silent Circle - 1 More Night
-010 Nity feat. DJ Vestero - Улыбнись2012Жанр: PopПродолжительность: 06:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525468   (129291) от 21.01.2022
-
-VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ber, Charlie Oriain - Meant To Be (2:46)
-02. Jenna Raine - see you later (ten years) (3:08)
-03. Alec Benjamin - Older (3:12)
-04. Will Linley - miss me (when you're gone) (3:06)(   Читать дальше...   )Жанр: Pop, ChilloutПродолжительность: 04:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488989   (129098) от 27.04.2012
-
-VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стас Пьеха - Моя прекрасная леди
-02. Аслан Гусейнов - Боже мой
-03. T-Killah feat. Настя Кочеткова - Над землей
-04. Эльдар Далгатов - Милая
-05. Инфинити - Я так скучаю
-06. Дмитрий Колдун - Падал снег
-07. Верка Сердючка - Смайлик
-08. Сергей Солнцев - Чудеса бывают
-09. Анастасия Приходько - По волнам
-10. Митя Фомин - Не манекен (feat. Кристина Орса)2012Жанр: PopПродолжительность: 06:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764562329C13134AB7EC28B98D67B144DED5852B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1032801   (644116) от 08.07.2016
+
+Э. Эмден | Весенний марш (1930) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи о дружбе советских и немецких детей. Через три года немцы дружить перестанут.Жанр: Стихи для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901AF2AC6E435BA19718D66CDAFCE8CEA276386D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032806   (644108) от 08.07.2016
 
 Л. Завальнюк | Как Прошка друга искал и другие сказки (2006) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644108.jpg" />
+  <img src="Z:/picture/008/save_picture_644108.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643907.jpg" />
+  <img src="Z:/picture/008/save_picture_643907.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643820.jpg" />
+  <img src="Z:/picture/008/save_picture_643820.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643815.jpg" />
+  <img src="Z:/picture/008/save_picture_643815.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643709.jpg" />
+  <img src="Z:/picture/008/save_picture_643709.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643708.jpg" />
+  <img src="Z:/picture/008/save_picture_643708.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643705.jpg" />
+  <img src="Z:/picture/008/save_picture_643705.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643428.jpg" />
+  <img src="Z:/picture/008/save_picture_643428.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643389.jpg" />
+  <img src="Z:/picture/008/save_picture_643389.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643381.jpg" />
+  <img src="Z:/picture/008/save_picture_643381.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643373.jpg" />
+  <img src="Z:/picture/008/save_picture_643373.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643368.jpg" />
+  <img src="Z:/picture/008/save_picture_643368.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643340.jpg" />
+  <img src="Z:/picture/008/save_picture_643340.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643292.jpg" />
+  <img src="Z:/picture/008/save_picture_643292.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643215.jpg" />
+  <img src="Z:/picture/008/save_picture_643215.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643198.jpg" />
+  <img src="Z:/picture/008/save_picture_643198.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643192.jpg" />
+  <img src="Z:/picture/008/save_picture_643192.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643190.jpg" />
+  <img src="Z:/picture/008/save_picture_643190.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643154.jpg" />
+  <img src="Z:/picture/008/save_picture_643154.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643146.jpg" />
+  <img src="Z:/picture/008/save_picture_643146.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643144.jpg" />
+  <img src="Z:/picture/008/save_picture_643144.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643130.jpg" />
+  <img src="Z:/picture/008/save_picture_643130.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643125.jpg" />
+  <img src="Z:/picture/008/save_picture_643125.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643071.jpg" />
+  <img src="Z:/picture/008/save_picture_643071.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643063.jpg" />
+  <img src="Z:/picture/008/save_picture_643063.jpg" />
 </div>
 
 
@@ -664,35 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC45D9F85F09C79B183F8EC7E0B5E2CD22B08A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541847   (642995) от 04.04.2022
-
-Марио Паскуалотто | Прикольные приключения. Школа пиратов. Все на борт! (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642995.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Школе пиратов кипит работа! Команды и их капитаны вовлечены в ежегодную гонку шхун "На пиратской волне".
-Джим и его команда ступают на борт легендарной "Бородатой Джанны", где им предстоит освоить основы пиратского дела.
-Но дела пошли совсем не по плану…
-Какие испытания возникнут на пути Морских Волчат и смогут ли они с ними справиться?..(   Читать дальше...   )Жанр: Детская литература, Приключения, ДетективПеревод: Наталья НиколаеваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3176C26D8CC3A71C96A9179D0698ECCE3AFE5D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

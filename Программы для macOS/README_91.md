@@ -1,3 +1,139 @@
+###  Публикация: 941981   (457290) от 29.09.2015
+
+Data Rescue 4.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Rescue  — утилита восстановления данных
+Data Rescue  одна из лучших программ на рынке по восстановлению данных с проблемных носителей или удаленных файлов. Data Rescue  работает даже тогда, когда другие инструменты не в состоянии что-либо сделать.
+Data Rescue  полностью безопасен в использовании, поскольку программа не пытается восстановить диск "любой ценой". (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 сентября 2015Разработчик: Prosoft Engineering, Inc.Поддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451A3FFDF057D1AA4EC1A2760479AF9F867028BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550818   (456934) от 22.09.2012
+
+DxO Optics Pro 7.5.4 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456934.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO Optics Pro - профессиональная программа для улучшения и корректировки вашей коллекции цифровых фотографий. Данное решение обладает многими прогрессивными технологиями, с помощью которых можно отрегулировать яркость, контрастность, цветовой баланс, устранить искажения и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, отрегулировать баланс белого цвета с учётом цветовой температуры и многое другое.
+
+Вся работа DxO Optics Pro напоминает работу RAW-конверторов. И это неудивительно, ведь основное применение DxO Optics и заключается в обработке цифровых негативов. Любопытно отметить, что изначально программа разрабатывалась для корректировки геометрических искажений оптики. Затем в продукт добавились компоненты исправления других недостатков оптики. Вскоре появились средства поддержки RAW современных фотокамер и базовые инструменты систематизации материала. А там, где RAW не обойтись без управления экспозицией и цветом. В результате из, в общем-то, простой утилиты для исправления (   Читать дальше...   )Название программы: DxO Optics ProРелиз состоялся: июнь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060595   (455193) от 07.10.2016
+
+Tyme 2 v1.5.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантное и простое решение отслеживания времени для фрилансеров
+Tyme это простое в использовании приложение для отслеживания времени для фрилансеров, небольших компаний и тех, кто хочет сохранить обзор своего рабочего времени. С Tyme вы сможете увидеть разложенный на уровни весь процесс работы над проектами и тем самым, контролировать все сроки и бюджет.Тип издания: OS X SoftwareРелиз состоялся: 06 октября 2016Разработчик: Lars GerckensПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDA928DF7CAA81559F7AF35DB2C4409FF69C8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060483   (455043) от 07.10.2016
+
+TotalSpaces 2 2.4.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455043.jpg" />
+</div>
+
+
+###  Подробнее
+
+TotalSpaces - удобное приложение для управления рабочими столами на вашем Mac. Определите размер сетки (количество рабочих столов) и можете свободно перемещаться между ними - вверх, вниз, вправо и влево. Выберите переходы - куб, слайды или другие из доступных, назначьте горячие клавиши и получите макисимальное удобство при работе с приложением. TotalSpaces - простая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2016Разработчик: BinaryageПоддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0DB764A11306C74309725C511BF8A4E16E36A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060471   (454724) от 07.10.2016
+
+Noiseless CK (Pro) 1.3.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое простое и продвинутое программное обеспечение шумоподавления. Получите яркие, естественно выглядящие изображения без шума, сохраняя детали и цвет Ваших фотографий.
+Noiseless CK (Pro) вдыхает новую жизнь в каждую фотографию! Делая фотографии при слабом освещении, каждый смартфон, компактная камера или DSLR создают "шум", маленькие цветные или легкие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 октября 2016Разработчик: MacPhun LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39B1A9C52EC63AC6CA0BB63EC468D51D2B0252C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060795   (452765) от 08.10.2016
 
 X Lossless Decoder 20161007 [Multi/Ru]
@@ -6,7 +142,7 @@ X Lossless Decoder 20161007 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452765.jpg" />
+  <img src="Z:/picture/008/save_picture_452765.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ FreeMemory Pro 1.7 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_452439.jpg" />
+  <img src="Z:/picture/005/save_picture_452439.jpg" />
 </div>
 
 
@@ -67,7 +203,7 @@ Fenêtre 0.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451380.jpg" />
+  <img src="Z:/picture/008/save_picture_451380.jpg" />
 </div>
 
 
@@ -96,7 +232,7 @@ Triumph 2.5.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450776.jpg" />
+  <img src="Z:/picture/008/save_picture_450776.jpg" />
 </div>
 
 
@@ -124,7 +260,7 @@ Deep Freeze 6.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450364.jpg" />
+  <img src="Z:/picture/008/save_picture_450364.jpg" />
 </div>
 
 
@@ -150,7 +286,7 @@ Forecast Bar 2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449154.jpg" />
+  <img src="Z:/picture/008/save_picture_449154.jpg" />
 </div>
 
 
@@ -180,7 +316,7 @@ Kardnote - Daily Note-Taking with Markdown 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449005.jpg" />
+  <img src="Z:/picture/008/save_picture_449005.jpg" />
 </div>
 
 
@@ -209,7 +345,7 @@ Image-Line FL Studio Producer Edition 20.0.4.57 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448067.jpg" />
+  <img src="Z:/picture/008/save_picture_448067.jpg" />
 </div>
 
 
@@ -235,7 +371,7 @@ Icons8 5.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445235.jpg" />
+  <img src="Z:/picture/008/save_picture_445235.jpg" />
 </div>
 
 
@@ -261,7 +397,7 @@ BitMedic® Pro Antivirus 2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444672.jpg" />
+  <img src="Z:/picture/008/save_picture_444672.jpg" />
 </div>
 
 
@@ -289,7 +425,7 @@ Command-Tab Plus 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444278.jpg" />
+  <img src="Z:/picture/008/save_picture_444278.jpg" />
 </div>
 
 
@@ -317,7 +453,7 @@ Goldfish Professional 4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444264.jpg" />
+  <img src="Z:/picture/008/save_picture_444264.jpg" />
 </div>
 
 
@@ -343,7 +479,7 @@ DayLite 6.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444251.jpg" />
+  <img src="Z:/picture/008/save_picture_444251.jpg" />
 </div>
 
 
@@ -371,7 +507,7 @@ Video Editor Enhancer 1.0.29 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444245.jpg" />
+  <img src="Z:/picture/008/save_picture_444245.jpg" />
 </div>
 
 
@@ -397,7 +533,7 @@ Amarra Luxe 4.0.295 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443477.jpg" />
+  <img src="Z:/picture/008/save_picture_443477.jpg" />
 </div>
 
 
@@ -423,7 +559,7 @@ TouchCopy 16.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443275.jpg" />
+  <img src="Z:/picture/008/save_picture_443275.jpg" />
 </div>
 
 
@@ -452,7 +588,7 @@ HardwareGrowler 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443272.jpg" />
+  <img src="Z:/picture/008/save_picture_443272.jpg" />
 </div>
 
 
@@ -479,7 +615,7 @@ Video Plus 1.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442393.jpg" />
+  <img src="Z:/picture/008/save_picture_442393.jpg" />
 </div>
 
 
@@ -505,7 +641,7 @@ Fantastical 2 - Calendar and Reminders 2.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441961.jpg" />
+  <img src="Z:/picture/008/save_picture_441961.jpg" />
 </div>
 
 
@@ -532,7 +668,7 @@ Mountain Duck 1.5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441957.jpg" />
+  <img src="Z:/picture/008/save_picture_441957.jpg" />
 </div>
 
 
@@ -560,7 +696,7 @@ Kardnote - Daily Note-Taking with Markdown 1.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441843.jpg" />
+  <img src="Z:/picture/008/save_picture_441843.jpg" />
 </div>
 
 
@@ -574,143 +710,6 @@ WonderPen поддерживает переключение режима ред�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39205857C6FD3E48DE7AA07A867FCCAA8479F68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062385   (441762) от 13.10.2016
-
-Business Card Shop 7.0.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произвести  первое впечатление — в бизнесе и жизни! Ваша визитная карточка часто является первым рекламным материалом, который человек получает от вашей компании.
-
-Business Card Shop — #1 бестселлер программного обеспечения создания визитных карточек для Macintosh. Доступен широкий набор инструментов и готовых шаблонов. Business Card Shop поможет вам создать потрясающие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2015Разработчик: Chronos Inc.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D51F454B9933C24799603ADEC3DA92B76587D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164359   (441514) от 09.09.2017
-
-Mountain Duck 2.0.0 (7169) [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
-
-В приложении реализована поддержка всех основных протоколов для подключения к любому серверу. Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2017Разработчик: David KocherПоддерживаемая ОС: macOS X 10.8.3 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E913F8EB3615F6A179096C1F8E68EBAF0B30EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062537   (441405) от 13.10.2016
-
-CrossOver 15.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441405.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх.
-Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
-
-CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2016Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477BD5109EC1EB6A725B688025F834FFCEBE8BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164360   (441317) от 09.09.2017
-
-qBittorrent 3.3.16 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободный кросс-платформенный клиент файлообменной сети BitTorrent. qBittorrent - абсолютно бесплатный, без рекламы, мощный и простой при работе клиент. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2017Разработчик: Stefanos AntarisПоддерживаемая ОС: macOS X 10.7 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47517CAC7DE749653FF12AF162B271FACB58F4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409964   (440959) от 19.09.2020
-
-Deliveries 3.2.4 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliveries помогает вам следить за всеми вашими посылками, так что вы всегда будете знать, когда они прибудут до места назначения. Будь то последний гаджет или роман, который вы заказывали заранее в Интернете, Deliveries будет следить за ними, так что вы не пропустите звонок в дверь.Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: Junecloud LLCПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A495592736A0B7FDB7AB7C160D44B8994D66B99D
 ```
 
 https://mybot314.ru/tekegram_catalog/

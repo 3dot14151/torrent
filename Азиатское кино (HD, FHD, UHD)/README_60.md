@@ -1,3 +1,133 @@
+###  Публикация: 1655135   (204635) от 24.08.2023
+
+Случайность и догадка / Guzen to sozo / Wheel of Fortune and Fantasy (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три истории о совпадениях. Подруга рассказывает Миэко, что познакомилась с симпатичным парнем и, кажется, влюбилась. После этого разговора Миэко отправляется навестить своего бывшего... Решив отомстить профессору, студент подсылает к нему свою любовницу и сокурсницу, чтобы она его соблазнила... Женщина возвращается в родной Сендай на встречу одноклассников и встречает (   Читать дальше...   )Производство: Япония, Fictive, NEOPAЖанр: драма, мелодрамаРежиссер: Рюсукэ ХамагутиАктеры: Котонэ Фурукава, Аюму Накадзима, Хюнри, Киёхико Сибукава, Кацуки Мори, Сёма Каи, Фусако Урабэ, Аоба КаваиПеревод: дублированный, авторскийЯзык озвучки: русский, японскийСубтитры: русские (IVI), английскиеКачество: BDRipПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA86CD910E0F59B6ABE7410D93824CE99BD2BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602588   (204400) от 06.01.2023
+
+Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / The Killer (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь с подругой в отпуск на остров Чеджу, жена просит И-гана на время их отсутствия присмотреть за 17-летней дочерью подруги Юн-джи. Мужчина не восторге от такой перспективы, поэтому с облегчением разрешает той переночевать у одноклассницы. Но в эту же ночь девушка находит неприятности, И-гану приходится спасать её от местных криминальных элементов, а те в (   Читать дальше...   )Производство: Южная Корея / Ascendio, iHQ, The Contents OnЖанр: боевик, криминалРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Ли Со-ён, Ли Сын-джун, Брюс Хан, Ли Чхэ-ён, Пан Ын-джон, Чхве Ги-соп, Чха Тхэ-хён, Сон Хён-джу, Щин Сын-хванПеревод: дублированный (Lucky Production)Субтитры: русские, английскиеПродолжительность: 01:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D665B57201C25979152CEFB9D734F2D29FD57FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602789   (204365) от 07.01.2023
+
+Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / Jugeodo Doeneun Ai, The Killer (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный в прошлом наемный киллер Уи-ганг теперь примерный семьянин. Когда его жена уезжает в отпуск, то просит любимого мужа оказать небольшую услугу — присмотреть за 17-летней дочерью подруги. Юн-Джи очень наивная и беспечная девочка, которая не должна попасть в беду. Но когда Юн-Джи похищают, Уи-ганг понимает, что ему придется вспомнить свое прошлое и встать (   Читать дальше...   )Производство: Южная Корея / Ascendio, iHQ, The Contents OnЖанр: Боевик, криминалРежиссер: Чхве Джэ-хунАктеры: Чжан Хёк, Брюс Хан, Со Ён Ли (VI), Сын Чжун Ли, Ын Джон Пан, Тхэ Хён Чха, Хён Чжу СонПеревод: Дублированный (Lucky Production), Авторский (В. Котов)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7B0D411B26EA72A40C94F80C1896465B9B6A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655526   (204340) от 26.08.2023
+
+Кунг-фу жеребец / Long ma jing shen / Ride On (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый мастер боевых искусств и его верный скакун врываются в мир, где любая уличная драка заслуживает тиктока. Круто разделавшись с бандой коллекторов, они тотчас становятся супергероями в сети. Но вместе с любовью фанатов их находят и могущественные враги.Производство: Китай / Alibaba Pictures, Beijing Hairun Pictures CompanyЖанр: Комедия, боевикРежиссер: Ларри ЯнАктеры: Джеки Чан, Лю Хаоцюнь, Го Цилинь, Джеки У, Юй Айлэй, Джои Юн, Юй Жунгуан, Энди Он, Сяо Шэньян, Лан ЮэтинПеревод: Дублированный, Профессиональный двухголосыйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), Английские (Full)Продолжительность: 02:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE1FC95A359CD4148A6EF4F4A0D7D49474667FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604011   (204139) от 12.01.2023
+
+Последний из лучших / Yi ge ren de wu lin / Kung Fu Jungle / Kung Fu Killer (2014) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший полицейский инструктор по боевым искусствам заключен в тюрьму после того, как случайно убил человека. Когда объявляется серийный убийца специализирующийся на мастерах боевых искусств, он предлагает помощь полиции в обмен на свою свободу.Производство: Китай, Гонконг, Beijing Silver Moon ProductionsЖанр: боевик, триллер, криминалРежиссер: Тедди ЧаньАктеры: Донни Йен, Ван Баоцян, Чарли Ен, Бай Бин, Алекс Фун, Луис Фань, Син Юй, Дэвид Цзян, Юй Кан, Steve ChanПеревод: Многоголосый профессиональный (Матч! ТВ)Язык озвучки: русский, китайскийСубтитры: Английские (PGS), китайские (PGS)Продолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796D729EA8ABC55BC52964ECA8521D1D0103FE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655733   (204120) от 27.08.2023
 
 Охотник на такси / Di shi pan guan / Taxi Hunter (1993) BDRemux [H.264/1080p] [AVO]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204120.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204082.jpg" />
+  <img src="Z:/picture/004/save_picture_204082.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204072.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203871.jpg" />
+  <img src="Z:/picture/004/save_picture_203871.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203792.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203786.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203784.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203716.jpg" />
+  <img src="Z:/picture/004/save_picture_203716.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203684.jpg" />
+  <img src="Z:/picture/004/save_picture_203684.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203656.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203259.jpg" />
+  <img src="Z:/picture/004/save_picture_203259.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203188.jpg" />
+  <img src="Z:/picture/004/save_picture_203188.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202771.jpg" />
+  <img src="Z:/picture/004/save_picture_202771.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202758.jpg" />
+  <img src="Z:/picture/004/save_picture_202758.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202693.jpg" />
+  <img src="Z:/picture/004/save_picture_202693.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202691.jpg" />
+  <img src="Z:/picture/004/save_picture_202691.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202351.jpg" />
+  <img src="Z:/picture/004/save_picture_202351.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202160.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201988.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201778.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201777.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB5131BBCC1AC1BCE7F52CDA3BD0C6977D560D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617140   (201742) от 05.03.2023
-
-Храм Шаолинь 3: Боевые искусства Шаолиня / Martial arts of Shaolin / Nan bei Shao Lin (1985) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жи Минг, монах из северного Храма Шаолиня узнает, что жестокий правитель, который убил его родителей, устраивает празднество по случаю своего дня рождения. Планируя отомстить диктатору, монах находит еще двух помощников из южного Шаолиня...Производство: Гонконг, Китай / Shaw BrothersЖанр: боевик, драма, комедияРежиссер: Лау Ка-ЛюнАктеры: Джет Ли, Ху Цзяньцан, Чау-Инь Вон, Цзи Чуньхуа, Лю Хуайлян, Вэй Чунг Мак, Пань Цинфу, Сунь Цзянькуй, Юй Чэнхуэй, Юй ХайПеревод: Профессиональный двухголосый (SD media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3991B57BEF0AA7D188B9E3408C994D81E66CD28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617451   (201729) от 06.03.2023
-
-Нечестных прошу не беспокоить / Если ты единственная / Fei Cheng Wu Rao / If You Are the One (2008) BDRip [H.265/1080p] [10-bit] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цинь Фэнь, сорокалетний холостяк, проживший много лет в Америке, возвращается в Китай в надежде найти жену — современную снаружи, старомодную внутри. Он дает объявление на брачном портале и начинает встречаться с соискательницами. Он встречает ослепительно красивую стюардессу, влюбленную в женатого мужчину, который кормит ее «завтраками» относительно скорого развода. (   Читать дальше...   )Производство: Китай / Media Asia Films, Huayi BrothersЖанр: мелодрама, комедияРежиссер: Фэн СяоганАктеры: Гэ Ю, Шу Ци, Фань Вэй, Алекс Фун, Вивиан Сюй, Фэн Юаньчжэн, Ху Кэ, Лин Ли, Issoh Uzaki, Чэ СяоПеревод: Двухголосый профессиональный (Кубик в кубе)Язык озвучки: русский, китайскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 02:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568B1117A353FFECFE1C22D70C23C141883CDA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616665   (201713) от 04.03.2023
-
-Месть / Keuriseumaseu kaereol / Christmas Carol (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201713.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества брата-близнеца Чу Джу-у находят мёртвым в резервуаре для воды. Смерть представляют как несчастный случай, но парень уверен, что это убийство. Он выходит на след бандитов и планирует расправу, но они уже отбывают заключение в колонии для несовершеннолетних. Чу остаётся только самому попасть в тюрьму, где он сможет добраться до убийц и отомстить.Производство: Южная Корея / FinecutЖанр: триллер, криминалРежиссер: Ким Сон-суАктеры: Чинён, Ким Ён-мин, Хо Дон-вон, Ким Дон-хвиПеревод: Дублированный (Студия Позитив)Язык озвучки: русский, корейскийСубтитры: отсутствуютПродолжительность: 02:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBB7D5956DE391ED8CEE55EE498D5D69FC1DD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617566   (201582) от 07.03.2023
-
-Мои дождливые дни / My Rainy Days / Tenshi no koi (2009) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что такое эндзё-косай? Именно этим и занимается 17-летний «ангел» — японская школьница Рио Одзава — вместе со своими подругами. Впрочем, их даже подругами назвать нельзя, ведь люди для нее являются всего лишь источником денег: если человека нельзя использовать ради собственной выгоды, он ее не интересует. Разумеется, у нее есть тайна об одном страшном (   Читать дальше...   )Производство: Япония, GAGA, PipelineЖанр: драма, мелодрамаРежиссер: Юри КантикуАктеры: Нозоми Сасаки, Шосуке Танихара, Хикару Ямамото, Мицуки Оиши, Саки Кагами, Марк Чиннери, Мотоки Фуками, Мицуру Фукикоси, Нанака, Вакана СакаиПеревод: Авторский, одноголосый (Пеликан)Язык озвучки: русский, японскийСубтитры: русские (PGS)Продолжительность: 01:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CBB8D465CE5EF591096B16DC7FED85EA2A3371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618014   (201473) от 09.03.2023
-
-Компромат / Bkeot / B Cut (2022) WEB-DL [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокруг высокопоставленного чиновника перед очередными выборами разворачивается грандиозный скандал. Жена политика пытается шантажировать своего мужа фотографиями жестоких побоев, снятых на ее телефон, но в этот процесс неожиданно вмешивается телефонный хакер. Как далеко заведет эта опасная игра и чем она может закончиться?Производство: Корея Южная / Michigan Venture Capital, The Contents OnЖанр: Триллер, криминал, боевикРежиссер: Ким Джин-ёнАктеры: Ким Дон-ван, Чон Сэ-хён, Ким Бён-ок, Чхве Джэ-хван, Чон Джон-а, Сон Ён-джиПеревод: Дублированный (Видео Продакшн | iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40EED26869C11E6D1ABC82B1B5F5F765DD6792A
 ```
 
 https://mybot314.ru/tekegram_catalog/

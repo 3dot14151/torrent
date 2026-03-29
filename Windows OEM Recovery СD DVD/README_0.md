@@ -6,7 +6,7 @@ Recovery DVD for Asus K43E / Windows 7 Home Basic (х64) [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584653.jpg" />
+  <img src="Z:/picture/008/save_picture_584653.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Recovery USB-flash for Asus X553 MA / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534822.jpg" />
+  <img src="Z:/picture/008/save_picture_534822.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Recovery USB-flash for Acer Aspire V5-132P / Windows 8 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527123.jpg" />
+  <img src="Z:/picture/008/save_picture_527123.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Recovery DVD for Samsung 300V4A / Windows 7 Home Basic (х64) SP1 [русски�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517471.jpg" />
+  <img src="Z:/picture/008/save_picture_517471.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512495.jpg" />
+  <img src="Z:/picture/008/save_picture_512495.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Recovery USB-flash for Acer Aspire E5-521 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509851.jpg" />
+  <img src="Z:/picture/008/save_picture_509851.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Recovery USB-flash for Asus T100TAM / Windows 8.1 with Bing (х86) 6.3 (сбор
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508803.jpg" />
+  <img src="Z:/picture/008/save_picture_508803.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Recovery USB-flash for Acer One 10 S1002 / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508762.jpg" />
+  <img src="Z:/picture/008/save_picture_508762.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Recovery DVD for Dell Inspirion N5050 / Windows 7 Home Basic (х64) SP1 [Рус�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475546.jpg" />
+  <img src="Z:/picture/008/save_picture_475546.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Recovery DVD for Acer Aspire 5750ZG / Windows 7 Home Basic (х64) SP1 [русс�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459248.jpg" />
+  <img src="Z:/picture/008/save_picture_459248.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Recovery Partition for Toshiba Satellite C850 / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406464.jpg" />
+  <img src="Z:/picture/005/save_picture_406464.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Recovery Partition for Samsung RC720 / Windows 7 Home Premium (х64)
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403320.jpg" />
+  <img src="Z:/picture/005/save_picture_403320.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Recovery DVD for Toshiba Satellite L730 / Windows 7 Home Premium (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398658.jpg" />
+  <img src="Z:/picture/008/save_picture_398658.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_395503.jpg" />
+  <img src="Z:/picture/005/save_picture_395503.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Recovery USB-Flash for Lenovo IdeaPad 300-15IBR / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384163.jpg" />
+  <img src="Z:/picture/008/save_picture_384163.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Recovery Partition for Samsung 300E5A / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377303.jpg" />
+  <img src="Z:/picture/005/save_picture_377303.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Asus Transformer book trio (Asus TX201LA) usb recovery [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372198.jpg" />
+  <img src="Z:/picture/008/save_picture_372198.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Recovery DVD for Sony VAIO VPC-SB4M1R / Windows 7 Home Premium (SP1) (x64) 7601 
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352092.jpg" />
+  <img src="Z:/picture/005/save_picture_352092.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Recovery DVD for Acer Aspire One 522 / Windows 7 Starter (х86) SP1 [русск�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_349674.jpg" />
+  <img src="Z:/picture/005/save_picture_349674.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349631.jpg" />
+  <img src="Z:/picture/008/save_picture_349631.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Recovery USB HDD (FLASH) ISO for HP Pavilion dv6-6b63er / Windows 7 Home Basic 6
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341906.jpg" />
+  <img src="Z:/picture/005/save_picture_341906.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339284.jpg" />
+  <img src="Z:/picture/008/save_picture_339284.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Recovery DVD for Lenovo IdeaPad S10-3S / Windows 7 Starter (х32) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336879.jpg" />
+  <img src="Z:/picture/008/save_picture_336879.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ ASUS Eee PC 1001PX Инженерный образ системного разд
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332583.jpg" />
+  <img src="Z:/picture/005/save_picture_332583.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Recovery Partition for Samsung RV515 / Windows 7 Home Basic (х64) SP1 [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323517.jpg" />
+  <img src="Z:/picture/008/save_picture_323517.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Recovery Partition for SONY VAIO VPC-EB4J1R (PCG-71211V) / Windows 7 Home Basic 
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_321855.jpg" />
+  <img src="Z:/picture/005/save_picture_321855.jpg" />
 </div>
 
 

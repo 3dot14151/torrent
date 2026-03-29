@@ -1,3 +1,107 @@
+###  Публикация: 1326132   (387302) от 19.09.2019
+
+Movavi PDF Editor 2.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для редактирования PDF на Mac сложно подобрать подходящую программу: онлайн-сервисы не стоит использовать для обработки конфиденциальной информации, бесплатные приложения часто «глючат» и не содержат нужных функций, а платный редактор PDF для Mac может стоить, как крыло самолета. Поэтому было создано функциональное приложение, которое позволит редактировать PDF на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2019Разработчик: MovaviПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721043C9694E17173B3196C8E2ACDC02C4526DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326262   (387173) от 19.09.2019
+
+Paintstorm Studio 2.42 (build 170919) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paintstorm Studio – незаменимый инструмент для художников, созданный не только для простых скетчей, но и для работ любой сложности, жанра и техники. Paintstorm Studio полностью раскрывает все возможности Apple Pencil и выводит вас на по-настоящему новый уровень рисования. Создание шедевров искусства цифровой живописи еще никогда не было настолько мобильно и доступно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2019Разработчик: paintstormstudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B50D5AA427B0A794EE03DC07639D90FED330EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067539   (387122) от 29.10.2016
+
+SteerMouse 5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387122.jpg" />
+</div>
+
+
+###  Подробнее
+
+SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2016Разработчик: plentycomПоддерживаемая ОС: OS X 10.6  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83FACF56A4A5731D6CF01E866A69757E92AB05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174248   (386948) от 14.10.2017
+
+Movavi Slideshow Maker 3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_386948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу на русском языке. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2017Разработчик: MovaviПоддерживаемая ОС: OS X 10.6.0 или более новаяЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC148E25EBB905F71C78F0ADC793EF73205E718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253039   (386891) от 07.10.2018
 
 CleanMyMac X 4.0.4 [Multi/Ru]
@@ -6,7 +110,7 @@ CleanMyMac X 4.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386891.jpg" />
+  <img src="Z:/picture/008/save_picture_386891.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Coda 2.5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386864.jpg" />
+  <img src="Z:/picture/008/save_picture_386864.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ Capture One Pro 7.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_386781.jpg" />
+  <img src="Z:/picture/005/save_picture_386781.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Waltr 2 v2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386487.jpg" />
+  <img src="Z:/picture/008/save_picture_386487.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ QuartzCode 1.62.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385572.jpg" />
+  <img src="Z:/picture/008/save_picture_385572.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Acorn 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385545.jpg" />
+  <img src="Z:/picture/008/save_picture_385545.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385219.jpg" />
+  <img src="Z:/picture/008/save_picture_385219.jpg" />
 </div>
 
 
@@ -198,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385217.jpg" />
+  <img src="Z:/picture/008/save_picture_385217.jpg" />
 </div>
 
 
@@ -224,7 +328,7 @@ Wondershare Recoverit 8 v8.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385206.jpg" />
+  <img src="Z:/picture/008/save_picture_385206.jpg" />
 </div>
 
 
@@ -251,7 +355,7 @@ MathType 7 v7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385085.jpg" />
+  <img src="Z:/picture/008/save_picture_385085.jpg" />
 </div>
 
 
@@ -277,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384978.jpg" />
+  <img src="Z:/picture/008/save_picture_384978.jpg" />
 </div>
 
 
@@ -304,7 +408,7 @@ SizeUp 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384921.jpg" />
+  <img src="Z:/picture/008/save_picture_384921.jpg" />
 </div>
 
 
@@ -331,7 +435,7 @@ WiFiSpoof 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384913.jpg" />
+  <img src="Z:/picture/008/save_picture_384913.jpg" />
 </div>
 
 
@@ -360,7 +464,7 @@ Deponia 2: Chaos on Deponia [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_384687.jpg" />
+  <img src="Z:/picture/005/save_picture_384687.jpg" />
 </div>
 
 
@@ -390,7 +494,7 @@ PictureCode Photo Ninja 1.3.4b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384620.jpg" />
+  <img src="Z:/picture/008/save_picture_384620.jpg" />
 </div>
 
 
@@ -417,7 +521,7 @@ Keep It 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383591.jpg" />
+  <img src="Z:/picture/008/save_picture_383591.jpg" />
 </div>
 
 
@@ -443,7 +547,7 @@ Sketch 69 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383526.jpg" />
+  <img src="Z:/picture/008/save_picture_383526.jpg" />
 </div>
 
 
@@ -470,7 +574,7 @@ SnippetsLab 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383509.jpg" />
+  <img src="Z:/picture/008/save_picture_383509.jpg" />
 </div>
 
 
@@ -496,7 +600,7 @@ Dash 4.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383508.jpg" />
+  <img src="Z:/picture/008/save_picture_383508.jpg" />
 </div>
 
 
@@ -522,7 +626,7 @@ Liquivid Video Improve 2.7.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383507.jpg" />
+  <img src="Z:/picture/008/save_picture_383507.jpg" />
 </div>
 
 
@@ -550,7 +654,7 @@ Newsflow v 1.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383505.jpg" />
+  <img src="Z:/picture/008/save_picture_383505.jpg" />
 </div>
 
 
@@ -579,7 +683,7 @@ ExpanDrive 7.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383494.jpg" />
+  <img src="Z:/picture/008/save_picture_383494.jpg" />
 </div>
 
 
@@ -592,117 +696,6 @@ ExpanDrive 7.2.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B73759FAEF5180BE1A583EB48BB537FED67D7487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326576   (383383) от 21.09.2019
-
-Live Home 3D Pro Edition 3.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
-
-Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2019Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB458688E22B51FD8BA5FF617614C37D96D77872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068337   (383356) от 31.10.2016
-
-Privatus 5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privatus  - автоматизированная защита конфиденциальности
-Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 октября 2016Разработчик: SweetP Productions.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F28F6360BA315F583AB8517C91A9160562E963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174728   (383260) от 16.10.2017
-
-KCNcrew Pack 10.15.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383260.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на сентябрь 2017 года.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2017Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BE1037D6494AB803E9E8DFC1B2952182A1BE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326601   (383224) от 21.09.2019
-
-DaisyDisk 4.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383224.jpg" />
-</div>
-
-
-###  Подробнее
-
-DaisyDisk - утилита которая весьма необычным образом подскажет какие громоздкие файлы и папки присутствуют на вашем Mac, если сказать точнее, то это визуализатор дискового пространства, который помогает быстро выявить проблемные зоны на накопителе и в два щелчка мыши, удалить все лишнее.
-
-Нерегулярно, но иногда бывает так, что вчера у вас на диске свободно было еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: Software Ambience Corp.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2943ADEA7474C7C4DD0FB21B1B534E92D9F0E3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

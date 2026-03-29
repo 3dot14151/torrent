@@ -1,3 +1,140 @@
+###  Публикация: 1261872   (300890) от 12.11.2018
+
+CCleaner Pro 1.15.507 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для эффективной очистки и оптимизиции вашего Mac, которое прекрасно справляется с возложенными на нее функциями, позволяя вашему Mac работать быстрее и освобождая место на жестком диске. CCleaner удаляет временные и неиспользуемые файлы из вашей системы - интернет кеш установленных браузеров, системный и пользовательский кеш, куки, различные системные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2018Разработчик: PiriformПоддерживаемая ОС: Mac OS X 10.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0B251405FBBDD4AD18E2EF1CC3ED2895C2EF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423483   (300755) от 13.11.2020
+
+GraphicConverter 11 v11.3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300755.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Lemke Software GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D467B3CDA4A0E736DEA9F7584A3E0591D7B425DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261747   (300362) от 12.11.2018
+
+Adobe Media Encoder CC 2019 v13.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Encoder CC. Универсальное приложение для обработки любого медиаконтента.
+Вставка, транскодирование, создание прокси-версий и вывод в любом желаемом формате. Этот мощный инструмент управления медиаконтентом предоставляет одинаковые функции для работы с мультимедийными файлами в различных приложениях.
+
+Благодаря тесной интеграции с Adobe Premiere Pro CC, After (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BD539250BDC1933BEFCA983B96DA9AC2E46060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078585   (300300) от 01.12.2016
+
+Infographics 3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое Инфографика (Infographics)?
+Справочная иллюстрированная информация, представленная в виде диаграмм, таблиц и графиков. Известно что присутствие инфографики в какой-либо публикации сильно влияет на ее заметность и повышает качество материалов.
+В бизнесе инфографика может использоваться менеджерами и маркетологами в тех случаях, когда им необходимо представить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B03A36FC49640B1825EAC77698DF71C26D49C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078697   (300154) от 01.12.2016
+
+FoxTrot Professional Search 5.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300154.jpg" />
+</div>
+
+
+###  Подробнее
+
+FoxTrot Professional Search утилита от компании CTM , в которой реализованы расширенные возможности поиска данных в файловой системе.
+Кроме поиска в самих файлах, утилита FoxTrot Professional Searchn от CTM позволяет вести поиск внутри метаданных, в тексте файлов PDF, HTML, в электронной почте и в документах текстовых редакторов.
+Результаты поиска систематизируются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 сентября 2016Разработчик: CTMПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DE9C1160960BC9374424DB7B6B289560596DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334053   (299118) от 27.10.2019
 
 Cisdem PDFCreator 7.1.0 [En]
@@ -6,7 +143,7 @@ Cisdem PDFCreator 7.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299118.jpg" />
+  <img src="Z:/picture/008/save_picture_299118.jpg" />
 </div>
 
 
@@ -34,7 +171,7 @@ Cisdem WindowManager 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298954.jpg" />
+  <img src="Z:/picture/008/save_picture_298954.jpg" />
 </div>
 
 
@@ -60,7 +197,7 @@ Split Screen 3.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298887.jpg" />
+  <img src="Z:/picture/008/save_picture_298887.jpg" />
 </div>
 
 
@@ -88,7 +225,7 @@ VoodooPad 5 v5.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298764.jpg" />
+  <img src="Z:/picture/008/save_picture_298764.jpg" />
 </div>
 
 
@@ -114,7 +251,7 @@ Orion PDF Author 2 v2.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298762.jpg" />
+  <img src="Z:/picture/008/save_picture_298762.jpg" />
 </div>
 
 
@@ -140,7 +277,7 @@ PDF Expert 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298722.jpg" />
+  <img src="Z:/picture/008/save_picture_298722.jpg" />
 </div>
 
 
@@ -169,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298691.jpg" />
+  <img src="Z:/picture/008/save_picture_298691.jpg" />
 </div>
 
 
@@ -196,7 +333,7 @@ Total Video Tools 1.2.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298679.jpg" />
+  <img src="Z:/picture/008/save_picture_298679.jpg" />
 </div>
 
 
@@ -224,7 +361,7 @@ Dr. Cleaner Pro 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298617.jpg" />
+  <img src="Z:/picture/008/save_picture_298617.jpg" />
 </div>
 
 
@@ -252,7 +389,7 @@ Framer Studio v123 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298523.jpg" />
+  <img src="Z:/picture/008/save_picture_298523.jpg" />
 </div>
 
 
@@ -280,7 +417,7 @@ Debit & Credit - Учет финансов 2.5.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297433.jpg" />
+  <img src="Z:/picture/008/save_picture_297433.jpg" />
 </div>
 
 
@@ -306,7 +443,7 @@ Logic Pro  10.6.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297342.jpg" />
+  <img src="Z:/picture/008/save_picture_297342.jpg" />
 </div>
 
 
@@ -332,7 +469,7 @@ ShredIt X 6.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297022.jpg" />
+  <img src="Z:/picture/008/save_picture_297022.jpg" />
 </div>
 
 
@@ -360,7 +497,7 @@ MiniNote Pro 5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297018.jpg" />
+  <img src="Z:/picture/008/save_picture_297018.jpg" />
 </div>
 
 
@@ -388,7 +525,7 @@ Touch Forms Pro 7 v7.27.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297016.jpg" />
+  <img src="Z:/picture/008/save_picture_297016.jpg" />
 </div>
 
 
@@ -414,7 +551,7 @@ Curio 10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296991.jpg" />
+  <img src="Z:/picture/008/save_picture_296991.jpg" />
 </div>
 
 
@@ -441,7 +578,7 @@ PDFPen 11.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296927.jpg" />
+  <img src="Z:/picture/008/save_picture_296927.jpg" />
 </div>
 
 
@@ -467,7 +604,7 @@ Photo Wall - Collage Maker 8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296858.jpg" />
+  <img src="Z:/picture/008/save_picture_296858.jpg" />
 </div>
 
 
@@ -493,7 +630,7 @@ iExplorer 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296795.jpg" />
+  <img src="Z:/picture/008/save_picture_296795.jpg" />
 </div>
 
 
@@ -520,7 +657,7 @@ Wondershare Video Converter Ultimate 10.2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296782.jpg" />
+  <img src="Z:/picture/008/save_picture_296782.jpg" />
 </div>
 
 
@@ -546,7 +683,7 @@ Priime Styles 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295982.jpg" />
+  <img src="Z:/picture/008/save_picture_295982.jpg" />
 </div>
 
 
@@ -558,141 +695,6 @@ Priime обладает более чем 100 фотографическими �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6F43A392ECE8F76C023D92071DC48BCB56DA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424125   (295810) от 15.11.2020
-
-Motion Weather 4K - Ultra HD 1.1.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Motion Weather 4K: самое безумно красивое и инновационное погодное приложение из когда-либо созданных. Motion Weather 4K превращает ваши обои в захватывающее видео 4K кинематографического качества на основе погодных условий и само по себе является отличным погодным приложением. Motion Weather 4K также «знает», когда сейчас день и ночь, и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2020Разработчик: MACH SOFTWARE DESIGNПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D63364032C1A08653A76A042CED1A8AD764134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079178   (295164) от 03.12.2016
-
-Video Converter Movavi 7.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший видеоконвертер – полностью на русском языке!
-Конвертер Видео Movavi – это самый простой, удобный и быстрый способ конвертировать видео в AVI, MP4, MKV, FLV, MPEG-1,2, 3GP, MOV, WMV и другие форматы.
-
-Используйте готовые “умные” настройки для конвертации в разные форматы, например MP4, AVI, FLV, MPEG. Пользуйтесь готовыми профилями для мобильных устройств Apple, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 ноября 2016Разработчик: GOLDEN SOFTWARE INC.Поддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F97A1B8F785CA7B1B079FBDD91394F3BA05F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334561   (294881) от 29.10.2019
-
-Flare 2 v2.2.7 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flare позволит вам быстро и легко отредактировать фотографии, добавить красочных эффектов, рамок или выполнить цветокоррекцию.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: The IconfactoryПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41A0237F3B8FE3DAD637CB02A7C6BB454E6871F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962495   (294728) от 04.12.2015
-
-Things 2.8.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 декабря 2015Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595C715CB04267A0E993CB283ABAE4D5CFD77D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334463   (294676) от 29.10.2019
-
-SimLab Composer 9 v9.2.17 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294676.jpg" />
-</div>
-
-
-###  Подробнее
-
-SimLab Composer - мощная программа, которая поможет вам создавать 3D сцены и рендеринг, есть возможность совместно работать над проектом и создавать анимацию разного уровня сложности. Как уверяют некоторые, если вы понимаете о чем идет речь и уже имели дела с такими приложениями, то данный софт покажется вам максимально простым и очень функциональным, отвечает всем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Simulation Lab Software LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BE92672C9AF3B84CFCB11DFF43702F1B8A8FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

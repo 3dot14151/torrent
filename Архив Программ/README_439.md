@@ -6,7 +6,7 @@ Windows 10 Pro x64 v.1909.18363.815 2in1 April 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816703.jpg" />
+  <img src="Z:/picture/008/save_picture_816703.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Reader DC 2020.009.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816700.jpg" />
+  <img src="Z:/picture/008/save_picture_816700.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AMD Radeon Software Crimson ReLive Edition 17.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816643.jpg" />
+  <img src="Z:/picture/008/save_picture_816643.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tenorshare Any Data Recovery Pro 5.5.0.0 RePack by tolyan76 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816636.jpg" />
+  <img src="Z:/picture/008/save_picture_816636.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JetBrains RubyMine 2017.1 Build #RM-171.3780.96 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816630.jpg" />
+  <img src="Z:/picture/008/save_picture_816630.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Comodo Cloud Antivirus 1.10.412605.476 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816628.jpg" />
+  <img src="Z:/picture/008/save_picture_816628.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Araxis Merge 2014.4565 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816614.jpg" />
+  <img src="Z:/picture/008/save_picture_816614.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Acrobat Pro DC 2020.009.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816602.jpg" />
+  <img src="Z:/picture/008/save_picture_816602.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cumulative Update KB4016635 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816546.jpg" />
+  <img src="Z:/picture/008/save_picture_816546.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cumulative Update KB4016637 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816545.jpg" />
+  <img src="Z:/picture/008/save_picture_816545.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wire 2.12.2729 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816542.jpg" />
+  <img src="Z:/picture/008/save_picture_816542.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chrome Cleanup 17.97.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816541.jpg" />
+  <img src="Z:/picture/008/save_picture_816541.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ JetBrains DataGrip 2017.1 Build #DB-171.3780.102 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816537.jpg" />
+  <img src="Z:/picture/008/save_picture_816537.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Acoustica Mixcraft Pro Studio 7.1.264 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816521.jpg" />
+  <img src="Z:/picture/008/save_picture_816521.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Internet Download Manager 6.28 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816483.jpg" />
+  <img src="Z:/picture/008/save_picture_816483.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Form Pilot Office 2.53 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816481.jpg" />
+  <img src="Z:/picture/008/save_picture_816481.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GridinSoft Anti-Malware 3.0.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816475.jpg" />
+  <img src="Z:/picture/008/save_picture_816475.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ WPI by Roman Lukyanets (20.03.2017) Ver 1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816397.jpg" />
+  <img src="Z:/picture/008/save_picture_816397.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera GX 80.0.4170.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815972.jpg" />
+  <img src="Z:/picture/008/save_picture_815972.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Notepad++ 8.1.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815962.jpg" />
+  <img src="Z:/picture/008/save_picture_815962.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Q-Dir 9.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815960.jpg" />
+  <img src="Z:/picture/008/save_picture_815960.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AllDup 4.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815956.jpg" />
+  <img src="Z:/picture/008/save_picture_815956.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Chromium 95.0.4638.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815952.jpg" />
+  <img src="Z:/picture/008/save_picture_815952.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Emurasoft EmEditor Professional 21.1.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815945.jpg" />
+  <img src="Z:/picture/008/save_picture_815945.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Opera 80.0.4170.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815886.jpg" />
+  <img src="Z:/picture/008/save_picture_815886.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Internet Download Manager 6.39 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815884.jpg" />
+  <img src="Z:/picture/008/save_picture_815884.jpg" />
 </div>
 
 

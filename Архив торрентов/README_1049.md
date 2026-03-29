@@ -6,7 +6,7 @@ IconJar 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806353.jpg" />
+  <img src="Z:/picture/008/save_picture_806353.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806351.jpg" />
+  <img src="Z:/picture/008/save_picture_806351.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ KCNcrew Pack 05-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806350.jpg" />
+  <img src="Z:/picture/008/save_picture_806350.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nevercenter CameraBag Pro 2020.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806347.jpg" />
+  <img src="Z:/picture/008/save_picture_806347.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Affinity Publisher Beta 1.8.4.651 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806345.jpg" />
+  <img src="Z:/picture/008/save_picture_806345.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nevercenter CameraBag Photo 2020.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806344.jpg" />
+  <img src="Z:/picture/008/save_picture_806344.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PeaZip 7.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806341.jpg" />
+  <img src="Z:/picture/008/save_picture_806341.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Mia for Gmail 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806339.jpg" />
+  <img src="Z:/picture/008/save_picture_806339.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Autorun Organizer 5.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806318.jpg" />
+  <img src="Z:/picture/008/save_picture_806318.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Sigil 1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806311.jpg" />
+  <img src="Z:/picture/008/save_picture_806311.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806302.jpg" />
+  <img src="Z:/picture/008/save_picture_806302.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806299.jpg" />
+  <img src="Z:/picture/008/save_picture_806299.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806298.jpg" />
+  <img src="Z:/picture/008/save_picture_806298.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806297.jpg" />
+  <img src="Z:/picture/008/save_picture_806297.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Liquid Bloom - Re.Generations (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806294.jpg" />
+  <img src="Z:/picture/008/save_picture_806294.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ WinCatalog 2017 17.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806277.jpg" />
+  <img src="Z:/picture/008/save_picture_806277.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Path Finder 9.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806275.jpg" />
+  <img src="Z:/picture/008/save_picture_806275.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Opera GX 68.0.3618.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806272.jpg" />
+  <img src="Z:/picture/008/save_picture_806272.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Separation Studio 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806269.jpg" />
+  <img src="Z:/picture/008/save_picture_806269.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Folder Icons 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806268.jpg" />
+  <img src="Z:/picture/008/save_picture_806268.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Movist Pro 2.2.18 (build 145) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806267.jpg" />
+  <img src="Z:/picture/008/save_picture_806267.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Glary Utilities Pro 5.142.0.168 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806266.jpg" />
+  <img src="Z:/picture/008/save_picture_806266.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ PC Cleaner Pro 8.1.0.16 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806253.jpg" />
+  <img src="Z:/picture/008/save_picture_806253.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ NirLauncher Package 1.23.53 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806247.jpg" />
+  <img src="Z:/picture/008/save_picture_806247.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806237.jpg" />
+  <img src="Z:/picture/008/save_picture_806237.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806216.jpg" />
+  <img src="Z:/picture/008/save_picture_806216.jpg" />
 </div>
 
 

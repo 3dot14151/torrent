@@ -1,3 +1,29 @@
+###  Публикация: 712449   (404187) от 18.10.2013
+
+Пропавший медальон / The Lost Medallion: The Adventures of Billy Stone (2013) BDRip [720p] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Археолог Майкл Стоун искал утерянный медальон всю свою жизнь. Теперь уже его сын Билли продолжает эти поиски. Однажды Билли улыбнулась удача, и заветный медальон оказывается у него в руках. Вместе со своим лучшим другом Олли, поддавшись спонтанному желанию, они неожиданно попадают назад на 200 лет…Производство: ТаиландЖанр: ПриключенияРежиссер: Билл МьюирАктеры: Билли Ангер, Сэмми Ханратти, Джеймс Хонг, Джэнсен Панеттьер, Уильям Коркери, Алекс Кендрик, Марк Дакаскос, Лиза ЛоЦицеро, Хэл Рубник, Сидни С. ЛиуфаПеревод: Одноголосый закадровыйЯзык субтитров: Русский, AнглийскийПродолжительность: 01:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2521F03D8A7C14AD8FD4F6B42DFC2E349ACDD00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 713816   (400488) от 22.10.2013
 
 Робосапиен: Перезагрузка / Robosapien: Rebooted (2013) BDRip [720p] [VO]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400488.jpg" />
+  <img src="Z:/picture/008/save_picture_400488.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400418.jpg" />
+  <img src="Z:/picture/008/save_picture_400418.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397994.jpg" />
+  <img src="Z:/picture/008/save_picture_397994.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387174.jpg" />
+  <img src="Z:/picture/008/save_picture_387174.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387084.jpg" />
+  <img src="Z:/picture/008/save_picture_387084.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386844.jpg" />
+  <img src="Z:/picture/008/save_picture_386844.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381428.jpg" />
+  <img src="Z:/picture/008/save_picture_381428.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380466.jpg" />
+  <img src="Z:/picture/008/save_picture_380466.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374062.jpg" />
+  <img src="Z:/picture/008/save_picture_374062.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372714.jpg" />
+  <img src="Z:/picture/008/save_picture_372714.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372224.jpg" />
+  <img src="Z:/picture/008/save_picture_372224.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365720.jpg" />
+  <img src="Z:/picture/008/save_picture_365720.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365716.jpg" />
+  <img src="Z:/picture/008/save_picture_365716.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364961.jpg" />
+  <img src="Z:/picture/008/save_picture_364961.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364624.jpg" />
+  <img src="Z:/picture/008/save_picture_364624.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362218.jpg" />
+  <img src="Z:/picture/008/save_picture_362218.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358192.jpg" />
+  <img src="Z:/picture/008/save_picture_358192.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357758.jpg" />
+  <img src="Z:/picture/008/save_picture_357758.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357001.jpg" />
+  <img src="Z:/picture/005/save_picture_357001.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355464.jpg" />
+  <img src="Z:/picture/008/save_picture_355464.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354011.jpg" />
+  <img src="Z:/picture/008/save_picture_354011.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352171.jpg" />
+  <img src="Z:/picture/008/save_picture_352171.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350646.jpg" />
+  <img src="Z:/picture/008/save_picture_350646.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346144.jpg" />
+  <img src="Z:/picture/008/save_picture_346144.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345363.jpg" />
+  <img src="Z:/picture/008/save_picture_345363.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC17501F6ACC58D571D34B7EC692EBEA0A568909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073512   (345209) от 16.11.2016
-
-Большой и добрый великан / The BFG  (2016) BDRip [H.264/1080p] [EN]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345209.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории девочка по имени Софи, которая не смогла заснуть до полуночи и в окошко увидела огромного великана, который подходил к соседним домам и начинал дуть в окна спален. В полном соответствии со старинными поверьями и детскими страшилками, великан увидел Софи и унес к себе домой, в страну великанов.
-Как оказалось, он в этой самой стране был единственным (   Читать дальше...   )Производство: Великобритания, Канада, СШАЖанр: фэнтези, приключения, семейныйРежиссер: Стивен СпилбергАктеры: Марк Райлэнс, Руби Барнхилл, Пенелопа Уилтон, Джемейн Клемент, Ребекка Холл, Рейф Сполл, Билл Хейдер, Оулавюр Дарри Оулафссон, Адам Годли, Майкл Адамуэйт, Дэниэл Бэйкон, Джонатан ХолмсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD16303870699B75BB66564D14DD3BCCC3299FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

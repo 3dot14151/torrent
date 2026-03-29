@@ -6,7 +6,7 @@ Registry Life 5.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783664.jpg" />
+  <img src="Z:/picture/008/save_picture_783664.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1797 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783657.jpg" />
+  <img src="Z:/picture/008/save_picture_783657.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Skype 8.61.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783645.jpg" />
+  <img src="Z:/picture/008/save_picture_783645.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CrystalDiskInfo 8.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783644.jpg" />
+  <img src="Z:/picture/008/save_picture_783644.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Athentech Perfectly Clear Complete 3.10.0.1797 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783643.jpg" />
+  <img src="Z:/picture/008/save_picture_783643.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Topaz Gigapixel AI 4.9.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783630.jpg" />
+  <img src="Z:/picture/008/save_picture_783630.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SamDrivers 20.5 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783629.jpg" />
+  <img src="Z:/picture/008/save_picture_783629.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Xilinx Vitis Unified Software Platform 2020.1 [En] (unpacked)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783617.jpg" />
+  <img src="Z:/picture/008/save_picture_783617.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra (12.06.2020) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783582.jpg" />
+  <img src="Z:/picture/008/save_picture_783582.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783480.jpg" />
+  <img src="Z:/picture/008/save_picture_783480.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783477.jpg" />
+  <img src="Z:/picture/008/save_picture_783477.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Recover Keys Enterprise 10.0.4.201 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783467.jpg" />
+  <img src="Z:/picture/008/save_picture_783467.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ YTD Video Downloader PRO 5.9.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783457.jpg" />
+  <img src="Z:/picture/008/save_picture_783457.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Movavi Video Converter 18.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783446.jpg" />
+  <img src="Z:/picture/008/save_picture_783446.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Nox App Player 6.0.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783430.jpg" />
+  <img src="Z:/picture/008/save_picture_783430.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Daum PotPlayer 1.7.8557 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783420.jpg" />
+  <img src="Z:/picture/008/save_picture_783420.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Ashampoo WinOptimizer 15.00.05 DC 09.02.2018 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783410.jpg" />
+  <img src="Z:/picture/008/save_picture_783410.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VLC Media Player 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783401.jpg" />
+  <img src="Z:/picture/008/save_picture_783401.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ JRiver Media Center 26.0.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783396.jpg" />
+  <img src="Z:/picture/008/save_picture_783396.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Google Earth Pro 7.3.1.4507 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783378.jpg" />
+  <img src="Z:/picture/008/save_picture_783378.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VMware Workstation 12 Pro 12.5.9.7535481 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783365.jpg" />
+  <img src="Z:/picture/008/save_picture_783365.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ StaxRip 2.1.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783355.jpg" />
+  <img src="Z:/picture/008/save_picture_783355.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ MediaHuman YouTube Downloader 3.9.9.40 (1306) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783341.jpg" />
+  <img src="Z:/picture/008/save_picture_783341.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Care 365 Pro 5.5.4.549 DC 26.05.20 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783338.jpg" />
+  <img src="Z:/picture/008/save_picture_783338.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Freemake Video Converter 4.1.11.35 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783325.jpg" />
+  <img src="Z:/picture/008/save_picture_783325.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wondershare Filmora 9.5.0.21 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783309.jpg" />
+  <img src="Z:/picture/008/save_picture_783309.jpg" />
 </div>
 
 

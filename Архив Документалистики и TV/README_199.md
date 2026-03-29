@@ -1,3 +1,171 @@
+###  Публикация: 1047421   (550461) от 29.08.2016
+
+Футбол. Чемпионат Италии 2016-2017. 2-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 2-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Еремеев)Продолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28945B0951D60A6CE081BCE88D7EB2E3319FB43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047287   (550374) от 29.08.2016
+
+Футбол. Чемпионат Испании 2016-2017. 2-й тур. Атлетик (Бильбао) - Барселона (28.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550374.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 августа 2016, воскресенье. 21:15 МСК
+2-й тур
+
+Стадион: Сан-Мамес (Бильбао, Испания) , 46 635 зрителей (87 % при вместимости 53 332)(   Читать дальше...   )Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортЯзык озвучки: Русский / АнглийскийПродолжительность: 01:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1582682D3AA214C83558A590AE6802C3592796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047259   (550372) от 29.08.2016
+
+Футбол. Чемпионат Англии 2016-2017. 3-й тур. Вест Бромвич - Мидлсбро (28.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550372.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 августа 2016, воскресенье. 15:30 МСК
+3-й тур
+
+Стадион: Хоуторнс (Вест Бромвич, Англия) , 23 690 зрителей (85 % при вместимости 28 003)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA2C1AE208CE30BF1C189C4077FCAC326467DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047191   (550371) от 29.08.2016
+
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Мужчины. Спринт 10 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550371.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 11:30 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония).
+ Мужчины. Спринт 10 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3139D8ADA51A8A03CB5AEE8A527D02F316695AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047192   (550356) от 29.08.2016
+
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Женщины. Спринт 7,5 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550356.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 14:00 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония)
+Женщины. Спринт 7,5 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B239AFB50208ABF9A5659418A46F2CC86A445B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047267   (550269) от 29.08.2016
+
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Юниорки. Гонка преследования 10 км (28.08.2016) WEB-DL [H.264/576p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550269.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 августа 2016, воскресенье. 09:30 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония)
+Юниорки. Гонка преследования 10 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Илья Трифанов)Продолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409761477F8A4AE0A5DEF9CBFE4D6A84E0C67152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047253   (550268) от 29.08.2016
 
 Футбол. Чемпионат России 2016-2017. 5-й тур. Анжи - Спартак (Москва) (28.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
@@ -6,7 +174,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550268.jpg" />
+  <img src="Z:/picture/008/save_picture_550268.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550255.jpg" />
+  <img src="Z:/picture/008/save_picture_550255.jpg" />
 </div>
 
 
@@ -64,7 +232,7 @@ Verizon IndyCar Series 2016. Firestone 600. Texas Motor Speedway. (2016.08.27) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550188.jpg" />
+  <img src="Z:/picture/008/save_picture_550188.jpg" />
 </div>
 
 
@@ -92,7 +260,7 @@ Verizon IndyCar Series 2016. Firestone 600. Texas Motor Speedway. (2016.08.27) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550182.jpg" />
+  <img src="Z:/picture/008/save_picture_550182.jpg" />
 </div>
 
 
@@ -120,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550105.jpg" />
+  <img src="Z:/picture/008/save_picture_550105.jpg" />
 </div>
 
 
@@ -148,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549605.jpg" />
+  <img src="Z:/picture/008/save_picture_549605.jpg" />
 </div>
 
 
@@ -177,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549496.jpg" />
+  <img src="Z:/picture/008/save_picture_549496.jpg" />
 </div>
 
 
@@ -206,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549495.jpg" />
+  <img src="Z:/picture/008/save_picture_549495.jpg" />
 </div>
 
 
@@ -235,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549494.jpg" />
+  <img src="Z:/picture/008/save_picture_549494.jpg" />
 </div>
 
 
@@ -264,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549493.jpg" />
+  <img src="Z:/picture/008/save_picture_549493.jpg" />
 </div>
 
 
@@ -293,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549492.jpg" />
+  <img src="Z:/picture/008/save_picture_549492.jpg" />
 </div>
 
 
@@ -322,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549491.jpg" />
+  <img src="Z:/picture/008/save_picture_549491.jpg" />
 </div>
 
 
@@ -351,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549490.jpg" />
+  <img src="Z:/picture/008/save_picture_549490.jpg" />
 </div>
 
 
@@ -380,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549489.jpg" />
+  <img src="Z:/picture/008/save_picture_549489.jpg" />
 </div>
 
 
@@ -409,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549488.jpg" />
+  <img src="Z:/picture/008/save_picture_549488.jpg" />
 </div>
 
 
@@ -438,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549487.jpg" />
+  <img src="Z:/picture/008/save_picture_549487.jpg" />
 </div>
 
 
@@ -467,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549418.jpg" />
+  <img src="Z:/picture/008/save_picture_549418.jpg" />
 </div>
 
 
@@ -496,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549416.jpg" />
+  <img src="Z:/picture/008/save_picture_549416.jpg" />
 </div>
 
 
@@ -525,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549414.jpg" />
+  <img src="Z:/picture/008/save_picture_549414.jpg" />
 </div>
 
 
@@ -551,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549413.jpg" />
+  <img src="Z:/picture/008/save_picture_549413.jpg" />
 </div>
 
 
@@ -565,168 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D3A583685BD2865D0F92F2CAE6E745D11270D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047442   (549409) от 30.08.2016
-
-Хоккей. КХЛ 2016-2017. СКА - Металлург (Магнитогорск) (27.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549409.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 августа 2016, суббота. 17:00 МСК
-
-Стадион: Ледовый дворец (Санкт-Петербург, Россия) , 11 011 зрителей (88 % при вместимости 12 500)
-Главный судья: Алексей Белов (Ярославль, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Ткачёв, Борисов)Продолжительность: 02:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE25C5EA29719951874266D0E97F06AFE51EE9BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047384   (549408) от 30.08.2016
-
-Футбол. Чемпионат Испании 2016-2017. 2-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 2-го тура.Телекомпания: Sport1+ HDЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F432C4BF2AF5FE46DB552AEB13F63EBC372B1453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047558   (549407) от 30.08.2016
-
-Футбол. Чемпионат России 2016-2017. 5-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 5-го тура.Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Эльвин Керимов)Продолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01A4AF9606B3764FB345AE3625B5AEEE56D5C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047564   (549406) от 30.08.2016
-
-Пляжный футбол. Евролига 2016. Суперфинал. Катания (Италия). Финал. Украина - Португалия (28.08.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549406.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 августа 2016, воскресенье. 19:10 МСК
-Евролига 2016. Суперфинал. Катания (Италия). Финал
-Матч № 16
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D654CB112F6CB87E81CF49EA1D5F2D38F084381C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047556   (549405) от 30.08.2016
-
-Футбол. Чемпионат Германии 2016-2017. 1-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 1-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Кирилл Дементьев)Продолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9810E591B1987D5B9681CD3700076DCEA909E0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047726   (549399) от 30.08.2016
-
-Футбол. Чемпионат Испании 2016-2017. 2-й тур. Обзор матчей (29.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 2-го тура.Телекомпания: Сетанта Спорт Евразия HDЖанр: СпортЯзык озвучки: Русский / АнглийскийПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80543552AE5702ED1F7E44240C3561886074FC98
 ```
 
 https://mybot314.ru/tekegram_catalog/

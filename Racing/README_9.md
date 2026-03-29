@@ -6,7 +6,7 @@ Crash Time Anthology / Антология Crash Time [Ru/En] (RePack/3.1.3/1.3.3
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404274.jpg" />
+  <img src="Z:/picture/008/save_picture_404274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FlatOut Anthology / Антология FlatOut [Ru/En] (RePack) 2004 - 2011 | R.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399636.jpg" />
+  <img src="Z:/picture/008/save_picture_399636.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Road Redemption (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396402.jpg" />
+  <img src="Z:/picture/008/save_picture_396402.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ F1 2017 (2017) [Ru/En] (1.7) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395406.jpg" />
+  <img src="Z:/picture/008/save_picture_395406.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Need for Speed: Most Wanted [Ru/Multi7] (L) 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394375.jpg" />
+  <img src="Z:/picture/008/save_picture_394375.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Auto Age: Standoff (2017) [En] (1.1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391654.jpg" />
+  <img src="Z:/picture/008/save_picture_391654.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Monster Truck Destruction (2013) [Ru/Multi] (1.02) Unofficial Unleashed
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389195.jpg" />
+  <img src="Z:/picture/008/save_picture_389195.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Carmageddon: Max Damage (2016) [Ru/Multi] (1.0.0.5853) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379556.jpg" />
+  <img src="Z:/picture/008/save_picture_379556.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Glacier / Ледниковый патруль (L) [Ru] 2009
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375524.jpg" />
+  <img src="Z:/picture/008/save_picture_375524.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Knight Rider: The Game / Рыцарь дорог (2003) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375189.jpg" />
+  <img src="Z:/picture/008/save_picture_375189.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.2.0.1/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371355.jpg" />
+  <img src="Z:/picture/008/save_picture_371355.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Monster Truck Championship (2020) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366846.jpg" />
+  <img src="Z:/picture/008/save_picture_366846.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MotoGP 19 (2019) [Multi] (1.0/upd12/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362641.jpg" />
+  <img src="Z:/picture/008/save_picture_362641.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Carmageddon: Max Damage (2016) [Ru/En] (1.0.0.9857/dlc/u3) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346747.jpg" />
+  <img src="Z:/picture/008/save_picture_346747.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ F1 2013 (2013) [En] (1.06/dlc) Repack R.G. Catalyst [Classic Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344619.jpg" />
+  <img src="Z:/picture/008/save_picture_344619.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Antigraviator (2018) [Ru/Multi] (1.292/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340189.jpg" />
+  <img src="Z:/picture/008/save_picture_340189.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ FURIDASHI: Drift Cyber Sport (2017) [Ru/En] (101/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334779.jpg" />
+  <img src="Z:/picture/008/save_picture_334779.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ FURIDASHI: Drift Cyber Sport (2017) [Ru/En] (101/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334770.jpg" />
+  <img src="Z:/picture/008/save_picture_334770.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dakar Desert Rally (2022) [Multi] (Build 9579948/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326954.jpg" />
+  <img src="Z:/picture/008/save_picture_326954.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Meow Motors (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320281.jpg" />
+  <img src="Z:/picture/008/save_picture_320281.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311347.jpg" />
+  <img src="Z:/picture/008/save_picture_311347.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MotoGP 18 (2018) [Multi] (1.0) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311175.jpg" />
+  <img src="Z:/picture/008/save_picture_311175.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rise: Race The Future (2018) [Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311087.jpg" />
+  <img src="Z:/picture/008/save_picture_311087.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ GRIP: Combat Racing (2018) [Ru/Multi] (1.3/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308967.jpg" />
+  <img src="Z:/picture/008/save_picture_308967.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Drift King: Survival (2016) [Ru/En] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308174.jpg" />
+  <img src="Z:/picture/008/save_picture_308174.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Road Rage (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306773.jpg" />
+  <img src="Z:/picture/008/save_picture_306773.jpg" />
 </div>
 
 

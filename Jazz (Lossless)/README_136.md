@@ -1,3 +1,119 @@
+###  Публикация: 1149359   (601225) от 10.07.2017
+
+Stan Kenton - New Concepts of Artistry in Rhythm (1952) 1989, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (This is an Orchestra!) [10:00]
+02. Portrait of a Count [03:17]
+03. Young Blood [03:15]
+04. Frank Speaking [03:14](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8E6B1B5B19934F894CD886C082210BD5B79FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149446   (601220) от 10.07.2017
+
+John Hicks, Cecil McBee, Elvin Jones - Power Trio (1991) BMG Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cousin Mary [06:37]
+02. After The Rain [08:10]
+03. “D” Bass-ic Blues [06:50]
+04. Duke's Place [09:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057BC4D8EF7203B4C6CAC9431586CA04BE105251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149328   (601168) от 10.07.2017
+
+Billy Cobham - Flight Time (1980) 2006, Inak [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight Time [06:49]
+02. Antares [05:21]
+03. 6 Persimmons [06:47]
+04. Day Grace [04:45](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD55AD989FA5482D0D40420201744E599D788D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299137   (600855) от 30.04.2019
+
+Cindy Blackman - Arcane (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcane [5:19]
+02. Late Autumn [5:50]
+03. Dual Force [6:37]
+04. Incindyary [4:39](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF86BF71277CA1EB87C349DCC7B82F30A88773A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149537   (600375) от 11.07.2017
 
 Lionel Hampton - Jazz Time Paris vol.4, 5 & 6 (1953) Remaster, 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -6,7 +122,7 @@ Lionel Hampton - Jazz Time Paris vol.4, 5 & 6 (1953) Remaster, 2017, Sony Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600375.jpg" />
+  <img src="Z:/picture/008/save_picture_600375.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Songs For A Lazy Sunday (2001) 2CD, Rajon Music Group [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600370.jpg" />
+  <img src="Z:/picture/008/save_picture_600370.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Rigmor Gustafsson - When You Make Me Smile (2014) [FLAC|tracks+.cue]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600358.jpg" />
+  <img src="Z:/picture/008/save_picture_600358.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Jumpin' Jacquet (1944 - 1951) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600167.jpg" />
+  <img src="Z:/picture/008/save_picture_600167.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ V.S.O.P. The Quintet - Five Stars (1979) 2004, Wounded Bird Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600161.jpg" />
+  <img src="Z:/picture/008/save_picture_600161.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Gene Harris Quartet - It's The Real Soul (1996) Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600149.jpg" />
+  <img src="Z:/picture/008/save_picture_600149.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Bad Plus - Give (2004) Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599804.jpg" />
+  <img src="Z:/picture/008/save_picture_599804.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Chet Baker & Philip Catherine - There'll Never Be Another You (1985) Remaster, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599695.jpg" />
+  <img src="Z:/picture/008/save_picture_599695.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Donald Byrd & Doug Watkins - The Transition Sessions (1955, 1956) 2CD, 2002, Cap
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598637.jpg" />
+  <img src="Z:/picture/008/save_picture_598637.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598633.jpg" />
+  <img src="Z:/picture/008/save_picture_598633.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 3 (1959) /2014, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598575.jpg" />
+  <img src="Z:/picture/008/save_picture_598575.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Gigi Gryce Orch-Tette - Reminiscin' (1960) /2013, Universal/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598571.jpg" />
+  <img src="Z:/picture/008/save_picture_598571.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 2 (1959) /2014, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598570.jpg" />
+  <img src="Z:/picture/008/save_picture_598570.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Blue Chamber Quartet - Children's Songs (composed by Chick Corea) (2009) [FLAC|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598566.jpg" />
+  <img src="Z:/picture/008/save_picture_598566.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ James Brown - The CD Of JB: Sex Machine & Other Soul Classics (1985) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598535.jpg" />
+  <img src="Z:/picture/008/save_picture_598535.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ David Ian - Valentine's Day (2014) Prescott Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598417.jpg" />
+  <img src="Z:/picture/008/save_picture_598417.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tamir Hendelman - Destinations (2010) Resonance Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598416.jpg" />
+  <img src="Z:/picture/008/save_picture_598416.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ V.A. - The Very Best Of Smooth Jazz (2002) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597302.jpg" />
+  <img src="Z:/picture/005/save_picture_597302.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Various Artists - Blue Note Trip Vol. 10: Late Nights / Early Mornings 2CD (2012
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_596972.jpg" />
+  <img src="Z:/picture/005/save_picture_596972.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_596946.jpg" />
+  <img src="Z:/picture/005/save_picture_596946.jpg" />
 </div>
 
 
@@ -604,7 +720,7 @@ Edmond Hall - Four Classic Albums Plus (1954 - 1959) 2CD, 2010, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596648.jpg" />
+  <img src="Z:/picture/008/save_picture_596648.jpg" />
 </div>
 
 
@@ -633,7 +749,7 @@ Torque - Forward (2011) Neuklang [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596627.jpg" />
+  <img src="Z:/picture/008/save_picture_596627.jpg" />
 </div>
 
 
@@ -647,128 +763,6 @@ Torque - Forward (2011) Neuklang [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0325D46369B4CCDDF31213F033A479A2A2664FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914824   (596581) от 03.07.2015
-
-Curtis Fuller - Soul Trombone (1961) /2015, Universal Music/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clan [06:20]
-02. In The Wee Small Hours Of The Morning [04:58]
-03. Newdles [07:41]
-04. The Breeze And I [04:04](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8B66A921A67F4C0F5C09002E911255894C5B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914739   (596295) от 03.07.2015
-
-Twin Danger - Twin Danger (2015) [FLAC|Lossless|WEB-DL]<Jazz Vocals>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pointless Satisfaction (5:11)
-02. Coldest Kind Of Heart (4:36)
-03. I Love (Loving You) (4:05)
-04. Just Because (4:06)(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A59F479C6B1C40F35C413E3685AC48E369BCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299762   (596259) от 03.05.2019
-
-Ray Barretto & New World Spirit - Trancedance (2000) EmArcy [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fly [6:06]
-02. I Remember Tito [6:15]
-03. Para Que Niegas [6:45]
-04. Fever [5:34](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3DCEF7804AA3F73DD0A059F80B9B61F981C7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526817   (595835) от 25.07.2012
-
-VA - Cafe New York (2005) [FLAC|Lossless]<Big Band, Swing, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Mitchell - My truly, truly fair [02:48]
-02. Frankie Laine - Jealousy [03:16]
-03. Ella Fitzgerald - I'm making believe [03:13]
-04. Johnnie Ray - All of me [02:10]
-05. Jo Stafford, Johnny Mercer & The Pied Pipers - Candy [03:15]
-06. Jeri Southern - I've got five dollars [01:32]
-07. Leas Paul & Mary Ford - Vaya Con Dias [02:54]
-08. Perry Como - Don't let the stars get in your eyes [02:42]
-09. The Andrew Sisters - I can dream, Can't I? [02:41]
-10. Charlie Barnet - Skyliner [03:03](   Читать дальше...   )Жанр: Big Band, Swing, VocalПродолжительность: 01:10:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ CrystalDiskMark 3.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762429.jpg" />
+  <img src="Z:/picture/008/save_picture_762429.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced SystemCare Pro 8.2.0.795 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762428.jpg" />
+  <img src="Z:/picture/008/save_picture_762428.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762416.jpg" />
+  <img src="Z:/picture/008/save_picture_762416.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762398.jpg" />
+  <img src="Z:/picture/008/save_picture_762398.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762394.jpg" />
+  <img src="Z:/picture/008/save_picture_762394.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ XnView 2.36 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762391.jpg" />
+  <img src="Z:/picture/008/save_picture_762391.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762386.jpg" />
+  <img src="Z:/picture/008/save_picture_762386.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Survivalcraft 1.27.4.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762379.jpg" />
+  <img src="Z:/picture/008/save_picture_762379.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Waterfox 37.0.1 x64 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762376.jpg" />
+  <img src="Z:/picture/008/save_picture_762376.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Total Uninstall Ultimate 6.13.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762363.jpg" />
+  <img src="Z:/picture/008/save_picture_762363.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ JetBrains ReSharper Ultimate 2015.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762357.jpg" />
+  <img src="Z:/picture/008/save_picture_762357.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762351.jpg" />
+  <img src="Z:/picture/008/save_picture_762351.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762339.jpg" />
+  <img src="Z:/picture/008/save_picture_762339.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sherlock Holmes Collection (2004-2012) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762338.jpg" />
+  <img src="Z:/picture/008/save_picture_762338.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Resolume Arena 5 v5.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762331.jpg" />
+  <img src="Z:/picture/008/save_picture_762331.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762327.jpg" />
+  <img src="Z:/picture/008/save_picture_762327.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762310.jpg" />
+  <img src="Z:/picture/008/save_picture_762310.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762301.jpg" />
+  <img src="Z:/picture/008/save_picture_762301.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ ScreenToGif 2.26.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762287.jpg" />
+  <img src="Z:/picture/008/save_picture_762287.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ iFinance 4.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762281.jpg" />
+  <img src="Z:/picture/008/save_picture_762281.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ PullTube 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762280.jpg" />
+  <img src="Z:/picture/008/save_picture_762280.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ CyberLink PowerDVD Ultra 15.0.1510.58 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762278.jpg" />
+  <img src="Z:/picture/008/save_picture_762278.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Start Menu X 5.40 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762276.jpg" />
+  <img src="Z:/picture/008/save_picture_762276.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762259.jpg" />
+  <img src="Z:/picture/008/save_picture_762259.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ CoolUtils Total Audio Converter 5.3.0.194 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762232.jpg" />
+  <img src="Z:/picture/008/save_picture_762232.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ PrivaZer 3.0.63 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762230.jpg" />
+  <img src="Z:/picture/008/save_picture_762230.jpg" />
 </div>
 
 

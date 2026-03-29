@@ -1,3 +1,81 @@
+###  Публикация: 1243948   (483602) от 31.08.2018
+
+Морская полиция: Лос-Анджелес / NCIS: Los Angeles (2017) WEBRip (сезон 9, серии 1-24 из 24) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483602.jpg" />
+</div>
+
+
+###  Подробнее
+
+NCIS: Los Angeles — драма о сложной работе — наблюдении под прикрытием. Отдел особых проектов — подразделение NCIS, которое занимается опасными преступниками, угрожающими безопасности всей страны. Используя фальшивые личности и последние технологии, команда специалистов работает под прикрытием, рискуя собственными жизнями ради достижения цели.Производство: СШАЖанр: триллер, драма, криминал, детективАктеры: Крис О`Доннелл, Даниэла Руа, Линда Хант, Барретт Фоа, ЛЛ Кул Джей, Памела Рид, Эрик Кристиан Олсен, Андреа Бордо и др.Перевод: Многоголосый профессиональный - BaibaKoПродолжительность: ~00:42:00 серияРеклама: присутствуют видео и аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915EAF956C1E5B17AE415734F8485175B74FF66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838288   (260089) от 22.11.2025
+
+Военно-юридическая служба / JAG (2000-2001) WEB-DL [H.264/1080p] (сезон 6, серии 1-24 из 24) Fox
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_260089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший военный летчик, а ныне юрист, Хермон Рейбб вместе со своим верным напарником и другом - обаятельной Сарой Маккензи - расследуют самые громкие и запутанные преступления в рядах армии и военно-морского флота Соединенных Штатов Америки...Производство: США / Belisarius Productions, National Broadcasting Company (NBC)Жанр: боевик, триллер, драма, криминал, детективРежиссер: Брэдфорд Мэй, Тони Уормби, Алан Дж. ЛевиАктеры: Дэвид Джеймс Эллиотт, Патрик Лабьорто, Кэтрин Белл, Джон М. Джексон, Карри Тернер, Чак Керрингтон, Скотт Лоуренс, Зои МакЛеллан, Рэнди Васкес, Тревор ГоддардПеревод: Многоголосый профессиональный (Fox)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E919595729C6D2B79D1242ABC29B929D8608FA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836320   (252595) от 09.11.2025
+
+Военно-юридическая служба / JAG (1997-1998) WEB-DL [H.264/1080p] (сезон 3, серии 1-24 из 24) Fox, А. Дольский
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший военный летчик, а ныне юрист, Хермон Рейбб вместе со своим верным напарником и другом - обаятельной Сарой Маккензи - расследуют самые громкие и запутанные преступления в рядах армии и военно-морского флота Соединенных Штатов Америки...Производство: США / Belisarius Productions, National Broadcasting Company (NBC)Жанр: боевик, триллер, драма, криминал, детективРежиссер: Брэдфорд Мэй, Тони Уормби, Алан Дж. ЛевиАктеры: Дэвид Джеймс Эллиотт, Патрик Лабьорто, Кэтрин Белл, Джон М. Джексон, Карри Тернер, Чак Керрингтон, Скотт Лоуренс, Зои МакЛеллан, Рэнди Васкес, Тревор ГоддардПеревод: Двуголосый профессиональный (Fox), Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Русские (catavisha (Злючая кошка) (Серии 10, 15, 16, 18-24), английские (SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402D67D3D04AB7D287E4B278EF35D2C34853FA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836328   (252592) от 09.11.2025
 
 Военно-юридическая служба / JAG (1998-1999) WEB-DL [H.264/1080p] (сезон 4, серии 1-24 из 24) Fox
@@ -6,7 +84,7 @@
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252592.jpg" />
+  <img src="Z:/picture/005/save_picture_252592.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252590.jpg" />
+  <img src="Z:/picture/005/save_picture_252590.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252427.jpg" />
+  <img src="Z:/picture/005/save_picture_252427.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252408.jpg" />
+  <img src="Z:/picture/005/save_picture_252408.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251307.jpg" />
+  <img src="Z:/picture/004/save_picture_251307.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247775.jpg" />
+  <img src="Z:/picture/004/save_picture_247775.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246979.jpg" />
+  <img src="Z:/picture/004/save_picture_246979.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206499.jpg" />
+  <img src="Z:/picture/005/save_picture_206499.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197812.jpg" />
+  <img src="Z:/picture/004/save_picture_197812.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197561.jpg" />
+  <img src="Z:/picture/004/save_picture_197561.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197547.jpg" />
+  <img src="Z:/picture/004/save_picture_197547.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197539.jpg" />
+  <img src="Z:/picture/004/save_picture_197539.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197514.jpg" />
+  <img src="Z:/picture/004/save_picture_197514.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197493.jpg" />
+  <img src="Z:/picture/004/save_picture_197493.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123020.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115645.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55898.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53970.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53758.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53702.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53692.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53690.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13546.jpg" />
 </div>
 
 

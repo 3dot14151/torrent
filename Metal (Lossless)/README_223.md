@@ -1,3 +1,90 @@
+###  Публикация: 1502602   (237329) от 16.10.2021
+
+Devoid - Lonely Eye Movement (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Eye Movement
+02. Man Without Fear
+03. Impostor
+04. Destination Heaven(   Читать дальше...   )Жанр: Melodic Heavy Metal, Progressive MetalПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F8A4BDE6E3534C1E5DAFD0050D86E38EA8062C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265529   (237324) от 04.09.2022
+
+Arjen A. Lucassen (Ayreon, Star One, Ambeon, Guilt Machine, The Gentle Storm) - Collection (1993 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Symphonic Metal, Progressive Rock ...
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арьен Антони Люкассен (нидерл. Arjen Anthony Lucassen, 3 апреля 1960, Гаага, Нидерланды) — нидерландский мультиинструменталист и композитор, работающий в разнообразных жанрах: прогрессив-метал, прогрессив-рок, арт-рок, фолк, амбиент. Арьен Люкассен является создателем нескольких музыкальных проектов, в том числе основанного в 1994 году «Ayreon».Список альбомов:
+1993 - Anthony - Pools Of Sorrow - Waves Of Joy
+1995 - Ayreon - The Final Experiment
+1996 - Arjen Anthony Lucassen - Strange Hobby(   Читать дальше...   )Жанр: Progressive Symphonic Metal, Progressive RockПродолжительность: 51:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C9042E83DF93401DBF6D9D54C98876D123E339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606380   (237322) от 22.01.2023
+
+Skyblazer - Infinity's Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prologue (00:48)
+02 - Shine Forth! (04:22)
+03 - Eyes Of Serenity (06:13)
+04 - Across The Heavens (04:45)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE466E19F6388B0369FE79BBE1502FA6387FEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502673   (237312) от 16.10.2021
 
 Midnight Phantom - L.A. Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Midnight Phantom - L.A. Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237312.jpg" />
+  <img src="Z:/picture/005/save_picture_237312.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Killer Be Killed - Killer Be Killed (2014) [FLAC|Lossless|tracks + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237305.jpg" />
+  <img src="Z:/picture/005/save_picture_237305.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Moloch - Upon The Anvil (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237302.jpg" />
+  <img src="Z:/picture/005/save_picture_237302.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Sweet Oblivion - Relentless (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237300.jpg" />
+  <img src="Z:/picture/005/save_picture_237300.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Victor Smolski - Majesty & Passion (2004) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237298.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Leverage - Above The Beyond (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237267.jpg" />
+  <img src="Z:/picture/005/save_picture_237267.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Harakiri For The Sky - Maere (2021) 2xCD [FLAC|Lossless|image + .cue] <Post-Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237249.jpg" />
+  <img src="Z:/picture/005/save_picture_237249.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Lunar Shadow - Wish to Leave (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237231.jpg" />
+  <img src="Z:/picture/005/save_picture_237231.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Dreamyth - Aletheia (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237228.jpg" />
+  <img src="Z:/picture/005/save_picture_237228.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237214.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Iron Savior - The Landing (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237210.jpg" />
+  <img src="Z:/picture/005/save_picture_237210.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Iced Earth - Iced Earth (1990) [FLAC|Lossless|image + .cue] <Thrash Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237203.jpg" />
+  <img src="Z:/picture/005/save_picture_237203.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Dysplacer - Temple Heights (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237174.jpg" />
+  <img src="Z:/picture/005/save_picture_237174.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Thorium - Empires In The Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237172.jpg" />
+  <img src="Z:/picture/005/save_picture_237172.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Convocation - Ashes Coalesce (2020) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237156.jpg" />
+  <img src="Z:/picture/005/save_picture_237156.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Enforcer - Zenith (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237155.jpg" />
+  <img src="Z:/picture/005/save_picture_237155.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Archetype Of Disorder - Odyssey In Space (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237154.jpg" />
+  <img src="Z:/picture/005/save_picture_237154.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Catacomb - When the Stars Are Right (2023) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237143.jpg" />
+  <img src="Z:/picture/005/save_picture_237143.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ Sensimillia - Strike by the Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237142.jpg" />
+  <img src="Z:/picture/005/save_picture_237142.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Coldworld - Isolation (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Depressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237116.jpg" />
+  <img src="Z:/picture/005/save_picture_237116.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Numenor - Draconian Age (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237101.jpg" />
+  <img src="Z:/picture/005/save_picture_237101.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Tronos - Celestial Mechanics (2019) [FLAC|Lossless|image + .cue] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237096.jpg" />
+  <img src="Z:/picture/005/save_picture_237096.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Sorrowful Land - Faded Anchors of the Past (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237080.jpg" />
+  <img src="Z:/picture/005/save_picture_237080.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Sorrowful Land - Faded Anchors of the Past (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99DB3626A8A3FC43039C1F0D8D4D4ACDC924FEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504247   (237075) от 23.10.2021
-
-Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Writing's On The Wall
-02. On The Loose
-03. Into The Unknown
-04. Smoke And Mirrors(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3180425A4E05983F4AD06FCC89520C18E2A328C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607882   (237073) от 28.01.2023
-
-Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traveller In Time
-02. Victim Of The Night
-03. Heavy Metal Fire
-04. Mountains Of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178AC384C5D0C03C9CA33BC0EAC0E5CDF851EA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630761   (237060) от 02.05.2023
-
-Gamma Ray - Blast from the Past (2000) 3xCD, Compilation, Reissue, Remastered, 2023, Ear Music [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237060.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Welcome [00:56]
-02. Lust for Life [05:26]
-03. Heaven Can Wait [04:29](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F122AF5D9426EC32ED0B05FC10478CE3E6701B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

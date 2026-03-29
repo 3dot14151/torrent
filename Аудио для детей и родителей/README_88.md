@@ -1,3 +1,85 @@
+###  Публикация: 1471700   (127637) от 16.12.2023
+
+Марк Твен | Принц и нищий (спектакль) (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принц и бродяга волею судьбы поменялись местами. Оба мальчика так похожи друг на друга, что никто не замечает подмены. Их ждут удивительные приключения: порою забавные, порою опасные, невероятные и захватывающе интересные!Жанр: Детские приключения, Зарубежная классика, Зарубежные детские книги, Классическая проза, Литература 19 векаИздательство: Литрес ПаблишингПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA9446E4ECF088199F5AB320FC3C35715C8D859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471799   (127633) от 16.12.2023
+
+Джозеф Редьярд Киплинг | Маугли (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джозеф Редьярд Киплинг – английский писатель и поэт, классик мировой литературы. В 1894 г. он выпустил в свет сборник "Книга джунглей", в который вошли рассказы о жизни мальчика Маугли. Книга сразу же завоевала огромную популярность среди читателей. Да и сейчас, по прошествии более чем ста лет, интерес к ней не ослабевает.
+
+Малыш Маугли живёт в семье волков, (   Читать дальше...   )Жанр: Зарубежная классика, Зарубежные детские книги, Зарубежные приключения, Классика приключенческой литературы, Классическая проза, Литература 19 векаИздательство: СОЮЗПродолжительность: 07:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE504530B0601A15279A94B4021FBA69A570B17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471768   (127632) от 16.12.2023
+
+Робин Гуд и его удальцы / Robin Hood & his Merrie Men (2009) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы изучаете английский язык или свободно на нем говорите, у вас есть замечательная возможность познакомиться с приключениями самого знаменитого разбойника всех времен и народов на языке оригинала, а затем проверить свое понимание, прослушав русский перевод.
+
+Текст не адаптирован, но история о Робин Гуде изложена простым языком, доступным для понимания тем, кто (   Читать дальше...   )Жанр: Английский язык, Зарубежные детские книгиПеревод: А. НенашеваЯзык озвучки: русский, английскийИздательство: Литрес ПаблишингПродолжительность: 05:57:33 (02:41:04+03:16:30)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57A9B24213A1E29818010F78F4E0A9B0812DD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471785   (127631) от 16.12.2023
 
 Сьюзен Стиффелман | Осознанное родительство. Как стать опорой своему ребенку и открыть ему дорогу в большой мир (2020) [MP3]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127631.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127628.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127603.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127573.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127547.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127512.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127507.jpg" />
 </div>
 
 
@@ -192,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127504.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127496.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127484.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127477.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127469.jpg" />
 </div>
 
 
@@ -327,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127463.jpg" />
 </div>
 
 
@@ -353,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127462.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127458.jpg" />
 </div>
 
 
@@ -405,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127451.jpg" />
 </div>
 
 
@@ -433,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127448.jpg" />
 </div>
 
 
@@ -459,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127447.jpg" />
 </div>
 
 
@@ -485,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127434.jpg" />
 </div>
 
 
@@ -511,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127432.jpg" />
 </div>
 
 
@@ -538,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127430.jpg" />
 </div>
 
 
@@ -564,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127429.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127428.jpg" />
 </div>
 
 
@@ -601,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69F3D44749D4E66B882848B5924A93A7855E8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472027   (127426) от 17.12.2023
-
-Эдуард Николаевич Успенский | Крокодил Гена и грабители (2019) [MP3, Егор Серов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята! Крокодил Гена, которого вы все прекрасно знаете и любите, умеет не только работать в зоопарке крокодилом. Совершенно неожиданно для него самого он отправился служить в армию, где научился стрелять, прыгать с парашютом и овладел приёмами самообороны. А после армии Гена вместе со своим другом Чебурашкой решил начать новую жизнь. Теперь он ловит грабителей на (   Читать дальше...   )Жанр: Детские приключения, СказкиИздательство: Литрес Паблишинг, Издательство АСТПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D54C58837E78F6CC1624A9162C207AFCBA42EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471932   (127425) от 17.12.2023
-
-Туве Янссон | Папа и море (2018) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Муми-троллям уже доводилось переезжать, а Муми-папа – тот вообще великий путешественник. Вот и сейчас, к концу лета, Муми-папа решил, что размеренная жизнь в Долине – не для его мятежной души. Его призвание – жить на острове с маяком, средь бушующего моря, и указывать путь кораблям. Cемейство отправляется в путь. Маяк на первый взгляд кажется довольно скучным и неуютным (   Читать дальше...   )Жанр: Детские приключения, Зарубежные детские книги, СказкиПеревод: Евгения ТиновицкаяИздательство: Азбука-АттикусПродолжительность: 04:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E3086050B1825BCD76C33EFC44C69C2877FF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524106   (127421) от 17.12.2023
-
-Белла Свифт | Мопс, который мечтал стать единорогом (2021) [MP3, Татьяна Манетина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мопсик Пегги – собачка с маленьким закрученным хвостиком и большим добрым сердцем. Больше всего на свете она мечтает о любящих хозяевах, которые будут с ней играть и гулять. Но, к сожалению, однажды Пегги оказалась в приюте. Хорошо ещё, что семья девочки Хлои согласилась взять её на передержку до Рождества. Пегги знает, что Хлои мечтает о настоящем волшебном единороге! (   Читать дальше...   )Жанр: Детская проза, Зарубежные детские книгиПеревод: Мария М. ВиноградоваИздательство: ЭксмоПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151B251AE562107944D16151AD999F4DF184484E
 ```
 
 https://mybot314.ru/tekegram_catalog/

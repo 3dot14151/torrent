@@ -1,3 +1,119 @@
+###  Публикация: 1653377   (214757) от 16.08.2023
+
+VA - Modern Jazz Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Lanza - Sugar (3:57)
+02. Larkster Quartet - Run (5:09)
+03. Malva and the Sunday Crew - All About That Bass (2:47)
+04. Olivia Keast - Blinding Lights (3:06)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D70FD222A3D4BC1DBB076F35E6096023AD09A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653369   (214732) от 16.08.2023
+
+VA - Best Jazz Pop Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Keast - As It Was (3:33)
+02. George Lanza - Moves Like Jagger (3:26)
+03. Larkster Quartet - Yellow (4:06)
+04. Meesha - Finally (2:13)(   Читать дальше...   )Жанр: Jazz Vocal, PopПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7C0558EA3796C31914E2C0D8EE21F3533AE23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853467   (214730) от 26.12.2014
+
+Dave Koz & Friends - The 25th of December (2014) [FLAC|Lossless]<Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сам Dave Koz рассказывал об этом альбоме, он был сделан на одном дыхании. И в нем слышится рождественская любовь и радость в каждой ноте. Помогли создать этот альбом великие исполнители. И как золотое обрамление, завершает этот шедевр Битловская All You Need is Love в джазовой обработке. И пусть она не покажется Вам очень не похожей на оригинал. Ведь праздник (   Читать дальше...   )01. Dave Koz - The First Noel (3:43)
+02. Dave Koz/Johnny Mathis - It’s the Most Wonderful Time of the Year (3:23)
+03. Dave Koz/Eric Benet - This Christmas (4:34)
+04. Dave Koz/Gloria Estefan - Do You Hear What I Hear? (4:12)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy ListeningПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1758E3A14ED4C15B7FA7F367049A6AE03C3C74F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653375   (214720) от 16.08.2023
+
+VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Keast - Can’t Stop the Feeling! (4:07)
+02. Larkster Quartet - As It Was (3:34)
+03. Meg Birch - Smells Like Teen Spirit (3:41)
+04. George Lanza - Seven Nation Army (2:26)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DA132DDF9D543CCCB305B842C5F0C24D2A3A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653370   (214713) от 16.08.2023
 
 VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
@@ -6,7 +122,7 @@ VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214713.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Paul Hardcastle - X (The Eclipse) (2022) [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214652.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Benjamin Bobenrieth - Travels (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214479.jpg" />
+  <img src="Z:/picture/005/save_picture_214479.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Barbra Lica - You're Fine (2018) Justin Time Records [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214459.jpg" />
+  <img src="Z:/picture/005/save_picture_214459.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jerome Richardson - Going To The Movies (1962) 2011, EMI Music[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214453.jpg" />
+  <img src="Z:/picture/005/save_picture_214453.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Flavio Boltro BBB Trio - Spinning (2018) Anteprima [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214452.jpg" />
+  <img src="Z:/picture/005/save_picture_214452.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Camille Thurman - Waiting For The Sunrise (2018) Chesky Records [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214389.jpg" />
+  <img src="Z:/picture/005/save_picture_214389.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Erroll Garner - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214129.jpg" />
+  <img src="Z:/picture/005/save_picture_214129.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Wilbur Harden - Jazz Way Out (1958) 1991, Savoy Jazz [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214127.jpg" />
+  <img src="Z:/picture/005/save_picture_214127.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Martial Solal & The Danish Radio Jazz Orchestra - Contrastes: The Jazzpar Prize 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214039.jpg" />
+  <img src="Z:/picture/005/save_picture_214039.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ John Colianni - Live at Maybeck Recital Hall, Vol. 37 (1995) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213860.jpg" />
+  <img src="Z:/picture/005/save_picture_213860.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213856.jpg" />
+  <img src="Z:/picture/005/save_picture_213856.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213803.jpg" />
+  <img src="Z:/picture/005/save_picture_213803.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Sonny Criss - Intermission Riff (1951) 1998, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213801.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Ghost Rhythms - Spectral Music (2021) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213777.jpg" />
+  <img src="Z:/picture/005/save_picture_213777.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Steve Davis - Correlations (2019) Smoke Sessions Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213772.jpg" />
+  <img src="Z:/picture/005/save_picture_213772.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Alla Ray - Coffee & Cake (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213746.jpg" />
+  <img src="Z:/picture/005/save_picture_213746.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Melody Gardot & Philippe Powell - Entre eux deux (2022) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212957.jpg" />
+  <img src="Z:/picture/005/save_picture_212957.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Nancy Wilson - Four Classic Albums Plus (1959 - 1962) 2CD, 2019, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212449.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ The Modern Jazz Quartet - Four Classic Albums (1953 - 1957) 2CD, 2008, Avid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212447.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Konstantin Klashtorni - Best So Far (Chillaxing Jazz Kollektion) (2023) Compilat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211937.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Ultimate Collection of Relaxing Chilly Jazz III (2023) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211769.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Ultimate Collection of Relaxing Chilly Jazz III (2023) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5B6C1872955DB8D6B204A5332080585B473278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638890   (211761) от 11.06.2023
-
-VA - Lluvia JAZZ (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald -- Sleigh Ride (2:56)
-02. Louis Armstrong -- What A Wonderful World (2:18)
-03. Frank Sinatra -- Fly Me To The Moon (In Other Words) (2:27)
-04. Norah Jones -- Don't Know Why (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20694855A1EFD88DE3F7CB4D021A430E57C122CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638877   (211759) от 11.06.2023
-
-VA - After Dark Warm Summer Nights Sensual Smooth Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion -- Wherever I Go (4:19)
-02. Kool&Klean -- Begin Again (4:34)
-03. Konstantin Klashtorni -- Used to Love You (4:08)
-04. Chillaxing Jazz Kollektion -- Blue Pacific (4:39)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA166919D9BE2A223B6E127963D8CA83D6A11087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638893   (211747) от 11.06.2023
-
-VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean -- Shine (4:13)
-02. eJazz Artistry -- Real Love (4:16)
-03. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
-04. Love Suggestions -- Little Talks (4:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638880   (211734) от 11.06.2023
-
-VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Prima -- Pennies From Heaven (2:22)
-02. Frank Sinatra -- Fly Me To The Moon (In Other Words) (2:27)
-03. Norah Jones -- Don't Know Why (3:06)
-04. Vince Guaraldi Trio -- What Child Is This (2:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20AAB1A247B6BE6C2B16D96484431026CB3F530
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1109947   (855476) от 01.03.2017
+
+Kingdom Come - Balladesque: The Pearls (1998) Compilation [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Should Have Know (4:33)
+ 02. Can't Let Go (6:30)
+ 03. Twilight Cruiser (6:39)
+ 04. Cold Groumd (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29232C49785DAE4CAE91DEDCF39ED98FCC53C88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647967   (854569) от 24.04.2013
+
+Whitesnake - Made In Japan (2013) [FLAC|Lossless]<Hard rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Set You Free (5:06)
+02. Steal Your Heart Away (6:39)
+03. Fare Thee Well (Acoustic Version) (4:47)
+04. One Of These Days (Acoustic Version) (4:16)(   Читать дальше...   )Жанр: Hard rock, RockПродолжительность: 41:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001647   (852185) от 29.03.2016
 
 Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melodic Hard Rock>
@@ -6,7 +64,7 @@ Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852185.jpg" />
+  <img src="Z:/picture/008/save_picture_852185.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gary Moore - Live At The Marquee (1983) Japanese Edition, 1990, Victor [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852088.jpg" />
+  <img src="Z:/picture/008/save_picture_852088.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Danko Jones - Wild Cat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851900.jpg" />
+  <img src="Z:/picture/008/save_picture_851900.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Wildside - Formerly Known As Young Gunns (2020) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851897.jpg" />
+  <img src="Z:/picture/008/save_picture_851897.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Rainbow - The Best of Rainbow (1981) 2CD, Compilation, Reissuse, 1985, Polydor [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851852.jpg" />
+  <img src="Z:/picture/008/save_picture_851852.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Magnum - The Valley Of Tears: The Ballads (2017) Compilation [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848579.jpg" />
+  <img src="Z:/picture/008/save_picture_848579.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Custom - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848115.jpg" />
+  <img src="Z:/picture/008/save_picture_848115.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Versus - Confession (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848109.jpg" />
+  <img src="Z:/picture/008/save_picture_848109.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ The Doobie Brothers - Liberte (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847976.jpg" />
+  <img src="Z:/picture/008/save_picture_847976.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Mystery - Live Life Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847959.jpg" />
+  <img src="Z:/picture/008/save_picture_847959.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Billion Dollar Babies - Chemical God (2016) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846765.jpg" />
+  <img src="Z:/picture/008/save_picture_846765.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Danny Vaughn - Traveller (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846488.jpg" />
+  <img src="Z:/picture/008/save_picture_846488.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Little Villains - Taylor Made (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844807.jpg" />
+  <img src="Z:/picture/008/save_picture_844807.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Mainline - The Unholy Idol (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844629.jpg" />
+  <img src="Z:/picture/008/save_picture_844629.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Dead Bang - Dancin' On The Edge (1994) Remastered, Japanese Edition [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843488.jpg" />
+  <img src="Z:/picture/008/save_picture_843488.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Rage Of Angels - The Devils New Tricks (2016) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843406.jpg" />
+  <img src="Z:/picture/008/save_picture_843406.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Bonfire - Pearls (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843210.jpg" />
+  <img src="Z:/picture/008/save_picture_843210.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Secret Alliance - Revelation (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842817.jpg" />
+  <img src="Z:/picture/008/save_picture_842817.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Dirty Kings - Crown Jewel (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842480.jpg" />
+  <img src="Z:/picture/008/save_picture_842480.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Mike Tramp - Maybe Tomorrow (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841544.jpg" />
+  <img src="Z:/picture/008/save_picture_841544.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Marc Quee - Better Late Than Never (2017) [FLAC|Lossless|tracks + .cue] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840022.jpg" />
+  <img src="Z:/picture/008/save_picture_840022.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Cormada - Music For Generations To Com (2021) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838235.jpg" />
+  <img src="Z:/picture/008/save_picture_838235.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Station - Perspective (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838232.jpg" />
+  <img src="Z:/picture/008/save_picture_838232.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Wayward Sons - Even Up The Score (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838230.jpg" />
+  <img src="Z:/picture/008/save_picture_838230.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Wayward Sons - Even Up The Score (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7BBD9B3F6CB98568E319145E340A7798E727593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501080   (838128) от 08.10.2021
-
-Jeff Scott Soto - The Duets Collection, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin’ The Life (ROCK STAR) with Erik Martensson (Eclipse/W.E.T.)
-02. Don’t Let It End (YNGWIE MALMSTEEN) - with Dino Jelusick (Animal Drive)
-03. Mysterious (TALISMAN) - with Eric Martin (Mr. Big)
-04. Believe in Me (JSS) - with Nathan James (Inglorious)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488F8B7F402EE02E753AE89BBF14BD165C608106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004804   (836883) от 07.04.2016
-
-Nelson - Peace Out (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Everybody (3:12)
-02. Back In The Day (3:53)
-03. Invincible (5:00)
-04. Let It Ride (4:48)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D11E87517331C63C4E4422F64CBF9C1489FCB04
 ```
 
 https://mybot314.ru/tekegram_catalog/

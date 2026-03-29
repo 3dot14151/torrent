@@ -1,3 +1,32 @@
+###  Публикация: 1633781   (233762) от 18.05.2023
+
+VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RIOPY - Meditation (4:55)
+02. Matteo Myderwyk - Pastorale (2:04)
+03. Carlos Cipa - Sonata Fragment (3:28)
+04. Bertrand Chamayou - 5 Lieder, Op. 49 No. 4, Wiegenlied (Transcr. Reger) (1:41)(   Читать дальше...   )Жанр: Meditation, PianoПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634325   (233688) от 19.05.2023
 
 J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [FLAC|Lossless|tracks + .cue] <New Age, Healing, Chant>
@@ -6,7 +35,7 @@ J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233688.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230963.jpg" />
+  <img src="Z:/picture/004/save_picture_230963.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230094.jpg" />
+  <img src="Z:/picture/005/save_picture_230094.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224766.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Dr. Jeffrey Thompson - Theta Meditation System 2.0 (1999) [FLAC|Lossless|tracks 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223796.jpg" />
+  <img src="Z:/picture/005/save_picture_223796.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Painted Water - Forever With You (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223237.jpg" />
+  <img src="Z:/picture/005/save_picture_223237.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enig
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221373.jpg" />
+  <img src="Z:/picture/005/save_picture_221373.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221064.jpg" />
+  <img src="Z:/picture/005/save_picture_221064.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219992.jpg" />
+  <img src="Z:/picture/005/save_picture_219992.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Tom Barabas - Piano Impressions (1994) [FLAC|Lossless|tracks + .cue] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218822.jpg" />
+  <img src="Z:/picture/005/save_picture_218822.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Tom Barabas - Magic In December (1991) [FLAC|tracks + cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218815.jpg" />
+  <img src="Z:/picture/005/save_picture_218815.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Tom Barabas - It s A New Life (1998) Remaster, 2004, ТМЕ/Правительс
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218798.jpg" />
+  <img src="Z:/picture/005/save_picture_218798.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, Worl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218456.jpg" />
+  <img src="Z:/picture/005/save_picture_218456.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218179.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the He
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216795.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216159.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216135.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214818.jpg" />
+  <img src="Z:/picture/005/save_picture_214818.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214647.jpg" />
+  <img src="Z:/picture/005/save_picture_214647.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214501.jpg" />
+  <img src="Z:/picture/005/save_picture_214501.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214135.jpg" />
+  <img src="Z:/picture/005/save_picture_214135.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211916.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210886.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209317.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206744.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652298   (206626) от 10.08.2023
-
-Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orlando (4:56)
-02. Seveness (5:29)
-03. Laguna (6:36)
-04. Pavane (3:01)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DDA83986FD2CCA2B1176906F13061E804C0B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

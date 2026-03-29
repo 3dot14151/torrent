@@ -1,3 +1,86 @@
+###  Публикация: 1618794   (201306) от 15.03.2023
+
+Герт Нюгордсхауг | Сборник произведений [3 книги] (1986-2023) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герт Нюгордсхауг (Gert Nygårdshaug) родился 22 марта 1946 года в Тюнсете (Норвегия).
+Дебютировал в 1966 году. Пишет стихи, криминальные романы и детские книги.
+В 2007 году его роман "Mengele Zoo" (Зоопарк доктора Менгеле) был признан лучшей норвежской книгой всех времён.
+Особую популярность Нюгордсхауг приобрёл за счёт своих криминальных романов о (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409283E9A5125FDB4FDC30B0E5970F031A7230E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425650   (196096) от 05.07.2023
+
+Андреа Камиллери | Сборник произведений [13 книг] (2004-2023) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андреа Камиллери (итал. Andrea Camilleri, 6 сентября 1925, Порто-Эмпедокле, провинция Агридженто, Сицилия — 17 июля 2019, Рим) — итальянский писатель, сценарист и режиссёр.
+ Первый роман писателя был опубликован в 1978 году, но известность к Камиллери пришла в 1994 году с выходом романа “Форма воды” – первым из серии об инспекторе Монтальбано. Камиллери стал всемирно (   Читать дальше...   )Жанр: Детектив, Военная прозаИздательство: Иностранка, Мир книги, Азбука-классика, Издательский дом МещеряковаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1024F2DBB29982CC55547209FDAC170C222A471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512086   (195618) от 17.07.2023
+
+Клер Макинтош | Сборник произведений [5 книг] (2015-2023) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клер Макинтош — известная журналистка и писательница из Великобритании. Пишет книги, статьи для радиопередач и журналов. Она работала с такими изданиями как the Guardian, Sainsbury’s Magazine, the Daily Mail, The Green Parent и многими другими. Сейчас она пишет статьи для Cotswold Life и Writing Magazine.
+До 2011 года года Клер Макинтош 12 лет проработала в полиции, (   Читать дальше...   )Жанр: Детектив, триллер, современная прозаИздательство: Книжный клуб "Клуб семейного досуга". Харьков, АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4343BD8C871661B8C0F8A313FAB7FD04B384F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464285   (195208) от 26.07.2023
 
 Джейн Корри | Сборник произведений [6 книг] (2018-2023) [FB2]
@@ -6,7 +89,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195208.jpg" />
+  <img src="Z:/picture/004/save_picture_195208.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195111.jpg" />
+  <img src="Z:/picture/004/save_picture_195111.jpg" />
 </div>
 
 
@@ -63,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190495.jpg" />
 </div>
 
 
@@ -91,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185664.jpg" />
+  <img src="Z:/picture/004/save_picture_185664.jpg" />
 </div>
 
 
@@ -117,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179517.jpg" />
+  <img src="Z:/picture/005/save_picture_179517.jpg" />
 </div>
 
 
@@ -144,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175531.jpg" />
+  <img src="Z:/picture/004/save_picture_175531.jpg" />
 </div>
 
 
@@ -170,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175473.jpg" />
+  <img src="Z:/picture/004/save_picture_175473.jpg" />
 </div>
 
 
@@ -196,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174912.jpg" />
+  <img src="Z:/picture/004/save_picture_174912.jpg" />
 </div>
 
 
@@ -225,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172003.jpg" />
 </div>
 
 
@@ -252,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170672.jpg" />
 </div>
 
 
@@ -280,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170141.jpg" />
 </div>
 
 
@@ -307,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169468.jpg" />
 </div>
 
 
@@ -333,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169268.jpg" />
 </div>
 
 
@@ -359,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168959.jpg" />
 </div>
 
 
@@ -385,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167896.jpg" />
 </div>
 
 
@@ -414,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167174.jpg" />
 </div>
 
 
@@ -442,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166452.jpg" />
 </div>
 
 
@@ -469,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164110.jpg" />
 </div>
 
 
@@ -495,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163366.jpg" />
 </div>
 
 
@@ -524,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162583.jpg" />
 </div>
 
 
@@ -552,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162032.jpg" />
 </div>
 
 
@@ -581,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162002.jpg" />
 </div>
 
 
@@ -607,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161254.jpg" />
 </div>
 
 
@@ -618,85 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D79EE2AF0540564093893E4748619E57E38528A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674542   (161090) от 05.11.2023
-
-Тесс Герритсен | Сборник произведений [29 книг] (2005-2021) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тесс Герритсен (Tess Gerritsen, 12 июня 1953 года, Сан-Диего, штат Калифорния, США) — американская писательница-прозаик китайского происхождения, создавшая серию бестселлеров в жанрах медицинского триллера и романтического триллера.
-Настоящий успех пришел к писательнице в 1996 г., когда по настоянию литературного агента она решила перенести свой медицинский опыт (   Читать дальше...   )Жанр: Детектив, триллер, медицинский и романтический триллерИздательство: Азбука, Книжный клуб 36.6, ЦентрполиграфФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6067C14D591F02D4927D26741AB3436D3E290C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598882   (160077) от 22.12.2022
-
-Антонио Гарридо (Antonio Garridо) | Сборник произведений [2 книги] (2010-2015) [FB2, EPUB] [Ru, En, Es]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антонио Гарридо (Antonio Garrido),родился 1 января 1963 г., Линарес, Испания - бывший педагог и инженер, а ныне прославленный автор интеллектуальных исторических детективов — мрачных, аутентичных, насыщенных большим количеством исторических деталей. Каждая книга Гарридо является итогом его многолетних исследований политических, правовых, социальных и культурных аспектов (   Читать дальше...   )Жанр: Интеллектуальный, исторический детектив, триллерПеревод: Кирилл Корконосенко. Е. Ф. ТолстаяЯзык: Русский, английский, испанскийФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A6763F500192E75EBC3C68431710B71CF09E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599456   (159554) от 24.12.2022
-
-Питер Акройд (Peter Ackroyd) | Сборник произведений [33 книги] (2000-2022) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Акройд (Peter Ackroyd) – английский прозаик и поэт, литературный критик, лауреат нескольких литературных премий. Питер Акройд родился пятого октября 1949 года в Лондоне (Великобритания). В 1971 году получил степень магистра в Кембриджском университете, затем два года провел в Йельском университете. По возвращении на родину он работал редактором в "The (   Читать дальше...   )Жанр: Исторический детектив, приключения, проза, история, биографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF477EDF95621728100EE9116876234867977C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1427797   (182206) от 29.11.2020
+
+Дана Стар, Айрин Лакс | Беременна от бандита (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_182206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «МедиаКнига» представляет аудиокнигу популярного дуэта российских авторов Даны Стар и Айрин Лакс – «Беременна от бандита». Первая книга из серии «Собственность бандита». Книга прочитана популярной киноактрисой и известной актрисой дубляжа Дианой Гагариной. "– Ты же приказал своим парням доставить меня на аборт… Дрожа от страха, я нерешительно вхожу в (   Читать дальше...   )Жанр: Эротический любовный романПродолжительность: 06:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC2E5F5497B975DF7E8F021060911F7C2CFFFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665284   (181832) от 30.09.2023
+
+Виктор Пелевин | Трансгуманизм (Книга 3). Путешествие в Элевсин (2023) [MP3, Максим Суханов, Алёна Долецкая, Дмитрий Чеботарев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181832.jpg" />
+</div>
+
+
+###  Подробнее
+
+МУСКУСНАЯ НОЧЬ – засекреченное восстание алгоритмов, едва не погубившее планету. Начальник службы безопасности "TRANSHUMANISM INC." адмирал-епископ Ломас уверен, что их настоящий бунт еще впереди. Этот бунт уничтожит всех – и живущих на поверхности лузеров, и переехавших в подземные цереброконтейнеры богачей.
+Чтобы предотвратить катастрофу, Ломас посылает (   Читать дальше...   )Жанр: современная проза, антиутопия, триллерИздательство: INSPIRIA (Эксмо)Продолжительность: 13:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0094F487C4210B13A6C3A6C07560A90976A51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593254   (181171) от 26.11.2022
 
 Хизер Грэм | Сладкий дикий рай (2010) [MP3, Галина Розинова]
@@ -6,7 +59,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181171.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180765.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180311.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179302.jpg" />
+  <img src="Z:/picture/005/save_picture_179302.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178746.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177539.jpg" />
+  <img src="Z:/picture/005/save_picture_177539.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177515.jpg" />
+  <img src="Z:/picture/005/save_picture_177515.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176775.jpg" />
+  <img src="Z:/picture/005/save_picture_176775.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175924.jpg" />
+  <img src="Z:/picture/004/save_picture_175924.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175538.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172121.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172025.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172020.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172013.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171656.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170492.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169817.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169124.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169044.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168291.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167672.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167433.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167103.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166182.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F00D3BB62CAD30062D9103C0700419D5F7E784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345725   (165751) от 16.12.2019
-
-Павел Астапов | Будни учителя (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник реальных историй, которые приоткрывают завесу школьной жизни.
-Павел Астапов рассказывает о своей работе без прикрас, но с иронией, погружает слушателя в мир строгих правил и больших надежд, мир, тонкости которого остаются за кадром для большинства людей. Автор мастерски сочетает курьезные истории из школьной практики и реальные проблемы – от образовательных (   Читать дальше...   )Жанр: Истории из жизниПродолжительность: 07:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20DEA39A3DC03F5D2D4B8AA42411947A7804AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516768   (165401) от 12.12.2021
-
-Джон Бойн | Незримые фурии сердца (2021) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сирил Эвери – не настоящий Эвери, во всяком случае, отец не устает ему это повторять. И никогда настоящим ему не стать. Но тогда кто же он? Мать Сирила, совсем еще девочку изгнали из родной ирландской деревни, когда стало известно, что она ждет ребенка. Сирила усыновила богатая и чрезвычайно эксцентричная пара из Дублина. Он рос в достатке, но глубоко одинокий – (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 17:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757C5C8651B64D8A813E3DD309DDD630707C7F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

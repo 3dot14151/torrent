@@ -1,4 +1,137 @@
 https://t.me/izofen
+###  Публикация: 1861623   (1062771) от 
+
+У.У. Сойер | Прелюдия к математике (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для тех кто любит математику и другие точные науки, для выбирающих свой путь в науку. Особенно рекомендую тем, кто считает математику скучным и не интересным предметом.
+Рассказ о некоторых любопытных областях математики с предварительным анализом математического склада ума и целей математики. Книга "Прелюдия к математике", написанная автором Сойер (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381E64327CEEAC9AB12E34990F90029B47BCFB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861039   (1062182) от 
+
+Ж. Адамар | Задача Коши для линейных уравнений с частными производными гиперболического типа (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография, написанная крупным французским математиком Адамаром, представляет собой классический труд по теории линейных уравнений с частными производными. В книге впервые построено фундаментальное решение линейного гиперболического и эллиптического уравнения второго порядка с переменными коэффициентами.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF31B007A8B8EA7F92C7F5980AA974CE762C1836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861038   (1062178) от 
+
+А. Фридман | Уравнения с частными производными параболического типа (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит обстоятельное и систематическое изложение теории уравнений параболического типа. В ней подробно освещаются многие проблемы, решенные лишь в последнее десятилетие. Общая теория параболических уравнений развивается до уровня, на котором читатель может без труда перейти к изучению периодической научной литературы.
+Автор уделяет большое внимание краевым (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC052709AB4BF0361F1210170AF973C68828CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861034   (1062172) от 
+
+К. Миранда | Уравнения с частными производными эллиптического типа [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой единственный в современной литературе систематический обзор теории эллиптических уравнений с частными производными. Подробно изложены наиболее важные разделы теории линейных и нелинейных эллиптических уравнений второго порядка. Библиография содержит более шестисот названий работ, опубликованных главным образом в период 1924—1953 гг.
+Книга (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0F3ABABF895F7430E59D88C2D82FEC403BD46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861017   (1062170) от 
+
+Л. Хёрмандер | Введение в теорию функций нескольких комплексных переменных (1968) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга принадлежит перу видного ученого, ведущего специалиста в области теории дифференциальных уравнений. Автор известен нашему читателю по ряду его книг в этой области, вышедших в русском переводе. Хермандеру удалось очень компактно изложить основные идеи и понятия теории аналитических функций нескольких комплексных переменных. В основу изложения легло изучение (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B68245AF5E69D0C5D47935893DC09C5B58DCA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860156   (1061775) от 
 
 Люсьенн Феликс | Элементарная математика в современном изложении (1979) [PDF]
@@ -7,7 +140,7 @@ https://t.me/izofen
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061775.jpg" />
+  <img src="Z:/picture/005/save_picture_1061775.jpg" />
 </div>
 
 
@@ -33,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061767.jpg" />
+  <img src="Z:/picture/005/save_picture_1061767.jpg" />
 </div>
 
 
@@ -61,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061765.jpg" />
+  <img src="Z:/picture/005/save_picture_1061765.jpg" />
 </div>
 
 
@@ -87,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061350.jpg" />
+  <img src="Z:/picture/005/save_picture_1061350.jpg" />
 </div>
 
 
@@ -113,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061245.jpg" />
+  <img src="Z:/picture/005/save_picture_1061245.jpg" />
 </div>
 
 
@@ -140,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061056.jpg" />
+  <img src="Z:/picture/005/save_picture_1061056.jpg" />
 </div>
 
 
@@ -166,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060906.jpg" />
+  <img src="Z:/picture/005/save_picture_1060906.jpg" />
 </div>
 
 
@@ -194,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060212.jpg" />
+  <img src="Z:/picture/009/save_picture_1060212.jpg" />
 </div>
 
 
@@ -220,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060201.jpg" />
+  <img src="Z:/picture/009/save_picture_1060201.jpg" />
 </div>
 
 
@@ -246,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059077.jpg" />
+  <img src="Z:/picture/005/save_picture_1059077.jpg" />
 </div>
 
 
@@ -272,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058403.jpg" />
+  <img src="Z:/picture/005/save_picture_1058403.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056757.jpg" />
+  <img src="Z:/picture/005/save_picture_1056757.jpg" />
 </div>
 
 
@@ -327,7 +460,7 @@ R.W. Chabay, B.A. Sherwood | Matter and Interactions (2015) [PDF, DJVU] [En]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056677.jpg" />
+  <img src="Z:/picture/005/save_picture_1056677.jpg" />
 </div>
 
 
@@ -353,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056329.jpg" />
+  <img src="Z:/picture/005/save_picture_1056329.jpg" />
 </div>
 
 
@@ -379,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056328.jpg" />
+  <img src="Z:/picture/005/save_picture_1056328.jpg" />
 </div>
 
 
@@ -405,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055906.jpg" />
+  <img src="Z:/picture/005/save_picture_1055906.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055619.jpg" />
+  <img src="Z:/picture/005/save_picture_1055619.jpg" />
 </div>
 
 
@@ -457,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055616.jpg" />
+  <img src="Z:/picture/005/save_picture_1055616.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055615.jpg" />
+  <img src="Z:/picture/005/save_picture_1055615.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ P. Grohs, M. Holler, A. Weinmann | Handbook of Variational Methods for Nonlinear
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055303.jpg" />
+  <img src="Z:/picture/005/save_picture_1055303.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055050.jpg" />
+  <img src="Z:/picture/005/save_picture_1055050.jpg" />
 </div>
 
 
@@ -548,136 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B710ED35D4380AB1174BA9D4799781C9509DFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851256   (1055038) от 01.02.2026
-
-Д.З. Гордевский, А.С. Лейбин | Популярное введение в многомерную геометрию (1964) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геометрия многомерного пространства уже давно стала рабочим аппаратом в физике, механике и в самой математике. В последнее время она с успехом применяется в других науках, например, в химии. Несмотря на это, наша популярная математическая литература весьма бедна сведениями по многомерной геометрии. В предлагаемой книге делается попытка в известной мере восполнить (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство Харьковского Государственного УниверситетаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58F0C9303E096360945A28E2B1D2656886603A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850813   (1054873) от 31.01.2026
-
-José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry and Topology of Singularities [8 книг] (2020 - 2026) [PDF] [En]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг Handbook of Geometry and Topology of Singularities от издательства Springer — это многотомное академическое издание, посвящённое теории сингулярностей (singularity theory) — важной и активно развивающейся области современной математики, где изучаются особенности «особых точек» в различных математических структурах и их связи с другими разделами наук.Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D85F49A3DF3CD34FB1D676406B149B43AAD7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851114   (1054767) от 31.01.2026
-
-M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алгебра в том виде, в каком мы её знаем сегодня, состоит из множества различных идей, концепций и результатов. Примерная оценка числа этих различных «элементов» составляет от 50 000 до 200 000. Многие из них получили названия, и ещё больше могли бы (и, возможно, должны) иметь «название» или удобное обозначение. В дополнение к первичной информации, это руководство (   Читать дальше...   )Жанр: МатематикаИздательство: ElsevierФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F165BA688773C5EFBB850ACBE67A866E046AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850824   (1054633) от 30.01.2026
-
-Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850623   (1054617) от 30.01.2026
-
-Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting and Control for Sustainable Electric Mobility (Lecture Notes in Electrical Engineering. 1518) (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054617.jpg" />
-</div>
-
-
-###  Подробнее
-
-The integration of microgrids with solar generation enhances energy efficiency, stability, and sustainability. Yet, managing such systems requires advanced forecasting and optimisation models. Microgrids that unite distributed sources, storage, and intelligent control enable efficient energy use even under grid constraints. Powering electric vehicle charging stations (   Читать дальше...   )Жанр: Electrical EngineeringЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2D8BF86F7483FB525EC65A9236F3C559AE7718
 ```
 
 https://mybot314.ru/tekegram_catalog/

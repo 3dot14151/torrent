@@ -1,4 +1,83 @@
 https://t.me/izofen
+###  Публикация: 1861343   (1062550) от 
+
+Lively Wallpaper 2.2.1.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о том, как установить живые обои рабочего стола Windows 10 очень популярен среди пользователей, однако сделать это системные средствами не получится. Бесплатных программ для этих целей не так много, но они существуют.
+Lively Wallpaper — сравнительно простая, полностью бесплатная программа с открытым исходным кодом и на русском языке, позволяющая поставить (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F052EEBBE4E2144E19A00CA2CABAFD2932DEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861433   (1062485) от 
+
+AI Text To Image Generator Pro 1.2.2 RePack [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью AI Text to Image Generator — лучшего приложения для ПК, которое превращает ваши слова в потрясающие высококачественные изображения. Независимо от того, являетесь ли вы цифровым художником, дизайнером или просто увлекаетесь творчеством, наш мощный генератор изображений на базе ИИ предоставляет вам прямой доступ к передовым (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AC6377B8F101640F447307566970E2F4B4DBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860742   (1062003) от 
+
+EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062003.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DB28321FF927BEABF675F6D9A8758BEEBB8F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858363   (1060250) от 11.03.2026
 
 EarthView 7.15.0 RePack (& Portable) by elchupacabra [Ru/En]
@@ -7,7 +86,7 @@ EarthView 7.15.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060250.jpg" />
+  <img src="Z:/picture/009/save_picture_1060250.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ EarthView 7.14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058169.jpg" />
+  <img src="Z:/picture/005/save_picture_1058169.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055656.jpg" />
+  <img src="Z:/picture/005/save_picture_1055656.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ FontViewOK 9.21 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053855.jpg" />
+  <img src="Z:/picture/005/save_picture_1053855.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ FontViewOK 9.19 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047738.jpg" />
+  <img src="Z:/picture/008/save_picture_1047738.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ VanDyke SecureCRT 9.3.1 build 2929 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046380.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040240.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ Game WideScreener 2.0.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014618.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ Active PKiller 1.6 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010097.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ Advanced Find and Replace 7.8.1 [Multi/Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997350.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ PlayMemories Home 2.0 [Русский / Английский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996553.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ DesktopEarth 3.2.42 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982804.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ ArtMoney SE 7.40.4 [Мульти / Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980458.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ Brocade FabricOS (версии с v5.1.0 по v8.2.1a)[En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977447.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ Uloader 8.0.0.0 [ENG]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953350.jpg" />
 </div>
 
 
@@ -412,7 +491,7 @@ Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949374.jpg" />
 </div>
 
 
@@ -438,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946820.jpg" />
 </div>
 
 
@@ -464,7 +543,7 @@ Detwinner 2.04.002 (& Portable) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946433.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945491.jpg" />
 </div>
 
 
@@ -516,7 +595,7 @@ Design Pack By Leha342 & Stason v.01.2016 [Ru] (Авторская раздач�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944647.jpg" />
 </div>
 
 
@@ -543,7 +622,7 @@ Alternate Calculator 3.480 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942061.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889803.jpg" />
 </div>
 
 
@@ -595,7 +674,7 @@ Stitch Art Easy 4.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876505.jpg" />
+  <img src="Z:/picture/005/save_picture_876505.jpg" />
 </div>
 
 
@@ -609,84 +688,6 @@ Stitch Art Easy! - вышивка- это просто!
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300233   (875386) от 24.02.2011
-
-VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875386.jpg" />
-</div>
-
-
-###  Подробнее
-
-VerseQ - инновационный клавиатурный тренажер, который сделал слепую печать доступной каждому! Клавиатурный тренажер VerseQ отличается от всех остальных… Отличается эффективностью, а также целым спектром уникальных особенностей. Проще можно было бы сказать, что VerseQ – это новый шаг в технологиях обучения слепой печати.Язык интерфейса: Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497048   (867577) от 20.09.2021
-
-IPTV Checker v 2.5 Portable [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматизирующее процесс проверки  плейлистов m3u8 каналов IPTV. Проверка и отчет по каждому каналу.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7969F0E1F1BF00758B93385F63CAA7BD410856BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497701   (862513) от 23.09.2021
-
-RuntimePack 21.7.30 Full [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862513.jpg" />
-</div>
-
-
-###  Подробнее
-
-RuntimePack - это набор компонентов, который раз и навсегда избавит вас от ошибок при запуске игр и программ, связанных с отсутствием нужного ПО или библиотеки. Установщик "одним махом" добавит на компьютер важные файлы DLL и OCX, которые чаще всего требуются для запуска различных приложений, а также установит все существующие версии пакетов Microsoft Visual (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5837B0D8590DE03B584A659861961BB51D5138
 ```
 
 https://mybot314.ru/tekegram_catalog/

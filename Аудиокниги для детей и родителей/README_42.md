@@ -1,3 +1,82 @@
+###  Публикация: 1067297   (408239) от 28.10.2016
+
+Николай Кун | Подвиги Геракла (2006) [MP3, Николай Караченцов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древнегреческая культура оставила нам в наследство удивительные мифы о всемогущих богах и мудрых богинях, об опасных путешествиях и славных походах. Дошла до нас и легенда об отважном герое Древней Греции - Геракле. Чтобы искупить прежние грехи и обрести бессмертие Геракл должен совершить двенадцать подвигов.Жанр: Детская литература,МифологияИздательство: АрдисПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C1AD919EE27910AB6C1B067FD6B0C86C8C2695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387720   (406899) от 14.10.2012
+
+Андрей Усачёв | Чудеса в Дедморозовке (Аудиоспектакль) (2009) [MP3, Владимир Меньшов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение веселого аудиоспектакля «Школа снеговиков». Вас ждут новые приключения Деда Мороза и его забавных внуков – снеговиков и их друзей.
+Далеко на Севере, где-то в Архангельской или Вологодской области, есть невидимая деревня Дедморозовка. В этой деревне и проводит большую часть года Дед Мороз, его внучка Снегурочка, а также их помощники – снеговики и снеговички. (   Читать дальше...   )Жанр: СказкаВ ролях: Владимир Меньшов, Александр Пожаров, Лариса Брохман, Ольга Шорохова, Александр ПинегинИздательство: ВимбоПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816A8C33192830E1E875EA93C9E0B629490E674C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213998   (406765) от 06.10.2020
+
+Кэтрин Кволс | Радость воспитания (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэтрин Кволс - семейный консультант, основатель Сообщества Детских и Семейных Отношений и Сообщества по Обучению Инструкторов Родительскому Мастерству. В своей книге "Радость воспитания" она предлагает тысячу практических методов, как переориентировать внимание ребенка с негатива на позитив. С плохого поступка - на ответственность за него, с плохого мнения (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 08:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD972C5EC98A3780683D8522752DAB9886B0D140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 387715   (406620) от 06.10.2020
 
 Андрей Усачёв | Умная собачка Соня (2008) [MP3, Ольга Шорохова, Анатолий Гущин]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406620.jpg" />
+  <img src="Z:/picture/008/save_picture_406620.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406545.jpg" />
+  <img src="Z:/picture/008/save_picture_406545.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405254.jpg" />
+  <img src="Z:/picture/008/save_picture_405254.jpg" />
 </div>
 
 
@@ -94,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404879.jpg" />
+  <img src="Z:/picture/008/save_picture_404879.jpg" />
 </div>
 
 
@@ -120,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403778.jpg" />
+  <img src="Z:/picture/008/save_picture_403778.jpg" />
 </div>
 
 
@@ -146,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402810.jpg" />
+  <img src="Z:/picture/008/save_picture_402810.jpg" />
 </div>
 
 
@@ -172,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402760.jpg" />
+  <img src="Z:/picture/008/save_picture_402760.jpg" />
 </div>
 
 
@@ -200,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402321.jpg" />
+  <img src="Z:/picture/008/save_picture_402321.jpg" />
 </div>
 
 
@@ -228,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401946.jpg" />
+  <img src="Z:/picture/008/save_picture_401946.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396075.jpg" />
+  <img src="Z:/picture/005/save_picture_396075.jpg" />
 </div>
 
 
@@ -281,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393971.jpg" />
+  <img src="Z:/picture/008/save_picture_393971.jpg" />
 </div>
 
 
@@ -307,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392690.jpg" />
+  <img src="Z:/picture/008/save_picture_392690.jpg" />
 </div>
 
 
@@ -335,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392550.jpg" />
+  <img src="Z:/picture/008/save_picture_392550.jpg" />
 </div>
 
 
@@ -361,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387354.jpg" />
+  <img src="Z:/picture/008/save_picture_387354.jpg" />
 </div>
 
 
@@ -389,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387351.jpg" />
+  <img src="Z:/picture/008/save_picture_387351.jpg" />
 </div>
 
 
@@ -417,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387282.jpg" />
+  <img src="Z:/picture/008/save_picture_387282.jpg" />
 </div>
 
 
@@ -443,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385933.jpg" />
+  <img src="Z:/picture/008/save_picture_385933.jpg" />
 </div>
 
 
@@ -469,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385706.jpg" />
+  <img src="Z:/picture/008/save_picture_385706.jpg" />
 </div>
 
 
@@ -495,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384940.jpg" />
+  <img src="Z:/picture/008/save_picture_384940.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383500.jpg" />
+  <img src="Z:/picture/008/save_picture_383500.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382652.jpg" />
+  <img src="Z:/picture/008/save_picture_382652.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381767.jpg" />
+  <img src="Z:/picture/008/save_picture_381767.jpg" />
 </div>
 
 
@@ -611,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381703.jpg" />
+  <img src="Z:/picture/008/save_picture_381703.jpg" />
 </div>
 
 
@@ -622,87 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88A22782DF2AE0326515685BE32E3173FA6142E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253642   (381624) от 10.10.2018
-
-Крис Коламбус; Нэд Визини | Дом секретов (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый режиссер Гарри Поттера Крис Коламбус и автор бестселлеров Нед Виззини создали захватывающую сказку для детей (к слову, и для взрослых).
-«Пробирает до мурашек», – так отозвалась Джоан Роулинг об этой книге.
-Трое детей – Брендан, Корделия и Элеанор Уолкер переезжают с родителями из удобного и суперсовременного дома в огромный викторианский особняк, прежним (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 12:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A84508D96520BC696CD87B31DCFA8AD8975D162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414925   (381315) от 10.10.2020
-
-Волшебный мир сказок | Детская литература (2013) [Сборник] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомство ребенка со сказкой начинается с чтения ее взрослым. Подборка лучших авторских сказок, вошедших в данный сборник, в прочтении профессиональных актеров театра и кино сделает это знакомство легким и приятным.
-Сказки - вечный источник добра и справедливости. Вместе с замечательными любимыми героями малыш отправится в удивительное путешествие по миру сказок (   Читать дальше...   )Жанр: Детская литература, сказкаПродолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99186C1E2A75C7D85C0F0AC56D48648525B41F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415023   (381305) от 10.10.2020
-
-Оота Тосимаса | Самый лучший папа! Как оставаться в сердце ребенка, когда работаешь с утра до вечера (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего несколько лет своей жизни мы можем наслаждаться радостным криком «Папа!» и тем, как ребенок бросается нам на шею. Увы, сегодня это реалии не только Японии, но и России. Но как сочетать счастье быть папой и работу, когда занят с утра до вечера? Японский автор и сознательный папа Тосимаса Оота в своей книге рассказывает, как сделать редкие минуты общения насыщенным (   Читать дальше...   )Жанр: Педагогика/Психология/Воспитание детейПеревод: Е. А. РябоваПродолжительность: 03:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E03B59A764CFFF0C4F40D288E02CD049773834
 ```
 
 https://mybot314.ru/tekegram_catalog/

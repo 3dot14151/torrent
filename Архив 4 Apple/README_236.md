@@ -6,7 +6,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743638.jpg" />
+  <img src="Z:/picture/008/save_picture_743638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ iStatistica 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743637.jpg" />
+  <img src="Z:/picture/008/save_picture_743637.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cisdem PDF Password Remover 4 v4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743555.jpg" />
+  <img src="Z:/picture/008/save_picture_743555.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Screenium 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743455.jpg" />
+  <img src="Z:/picture/008/save_picture_743455.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BetterZip 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743357.jpg" />
+  <img src="Z:/picture/008/save_picture_743357.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ WiFi Explorer Pro 3 v3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743315.jpg" />
+  <img src="Z:/picture/008/save_picture_743315.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gestimer 1.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743127.jpg" />
+  <img src="Z:/picture/008/save_picture_743127.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Hands Off! 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742997.jpg" />
+  <img src="Z:/picture/008/save_picture_742997.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Age of Wonders III:  Eternal Lords v. 1.0 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742849.jpg" />
+  <img src="Z:/picture/008/save_picture_742849.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Money Pro 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742537.jpg" />
+  <img src="Z:/picture/008/save_picture_742537.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ CleanMyMac X 4.6.9 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742491.jpg" />
+  <img src="Z:/picture/008/save_picture_742491.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Parallels Desktop Business Edition 15.1.4 (47270)+Toolbox 3.9.1 (build 3170) [Mu
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742389.jpg" />
+  <img src="Z:/picture/008/save_picture_742389.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ AYBO 1.20.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742385.jpg" />
+  <img src="Z:/picture/008/save_picture_742385.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Tap Forms Organizer 5 v5.3.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742384.jpg" />
+  <img src="Z:/picture/008/save_picture_742384.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Cisdem DVD Burner 6.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742382.jpg" />
+  <img src="Z:/picture/008/save_picture_742382.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Artstudio Pro 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742380.jpg" />
+  <img src="Z:/picture/008/save_picture_742380.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Smooze Pro 2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742378.jpg" />
+  <img src="Z:/picture/008/save_picture_742378.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Mix Up Studio 3.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742376.jpg" />
+  <img src="Z:/picture/008/save_picture_742376.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Rectangle Pro 2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742374.jpg" />
+  <img src="Z:/picture/008/save_picture_742374.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ System Toolkit 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742372.jpg" />
+  <img src="Z:/picture/008/save_picture_742372.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742370.jpg" />
+  <img src="Z:/picture/008/save_picture_742370.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Battery Indicator for Mac 2.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742368.jpg" />
+  <img src="Z:/picture/008/save_picture_742368.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ NetWorker Pro 8.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742366.jpg" />
+  <img src="Z:/picture/008/save_picture_742366.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ EdgeView 3 v3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742362.jpg" />
+  <img src="Z:/picture/008/save_picture_742362.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742360.jpg" />
+  <img src="Z:/picture/008/save_picture_742360.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ CameraBag Cinema 1.0.103 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742312.jpg" />
+  <img src="Z:/picture/008/save_picture_742312.jpg" />
 </div>
 
 

@@ -1,3 +1,60 @@
+###  Публикация: 1370698   (895239) от 28.03.2020
+
+Sven Larsson - 2 альбома (2010-2012) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - Sunlight And Shadow
+2012 - Bad Mad ManЖанр: Westcoast, AORПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628A5DA37079FCB5B3493960E186C2A2894E377A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370794   (895159) от 28.03.2020
+
+Gotthard - #13 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895159.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad News [3:25]
+ 2. Every Time I Die [4:08]
+ 3. Missteria [3:16]
+ 4. 10.000 Faces [3:04](   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F9ED91EDB64EE60F7E67C0C45807FC42A16A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101652   (894822) от 07.02.2017
 
 Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +63,7 @@ Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894822.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894771.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Monkeyhead - Monkeyhead (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893143.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Billy Rankin - Growin' Up Too Fast (1984) Reissue, Remastered, 2002, Zoom Club R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892424.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ Black Stone Cherry - The Human Condition (2020) Deluxe Edition, 2021, Mascot Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892272.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ Black Sabbath - Paranoid (1970) 4CD Super Deluxe, Reissue, Remastered 2016 [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890777.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ Grand Funk Railroad - 10 Albums (1969-1976) Collection /2002,2003 Capitol Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890349.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ Horisont - About Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889462.jpg" />
+  <img src="Z:/picture/005/save_picture_889462.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ Valentine - 2 альбома (1990-2008) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888708.jpg" />
+  <img src="Z:/picture/005/save_picture_888708.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ Robert Berry - 5 альбомов (1994-2008) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888570.jpg" />
+  <img src="Z:/picture/005/save_picture_888570.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ Ramos-Hugo - The Dream (2008) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888363.jpg" />
+  <img src="Z:/picture/005/save_picture_888363.jpg" />
 </div>
 
 
@@ -322,7 +379,7 @@ Hugo - 3 альбома (1997-2004) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888354.jpg" />
+  <img src="Z:/picture/005/save_picture_888354.jpg" />
 </div>
 
 
@@ -351,7 +408,7 @@ Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887903.jpg" />
+  <img src="Z:/picture/005/save_picture_887903.jpg" />
 </div>
 
 
@@ -380,7 +437,7 @@ Thunder - Wonder Days (2015) Limited Deluxe Edition, 2CD [FLAC|Lossless|tracks +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887701.jpg" />
+  <img src="Z:/picture/005/save_picture_887701.jpg" />
 </div>
 
 
@@ -407,7 +464,7 @@ Jack Russell’s Great White - He Saw it Comin' (2017) [FLAC|lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887643.jpg" />
+  <img src="Z:/picture/005/save_picture_887643.jpg" />
 </div>
 
 
@@ -436,7 +493,7 @@ Hollywood Monsters - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Hard'n'H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887085.jpg" />
+  <img src="Z:/picture/005/save_picture_887085.jpg" />
 </div>
 
 
@@ -465,7 +522,7 @@ Guns N’ Roses - Live Era '87 - '93 (1999) Japan [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886318.jpg" />
+  <img src="Z:/picture/005/save_picture_886318.jpg" />
 </div>
 
 
@@ -494,7 +551,7 @@ Bonfire - Fistful of Fire (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885305.jpg" />
+  <img src="Z:/picture/005/save_picture_885305.jpg" />
 </div>
 
 
@@ -523,7 +580,7 @@ Inglorious - We Will Ride (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884532.jpg" />
+  <img src="Z:/picture/005/save_picture_884532.jpg" />
 </div>
 
 
@@ -552,7 +609,7 @@ Ozzy Osbourne - No More Tears (1991) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884320.jpg" />
+  <img src="Z:/picture/005/save_picture_884320.jpg" />
 </div>
 
 
@@ -581,7 +638,7 @@ Magnum - Princess Alice And The Broken Arrow (2007) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883454.jpg" />
+  <img src="Z:/picture/005/save_picture_883454.jpg" />
 </div>
 
 
@@ -610,7 +667,7 @@ Inglorious - Heroine (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882484.jpg" />
+  <img src="Z:/picture/005/save_picture_882484.jpg" />
 </div>
 
 
@@ -639,7 +696,7 @@ Newman - Into The Monsters Playground (2021) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882472.jpg" />
+  <img src="Z:/picture/005/save_picture_882472.jpg" />
 </div>
 
 
@@ -668,7 +725,7 @@ M.ill.ion - Back On Track (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882465.jpg" />
+  <img src="Z:/picture/005/save_picture_882465.jpg" />
 </div>
 
 
@@ -682,64 +739,6 @@ M.ill.ion - Back On Track (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9210CBC0875F6E1D8439A2F482E428FB02382CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232093   (882271) от 11.09.2021
-
-Kuni - 4 albums (1986-2011) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди поклонников жанра Hard'n'Heavy имя KUNI (зовут товарища: Kuni Takeuchi 20.01.64 Tokyo) довольно известно, он владелец собственного лэйбла "Big M.F.". Этот музыкант играет уже давно и вместе с известными европейскими музыкантами. У KUNI выпущен диск Lookin' For Action, в котором участвовал известный вокалист Jeff Scott Soto. Японцы любят и понимают (   Читать дальше...   )--------------------------
-
-01. Untouchable (3:00)
-02. Tear it Down (3:51)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 02:39:34 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17559ECE5F4E268AC0CD9FB8A05B282E9AC1FD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277592   (882265) от 11.09.2021
-
-China - 7 albums, 9 CD (1988-2014) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пусть слушателей не смущает "восточное" название этой группы и иероглифы на обложках ее альбомов – мелодик-рок-бэнд "China" родом из Швейцарии. В конце 80-х и начале 90-х коллектив был популярен не только у себя дома, что доказывалось попаданием в горячую десятку, но и за границей (в Англии, Германии и Японии "китайские" пластинки присутствовали (   Читать дальше...   )--------------------------
-
-01. The Great Wall (1:35)
-02. Dead Lights (4:42)(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Glam Rock |Продолжительность: 07:50:42 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F52DB9558DEF98AF4CDB0DCBE0FFE03748D6D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

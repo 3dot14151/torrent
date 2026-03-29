@@ -1,3 +1,82 @@
+###  Публикация: 1376539   (797757) от 24.05.2020
+
+Двойная страховка / Double indemnity (1944) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797757.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноимённой повести Джеймса Кейна, основанной, на реальном преступлении в 1927 году.
+Уолтер Нефф - страховой агент. В один из дней он отправляется домой к клиенту, чтобы проделать обычную процедуру - продлить полис на автомобиль. Но там он встречается с женой клиента, которая делает ему опасное предложение, от которого он не может отказаться...Производство: США / Paramount PicturesЖанр: Драма, детектив, триллер, фильм-нуарРежиссер: Билли УайлдерАктеры: Фред МакМюррэй, Барбара Стэнвик, Эдвард Дж. Робинсон, Портер Холл, Джин Хезер, Том Пауэрс, Байрон Барр, Ричард Гейнс, Фортунио Бонанова, Джон ФиллиберПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269209754DD8BF5A6B8A2608410031881DA153A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198208   (797440) от 18.01.2018
+
+Корни / Tap Roots (1948) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797440.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние дни перед Гражданской войной Морна Дэбни собирается выйти замуж за солдата Клэя Макайвора. Когда президентом избирают Линкольна, Миссисипи собирается выйти из состава Союза. Дед Морны — Большой Сэм Дэбни, которому принадлежит огромная процветающая долина в Миссисипи — остаётся верен Союзу, как и его сын Хоаб, отец Морны. Хоаб хочет сохранить за долиной (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I), Walter Wanger Productions Inc.Жанр: Драма, Вестерн, ВоенныйРежиссер: Джордж МаршаллАктеры: Ван Хефлин, Сьюзен Хэйуорд, Борис Карлофф, Джули Лондон, Уитфилд Коннор, Уорд Бонд, Ричард Лонг, Артур Шилдс, Грифф Барнетт, Сондра РоджерсПеревод: Одноголосый закадровый (В. Рутилов)Субтитры: РусскиеПродолжительность: 01:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347437E769C8F513D680F64ED03FF33E97035978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508157   (797394) от 08.11.2021
+
+Потасовка в Панаме / Разборки в Париже / Du rififi а Paname / Rififi in Paris (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по роману Огюста Ле Бретона. Специальный агент таможенной службы США Майк Копполано внедряется в международную сеть контрабандистов, возглавляемую французским преступным авторитетом Поло Брильянтом. Однако против банды Брильянта начинает войну американская мафия, стремящаяся прибрать к рукам выгодный бизнес. Копполано оказывается в самом центре мафиозных разборок...Производство: Франция, Италия, Германия (ФРГ) / Les Films Copernic, Gloria Films, Fida CinematograficaЖанр: драма, криминалРежиссер: Дени Де Ла ПательерАктеры: Жан Габен, Герт Фрёбе, Джордж Рафт, Надя Тиллер, Марсель Боззюффи, Мирей Дарк, Клод Брассёр, Даниэль Чеккальди, Жан-Клод Берк, Dany DaubersonПеревод: многоголосый профессиональный (Film Prestige), авторский (Роман Янкелевич)Субтитры: русские, английскиеПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D723F89E2A81D3BF7C9D9B702F48848370CA01BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198465   (797376) от 18.01.2018
 
 Галлиполи / Gallipoli (1981) WEB-DLRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797376.jpg" />
+  <img src="Z:/picture/008/save_picture_797376.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797325.jpg" />
+  <img src="Z:/picture/008/save_picture_797325.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797270.jpg" />
+  <img src="Z:/picture/008/save_picture_797270.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796893.jpg" />
+  <img src="Z:/picture/008/save_picture_796893.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796849.jpg" />
+  <img src="Z:/picture/008/save_picture_796849.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796715.jpg" />
+  <img src="Z:/picture/008/save_picture_796715.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796486.jpg" />
+  <img src="Z:/picture/008/save_picture_796486.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796477.jpg" />
+  <img src="Z:/picture/008/save_picture_796477.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796161.jpg" />
+  <img src="Z:/picture/008/save_picture_796161.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796088.jpg" />
+  <img src="Z:/picture/008/save_picture_796088.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795782.jpg" />
+  <img src="Z:/picture/008/save_picture_795782.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795393.jpg" />
+  <img src="Z:/picture/008/save_picture_795393.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_795186.jpg" />
+  <img src="Z:/picture/005/save_picture_795186.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794781.jpg" />
+  <img src="Z:/picture/008/save_picture_794781.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794758.jpg" />
+  <img src="Z:/picture/008/save_picture_794758.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794489.jpg" />
+  <img src="Z:/picture/008/save_picture_794489.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794327.jpg" />
+  <img src="Z:/picture/008/save_picture_794327.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794045.jpg" />
+  <img src="Z:/picture/008/save_picture_794045.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793984.jpg" />
+  <img src="Z:/picture/008/save_picture_793984.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793701.jpg" />
+  <img src="Z:/picture/008/save_picture_793701.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793643.jpg" />
+  <img src="Z:/picture/008/save_picture_793643.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793279.jpg" />
+  <img src="Z:/picture/008/save_picture_793279.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793090.jpg" />
+  <img src="Z:/picture/008/save_picture_793090.jpg" />
 </div>
 
 
@@ -596,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90A88DEB3C99E8E928EA94639F08F141361B7E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200505   (792659) от 24.01.2018
-
-Великолепный / Le magnifique (1973) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Мерлен — писатель криминальных рассказов. С точностью часового механизма он каждый месяц пишет новый роман для своего редактора Шаррона. Каждая история рассказывает об одном и том же герое — Бобе Сен-Клере, влиятельном и лихом секретном агенте.Производство: Франция, Италия / Cerito Films, Les Films Ariane, Mondex FilmsЖанр: Комедия, Мелодрама, БоевикРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Жаклин Биссет, Витторио Каприоли, Ганс Мейер, Моник Тарбес, Марио Давид, Бруно Гарсен, Раймон Жером, Жан ЛефеврПеревод: Дублированный (СССР, "Ленфильм", на вырезанные советским кинопрокатом фрагменты - профессиональный двуголосый, закадровый)Субтитры: Русский, Французский, Английский, ЧешскийПродолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD125E94460A996D3B6FEF08B40BEFE9A1A94F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122689   (792374) от 07.04.2017
-
-Хладнокровный Люк / Cool Hand Luke (1967) HDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды ночью Люк, выпив, решил развлечься и свинтил газовым ключом дюжину монетоприемников на автостоянке, за что и получил два года ремонтно-строительных работ на дорогах в южных штатах.
-За свой упрямый и упорный характер Люк получил от сокамерников уважительное прозвище Люк Хладнокровный, а с ним и ненависть надзирателей лагеря за стремление к свободе и непокорный (   Читать дальше...   )Производство: СШАЖанр: Драма, криминал, экранизацияРежиссер: Стюарт РозенбергАктеры: Пол Ньюман, Джордж Кеннеди, Дж.Д. Кэннон, Лу Антонио, Роберт Дривас, Стразер Мартин, Джо Ван Флит, Клифтон Джеймс, Морган Вудворд, Люк Аскью ...Перевод: Профессиональный двуголосый (CP Digital)Субтитры: Русские, английскиеПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3BFE5897BE45748AA6637A1121C716503F3F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131349   (792299) от 31.05.2020
-
-Однажды на Диком Западе / C'era una volta il West (1968) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая вдова отказывается продать ферму дельцу, задумавшему проложить по этой земле железную дорогу, и тогда он заказывает ее убийство, нанимая лучшего на Диком Западе стрелка. На защиту красавицы встают известный бандит Шайен и таинственный бродяга. Трое сильных мужчин сойдутся в смертельном хороводе, выхода из которого может и не быть.Производство: Италия, США / Finanzia San Marco, Paramount Pictures, Rafran CinematograficaЖанр: Драма, ВестернРежиссер: Серджио ЛеонеАктеры: Чарльз Бронсон, Клаудия Кардинале, Генри Фонда, Джейсон Робардс, Габриэле Ферцетти, Паоло Стоппа, Вуди Строуд, Джек Элам, Кинен Уинн, Фрэнк ВулфПеревод: Многоголосый, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 02:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AF69F0991C34DFE19DA69241C2C24215B82D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

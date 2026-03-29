@@ -1,3 +1,29 @@
+###  Публикация: 1367739   (913932) от 17.03.2020
+
+Affinity Photo 1.8.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 16.03.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7ED08E8A5D72575790D2542C64823F0505CF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491386   (912515) от 24.08.2021
 
 WidsMob FilmPack 2.9 [Multi]
@@ -6,7 +32,7 @@ WidsMob FilmPack 2.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912515.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Athentech Perfectly Clear Complete (St and Plug-in for Lr) 3 v3.10.0.1766 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912271.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ RizomUV 2019.1.14 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912193.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ PicConvert 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911081.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Pixellu SmartAlbums 2 v2.1.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910096.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ PhotoTangler 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_905062.jpg" />
+  <img src="Z:/picture/008/save_picture_905062.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ CoLocalizer Pro 7.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904084.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Super Resize 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901580.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Exif Editor 1.1.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897689.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896961.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Super Eraser Pro - Scale Photo and Erase Unwanted 2.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894567.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ IconKit 10.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892548.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Watermark Sense - Bulk Process 1.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892449.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Photo Sense - Bulk Enhancement 2.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892440.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Sketchode 1.3.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891173.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ FxFactory Pro 7.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885927.jpg" />
+  <img src="Z:/picture/005/save_picture_885927.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ Squash — Web Image Compression 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880340.jpg" />
+  <img src="Z:/picture/005/save_picture_880340.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Sketchode 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880095.jpg" />
+  <img src="Z:/picture/005/save_picture_880095.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ DxO OpticsPro Elite 10.5.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875346.jpg" />
+  <img src="Z:/picture/005/save_picture_875346.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ Pixellu SmartAlbums 2 v2.0.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866093.jpg" />
+  <img src="Z:/picture/008/save_picture_866093.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ WidsMob PhotoVault 3.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856179.jpg" />
+  <img src="Z:/picture/008/save_picture_856179.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Watermark Pro 1.72 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853787.jpg" />
+  <img src="Z:/picture/008/save_picture_853787.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Photopaw 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852891.jpg" />
+  <img src="Z:/picture/008/save_picture_852891.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Adobe InDesign 2021 v16.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850791.jpg" />
+  <img src="Z:/picture/008/save_picture_850791.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ Lucid 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846834.jpg" />
+  <img src="Z:/picture/008/save_picture_846834.jpg" />
 </div>
 
 
@@ -671,33 +697,6 @@ Lucid  – это автономное приложение от компани�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0421FC6F661F4043E7AD029D80934D4E1E4291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379247   (841207) от 28.04.2020
-
-liquivid Video Exposure and Effects 1.4.1 [En/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquivid Video Exposure and Effects — это простое в использовании приложение, которое позволяет изменять экспозицию клипа, а также баланс белого, и применять различные визуальные эффекты (также известные, как фильтры). Приложение позволяет выполнять импорт всех распространенных видеоформатов и кодеков любого разрешения (включая HD, 2K, 4K).
-Выполняет экспорт видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891CA03DEE0AAC378657B836576A3B40859FD316
 ```
 
 https://mybot314.ru/tekegram_catalog/

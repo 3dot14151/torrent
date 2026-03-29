@@ -1,3 +1,163 @@
+###  Публикация: 1760962   (27794) от 13.02.2025
+
+Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniversary Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сохранив атмосферу тревоги, вызова и внутреннего напряжения и добавив новый реализм и интерактивность, Half-Life 2 открывает дверь в мир, в котором присутствие игрока влияет на все, что его окружает — от физической среды до поведения и даже эмоций как друзей, так и врагов. Игрок вновь поднимает монтировку ученого-исследователя Гордона Фримена, который обнаруживает (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511EB76DB666D465625F7C745FCAE7A0B4C6287C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778270   (27792) от 13.02.2025
+
+Партенопа / Parthenope (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1950 год. В дом богатой неаполитанской семьи прямиком из Версаля доставили шикарную карету-кровать для младенца, который вот-вот родится прямо в водах Тирренского моря. На свет появилась девочка, и ее назвали Партенопой в честь древнегреческой нимфы, чьим именем когда-то нарекли Неаполь. Идеальная во всем девушка жила на полную катушку: меняла любовников и увлечения, (   Читать дальше...   )Производство: Италия, Франция / The Apartment, Pathé, Numero 10Жанр: фэнтези, драмаРежиссер: Паоло СоррентиноАктеры: Челесте Далла Порта, Стефания Сандрелли, Даниэле Рьенцо, Дарио Аита, Луиза Раньери, Сильвио Орландо, Гари Олдман, Изабелла Феррари, Пеппе Ланцетта, Марлон ЖуберПеревод: Многоголосый профессиональный (TVShows, SoundMasters)Язык озвучки: Русский, ИтальянскийСубтитры: Итальянские (Forced, SDH), АнглийскиеПродолжительность: 02:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35166129C7431979412F512C1F9A99050D6FE1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779662   (27700) от 14.02.2025
+
+Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5487 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_sep_2024_x64_dvd_c38bd9db
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Установлены обновления по 13 февраля 2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F350B13CAF05B2CB8478E45C10633901AF8481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644470   (27688) от 14.02.2025
+
+Атомный лес (1-10 серии из 10) (2012-2013) SATRip [обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27688.jpg" />
+</div>
+
+
+###  Подробнее
+
+События мультсериала разворачиваются в мире, пережившем Апокалипсис в виде ядерного взрыва. Главные герои — звери, обитающие в Атомном лесу. От людей в новом мире, мире будущего, остались только воспоминания, да и те не особенно приятные. Теперь основная цивилизация Земли — это разумные говорящие звери.Жанр: Компьютерная анимация, Для взрослых, ПриключенияРежиссер: Алексей ЛебедевЯзык: РусскийПродолжительность: 8 х ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA1564B355DC474313675C65EFA7C99E4F1E202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779328   (27585) от 15.02.2025
+
+Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.02.12 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27585.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 редакций Windows 10 x64 (русские и английские) с обновлениями по февраль 2025, основанных на образах версий 22H2 (LTSC на 21H2) и интегрированными системными библиотеками
++5 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus x64 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF35961355F2C35861A45375C26A3DE9054CDD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778731   (27584) от 15.02.2025
+
+Домовенок Кузя (2024) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домовёнок Кузя сбегает из плена Бабы-яги и оказывается в квартире девочки Наташи и ее родителей. Кузе нужно найти свой волшебный сундучок, исполняющий желания. Казалось бы, цель уже близка, но на поиски Кузи и сундучка в наш мир проникает Баба-яга, и у нее есть свои коварные планы.Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: комедия, семейныйРежиссер: Виктор ЛакисовАктеры: Сергей Бурунов, Гарик Харламов, Алика Смехова, Екатерина Стулова, София Петрова, Марк Богатырев, Женя Малахова, Олег Комаров, Алексей Гаврилов, Кристина Петрова, Андрей Гаврилов, Андрей Батов, Цолак Погосян, Степан Летковский, Андрей НикульскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433D41C0948B453F563355FA3CE056B3A6F2E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779729   (27477) от 16.02.2025
 
 Особо опасный пассажир / Flight Risk (2025) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27477.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27177.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27171.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Nvidia сломала PhysX во множестве старых игр на н�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27142.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27071.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26957.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26955.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26742.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26723.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26651.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26637.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26517.jpg" />
 </div>
 
 
@@ -319,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26417.jpg" />
 </div>
 
 
@@ -345,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26335.jpg" />
 </div>
 
 
@@ -371,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26322.jpg" />
 </div>
 
 
@@ -399,7 +559,7 @@ MInstAll v.15.02.2025 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26221.jpg" />
 </div>
 
 
@@ -425,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26205.jpg" />
 </div>
 
 
@@ -451,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26116.jpg" />
 </div>
 
 
@@ -478,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26099.jpg" />
 </div>
 
 
@@ -505,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26084.jpg" />
 </div>
 
 
@@ -514,163 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 Очередное достижение: 1000 релизов от Darkhan_m_e!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища и активного релизера hand made * video с первой круглой, а потому такой важной, цифрой -  1000 релизов!! Так держать!!
 От всей души поздравляем
 Darkhan_m_e(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782802   (25889) от 03.03.2025
-
-В ГД назвали проблему квадроберов более не актуальной
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смысла в разработке законопроекта, устанавливающего контроль над квадробингом, нет, тема ушла из повестки. Об этом заявил ТАСС первый заместитель председателя комитета Госдумы по культуре заслуженный артист России Денис Майданов."Я, честно говоря, не вижу и не видел смысла говорить об этом. Можно сказать по-русски, все уже окстились и успокоились на эту тему. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771641   (25798) от 04.03.2025
-
-Анора / Anora (2024) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бруклин. Стриптизерша Анора, предпочитающая имя Эни, знакомится с сыном русского олигарха Ваней, который проводит всё время в вечеринках и развлечениях. Вскоре парень выкупает время Эни на неделю, предлагает слетать в Вегас, а там молодые люди спонтанно женятся. Узнав об этом из газет, родители Вани приходят в ярость и срочно вылетают из России в США, а разобраться (   Читать дальше...   )Производство: США / Cre Film, FilmNation EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Шон БэйкерАктеры: Майки Мэдисон, Марк Эйдельштейн, Юра Борисов, Карен Карагулян, Ваче Товмасян, Алексей Серебряков, Дарья Екамасова, Линдси Нормингтон, Айви Волк, Пол ВайсманПеревод: Дублированный, многоголосый, авторскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A72256B0E22F955E8B99805F20EEC23CB2A0554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783039   (25708) от 05.03.2025
-
-Hisense обвинили в продаже LED-телевизоров под видом QLED
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Hisense USA столкнулась с судебным иском за рекламирование телевизоров с квантовыми точками при их возможном отсутствии в моделях. В иске, поданном в Южном округе Нью-Йорка от имени Роберта Мациоче, утверждается, что заявленная технология квантовых точек (QLED) отсутствует или незаметна в телевизорах Hisense. Об этом сообщает издание The Register.Квантовые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655765   (25695) от 05.03.2025
-
-TVGuide v4.5.20 Premium Mod by Alex.Strannik [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная телепрограмма с регулярными обновлениями, напоминаниями о начале передач, виджетом, управлением телевизором LG Smart TV и возможностью создать несколько разных списков каналов. Короткие видеоинструкции по работе с TVGuide - http://www.youtube.com/user/molokovmobile.
-В приложении нет просмотра трансляций и видео.Тип издания: PremiumРелиз состоялся: 05.02.2025Разработчик: Molokov DmitryПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29655CE596CCA0744A2FB373C91253B51795D462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217151   (25692) от 05.03.2025
-
-Академия верстки | Веб-разработчик 12.0 (2018) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25692.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 7 недель обучения мы подробно разберем все этапы создания сайтов, научимся готовить прототипы, получим навыки создания и работы с дизайн-макетом PSD.Производство: Артём ИсламовЖанр: Веб-разработка, HTML, CSSПродолжительность: 40:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C6F3A4F2D31006D2A8B619BE881907111AA0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 120415   (25588) от 06.03.2025
-
-В.В. Петухов | Полный курс лекций по Общей психологии (54 части) [1997-1998] CamRip [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые предпринята полная реконструкция курса В.В. Петухова, прочитанного в 1997-98 годах и ставшего одним из ярких событий учебной жизни факультета конца 90-х. Достоинством курса является его исчерпывающий характер - курс содержит 55 лекций на 54 DVD дисках (продолжительность большинства лекций 2ч. 30 мин.), охватывающие практически все темы современного психологического (   Читать дальше...   )Жанр: ЛекцииПродолжительность: 137:30:00
 
 ## Скачать торент
 ```bash

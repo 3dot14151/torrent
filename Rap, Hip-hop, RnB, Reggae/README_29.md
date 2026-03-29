@@ -6,7 +6,7 @@ Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206987.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206311.jpg" />
+  <img src="Z:/picture/005/save_picture_206311.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201673.jpg" />
+  <img src="Z:/picture/005/save_picture_201673.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200981.jpg" />
+  <img src="Z:/picture/004/save_picture_200981.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200328.jpg" />
+  <img src="Z:/picture/005/save_picture_200328.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Noize MC - Кооператив «Лебединое озеро» (2023) Single 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199754.jpg" />
+  <img src="Z:/picture/005/save_picture_199754.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197259.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190509.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189751.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189712.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Поколение Брат (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189644.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185809.jpg" />
+  <img src="Z:/picture/004/save_picture_185809.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185099.jpg" />
+  <img src="Z:/picture/004/save_picture_185099.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184362.jpg" />
+  <img src="Z:/picture/004/save_picture_184362.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184218.jpg" />
+  <img src="Z:/picture/004/save_picture_184218.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Don Letts - Outta Sync (2023) [MP3|320 Kbps] <Dub Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183207.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Brand New Heavies - Never Stop... The Best of (2023) 2 x CD [FLAC|Lossless|W
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183132.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182448.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Pharaoh - Philarmonia (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181106.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180952.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179953.jpg" />
+  <img src="Z:/picture/005/save_picture_179953.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Schokk - Л.О.Н. (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179111.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178907.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178767.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Ram & Kommo - Delirium (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternativ
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178734.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - FIRMAA (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176727.jpg" />
+  <img src="Z:/picture/005/save_picture_176727.jpg" />
 </div>
 
 

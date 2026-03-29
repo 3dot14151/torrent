@@ -1,3 +1,31 @@
+###  Публикация: 1242773   (496199) от 25.08.2018
+
+А.А. Максимов | Очерки по истории борьбы за материализм в русском естествознании (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая работа ставит себе задачей в доступной форме проследить историю борьбы за передовое, материалистическое мировоззрение в дореволюционной России в области естествознания.
+
+Исходным теоретическим положениям, на которых построена книга, посвящены «Введение» и раздел пятый «Ленин и борьба русских естествоиспытателей за научное мировоззрение».Жанр: История, науковедение, естествознание, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6EB59E4D4101B4E664836C5CB0CE50B0D9DA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242720   (496009) от 25.08.2018
 
 Н.Я. Борисов (ред.) | Разум против религии. Блокнот агитатора. Специальный выпуск, посвященный атеистической пропаганде (1965) [DJVU]
@@ -6,7 +34,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496009.jpg" />
+  <img src="Z:/picture/008/save_picture_496009.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495797.jpg" />
+  <img src="Z:/picture/008/save_picture_495797.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495661.jpg" />
+  <img src="Z:/picture/008/save_picture_495661.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495169.jpg" />
+  <img src="Z:/picture/008/save_picture_495169.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495052.jpg" />
+  <img src="Z:/picture/008/save_picture_495052.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494888.jpg" />
+  <img src="Z:/picture/008/save_picture_494888.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Claudius Ptolemaeus и др. | Geographia Universalis, Vetus Et Nova, Complecten
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493118.jpg" />
+  <img src="Z:/picture/008/save_picture_493118.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492988.jpg" />
+  <img src="Z:/picture/008/save_picture_492988.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492385.jpg" />
+  <img src="Z:/picture/008/save_picture_492385.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492142.jpg" />
+  <img src="Z:/picture/008/save_picture_492142.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492014.jpg" />
+  <img src="Z:/picture/008/save_picture_492014.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492010.jpg" />
+  <img src="Z:/picture/008/save_picture_492010.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491690.jpg" />
+  <img src="Z:/picture/008/save_picture_491690.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491106.jpg" />
+  <img src="Z:/picture/008/save_picture_491106.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490213.jpg" />
+  <img src="Z:/picture/008/save_picture_490213.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490097.jpg" />
+  <img src="Z:/picture/008/save_picture_490097.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ Traditional henna designs (Традиционные рисунки хной) [20
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489303.jpg" />
+  <img src="Z:/picture/008/save_picture_489303.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488732.jpg" />
+  <img src="Z:/picture/008/save_picture_488732.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488641.jpg" />
+  <img src="Z:/picture/008/save_picture_488641.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488194.jpg" />
+  <img src="Z:/picture/008/save_picture_488194.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487031.jpg" />
+  <img src="Z:/picture/008/save_picture_487031.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486316.jpg" />
+  <img src="Z:/picture/008/save_picture_486316.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486254.jpg" />
+  <img src="Z:/picture/008/save_picture_486254.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486239.jpg" />
+  <img src="Z:/picture/008/save_picture_486239.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486162.jpg" />
+  <img src="Z:/picture/008/save_picture_486162.jpg" />
 </div>
 
 
@@ -648,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534C62A5F0CB4D60FD1A560928BBF637405B0F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936369   (486158) от 16.09.2015
-
-И. И. Анисимов и др. (ред.) | Современные буржуазные концепции истории всемирной литературы (1967) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486158.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике впервые критически рассматриваются с позиции марксистского литературоведения  концепции, сложившиеся за последние годы буржуазной науке. Авторы не только критикуют концепции буржуазных ученых, но и позитивно трактуют многие важнейшие вопросы, необходимые для  понимания общих закономерностей развития мировой литературы (границы понятия «современность»,  (   Читать дальше...   )Жанр: История, политология, литературоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97263607749825887FEFA5C989E346214B6BD7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

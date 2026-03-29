@@ -6,7 +6,7 @@ Glary Disk Cleaner 5.0.1.209 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782724.jpg" />
+  <img src="Z:/picture/008/save_picture_782724.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Auslogics File Recovery 9.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782670.jpg" />
+  <img src="Z:/picture/008/save_picture_782670.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Trojan Killer 2.1.29 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782667.jpg" />
+  <img src="Z:/picture/008/save_picture_782667.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Process Lasso 9.8.1.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782660.jpg" />
+  <img src="Z:/picture/008/save_picture_782660.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 83.0.4103.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782648.jpg" />
+  <img src="Z:/picture/008/save_picture_782648.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SIV (System Information Viewer) 5.49 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782640.jpg" />
+  <img src="Z:/picture/008/save_picture_782640.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BlueStacks App Player 4.210.10.1005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782638.jpg" />
+  <img src="Z:/picture/008/save_picture_782638.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Avidemux 2.7.5 200611 Nightly + Portable (x64)[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782634.jpg" />
+  <img src="Z:/picture/008/save_picture_782634.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Auslogics Disk Defrag Pro 9.5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782633.jpg" />
+  <img src="Z:/picture/008/save_picture_782633.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ PotPlayer 200616 (1.7.21233) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782631.jpg" />
+  <img src="Z:/picture/008/save_picture_782631.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ inPixio Photo Eraser 10.3.7447 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782629.jpg" />
+  <img src="Z:/picture/008/save_picture_782629.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Psiphon 3 build 156 DC 15.06.2020 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782622.jpg" />
+  <img src="Z:/picture/008/save_picture_782622.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Auslogics BoostSpeed 11.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782608.jpg" />
+  <img src="Z:/picture/008/save_picture_782608.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ O&O ShutUp10 1.8.1413.250 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782604.jpg" />
+  <img src="Z:/picture/008/save_picture_782604.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SamDrivers 20.5 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782598.jpg" />
+  <img src="Z:/picture/008/save_picture_782598.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VLC Media Player 3.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782580.jpg" />
+  <img src="Z:/picture/008/save_picture_782580.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kinza Browser 4.5.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782526.jpg" />
+  <img src="Z:/picture/008/save_picture_782526.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (1202) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782513.jpg" />
+  <img src="Z:/picture/008/save_picture_782513.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cent Browser 3.2.4.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782508.jpg" />
+  <img src="Z:/picture/008/save_picture_782508.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Complete Internet Repair 5.1.0.3890 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782504.jpg" />
+  <img src="Z:/picture/008/save_picture_782504.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Avast Clear 18.1.3800.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782483.jpg" />
+  <img src="Z:/picture/008/save_picture_782483.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Cent Browser 3.2.4.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782482.jpg" />
+  <img src="Z:/picture/008/save_picture_782482.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AutoRuns 13.82 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782464.jpg" />
+  <img src="Z:/picture/008/save_picture_782464.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782442.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Acrobat Reader DC 2018.011.20036 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782409.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ SideFx Houdini FX 16.5.378 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782407.jpg" />
 </div>
 
 

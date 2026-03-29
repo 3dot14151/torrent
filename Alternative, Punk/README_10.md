@@ -6,7 +6,7 @@ Nico Vega - Chooseyourwordspoorly (2006) EP [MP3|320 Kbps] <Alternative, Punk, I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732178.jpg" />
+  <img src="Z:/picture/008/save_picture_732178.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Incubus - 8 (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731963.jpg" />
+  <img src="Z:/picture/008/save_picture_731963.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Iggy Pop, The Stooges & Others - Коллекция 12 альбомов (1969 - 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730458.jpg" />
+  <img src="Z:/picture/005/save_picture_730458.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Iggy Pop & The Stooges - Абсолютная дискография (1964-2007)
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730262.jpg" />
+  <img src="Z:/picture/005/save_picture_730262.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Owenstone - Owenstone (2014) [MP3|192 кб/с] <Alternative, Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726716.jpg" />
+  <img src="Z:/picture/008/save_picture_726716.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ In Hearts Wake - 5 альбомов + 1 EP (2012-2022) [MP3|320 кб/с]<Metalco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726215.jpg" />
+  <img src="Z:/picture/008/save_picture_726215.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gorillaz - Humanz (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Hip-Ho
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725907.jpg" />
+  <img src="Z:/picture/008/save_picture_725907.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Patrizia - Rock the Throne (2014) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724804.jpg" />
+  <img src="Z:/picture/008/save_picture_724804.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Cranberries - Something Else (2017) [MP3|320 Kbps] <Alternative, Acoustic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723936.jpg" />
+  <img src="Z:/picture/008/save_picture_723936.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Falling in Reverse - Fashionably Late [Deluxe Edition] (2013) [MP3|320 кб/с]<
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721427.jpg" />
+  <img src="Z:/picture/008/save_picture_721427.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Breaking Benjamin - Ember (2018) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719231.jpg" />
+  <img src="Z:/picture/008/save_picture_719231.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Weezer - Weezer (Black Album) (2019) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718949.jpg" />
+  <img src="Z:/picture/008/save_picture_718949.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Dub War - 4 альбома + 3 сингла (1994-1998) [MP3|192-320 kbps]<Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718208.jpg" />
+  <img src="Z:/picture/005/save_picture_718208.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Brutto - Рокi (2017) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715751.jpg" />
+  <img src="Z:/picture/008/save_picture_715751.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Garbage - Strange Little Birds (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715618.jpg" />
+  <img src="Z:/picture/008/save_picture_715618.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mike Score (of A Flock of Seagulls) - Zeebratta (2014) [MP3|320 Kbps] <Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711912.jpg" />
+  <img src="Z:/picture/008/save_picture_711912.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tunng - Turbines (2013) [MP3|320 кб/с]<Folktronica/Alternative/Indie/Rock/Fol
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711556.jpg" />
+  <img src="Z:/picture/005/save_picture_711556.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711482.jpg" />
+  <img src="Z:/picture/008/save_picture_711482.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Soul Blind - Greatest Hits Vol. 1 (2020) [MP3|320 Kbps] <Grunge, Shoegaze, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711447.jpg" />
+  <img src="Z:/picture/008/save_picture_711447.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Case Mayfield - I Wish This Was About You (2016) [MP3|320 кб/с] <Indie Pop Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710187.jpg" />
+  <img src="Z:/picture/008/save_picture_710187.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Stomper - Thrillers (2018) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, El
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709958.jpg" />
+  <img src="Z:/picture/008/save_picture_709958.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Strangers - Mirrorland (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708900.jpg" />
+  <img src="Z:/picture/008/save_picture_708900.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Slaughter To Prevail - 1 альбом + 1 EP (2016-2017) [MP3|320 кб/с]<Death
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708563.jpg" />
+  <img src="Z:/picture/008/save_picture_708563.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Kasabian - For Crying Out Loud (2017) Deluxe Edition [MP3|320 Kbps] <Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708428.jpg" />
+  <img src="Z:/picture/008/save_picture_708428.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ The Exies - 6 Альбомов (2000-2007) [MP3|158 - 320 кб/c]<Alt.Rock, Post
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708390.jpg" />
+  <img src="Z:/picture/008/save_picture_708390.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Blood Command - Cult Drugs (2017) [MP3|320 Kbps] <Alternative Rock, Deathpop, Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708167.jpg" />
+  <img src="Z:/picture/008/save_picture_708167.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Futuremark 3DMark 2.3.3693 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773038.jpg" />
+  <img src="Z:/picture/008/save_picture_773038.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pale Moon 28.3.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773013.jpg" />
+  <img src="Z:/picture/008/save_picture_773013.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FastStone Image Viewer v6.9 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773007.jpg" />
+  <img src="Z:/picture/008/save_picture_773007.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zoner Photo Studio X 19.1809.2.93 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773006.jpg" />
+  <img src="Z:/picture/008/save_picture_773006.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FastStone Photo Resizer 4.0 + Portable [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773003.jpg" />
+  <img src="Z:/picture/008/save_picture_773003.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TeamViewer Free 11.0.59461 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772983.jpg" />
+  <img src="Z:/picture/008/save_picture_772983.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Icecream Image Resizer 1.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772982.jpg" />
+  <img src="Z:/picture/008/save_picture_772982.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Anvir Task Manager 8.1.0 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772977.jpg" />
+  <img src="Z:/picture/008/save_picture_772977.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ AVG AntiVirus 2016 16.71.7596 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772967.jpg" />
+  <img src="Z:/picture/008/save_picture_772967.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Allavsoft Video Downloader Converter 3.22.7.7474 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772961.jpg" />
+  <img src="Z:/picture/008/save_picture_772961.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FolderSizes 8.5.174 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772935.jpg" />
+  <img src="Z:/picture/008/save_picture_772935.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.4 Full | Lite by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772888.jpg" />
+  <img src="Z:/picture/008/save_picture_772888.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CoolUtils Total Image Converter 6.1.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772843.jpg" />
+  <img src="Z:/picture/008/save_picture_772843.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Comodo Dragon 49.13.20.400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772841.jpg" />
+  <img src="Z:/picture/008/save_picture_772841.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Astra Image PLUS 5.5.2.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772820.jpg" />
+  <img src="Z:/picture/008/save_picture_772820.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Anvir Task Manager 8.1.0 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772819.jpg" />
+  <img src="Z:/picture/008/save_picture_772819.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sweet Home 3D 6.1a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772810.jpg" />
+  <img src="Z:/picture/008/save_picture_772810.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NetWorx 5.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772809.jpg" />
+  <img src="Z:/picture/008/save_picture_772809.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Wise Care 365 Pro 4.17.403 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772807.jpg" />
+  <img src="Z:/picture/008/save_picture_772807.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ GridinSoft Anti-Malware 4.1.50.4970 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772803.jpg" />
+  <img src="Z:/picture/008/save_picture_772803.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Unreal Commander 3.57 Build 1465 +Portable +GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772800.jpg" />
+  <img src="Z:/picture/008/save_picture_772800.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AllDup 4.4.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772795.jpg" />
+  <img src="Z:/picture/008/save_picture_772795.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772786.jpg" />
+  <img src="Z:/picture/008/save_picture_772786.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772783.jpg" />
+  <img src="Z:/picture/008/save_picture_772783.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Tor Browser Bundle 7.5.1 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772782.jpg" />
+  <img src="Z:/picture/008/save_picture_772782.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772776.jpg" />
+  <img src="Z:/picture/008/save_picture_772776.jpg" />
 </div>
 
 

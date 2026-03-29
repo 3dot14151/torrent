@@ -6,7 +6,7 @@ Blue Sky Black Death - Third Party (2010) [FLAC|Lossless|tracks + .cue]<Electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751112.jpg" />
+  <img src="Z:/picture/008/save_picture_751112.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Icecream Screen Recorder PRO 5.32 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751089.jpg" />
+  <img src="Z:/picture/008/save_picture_751089.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Icaros 3.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751084.jpg" />
+  <img src="Z:/picture/008/save_picture_751084.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Movavi Photo Editor 5 v5.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751073.jpg" />
+  <img src="Z:/picture/008/save_picture_751073.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Total Uninstall 6.27.0.565 Professional Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751071.jpg" />
+  <img src="Z:/picture/008/save_picture_751071.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ ABBYY PDF Transformer+ 12.0.104.167 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751064.jpg" />
+  <img src="Z:/picture/008/save_picture_751064.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sip Pro 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751056.jpg" />
+  <img src="Z:/picture/008/save_picture_751056.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751054.jpg" />
+  <img src="Z:/picture/008/save_picture_751054.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VLC media player 2.2.1 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751052.jpg" />
+  <img src="Z:/picture/008/save_picture_751052.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751040.jpg" />
+  <img src="Z:/picture/008/save_picture_751040.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751017.jpg" />
+  <img src="Z:/picture/005/save_picture_751017.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Mp3tag 2.87a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750941.jpg" />
+  <img src="Z:/picture/008/save_picture_750941.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750933.jpg" />
+  <img src="Z:/picture/008/save_picture_750933.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Icaros 3.1.0 Beta 1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750930.jpg" />
+  <img src="Z:/picture/008/save_picture_750930.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Rainlendar Pro 2.14.1 Build 156 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750924.jpg" />
+  <img src="Z:/picture/008/save_picture_750924.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ ABBYY PDF Transformer+ 12.0.104.167 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750921.jpg" />
+  <img src="Z:/picture/008/save_picture_750921.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ K-Lite Codec Pack 11.1.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750918.jpg" />
+  <img src="Z:/picture/008/save_picture_750918.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ ABBYY Comparator 13.0.101.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750916.jpg" />
+  <img src="Z:/picture/008/save_picture_750916.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750915.jpg" />
+  <img src="Z:/picture/008/save_picture_750915.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Business Contact Manager / Диспетчер контактов 2010 4.00.9925.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750884.jpg" />
+  <img src="Z:/picture/005/save_picture_750884.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750879.jpg" />
+  <img src="Z:/picture/008/save_picture_750879.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750865.jpg" />
+  <img src="Z:/picture/005/save_picture_750865.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750817.jpg" />
+  <img src="Z:/picture/005/save_picture_750817.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750813.jpg" />
+  <img src="Z:/picture/005/save_picture_750813.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750811.jpg" />
+  <img src="Z:/picture/005/save_picture_750811.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750802.jpg" />
+  <img src="Z:/picture/005/save_picture_750802.jpg" />
 </div>
 
 

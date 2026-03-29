@@ -1,3 +1,84 @@
+###  Публикация: 1410946   (431560) от 23.09.2020
+
+Астрид Линдгрен | Сказки в радиоспектаклях (1965 - 1989) [Сборник] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки Астрид Линдгрен — произведения шведской писательницы, которые покорили детей всего мира. В них главными персонажами выступают дети. Они такие же, как обычные ребята. Они шалят, ссорятся с взрослыми, ведут разговоры обо всем, ввязываются в невероятные приключения и даже живут одни. Читать и слушать сказки Астрид Линдгрен с ребенком стоит, чтобы стать ему ближе, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 09:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B7226EFC0BBE43334200C884A286D7912B676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064040   (430012) от 18.10.2016
+
+Дмитрий Емец | Таня Гроттер и исчезающий этаж (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга серии.
+Тане Гроттер сначала придётся на время вернуться в Москву к своим родственникам лопухоидам Дурневым. А после возвращения на остров Буян в школу магии Тибидохс, ей предстоит узнать всю правду о загадочном Исчезающем Этаже, снова встретиться со своим заклятым врагом злой колдуньей Чумой-дель-Торт и проверить на прочность дружбу, любовь и преданность (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 10:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB585638E01C2362D0373DED39741D5456E4AB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571764   (429660) от 23.08.2022
+
+Коллектив авторов | Профориентация (Лекторий ВШЭ) (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребёнок, ставший жертвой буллинга, не всегда готов говорить об этом маме или педагогу, однако рассказывать об этом необходимо – только так можно разобраться с проблемой и сформировать в образовательной организации правильную атмосферу. В чём причина травли? Как говорить об этом с ребёнком? Что делать родителям и учителям? Можно ли повлиять на школьный климат?
+
+Цикл (   Читать дальше...   )Жанр: педагогика, публицистика, социологияПродолжительность: 12:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB26B086A374A1747B7FACF2DB1E834569AA1226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 298460   (427206) от 24.08.2022
 
 VA - Babies Go (23 CD) (2003 - 2008) [MP3|192-320 kbps]<Детская музыка>
@@ -6,7 +87,7 @@ VA - Babies Go (23 CD) (2003 - 2008) [MP3|192-320 kbps]<Детская музы�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427206.jpg" />
+  <img src="Z:/picture/008/save_picture_427206.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425858.jpg" />
+  <img src="Z:/picture/008/save_picture_425858.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425078.jpg" />
+  <img src="Z:/picture/008/save_picture_425078.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423936.jpg" />
+  <img src="Z:/picture/008/save_picture_423936.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423792.jpg" />
+  <img src="Z:/picture/008/save_picture_423792.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423625.jpg" />
+  <img src="Z:/picture/008/save_picture_423625.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423323.jpg" />
+  <img src="Z:/picture/008/save_picture_423323.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423308.jpg" />
+  <img src="Z:/picture/008/save_picture_423308.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423169.jpg" />
+  <img src="Z:/picture/008/save_picture_423169.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422492.jpg" />
+  <img src="Z:/picture/005/save_picture_422492.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421788.jpg" />
+  <img src="Z:/picture/008/save_picture_421788.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420537.jpg" />
+  <img src="Z:/picture/008/save_picture_420537.jpg" />
 </div>
 
 
@@ -333,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420375.jpg" />
+  <img src="Z:/picture/008/save_picture_420375.jpg" />
 </div>
 
 
@@ -360,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420372.jpg" />
+  <img src="Z:/picture/008/save_picture_420372.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420364.jpg" />
+  <img src="Z:/picture/008/save_picture_420364.jpg" />
 </div>
 
 
@@ -414,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419465.jpg" />
+  <img src="Z:/picture/008/save_picture_419465.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418273.jpg" />
+  <img src="Z:/picture/008/save_picture_418273.jpg" />
 </div>
 
 
@@ -466,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416898.jpg" />
+  <img src="Z:/picture/008/save_picture_416898.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416115.jpg" />
+  <img src="Z:/picture/008/save_picture_416115.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416034.jpg" />
+  <img src="Z:/picture/008/save_picture_416034.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415972.jpg" />
+  <img src="Z:/picture/008/save_picture_415972.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415497.jpg" />
+  <img src="Z:/picture/008/save_picture_415497.jpg" />
 </div>
 
 
@@ -599,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414317.jpg" />
+  <img src="Z:/picture/008/save_picture_414317.jpg" />
 </div>
 
 
@@ -610,89 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADB53B45712F3266BC94B6FED7F706AD5E2417D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413131   (411567) от 02.10.2020
-
-Александр Никонов | Физика на пальцах. Для детей и родителей (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понимаете ли вы теорию Стивена Хокинга и теорию относительности? Знаете ли и сможете ли доступно объяснить основы квантовой физики? Расскажете об открытии Марии Склодовской-Кюри? Хотите понять самую модную науку XXI века? Неважно, учитесь ли вы в школе или уже давно закончили ее. Если вы любознательный человек, то эта книга ДЛЯ ВАС! САМАЯ ГЛАВНАЯ НАУКА - ЭТО ФИЗИКА! (   Читать дальше...   )Жанр: Научно-популярная литератураЯзык озвучки: РусскийПродолжительность: 07:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC40D5FE7D9E7DAD95868CC39CECEEE9AB02106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948575   (410805) от 20.10.2015
-
-VA - Выпускной Вечер прощанья со школой (2012) [MP3|256 кб/с]<Детские песни и караоке>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410805.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Белая сирень ...Плачут девчонки, мальчишки вздыхают... (минус) (4:48)
-2. Белая сирень ...Плачут девчонки, мальчишки вздыхают... (плюс) (4:49)
-3. В старом классе ...Последняя строка дописана в тетради... (минус) (3:17)
-4. В старом классе ...Последняя строка дописана в тетради... (плюс) Марина Девятова (3:19)(   Читать дальше...   )Жанр: Детские песни и караокеПродолжительность: 08:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ABF9B87681732ECAA936828808FFD97D6EAF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413338   (409853) от 03.10.2020
-
-Лариса Суркова | Главная книга о воспитании. Как здорово быть с детьми (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все советы Ларисы Сурковой для детей всех возрастов!
-Дети – наше счастье! Сколько радости и счастливых моментов дарят нам эти шалопаи и шалуньи! Но воспитание – сложный и сбалансированный процесс, где каждому родителю надо умело находить подход к ребенку в любом возрасте, будь это период кризиса 3-х лет или первые подростковые сложности.
-В этой аудиокниге собраны (   Читать дальше...   )Жанр: Детская психология, Воспитание детейПродолжительность: 11:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8958951708A040BC1DF2B8167097F103009EF7D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

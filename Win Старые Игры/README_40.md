@@ -1,3 +1,55 @@
+###  Публикация: 1770193   (32366) от 01.01.2025
+
+MediEvil: Trilogy (1998-2005) [Ru/Multi] (1.0.0.2/1.0.0.2/1.0.0.0) Repack Ma2012ks
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32366.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediEvil: Resurrection является переосмыслением первой игры MediEvil со значительными отличиями от оригинала. Дизайн локаций и персонажей были изменены, а некоторые уровни оригинала были убраны из игры полностью. Также в игру добавлены новые уровни и персонажи, хотя видеоролики соответствовали MediEvil. Несмотря на сюжет оригинала, MediEvil: Resurrection была выполнена (   Читать дальше...   )Тип издания: RepackРазработчик: SCE Cambridge StudioЖанр: ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771184   (31950) от 05.01.2025
+
+Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garry's Mod - физическая песочница. В отличие от обычных игр, здесь не существует каких-либо определённых целей или задач. Мы даём вам инструменты и оставляем вас играть. Вы создаете объекты и соединяете их вместе для создания ваших собственных конструкций - машина ли это, ракета, катапульта или нечто пока без названия - это зависит от вас. Если с конструированием (   Читать дальше...   )Тип издания: RepackРазработчик: Facepunch StudiosЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7424F5ABEE071EEB21484241C16CE5A641471532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771712   (31599) от 08.01.2025
 
 Pyrrhic Tales: Prelude To Darkness (2002) [En] (1.8) License
@@ -6,7 +58,7 @@ Pyrrhic Tales: Prelude To Darkness (2002) [En] (1.8) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31599.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Manhunt (2004) [Ru] (1.1) Repack TaloN
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31289.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31007.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29863.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Star Trek: Bridge Commander (2002) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29231.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28309.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Resident Evil 2 (1999) [Multi] (1.0 HotFix 2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27672.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ StarCraft & Brood War (1998) [Ru] (1.16.1/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27352.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27154.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27019.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26941.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26842.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26819.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Overlord 2 (2009) [Ru] (1.0) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26597.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Need for Speed: Carbon (2006) [Ru/Multi] (1.4) Repack Wanterlude [Collector's Ed
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26413.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26315.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26212.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25876.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25858.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24802.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24215.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24191.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24182.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326E7B53303E8C9B7970CFBD69BF3A4E7916CA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355665   (23912) от 22.03.2025
-
-Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23912.jpg" />
-</div>
-
-
-###  Подробнее
-
-До своего падения вы возглавляли крестовый поход против нечисти. Теперь вы сами стали вампиром – тем злом, с которым сражались. В мире Тьмы вам придется столкнуться со своим заклятым врагом – могущественным вампиром Вукодлаком. Ваше злобное противостояние начнется в средневековой Европе и не утихнет до наших дней. Цель преследования и вечной схватки – уничтожить (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihilistic SoftwareЖанр: Ролевая игра, Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786764   (23850) от 22.03.2025
-
-N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение "Have a N.I.C.E. day!" с множеством улучшений: вместо 3 автомобилей теперь вы можете выбирать между более чем 42 автомобилями, 24 трассами с 96 вариациями и множеством новых гоночных режимов. Наиболее важной особенностью является новый мощный графический движок, способный отображать гораздо больше полигонов и имеющий несколько приятных новых (   Читать дальше...   )Тип издания: LicenseРазработчик: Synetic GmbHЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4F97D1B65F2AEFF72E4FFB972ECB46EB1339F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

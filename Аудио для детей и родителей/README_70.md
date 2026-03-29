@@ -1,3 +1,83 @@
+###  Публикация: 1547029   (241221) от 26.04.2022
+
+Надежда Пигарева, Оксана Тюльпинова | Мы погавкали! Как выбрать и воспитать щенка (2022) [MP3, Наталья Карпинская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех, кто мечтает завести щенка или совсем недавно стал его счастливым обладателем.
+
+Здесь вы найдете полезные советов по тому, как подготовить дом к прибытию малыша и познакомить его с другими домашними питомцами, каким вещам нужно учить в первую очередь и что делать, если всё идёт не по плану. Вы научитесь понимать логику обучения собак и сможете воспитать (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Домашние животныеПродолжительность: 05:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B095CB160AE5869A57E85E79CEA17EB788E517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631654   (240999) от 06.05.2023
+
+Леонид Пантелеев | Честное слово (2021) [MP3, Галина Годунова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_240999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прохожий обнаруживает плачущего мальчишку в саду, когда уже становится совсем темно. Он спрашивает у него, почему мальчик еще не дома с родителями. Какой ответ он получит, почему и как сможет помочь своему новому юному знакомому? Сказка учит ответственности, благородным поступкам. Она напоминает, как важно держать данное обещание, не проходить мимо чужого горя.Жанр: Детская литератураПродолжительность: 00:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA54BA4DE095DCEDB4BB3CAA6424B96820BD2F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395887   (240996) от 12.07.2020
+
+Майкл Суэнвик | Озеро гоблинов (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Философская сказка-притча. О выдуманном мире фэнтези и реальном мире.Жанр: Сказка- притчаПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D0C52683022CC55D203B9BB184A200CC9169FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548488   (240966) от 02.05.2022
 
 Елена Качур | Полёты в космос. Детские энциклопедии с Чевостиком (2021) [MP3, Таисия Аведикова, Д. Столбцов]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240966.jpg" />
+  <img src="Z:/picture/004/save_picture_240966.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240738.jpg" />
+  <img src="Z:/picture/004/save_picture_240738.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240730.jpg" />
+  <img src="Z:/picture/004/save_picture_240730.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240644.jpg" />
+  <img src="Z:/picture/004/save_picture_240644.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240596.jpg" />
+  <img src="Z:/picture/004/save_picture_240596.jpg" />
 </div>
 
 
@@ -143,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240522.jpg" />
+  <img src="Z:/picture/004/save_picture_240522.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240461.jpg" />
+  <img src="Z:/picture/004/save_picture_240461.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240404.jpg" />
+  <img src="Z:/picture/004/save_picture_240404.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240398.jpg" />
+  <img src="Z:/picture/004/save_picture_240398.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240376.jpg" />
+  <img src="Z:/picture/004/save_picture_240376.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240162.jpg" />
+  <img src="Z:/picture/004/save_picture_240162.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240141.jpg" />
+  <img src="Z:/picture/004/save_picture_240141.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239950.jpg" />
+  <img src="Z:/picture/004/save_picture_239950.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239863.jpg" />
+  <img src="Z:/picture/004/save_picture_239863.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239727.jpg" />
+  <img src="Z:/picture/004/save_picture_239727.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239658.jpg" />
+  <img src="Z:/picture/004/save_picture_239658.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239322.jpg" />
+  <img src="Z:/picture/005/save_picture_239322.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239182.jpg" />
+  <img src="Z:/picture/004/save_picture_239182.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239040.jpg" />
+  <img src="Z:/picture/004/save_picture_239040.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239009.jpg" />
+  <img src="Z:/picture/005/save_picture_239009.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238990.jpg" />
+  <img src="Z:/picture/005/save_picture_238990.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238931.jpg" />
+  <img src="Z:/picture/005/save_picture_238931.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238853.jpg" />
+  <img src="Z:/picture/005/save_picture_238853.jpg" />
 </div>
 
 
@@ -603,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F1B054B1D69A6511078107B31F87E8081607CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440257   (238724) от 16.01.2021
-
-Холли Блэк, Кассандра Клэр | Магистериум. Медная перчатка. Книга 2 (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая школа магов Магистериум находится глубоко под землей. В ней учатся дети, обладающие особой силой и талантами. Благодаря жесткому отбору и крайне суровым испытаниям из школы выходят только победители. Ведь кто еще может сразиться с Врагом Смерти – могущественным магом, олицетворением самого зла. Именно поэтому научиться магии – это почти то же самое, что (   Читать дальше...   )Тип издания: Нигде не купишьЖанр: Детская литература/ФантастикаПеревод: с англ. Анна ДеминаПродолжительность: 08:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BB210B0C3C104F42C6D8E470F9DC7F941A8201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440312   (238707) от 16.01.2021
-
-Холли Блэк, Кассандра Клэр | Магистериум. Серебряная маска. Книга 4 (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда меня неожиданно вызволяют из магической тюрьмы Паноптикон, я твердо знаю, где после всего этого не хочу оказаться. Но у мастера Руфуса другие планы. Он продолжает надеяться, что при помощи сил хаоса, которым я могу управлять, я научусь оживлять мертвецов. Очередная война магов на пороге, и я оказываюсь перед выбором: умереть или выступить на стороне врага. (   Читать дальше...   )Тип издания: Нигде не купишьЖанр: Детская литература/ФантастикаПеревод: с англ. Анна ДеминаПродолжительность: 06:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCD50216CA6935434023EE182A7976CF2C69670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442296   (238589) от 24.01.2021
-
-Феликс Зальтен | Бемби (1980) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть-сказка об олененке Бемби, который сталкивается в лесу с суровыми законами борьбы за выживание. Мир лесных обитателей, окружающих Бемби, наполнен не только борьбой, но и добротой, благородством и состраданием.Жанр: Детская литература. СказкаВ ролях: Леонид Ярмольник, Зоя Пыльнова,  Владимир  Иванов и др.Продолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155FA702BDEF0210DF5B0E6F4B6DB8D06C98EEF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

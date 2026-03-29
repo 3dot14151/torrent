@@ -1,3 +1,113 @@
+###  Публикация: 1406407   (475035) от 03.09.2020
+
+AnyTrans for iOS 8.7.0.20200831 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475035.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.09.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD96FFEE37371CDE5AA70FBD05A08F22399C7A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406442   (475032) от 03.09.2020
+
+IINA 1.1.0 Beta 1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC.
+Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.09.2020Разработчик: Collider LI.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97912430FFA2B96AE8959E8A555C88E562F57F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406550   (475030) от 03.09.2020
+
+Audirvana 3.5.40 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.09.2020Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B025D18D67EB8F27D6C97AE7A5A51D4A1BE40B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057425   (474714) от 28.09.2016
+
+Commander One PRO 1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
+Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+
+• Создание, удаление, открытие, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27.09.2016Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC0E60D7F9E2BE33A420A7916C3466171175520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567284   (474555) от 02.08.2022
 
 Chain Timer 9.1 [Multi/Ru]
@@ -6,7 +116,7 @@ Chain Timer 9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474555.jpg" />
+  <img src="Z:/picture/008/save_picture_474555.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ GlueMotion 2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474554.jpg" />
+  <img src="Z:/picture/008/save_picture_474554.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ SessionRestore for Safari 2.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474553.jpg" />
+  <img src="Z:/picture/008/save_picture_474553.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474552.jpg" />
+  <img src="Z:/picture/008/save_picture_474552.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ PowerPhotos 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474550.jpg" />
+  <img src="Z:/picture/008/save_picture_474550.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ DirEqual 4.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474549.jpg" />
+  <img src="Z:/picture/008/save_picture_474549.jpg" />
 </div>
 
 
@@ -166,7 +276,7 @@ Artstudio Pro 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474545.jpg" />
+  <img src="Z:/picture/008/save_picture_474545.jpg" />
 </div>
 
 
@@ -192,7 +302,7 @@ Cardhop 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474544.jpg" />
+  <img src="Z:/picture/008/save_picture_474544.jpg" />
 </div>
 
 
@@ -219,7 +329,7 @@ Disk Space Saver 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474542.jpg" />
+  <img src="Z:/picture/008/save_picture_474542.jpg" />
 </div>
 
 
@@ -245,7 +355,7 @@ Alien Skin Exposure X5 Bundle v5.2.4.282 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474505.jpg" />
+  <img src="Z:/picture/008/save_picture_474505.jpg" />
 </div>
 
 
@@ -271,7 +381,7 @@ ApolloOne - Photo Video Viewer 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474432.jpg" />
+  <img src="Z:/picture/008/save_picture_474432.jpg" />
 </div>
 
 
@@ -297,7 +407,7 @@ Task Office 7.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474423.jpg" />
+  <img src="Z:/picture/008/save_picture_474423.jpg" />
 </div>
 
 
@@ -323,7 +433,7 @@ Easy File Organizer 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474416.jpg" />
+  <img src="Z:/picture/008/save_picture_474416.jpg" />
 </div>
 
 
@@ -349,7 +459,7 @@ Serial Box & SerialSeeker 2022 - 08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474328.jpg" />
+  <img src="Z:/picture/008/save_picture_474328.jpg" />
 </div>
 
 
@@ -377,7 +487,7 @@ RAR Extractor Max-Unzip Winrar 9.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474315.jpg" />
+  <img src="Z:/picture/008/save_picture_474315.jpg" />
 </div>
 
 
@@ -404,7 +514,7 @@ Sweet Home 3D 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474236.jpg" />
+  <img src="Z:/picture/008/save_picture_474236.jpg" />
 </div>
 
 
@@ -430,7 +540,7 @@ NeoOffice 2017 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474013.jpg" />
+  <img src="Z:/picture/008/save_picture_474013.jpg" />
 </div>
 
 
@@ -458,7 +568,7 @@ Luminar 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473774.jpg" />
+  <img src="Z:/picture/008/save_picture_473774.jpg" />
 </div>
 
 
@@ -486,7 +596,7 @@ Parallels Desktop for Mac Business Edition 13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473424.jpg" />
+  <img src="Z:/picture/008/save_picture_473424.jpg" />
 </div>
 
 
@@ -514,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473220.jpg" />
+  <img src="Z:/picture/008/save_picture_473220.jpg" />
 </div>
 
 
@@ -540,7 +650,7 @@ IP Scanner Pro 3.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473174.jpg" />
+  <img src="Z:/picture/008/save_picture_473174.jpg" />
 </div>
 
 
@@ -568,7 +678,7 @@ Downie 4 v4.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473078.jpg" />
+  <img src="Z:/picture/008/save_picture_473078.jpg" />
 </div>
 
 
@@ -581,113 +691,6 @@ Downie поддерживает более 1,000 популярных сайто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5D013602B95A52CAB5258B320F24785ECD2DA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406658   (473071) от 04.09.2020
-
-MediaInfo 20.08.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473071.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 03.09.2020Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40ACBBB272162A18AB895FA4B23989E5CBBB7874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057759   (473059) от 29.09.2016
-
-AirFoil 5.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473059.jpg" />
-</div>
-
-
-###  Подробнее
-
- AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62F132A844012F45CC5132FD53EADCC25658A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057840   (472911) от 29.09.2016
-
-Scrivener 2.8.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrivener — программа для писателей
-Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
-
-Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Literature & Latte LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E632AEC9521C5AC5C40235178B9D2A3341B9DE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057761   (472908) от 29.09.2016
-
-Aurora HDR Pro 1.2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora HDR Pro, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey  Ratcliff, одного из выдающихся в мире в области  HDR фотографии с более чем 14 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 сентября 2016Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6CDA213A0ED86E37D088BA1A1CC3343ED2D48B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Icecream Screen Recorder Pro 4.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805133.jpg" />
+  <img src="Z:/picture/008/save_picture_805133.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Novicorp WinToFlash Professional 1.6.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805124.jpg" />
+  <img src="Z:/picture/008/save_picture_805124.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Immersive Explorer 1.1.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805066.jpg" />
+  <img src="Z:/picture/008/save_picture_805066.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Process Lasso Pro 8.0.2.0 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805057.jpg" />
+  <img src="Z:/picture/008/save_picture_805057.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Avast Premier 17.3.2290 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805000.jpg" />
+  <img src="Z:/picture/008/save_picture_805000.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ viber 6.7.0.1082 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804998.jpg" />
+  <img src="Z:/picture/008/save_picture_804998.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Microsoft Windows and Office ISO Download Tool 4.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804997.jpg" />
+  <img src="Z:/picture/008/save_picture_804997.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mozilla Firefox 37.0.1 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804965.jpg" />
+  <img src="Z:/picture/008/save_picture_804965.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final Portable by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804914.jpg" />
+  <img src="Z:/picture/008/save_picture_804914.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VMware Workstation 12 Pro 12.5.5 build 5234757 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804897.jpg" />
+  <img src="Z:/picture/008/save_picture_804897.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Volume2 1.1.5.399 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804806.jpg" />
+  <img src="Z:/picture/008/save_picture_804806.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ IObit Uninstaller Pro 6.3.0.18 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804805.jpg" />
+  <img src="Z:/picture/008/save_picture_804805.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Internet Download Manager 6.28 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804798.jpg" />
+  <img src="Z:/picture/008/save_picture_804798.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Internet Download Manager 6.23 Build 10 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804764.jpg" />
+  <img src="Z:/picture/008/save_picture_804764.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ R-Studio 7.6 Build 156767 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804762.jpg" />
+  <img src="Z:/picture/008/save_picture_804762.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Windows 10 TP Language Pack build 10049 (x86-x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804757.jpg" />
+  <img src="Z:/picture/008/save_picture_804757.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ The Bat! Professional 6.8 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804749.jpg" />
+  <img src="Z:/picture/008/save_picture_804749.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ StartIsBack++ 2.0.1 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804711.jpg" />
+  <img src="Z:/picture/008/save_picture_804711.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ NVIDIA GeForce Desktop 350.05 Hotfix driver + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804672.jpg" />
+  <img src="Z:/picture/008/save_picture_804672.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Xilisoft Video Converter Ultimate 7.8.8 Build 20150402 RePack (& Portable) by el
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804591.jpg" />
+  <img src="Z:/picture/008/save_picture_804591.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Windows Firewall Control 4.9.6.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804579.jpg" />
+  <img src="Z:/picture/008/save_picture_804579.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hex Editor Neo 6.31.00.5980 Ultimate Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804574.jpg" />
+  <img src="Z:/picture/008/save_picture_804574.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final RePack (& p
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804568.jpg" />
+  <img src="Z:/picture/008/save_picture_804568.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Glary Utilities Pro 5.175.0.203 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804446.jpg" />
+  <img src="Z:/picture/008/save_picture_804446.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Slimjet 17.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804416.jpg" />
+  <img src="Z:/picture/008/save_picture_804416.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Waterfox 56.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804410.jpg" />
+  <img src="Z:/picture/008/save_picture_804410.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 965691   (223817) от 15.12.2015
+
+О. Диксон, И. Ядне | Шаманские практики (2001) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является продолжением "Шаманизма" О.Диксона и основана на традициях кланов Ворона и Малого лебедя.
+Основной акцент делается на рассмотрении таких шаманских практик, как камлания, дыхательные и психоэнергетические практики, боевое искусство.
+Отдельный раздел посвящен атрибутам, ритуалам и предсказательным техникам шаманов.
+(   Читать дальше...   )Жанр: ЭзотерикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A4361F496A9AE24971D19F11DBDA7DFD58652C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965698   (223608) от 15.12.2015
 
 Дион Форчун | Мистическая Каббала (1995) [PDF, DJVU]
@@ -6,7 +35,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223608.jpg" />
+  <img src="Z:/picture/005/save_picture_223608.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223181.jpg" />
+  <img src="Z:/picture/005/save_picture_223181.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220525.jpg" />
+  <img src="Z:/picture/005/save_picture_220525.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219246.jpg" />
+  <img src="Z:/picture/005/save_picture_219246.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218355.jpg" />
+  <img src="Z:/picture/005/save_picture_218355.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213947.jpg" />
+  <img src="Z:/picture/005/save_picture_213947.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211177.jpg" />
+  <img src="Z:/picture/005/save_picture_211177.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207801.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202762.jpg" />
+  <img src="Z:/picture/004/save_picture_202762.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202646.jpg" />
+  <img src="Z:/picture/004/save_picture_202646.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201707.jpg" />
+  <img src="Z:/picture/005/save_picture_201707.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199791.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192075.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191262.jpg" />
+  <img src="Z:/picture/004/save_picture_191262.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191250.jpg" />
+  <img src="Z:/picture/004/save_picture_191250.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191174.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191152.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190889.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189893.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187714.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187398.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185208.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185042.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181994.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181985.jpg" />
+  <img src="Z:/picture/005/save_picture_181985.jpg" />
 </div>
 
 
@@ -648,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD0AAE76B2092FFF3CEE07F0645D7A20A1ED5410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428977   (178122) от 04.12.2020
-
-Сурья Дас | Йога исцеления себя и судьбы. Практика улыбки (2021) [EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание, которое вы держите в руках, – логическое продолжение предыдущей книги автора «Йогатерапия». Простым и понятным языком Сурья Дас знакомит читателей с основами йоги – искусства, в котором он является настоящим мастером и мудрым наставником других практикующих. Сурья рассказывает о ключевых понятиях йоги, которые дополняет рекомендациями по её антистрессовому (   Читать дальше...   )Жанр: Йога, Практическая эзотерикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0765EB27B859FF6F53EA4C66A6A13CC81E38730
 ```
 
 https://mybot314.ru/tekegram_catalog/

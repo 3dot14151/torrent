@@ -6,7 +6,7 @@ Google Chrome 65.0.3325.162 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774284.jpg" />
+  <img src="Z:/picture/008/save_picture_774284.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sketch 49.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774283.jpg" />
+  <img src="Z:/picture/008/save_picture_774283.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ FolderSizes 8.2.137 Enterprise Edition [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774279.jpg" />
+  <img src="Z:/picture/008/save_picture_774279.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tri-BACKUP Pro 8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774278.jpg" />
+  <img src="Z:/picture/008/save_picture_774278.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Home Inventory 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774270.jpg" />
+  <img src="Z:/picture/008/save_picture_774270.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sparkle 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774269.jpg" />
+  <img src="Z:/picture/008/save_picture_774269.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Exhibeo 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774268.jpg" />
+  <img src="Z:/picture/008/save_picture_774268.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Quiver: The Programmer's Notebook 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774265.jpg" />
+  <img src="Z:/picture/008/save_picture_774265.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Wise Registry Cleaner 9.17.591 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774264.jpg" />
+  <img src="Z:/picture/008/save_picture_774264.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774263.jpg" />
+  <img src="Z:/picture/008/save_picture_774263.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Pixelmator 3.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774238.jpg" />
+  <img src="Z:/picture/008/save_picture_774238.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CocCoc 77.0.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774237.jpg" />
+  <img src="Z:/picture/008/save_picture_774237.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ MKVToolNix 30.1.0 Portable by Joo Seng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774232.jpg" />
+  <img src="Z:/picture/008/save_picture_774232.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Aiseesoft Screen Recorder 2.1.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774223.jpg" />
+  <img src="Z:/picture/008/save_picture_774223.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774215.jpg" />
+  <img src="Z:/picture/008/save_picture_774215.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ XnViewMP 0.90 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774211.jpg" />
+  <img src="Z:/picture/008/save_picture_774211.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Winclone Pro 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774207.jpg" />
+  <img src="Z:/picture/008/save_picture_774207.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774194.jpg" />
+  <img src="Z:/picture/008/save_picture_774194.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ K-Lite Codec Pack Update 12.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774193.jpg" />
+  <img src="Z:/picture/008/save_picture_774193.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DesktopOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774189.jpg" />
+  <img src="Z:/picture/008/save_picture_774189.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ FolderSizes 8.2.137 Enterprise RePack by Kopejkin [Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774182.jpg" />
+  <img src="Z:/picture/008/save_picture_774182.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774179.jpg" />
+  <img src="Z:/picture/008/save_picture_774179.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Mozilla Firefox 46.0.1 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774176.jpg" />
+  <img src="Z:/picture/008/save_picture_774176.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774166.jpg" />
+  <img src="Z:/picture/008/save_picture_774166.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Telegram Desktop 1.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774157.jpg" />
+  <img src="Z:/picture/008/save_picture_774157.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774147.jpg" />
+  <img src="Z:/picture/008/save_picture_774147.jpg" />
 </div>
 
 

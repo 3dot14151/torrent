@@ -1,3 +1,107 @@
+###  Публикация: 1125442   (768738) от 14.04.2017
+
+Трагедия «Челленджера» / Challenger Disaster: Lost Tapes (2015) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - рассказ о космическом челноке «Челленджер» (англ. Challenger, «Бросающий вызов») - многоразовом транспортном космическом корабле НАСА и его экипаже, в частности о 37-летней Шарон Кристе МакОлифф, первом гражданском человеке, запущенном в космос. МакОлифф была учителем средней школы из г. Конкорд, штат Нью-Гэмпшир. Её выбрали из тысяч претендентов, чтобы (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, космос, историяРежиссер: Том ДженнингсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD2F9DBDAB17CA5B66CDDA3A5D0211F925DA3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393184   (768355) от 29.06.2020
+
+NG. Тайны истории: Бостонский душитель / The Hunt for the Boston Strangler (2007) SATRip (сезон 1, эпизод 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Альберт де Сальво признался в убийстве 13 женщин, полиция закрыла дело так называемого Бостонского Душителя. Последние свидетельства, однако, показывают, что, возможно, де Сальво был не виновен. Некоторые даже предполагают, что убийца спокойно ходит по улицам и сегодня.Производство: США, National GeographicЖанр: Документальный, история, кинохроника, познавательный, расследованиеРежиссер: Ноэль ДокстейдерПеревод: Двуголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFF11360A104375ACCA8F5A04F8434133BF7C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393192   (768326) от 29.06.2020
+
+NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Experiments (2007) SATRip (сезон 2, эпизод 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разгар холодной войны. В Нью-Йорке при странных обстоятельствах из окна отеля выпадает человек. В Кентукки в рамках секретного эксперимента в течение месяца заключенным дают ЛСД. В Монреале психиатр подвергает своих пациентов сотням разрядов электрошока. Насколько далеко зашло Центральное разведывательное управление в борьбе с коммунистической угрозой? Бактериальные (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, история, кинохроника, расследованиеРежиссер: Триа ТалманПеревод: Двуголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B581DA8397FB223F24FBA4932306C3D558FE278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393199   (768316) от 29.06.2020
+
+NG. Тайны истории: Ди Би Купер. Сбежавший террорист / The Skyjacker That Got Away (2009) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768316.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Дня благодарения 1971 года человек, одетый в деловой костюм, выпрыгнул из коммерческого самолета с парашютом и двумястами тысячами долларов выкупа. Впервые в истории ФБР команда сыщиков, используя достижения современной судебной медицины, попробует разгадать тайну самого разыскиваемого человека - Ди Би Купера.Производство: США, Edge West Productions, Edge West, National GeographicЖанр: Документальный, кинохроника, криминал, расследование, историяРежиссер: Филип ДэйПеревод: Двуголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA306D2F7EE71992EC753DCFCE881B73E2DFACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257267   (768300) от 26.01.2019
 
 Даты, вошедшие в историю / Dates That Made History (2017) HDTVRip [H.264/1080p-LQ] (серии 1-10) (Обновляемая)
@@ -6,7 +110,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768300.jpg" />
+  <img src="Z:/picture/008/save_picture_768300.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767537.jpg" />
+  <img src="Z:/picture/008/save_picture_767537.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ NG: Затерянные сокровища змеиных царей майя /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767301.jpg" />
+  <img src="Z:/picture/008/save_picture_767301.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767228.jpg" />
+  <img src="Z:/picture/008/save_picture_767228.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Discovery: Экватор / Equator (2005) BDRemux [H.264/1080i] (серии 1-6
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766747.jpg" />
+  <img src="Z:/picture/008/save_picture_766747.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766634.jpg" />
+  <img src="Z:/picture/008/save_picture_766634.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766148.jpg" />
+  <img src="Z:/picture/008/save_picture_766148.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766128.jpg" />
+  <img src="Z:/picture/008/save_picture_766128.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766108.jpg" />
+  <img src="Z:/picture/008/save_picture_766108.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766082.jpg" />
+  <img src="Z:/picture/008/save_picture_766082.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765965.jpg" />
+  <img src="Z:/picture/008/save_picture_765965.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765961.jpg" />
+  <img src="Z:/picture/008/save_picture_765961.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765949.jpg" />
+  <img src="Z:/picture/008/save_picture_765949.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765932.jpg" />
+  <img src="Z:/picture/008/save_picture_765932.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765907.jpg" />
+  <img src="Z:/picture/008/save_picture_765907.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765398.jpg" />
+  <img src="Z:/picture/008/save_picture_765398.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765396.jpg" />
+  <img src="Z:/picture/008/save_picture_765396.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765395.jpg" />
+  <img src="Z:/picture/008/save_picture_765395.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Discovery. Техногеника. Гиперболоидные конструк
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765372.jpg" />
+  <img src="Z:/picture/008/save_picture_765372.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765359.jpg" />
+  <img src="Z:/picture/008/save_picture_765359.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765333.jpg" />
+  <img src="Z:/picture/008/save_picture_765333.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765274.jpg" />
+  <img src="Z:/picture/008/save_picture_765274.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B722CDF1FE530CB9F9ABF616C0084E21DBCAC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279530   (765249) от 30.01.2019
-
-National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это одна из самых необычных историй о мести. Шесть миллионов евреев погибли во время Второй мировой войны, но в 1946 году перед судом предстала только кучка нацистов, а большинство из виновных в смерти этих людей никогда не ответили за свои преступления. Для многих жертв гитлеризма это было вопиющей несправедливостью. Ранее непубликовавшиеся рассказы и эксклюзивные (   Читать дальше...   )Производство: Канада, Caravan Media, Global Road Entertainment, National GeographicЖанр: Документальный, война, историяРежиссер: Ник ГринПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE870B02792646EE8152969CDAD85877E825C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125885   (765214) от 18.04.2017
-
-Тайны древности / Ancient Mysteries (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища прошлого хранят свои секреты, которые попытается разгадать группа ученых. Надо ли говорить о том, что эти энтузиасты планируют применить в своей работе всё имеющееся в их распоряжении ультрасовременное оборудование и по ходу дела раскроют телезрителям новые величайшие тайны о жизни далёких предков и мироздании в целом.Производство: Blink Entertainment Ltf, ВеликобританияЖанр: ДокументальныйПеревод: Двухголосый закадровый профессиональныйПродолжительность: 6 x ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E945EF2902FFF506124952EB564AF42F81F5DBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276394   (765087) от 30.01.2019
-
-NG. Откуда берутся диктаторы (Корни диктатуры) / Making A Dictator (2018) HDTVRip [H.264/720p-LQ] (1-3 серия из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как и когда рождается диктатура? Каковы симптомы грядущей тирании? Каковы характеристики диктаторов? В начале небольшой группы доверенных людей достаточно, чтобы поверить в силу личности. Диктатура может быть угрозой, которая повлияет на современный мир. Как показывает история, диктаторы часто побеждают во время экономических кризисов. Затем они слушают тех, кто (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, история, биографияПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5F1077E6F43D71E8BFB2C5E393317C43B856DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126658   (765038) от 18.04.2017
-
-NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTVRip  [H.264/720p-LQ] (Серии 1-5; 8; из 8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765038.jpg" />
-</div>
-
-
-###  Подробнее
-
-История древнего Египта... Чего в ней больше — достоверных фактов или захватывающих воображение легенд и мифов? Этот сериал представит новый взгляд на самые известные тайны Египта. Гидом в этом захватывающем путешествии в глубь веков станет знаменитый египтолог, генеральный секретарь комитета древностей Египта доктор Захи Хавасс. Вам предстоит узнать подлинную историю (   Читать дальше...   )Производство: Великобритания, Atlantic Productions, FremantleMedia Enterprises for National GeographicЖанр: Документальный, история, археология, исследования, мифы, загадки, тайныРежиссер: Дуг Ховарт, Дэвид ЛиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 5x~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90A1254D64A72591385A7E9116699279158883C
 ```
 
 https://mybot314.ru/tekegram_catalog/

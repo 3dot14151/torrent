@@ -1,3 +1,29 @@
+###  Публикация: 1254568   (710362) от 03.03.2019
+
+Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Farm Together — от создателей Avatar Farm. Начните с нуля, с маленького участка, и закончите с огромной фермой, которая простирается дальше, чем может видеть глаз!Тип издания: RepackРазработчик: Milkstone StudiosЖанр: Simulator, Casual, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3579194AFEC70FBE4881D67D8EA9D334214550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131086   (710205) от 04.05.2017
 
 Monster Slayers (2017) [En] (1.1.8) Repack Other s
@@ -6,7 +32,7 @@ Monster Slayers (2017) [En] (1.1.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710205.jpg" />
+  <img src="Z:/picture/008/save_picture_710205.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ LEGO Marvel's Avengers / LEGO Marvel Мстители (2016) [Ru/Multi] (1.0.0.2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707201.jpg" />
+  <img src="Z:/picture/008/save_picture_707201.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Impact Winter (2017) [Ru/Multi] (3.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705754.jpg" />
+  <img src="Z:/picture/008/save_picture_705754.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705274.jpg" />
+  <img src="Z:/picture/008/save_picture_705274.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ The King of Fighters XIV (2017) [Multi] (1.19) License CODEX [Steam Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703874.jpg" />
+  <img src="Z:/picture/008/save_picture_703874.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Trials of the Blood Dragon (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703404.jpg" />
+  <img src="Z:/picture/008/save_picture_703404.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Ruin of the Reckless (2017) [En/Fr] (1.0.1b) License GOG [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702287.jpg" />
+  <img src="Z:/picture/008/save_picture_702287.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Roguelands (2015) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701716.jpg" />
+  <img src="Z:/picture/008/save_picture_701716.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Steampunk Tower 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700043.jpg" />
+  <img src="Z:/picture/008/save_picture_700043.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2018) [Ru/Multi] (0.96) License PL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698259.jpg" />
+  <img src="Z:/picture/008/save_picture_698259.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License DEFA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697700.jpg" />
+  <img src="Z:/picture/008/save_picture_697700.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697567.jpg" />
+  <img src="Z:/picture/008/save_picture_697567.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ The Gift / Подарочек (2000) [Ru] (1.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696131.jpg" />
+  <img src="Z:/picture/005/save_picture_696131.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694767.jpg" />
+  <img src="Z:/picture/008/save_picture_694767.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.0.4.01-108) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692797.jpg" />
+  <img src="Z:/picture/008/save_picture_692797.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ World to the West (2017) [Multi] (1.0.1) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692740.jpg" />
+  <img src="Z:/picture/008/save_picture_692740.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ She Wants Me Dead (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692114.jpg" />
+  <img src="Z:/picture/008/save_picture_692114.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690122.jpg" />
+  <img src="Z:/picture/008/save_picture_690122.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Rayman Origins [Ru/En/Multi8] (RePack/1.0.32504) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689382.jpg" />
+  <img src="Z:/picture/008/save_picture_689382.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ DRAGON BALL FighterZ (2018) [Ru/Multi] (1.14) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688138.jpg" />
+  <img src="Z:/picture/008/save_picture_688138.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Mighty No. 9 (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688091.jpg" />
+  <img src="Z:/picture/008/save_picture_688091.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Broforce (2015) [En] (5399) Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686671.jpg" />
+  <img src="Z:/picture/008/save_picture_686671.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Lost Orbit (2015) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684840.jpg" />
+  <img src="Z:/picture/008/save_picture_684840.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Basingstoke (2018) [En] (82.1.4252018.84250) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684687.jpg" />
+  <img src="Z:/picture/008/save_picture_684687.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682704.jpg" />
+  <img src="Z:/picture/008/save_picture_682704.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Lemma (2015) [Multi] (1.0) License RELOADED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D16FA5B76F8F761D62759DBF9C678902FBB5C6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135208   (682266) от 18.05.2017
-
-Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стреляйте, убивайте, крадите и умирайте, как герои «Бешеных псов», в этом тактическом шутере с видом сверху и перемоткой времени.Тип издания: LicenseРазработчик: Big GamesЖанр: Action (Top-Down), StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8010E58823D54B8C82384E41B4E157A28742742
 ```
 
 https://mybot314.ru/tekegram_catalog/

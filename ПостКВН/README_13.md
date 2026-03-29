@@ -1,3 +1,81 @@
+###  Публикация: 1137966   (665365) от 28.05.2017
+
+Уральские пельмени. Принцесса огорошена (2017.05.01) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. У юмора «Уральских пельменей» нет возрастных ограничений, они избегают «шуток ниже пояса» и на их концертах пятилетние дети смеются рядом с 50-ти летними взрослыми. Новое комедийное шоу включает в себя как самостоятельные сценические истории, так и импровизации с (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238C23595BF23734A52E9365C32D53CA80A40578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224678   (664672) от 11.05.2018
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2018.05.11) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664672.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CDEB5C9ADEE49B4CF5711F3AEC96740AEE0780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225052   (662696) от 13.05.2018
+
+Уральские пельмени. Гиря от ума! (2018.05.11) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_662696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они ездят в магазин на велотренажере. Они жмут булку от груди и толкают штангу в пропасть. Они любят бег с шестом и спортивную ходьбу по квартире. Для них даже шахматы травмоопасный вид спорта, а лыжная гонка шанс пропасть в лесу. Но они все равно чемпионы в своем новом шоу «Гиря от ума»…Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CB46E5FA2F671134F16F2E186B96DBB0006BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902880   (659649) от 29.05.2015
 
 Камеди Клаб / Комеди Клаб / Comedy Club (29.05.2015) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659649.jpg" />
+  <img src="Z:/picture/008/save_picture_659649.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659604.jpg" />
+  <img src="Z:/picture/008/save_picture_659604.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658893.jpg" />
+  <img src="Z:/picture/008/save_picture_658893.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657442.jpg" />
+  <img src="Z:/picture/008/save_picture_657442.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650776.jpg" />
+  <img src="Z:/picture/008/save_picture_650776.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650307.jpg" />
+  <img src="Z:/picture/008/save_picture_650307.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648243.jpg" />
+  <img src="Z:/picture/008/save_picture_648243.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Stand Up. Сезон 2. Выпуск №10 (2015.06.07) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647207.jpg" />
+  <img src="Z:/picture/008/save_picture_647207.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644584.jpg" />
+  <img src="Z:/picture/008/save_picture_644584.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644346.jpg" />
+  <img src="Z:/picture/008/save_picture_644346.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644337.jpg" />
+  <img src="Z:/picture/008/save_picture_644337.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Stand Up (2019.03.31) SATRip (сезон 6, выпуск 22)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642557.jpg" />
+  <img src="Z:/picture/008/save_picture_642557.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635271.jpg" />
+  <img src="Z:/picture/008/save_picture_635271.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633539.jpg" />
+  <img src="Z:/picture/008/save_picture_633539.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631544.jpg" />
+  <img src="Z:/picture/008/save_picture_631544.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623864.jpg" />
+  <img src="Z:/picture/008/save_picture_623864.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623862.jpg" />
+  <img src="Z:/picture/008/save_picture_623862.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623752.jpg" />
+  <img src="Z:/picture/008/save_picture_623752.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623398.jpg" />
+  <img src="Z:/picture/008/save_picture_623398.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620654.jpg" />
+  <img src="Z:/picture/008/save_picture_620654.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620348.jpg" />
+  <img src="Z:/picture/008/save_picture_620348.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618385.jpg" />
+  <img src="Z:/picture/008/save_picture_618385.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Stand Up (2019.04.14) SATRip (сезон 6, выпуск 23)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616740.jpg" />
+  <img src="Z:/picture/008/save_picture_616740.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Stand Up - это взгляд на наши жизненные повседне
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D691699F76B0AB4D2D195BDF059F50A6ECB4A255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296535   (611505) от 17.04.2019
-
-Однажды в России (2019.04.17) SATRip (сезон 9, выпуск 9)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Игорь Ласточкин, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев и др.Субтитры: ОтсутствуютПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020B9B2E7DF0043780861B93838319CBA82664D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546193   (607441) от 23.04.2022
-
-Однажды в России (22.04.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE12F2CA3C591CE66D4F7BBE7206EF3D8AE0CE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297003   (606161) от 20.04.2019
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2019.04.19) WEB-DL [H.264/720p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606161.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761FAF45EA355F1D04FAD8524E3665C3DB8C4F8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

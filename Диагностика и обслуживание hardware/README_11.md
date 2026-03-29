@@ -1,3 +1,212 @@
+###  Публикация: 1785823   (24421) от 17.03.2025
+
+Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584C16BA08AA1295FFD1937DBE9F6055A6FA6E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785918   (24313) от 18.03.2025
+
+Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9E87BDAA59B825A2E5EC9F937171035189A142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786292   (24067) от 20.03.2025
+
+ChrisPC Win Experience Index 7.25.0318 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24067.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChrisPC Win Experience Index - бесплатная утилита, с помощью которой можно самостоятельно измерить системный индекс производительности в Windows (в последних версиях Windows разработчики отказались от графической формы этого инструмента).
+Значительно расширяет возможности стандартного индекса. Обладает простым понятным интерфейсом, быстро устанавливается и не требует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69871DEA44953EEA735005401AAF213ABC8E8E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790296   (22107) от 08.04.2025
+
+AIDA64 Extreme / Engineer / Business / Network Audit 7.65.7400 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22107.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029024A708A96E8123145D8452E0F0FB27697321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796745   (18548) от 12.05.2025
+
+IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55E00A775A2F9761326DDE0BD46214BDC643D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799414   (16725) от 27.05.2025
+
+Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800674   (15585) от 05.06.2025
+
+Kingston SSD Manager 1.5.5.5 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingston SSD Manager — это приложение, предоставляющее пользователям возможность контроля и управления различными параметрами твердотельных накопителей Kingston.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505B2041E795DEB692201421D3F8E3ED52456DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802990   (14019) от 20.06.2025
+
+CrystalDiskMark 9.0.1 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14019.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskMark - утилита для сравнительного анализа (тестирования) быстродействия жестких дисков и других накопителей, позволяет измерить скорость различных операций, а именно копирования и записи блоков, заданных пользователем, на определенных разделах физических накопителей. После непродолжительного тестирования будет выдана средняя скорость чтения и записи на (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30924B90607B5FBD460FAD261C59F8B657AFA302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803164   (13940) от 21.06.2025
 
 Abelssoft SSD Fresh Plus 2026 15.03.62686 Portable by FC Portables [Multi/Ru]
@@ -6,7 +215,7 @@ Abelssoft SSD Fresh Plus 2026 15.03.62686 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13940.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ MSI Afterburner 4.6.6.16591 Beta 6 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12393.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ CPU-Z 2.16.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12388.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ SysGauge System Monitor 11.9.18 Free / Pro / Server [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12190.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.70.7500 Portable 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12054.jpg" />
 </div>
 
 
@@ -136,7 +345,7 @@ GPU Shark II 2.9.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11411.jpg" />
 </div>
 
 
@@ -162,7 +371,7 @@ FurMark 2.9.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11348.jpg" />
 </div>
 
 
@@ -189,7 +398,7 @@ IObit Smart Defrag Pro 11.0.0.454 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9146.jpg" />
 </div>
 
 
@@ -215,7 +424,7 @@ HWiNFO 8.30 Build 5800 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8324.jpg" />
 </div>
 
 
@@ -241,7 +450,7 @@ GPU-Z 2.68.0 RePack by druc [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7919.jpg" />
 </div>
 
 
@@ -267,7 +476,7 @@ GPU-Z 2.68.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7874.jpg" />
 </div>
 
 
@@ -293,7 +502,7 @@ OCCT 14.2.6 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6966.jpg" />
 </div>
 
 
@@ -319,7 +528,7 @@ ExperienceIndexOK 4.58 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5283.jpg" />
 </div>
 
 
@@ -345,7 +554,7 @@ CrystalDiskInfo 9.7.2 Final + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5070.jpg" />
 </div>
 
 
@@ -371,7 +580,7 @@ IsMyLcdOK 6.11 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4705.jpg" />
 </div>
 
 
@@ -397,7 +606,7 @@ USB Device Tree Viewer 4.6.1.0 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4585.jpg" />
 </div>
 
 
@@ -423,7 +632,7 @@ Auslogics SSD Optimizer 2.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4321.jpg" />
 </div>
 
 
@@ -449,7 +658,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4315.jpg" />
 </div>
 
 
@@ -460,214 +669,6 @@ Auslogics Disk Defrag Ultimate - это профессиональная вер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9EF5C73B378E4FFE0596418DC3A0D8CFBDA000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816442   (4311) от 05.09.2025
-
-Auslogics Disk Defrag Pro 12.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25A463FCDB5182B053B75AC6232334F4E468F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816638   (4309) от 05.09.2025
-
-Auslogics Disk Defrag Pro 12.1.0.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F934E17772ECFD9FBA7F976C41BC834AA92CDDBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816726   (4227) от 06.09.2025
-
-Futuremark 3DMark 2.32.8426 for Enterprise RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4227.jpg" />
-</div>
-
-
-###  Подробнее
-
-3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере, ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6196F2ABD2B9FD440773F585CA79EEEA7E3A842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816740   (4196) от 06.09.2025
-
-Auslogics SSD Optimizer 2.1.0.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics SSD Optimizer - специальный инструмент, разработанный для повышения эффективности вашего SSD и достижения новых высот производительности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E983F7203CEDBFEAF3F349793681A2E1EB1A514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817572   (3383) от 11.09.2025
-
-AOMEI Partition Assistant Technician Edition 10.9.0 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3383.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98C1F86DEAB8C4246A9A783A40F705BD53F1102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817621   (3238) от 12.09.2025
-
-AOMEI Partition Assistant Technician Edition 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aomei Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598F48EDC669E9E19BD0AB3FF7AE0C8F019B7265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817812   (3044) от 13.09.2025
-
-CPU Temp 1.8.0.0 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа CPU Temp выделяется среди инструментов системного мониторинга всесторонним охватом показателей состояния процессора, а также впечатляющей степенью настройки пользовательского интерфейса. Обратите внимание возможность работы под управлением Windows 11 и прошлых версий, обеспечивает широкую доступность, а обновление в реальном времени таких критических параметров, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518B92197A9A6DA7DD82B5A7827FF1BC62632B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817849   (3031) от 13.09.2025
-
-Futuremark PCMark 10 Professional Edition 2.2.2737 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3031.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCMark 10 — это простой и удобный в использовании бенчмарк, благодаря которому вы можете протестировать общую производительность системы и отдельных ее компонентов. Интерфейс у программы довольно понятен и удобен. Всего в главном окне вы обнаружите четыре вкладки. В первой можно начать тестирование. Вторая станет активна непосредственно после старта-в ней будет отображать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BE77BA12BF50E41FE21CC6B0E09F9C18696762
 ```
 
 https://mybot314.ru/tekegram_catalog/

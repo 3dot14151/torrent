@@ -1,3 +1,90 @@
+###  Публикация: 1712808   (112004) от 04.04.2024
+
+Conjureth - Foul Formations (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void Caressed (3:16)
+02. At the Foot of Kneeling Worlds (3:36)
+03. Clotted Scripture (3:16)
+04. Ghost Infinity (2:45)Жанр: Death MetalПродолжительность: 00:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A44DF745FF2C277CD54295EF4400B0B619C86D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713343   (111925) от 05.04.2024
+
+Martiria - The Eternal Soul (2004) Remastered, 2013, My Graveyard Productions [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111925.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Eternal Soul:
+01. Memories  01:27
+02. The Ancient Lord 04:46
+03. The Most Part of the Men 04:35(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36EC54B9B9D8C0909E082562547AD162C5984C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713367   (111870) от 06.04.2024
+
+Twisted Tower Dire - Crest of the martyrs (2003) [APE|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.At Night
+02.Some Other Time Some Other Place
+03.Axes & Honor
+04.To Be a Champion(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936EF0A80F37B41A1CA47FD50965BF66F847B8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713459   (111868) от 06.04.2024
 
 Twisted Tower Dire - Crest of the Martyrs (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Twisted Tower Dire - Crest of the Martyrs (2003) Japanese Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111868.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Validor - Full Triumphed (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111866.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Grave Forsaken - Moment in Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111865.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Vandor - On a Moonlit Night (2021) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111863.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Twisted Tower Dire - Netherworlds (2007) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111862.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Vandor - In the Land of Vandor (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111859.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ The Absence - The Absence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111777.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Acid Mammoth - Supersonic Megafuana Collision (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111760.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Arania - Whispering Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111753.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111751.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Lost In Grey - Odyssey into the Grey (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111750.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Quinta Essentia - Evolution of Ethereal Wisdom (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111729.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111672.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Oceans of Night - Mindstorm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111671.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Brainslug - Brainslug (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111656.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Asomvel - Born To Rock 'n' Roll (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111613.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111606.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Leviathan Project - Sound of Galaxies (2021) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111592.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Leviathan Project - The Final War (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111590.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Snakebite - Cobra Crew (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111585.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Unkreated - Apoptosi (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111522.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ The Regime - The Regime (1998) Compilation [APE|Lossless|image + .cue] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111521.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Shadows Of Steel - Twilight II (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111439.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Shadows Of Steel - Twilight II (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DAF218DE0D2A75BEC7C8F8671267BD58E7D446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715956   (111428) от 13.04.2024
-
-I Am - Eternal Steel (2022) [FLAC|Lossless|image + .cue] <Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Primal Wave (03:16)
-02. Surrender to the Blade (03:23)
-03. The Iron Gate (04:05)
-04. Eternal Steel (03:24)(   Читать дальше...   )Жанр: Death, Groove MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A921DDE470EFA36D34A5911A168E0F2A1827D1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716143   (111402) от 14.04.2024
-
-Castle Rat - Into The Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dagger Dragger
-02 – Feed The Dream
-03 – Resurrector
-04 – Red Sands(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907C13607BD9D10CA1C93A2CA3CF493791BD5EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716161   (111397) от 14.04.2024
-
-Black Sabbath - Paris 1970 (Live) (1970) Re-Recorded, 2024, The Media Champ[FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Paranoid (Live)
-02 – Hand Of Doom (Live)
-03 – Iron Man (Live)
-04 – Black Sabbath (Live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E2945DB409EDC5EFB8C9F3F9D57A3272646EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

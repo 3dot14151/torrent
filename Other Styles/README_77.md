@@ -1,3 +1,61 @@
+###  Публикация: 1032698   (642101) от 09.07.2016
+
+Jim Brickman - Blessings (2014) [MP3|320 Kbps] <New Age, Piano, Christian & Gospel>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  How Great Thou Art    04:04
+02.  Were You There    02:58
+03.  Abide With Me    03:16
+04.  Come You Thankful People    03:11(   Читать дальше...   )Жанр: New Age, Piano, Christian & GospelПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEE4AD081B45F930CA63AADE88E55BD0B4CE68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032833   (642004) от 09.07.2016
+
+VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе образа игры, музыка была извлечена из самого образа игры, были добавлены 2 трека (Которые были в русской версии игры)01. Jungle 1
+02. Jungle 2
+03. Jungle 3
+04. Jungle 4(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032781   (641916) от 09.07.2016
 
 The Northern Lights - City Of Angels (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dream Pop, Chillwave, Electronic>
@@ -6,7 +64,7 @@ The Northern Lights - City Of Angels (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641916.jpg" />
+  <img src="Z:/picture/008/save_picture_641916.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Argishty - В начале было дыхание (2016) [MP3|320 Kbps] <Armeni
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641795.jpg" />
+  <img src="Z:/picture/008/save_picture_641795.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641624.jpg" />
+  <img src="Z:/picture/008/save_picture_641624.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641458.jpg" />
+  <img src="Z:/picture/008/save_picture_641458.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641398.jpg" />
+  <img src="Z:/picture/005/save_picture_641398.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641160.jpg" />
+  <img src="Z:/picture/008/save_picture_641160.jpg" />
 </div>
 
 
@@ -196,7 +254,7 @@ Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640113.jpg" />
+  <img src="Z:/picture/008/save_picture_640113.jpg" />
 </div>
 
 
@@ -225,7 +283,7 @@ Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640005.jpg" />
+  <img src="Z:/picture/008/save_picture_640005.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639996.jpg" />
+  <img src="Z:/picture/008/save_picture_639996.jpg" />
 </div>
 
 
@@ -283,7 +341,7 @@ VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639872.jpg" />
+  <img src="Z:/picture/008/save_picture_639872.jpg" />
 </div>
 
 
@@ -312,7 +370,7 @@ Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|i
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639698.jpg" />
+  <img src="Z:/picture/008/save_picture_639698.jpg" />
 </div>
 
 
@@ -341,7 +399,7 @@ Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639464.jpg" />
+  <img src="Z:/picture/008/save_picture_639464.jpg" />
 </div>
 
 
@@ -370,7 +428,7 @@ The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639346.jpg" />
+  <img src="Z:/picture/008/save_picture_639346.jpg" />
 </div>
 
 
@@ -399,7 +457,7 @@ Manish Vyas - Sahaj Atma (2017) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639343.jpg" />
+  <img src="Z:/picture/008/save_picture_639343.jpg" />
 </div>
 
 
@@ -428,7 +486,7 @@ Frantz Amathy - Zen Piano Paradise (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639283.jpg" />
+  <img src="Z:/picture/008/save_picture_639283.jpg" />
 </div>
 
 
@@ -457,7 +515,7 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639259.jpg" />
+  <img src="Z:/picture/008/save_picture_639259.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639111.jpg" />
+  <img src="Z:/picture/008/save_picture_639111.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Ch
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639074.jpg" />
+  <img src="Z:/picture/008/save_picture_639074.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639003.jpg" />
+  <img src="Z:/picture/005/save_picture_639003.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638229.jpg" />
+  <img src="Z:/picture/008/save_picture_638229.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ A.R. Rahman - Best Of A.R. Rahman - Nadaan Parindey (2013) [MP3|320 Kbps] <Bolly
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638046.jpg" />
+  <img src="Z:/picture/008/save_picture_638046.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Angus & Julia Stone - Angus & Julia Stone (2014) Deluxe Edition [FLAC|Lossless|t
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637942.jpg" />
+  <img src="Z:/picture/008/save_picture_637942.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637776.jpg" />
+  <img src="Z:/picture/008/save_picture_637776.jpg" />
 </div>
 
 
@@ -707,7 +765,7 @@ David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637601.jpg" />
+  <img src="Z:/picture/008/save_picture_637601.jpg" />
 </div>
 
 
@@ -726,70 +784,6 @@ David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20385C4FC6C51C133762CC7FC82FAEE47EFA8155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228250   (637510) от 31.05.2018
-
-Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise Cafe
-02. Earth Halo
-03. Evolving the Distance
-04. Passion for Life(   Читать дальше...   )Жанр: New Age, Relax, ChilloutПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519466   (637490) от 06.07.2012
-
-Лала Хоперъ и ансамбль Цыганская кибитка - Душа просит праздника !!! (2010) [MP3|256 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637490.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кай ё не (2:07)
- 2. Слово (1:07)
- 3. Костёр в тумане светит (2:16)
- 4. Нанге цоха (1:48)
- 5. Красивая (3:36)
- 6. Небо (3:10)
- 7. Ночь костёр (3:21)
- 8. Вольная (2:26)
- 9. Запрягайте вороных (2:10)
- 10. Только раз (3:31)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F345EF15F82A2C0A5A1EB26EE8A9C4535B88645A
 ```
 
 https://mybot314.ru/tekegram_catalog/

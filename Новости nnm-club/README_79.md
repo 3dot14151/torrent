@@ -1,3 +1,109 @@
+###  Публикация: 1203406   (788012) от 02.02.2018
+
+CAS удовлетворил апелляции 28 российских атлетов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_788012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спортивный арбитражный суд (CAS) в Лозанне удовлетворил апелляции 28 российских атлетов на решение Международного олимпийского комитета (МОК) пожизненно отстранить их от Олимпиад. Об этом сообщается в пресс-релизе суда.CAS проводил разбирательства с 22 по 27 января в открытом режиме. Большинство атлетов было на слушаниях и давало показания. Суд убедился, что в случае (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203328   (787967) от 02.02.2018
+
+Новая ракета «Союз-2.1а» была запущена с использованием нового топлива
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_787967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ракета-носитель "Союз 2.1а" с разгонным блоком "Фрегат" стартовала с космодрома "Восточный" в четверг утром. Ракета полетела на абсолютно новом топливе — нафтиле, экологически безопасном типе углеводородного горючего с применением полимерных присадок.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952345   (787916) от 02.02.2018
+
+Холодное лето пятьдесят третьего … (1988) HDTV [H.264/1080i-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1953 год. В тайге скрывается амнистированная группа уголовников, совершающих одно за другим тяжкие преступления. В поисках еды и средств передвижения они набредают на деревушку, где в ожидании катера находятся двое амнистированных политзаключенных. Этим двоим и предстоит спасти беспомощных жителей от банды рецидивистов. Победу приходится оплатить дорогой ценой.
+Почти (   Читать дальше...   )Производство: МосфильмЖанр: драма, криминал, боевик, триллерРежиссер: Александр ПрошкинАктеры: Валерий Приемыхов, Анатолий Папанов, Виктор Степанов, Нина Усатова, Зоя Буряк, Юрий Кузнецов, Борис ПлотниковПродолжительность: 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCDB152E5CC315A8017F20B9313850CE386FB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203222   (787904) от 02.02.2018
+
+KMS Tools Portable 01.02.2018 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787904.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F43BBAD9FCB4279E395BCD6132C0FBAF79A55F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 801130   (787867) от 16.01.2019
 
 Василий Звягинцев | Бульдоги под ковром (2019) [MP3]
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787867.jpg" />
+  <img src="Z:/picture/008/save_picture_787867.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787860.jpg" />
+  <img src="Z:/picture/008/save_picture_787860.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Need for Speed Anthology (1997-2017) [Ru/En] Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787736.jpg" />
+  <img src="Z:/picture/008/save_picture_787736.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_787533.jpg" />
+  <img src="Z:/picture/005/save_picture_787533.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787435.jpg" />
+  <img src="Z:/picture/008/save_picture_787435.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Windows 7 SP1 x86 x64 AIO Release by StartSoft 05-2018 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787416.jpg" />
+  <img src="Z:/picture/008/save_picture_787416.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ loftschool | Комплексное обучение JavaScript (2017-2018) PCRe
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787412.jpg" />
+  <img src="Z:/picture/008/save_picture_787412.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787266.jpg" />
+  <img src="Z:/picture/008/save_picture_787266.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ Constructor Paravis Flash ver:Beta 01.2019 [UEFI | x86/x64 | RU/EN]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786904.jpg" />
+  <img src="Z:/picture/008/save_picture_786904.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 01.2019 1DVD v
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786897.jpg" />
+  <img src="Z:/picture/008/save_picture_786897.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786770.jpg" />
+  <img src="Z:/picture/008/save_picture_786770.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786769.jpg" />
+  <img src="Z:/picture/008/save_picture_786769.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786487.jpg" />
+  <img src="Z:/picture/008/save_picture_786487.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ qBittorrent 3.3.12 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786463.jpg" />
+  <img src="Z:/picture/008/save_picture_786463.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786432.jpg" />
+  <img src="Z:/picture/008/save_picture_786432.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786426.jpg" />
+  <img src="Z:/picture/008/save_picture_786426.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ Navitel / Навител Навигатор v9.8.2 Full для карт рели
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786243.jpg" />
+  <img src="Z:/picture/008/save_picture_786243.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_786239.jpg" />
+  <img src="Z:/picture/005/save_picture_786239.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ Far Cry 2: The Fortune’s Pack (2008) [En] (1.03/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786237.jpg" />
+  <img src="Z:/picture/008/save_picture_786237.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786236.jpg" />
+  <img src="Z:/picture/008/save_picture_786236.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786233.jpg" />
+  <img src="Z:/picture/008/save_picture_786233.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786231.jpg" />
+  <img src="Z:/picture/008/save_picture_786231.jpg" />
 </div>
 
 
@@ -567,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84DD6C54AA00C947BFB9F708365EF4F60EA16ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123944   (786001) от 09.04.2017
-
-Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786001.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoStudio Ultimate X10 создана для обработки видео и позиционируется в качестве простого решения для пользователей. Среди нововведений последней версии можно выделить поддержку Blu-ray Disc Movie Video (BDMV). Пользователи могут импортировать файлы BDMV непосредственно с Blu-ray-видеокамер, работать с HD-видео, добавлять анимированные меню и записывать проекты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A723DEED01B45A5310AFA737F2981546BB0B8FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124157   (785852) от 10.04.2017
-
-Гора 2 / Dag II / The Mountain II (2016) WEBRip [H.264/720p-LQ] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю секретного отряда спецназа Позывной «Приносящий бурю». После событий первого фильма Бекир и Огуз, стали лучшими друзьями, побывали во всемирно известном, постоянно изнурительном турецком спецназе. Их первая миссия начинается шесть лет спустя - проникнуть в самый варварский район Ирака для спасательной миссии.Производство: Турция, 3leven, CaglarArts Entertainment, Insignia ProductionsЖанр: Драма, Военный, ИсторияРежиссер: Алпер КагларАктеры: Аджак Озан, Бедий Акин, Мурат Аркин, Эйлюль Арулар, Уфук Байрактар, Эмир Бендерлиоглу, Джаглар Эртугрул, Атилган Гюмюс, Ахмет Пинар, Мурат Серезли...Перевод: Профессиональный, многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 02:10:06Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB6D13F6232C07BCFA3CFF21FADC5BD283AF1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124129   (785692) от 11.04.2017
-
-Защитники (2016) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: РоссияЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Кизиярова-Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется, русский (iTunes)Субтитры: отсутствуютПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6479A7241EE34590C040A64F8A2E467301BE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124465   (785691) от 11.04.2017
-
-Acronis True Image 2017 New Generation 21.0.6206 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E45F69628B12C42D7C0A1C191E6C52BEE2B372
 ```
 
 https://mybot314.ru/tekegram_catalog/

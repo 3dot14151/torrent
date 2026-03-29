@@ -1,3 +1,107 @@
+###  Публикация: 1427282   (184522) от 27.11.2020
+
+SSH Config Editor Pro 2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_184522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 27.11.2020Разработчик: Petr HejkalПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0209B2E4A1EBF5BB518F095E88226205BA241F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427054   (184516) от 27.11.2020
+
+start 4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_184516.jpg" />
+</div>
+
+
+###  Подробнее
+
+start - это уникальный лаунчер для macOS, позволяющий быстро и легко открывать приложения, документы или папки. Создайте порядок в Dock и начните работу с помощью приложения Smart Launcher. start поддерживает вас и ваш рабочий процесс благодаря хорошо спланированной организационной системе для ваших приложений и быстрому доступу к тому, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2020Разработчик: Gerald KoederПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45280C61981FF4405CD452AAE8EEA31085A6391C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427276   (184512) от 27.11.2020
+
+Notebooks - Create Documents, Organize Files, Manage Tasks 2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_184512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2020Разработчик: Alfons SchmidПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A40A9EBB5FC95A9C35CE0C1C95E094808D71ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427268   (184506) от 27.11.2020
+
+Iridient Developer 3.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_184506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью неразрушающи и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2020Разработчик: Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06CF63695EAC289D42E98FDBD6C2A589BD2440B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427320   (184502) от 27.11.2020
 
 Keyboard Maestro 9 v9.1.0 [En]
@@ -6,7 +110,7 @@ Keyboard Maestro 9 v9.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184502.jpg" />
+  <img src="Z:/picture/004/save_picture_184502.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ SnapMotion 4.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184496.jpg" />
+  <img src="Z:/picture/004/save_picture_184496.jpg" />
 </div>
 
 
@@ -63,7 +167,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184490.jpg" />
+  <img src="Z:/picture/004/save_picture_184490.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ Wise Menu 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184465.jpg" />
+  <img src="Z:/picture/004/save_picture_184465.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ iMusic 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184450.jpg" />
+  <img src="Z:/picture/004/save_picture_184450.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Magic Hider 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184418.jpg" />
+  <img src="Z:/picture/004/save_picture_184418.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ TG Pro (Temperature Gauge Pro) 2.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184404.jpg" />
+  <img src="Z:/picture/004/save_picture_184404.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ CodeRunner 4 v4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184402.jpg" />
+  <img src="Z:/picture/004/save_picture_184402.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Aiseesoft Mac FoneLab for Android 3.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184375.jpg" />
+  <img src="Z:/picture/004/save_picture_184375.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ Boinx FotoMagico Pro 5 v5.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184316.jpg" />
+  <img src="Z:/picture/004/save_picture_184316.jpg" />
 </div>
 
 
@@ -277,7 +381,7 @@ Wirecast Pro 14.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184302.jpg" />
+  <img src="Z:/picture/004/save_picture_184302.jpg" />
 </div>
 
 
@@ -303,7 +407,7 @@ Sublime Text 4.0 Dev build 4093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184271.jpg" />
+  <img src="Z:/picture/004/save_picture_184271.jpg" />
 </div>
 
 
@@ -330,7 +434,7 @@ Remote Desktop Manager Enterprise 2020.3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184112.jpg" />
+  <img src="Z:/picture/004/save_picture_184112.jpg" />
 </div>
 
 
@@ -356,7 +460,7 @@ Scrutiny 9 v9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183612.jpg" />
+  <img src="Z:/picture/004/save_picture_183612.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ Bookends 13.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183608.jpg" />
+  <img src="Z:/picture/004/save_picture_183608.jpg" />
 </div>
 
 
@@ -411,7 +515,7 @@ Integrity Pro 9.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183600.jpg" />
+  <img src="Z:/picture/004/save_picture_183600.jpg" />
 </div>
 
 
@@ -437,7 +541,7 @@ Multitouch 1.19.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183598.jpg" />
+  <img src="Z:/picture/004/save_picture_183598.jpg" />
 </div>
 
 
@@ -465,7 +569,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183593.jpg" />
+  <img src="Z:/picture/004/save_picture_183593.jpg" />
 </div>
 
 
@@ -493,7 +597,7 @@ Hookshot 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183589.jpg" />
+  <img src="Z:/picture/004/save_picture_183589.jpg" />
 </div>
 
 
@@ -519,7 +623,7 @@ OverPicture for Safari 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183579.jpg" />
+  <img src="Z:/picture/004/save_picture_183579.jpg" />
 </div>
 
 
@@ -545,7 +649,7 @@ SQLPro Studio 2020.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183567.jpg" />
+  <img src="Z:/picture/004/save_picture_183567.jpg" />
 </div>
 
 
@@ -571,7 +675,7 @@ MacGourmet Deluxe 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183518.jpg" />
+  <img src="Z:/picture/004/save_picture_183518.jpg" />
 </div>
 
 
@@ -582,112 +686,6 @@ MacGourmet Deluxe для Mac OS - отличное приложение для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668E79FB6D12A5E4DC7B8C4071B11A39DBCD994D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427341   (183501) от 28.11.2020
-
-Twitterrific 5 v5.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twitterrific - самый дружелюбный, мощный и современный клиент для Twitter. Twitterrific делает Twitter забавой.
-Twitterrific - Простой в использовании, Истинная поддержка нескольких учетных записей / нескольких окон, Быстро и легко просматривать сообщения, сообщения и избранное, Временная синхронизация позиции чтения на всех платформах через iCloud, Общесистемные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: The IconfactoryПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751AA8C565CEF0B33C2D0415DE507B2A0FDAC8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427593   (183369) от 28.11.2020
-
-Sensei 1.3.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2020Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4FF2ABA18783FF75089825802CCD6FA2F78755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427573   (183308) от 28.11.2020
-
-TechSmith Camtasia 2020 Studio v2020.0.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2020Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F794716C0AC954AF24CB21054BEAD747573143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427442   (183282) от 28.11.2020
-
-Wondershare Recoverit 9.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA58690DF706A1320F1EDD51CAC4735ED407D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

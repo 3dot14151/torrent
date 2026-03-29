@@ -1,25 +1,23 @@
-###  Публикация: 1771019   (31898) от 05.01.2025
+###  Публикация: 1768064   (33271) от 23.12.2024
 
-Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Winxvideo AI 3.9 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Raving And Drooling (Live At The Hippodrome, Bristol, UK, 13 December 1974) [13:33]
-02 - You've Got To Be Crazy (Live At The Hippodrome, Bristol, UK, 13 December 1974) [16:27]
-03 - Shine On You Crazy Diamond (Live At The Hippodrome, Bristol, UK, 13 December 1974) [22:30]
-04 - Speak to Me (Live At The Hippodrome, Bristol, UK, 13 December 1974) [3:33](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:12:09
+Winxvideo AI  - это набор инструментов для масштабирования, редактирования и улучшения ваших видео.
+Программа использует искусственный интеллект для повышения качества и скорости преобразования, редактирования и сжатия видео. Поддерживает широкий спектр входных и выходных форматов, включая 4K, 8K, HEVC, AV1, MP4, MKV, MOV и другие.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7231767DA4C22D7823342E8916E4CA286050C4A3
+magnet:?xt=urn:btih:398BD87B767E598A0964D16089B61EFDF2B9868B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771008   (31897) от 05.01.2025
+###  Публикация: 1761342   (33270) от 23.12.2024
 
-Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shine On You Crazy Diamond (Live At Empire Pool, Wembley, London, UK, 15 November 1974) [29:09]
-02 - Raving And Drooling (Live At Empire Pool, Wembley, London, UK, 15 November 1974) [12:34]
-03 - You've Got To Be Crazy (Live At Empire Pool, Wembley, London, UK, 15 November 1974) [17:47]
-04 - Speak to Me (Live At Empire Pool, Wembley, London, UK, 15 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:20:02
+Эмоциональное приключение Neva сделала та же команда разработчиков, которая выпустила игру GRIS, тепло принятую критиками и полюбившуюся игрокам. Главная героиня Neva - девушка Альба, которая после встречи с тёмными силами оказалась связана с любопытным волчонком. Вместе они отправляются в опасное путешествие по некогда прекрасному умирающему миру. Альба и волчонок (   Читать дальше...   )Тип издания: RepackРазработчик: Nomada StudioЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4334D22AA4832768421EAE483140D5B934F4D6F2
+magnet:?xt=urn:btih:00A724317EC57E4B677822AA7B98A8566B927485
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770849   (31896) от 05.01.2025
+###  Публикация: 1767555   (33269) от 23.12.2024
 
-Megafauna - I Owe This Land a Body (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Electro>
+Четыре визита Самуэля Вульфа (1934) WEBRip
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. infantem ursi [00:02:44]
-02. Fear Not the Dark, My Friend, and Let the Feast Begin [00:04:48]
-03. Memento Mori [00:02:31]
-04. He Thrusts His Fists Against the Posts and Still Insists He Sees The Ghosts [00:02:32](   Читать дальше...   )Жанр: Dark Ambient, ElectroПродолжительность: 00:42:43
+Не имея возможности реализовать свое изобретение внутри страны инженер Арроусмит, автор патента на флотацию руды, уезжает в СССР для работы на одном из флотационных заводов, где, как он вскоре узнает, группа советских инженеров ведет аналогичную работу. После некоторых колебаний Арроусмит передает свое изобретение этому заводу и получает предложение начать совместную (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: драмаРежиссер: Александр СтолперАктеры: Андрей Абрикосов, Виктор Кулаков, Максим Штраух, Алексей Долинин, Освальд Глазунов, Виктор Станицын, Марта Алещенко, Борис Ливанов, Вера МарецкаяСубтитры: отсутствуютПродолжительность: 01:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:135AF2569AC0ACFA4982DF9514CBB908C51D86BB
+magnet:?xt=urn:btih:E3249901EABFFB640D1488E09462F363AF798D29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,311 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771177   (31895) от 05.01.2025
+###  Публикация: 1767986   (33268) от 23.12.2024
 
-Николай Гоголь | Мертвые души (2022) [MP3, Юрий Лазарев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Гоголь – знаменитый русский писатель, произведения которого входят в золотой фонд отечественной словесности и являются неизменными составляющими школьной программы по литературе. Его романы, повести и пьесы имеют огромное количество постановок и экранизаций.
-
-Одним из самых сильных его произведений является книга «Мёртвые души». Вышел только первый (   Читать дальше...   )Жанр: Русская классика, поэмаИздательство: ЭксмоПродолжительность: 12:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D66674CECC2F3DCBA1279DC14EA4C31288B9FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771020   (31894) от 05.01.2025
-
-Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raving And Drooling (Live At The Hippodrome, Bristol, UK, 14 December 1974) [14:03]
-02 - You've Got To Be Crazy (Live At The Hippodrome, Bristol, UK, 14 December 1974) [15:54]
-03 - Shine On You Crazy Diamond (Live At The Hippodrome, Bristol, UK, 14 December 1974) [22:39]
-04 - Speak to Me (Live At The Hippodrome, Bristol, UK, 14 December 1974) [4:25](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC447C9B269FD1DDAA220AF47D0D608050C02BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770564   (31893) от 05.01.2025
-
-Ёлка - Без обид (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Космос [00:03:07]
-02. Моя звезда [00:03:41]
-03. Верь или не верь [00:03:31]
-04. Маленькие люди [00:03:36](   Читать дальше...   )Жанр: Pop, Alternative RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE27FC164BEE4B1BE23D7E91DDE4EB9DE6DFCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771241   (31892) от 05.01.2025
-
-Волейбол. Чемпионат Турции 2024/5. Женщины. 13-тур. Кузейбору - Галатасарай (2024) WEBRip [H.264]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31892.jpg" />
-</div>
-
-
-###  Подробнее
-
-13-тур волейбольной Турецкой женской лиги.
-Кузейбору - Галатасарай.
-Тренеры: Мехмет Бедестенлиоглу, Гильерме Наранхо Ернандез
-Комментатор: Варвара Сарычева(   Читать дальше...   )Телекомпания: СтартЖанр: спорт, волейболЯзык озвучки: РусскийПродолжительность: 02:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F085B21CE675CBB8180AD326A50BA71B6DF9E242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771292   (31891) от 05.01.2025
-
-VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kóstja - Horses (4:06)
-02.  Paolo Sessa - Because Of You (3:34)
-03.  Diego Damiani - Bookworm (2:04)
-04.  Francesco Montisano - Growing Up (2:00)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771190   (31890) от 05.01.2025
-
-Муха-Цокотуха (1941) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Муха-Цокотуха находит монету, покупает на базаре самовар и созывает насекомых на праздничное чаепитие. В разгар веселья появляется злой Паук и пленяет Муху. Опоздавший на праздник Комар побеждает в бою Паука, освобождает Муху и женится на ней. Веселье насекомых разгорается с новой силой.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир СутеевСубтитры: отсутствуютПродолжительность: 00:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C466DC054F9132D242861430E38EB9EA4EB2FEF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771038   (31889) от 05.01.2025
-
-Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Speak to Me (Live at Trentham Gardens, Stoke-On-Trent, UK, 19 Nov 1974) [3:13]
-02 - Breathe (In the Air) (Live at Trentham Gardens, Stoke-On-Trent, UK, 19 Nov 1974) [2:48]
-03 - On the Run (Live at Trentham Gardens, Stoke-On-Trent, UK, 19 Nov 1974) [5:09]
-04 - Time (Live at Trentham Gardens, Stoke-On-Trent, UK, 19 Nov 1974) [6:38](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE671097BE01DD17475FF5ACB9DDEA6CEE48E8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771050   (31888) от 05.01.2025
-
-VA - The Best Of Italo Disco Vol. 13 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Yellow - Wild Boy
-02. Sophie - My World
-03. Francesco Salvi - Esatto!
-04. King Kong & D'Jungle Girls - Boom Boom Dollar(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15F93E0965E8CE0053C7F2153115982F21B35D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771295   (31887) от 05.01.2025
-
-VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bruno Mars - APT. (2:50)
-02.  Dua Lipa - Falling Forever (3:43)
-03.  Lena Sue - Drum (feat. Lena Sue) (2:50)
-04.  Ava Max - Spot a Fake (2:48)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A6C1CD0503A0F4A66F8213FC5F5561AF472943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771001   (31886) от 05.01.2025
-
-Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Travel Sequence (Outtake) [2:22]
-02 - On The Run (Outtake) [1:45]
-03 - Brain Damage (Outtake 1) [1:25]
-04 - Brain Damage (Outtake 2) [2:22]Жанр: Rock, Progressive RockПродолжительность: 00:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACA7C1F6A7DC84648FA829EF34F14ED1C6E1B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771056   (31885) от 05.01.2025
-
-Дети капитана Гранта / Les enfants du capitaine Grant (1914) WEBRip [H.264/720p]
+Летающий шкаф / L'armoire volante (1948) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Такая замечательнейшая, увлекательная книга как "Дети капитана Гранта" не могла не привлечь кинематографистов. Такие приключения - это гарантированный интерес зрителей. Перед вами одна из ранних экранизаций книги. Надо сказать, снята довольно близко к тексту. Конечно в пределах возможностей кинематографа того времени. Кондор, унесший Роберта Гранта, вот (   Читать дальше...   )Производство: Франция / Société Française des Films ÉclairЖанр: драма, приключения, экранизация, немое киноРежиссер: Викторен-Ипполит Жассе, Анри Руссель, Джозеф ФаврэАктеры: Джозетт Андриот, Denise Maural, Мишель Гилберт, Pierre Delmonde, Dussoudeix, ДжорданПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 01:08:12
+Альфред Пюк, добросовестный налоговый инспектор, живёт в одной квартире со своей пожилой тётей. Когда в одно зимнее утро мадам Лоближуа отправляется на грузовике в Клермон-Ферран, чтобы забрать оставшуюся мебель из проданного дома. На обратном пути тётя внезапно умирает, и водители грузовика, чтобы избежать проблем с полицией, помещают её тело в платяной шкаф. По (   Читать дальше...   )Производство: Франция / Compagnie Industrielle et Commerciale Cinématographique (CICC)Жанр: комедия, криминалРежиссер: Карло РимАктеры: Фернандель, Берт Бови, Жермен Кержан, Альбер Динан, Максимильен, Поль Деманж, Луи Флоранси, Жан Тулу, Полин Картон, Андре БервильПеревод: профессиональный многоголосый (ТРК - Петербург, 2006 г.)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:36:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA0A5C35C8AB3FFE9507184A4EF8F845AB62CDDF
+magnet:?xt=urn:btih:A8BB4CAE20139F211472D4762277ACFE5CE5C96C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,28 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771039   (31884) от 05.01.2025
+###  Публикация: 1767920   (33267) от 23.12.2024
 
-Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensual Lounge Music Universe - Silk Sheets: Sensual Sax Jazz Lounge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shine On You Crazy Diamond (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [21:15]
-02 - Raving And Drooling (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [13:01]
-03 - You've Got To Be Crazy (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [17:34]
-04 - Speak to Me (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [2:24](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:08:02
+01.  Erotic Jazz Music Ensemble - Bedtime Jazzy Bliss (3:20)
+02.  Tango Temptation (3:41)
+03.  Jazz Erotic Lounge Collective - Love & Lust (3:15)
+04.  Erotic Jazz Music Ensemble - Midnight Confessions (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
+magnet:?xt=urn:btih:7C0259163A218748EFDF821EE0A496F4E7F39DF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,28 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771022   (31883) от 05.01.2025
+###  Публикация: 1767923   (33266) от 23.12.2024
 
-Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing Latin Guitar for Body Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shine On You Crazy Diamond (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [22:54]
-02 - Raving And Drooling (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [10:52]
-03 - Echoes (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [25:27]
-04 - Speak to Me (Live At Théâtre de Plein Air, Colmar, (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:20
+01. Chic Churros (4:18)
+02. Relaxing Vibes (3:43)
+03. Mellow Cafè (3:13)
+04. Tequila Twilight (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC3761133FAAD8EA06DDC7595EF94E315A7BDB1D
+magnet:?xt=urn:btih:588D575EF0111525819E9BA899365DC5A5D85BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,25 +161,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771211   (31882) от 05.01.2025
+###  Публикация: 1767964   (33265) от 23.12.2024
 
-Зимняя сказка (1945) WEB-DL [H.264/1080p] [PR]
+На север через северо-запад / North by Northwest (1959) BDRip [H.264] [MVO]
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наступила студёная суровая зима, скоро наступит Новый год. Лесные зверушки собрались его встречать. В этом им помогают Дед Мороз, Снегурочка и Снеговик. Озорная новогодняя сказка с музыкальными сценами вокруг новогодней ёлки, плясками и песнями.Производство: СССР / СоюзмультфильмЖанр: короткометражка, мультфильмРежиссер: Иван Иванов-ВаноСубтитры: отсутствуютПродолжительность: 00:12:21
+Успешный агент по рекламе и весьма занятой человек Роджер Торнхилл однажды почувствовал, как в его спину упёрлось дуло пистолета и два молодчика приказали ему сесть в машину, а затем в незнакомом загородном доме стали почему-то именовать мистером Кэпланом и требовать, чтобы он рассказал всё, что знает. Обескураженному Роджеру ничего не остаётся, как бежать, что он (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM), Loew'sЖанр: детектив, приключения, боевик, триллерРежиссер: Альфред ХичкокАктеры: Кэри Грант, Ева Мари Сэйнт, Джеймс Мэйсон, Джесси Ройс Лэндис, Лео Г. Кэрролл, Жозефин Хатчинсон, Филип Обер, Мартин Ландау, Адам Уильямс, Эдвард Платт, Роберт Элленштейн, Лес Тремейн, Филип Кулидж, Патрик МакВей, Эд БиннсПеревод: профессиональный многоголосый (SomeWax; DVDMagic; Мост-Видео), авторский (Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:16:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0F4BCB0835B1071D3FCE1B07485B1A1ED05570A
+magnet:?xt=urn:btih:83FFB3A2A561524D72849770ED643A67431624CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,28 +187,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771255   (31881) от 05.01.2025
+###  Публикация: 1767953   (33264) от 23.12.2024
 
-Black - Wonderful Life (1987) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
+Instrumental Piano Universe, Marco Rinaldo, Sexual Music Collection, Sexual Piano Jazz Collection - Passion in Paris: Sophisticated Piano Solos, Sensual Jazz Lounge Music (2024) [FLAC 24/48|Lossles ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris After Dark (3:58)
+02. Café au Lait (3:15)
+03. Piano Seduction (3:43)
+04. Jazz Noir Romance (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FD0F8EDEB645FD797F51B991EB65C258C72F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768031   (33263) от 23.12.2024
+
+VA - The Best Releases 2024 of Enigma Emotions (By Abstract Moon) (2024) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wonderful Life
-02. Everything's Coming Up Roses
-03. Sometimes For The Asking
-04. Finder(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:03:30
+01. Sam Fletcher - Winter Bloom (Original Mix) [6:51]
+02. Moroni - Black & White (Original Mix) [5:32]
+03. C37 - Loved into Submission (Original Mix) [4:44]
+04. Sam Fletcher - A Little More Time (Lost States Remix) [4:56](   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D253BCA3B932D181A937DC69F532ACF155068405
+magnet:?xt=urn:btih:D350A8BAB0925C63CD52BB1E7EBE34A02A670C58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +245,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771032   (31880) от 05.01.2025
+###  Публикация: 1767928   (33262) от 23.12.2024
 
-Терапия / Shrinking (2024) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 2, серии 1-12 из 12) HDRezka, TVShows, 1WinStudio, Red Head Sound
+Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions: Sultry Jazz for a Romantic and Intimate Mood, Late-Night Listening, Date Nights (2024) [FLAC 24/44.1|Lossless|WEB-D ...
 
->>Зарубежные сериалы
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Терапевт Джимми после личной трагедии начинает говорить своим пациентам то, что на самом деле о них думает. Неожиданным образом его резкие комментарии меняют не только их жизни, но и его собственную.Производство: США / Doozer Productions, Warner Bros. TelevisionЖанр: драма, комедияРежиссер: Джеймс Понсольдт, Ри Руссо-Янг, Рэндолл Кинан УинстонАктеры: Джейсон Сигел, Джессика Уильямс, Люк Тенни, Майкл Юри, Lukita Maxwell, Криста Миллер, Харрисон Форд, Тед МакГинли, Девин Норик, Хайди ГарднерПеревод: Многоголосый профессиональный (HDRezka, TVShows, 1WinStudio, Red Head Sound, DniproFilm, Цікава Ідея)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full, SDH), украинские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:45:00 серия
+01. Always and Always (3:33)
+02. We'll Meet Again (3:19)
+03. Prelude to a Kiss (3:27)
+04. Straight Ahead (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D78F2F5215FFBD0D6CB70581F210FAC258E57192
+magnet:?xt=urn:btih:A9332F42FC0AD431B25AC9985574FCB4C56273FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +274,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771291   (31879) от 05.01.2025
+###  Публикация: 1729342   (33261) от 23.12.2024
 
-VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: Турбо [2018, TV, 51 эп.] WEB-DL 1080p rus
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Magnus - Lascivious (3:43)
-02.  Colette Van Sertima - The Drop (5:00)
-03.  Brain Purist - Shine Tonight (3:38)
-04.  Guy Scheiman - Feel You (3:04)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:23:13
+Спустя два года после Международного Кубка Блэйдера история посвящается Айгеру Акабане, «дикарю», который вырос в природе. После битвы с Вальтом Аоем он вдохновился стать Блэйдером №1 в мире вместе со своим Бейблэйдом Зи Ахиллесом. Он стремится бороться с сильными противниками, чтобы стать сильнее. Чтобы победить Вальта Аоя и стать чемпионом мира, Айгер начинает (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоСубтитры: ОтсутствуютПродолжительность: 51 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
+magnet:?xt=urn:btih:B7DD0779FBF8476CE43686703A96937149D3CD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,26 +300,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771280   (31878) от 05.01.2025
+###  Публикация: 1745418   (33260) от 23.12.2024
 
-Есть метро! (1935) VHSRip
+Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 [2018, TV, 31 из 31 эп.] WEBRip 1080p rus
 
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм о пуске первой очереди московского метрополитена. 15 мая 1935 года была открыта первая очередь московского метро — от «Сокольников» до «Парка культуры». Протяженность первой линии метрополитена составляла 11,6 км трассы. О людях Метростроя - комсомольцах-проходчиках, их быте и трудовых буднях, об организаторах стройки - Сталине и Кагановиче.
-Технически этот (   Читать дальше...   )Производство: СССР / СоюзкинохроникаЖанр: документальный, историяРежиссер: Лидия СтепановаЯзык озвучки: русский, в нескольких эпизодахСубтитры: русские (интертитры)Продолжительность: 01:02:38
+Перевод с Китайского от Яндекса:
+«Король битв, Ураган, Битва душ, сезон 5» в основном рассказывает историю континента Боевых Душ, который когда-то был наполнен «стихийной энергией», дарованной человечеству милостью природы. Чтобы исследовать свою жизнь, гениальный гироскопист Е Синъюнь отправился в таинственную Академию ураганов и сформировал команду вместе со своими (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 31 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6F29D4B2CF31BFEDE317D8D07BE596383EC1CAA
+magnet:?xt=urn:btih:3DB90E98E67CBC18720402EB8E7C2B86D9EA0CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,25 +327,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771173   (31877) от 05.01.2025
+###  Публикация: 1768016   (33259) от 23.12.2024
 
-Текстуры - Silver, Platinum & Chrome Textures [JPG]
+VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 качественных, премиальных текстур в серых оттенках из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 3008х2013 - 9496х6234
+001. Armin van Buuren & Moby - Extreme Ways (Extended Mix) (06:08)
+002. Jerome Isma-Ae - Hold That Sucker Down (Hel:slowed Extended Remix) (05:09)
+003. Hel:slowed & Amber Revival - Wildfire (Extended Mix) (07:15)
+004. Estiva - Fine Day (Extended Mix) (07:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:11:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CA5AB1BC9CA4EB17DE93207A948801BEDC88F43
+magnet:?xt=urn:btih:20CE2DCD0BF20DC3868756390DC4B89433CAB215
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,28 +356,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771250   (31876) от 05.01.2025
+###  Публикация: 1728915   (33258) от 23.12.2024
 
-Ірина Білик (Ирина Билык) - 13 Альбомов (1990-2017) 14CD [ MP3|320 Kbps] <Pop>
+Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эволюция [2017, TV, 51 эп.] WEB-DL 1080p rus
 
->>Pop
->>Зарубежная поп-музыка
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. А мне бы в небо
-03. Греческая
-04. Разреши(   Читать дальше...   )Жанр: PopПродолжительность: 12:39:16
+Во втором сезоне Вальт был лучшим участником чемпионата Японии. Он отправляется в Испанию, куда его позвали в престижную испанскую команду «БК Сол». Прибыв в Испанию, он встречает некоторых старых друзей и заводит новых, которые в конечном итоге пройдут с ним все приключения. Первая битва Вальта в Испании вынуждает его Бей — Вальтриек, эволюционировать, делая сильнее. (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоСубтитры: ОтсутствуютПродолжительность: 51 эп. 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21794CDE56BC6283DBAD06784E4DCEA8A4574B3F
+magnet:?xt=urn:btih:51A540417F3576F505F1ABDE50B3124B9E1FDC85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,25 +382,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771187   (31875) от 05.01.2025
+###  Публикация: 1767620   (33257) от 23.12.2024
 
-Рамки - С Рождеством Христовым! [PSD]
+A Kindling Forest v1.3 [En]
 
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Программы, Игры и прочее
+>>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многослойный PSD - 20 шт. Формат А4 для удобной печати и для вашего творчества.Формат: PSDРазрешение файлов: 3508х2480 - 2480x3508
+Древний демон восстал, и его порочные силы поразили мир. Лесные духи разбудили лучника из прошлого, чтобы спасти положение! Демон всегда на шаг впереди и оставляет нескончаемый след из твердых осколков. Вы никогда не узнаете, какие фигуры или формы вы встретите в следующий раз! Уничтожьте или избегайте их, и вы выследите его.Тип издания: PaidРелиз состоялся: 18 дек. 2024 г.Разработчик: Dennis BerndtssonПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE01066ECB7A6ADE10516889091086F54B0B73A0
+magnet:?xt=urn:btih:03B7CDBB4289E35036ADBB593E732315C4DEF7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,26 +408,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771164   (31874) от 05.01.2025
+###  Публикация: 1768017   (33256) от 23.12.2024
 
-Михаил Ланцов | Фрунзе (Книга 1). Вираж бытия (2024) [MP3, Антон Макаров]
+WinCatalog 2024.9.0.1223 [Multi/Ru]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наш современник прожил долгую и непростую жизнь, честно служа Родине, за что мироздание дало ему второй шанс – начать с чистого листа, переместив его сознание в голову Михаила Васильевича Фрунзе, в момент смерти знаменитого советского военачальника на операционном столе в октябре 1925 года.
-Сумеет ли переформатированный Фрунзе выжить среди новой советской элиты, (   Читать дальше...   )Жанр: Альтернативная историяИздательство: ЛитРесПродолжительность: 13:25:53
+WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FF91E8801B52C0E53FDD3190E75C9B970214157
+magnet:?xt=urn:btih:9E641ABB1163049B8707C9F4C16B5675005613F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +434,274 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771088   (31873) от 06.01.2025
+###  Публикация: 1768062   (33255) от 23.12.2024
 
-Samsung и Google выпустят бесплатный заменитель Dolby Atmos в этом году
+Карл Ясперс | Собрание сочинений по психопатологии [2 книги] (1996) [FB2, PDF]
 
->>След.
->>Компьютерные новости
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компании Samsung и Google намерены собственными силами продвигать технологию пространственного звука Eclipsa Audio. Позднее в этом году поддержка данного формата появится в некоторых роликах на YouTube, а также будет реализована во всех саундбарах и телевизорах Samsung 2025 года.Eclipsa Audio является передовой технологией пространственного звука, которая позволяет (   Читать дальше...   )
+Карл Ясперс (1883 - 1969 гг.) — немецкий философ-экзистенциалист и психиатр, один из наиболее выдающихся мыслителей XX века; доктор психологии, профессор философии Гейдельбергского университета. С 1947 г. преподавал в Базельском университете.
+Этот труд считается систематической основополагающей книгой психиатрии нового времени. В нём Ясперс развил главные методические (   Читать дальше...   )Жанр: гуманитарные и общественные науки, психиатрияИздательство: Академия; Белый кроликФормат: FB2, PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BBD09AB831FB02FE3F80A92E052731D5977B2EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767997   (33254) от 23.12.2024
+
+Нелл / Nell (1994) HDTVRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка никого не знала, кроме матери. Разговаривать, как люди, она не умела, общаясь сама с собой на одной ей понятном языке. Врач, обнаруживший Нелл, предлагает оставить девушку в покое, но у психолога на этот счет свое мнение...Производство: США / 20th Century Fox Film Corporation, Egg Pictures, PolyGram Filmed EntertainmentЖанр: драмаРежиссер: Майкл АптедАктеры: Джоди Фостер, Лиам Нисон, Наташа Ричардсон, Ричард Либертини, Ник Сирси, Робин Маллинз, Джереми Дэвис, О’Нил Комптон, Шон Бриджерс, Джо ИнскоуПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F3B88781903CFAF5675AD94AE5696458DD5D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767446   (33253) от 23.12.2024
+
+Управление государством / L'exercice de l'État / The Minister (2011) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди ночи министра транспорта Бертрана Сен-Жана будит звонок: автобус упал в канаву. У министра нет выбора, и он едет на место происшествия. Так начинается одиссея государственного чиновника в сложном и враждебном мире. Скорость, борьба влияний, хаос, экономический кризис… Все связано в непрерывный хоровод событий, одно чрезвычайное происшествие сменяет другое. (   Читать дальше...   )Производство: Франция, Бельгия / Archipel 35, Les Films du Fleuve, France 3 CinémaЖанр: драмаРежиссер: Пьер ШоллерАктеры: Оливье Гурме, Мишель Блан, Забу Брайтман, Лоран Стокер, Сильвен Дебле, Дидье Безас, Жак Буде, Франсуа Шатто, Гаэтан Вассар, Арли ЖоверПеревод: Авторский (Михаил Чадов)Язык озвучки: русский, французскийСубтитры: русские (2 x full), английские, французскиеПродолжительность: 01:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787DC672F018B0D333EDED99DA5FFA6155DE237C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728392   (33252) от 23.12.2024
+
+Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается вокруг учеников престижной академии Бейгома, которая расположена в Японии. Близкие друзья Шу Куреная и Вальта Аоя предпочитают тратить свободное время на чрезвычайно популярную игрушку — волчков-Бея, а затем они создают специальный школьный клуб, чтобы бросать вызов другим коллективам, сражающихся за Бей-Аренах. По мере того Шу и Вальта развивают (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоСубтитры: ОтсутствуютПродолжительность: 51 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C95E123C66E2B4CDA38372E2C59D640CFF9704C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767992   (33251) от 23.12.2024
+
+А.В. Галицкий | Щедрый жар [2 книги] (1986, 1992) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эту книгу можно назвать своеобразной популярной энциклопедией русской бани и ее близких и дальних родичей (финской сауны и других видов бань). Читатель найдет в ней ответы на многие вопросы о применении бани в целях оздоровления.
+В релизе Вашему вниманию представлены «очерки о русской бане и ее близких и дальних родичах» в 2-х изданиях.Жанр: Здоровье, здоровый образ жизниИздательство: Физкультура и спорт. Урал-прессФормат: FB2, PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C9353A223941389075A27D88FF5A4DA61248E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768018   (33250) от 23.12.2024
+
+VA - 50 лучших хитов, Часть 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ирина Круг - Любовники (3:46)
+02.  Слава - В сердце бьёт молния (3:18)
+03.  Ислам Итляшев - Ненавидишь (3:35)
+04.  Алексей Петрухин - Чубчик кучерявый (3:11)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE718E78F630824590245DB077AF7131097858B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767987   (33249) от 23.12.2024
+
+НХЛ 2024-2025. Лос-Анджелес Кингз - Вашингтон Кэпиталз (22.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33249.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 декабря 2024, понедельник. 01:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CF3E2A50053E03B609F6BF61F6C951FF6D84B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768023   (33248) от 23.12.2024
+
+Mike Hammar and the Nails - Raised in The Dirt (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Righteous Man (5:00)
+02.  Groove Shoes (Live) (4:32)
+03.  She's a Keeper (5:04)
+04.  Over the Limit Line (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A8899D6C49116E53227C8201CE880CA71B76DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768038   (33247) от 23.12.2024
+
+Mitch Woods - Happy Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jukebox Drive (3:49)
+02.  Long, Lean, and Lanky (3:09)
+03.  Broke (3:54)
+04.  Boogie Woogie Bar-B-Que (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229D8E22BAC71673B508B38773615D1855F7C774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768056   (33246) от 23.12.2024
+
+Mojo Minefield - Watch Your Step! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Watch Your Step! (4:29)
+02.  Since You Left Me (5:12)
+03.  Quiet Little Place (5:11)
+04.  Livin' Ain't That Hard (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95023CA4BCCEB5B9DA7C67E7A807479D03C23B79
 ```
 
 https://mybot314.ru/tekegram_catalog/

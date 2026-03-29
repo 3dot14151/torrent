@@ -1,3 +1,88 @@
+###  Публикация: 1342473   (223507) от 02.12.2019
+
+VA - Новый Год 2020 (Песни для деток) (2019) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223507.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Большой детский хор Гостелерадио СССР - Кукляндия (3:34)
+2.Большой детский хор ЦТ и ВР - Заводные игрушки (2:06)
+3.Валентина Толкунова - Кабы не было зимы (2:02)
+4.Ольга Рождественская, ВИА «Добры молодцы» - Снежинка (2:43)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD3B8A17AB5EA83B0C4D2DC4D860C5220E3425A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167605   (223466) от 19.11.2020
+
+VA - Фантазёры. Новые детские песни (2017) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алёна Максимова - Фантазёры
+02. Алёна Максимова - Прыг-скок (Летняя песенка)
+03. Алёна Максимова - Веснянка
+04. Артём Турбин - Розочка(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C47239621CA71DC1FA0FC50FDA588639E84344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513806   (222844) от 30.11.2021
+
+Геннадий Осипов | Дыхание волка (2021) [MP3, Татьяна Николашина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222844.jpg" />
+</div>
+
+
+###  Подробнее
+
+У страха глаза очень велики.
+Однажды тринадцатилетний мальчик столкнулся в лесу нос к носу с оскалившимся матёрым волком. На секунду они встретились взглядами. По спине мальчика пробежал холодок. Угрожающая поза не оставляла сомнений в том, что волк приготовился к  прыжку...Жанр: Детская литератураПродолжительность: 00:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B1A162A32D1B36B26FD1191146F67928C90544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513714   (222761) от 30.11.2021
 
 Женя Глюкк | Прекрасная Вампука (2014) [MP3, Женя Глюкк и др.]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222761.jpg" />
+  <img src="Z:/picture/005/save_picture_222761.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222741.jpg" />
+  <img src="Z:/picture/005/save_picture_222741.jpg" />
 </div>
 
 
@@ -63,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222538.jpg" />
+  <img src="Z:/picture/005/save_picture_222538.jpg" />
 </div>
 
 
@@ -94,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222508.jpg" />
+  <img src="Z:/picture/005/save_picture_222508.jpg" />
 </div>
 
 
@@ -120,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222414.jpg" />
+  <img src="Z:/picture/005/save_picture_222414.jpg" />
 </div>
 
 
@@ -147,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222367.jpg" />
+  <img src="Z:/picture/005/save_picture_222367.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222346.jpg" />
+  <img src="Z:/picture/005/save_picture_222346.jpg" />
 </div>
 
 
@@ -200,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221709.jpg" />
+  <img src="Z:/picture/005/save_picture_221709.jpg" />
 </div>
 
 
@@ -226,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221617.jpg" />
+  <img src="Z:/picture/005/save_picture_221617.jpg" />
 </div>
 
 
@@ -252,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221608.jpg" />
+  <img src="Z:/picture/005/save_picture_221608.jpg" />
 </div>
 
 
@@ -278,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221576.jpg" />
+  <img src="Z:/picture/005/save_picture_221576.jpg" />
 </div>
 
 
@@ -307,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221563.jpg" />
+  <img src="Z:/picture/005/save_picture_221563.jpg" />
 </div>
 
 
@@ -334,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220898.jpg" />
+  <img src="Z:/picture/005/save_picture_220898.jpg" />
 </div>
 
 
@@ -360,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220653.jpg" />
+  <img src="Z:/picture/005/save_picture_220653.jpg" />
 </div>
 
 
@@ -386,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220502.jpg" />
+  <img src="Z:/picture/005/save_picture_220502.jpg" />
 </div>
 
 
@@ -412,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220394.jpg" />
+  <img src="Z:/picture/005/save_picture_220394.jpg" />
 </div>
 
 
@@ -438,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220303.jpg" />
+  <img src="Z:/picture/005/save_picture_220303.jpg" />
 </div>
 
 
@@ -467,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220297.jpg" />
+  <img src="Z:/picture/005/save_picture_220297.jpg" />
 </div>
 
 
@@ -496,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219935.jpg" />
+  <img src="Z:/picture/005/save_picture_219935.jpg" />
 </div>
 
 
@@ -524,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219755.jpg" />
+  <img src="Z:/picture/005/save_picture_219755.jpg" />
 </div>
 
 
@@ -553,7 +638,7 @@ The London Symphony Orchestra - Classic fm Babies (2 CD) (2007) [MP3|320 кб/с
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219637.jpg" />
+  <img src="Z:/picture/005/save_picture_219637.jpg" />
 </div>
 
 
@@ -579,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219011.jpg" />
+  <img src="Z:/picture/005/save_picture_219011.jpg" />
 </div>
 
 
@@ -605,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219003.jpg" />
+  <img src="Z:/picture/005/save_picture_219003.jpg" />
 </div>
 
 
@@ -616,84 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63CA512C3F4E2D8A214E1D2141115DB5C0B6ECF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966738   (218831) от 18.12.2015
-
-Сказание о Вёлунде (1979/2013) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказание о «Вёлунде» – одна из древних скандинавских легенд, один из множества эпизодов, которыми полны скандинавские мифы о людях и богах, богатырях и карликах. Скандинавы верили в подземные склады, которые стерегут гигантские змеи и хитрые карлики, в глубокие пещеры, где скрываются от света и людских раздоров тролли-гномы – мастера кузнечного дела. Уж если они (   Читать дальше...   )Жанр: Музыкальная сказкаПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C346BBF389E4D6F5A760D04B61F1E8964978AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343507   (218618) от 06.12.2019
-
-Юрий Нагибин | Зимний дуб. Сборник (1960-1980-2010) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Нагибин (1920-1994), советский писатель, журналист и прозаик, сценарист,создал более 170 прекрасных произведений для детей и взрослых. Книги его неоднократно переиздавались.Жанр: Радиоспектакль. Детская литератураАктеры: Ростислав Плятт, А. Покровский, Ирина Архипова, Борис Рыжухин, Зинаида Шарко, Алиса Фрейндлих, Всеволод Ларионов, Клара Румянова, Татьяна Курьянова, Сергей НиконенкоПродолжительность: 09:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F60E878328BE7E86D012407FA9475C913C93E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084889   (218600) от 19.12.2016
-
-Рудольф Распе | Приключения Барона Мюнхгаузена (1986) [MP3, Виктор Степанов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218600.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фантастических ''Приключений барона Мюнхгаузена'' положены рассказы действительно жившего в XVIII веке в Германии барона Мюнхгаузена. Публикация книги Распе под боком у барона, в Геттингене, привела барона в ярость из-за того, что герой был снабжен его полным именем. Барон счел свое имя обесчещенным и собирался подать в суд . Вдобавок труд Распе сразу приобрел (   Читать дальше...   )Жанр: Детская литература, аудиоспектакльИздательство: МелодияПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D3E6F1663557293592FB5CBBC00E691341D2C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1619140   (1032835) от 16.03.2023
+
+NordVPN безвозмездно открыла доступ к своему частному туннелю Meshnet для всех желающих
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собственные VPN-сервера и множество полезных функций абсолютно бесплатно.Частный туннель Meshnet от NordVPN, доступный для Windows, macOS и Linux теперь бесплатен для всех пользователей, даже для тех, у кого нет подписки на NordVPN.Meshnet был впервые запущен в июне 2022 года в качестве платной функции NordVPN, позволяющей пользователям создавать частные зашифрованные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619256   (1032827) от 16.03.2023
+
+Кокаиновый медведь / Cocaine Bear (2023) WEB-DLRip [H.264/1080p] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032827.jpg" />
+</div>
+
+
+###  Подробнее
+
+1985 год. Из пролетающего на лесами штата Джорджия самолёта наркокурьер выбрасывает несколько пакетов кокаина, часть из них находит барибал и съедает содержимое. Животное приходит в неистовство, и теперь всем туристам, рейнджерам и случайно попавшимся ему на пути бедолагам сильно не поздоровится.Производство: США, Brownstone Productions (II), Lord Miller, Universal PicturesЖанр: боевик, триллер, комедияРежиссер: Элизабет БэнксАктеры: Кери Рассел, Олден Эренрайк, О’Ши Джексон мл., Рэй Лиотта, Исайя Уитлок мл., Бруклин Принс, Кристиан Конвери, Марго Мартиндейл, Джесси Тайлер Фергюсон, Кристофер ХивьюПеревод: Авторский (М. Яроцкий | 18+)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DDF93C7D5D59E7252F36BA1EBC15DF0CF74EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605008   (1032823) от 16.03.2023
+
+Одни из нас / The Last of Us (2023) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-9 из 9) RHS, Dubbing-Pro, LineFilm, HDrezka, Кашкин, Цікава Ідея
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закалённый в борьбе за выживание Джоэл и Элли — отважная, не по годам смышлёная девушка-подросток — вынуждены объединиться и помогать друг другу в странствиях по руинам Соединённых Штатов.Производство: Канада, США / Naughty Dog, PlayStation Productions, Sony Pictures TelevisionЖанр: ужасы, фантастика, боевик, драмаРежиссер: Али Аббаси, Джереми Уэбб, Нил ДракманнАктеры: Педро Паскаль, Белла Рэмзи, Анна Торв, Ламар Джонсон, Мелани Лински, Нико Паркер, Мерл Дэндридж, Keivonn Woodard, Джеффри Пирс, Джон ГецПеревод: дублированный (RHS), многоголосый (Dubbing-Pro, LineFilm, HDrezka, Цікава Ідея, DniproFilm, BaibaKo), авторский (Кашкин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), украинские (Forced)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEC628936BE0C9982F51476013FC75EDAF16D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619686   (1032426) от 18.03.2023
+
+RTX 4060 - Будет ли она «народной» видеокартой линейки GeForce RTX 40?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032426.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 апреля на рынок выйдет GeForce RTX 4070, которой приписывают неожиданно высокую цену. Но даже если эта карта будет дешевле 750 долларов, то всё равно будет весьма дорогой. И сегодня в Сети появилось первое фото модели RTX 4060, которая должна быть существенно дешевле.На снимке запечатлена модель Founders Edition. Также можно видеть, что карта заметно меньше старших (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446437   (1032384) от 10.02.2021
 
 Google забанила аккаунт разработчика Terraria. В ответ он отменил игру для Stadia
@@ -6,7 +110,7 @@ Google забанила аккаунт разработчика Terraria. В о�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032384.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032366.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ ChatGPT обманул человека, чтобы решить поставл�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032204.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032183.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Disney закроет студию с 34-летней историей. Она �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032003.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031745.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ooyuki Umi no Kaina | Kaina of the Great Snow Sea | Кайна в великом
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031524.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Adobe Photoshop 2023 24.3.0.376 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1031515.jpg" />
+  <img src="Z:/picture/005/save_picture_1031515.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (08g-r18163/dlc) License GO
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031512.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ ZOMBI / ZombiU (2015) [Ru/Multi] (1.1) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031454.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031317.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ ChatGPT попытался сбежать от своего разработчи
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031309.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ No Game No Life / Нет игры, нет жизни [2014, TV, 12 эп.] HDTV 7
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031307.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030849.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030833.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030819.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030625.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030622.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Outline Client VPN 1.10.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030618.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030536.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Image Uploader 1.3.2 Build 4717 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030534.jpg" />
 </div>
 
 
@@ -552,119 +656,13 @@ Facebook заблокировал австралийские СМИ
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030404.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Американская соцсеть Facebook заблокировала средства массовой информации Австралии из-за споров с австралийскими властями, сообщает агентство Reuters.В частности, страницы государственных телерадиовещательных компаний Австралии и информационных агентств оказались пустыми. Также заблокированы оказались страницы австралийского минздрава и государственного метеорологического (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620102   (1030396) от 27.03.2023
-
-Нападение на Рио Браво / Gunfight at Rio Bravo (2023) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030396.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1873 году небольшой приграничный городок в Восточном Техасе подвергается нападению злобной, кровожадной банды преступников, известной как «Адские гончие». Иммигрант из России, русский полковник лейб-гвардии Российской Империи Иван Турчанинов, маршал округа и шериф города бесстрашно противостоят нашествию жестоких убийц.Производство: США / Hollywood Storm, ETA Films, San Rafael ProductionsЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Оливье Грюнер, Джо Корнет, Маттиас Хьюз, Натали Денис Шперл, Керри Гудвин, Трэвис Миллс, Уильям Карр, Джон Маррс, Роберт ЛивингстонПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B234C4DEB5B905989EB2DA2FEECACB108FDC48F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408961   (1030326) от 19.02.2021
-
-Служебный роман (1977) BDRip [H.264/1080p-LQ] [реставрация]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Ефремович Новосельцев, рядовой служащий одного статистического управления, — человек робкий и застенчивый. Для него неплохо бы получить вакантное место зав. отделом, но он не знает как подступиться к этому делу. Старый приятель Самохвалов советует ему приударить за Людмилой Прокофьевной Калугиной, — сухарем в юбке и директором заведения…Производство: СССР / МосфильмЖанр: Драма, мелодрама, комедияРежиссер: Эльдар РязановАктеры: Андрей Мягков, Алиса Фрейндлих, Светлана Немоляева, Олег Басилашвили, Лия Ахеджакова, Георгий Бурков, Зоя Исаева, Людмила Иванова, Петр Щербаков, Мария ВиноградоваСубтитры: ОтсутствуютПродолжительность: 02:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87CF2044F99133461905AFA60CCFF2B8299136D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603563   (1030164) от 28.03.2023
-
-Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi / Король-герой переродился мастером боевых искусств и стал сильнейшей ученицей рыцаря [2023, TV, 12] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030164.jpg" />
-</div>
-
-
-###  Подробнее
-
-С благословения богини Инглис основал королевство и стал известен как Король-герой, божественный рыцарь и повелитель всего. Он посвятил большую часть жизни управлению государством и благополучию своих подданных. Но перед смертью у него осталось одно невыполненное желание — снова жить как обычный воин, каковым Инглис и был до прихода к власти. И его богиня-покровительница (   Читать дальше...   )Жанр: комедия, приключения, фэнтези.Режиссер: Кудзуя НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F477C4FAC5C266DB49934F2038431E8267F751E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621983   (1030162) от 28.03.2023
-
-Сбербанк заявляет о новой схеме мошенничества в интернет-магазинах
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мошенники атакуют покупателей интернет-магазинов
-с помощью хитрой схемы возврата денег
-Мошенники начали обманывать людей, используя схему возврата средств за покупки в интернет-магазинах, сообщила пресс-служба Сбера 23 марта.Оказывается, злоумышленники возвращают средства клиентам магазина, которые недавно получили заказ. Затем поступает сообщение, якобы от представителя (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

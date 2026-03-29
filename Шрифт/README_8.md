@@ -1,3 +1,114 @@
+###  Публикация: 1179090   (287094) от 19.11.2018
+
+Шрифты - Шрифты адаптированные под кириллицу By LYAJKA [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифты, адаптированные под кириллицу (Кириллизованные) пользователем с ником "LYAJKA", не имеющие её в оригинале.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5272AAF594DBB780A486876E7EE5986DA69C826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082404   (278760) от 12.12.2016
+
+Шрифты - Enchanted Land [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Количество: 2 шт.
+Разработчик: Dennis Ludlow.
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)
+(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9479C2489596185CB0FE3488E538C7245F8C396F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083030   (274689) от 15.12.2016
+
+Шрифты - VAL Stencil [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трафаретный шрифт, заглавные буквы в обоих регистрах.
+Количество: 2 шт.
+Разработчик: Svetoslav Simov
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F9C24C9008BC6318DDBE8FBECF8421D6FD312E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838584   (260751) от 23.11.2025
+
+Шрифты - Behance - Schrifteria Foundry - SFT Schrifted Sans - 160317147 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Графический дизайн SFT Schrifted Sans был вдохновлён Стокгольмом и его репутацией стильного и функционального дизайна. Достаточно было трёх месяцев, чтобы разработать решение, воплощающее дух местной типографики, хотя шрифт напрямую не отсылает ни к одной шведской надписи.
+Основной вид шрифта - геометрический гротеск с крупными пропорциями. Кроме того, будет доступна (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850DD0E3CC9D081A4266CB488BEC197AD4693F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838579   (260749) от 23.11.2025
 
 Шрифты - Behance - Schrifteria Foundry - SFT Sushka - 169959649 [OTF]
@@ -6,7 +117,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260749.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260747.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259826.jpg" />
+  <img src="Z:/picture/005/save_picture_259826.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258020.jpg" />
+  <img src="Z:/picture/005/save_picture_258020.jpg" />
 </div>
 
 
@@ -110,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258016.jpg" />
+  <img src="Z:/picture/005/save_picture_258016.jpg" />
 </div>
 
 
@@ -136,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257812.jpg" />
+  <img src="Z:/picture/005/save_picture_257812.jpg" />
 </div>
 
 
@@ -162,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257807.jpg" />
+  <img src="Z:/picture/005/save_picture_257807.jpg" />
 </div>
 
 
@@ -189,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257801.jpg" />
+  <img src="Z:/picture/005/save_picture_257801.jpg" />
 </div>
 
 
@@ -215,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257776.jpg" />
+  <img src="Z:/picture/005/save_picture_257776.jpg" />
 </div>
 
 
@@ -241,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257763.jpg" />
+  <img src="Z:/picture/005/save_picture_257763.jpg" />
 </div>
 
 
@@ -269,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257524.jpg" />
+  <img src="Z:/picture/005/save_picture_257524.jpg" />
 </div>
 
 
@@ -298,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256729.jpg" />
+  <img src="Z:/picture/005/save_picture_256729.jpg" />
 </div>
 
 
@@ -324,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255678.jpg" />
+  <img src="Z:/picture/005/save_picture_255678.jpg" />
 </div>
 
 
@@ -350,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252591.jpg" />
+  <img src="Z:/picture/005/save_picture_252591.jpg" />
 </div>
 
 
@@ -376,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251848.jpg" />
+  <img src="Z:/picture/004/save_picture_251848.jpg" />
 </div>
 
 
@@ -403,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251764.jpg" />
+  <img src="Z:/picture/005/save_picture_251764.jpg" />
 </div>
 
 
@@ -429,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250613.jpg" />
+  <img src="Z:/picture/004/save_picture_250613.jpg" />
 </div>
 
 
@@ -455,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250583.jpg" />
+  <img src="Z:/picture/004/save_picture_250583.jpg" />
 </div>
 
 
@@ -482,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250548.jpg" />
+  <img src="Z:/picture/004/save_picture_250548.jpg" />
 </div>
 
 
@@ -510,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250541.jpg" />
+  <img src="Z:/picture/004/save_picture_250541.jpg" />
 </div>
 
 
@@ -537,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250533.jpg" />
+  <img src="Z:/picture/004/save_picture_250533.jpg" />
 </div>
 
 
@@ -563,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250531.jpg" />
+  <img src="Z:/picture/004/save_picture_250531.jpg" />
 </div>
 
 
@@ -575,115 +686,6 @@ Dx Rigraf - новый, свежий и современный гротеск с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249C2855066086FA6980222DB78FE74B64262F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834700   (250388) от 04.11.2025
-
-Шрифты - Arkandis Digital Foundry - Berenis Pro [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первые рисунки Berenis относятся к 2002 году. Эта новая коллекция основана на компромиссе между двумя предыдущими версиями, касающемся высоты нижних панелей и настройки шрифтов. Стоит также сказать, что она потребовала серьёзного обновления и некоторых исправлений, чтобы придать ей безупречный стиль, со всем тем изяществом, которое присуще Didone. Berenis также предоставил (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834695   (250387) от 04.11.2025
-
-Шрифты - GitHub - Ertekin Erdin - Libre Caslon Condensed - Mod By Alexey Burba [OTF, TTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Libre Caslon Condensed - это шрифт с открытым исходным кодом, предназначенный для заполнения ниши высококачественных шрифтов с узкими засечками. Этот шрифт, созданный путём модификации семейства шрифтов Libre Caslon Text, предлагает гармоничное сочетание элегантности и читабельности, что делает его идеальным выбором для различных дизайнерских проектов.
-В модификации (   Читать дальше...   )Формат: OTF, TTF, WOFF2Поддержка кириллицы: Есть у Libre Caslon Condensed-Regular
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834659   (250386) от 04.11.2025
-
-Шрифты - Behance - Graviton Font Foundry - Tecnica Slab Stencil - 20593849 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство шрифтов Tecnica Slab Stencil - это трафаретная версия семейства шрифтов Tecnica Slab, разработанная Пабло Балселлсом для Graviton Font Foundry в 2014 году.
-Tecnica Slab Stencil состоит из 8 начертаний. 4 стиля «Stencil 1» содержат узкую штриховку для печати на крупных шрифтах и/или жёстких материалах, а 4 стиля «Stencil 2» содержат широкую штриховку для (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27BC79BE2D2B940D92CC7BD6B7AAE3BEE20D5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834661   (250385) от 04.11.2025
-
-Шрифты - Behance - Vika Usmanova - Trappist - 80064573 [TTF, EOT, OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно для одного бельгийского кафе в Санкт-Петербурге был создан леттеринг.
-Со временем он превратился в шрифт под названием Trappist.
-Теперь он готов присоединиться к вашим смелым идеям и стать частью крутых проектов.
-Материал раздаётся с официальной документацией.Формат: TTF, EOT, OTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD018B7C88992FB7FD61DAC3B118EC599832A78B
 ```
 
 https://mybot314.ru/tekegram_catalog/

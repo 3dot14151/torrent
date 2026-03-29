@@ -1,3 +1,29 @@
+###  Публикация: 1713952   (60450) от 07.04.2024
+
+Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hydroneer – это симулятор добытчика золота и других ценных ископаемых. Стройте различные механизмы, улучшайте свою базу, и осваивайте всё больше земель в своих целях. Вам доступно множество земельных участков, каждый из которых со своими ландшафтными особенностями. В ваших похождениях у вас изначально доступен ограниченный набор инструментов, но с течением времени (   Читать дальше...   )Тип издания: RepackРазработчик: Foulball HangoverЖанр: Приключенческие игры, Казуальные игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B36710E079C346F295D12BC0F4712461479160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713820   (60434) от 07.04.2024
 
 Timeworks (2024) [En] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Timeworks (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60434.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60387.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60369.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Last Hope Bunker: Zombie Survival (2024) [Ru/Multi] (107) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60321.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Dishwashing Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60272.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60250.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.033s/dlc) Repack Other
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60169.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60165.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60158.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60089.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59957.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Lost Village (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59856.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Voice Love on Air (2024) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59811.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59751.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Anomaly Loop (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59547.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ My Life: Farm Vet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59533.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ One Last Dinner (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59327.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Hypnospace Outlaw (2019) [En] (2.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59174.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59160.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58934.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58914.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ The Signal State (2021) [Ru/Multi] (1.33b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58800.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Love Too Easily (2023) [Multi] (19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58777.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58445.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58099.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Dawn of Man - уникальная историческая стратегия �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C569D56EDCD7B7AFDD8AB29FC897CFA69BC3C88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719598   (58066) от 30.04.2024
-
-Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oriental Valley - симулятор жизни, где вы создадите собственного героя и напишите его уникальную историю о похождениях в магических землях. Обоснуйтесь в небольшой деревушке, которая не так проста, как кажется на первый взгляд, и постарайтесь раскрыть тайны близлежащих земель. Действуйте в своем темпе, ведь помимо приключений вам придется сфокусировать свое внимание (   Читать дальше...   )Тип издания: RepackРазработчик: 猫多游戏Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Английский, Китайский (упрощенный, традиционный)Язык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5321D82F8514BC61CE4323BE95F997122E7508
 ```
 
 https://mybot314.ru/tekegram_catalog/

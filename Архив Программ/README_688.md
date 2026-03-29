@@ -6,7 +6,7 @@ DevID Agent 4.41 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702652.jpg" />
+  <img src="Z:/picture/008/save_picture_702652.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartIsBack++ 2.0.8 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702651.jpg" />
+  <img src="Z:/picture/008/save_picture_702651.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mp3tag 2.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702591.jpg" />
+  <img src="Z:/picture/008/save_picture_702591.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ StartIsBack++ 2.0.8 / StartIsBack+ 1.7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702582.jpg" />
+  <img src="Z:/picture/008/save_picture_702582.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Total Uninstall 6.19.1 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702478.jpg" />
+  <img src="Z:/picture/008/save_picture_702478.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CoolUtils Total PDF Converter 6.1.0.144 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702455.jpg" />
+  <img src="Z:/picture/008/save_picture_702455.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ShareX 12.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702441.jpg" />
+  <img src="Z:/picture/008/save_picture_702441.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AIMP 4.13 Build 1895 DC 07.05.2017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702413.jpg" />
+  <img src="Z:/picture/008/save_picture_702413.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Comodo Internet Security Premium 10.0.1.6223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702404.jpg" />
+  <img src="Z:/picture/008/save_picture_702404.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Aiseesoft Data Recovery 1.0.12 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702339.jpg" />
+  <img src="Z:/picture/008/save_picture_702339.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702333.jpg" />
+  <img src="Z:/picture/008/save_picture_702333.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702313.jpg" />
+  <img src="Z:/picture/008/save_picture_702313.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe AIR 22.0.0.153 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702310.jpg" />
+  <img src="Z:/picture/008/save_picture_702310.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AnyMP4 Video Converter Ultimate 7.0.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702300.jpg" />
+  <img src="Z:/picture/008/save_picture_702300.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bandicam 4.1.3.1400 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702193.jpg" />
+  <img src="Z:/picture/008/save_picture_702193.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ XYplorer 16.90.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702171.jpg" />
+  <img src="Z:/picture/008/save_picture_702171.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ AIMP 4.10 Build 1815 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702168.jpg" />
+  <img src="Z:/picture/008/save_picture_702168.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Force Deleter 1.31.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702167.jpg" />
+  <img src="Z:/picture/008/save_picture_702167.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Privacy Eraser Free 4.13.2 Build 2012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702164.jpg" />
+  <img src="Z:/picture/008/save_picture_702164.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ YouTube Video Downloader PRO 5.7 (20160610) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702161.jpg" />
+  <img src="Z:/picture/008/save_picture_702161.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Auslogics BoostSpeed 10.0.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702114.jpg" />
+  <img src="Z:/picture/008/save_picture_702114.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Adobe Media Encoder CC 2018 12.1.1.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702101.jpg" />
+  <img src="Z:/picture/008/save_picture_702101.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Skype 7.25.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702076.jpg" />
+  <img src="Z:/picture/008/save_picture_702076.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Google Chrome 51.0.2704.103 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702064.jpg" />
+  <img src="Z:/picture/008/save_picture_702064.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Audition CC 2018 11.1.1.3 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702010.jpg" />
+  <img src="Z:/picture/008/save_picture_702010.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701951.jpg" />
+  <img src="Z:/picture/008/save_picture_701951.jpg" />
 </div>
 
 

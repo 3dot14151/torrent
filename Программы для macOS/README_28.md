@@ -1,3 +1,136 @@
+###  Публикация: 1493991   (892440) от 05.09.2021
+
+Photo Sense - Bulk Enhancement 2.1.3 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Sense делает ваши фотографии лучше, экономя ваше время на утомительных задачах редактирования фотографий. Приложение поддерживает рабочий процесс с автоматическим первым использованием: вместо того, чтобы настраивать каждое изображение вручную, оно автоматически улучшает все фотографии и предлагает эффективные инструменты для настройки результатов в той степени, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.09.2021Разработчик: VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9590A9033120BFE2C142B7EAAD6B2DC0083D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869306   (892135) от 14.02.2015
+
+Toast Titanium Pro 12.1 (3580) [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roxio Toast  Titanium Pro 12 - cамый мощный пакет для записи дисков.
+Roxio Toast Titanum Pro предоставляет множество вариантов для обработки цифровой музыки, видео и изображений на кинофильмов и фотографий на CD и DVD-дисках. Теперь нет необходимости хранить большие файлы на дисках. К звуковому DVD добавились более полусотни часов музыки и система Dolby Digital.Файлы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 июля 2014Разработчик: RoxioПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский, Немецкий, Французский, испанский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8EF07CE88E8EE4F896E811B8924441683C694A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994293   (891559) от 07.03.2016
+
+Travel Journal 1.2.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие - все о приключениях и  посещениях новых мест. Документирование этих воспоминаний являются центром Travel Journal.  Travel Journal хорошо организован и структурирован. Пользовательский интерфейс прост в использовании и дополнительные функции делают это современный дневник произведением искусства. Вы будете гордиться своим Tavel Journal, а простота создания (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 марта 2016Разработчик: iLifeTouch.comПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A17FBAFA1826F9DF40E4055871E160C5F28A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994260   (891537) от 07.03.2016
+
+FreeWay Pro 7.1.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freeway - это визуальный редактор Web страниц который позволяет пользователям создавать веб сайты без написания кода, что делает этот инструмет идеальным для дизайнеров и опытных пользователей, а не для программистов. Он использует модельное представление в стиле настольных издательских систем, создавая весь сайт в одном документе.
+
+Freeway (первоначально Uniqorn) (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 февраля 2016Разработчик: SoftpressПоддерживаемая ОС: 10.6.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCBF514AFFE7983A29755389EE8B75B4B0CB7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994222   (891521) от 07.03.2016
+
+Ceceree 1.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы, наверное, иногда видите приложения на Mac App Store, которые кажутся интересными, но вы на самом деле не знаете, хотите купить их, возможно, потому, что вы не устраивает цена или вы ждете новой версии. Поэтому, давайте добавим их в список пожеланий. Есть список пожеланий для приложений в iTunes, но Mac App Store  такой опции не имеет. Вот где Ceceree вступает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 марта 2016Разработчик: Florian SchliepПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC96B6130294FDADFAC7172D4E3A9AB1D1C5C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994298   (891320) от 07.03.2016
 
 MoneyWiz 2.3.1 [Multi/Ru]
@@ -6,7 +139,7 @@ MoneyWiz 2.3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891320.jpg" />
 </div>
 
 
@@ -33,7 +166,7 @@ Business Templates Lab - Templates for Pages 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891289.jpg" />
 </div>
 
 
@@ -62,7 +195,7 @@ HDRLightStudio 5 v5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891180.jpg" />
 </div>
 
 
@@ -90,7 +223,7 @@ Sketchode 1.3.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891173.jpg" />
 </div>
 
 
@@ -119,7 +252,7 @@ Window Tidy 2.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891161.jpg" />
 </div>
 
 
@@ -146,7 +279,7 @@ Infographics Lab for Pages - Templates Bundle 3.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891003.jpg" />
 </div>
 
 
@@ -173,7 +306,7 @@ Weather Widget Deskto‪p Full version 3.9.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890906.jpg" />
 </div>
 
 
@@ -201,7 +334,7 @@ Mira v1.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890887.jpg" />
 </div>
 
 
@@ -229,7 +362,7 @@ SyncMate 2.5.0.921 UB
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890813.jpg" />
 </div>
 
 
@@ -261,7 +394,7 @@ Reflector 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890452.jpg" />
 </div>
 
 
@@ -289,7 +422,7 @@ Stats 2.6.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889331.jpg" />
+  <img src="Z:/picture/005/save_picture_889331.jpg" />
 </div>
 
 
@@ -315,7 +448,7 @@ Whisk 2.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889326.jpg" />
+  <img src="Z:/picture/005/save_picture_889326.jpg" />
 </div>
 
 
@@ -341,7 +474,7 @@ Dumper 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889226.jpg" />
+  <img src="Z:/picture/005/save_picture_889226.jpg" />
 </div>
 
 
@@ -369,7 +502,7 @@ handyPrint 5.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889215.jpg" />
+  <img src="Z:/picture/005/save_picture_889215.jpg" />
 </div>
 
 
@@ -396,7 +529,7 @@ Grids for Instagram 7.0.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889094.jpg" />
+  <img src="Z:/picture/005/save_picture_889094.jpg" />
 </div>
 
 
@@ -422,7 +555,7 @@ Chatty for Facebook 1.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888186.jpg" />
+  <img src="Z:/picture/005/save_picture_888186.jpg" />
 </div>
 
 
@@ -451,7 +584,7 @@ Stellar Partition Manager 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887936.jpg" />
+  <img src="Z:/picture/005/save_picture_887936.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ Templates for iWork - Alungu Designs 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887678.jpg" />
+  <img src="Z:/picture/005/save_picture_887678.jpg" />
 </div>
 
 
@@ -508,7 +641,7 @@ Logic Pro X 10.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887484.jpg" />
+  <img src="Z:/picture/005/save_picture_887484.jpg" />
 </div>
 
 
@@ -534,7 +667,7 @@ Templates for Photoshop - Alungu Designs 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887203.jpg" />
+  <img src="Z:/picture/005/save_picture_887203.jpg" />
 </div>
 
 
@@ -563,7 +696,7 @@ Adobe Zii 2020 - Universal Patcher 5.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886766.jpg" />
+  <img src="Z:/picture/005/save_picture_886766.jpg" />
 </div>
 
 
@@ -574,142 +707,6 @@ Adobe Zii - это небольшая и замечательная утилит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518B258E4CCCE217CAEBFDFF694574688B1D8850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371174   (886491) от 02.04.2020
-
-Stellar Data Recovery Technician 10.0.0.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Data Recovery Technician - это передовое программное обеспечение, разработанное для для ИТ-специалистов и корпоративных пользователей, позволяющее извлекать все типы данных из MacBook Pro, iMac Pro, Mac Pro, MacBook Air и Mac Mini. Утилита может восстановить неограниченное количество потерянных, удаленных или недоступных данных со всех устройств Mac и носителей (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Stellar Information Technology Pvt. Ltd.Поддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE1296173D93778036343306F12D9B05DBF3C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995142   (886348) от 10.03.2016
-
-Bookmarks Duplicates Cleaner 1.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удалите дубликаты закладок, очистите и организуйте Ваш браузер Safari. Быстро и просто!
-Bookmarks Duplicates Cleaner - уникальный и полезный инструмент для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера часто имеют много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2016Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C16C9622E4A5292DEF0A676637802A34A38746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995212   (886192) от 10.03.2016
-
-Periscope Pro 3.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система видео наблюдения основанная на детекторе движения, использующая ваш Mac.
-Periscope Pro превращает ваш Mac в систему наблюдения записывает видео ролики со звуком. Вы можете сохранять клипы, чтобы просмотреть их позже, либо автоматически загрузить их на Dropbox, чтобы посмотреть что происходит удаленно!
-
-Periscope Pro простое в использование приложение, которое (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 марта 2016Разработчик: Yevgeniy MuravyevПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163854BC245E1F4A06FB81AED614DB7223DC7EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494815   (886094) от 09.09.2021
-
-Xmas snow 1.5.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима приближается. Вы готовы? Xmas snow подготовит вас к зиме.
-Xmas snow добавит анимированный снег на ваш рабочий стол и с Xmas snow вы всегда будете знать, сколько дней до Рождества или до Нового года. Xmas snow может показать на вашем рабочем столе елки и гирлянды. Также вы можете слушать каждый час праздничную мелодию.
-Xmas snow имеет удобный интерфейс, настройки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2021Разработчик: Maksym KatrychПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEF24C826C9E886457A1658C514DB888952F67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494773   (886060) от 09.09.2021
-
-Theine 3.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не позволяйте компьютеру Mac заснуть, затемнению экрана или запуску заставки. Theine не дает уснуть macOS, как кофеин внутри вас.Тип издания: macOS SoftwareРелиз состоялся: 07.09.2020Разработчик: IXEAU UG (haftungsbeschraenkt)Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FBA3C56B33C9BC778A2F8ACA7691EB7480E3B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Fileloupe - Media Browser 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781927.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Living Weather & Wallpapers HD 4.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781426.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Malwarebytes for Mac Premium 3.2.35 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781212.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ RoboDB MySQL Database Manager 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779959.jpg" />
+  <img src="Z:/picture/008/save_picture_779959.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Yummy FTP Alias 2.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778367.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Digital Clock 3D 1.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777781.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Forecast 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776930.jpg" />
+  <img src="Z:/picture/008/save_picture_776930.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ App Uninstaller 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776509.jpg" />
+  <img src="Z:/picture/008/save_picture_776509.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ PhoneExpander 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776371.jpg" />
+  <img src="Z:/picture/008/save_picture_776371.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mojave Cache Cleaner 12.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774225.jpg" />
+  <img src="Z:/picture/008/save_picture_774225.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aquarium 4K - Live Wallpaper 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774217.jpg" />
+  <img src="Z:/picture/008/save_picture_774217.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Jetico BestCrypt 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774050.jpg" />
+  <img src="Z:/picture/008/save_picture_774050.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cabinet - Quick access for your photos 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772981.jpg" />
+  <img src="Z:/picture/008/save_picture_772981.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ iStatistica 1.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771482.jpg" />
+  <img src="Z:/picture/008/save_picture_771482.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Tooth Fairy 2.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770687.jpg" />
+  <img src="Z:/picture/008/save_picture_770687.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ OS X Server 4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769596.jpg" />
+  <img src="Z:/picture/008/save_picture_769596.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ iClipboard 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769539.jpg" />
+  <img src="Z:/picture/008/save_picture_769539.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Periscope Pro 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769532.jpg" />
+  <img src="Z:/picture/008/save_picture_769532.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wondershare Dr.Fone for iOS 7.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769438.jpg" />
+  <img src="Z:/picture/008/save_picture_769438.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ UninstallPKG 1.1.7 (build 1343) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769370.jpg" />
+  <img src="Z:/picture/008/save_picture_769370.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Dr. Cleaner Pro 1.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768681.jpg" />
+  <img src="Z:/picture/008/save_picture_768681.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Trim Enabler Pro 3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767893.jpg" />
+  <img src="Z:/picture/008/save_picture_767893.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WindowMizer 5 v5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767842.jpg" />
+  <img src="Z:/picture/008/save_picture_767842.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Yummy FTP Pro 2.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765714.jpg" />
+  <img src="Z:/picture/008/save_picture_765714.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ TunesKit iPhone Data Recovery 2.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765326.jpg" />
+  <img src="Z:/picture/008/save_picture_765326.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Lingon X 4.3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764616.jpg" />
+  <img src="Z:/picture/008/save_picture_764616.jpg" />
 </div>
 
 

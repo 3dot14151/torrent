@@ -1,3 +1,84 @@
+###  Публикация: 967254   (158448) от 21.12.2015
+
+ЛИГАЛАЙЗ - КАРАВАН (feat. Андрей Гризли, Ika & Art Force Crew) (2015) WEBRip[H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэпер Лигалайз, который намерен выпустить первый альбом после десятилетнего перерыва, опубликовал  живописное новое видео «Караван», где главным образом манифестируется собственно его возвращение.Производство: Россия, StarProЖанр: Русский РэпРежиссер: Константин ЧерепковПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582985   (157545) от 13.12.2012
+
+Птаха aka Зануда - Видеография (2008-2011) WebRip, DvdRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rap, Hip-Hop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CF88BE1FECBE7042DA4A3948B7450CB8FA9B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588769   (157346) от 13.12.2012
+
+Top Of The Pops 70s (vol.2) (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slade - Mama Weer All Crazee Now 3:30
+02. Slade - My Baby Left Me (That's All Right) 2:21
+03. Smokey Robinson - Theme From Big Time 2:32
+04. Smokie - Needles And Pins 2:01(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588767   (157289) от 13.12.2012
 
 Top Of The Pops 70s (vol.1) (2008) DVDRip
@@ -6,7 +87,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157289.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157090.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156220.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155074.jpg" />
 </div>
 
 
@@ -144,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153164.jpg" />
 </div>
 
 
@@ -173,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152776.jpg" />
 </div>
 
 
@@ -199,7 +280,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152540.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152049.jpg" />
 </div>
 
 
@@ -257,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149098.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148699.jpg" />
 </div>
 
 
@@ -312,7 +393,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148345.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147959.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147953.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147922.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145936.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143520.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143253.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142579.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140438.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139921.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139841.jpg" />
 </div>
 
 
@@ -623,7 +704,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139775.jpg" />
 </div>
 
 
@@ -634,96 +715,6 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C363A637F201FFB30F86F6B72FAEF853E022803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273092   (138692) от 30.12.2018
-
-Сборник клипов - Philizz "Video Yearmix" (2018) WEB-DLRip [H.264/1080p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Video Yearmix 2018" - фирменный видеомикс от голландского ви-джея Philizz. Почти два часа музыки, 235 музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Добро пожаловать в мир лучшей танцевальной музыки 2018 года!
-- Разбивка по трекам отсутствует.PART 1
-Avril Lavigne – Head Above Water
-Camila Cabello – Never Be The Same
-David Guetta ft. Anne-Marie – Don’t Leave Me Alone(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтключаемыеПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141D4D6BA891CB60EF72AC6D31BC0874E574CEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970371   (138069) от 31.12.2015
-
-VA - Зимний марафон № 216: Новогодний Фейерверк (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (29.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
-P/S: Добавлены новинки с Новогодними клипами.01. Akcent ft. Sandra N - Amor Gitana (Official Video) (00:03:02)
-02. Ariana Grande - Focus (Live AMA 2015) (Official Video) (00:03:35)
-03. Diana Gloster - Buona Sera (Official Video) (00:03:10)
-04. Дуэт Свои и Прохор Шаляпин - Зима (Новогодний клип!) (00:03:46)(   Читать дальше...   )Жанр: Pop, Dance, Latino, ReggaetonПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349121   (137734) от 31.12.2019
-
-Сборник клипов - Philizz "Video Yearmix" (2019) WEB-DLRip [H.264/1080p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Video Yearmix 2019" - фирменный видеомикс от голландского ви-джея Philizz. Два часа музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Мир лучшей танцевальной музыки 2019 года ждёт Вас! Приятного просмотра!
-- Разбивка по трекам отсутствует.Lil Nas X ft. Billy Ray Cyrus – Old Town Road
-Halsey – Without Me
-Why Don’t We – Big Plans
-Ellie Goulding ft. Juice WRLD – Hate Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтсутствуютПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

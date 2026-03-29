@@ -1,3 +1,109 @@
+###  Публикация: 1596793   (169192) от 11.12.2022
+
+Rectangle Pro 2.7.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: © 2022 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5546A9B816A26C62702C3D71C671AC2D3A00AA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596705   (169187) от 11.12.2022
+
+PopClip 2022.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169187.jpg" />
+</div>
+
+
+###  Подробнее
+
+PopClip предлагает достаточно удобный способ работы с текстом в Mac OS X – такой же, как в iOS. Помимо копирования, вырезания и вставки, приложение позволяет выполнять быстрый поиск в Интернете, открывать ссылки и почтовые адреса в тексте, искать определения в словаре и даже исправлять неправильно написанные слова.
+PopClip появляется на экране при выделении мышью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2022Разработчик: © 2021 Nicholas MooreПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6503F84C665015E219D99D1ECEFADF1C55AA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344847   (169161) от 12.12.2019
+
+FoldersSynchronizer 5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синхронизация или резервное копирование файлов, папок и дисков.
+FoldersSynchronizer - популярная и полезная утилита, которая синхронизирует и резервирует файлы, папки, диски и загрузочные диски. В каждом сеансе вы можете применять специальные параметры, такие как таймеры, несколько папок, фильтры, исключать элементы, автоматически монтировать локальные и удаленные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SoftobeПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF69ED4B0E21157EC6563830CF3458A9BC5D7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344712   (169135) от 12.12.2019
+
+iPulse 3 v3.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря настраиваемым датчикам iPulse пользователь сможет следить за нагрузкой на ЦП, использованием оперативной памяти, свободным местом на жестких дисках, сетевой активностью и другими показателями системы. Однако, в отличие от других аналогичных приложений iPulse занимает совсем немного мест.Тип издания: macOS SoftwareРелиз состоялся: 06.12.3019Разработчик: The IconfactoryПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABE76AF98942348C6CC00685BE23263EC84C00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596789   (169123) от 11.12.2022
 
 Grids for Instagram 8.2.4 [Multi/Ru]
@@ -6,7 +112,7 @@ Grids for Instagram 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169123.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ DxO ViewPoint 4 v.4.1.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169109.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Hookshot 1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169098.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Debut Professional 6.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169094.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ SyncBird Pro 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169088.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Alarm Clock Pro 13 v13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169084.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ MacCleanse 9.0.4 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169082.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ iShowU Studio 2 v2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169077.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Display Maestro 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169074.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Charles Web Debugging Proxy 4.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169068.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169066.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169062.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ Artlantis 2019 v8.0.2.21219 RedSDK [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169060.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ calibre 5 v5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169052.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ WidsMob Panorama 3.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169049.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169031.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ BetterTouchTool 3 v3.213 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169024.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 26) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169020.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ Live Home 3D Pro Edition 4.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168988.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ DxO PureRAW 2 for Mac v.2.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168908.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ Adobe Audition 2020 13.0.1.35 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168823.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ Adobe Bridge 2020 10.0.1.126 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168816.jpg" />
 </div>
 
 
@@ -576,110 +682,6 @@ Adobe Bridge предоставит вам централизованный до
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DEC11FFE8F491F95FCF62E1D85812B3B7776A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344724   (168785) от 12.12.2019
-
-Adobe Animate 2020 20.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate CC 2020, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate CC также (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E38EEC9029E3BCF8C3631B75D59489C78BC08E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515747   (168748) от 08.12.2021
-
-Caato Time Tracker Pro 1.1.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 CS Software Consultancy LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C473C04E23A8C5894B1C9967E4E80E775351F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515735   (168744) от 08.12.2021
-
-Keep It 1.11.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и  Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54DD622CF97F1A1D1EF1A508587E34B5FE28EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515744   (168707) от 08.12.2021
-
-uDock 2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168707.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA234F40CDA8DADA5C23E0AF469315E8E4E8F0D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

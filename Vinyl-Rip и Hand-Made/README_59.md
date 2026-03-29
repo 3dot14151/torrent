@@ -1,3 +1,235 @@
+###  Публикация: 1271128   (149848) от 23.12.2018
+
+Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. I Still Believe (The Kings Mix)
+02. Honey (Classic Mix)
+03. When You Believe (Featuring – Whitney Houston)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271279   (149756) от 23.12.2018
+
+Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. School (5:33)
+02. Bloody Well Right (4:30)
+03. Hide In Your Shell (6:44)
+04. Asylum (6:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677924   (149430) от 19.11.2023
+
+Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warfect - трэш-метал группа из Швеции, основана в 2008 г.2009 - Depicting the Macabre
+2013 - Exoneration Denied
+2016 - Scavengers
+2020 - Spectre Of DevastationЖанр: Thrash MetalПродолжительность: 03:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434719   (149216) от 25.12.2020
+
+VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+M3U|MC-Rip] <Pop, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martina McBride - The Christmas Song (Chestnuts Roasting on an Open Fire)
+White Christmas
+1999 - RCA - Torme / Wells
+02. Gene Autry - Here Comes Santa Claus(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271655   (148732) от 24.12.2018
+
+Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148732.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heittopussi
+A2 Sarkijarven Bolero
+A3 Vauhdin Maailma
+A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271697   (148714) от 24.12.2018
+
+Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148714.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Johnny Come Home
+A2 Couldn't Care More
+A3 Don't Ask Me To Choose
+A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271681   (148620) от 24.12.2018
+
+Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Rock'n'Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Face A:
+01. Devil Woman
+02. The Young Ones
+03. Do You Wanna Dance(   Читать дальше...   )Жанр: Classic Rock, Rock'n'RollПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347940   (147033) от 25.12.2019
+
+Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Mood (3:47)
+ 02. All My Love (3:38)
+ 03. The Best Thing (4:52)
+ 04. Bad Love (4:08)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4906B6B28BC294F3D4AC245E5913003C0C6E0BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087489   (146511) от 27.12.2016
 
 Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -6,7 +238,7 @@ Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146511.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146130.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146041.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145212.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144425.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141809.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141802.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141592.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141203.jpg" />
 </div>
 
 
@@ -418,7 +650,7 @@ Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140982.jpg" />
 </div>
 
 
@@ -447,7 +679,7 @@ Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entert
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140599.jpg" />
 </div>
 
 
@@ -476,7 +708,7 @@ VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140587.jpg" />
 </div>
 
 
@@ -505,7 +737,7 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140396.jpg" />
 </div>
 
 
@@ -519,237 +751,6 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678561   (139726) от 24.11.2023
-
-КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139726.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:16] 1. Атаман
-[4:16] 2. Атаман (Karaoke)
-[3:01] 3. Атаман (Acoustic version 1990)Жанр: RockПродолжительность: 00:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436084   (139412) от 30.12.2020
-
-Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
-A1 Girls, Girls, Girls
-A2 Save Your Kisses For Me
-A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273047   (138945) от 30.12.2018
-
-VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Хоралов - А снег рисует...
-02. Л. Долина - Страна Лимония
-03. И. Саруханов - Падал снег
-04. Группа "НРГ" - Время зовет меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436103   (138880) от 30.12.2020
-
-VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+m3u|MC-Rip] <Pop, Traditional>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Gene Autry - Rudolph the Red-Nosed Reindeer
-Ultimate Christmas, Vol. 1
-1994 compilation - Collectables - Marks(   Читать дальше...   )Жанр: Pop, TraditionalПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679464   (138537) от 25.11.2023
-
-Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138537.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pyramid Of Terror
-A2 I Am The Freak
-A3 Secrets Of Time
-A4 Master Of The Deep(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1486F1F1ADA50A18A99DE57232FB9633CF3BA5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679363   (138112) от 25.11.2023
-
-Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138112.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 True Love
-A2 Ramblin' Rose
-A3 I Love You Because
-A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088514   (138074) от 31.12.2016
-
-John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138074.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. (Just Like) Starting Over (3:57)
-A2. Kiss Kiss Kiss (2:43)
-A3. Clean Up Time (2:59)
-A4. Give Me Something (1:35)(   Читать дальше...   )Производство: Geffen Records - GHS 2001Жанр: RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349159   (137949) от 31.12.2019
-
-Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jitterbug Waltz (5:21)
- 02. Nuages (2:26)
- 03. A Night in Tunisia (5:55)
- 04. Blue and Sentimental (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

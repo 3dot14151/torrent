@@ -1,3 +1,55 @@
+###  Публикация: 1102310   (877694) от 16.02.2017
+
+Величайшие мистификации в истории / History's Greatest Hoaxes (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) [обновляемая]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_877694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал, который рассказывает истории величайших мистификаций в мире глазами людей, которые их придумали и тех, которые разоблачили их.Телекомпания: ВеликобританияЖанр: Документальный, разоблачения, исследованиеПеревод: ДублированныйПродолжительность: 6 х ~ 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388D43690BE9EA635E9F4512CFA94CA975739822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996978   (877411) от 15.03.2016
+
+Самые шокирующие гипотезы. Засуньте эту диету  (15.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_877411.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )В этом выпуске: Почему сорок лет это предел человеческой жизни. Зачем распространяется ложь, а пользе правильного питания. Как жир продлит нашу жизньТелекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB87F0E2A2138E489057B81A5DB18E8BA19FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997308   (875587) от 16.03.2016
 
 Самые шокирующие гипотезы.  Кому не снится в ночь глухую? (16.03.2016) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875587.jpg" />
+  <img src="Z:/picture/005/save_picture_875587.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875043.jpg" />
+  <img src="Z:/picture/005/save_picture_875043.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875021.jpg" />
+  <img src="Z:/picture/005/save_picture_875021.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873361.jpg" />
+  <img src="Z:/picture/008/save_picture_873361.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_872393.jpg" />
+  <img src="Z:/picture/009/save_picture_872393.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870375.jpg" />
+  <img src="Z:/picture/008/save_picture_870375.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870268.jpg" />
+  <img src="Z:/picture/008/save_picture_870268.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870208.jpg" />
+  <img src="Z:/picture/008/save_picture_870208.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870199.jpg" />
+  <img src="Z:/picture/008/save_picture_870199.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869974.jpg" />
+  <img src="Z:/picture/008/save_picture_869974.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866601.jpg" />
+  <img src="Z:/picture/008/save_picture_866601.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865209.jpg" />
+  <img src="Z:/picture/008/save_picture_865209.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864627.jpg" />
+  <img src="Z:/picture/008/save_picture_864627.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864545.jpg" />
+  <img src="Z:/picture/008/save_picture_864545.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863009.jpg" />
+  <img src="Z:/picture/008/save_picture_863009.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862951.jpg" />
+  <img src="Z:/picture/008/save_picture_862951.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862920.jpg" />
+  <img src="Z:/picture/008/save_picture_862920.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860811.jpg" />
+  <img src="Z:/picture/008/save_picture_860811.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860810.jpg" />
+  <img src="Z:/picture/008/save_picture_860810.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860671.jpg" />
+  <img src="Z:/picture/008/save_picture_860671.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857504.jpg" />
+  <img src="Z:/picture/008/save_picture_857504.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853875.jpg" />
+  <img src="Z:/picture/008/save_picture_853875.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853857.jpg" />
+  <img src="Z:/picture/008/save_picture_853857.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852325.jpg" />
+  <img src="Z:/picture/008/save_picture_852325.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:349C14371FD506DA2F5195C094CE2899EACC08BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001665   (852181) от 29.03.2016
-
-Самые шокирующие гипотезы. Зачем нас этим кормят?  (29.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852181.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйРежиссер: Артемий ГринчевскийПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F822F8EB5509E505BD88BBBFBFCDF300E4232EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111090   (850369) от 04.03.2017
-
-Территория заблуждений с Игорем Прокопенко (2017.03.04) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A3C1EAAA528C3B8F01FDF660B4F4286195BC55
 ```
 
 https://mybot314.ru/tekegram_catalog/

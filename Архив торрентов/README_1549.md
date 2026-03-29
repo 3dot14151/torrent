@@ -6,7 +6,7 @@ DriverEasy Professional 5.0.6.36122 RePack (& Portable) by TryRooM [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700070.jpg" />
+  <img src="Z:/picture/008/save_picture_700070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Download Master 6.9.1.1517 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700068.jpg" />
+  <img src="Z:/picture/008/save_picture_700068.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EssentialPIM Pro 7.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700067.jpg" />
+  <img src="Z:/picture/008/save_picture_700067.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SQLPro Studio 2020.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700055.jpg" />
+  <img src="Z:/picture/008/save_picture_700055.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 04.2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700041.jpg" />
+  <img src="Z:/picture/008/save_picture_700041.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ZD Soft Screen Recorder 9.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699965.jpg" />
+  <img src="Z:/picture/008/save_picture_699965.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ IObit Smart Defrag Pro 5.1.0.788 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699964.jpg" />
+  <img src="Z:/picture/008/save_picture_699964.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Ashampoo WinOptimizer 14.00.01 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699962.jpg" />
+  <img src="Z:/picture/008/save_picture_699962.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AIMP 4.02 build 1725 DC 17.06.2016 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699958.jpg" />
+  <img src="Z:/picture/008/save_picture_699958.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VirtualBox 5.0.22 r108108 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699957.jpg" />
+  <img src="Z:/picture/008/save_picture_699957.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Movavi Video Converter 6.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699954.jpg" />
+  <img src="Z:/picture/008/save_picture_699954.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Antivirus Zap Pro 3.10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699933.jpg" />
+  <img src="Z:/picture/008/save_picture_699933.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699927.jpg" />
+  <img src="Z:/picture/008/save_picture_699927.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Freemake Video Converter 4.1.11.63 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699926.jpg" />
+  <img src="Z:/picture/008/save_picture_699926.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ A Better Finder Rename 10 v10.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699869.jpg" />
+  <img src="Z:/picture/008/save_picture_699869.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Symbion Project - Backscatter (2019) Speed Of Dark Music [FLAC|Lossless|WEB-DL|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699865.jpg" />
+  <img src="Z:/picture/008/save_picture_699865.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Skype 7.25.32.103 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699852.jpg" />
+  <img src="Z:/picture/008/save_picture_699852.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ GridinSoft Anti-Malware 3.0.40 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699849.jpg" />
+  <img src="Z:/picture/008/save_picture_699849.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Viber 6.1.0.1623 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699845.jpg" />
+  <img src="Z:/picture/008/save_picture_699845.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ HD Video Converter Movavi 3.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699840.jpg" />
+  <img src="Z:/picture/008/save_picture_699840.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Disk Xray 2.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699832.jpg" />
+  <img src="Z:/picture/008/save_picture_699832.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ iVI Video Converter 4 v4.726 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699830.jpg" />
+  <img src="Z:/picture/008/save_picture_699830.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ PopChar X 8.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699826.jpg" />
+  <img src="Z:/picture/008/save_picture_699826.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ RadioMaximus 2.28.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699821.jpg" />
+  <img src="Z:/picture/008/save_picture_699821.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Q-Dir 8.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699816.jpg" />
+  <img src="Z:/picture/008/save_picture_699816.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Photo Supreme 4.3.3.1990 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699771.jpg" />
+  <img src="Z:/picture/008/save_picture_699771.jpg" />
 </div>
 
 

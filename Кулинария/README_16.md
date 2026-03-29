@@ -1,3 +1,31 @@
+###  Публикация: 1110537   (851958) от 03.03.2017
+
+Новейшая поварская книга. Наставление к приготовлению более 400 обедов, питательных, вкусных и здоровых (1909) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кухня — это лаборатория человеческого здоровья. В этой лаборатории приготовляется усвояемая организмом пища, необходимая как для пополнения его потерь, так и для поддержания его жизнедеятельности.
+И суть дела важна не только в том, чтобы уметь готовить, а в том, чтобы понимать, как и для кого готовить.
+Руководясь поваренной книгой и применяясь к условиям своей жизни, (   Читать дальше...   )Жанр: Кулинария, РаритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16674464C1E11BD63C1909A6B0EF069DC52EB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110547   (851857) от 03.03.2017
 
 Е. Новикова | Новая поваренная книга. Полнейшее руководство к изучению поварского искусства. Подарок молодым хозяйкам (1889) [PDF]
@@ -6,7 +34,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851857.jpg" />
+  <img src="Z:/picture/008/save_picture_851857.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851854.jpg" />
+  <img src="Z:/picture/008/save_picture_851854.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851845.jpg" />
+  <img src="Z:/picture/008/save_picture_851845.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850522.jpg" />
+  <img src="Z:/picture/008/save_picture_850522.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850279.jpg" />
+  <img src="Z:/picture/008/save_picture_850279.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850251.jpg" />
+  <img src="Z:/picture/008/save_picture_850251.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850249.jpg" />
+  <img src="Z:/picture/008/save_picture_850249.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850246.jpg" />
+  <img src="Z:/picture/008/save_picture_850246.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850241.jpg" />
+  <img src="Z:/picture/008/save_picture_850241.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850197.jpg" />
+  <img src="Z:/picture/008/save_picture_850197.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850194.jpg" />
+  <img src="Z:/picture/008/save_picture_850194.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850187.jpg" />
+  <img src="Z:/picture/008/save_picture_850187.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850186.jpg" />
+  <img src="Z:/picture/008/save_picture_850186.jpg" />
 </div>
 
 
@@ -356,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850108.jpg" />
+  <img src="Z:/picture/008/save_picture_850108.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849916.jpg" />
+  <img src="Z:/picture/008/save_picture_849916.jpg" />
 </div>
 
 
@@ -410,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849624.jpg" />
+  <img src="Z:/picture/008/save_picture_849624.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848762.jpg" />
+  <img src="Z:/picture/008/save_picture_848762.jpg" />
 </div>
 
 
@@ -462,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848671.jpg" />
+  <img src="Z:/picture/008/save_picture_848671.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848585.jpg" />
+  <img src="Z:/picture/008/save_picture_848585.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848515.jpg" />
+  <img src="Z:/picture/008/save_picture_848515.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848474.jpg" />
+  <img src="Z:/picture/008/save_picture_848474.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848444.jpg" />
+  <img src="Z:/picture/008/save_picture_848444.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848360.jpg" />
+  <img src="Z:/picture/008/save_picture_848360.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848279.jpg" />
+  <img src="Z:/picture/008/save_picture_848279.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848069.jpg" />
+  <img src="Z:/picture/008/save_picture_848069.jpg" />
 </div>
 
 
@@ -656,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5F8E5F421A04B74977C63A042B6BCC1EA7AF02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002653   (846668) от 01.04.2016
-
-Пеллегрино Артузи | Наука приготовления и искусство поглощения пищи (2016) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пеллегрино Артузи - итальянский банкир, увлекавшийся кулинарией и литературой; выпустил книгу в 71 год. За 20 лет, при его жизни, «Наука приготовления и искусство поглощения пищи» была переиздана 14 раз с суммарным тиражом 52 000 экземпляров (невиданные цифры для того времени), при этом каждое переиздание дополнялось новыми рецептами.
-В 1931-м году количество переизданий (   Читать дальше...   )Жанр: Кулинария, здоровое питаниеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23ED1A6315047CE354AF028A0B0EC9A89F09CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

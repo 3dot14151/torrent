@@ -1,3 +1,81 @@
+###  Публикация: 1201343   (792649) от 24.01.2018
+
+Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступает новая пора в духе «стреляй-собирай»! В команде с тремя Охотниками за Хранилищем встретьтесь лицом к лицу с целым миром тварей, психов и злым гением — Красавчиком Джеком. Заводите друзей, снаряжайте их пушками из гигантского арсенала и отправляйтесь с напарниками сражаться плечом к плечу в поисках мести и искупления грехов на неизведанных еще территориях (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox Software, Aspyr (Mac & Linux)Жанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E014A62F0021A272D112F1056156095A5A1B40A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509791   (792557) от 14.11.2021
+
+Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир близок к ядерному апокалипсису, советская сепаратистская группировка захватила контрольную микросхему военного спутника. Это ваша работа - восстановить чип! Оснащенный современным оружием и оборудованием, вы действуете в абсолютной секретности как одинокий волк далеко за пределами линии врага.Тип издания: LicenseРазработчик: Enigma Entertainment, Polygon ArtЖанр: Action (FPS)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83F5114B83E6A1478D0C44E98C90192C97E9556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509837   (792555) от 14.11.2021
+
+E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792555.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли члена странного секретного общества E.Y.E, вы просыпаетесь после сражения, в котором были убиты ваши напарники. E.Y.E — вооруженное подразделение Secreta Secretorum, пытающееся бороться с могущественной Федерацией — коалицией нескольких миров и планет, управляемых жестоким диктатором. Еще больше усложняют обстановку внутренние конфликты в E.Y.E между сторонами (   Читать дальше...   )Тип издания: LicenseРазработчик: Streum On StudioЖанр: Экш, От первого лица, Ролевая, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B22B46971DF4908050A4753B20A18E3A100587C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201525   (791897) от 25.01.2018
 
 Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
@@ -6,7 +84,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791897.jpg" />
+  <img src="Z:/picture/008/save_picture_791897.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Land of Pain (2017) [Multi] (1.03) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791892.jpg" />
+  <img src="Z:/picture/008/save_picture_791892.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791481.jpg" />
+  <img src="Z:/picture/008/save_picture_791481.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791480.jpg" />
+  <img src="Z:/picture/008/save_picture_791480.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791474.jpg" />
+  <img src="Z:/picture/008/save_picture_791474.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Betrayer (2014) [Ru/Multi] (1.9.68.44) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790289.jpg" />
+  <img src="Z:/picture/008/save_picture_790289.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790190.jpg" />
+  <img src="Z:/picture/008/save_picture_790190.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789692.jpg" />
+  <img src="Z:/picture/008/save_picture_789692.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack =nemos= [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789688.jpg" />
+  <img src="Z:/picture/008/save_picture_789688.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/u21) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789274.jpg" />
+  <img src="Z:/picture/008/save_picture_789274.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Gunfire Reborn (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789139.jpg" />
+  <img src="Z:/picture/008/save_picture_789139.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ UAYEB (2018) [En] (3.8.13) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788889.jpg" />
+  <img src="Z:/picture/008/save_picture_788889.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788810.jpg" />
+  <img src="Z:/picture/008/save_picture_788810.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788717.jpg" />
+  <img src="Z:/picture/008/save_picture_788717.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ The Apartment (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788446.jpg" />
+  <img src="Z:/picture/008/save_picture_788446.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787484.jpg" />
+  <img src="Z:/picture/008/save_picture_787484.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786624.jpg" />
+  <img src="Z:/picture/008/save_picture_786624.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786435.jpg" />
+  <img src="Z:/picture/008/save_picture_786435.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Blackwood Crossing (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786254.jpg" />
+  <img src="Z:/picture/008/save_picture_786254.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Star Wars: Battlefront 2 / Star Wars: Battlefront II (2005) [Multi] (1.1) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785997.jpg" />
+  <img src="Z:/picture/008/save_picture_785997.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Blackwood Crossing (2017) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785710.jpg" />
+  <img src="Z:/picture/008/save_picture_785710.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785688.jpg" />
+  <img src="Z:/picture/008/save_picture_785688.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785499.jpg" />
+  <img src="Z:/picture/008/save_picture_785499.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13AC03D5C2D0106686CFDC7189FC4112D4714B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277387   (785284) от 20.01.2019
-
-Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная по мотивам любимых тем загадочных постапокалиптических вселенных, игра Burden кинет тебя прямо в самый центр одного из таких миров, полного загадок и тайн, а также постоянных угроз и экшена. В Burden каждый прожитый день – это не просто приключение, которое может привести к любому исходу, а вызов, бросаемый судьбе. От обогащения добычей и нахождения таинственных (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Book DevelopmentЖанр: Adventure, Action, 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093545BA6B232DF26DA4EF40C5D66F779AE612F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171863   (785240) от 20.01.2019
-
-Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры Dishonored 2 разворачивается спустя пятнадцать лет после победы над лордом-регентом и избавления от ужасной крысиной чумы. Необычный враг отнял трон у императрицы Эмили Колдуин, и мрачная тень злого рока нависла над Островами.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B061BEA577DB33C639703CA60FE0257F1B4A900A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330294   (784691) от 09.06.2020
-
-Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784691.jpg" />
-</div>
-
-
-###  Подробнее
-
-В KILLING FLOOR 2 игроки окажутся в континентальной Европе, где вспышка болезни, вызванная неудачным экспериментом компании Horzine Biotech, быстро распространяется и принимает невероятный масштаб, парализуя Европейский Союз. Всего спустя месяц после заключительных событий в KILLING FLOOR, образцовые клоны заполонили все и цивилизация погружается в кризис.Тип издания: SteamRipРазработчик: Tripwire InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC19B1E3782A31539E3069FAE31039B05E3AA561
 ```
 
 https://mybot314.ru/tekegram_catalog/

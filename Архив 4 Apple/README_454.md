@@ -1,3 +1,115 @@
+###  Публикация: 1078235   (301781) от 30.11.2016
+
+VMware Fusion Pro 8.5.3 (4696910) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301781.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
+
+VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D3FE365596FCD3F0508277D12B9778A447A305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078247   (301678) от 30.11.2016
+
+Apple Final Cut Pro X 10.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+
+В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.11.4 +Язык интерфейса: Английский, Китайский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D7F2AF93A54D47490E550651281A1E88BB6215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333792   (301593) от 26.10.2019
+
+Cisdem AppCrypt 4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистский и простой в использовании инструмент безопасности Mac OS X, который позволяет защитить любое приложение с помощью мастер-пароля, который потребуется при каждом запуске.
+
+Cisdem AppCrypt  - несложная  утилита, которая дает Вам возможность блокировать доступ к определенным приложениям, установленных на вашем компьютере. Cisdem AppCrypt может оказаться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E64895223AD637CED145EF2936DF50DF343E02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333824   (301592) от 26.10.2019
+
+GrandTotal 5 v5.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301592.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.9.+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE0C22FD1E167D0838A9E5112A768FE6EB25F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333756   (301584) от 26.10.2019
 
 DMG Canvas 3.0.6 [En]
@@ -6,7 +118,7 @@ DMG Canvas 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301584.jpg" />
+  <img src="Z:/picture/008/save_picture_301584.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ iExplorer 4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301509.jpg" />
+  <img src="Z:/picture/008/save_picture_301509.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ Micromat Drive Scope 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301456.jpg" />
+  <img src="Z:/picture/008/save_picture_301456.jpg" />
 </div>
 
 
@@ -86,7 +198,7 @@ Araxis Merge Pro Edition 2019.5249 for macOS 10.13–10.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301440.jpg" />
+  <img src="Z:/picture/008/save_picture_301440.jpg" />
 </div>
 
 
@@ -114,7 +226,7 @@ DjVu Reader Pro 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301343.jpg" />
+  <img src="Z:/picture/008/save_picture_301343.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ Beamer 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301332.jpg" />
+  <img src="Z:/picture/008/save_picture_301332.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ Rumpus PRO 8.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301331.jpg" />
+  <img src="Z:/picture/008/save_picture_301331.jpg" />
 </div>
 
 
@@ -197,7 +309,7 @@ Algoriddim djay Pro (Complete FX Pack) 1.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301289.jpg" />
+  <img src="Z:/picture/008/save_picture_301289.jpg" />
 </div>
 
 
@@ -224,7 +336,7 @@ Audirvana Plus 3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301284.jpg" />
+  <img src="Z:/picture/008/save_picture_301284.jpg" />
 </div>
 
 
@@ -251,7 +363,7 @@ Privatus 6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301268.jpg" />
+  <img src="Z:/picture/008/save_picture_301268.jpg" />
 </div>
 
 
@@ -277,7 +389,7 @@ LuLu 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301247.jpg" />
+  <img src="Z:/picture/008/save_picture_301247.jpg" />
 </div>
 
 
@@ -303,7 +415,7 @@ Luminar 2018 v1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301161.jpg" />
+  <img src="Z:/picture/008/save_picture_301161.jpg" />
 </div>
 
 
@@ -331,7 +443,7 @@ TechSmith Snagit 2018.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301084.jpg" />
+  <img src="Z:/picture/008/save_picture_301084.jpg" />
 </div>
 
 
@@ -357,7 +469,7 @@ Color Finale Pro 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300981.jpg" />
+  <img src="Z:/picture/008/save_picture_300981.jpg" />
 </div>
 
 
@@ -383,7 +495,7 @@ SnapNDrag Pro 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300875.jpg" />
+  <img src="Z:/picture/008/save_picture_300875.jpg" />
 </div>
 
 
@@ -412,7 +524,7 @@ Business Mix for Pages 3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300874.jpg" />
+  <img src="Z:/picture/008/save_picture_300874.jpg" />
 </div>
 
 
@@ -441,7 +553,7 @@ Elmedia Video Player Pro 6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300867.jpg" />
+  <img src="Z:/picture/008/save_picture_300867.jpg" />
 </div>
 
 
@@ -469,7 +581,7 @@ Email Archiver Enterprise 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300850.jpg" />
+  <img src="Z:/picture/008/save_picture_300850.jpg" />
 </div>
 
 
@@ -497,7 +609,7 @@ DaVinci Resolve Studio 14.1+ easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300830.jpg" />
+  <img src="Z:/picture/008/save_picture_300830.jpg" />
 </div>
 
 
@@ -526,7 +638,7 @@ A Better Finder Attributes 7 v7.04b03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300761.jpg" />
+  <img src="Z:/picture/008/save_picture_300761.jpg" />
 </div>
 
 
@@ -552,7 +664,7 @@ PhotoSweeper X 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300758.jpg" />
+  <img src="Z:/picture/008/save_picture_300758.jpg" />
 </div>
 
 
@@ -579,7 +691,7 @@ Piezo 1.6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300757.jpg" />
+  <img src="Z:/picture/008/save_picture_300757.jpg" />
 </div>
 
 
@@ -593,112 +705,6 @@ Piezo не требует никаких настроек, достаточно 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7994CA10664F8E5023746322D7AB9467AC4E54ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423669   (300752) от 13.11.2020
-
-Screen Snapshot 4.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300752.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSnapshot - это эффективный и простой инструмент для создания снимков экрана, который объединяет управление снимками, комментарии и редактирование. Это позволяет вам быстро создавать различные программные инструкции и учебные пособия.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626CC718B1328B4D43F7FACB5CA08F235CE57336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078425   (300710) от 01.12.2016
-
-Infographics for Pages 3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое Инфографика (Infographics)?
-Справочная иллюстрированная информация, представленная в виде диаграмм, таблиц и графиков. Известно что присутствие инфографики в какой-либо публикации сильно влияет на ее заметность и повышает качество материалов. В бизнесе инфографика может использоваться менеджерами и маркетологами в тех случаях, когда им необходимо представить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 ноября 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F5282E37A0FFDB21B65A407A25993FBD4D73C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078417   (300709) от 01.12.2016
-
-Layouts for Keynote 3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Layouts for Keynote представляет собой набор из 79 тем, созданных для уникальных слайд-шоу с помощью команды разработчиков Jumsoft.  Каждая тема содержит, по меньшей мере, 20 мастер-слайдов, охватывающих все, начиная от основных макетов до сложных диаграмм и иллюстраций. Все фото слайды имеют медиа-заполнители  и большинство элементов визуализации можно легко редактировать. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BF8959C11C0DE769FFA1081DFADA5F9E3CAB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078513   (300707) от 01.12.2016
-
-Typinator 7.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typinator – упрощаем работу с текстом
-Работая за компьютером, пользователь многократно выполняет одну и ту же работу, порой и сам того не замечая. Особенно часто приходится делать повторные действия при наборе обычного текста. Так, например, если сотрудник фирмы общается с клиентами через Интернет, ему необходимо каждый раз использовать шаблонный текст – писать адрес (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F295EDAED0F14365396BBF78D9B55CB6B272067
 ```
 
 https://mybot314.ru/tekegram_catalog/

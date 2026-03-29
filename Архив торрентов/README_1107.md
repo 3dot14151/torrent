@@ -6,7 +6,7 @@ dBpoweramp Image Converter 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796338.jpg" />
+  <img src="Z:/picture/008/save_picture_796338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SQLPro Studio 2021.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796335.jpg" />
+  <img src="Z:/picture/008/save_picture_796335.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CoolUtils Total Excel Converter 5.1.0.245 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796334.jpg" />
+  <img src="Z:/picture/008/save_picture_796334.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Swift Publisher 5 v5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796333.jpg" />
+  <img src="Z:/picture/008/save_picture_796333.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dash 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796330.jpg" />
+  <img src="Z:/picture/008/save_picture_796330.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alfred 4 Powerpack 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796324.jpg" />
+  <img src="Z:/picture/008/save_picture_796324.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796323.jpg" />
+  <img src="Z:/picture/008/save_picture_796323.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796318.jpg" />
+  <img src="Z:/picture/008/save_picture_796318.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796312.jpg" />
+  <img src="Z:/picture/008/save_picture_796312.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TheAeroClock 3.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796299.jpg" />
+  <img src="Z:/picture/008/save_picture_796299.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Maduk - Never Give Up (2016) LP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796295.jpg" />
+  <img src="Z:/picture/008/save_picture_796295.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796291.jpg" />
+  <img src="Z:/picture/008/save_picture_796291.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Multitouch 1.25.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796288.jpg" />
+  <img src="Z:/picture/008/save_picture_796288.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WiFi Explorer Pro 3 v3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796273.jpg" />
+  <img src="Z:/picture/008/save_picture_796273.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AnyGo 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796272.jpg" />
+  <img src="Z:/picture/008/save_picture_796272.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Torch Browser 60.0.0.1508 Portable by thumbapps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796263.jpg" />
+  <img src="Z:/picture/008/save_picture_796263.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796258.jpg" />
+  <img src="Z:/picture/008/save_picture_796258.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Coolmuster Android Assistant 4.1.27 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796256.jpg" />
+  <img src="Z:/picture/008/save_picture_796256.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Download Master 6.15.1.1587 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796250.jpg" />
+  <img src="Z:/picture/008/save_picture_796250.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Skype 7.23.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796236.jpg" />
+  <img src="Z:/picture/008/save_picture_796236.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Rhinoceros 7 v7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796228.jpg" />
+  <img src="Z:/picture/008/save_picture_796228.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Replay Media Catcher 6.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796225.jpg" />
+  <img src="Z:/picture/008/save_picture_796225.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Vivaldi 4.3.2439.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796222.jpg" />
+  <img src="Z:/picture/008/save_picture_796222.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ K-Lite Codec Pack Update 16.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796221.jpg" />
+  <img src="Z:/picture/008/save_picture_796221.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AdwCleaner 5.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796212.jpg" />
+  <img src="Z:/picture/008/save_picture_796212.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796210.jpg" />
+  <img src="Z:/picture/008/save_picture_796210.jpg" />
 </div>
 
 

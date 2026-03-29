@@ -7,7 +7,7 @@ Discovery: Сражение динозавров / Clash of the dinosaurs (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049920.jpg" />
+  <img src="Z:/picture/005/save_picture_1049920.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043763.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028634.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026688.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026682.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013450.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013429.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011221.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) HDTV [H.264/1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008646.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery. Золотой прииск Фредди Доджа / Gold Rush: Fred
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007246.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006342.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006100.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery. Битва самогонщиков / Master Distiller (2020) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003013.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996121.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988476.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Выживание в засуху / Surviving The Drought (2008) Blu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984348.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984340.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983583.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981922.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981620.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Discovery: Выжить любой ценой / Ultimate survival (2006-2011) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980456.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Discovery: Дикая кухня / Kings of the Wild (2015) HDTVRip (сезон 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978745.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976509.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery: 100 Величайших Открытий / Discovery: 100 Greatest D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962804.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Discovery. Река забвения / River of No Return (2019) HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959084.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Discovery. Выжить любой ценой / Ultimate Survival (2006-2011) DV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955223.jpg" />
 </div>
 
 

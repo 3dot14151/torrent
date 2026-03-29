@@ -6,7 +6,7 @@ Allavsoft Video Downloader Converter 3.17.1.7006 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695666.jpg" />
+  <img src="Z:/picture/008/save_picture_695666.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FreeFileSync 10.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695665.jpg" />
+  <img src="Z:/picture/008/save_picture_695665.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DiskDigger 1.20.12.2767 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695654.jpg" />
+  <img src="Z:/picture/008/save_picture_695654.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695652.jpg" />
+  <img src="Z:/picture/008/save_picture_695652.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695646.jpg" />
+  <img src="Z:/picture/008/save_picture_695646.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695645.jpg" />
+  <img src="Z:/picture/008/save_picture_695645.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ StartAllBack 3.3.2.4295 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695637.jpg" />
+  <img src="Z:/picture/008/save_picture_695637.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Loaris Trojan Remover Family 3.2.7.1715 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695635.jpg" />
+  <img src="Z:/picture/008/save_picture_695635.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ UnHackMe 11.91 Build 991 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695573.jpg" />
+  <img src="Z:/picture/008/save_picture_695573.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NIUBI Partition Editor 7.3.6 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695570.jpg" />
+  <img src="Z:/picture/008/save_picture_695570.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Registry First Aid Platinum 11.3.0 Build 2576 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695551.jpg" />
+  <img src="Z:/picture/008/save_picture_695551.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FileMenu Tools 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695546.jpg" />
+  <img src="Z:/picture/008/save_picture_695546.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695536.jpg" />
+  <img src="Z:/picture/008/save_picture_695536.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WinNTSetup 5.2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695533.jpg" />
+  <img src="Z:/picture/008/save_picture_695533.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695518.jpg" />
+  <img src="Z:/picture/008/save_picture_695518.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.527]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695515.jpg" />
+  <img src="Z:/picture/008/save_picture_695515.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ K-Lite Codec Pack Update 11.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695482.jpg" />
+  <img src="Z:/picture/008/save_picture_695482.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ IObit Uninstaller 4.3.0.122 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695473.jpg" />
+  <img src="Z:/picture/008/save_picture_695473.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ USDownloader 1.3.5.9 (08.05.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695464.jpg" />
+  <img src="Z:/picture/008/save_picture_695464.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ WinToHDD 4.4 Professional (Акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695433.jpg" />
+  <img src="Z:/picture/008/save_picture_695433.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695425.jpg" />
+  <img src="Z:/picture/008/save_picture_695425.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ EaseUS Data Recovery Wizard Technician 13.6 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695424.jpg" />
+  <img src="Z:/picture/008/save_picture_695424.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Air Explorer Pro 2.5.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695417.jpg" />
+  <img src="Z:/picture/008/save_picture_695417.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.0.8 Repack by Pooshock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695403.jpg" />
+  <img src="Z:/picture/008/save_picture_695403.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Bandicam 2.2.1.785 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695385.jpg" />
+  <img src="Z:/picture/008/save_picture_695385.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VirtualBox 5.0.0 r100143 Beta 3 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695383.jpg" />
+  <img src="Z:/picture/008/save_picture_695383.jpg" />
 </div>
 
 

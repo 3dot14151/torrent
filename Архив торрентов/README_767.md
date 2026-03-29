@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877675.jpg" />
+  <img src="Z:/picture/005/save_picture_877675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Prolix - Nature Of Reality / Sycophant (2016) [MP3|320 кб/с] <Drum & Bass, Ne
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877674.jpg" />
+  <img src="Z:/picture/005/save_picture_877674.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877666.jpg" />
+  <img src="Z:/picture/005/save_picture_877666.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877665.jpg" />
+  <img src="Z:/picture/005/save_picture_877665.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Neutral Point - Oversiver (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877662.jpg" />
+  <img src="Z:/picture/005/save_picture_877662.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ KCNcrew Pack 03-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877660.jpg" />
+  <img src="Z:/picture/005/save_picture_877660.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877574.jpg" />
+  <img src="Z:/picture/005/save_picture_877574.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Moderat - Live In Berlin XXVII II MMXIV (2016) [FLAC|Lossless|tracks + .cue] <Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877573.jpg" />
+  <img src="Z:/picture/005/save_picture_877573.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Anjunabeats In Miami (2016) [MP3|320 кб/с] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877571.jpg" />
+  <img src="Z:/picture/005/save_picture_877571.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Advanced Modern Mood Music, Vol.2 (2016) [FLAC|Lossless|tracks] <Downtempo,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877567.jpg" />
+  <img src="Z:/picture/005/save_picture_877567.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Adam Ellis - 10 Singles, 39 Remixes, 8 Tracks (2009 - 2016) [MP3|320 кб/с] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877566.jpg" />
+  <img src="Z:/picture/005/save_picture_877566.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877548.jpg" />
+  <img src="Z:/picture/005/save_picture_877548.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877546.jpg" />
+  <img src="Z:/picture/005/save_picture_877546.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877538.jpg" />
+  <img src="Z:/picture/005/save_picture_877538.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Corel VideoStudio Ultimate X10 20.0.0.137 (x64) RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877537.jpg" />
+  <img src="Z:/picture/005/save_picture_877537.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_877513.jpg" />
+  <img src="Z:/picture/009/save_picture_877513.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877471.jpg" />
+  <img src="Z:/picture/005/save_picture_877471.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Opera 78.0.4093.231 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877435.jpg" />
+  <img src="Z:/picture/005/save_picture_877435.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Screenium 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877421.jpg" />
+  <img src="Z:/picture/005/save_picture_877421.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ SSH Shell 16.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877418.jpg" />
+  <img src="Z:/picture/005/save_picture_877418.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Solarstone & Giuseppe Ottaviani pres. PureNRG - Secret of the Sahara (2016) Sing
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877416.jpg" />
+  <img src="Z:/picture/005/save_picture_877416.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877415.jpg" />
+  <img src="Z:/picture/005/save_picture_877415.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Privacy Eraser Free 4.10.5 Build 1875 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877414.jpg" />
+  <img src="Z:/picture/005/save_picture_877414.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Vox 2.7.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877409.jpg" />
+  <img src="Z:/picture/005/save_picture_877409.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Opera 79.0.4143.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877357.jpg" />
+  <img src="Z:/picture/005/save_picture_877357.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Google Chrome 93.0.4577.82 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877354.jpg" />
+  <img src="Z:/picture/005/save_picture_877354.jpg" />
 </div>
 
 

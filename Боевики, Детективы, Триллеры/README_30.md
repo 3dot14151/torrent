@@ -1,3 +1,85 @@
+###  Публикация: 1009454   (809782) от 21.04.2016
+
+Джон Кризи | Инспектор Вест (1997) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре романа из цикла об инспекторе Весте.
+Джон Кризи (1908 - 1973) - один из выдающихся английских мастеров детектива, автор более 600 книг. Один из главных героев Кризи - инспектор Вест - присутствует во многих произведениях писателя. Динамичные, подчас непредсказуемые сюжеты романов, вошедших всборник, будут интересны широкому кругу читателей.Жанр: ДетективПеревод: О. ЮрьеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0FDA558E02EAF313386B619DAA7B2DD85D664A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009362   (809774) от 21.04.2016
+
+Марина Крамер | Судьбу не изменить, или Дамы выбирают кавалеров (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добропорядочная англичанка Мериэнн Силва, в недалеком прошлом – глава крупной криминальной группировки уральского города Марина Коваль по кличке Наковальня, которая считается погибшей, узнает, что ее сводный брат, бывший генерал милиции Дмитрий стал кандидатом на пост мэра в родном городе. Вместе с мужем Женей Хохлом (Джеком Силвой) она решает разобраться, с какой (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD92F64963744AAA50E187EE213BC16A0D7E7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504756   (809738) от 24.10.2021
+
+Котаро Исака | Поезд убийц (2021) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809738.jpg" />
+</div>
+
+
+###  Подробнее
+
+НАЦИОНАЛЬНЫЙ БЕСТСЕЛЛЕР ЯПОНИИ
+ПРОДАНО ОКОЛО 1 000 000 КНИГ
+ОЖИДАЕТСЯ ГРАНДИОЗНАЯ КИНОПРЕМЬЕРА
+ФИЛЬМ ДЭВИДА ЛИТЧА(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABA3E5016BCB2A66D57821CC8B9F4C5E498914F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009441   (809368) от 21.04.2016
 
 Даниил Лектор | Метод (2016) [FB2]
@@ -6,7 +88,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809368.jpg" />
+  <img src="Z:/picture/008/save_picture_809368.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808153.jpg" />
+  <img src="Z:/picture/008/save_picture_808153.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808128.jpg" />
+  <img src="Z:/picture/008/save_picture_808128.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807835.jpg" />
+  <img src="Z:/picture/008/save_picture_807835.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807832.jpg" />
+  <img src="Z:/picture/008/save_picture_807832.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807829.jpg" />
+  <img src="Z:/picture/008/save_picture_807829.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807712.jpg" />
+  <img src="Z:/picture/008/save_picture_807712.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807098.jpg" />
+  <img src="Z:/picture/008/save_picture_807098.jpg" />
 </div>
 
 
@@ -218,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806953.jpg" />
+  <img src="Z:/picture/008/save_picture_806953.jpg" />
 </div>
 
 
@@ -245,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806719.jpg" />
+  <img src="Z:/picture/008/save_picture_806719.jpg" />
 </div>
 
 
@@ -271,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806193.jpg" />
+  <img src="Z:/picture/008/save_picture_806193.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806181.jpg" />
+  <img src="Z:/picture/008/save_picture_806181.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805888.jpg" />
+  <img src="Z:/picture/008/save_picture_805888.jpg" />
 </div>
 
 
@@ -353,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805850.jpg" />
+  <img src="Z:/picture/008/save_picture_805850.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805682.jpg" />
+  <img src="Z:/picture/008/save_picture_805682.jpg" />
 </div>
 
 
@@ -405,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804312.jpg" />
+  <img src="Z:/picture/008/save_picture_804312.jpg" />
 </div>
 
 
@@ -431,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804190.jpg" />
+  <img src="Z:/picture/008/save_picture_804190.jpg" />
 </div>
 
 
@@ -457,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804188.jpg" />
+  <img src="Z:/picture/008/save_picture_804188.jpg" />
 </div>
 
 
@@ -483,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804187.jpg" />
+  <img src="Z:/picture/008/save_picture_804187.jpg" />
 </div>
 
 
@@ -509,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804170.jpg" />
+  <img src="Z:/picture/008/save_picture_804170.jpg" />
 </div>
 
 
@@ -535,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803829.jpg" />
+  <img src="Z:/picture/008/save_picture_803829.jpg" />
 </div>
 
 
@@ -564,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803271.jpg" />
+  <img src="Z:/picture/008/save_picture_803271.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803188.jpg" />
+  <img src="Z:/picture/008/save_picture_803188.jpg" />
 </div>
 
 
@@ -602,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32D09120EAC27D1B013108516B77423016CF437E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120276   (803131) от 30.03.2017
-
-Даниил Веков | Крымская весна. «КВ-9» против танков Манштейна (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна 1942 года. Наши войска на Керченском полуострове готовятся освобождать Крым. Но Манштейн опережает их, нанеся неожиданный и сильный удар. Его цель – разгромить части Красной армии под Керчью, переправиться на Тамань и развивать наступление в направлении нефтяных месторождений Грозного, Моздока и Баку. Но на пути немецкого прорыва встанет «сталинский гигант» (   Читать дальше...   )Жанр: Боевики: ПрочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96035B2EF7358A1A07342177E323EFAA5715B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120287   (803122) от 30.03.2017
-
-Александр Звягинцев | Сармат. Все романы о легендарном майоре спецназа (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803122.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Никарагуа он был известен как капитан сандинистов Хосе Алварес, в Анголе – как лейтенант Санчес, в Мозамбике – как капитан Кригс. На самом же деле этот герой тайных войн, способный выполнить любое, самое невероятное задание командования, – русский майор спецназа Сарматов по прозвищу Сармат. Этот мускулистый высокий человек с лицом, обезображенным шрамами, был не (   Читать дальше...   )Жанр: Боевики: ПрочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434928DBF36C109A45C1B42575DA6A3AEE925762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199040   (802466) от 14.01.2018
-
-Дарья Донцова | Родословная до седьмого полена (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничего себе пердимонокль! Оказывается, рядом с домом любительницы частного сыска Даши Васильевой расположены «графские развалины». Случайно обнаружившая их Даша наткнулась рядом с ними на надгробные плиты и труп молодого мужчины! Конечно, Васильевой к трупам не привыкать! Но это был уже явный перебор, ведь утром того же дня на пороге Дашиного дома скончалась совершенно (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904EC5CDAF6D0FDD37FD67C642D4B12B5B2C34F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

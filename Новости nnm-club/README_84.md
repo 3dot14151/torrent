@@ -1,3 +1,107 @@
+###  Публикация: 1011544   (777018) от 05.05.2016
+
+Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_777018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Аллодах» соединяются два серьезных и хорошо разработанных жанра: ролевая игра и стратегия в реальном времени. Действие в «Аллодах» делится на миссии, между которыми герой поводит время в городе, где можно сходить в магазин (за новым вооружением и заклинаниями), повысить свое боевое умение у опытного наставника и подобрать наемников для очередного задания. Cистема (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Real-time), RPG, Top-downЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DEBF3DBF88E8647B6241F6464CD9025AFEF835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013874   (777014) от 05.05.2016
+
+Adobe Audition CC 2015.1 8.1.0.162 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_777014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F265C0627EA16E9AF76DE0CEDCAE606F6EE272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013792   (777007) от 05.05.2016
+
+Avira Antivirus Pro 15.0.17.273 Final RePack by Alker [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_777007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avira Antivirus Pro - простой, легкий и надежный антивирус. Включает комплексную защиту от вирусов, кражи личных данных и финансовых потерь. Этот отличный набор инструментов безопасности является идеальным решением для обеспечения защиты пользователя, компьютера и важных данных. Новый Avira Antivirus Pro использует передовые и эффективные функции антивирусной защиты, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F389DA490CB8A8A82D4500A4DC69FAF41C9874D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211570   (776988) от 08.03.2018
+
+Adobe Premiere Pro CC 2018 (12.0.1.69) Portable by XpucT [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2018 — профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55EFE56FFADFC543482B53481B16EB73696A5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210955   (776986) от 08.03.2018
 
 CyberGhost VPN 6.5.0.3180 RePack by elchupacabra [Ru/En]
@@ -6,7 +110,7 @@ CyberGhost VPN 6.5.0.3180 RePack by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776986.jpg" />
+  <img src="Z:/picture/008/save_picture_776986.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776982.jpg" />
+  <img src="Z:/picture/008/save_picture_776982.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776981.jpg" />
+  <img src="Z:/picture/008/save_picture_776981.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_776666.jpg" />
+  <img src="Z:/picture/005/save_picture_776666.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.3) License CODEX [patch]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776628.jpg" />
+  <img src="Z:/picture/008/save_picture_776628.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ ACDSee Photo Studio Ultimate 2018 11.2.1309 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776617.jpg" />
+  <img src="Z:/picture/008/save_picture_776617.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Ultimate Final Cut Pro X Plugin pack by joinqwerty 0.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776616.jpg" />
+  <img src="Z:/picture/008/save_picture_776616.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ Kingdom: New Lands (2016) [Ru/Multi] (1.2.8) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776613.jpg" />
+  <img src="Z:/picture/008/save_picture_776613.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776589.jpg" />
+  <img src="Z:/picture/008/save_picture_776589.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776588.jpg" />
+  <img src="Z:/picture/008/save_picture_776588.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ MAGIX Vegas Pro 15.0 Build 321 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776269.jpg" />
+  <img src="Z:/picture/008/save_picture_776269.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776263.jpg" />
+  <img src="Z:/picture/008/save_picture_776263.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776258.jpg" />
+  <img src="Z:/picture/008/save_picture_776258.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ CorelDRAW Graphics Suite X8 18.0.0.448 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775887.jpg" />
+  <img src="Z:/picture/008/save_picture_775887.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775886.jpg" />
+  <img src="Z:/picture/008/save_picture_775886.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ AusLogics BoostSpeed 8.2.1.0 DC 26.04.2016 RePack (& Portable) by KpoJIuK [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775882.jpg" />
+  <img src="Z:/picture/008/save_picture_775882.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775878.jpg" />
+  <img src="Z:/picture/008/save_picture_775878.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775876.jpg" />
+  <img src="Z:/picture/008/save_picture_775876.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775872.jpg" />
+  <img src="Z:/picture/008/save_picture_775872.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Little Nightmares (2017) [Ru/En] (1.0.43.1/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775568.jpg" />
+  <img src="Z:/picture/008/save_picture_775568.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775403.jpg" />
+  <img src="Z:/picture/008/save_picture_775403.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief E
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775398.jpg" />
+  <img src="Z:/picture/008/save_picture_775398.jpg" />
 </div>
 
 
@@ -569,113 +673,6 @@ Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645D869F3C8AB8952EDE07160537EBCC9A2EB79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015223   (775397) от 09.05.2016
-
-Need For Speed: The Run (2011) [Ru] (1.1.0.0) Repack =nemos= [Limited Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed The Run — гоночные состязания, ставка в которых невероятно высока. Единственный способ выжить — первым завершить опаснейшее путешествие из Сан-Франциско в Нью-Йорк. Никаких ограничений скорости. Никаких правил. Никаких друзей. В противостоянии сотням отчаянных гонщиков на самых опасных трассах придется рассчитывать лишь на собственное водительское (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Action, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756AB4D974AB07311B6A86E90AA3F60011D68B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201190   (775049) от 16.05.2010
-
-Утомленные солнцем 2: Предстояние (2010) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: драмаРежиссер: Никита МихалковВ ролях: Виктория Толстоганова, Владимир Ильин, Олег Меньшиков, Надежда Михалкова, Никита Михалков, Дмитрий Дюжев, Андрей Панин, Михаил Ефремов, Александр Пашутин, Валентин ГафтФормат: AVI (XviD) ///СОВМЕСТИМО С БЫТОВЫМИ ПЛЕЕРАМИ/// Размер 1/3 DVD
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212566   (774975) от 13.03.2018
-
-NVIDIA подозревается в использовании монопольных преимуществ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_774975.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Сети начали появляться материалы, в которых новая партнёрская маркетинговая программа NVIDIA GPP (GeForce Partner Program) называется антиконкурентной тактикой против AMD и Intel. Принципы, прописанные NVIDIA в программе, могут довольно сильно влиять на выбор потребителей на рынке компьютеров. Инициатором обвинения стала AMD, но затем и сами журналисты исследовали (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277884   (774786) от 22.01.2019
-
-Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.21.01.19) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от MSDN:
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso. (Original 12.05.2011)
-ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso. (Original 12.05.2011)
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C07588033D90C232FF41783C3C9DF5FA19CBEFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

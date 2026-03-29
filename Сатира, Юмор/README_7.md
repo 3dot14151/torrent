@@ -6,7 +6,7 @@
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131447.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131416.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119680.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116760.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63746.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54483.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54456.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54449.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44657.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39201.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21862.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3054.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1143124   (821993) от 03.01.2018
+
+Bulletstorm (2017) [Ru/Multi] (1.1.12212.0/upd2/dlc) Repack =nemos= [Full Clip Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - Грейсон Хант, некогда элитный киллер Dead Echo. После крушения корабля вы оказались на заброшенной планете-курорте Стигия и должны сделать выбор: спасаться или отомстить предателю. Bulletstorm: Full Clip Edition – яркий и до странности уместный ремастер мясного Bulletstorm, вышедшего шесть с лишним лет назад. Несмотря на отсутствие каких-либо качественных изменений (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Action, Shooter, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B32FBF1ED5F61676CF355C319B7FDD334942B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116692   (821945) от 20.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) HDRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Allison Shearmur Productions, Black Hangar Studios, Lucasfilm Ltd., Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Мадс Миккельсен, Алан Тьюдик, Донни Йен, Бен Мендельсон, Форест Уитакер, Диего Луна, Джонатан Арис, Риз Ахмед, Артур Л. БернштейнПеревод: Дублированый (Чистый звук)Продолжительность: 02:14:30Реклама: Присутствуют вставки голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EAB0E198EC33763ECE60B108A2AB47EEDC8214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116743   (821942) от 20.03.2017
+
+Kaspersky Internet Security 2017 17.0.0.611 (without Secure Connection) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Internet Security 2017 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7F0F42890AFC63ABDA2284CA393952001C7B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007495   (821292) от 15.04.2016
+
+Российские ученые разработали безопасную квантовую коммуникационную систему дальнего действия
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_821292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Область информационной безопасности становится все актуальней с каждым днем. Если немногим ранее этой области уделяли внимание только крупные компании, банки и государственные организации, то сейчас информационной безопасностью занимаются специалисты предприятий малого бизнеса и даже индивидуальные пользователи. Однако, используемые сейчас алгоритмы шифрования несовершенны, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 655237   (820942) от 12.05.2013
 
 Ключи для ESET NOD32, Kaspersky, Avast, Avira от 10.05.2013
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820942.jpg" />
+  <img src="Z:/picture/008/save_picture_820942.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820635.jpg" />
+  <img src="Z:/picture/008/save_picture_820635.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820626.jpg" />
+  <img src="Z:/picture/008/save_picture_820626.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820485.jpg" />
+  <img src="Z:/picture/008/save_picture_820485.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Opera 50.0.2762.45 Portable by Cento8 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820406.jpg" />
+  <img src="Z:/picture/008/save_picture_820406.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820302.jpg" />
+  <img src="Z:/picture/008/save_picture_820302.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820132.jpg" />
+  <img src="Z:/picture/008/save_picture_820132.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Nero Burning ROM & Nero Express 2017 18.0.19000 RePack by MKN [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820128.jpg" />
+  <img src="Z:/picture/008/save_picture_820128.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_819319.jpg" />
+  <img src="Z:/picture/005/save_picture_819319.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818907.jpg" />
+  <img src="Z:/picture/008/save_picture_818907.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818905.jpg" />
+  <img src="Z:/picture/008/save_picture_818905.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818712.jpg" />
+  <img src="Z:/picture/008/save_picture_818712.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ Black Gold Online (2014) [Ru] (0.0.1.032) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818699.jpg" />
+  <img src="Z:/picture/008/save_picture_818699.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Acronis Backup Advanced Workstation / Server 11.7.44421 + BootCD [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818696.jpg" />
+  <img src="Z:/picture/008/save_picture_818696.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Mozilla Firefox Quantum 57.0.4 Portable by PortableApps [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818648.jpg" />
+  <img src="Z:/picture/008/save_picture_818648.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Adobe Acrobat X Professional v.10.0.2 DVD [RUS / ENG]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_818605.jpg" />
+  <img src="Z:/picture/009/save_picture_818605.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818599.jpg" />
+  <img src="Z:/picture/008/save_picture_818599.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack R.G. Механики (о
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818472.jpg" />
+  <img src="Z:/picture/008/save_picture_818472.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818308.jpg" />
+  <img src="Z:/picture/008/save_picture_818308.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817653.jpg" />
+  <img src="Z:/picture/008/save_picture_817653.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817649.jpg" />
+  <img src="Z:/picture/008/save_picture_817649.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Facebook наймет 10 000 инженеров для создания мета
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_817362.jpg" />
+  <img src="Z:/picture/005/save_picture_817362.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Facebook планирует нанять 10 000 специалистов в Ев
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007805   (817311) от 17.04.2016
-
-Японский космический аппарат Akatsuki приступает к изучению Венеры
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_817311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предполагалось, что исследовательский космический аппарат Akatsuki, запущенный японским космическим агентством JAXA весной 2010 года, должен был добраться и выйти на орбиту вокруг Венеры в декабре 2010 года. Однако, из-за отказа двигателей этот аппарат в буквальном смысле промазал мимо своей цели и направился в космос, двигаясь по орбите вокруг Солнца. Момента, благоприятного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008105   (817305) от 17.04.2016
-
-Ученым впервые удалось восстановить подвижность конечностей парализованного человека при помощи имплантата
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_817305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Около четырех лет назад с американцем Ианом Берхартом (Ian Burkhart), которому нынче 24 года, во время подводного погружения произошел несчастный случай. Берхарт получил травму позвоночника, повлекшую повреждение спинного мозга, которое парализовало все его тело. Но благодаря работе группы исследователей из университета Огайо (Ohio State University), Иан Берхарт (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197203   (816883) от 06.01.2018
-
-Опубликованы подробности уязвимостей Meltdown и Spectre
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_816883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cтали доступны подробности об уязвимостях, получивших названия Meltdown (CVE-2017-5754) и Spectre (CVE-2017-5753, CVE-2017-5715).Как сообщают исследователи из команды Google Project Zero, Meltdown позволяет повысить привилегии на системе и из пространства пользователя прочитать содержимое любой области памяти, в том числе память ядра и чужой памяти в системах паравиртуализации (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197062   (816871) от 06.01.2018
-
-Davinci Resolve Studio 14.2.0.012 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если верить описанию разработчика, то программа DaVinci Resolve мощная система как отвечающая за цветокоррекцию так и за профессиональный нелинейный монтаж. Если вам нужно понятными инструментами выполнить монтаж, поиграть с цветовыми параметрами, выполнить обработку конечного продукта в едином интерфейсе, то вероятно данная разработка будет вам полезна. Опять, возвращаясь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA9981F91D5B317B1B4D14B506173D68F52C00D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Arknights: Endfield OST (2026) [MP3|320 kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056900.jpg" />
+  <img src="Z:/picture/005/save_picture_1056900.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Darker Than Black / Темнее черного [TV-1 / TV-2 OST] [2007][MP3|320
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958597.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ Ergo Proxy / Эрго Прокси OST [2006][MP3|320 CBR]<OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955050.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Senki Zesshou Symphogear | Песня боевых принцесс: Мехас�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925049.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru OST / Мой подростко
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921031.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hugtto! Precure | Хорошенькое лекарство: Объятия (201
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913533.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Kirakira Precure A La Mode | Хорошенькое лекарство: В мо�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910642.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mahou Tsukai Precure! | Хорошенькое лекарство: Девочк�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906666.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Star Twinkle Precure | Хорошенькое лекарство: Мерцани
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896379.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Housekishou Richard-shi no Nazo Kantei | Загадочные дела ювел�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894749.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Koi Suru Asteroid OST (2020) [MP3|320 kbps] <OP+ED>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893203.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | Если мой кумир споёт н�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886608.jpg" />
+  <img src="Z:/picture/005/save_picture_886608.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Show by Rock!! Mashumairesh!! | Рок-шоу! (2020) (2020) [MP3|320 Kbps] <OST
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884790.jpg" />
+  <img src="Z:/picture/005/save_picture_884790.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sawano Hiroyuki [nZk] - Лучшие вокальные работы [nZk] 2 | B
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837313.jpg" />
+  <img src="Z:/picture/008/save_picture_837313.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Fuuka OST (2017) [MP3|320 kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827797.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762359.jpg" />
+  <img src="Z:/picture/008/save_picture_762359.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon 25th Anniversary 
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761879.jpg" />
+  <img src="Z:/picture/008/save_picture_761879.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon Classic Concert A
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760198.jpg" />
+  <img src="Z:/picture/008/save_picture_760198.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ V.A. - Sailor Moon The 25th Anniversary Memorial Tribute (2018) [MP3|320 Kbps] <
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758498.jpg" />
+  <img src="Z:/picture/008/save_picture_758498.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Trinity Seven | Святая семёрка [2014-2019][MP3|320 Kbps][18CD] <OST
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758379.jpg" />
+  <img src="Z:/picture/008/save_picture_758379.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kokoro ga Sakebitagatterunda. (Kokosake) / The Anthem of the Heart / Сердц�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705593.jpg" />
+  <img src="Z:/picture/008/save_picture_705593.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Kenichiro Suehiro, VA - Re: Zero kara Hajimeru Isekai Seikatsu (2016) 7 CD [MP3|
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655609.jpg" />
+  <img src="Z:/picture/008/save_picture_655609.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Kingdom Original Soundtrack / Царство OST (2014) [MP3|320 kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608444.jpg" />
+  <img src="Z:/picture/008/save_picture_608444.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Atelier Shallie -Alchemist of the sea of dusk- OST (2014) [MP3|320kps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549296.jpg" />
+  <img src="Z:/picture/008/save_picture_549296.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Shinji Orito, VA - Planetarian Original Soundtrack (2016) 4 CD [MP3|320 Kbps|CBR
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527594.jpg" />
+  <img src="Z:/picture/008/save_picture_527594.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Aho Girl | Дурочка (2017) [MP3|320 Kbps] <OP+ED>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365022.jpg" />
+  <img src="Z:/picture/008/save_picture_365022.jpg" />
 </div>
 
 

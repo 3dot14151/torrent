@@ -6,7 +6,7 @@ Microsoft Edge 94.0.992.38  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847830.jpg" />
+  <img src="Z:/picture/008/save_picture_847830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnView Shell Extension 4.1.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847808.jpg" />
+  <img src="Z:/picture/008/save_picture_847808.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cent Browser 4.2.10.171 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847796.jpg" />
+  <img src="Z:/picture/008/save_picture_847796.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Telestream Wirecast Pro 13.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847794.jpg" />
+  <img src="Z:/picture/008/save_picture_847794.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TechSmith Camtasia Studio 9.0.3 Build 1627 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847769.jpg" />
+  <img src="Z:/picture/008/save_picture_847769.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BurnAware PRO + Portable 3.1.5 [ML]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847717.jpg" />
+  <img src="Z:/picture/008/save_picture_847717.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PassMark PerformanceTest 10.1 Build 1005 RePack (& Portable) by elchupacabra [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847681.jpg" />
+  <img src="Z:/picture/008/save_picture_847681.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PrivaZer 4.0.31 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847676.jpg" />
+  <img src="Z:/picture/008/save_picture_847676.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Loaris Trojan Remover 3.1.26.1477 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847660.jpg" />
+  <img src="Z:/picture/008/save_picture_847660.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ jv16 PowerTools 7.0.0.1274 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847590.jpg" />
+  <img src="Z:/picture/008/save_picture_847590.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GPU Shark 0.24.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847588.jpg" />
+  <img src="Z:/picture/008/save_picture_847588.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PC Cleaner Pro 8.1.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847570.jpg" />
+  <img src="Z:/picture/008/save_picture_847570.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Maxon CINEMA 4D Studio S22.016 build RB309982 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847552.jpg" />
+  <img src="Z:/picture/008/save_picture_847552.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Rufus 3.10.1647 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847543.jpg" />
+  <img src="Z:/picture/008/save_picture_847543.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Wise Care 365 Pro 5.9.1.583 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847462.jpg" />
+  <img src="Z:/picture/008/save_picture_847462.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Topaz DeNoise AI 3.3.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847461.jpg" />
+  <img src="Z:/picture/008/save_picture_847461.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Atomix VirtualDJ 2021 Pro Infinity 8.5.6677 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847451.jpg" />
+  <img src="Z:/picture/008/save_picture_847451.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ WinToHDD 5.4 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847449.jpg" />
+  <img src="Z:/picture/008/save_picture_847449.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ PotPlayer 210929 (1.7.21558) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847366.jpg" />
+  <img src="Z:/picture/008/save_picture_847366.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Spectrasonics - Keyscape v1.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847272.jpg" />
+  <img src="Z:/picture/008/save_picture_847272.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.1 Build 4712 + Portable + Stan
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847035.jpg" />
+  <img src="Z:/picture/008/save_picture_847035.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Privacy Eraser Free 4.11.0 Build 1920 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847009.jpg" />
+  <img src="Z:/picture/008/save_picture_847009.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wise Video Downloader 2.32.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846923.jpg" />
+  <img src="Z:/picture/008/save_picture_846923.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Disk Cleaner 9.22.641 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846770.jpg" />
+  <img src="Z:/picture/008/save_picture_846770.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846752.jpg" />
+  <img src="Z:/picture/008/save_picture_846752.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Alternate File Shredder 2.070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846745.jpg" />
+  <img src="Z:/picture/008/save_picture_846745.jpg" />
 </div>
 
 

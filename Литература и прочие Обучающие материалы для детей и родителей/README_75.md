@@ -1,3 +1,135 @@
+###  Публикация: 747349   (963020) от 19.01.2014
+
+Ада Чумаченко | Город в лесах (1931) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще год тому назад кругом был только лес. А вот там, за холмами, где стоит сейчас Сергулькин дом, зелено болото. И так--на много километров.
+Лес, правда, стоит еще и теперь. А вот от болота и помину не осталось...Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73FA4573F8B5C2B72C836707F41C2D7BCDADDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747329   (963019) от 19.01.2014
+
+Николай Комаровский, Глеб Комаровский | Твои ровесники (1949) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тэдди Найс живет в столице Англии--в Лондоне.
+Тэдди, так-же как и тебе, девять лет, но он мал ростом и узкоплеч. Сейчас он спит и видит странный сон: огромная серая кошка холодной, мокрой лапой гладит его по щеке...Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F6F3BA4895DC71AE8AA9AB850827CC08CB602F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359963   (962992) от 13.02.2020
+
+Эндрю Лэнг | Желтая книга сказок (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962992.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жёлтая книга сказок» под красочной обложкой таит русские, французские, венгерские, исландские и даже индейские сказки. Увлекательные истории о принцах и принцессах, ведьмах, феях и драконах были собраны воедино и переведены на английский Эндрю Лэнгом и собратьями по перу, а для русского читателя их с доблестью перевела Юлия Фокина. По традиции неповторимые иллюстрации (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B6C4B39DB4AF298B1C4F3099F06E6E1705AE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359841   (962989) от 13.02.2020
+
+Т.Н. Терещенко (ред.) | Православные праздники [2-е издание] (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная книга красочной серии «Малая православная энциклопедия» рассказывает о праздниках и постах Русской Православной Церкви. Читатель узнает, как появился тот или иной праздник, как его отмечает Церковь, какие народные обычаи с ним связаны. Издание предназначено для широкого круга читателей, интересующихся историей России и Православия, в том числе для детей (   Читать дальше...   )Жанр: Духовная литература, Православие, ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C69C392FC3A9A32E1F8E0F202F552E74F41150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359729   (962979) от 13.02.2020
+
+Баррингтон Барбер | Рисуем пейзажи. Практический курс для художников (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для начинающего художника задача нарисовать пейзаж может показаться пугающей. С чего же начать? Автор бестселлеров, художник и преподаватель Баррингтон Барбер познакомит вас с техниками, материалами, методами и стилями, научит работать с пространством и основными элементами пейзажа, а с помощью пошаговых инструкций и упражнений вы научитесь рисовать его самостоятельно.Жанр: Изобразительное искусствоПеревод: О.О. ВирязоваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C291E7947EEC1BB31D010B61FA17F92FF808B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747318   (962967) от 19.01.2014
 
 В. Юрьев | Гренадер Леонтий Коренной (1945) [DJVU]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962967.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962625.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962524.jpg" />
 </div>
 
 
@@ -88,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962510.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962422.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961997.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961263.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961244.jpg" />
 </div>
 
 
@@ -219,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961241.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961239.jpg" />
 </div>
 
 
@@ -271,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960757.jpg" />
 </div>
 
 
@@ -297,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960585.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960369.jpg" />
 </div>
 
 
@@ -352,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960169.jpg" />
 </div>
 
 
@@ -378,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959920.jpg" />
 </div>
 
 
@@ -407,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959820.jpg" />
 </div>
 
 
@@ -433,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959685.jpg" />
 </div>
 
 
@@ -461,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959677.jpg" />
 </div>
 
 
@@ -489,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959492.jpg" />
 </div>
 
 
@@ -515,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959453.jpg" />
 </div>
 
 
@@ -541,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959122.jpg" />
 </div>
 
 
@@ -553,142 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B313EB8C463F9B0611AA05F0A218C9B0236E9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855989   (959054) от 04.01.2015
-
-Кэтрин Ласки | Призрачный (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятый роман серии «Волки из страны Далеко-Далеко».
-Фаолан появился на свет не таким, как другие волчата, и по законам волчьих кланов был обречён на смерть. Однако несмотря на кривую лапку, он не только выжил и вернулся в своё племя, но и сумел стать одним из самых достойных членов стаи. Он вот-вот займёт своё место в Страже Кольца Священных вулканов… но внезапно (   Читать дальше...   )Жанр: ФэнтезиПеревод: Олег ПерфильевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7ADC70A1B193D0641140C9B5C715A2FC88FE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856218   (958864) от 04.01.2015
-
-Карло Коллоди | Приключения Пиноккио (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка итальянского писателя Карло Коллоди «Приключения Пиноккио. История Деревянного Человечка» впервые увидела свет в 1881 году: её напечатала римская «Газета для детей». В России сказка вышла в 1906 году и сразу же стала одним из самых любимых детских произведений. Иначе и быть не могло – приключения смешного, несносного, упрямого, находчивого и остроумного деревянного (   Читать дальше...   )Жанр: Детская литераураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042A2E1ACB38804D2D53000FA2023CB15067FC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856235   (958854) от 04.01.2015
-
-Жаклин Уэст | Книги Иных Мест. Книга заклинаний. Книга 2. (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман серии «Книги Иных Мест».
-С помощью волшебных котов Олив удалось одолеть злую ведьму, которой раньше принадлежал ее дом. Но оказывается, где-то в доме хранится книга заклинаний, с помощью которой можно творить волшебство и раскрыть все тайны особняка. Девочка находит книгу, которая начинает управлять ею. Олив теряет друзей и снова встречается с могущественной (   Читать дальше...   )Жанр: ФэнтезиПеревод: Алина КурышеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5D79A77C091390F40F1DBCF86BAB32674FEB94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856227   (958847) от 04.01.2015
-
-Жаклин Уэст |Книги Иных Мест. Книга теней. Книга 1. (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман серии «Книги Иных Мест».
-Что получится, если найти волшебные очки и посмотреть через них на волшебную картину? Спросите об этом у Олив.
-Как? Вы не знаете Олив?! Ей одиннадцать лет, у нее нет математических способностей, но зато она живет в таинственном старом доме, умеет находить необыкновенные предметы и приобретать неожиданных знакомых.
-Какие секреты (   Читать дальше...   )Жанр: ФэнтезиПеревод: Алина КурышеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604AF41E0915C6BCBDE1ED37ECB9B4FD0A7BBD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748532   (958824) от 22.01.2014
-
-М. Лезинский, Б. Эскин | Сын бомбардира (1978) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о юном герое Севастопольской обороны 1854—1855 гг. Коле Пищенко, удостоенном за свои подвиги ордена высшей солдатской доблести — «Георгия» и других наград.
-Книга рассчитана на детей среднего школьного возраста.Жанр: Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4106B9BAAF391F7A332304C87410466FA8E2ECC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

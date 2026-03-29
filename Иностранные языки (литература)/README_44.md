@@ -1,3 +1,162 @@
+###  Публикация: 1785593   (24456) от 16.03.2025
+
+Я.М. Вовшин, И.И. Панова | Английский с улыбкой. The Fun of Handling Tricky Things in English (2001) [PDF] [RU, EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит увлекательный юмористический языковой материал для правильного восприятия сложных и неоднозначных построений английской речи. Пособие в занимательной форме развивает навыки творческого мышления, обеспечивает самоконтроль при решении лингвистических задач и тестов. Построенное по принципу интеллектуальной игры, пособие окажет неоценимую помощь всем, (   Читать дальше...   )Жанр: Справочное пособие. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: ПарадоксФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DC5B43B410E5087803EFB8C3C79D275FBABBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785768   (24380) от 17.03.2025
+
+А.Д. Дешевицына | Говорить по-китайски без акцента: учебное пособие по фонетике китайского языка (2022) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ключ к формированию свободной речи на китайском языке - это изучение естественных для носителей языка процессов: артикуляции, паузации, ударения и интонации. Эта книга станет вашим проводником в мир китайской фонетики и фонологии, поможет научиться думать и говорить по-китайски. Материал пособия изложен простым языком и рассчитан на постепенное изучение по мере прохождения (   Читать дальше...   )Жанр: Учебники и учебные пособия. Китайский языкИздательство: Издательский дом ВКНФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19056C0B8457D934EE184393F11FDCED93F69C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785757   (24354) от 17.03.2025
+
+В.А. Хомяков | Введение в изучение слэнга - основного компонента английского языка (1971) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет первую в отечественной англистике попытку дать подробный анализ компонентов просторечия как нормы второго уровня. Автор излагает историю вопроса и рассматривает в плане социолингвистики коллоквиализмы, сленг, кэнт, жаргоны и вульгаризмы. Автор ставил две основные задачи. Во-первых, дать читателю необходимые сведения из истории вопроса; (   Читать дальше...   )Жанр: МонографияИздательство: Вологда: Областная типографияФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D2D796A7740CA15FBC862BD7C6A154DEA525DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786957   (23769) от 23.03.2025
+
+Альберт Шубаев | Английский в деталях. Изучаем тонкости языка с @VeryEnglish! (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучаете английский язык? Не упустите шанс познакомиться с книгой лингвиста Альберта Шубаева, оформленной в стиле газеты!
+
+Внутри вас ждет:
+1. 35 глав на самые актуальные темы: от тонкостей грамматики до полезных лайфхаков.(   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787529   (23457) от 26.03.2025
+
+Мария Столь | Топики по английскому языку. ОГЭ на "отлично"! (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23457.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Топики по английскому языку. ОГЭ на "отлично!"" — это универсальное пособие для подготовки к ОГЭ. В книге представлены 18 тщательно отобранных тем уровня B1–B2, соответствующих кодификатору и структуре экзамена. Каждая тема сопровождается полезной лексикой, примерами и заданиями для тренировки навыков чтения, устной речи, грамматики и письма. (   Читать дальше...   )Жанр: Изучение иностранных языковИздательство: БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D7C6EDD229358D4D546B4FBDA0AB343F7055AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787517   (23454) от 26.03.2025
+
+А.А. Ковалев, Г.Ш. Шарбатов | Учебник арабского языка (2004) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переработанное и расширенное издание "Учебника арабского языка" (1-е изд.— 1960г.) рассчитано на двухгодичный курс обучения в вузах, а также может служить самоучителем. В настоящем издании устаревшие материалы заменены современными, тематически актуальными учебными текстами и оригинальными литературными произведениями; представлена современная общественно-политическая, (   Читать дальше...   )Жанр: Арабский языкИздательство: "Восточная литература" РАНФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8902CACA523047E5FB39371C2B58C3CDABDE506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787742   (23323) от 27.03.2025
 
 В.С. Сегаль | Начальный курс арабского языка (1962) [PDF]
@@ -6,7 +165,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23323.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23298.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23101.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23074.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22202.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21889.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20549.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13004.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12079.jpg" />
 </div>
 
 
@@ -244,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10825.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5035.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4198.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4115.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1906.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_611.jpg" />
 </div>
 
 

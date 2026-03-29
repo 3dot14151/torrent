@@ -1,3 +1,118 @@
+###  Публикация: 989214   (917090) от 22.02.2016
+
+ЛиД - Концерт в Краснодаре (06.02.2016) (2016) [MP3|320 кб/с] <Акустический Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зажигать (Би-2 Cover)
+02. Дыши
+03. Секрет (Агата Кристи Cover)
+04. Солнцем по скатам(   Читать дальше...   )Жанр: Акустический РокПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2343C4E89E2921DFC026FCBF46B0D7C4F55FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289381   (917047) от 01.02.2011
+
+Дети - дискография (1987-1990) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К нам едет Пол Маккартни(6 Ленинградский фестиваль рок-музыки 1988)
+02. Русалка(VIII Рок-фестиваль 1991)
+03. Три аккорда(Дом Культуры 2007)1987-1990Жанр: RockПродолжительность: 00:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B130AD5ADAD368D54D3C3C0433D4A39B5A2F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367675   (915791) от 16.03.2020
+
+Таймсквер - Вкус крови (2019) [MP3|320 Kbps] <Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Вкус крови
+03. Я.Л.Н.Л.Л. (feat. DETACH)
+04. Соль и пепел(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BBEDB2D5FA76FF2C50731A1ABA8620630E8C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989762   (915277) от 23.02.2016
+
+5 Стихий - Колыбель Времён (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915277.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Время подобно ребенку, ведомому за руку: смотрит назад...» (Хулио Кортасар). «Но только в будущем обретает смысл…», добавляет группа. Этот альбом - намек на связь прошлого, настоящего и будущего, ведь иначе нельзя понять, кто мы. Ибо осознание этого необходимо нам, как Воздух…1. Начало
+2. Сольвейг
+3. Сгори
+4. Дух Свободы(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8ABD8CA5D4C9EB4C2422DEE05616F7437F0ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367918   (914352) от 17.03.2020
 
 Мастодонт / Masta Don’t - Мой личный Дудь (2020) EP [MP3|320 Kbps] <Rock>
@@ -6,7 +121,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914352.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914044.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913761.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913643.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913567.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Nox Doloris - 1 album, 2 EP, 1 single, 2 demos (2008-2016) [MP3|320 Kbps] <Symph
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912608.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Laufderzeit - Zeitapokalypse (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Met
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912484.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Julana - Квартал (2020) [MP3|320 Kbps] <Metalcore, Electronic, Rapcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911083.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910889.jpg" />
 </div>
 
 
@@ -264,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910765.jpg" />
 </div>
 
 
@@ -293,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910583.jpg" />
 </div>
 
 
@@ -322,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909092.jpg" />
 </div>
 
 
@@ -351,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908975.jpg" />
 </div>
 
 
@@ -380,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908052.jpg" />
 </div>
 
 
@@ -415,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907955.jpg" />
 </div>
 
 
@@ -459,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907516.jpg" />
 </div>
 
 
@@ -488,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907198.jpg" />
 </div>
 
 
@@ -514,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906789.jpg" />
 </div>
 
 
@@ -543,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906268.jpg" />
 </div>
 
 
@@ -571,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905840.jpg" />
 </div>
 
 
@@ -600,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904957.jpg" />
 </div>
 
 
@@ -635,7 +750,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904023.jpg" />
 </div>
 
 
@@ -649,122 +764,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C946DD5DE6C9DFCB6297D1C45F738F986A219C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369140   (903810) от 23.03.2020
-
-Fataland - Выпей Вина! (2020) [MP3|320 Kbps] <Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Белок [00:01:09]
-02 Биткоин [00:03:19]
-03 Просто Я Люблю 0.5 [00:01:59]
-04 Илонмаск [00:02:46](   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2880603AC72B2AFB4550AE7D7F090E6CA7A625B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991754   (903759) от 29.02.2016
-
-Слот - Septima (2016) [MP3|320 кб/с] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Septima – это музыкальный интервал размером в семь нот. Это настоящий диссонанс, образующий вихрь из музыкальных стилей и направлений, который бурлит в котле под названием Слот!01. Реинкарнация
-02. Мочит, как хочет!
-03. Русская душа
-04. Ctrl+Z(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC951B1151E42BB48CBD5D71CBDB4E516756CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369461   (902110) от 24.03.2020
-
-Arctic Rain - Point of no return / Точка невозврата (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Судьба [00:03:39]
-02. Кто я [00:04:13]
-03. Забытые сны [00:03:37]
-04. Тьма и свет [00:04:43](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0669E82E8F32A8E301B15B173CF55F1294D8E7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100018   (901590) от 03.02.2017
-
-Филипп Вейс - Сны разной ритмичности (2012) [MP3|320 kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На уровне чувств (3:17)
-02. Бессонница (3:10)
-03. Город мостов (4:17)
-04. Танго цвета индиго (3:55)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD6BC011BB320FFFC27D8348177F1340940157A
 ```
 
 https://mybot314.ru/tekegram_catalog/

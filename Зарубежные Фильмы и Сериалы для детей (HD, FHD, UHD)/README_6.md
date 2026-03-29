@@ -1,3 +1,29 @@
+###  Публикация: 1279392   (765829) от 29.01.2019
+
+Маленькая ведьма / Die kleine Hexe (2018) BDRip [H.264/720p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая ведьма очень хочет повеселиться на вечеринке в честь Вальпургиевой ночи, но ей всего 127 лет, поэтому она еще слишком молода для такого мероприятия. Вопреки правилам, упрямая девушка тайком пробирается на праздник, но оказывается пойманной. В наказание ведьме поручают выучить все заклинания из великой магической книги за один год и доказать всем, что она (   Читать дальше...   )Производство: Швейцария, Германия / Breaking Glass Pictures, StudiocanalЖанр: Комедия, Драма, Фэнтези, СемейныйРежиссер: Мике ШёрерАктеры: Каролина Херфурт, Аксель Праль, Сюзанна фон Борсоди, Каролин Списс, Эвелин Холл, Тереза Аффолтер, Ангелика Бёттигер и др.Перевод: Многоголосый закадровый, профессиональный (CВ Студия)Субтитры: Русские, немецкие (полные)Продолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8519C204B68851DBAFEC6BA627AA8D545B5EFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126645   (764411) от 19.04.2017
 
 Соль дороже злата / Sol nad zlato (1983) HDTVRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764411.jpg" />
+  <img src="Z:/picture/008/save_picture_764411.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764238.jpg" />
+  <img src="Z:/picture/008/save_picture_764238.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764132.jpg" />
+  <img src="Z:/picture/008/save_picture_764132.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760172.jpg" />
+  <img src="Z:/picture/008/save_picture_760172.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758387.jpg" />
+  <img src="Z:/picture/008/save_picture_758387.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758175.jpg" />
+  <img src="Z:/picture/005/save_picture_758175.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757569.jpg" />
+  <img src="Z:/picture/008/save_picture_757569.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757327.jpg" />
+  <img src="Z:/picture/005/save_picture_757327.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757203.jpg" />
+  <img src="Z:/picture/008/save_picture_757203.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756589.jpg" />
+  <img src="Z:/picture/008/save_picture_756589.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754794.jpg" />
+  <img src="Z:/picture/005/save_picture_754794.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752850.jpg" />
+  <img src="Z:/picture/008/save_picture_752850.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752534.jpg" />
+  <img src="Z:/picture/008/save_picture_752534.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751556.jpg" />
+  <img src="Z:/picture/008/save_picture_751556.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750544.jpg" />
+  <img src="Z:/picture/008/save_picture_750544.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750296.jpg" />
+  <img src="Z:/picture/008/save_picture_750296.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749912.jpg" />
+  <img src="Z:/picture/008/save_picture_749912.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744991.jpg" />
+  <img src="Z:/picture/005/save_picture_744991.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743530.jpg" />
+  <img src="Z:/picture/008/save_picture_743530.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742241.jpg" />
+  <img src="Z:/picture/008/save_picture_742241.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740034.jpg" />
+  <img src="Z:/picture/008/save_picture_740034.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739024.jpg" />
+  <img src="Z:/picture/008/save_picture_739024.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738991.jpg" />
+  <img src="Z:/picture/008/save_picture_738991.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738092.jpg" />
+  <img src="Z:/picture/008/save_picture_738092.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737754.jpg" />
+  <img src="Z:/picture/008/save_picture_737754.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982A7F0965639C52B4BBE5E2B32893BF707F4629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527414   (736867) от 28.01.2022
-
-Большой красный пес Клиффорд / Clifford the Big Red Dog (2021) BDRemux [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда школьница Эмили получает в подарок от спасателя животных очаровательного щенка с красной шерстью, она и представить не может, что на утро обнаружит в своей маленькой нью-йоркской квартирке огромного трёхметрового пса! Мама в командировке, поэтому самые захватывающие и необыкновенные приключения ждут Эмили и ее веселого и порывистого дядю Кейси. Клиффорд научит (   Читать дальше...   )Производство: Канада, США / Paramount Pictures, Entertainment One, Kerner Entertainment CompanyЖанр: Фэнтези, комедия, приключения, семейныйРежиссер: Уолт БекерАктеры: Джек Уайтхолл, Дэрби Кэмп, Сиенна Гиллори, Дэвид Алан Грир, Джон Клиз, Расселл Вонг, Айзек Ванг, Тони Хейл, Оратио Санс, Пол РодригесПеревод: Дублированный, Любительский (двухголосый закадровый)Субтитры: Русские (Forced, 2x Full), Украинские (Forced, Full), английские (Full, SDH)Продолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A84341FC10AB57054A83AAB63E0759AC7073D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

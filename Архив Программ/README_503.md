@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789411.jpg" />
+  <img src="Z:/picture/008/save_picture_789411.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Uninstaller Pro 7.3.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789407.jpg" />
+  <img src="Z:/picture/008/save_picture_789407.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XYplorer 19.50.0200 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789397.jpg" />
+  <img src="Z:/picture/008/save_picture_789397.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Q-Dir 7.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789395.jpg" />
+  <img src="Z:/picture/008/save_picture_789395.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ O&O SafeErase Professional + Workstation + Server Edition 12.10 Build 216 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789381.jpg" />
+  <img src="Z:/picture/008/save_picture_789381.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 5.2.0.688 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789353.jpg" />
+  <img src="Z:/picture/008/save_picture_789353.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Win 10 Tweaker 3.0 Portable by XpucT [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789340.jpg" />
+  <img src="Z:/picture/008/save_picture_789340.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BlueStacks Tweaker 5.8.8 beta Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789328.jpg" />
+  <img src="Z:/picture/008/save_picture_789328.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ doPDF 11.3.236 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789313.jpg" />
+  <img src="Z:/picture/008/save_picture_789313.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789293.jpg" />
+  <img src="Z:/picture/008/save_picture_789293.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bandicam 4.1.1.1371 RePack (& portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789281.jpg" />
+  <img src="Z:/picture/008/save_picture_789281.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BlueStacks App Player 4.40.0.1109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789263.jpg" />
+  <img src="Z:/picture/008/save_picture_789263.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CrystalDiskInfo 8.12.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789240.jpg" />
+  <img src="Z:/picture/008/save_picture_789240.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ reaConverter Pro 7.686 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789239.jpg" />
+  <img src="Z:/picture/008/save_picture_789239.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Microsoft Edge 96.0.1054.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789234.jpg" />
+  <img src="Z:/picture/008/save_picture_789234.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows 10 x64 DVD Project Release by StartSoft 01-03 2019 Lite [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789228.jpg" />
+  <img src="Z:/picture/008/save_picture_789228.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789226.jpg" />
+  <img src="Z:/picture/008/save_picture_789226.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ CrystalDiskInfo 8.12.13 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789200.jpg" />
+  <img src="Z:/picture/008/save_picture_789200.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Uranium Backup 9.6.7.7211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789188.jpg" />
+  <img src="Z:/picture/008/save_picture_789188.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Windows 11 Manager 1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789181.jpg" />
+  <img src="Z:/picture/008/save_picture_789181.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ AnyDesk 7.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789138.jpg" />
+  <img src="Z:/picture/008/save_picture_789138.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Vivaldi 1.14.1077.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789070.jpg" />
+  <img src="Z:/picture/008/save_picture_789070.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CoolUtils Total PDF Converter 6.1.0.142 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789068.jpg" />
+  <img src="Z:/picture/008/save_picture_789068.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Vivaldi 1.14.1077.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789065.jpg" />
+  <img src="Z:/picture/008/save_picture_789065.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ YTD Video Downloader PRO 5.9.3.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789053.jpg" />
+  <img src="Z:/picture/008/save_picture_789053.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Registry Life 4.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789034.jpg" />
+  <img src="Z:/picture/008/save_picture_789034.jpg" />
 </div>
 
 

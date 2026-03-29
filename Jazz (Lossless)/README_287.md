@@ -1,3 +1,119 @@
+###  Публикация: 1676643   (155821) от 14.11.2023
+
+Harold Lopez-Nussa - Timba A La Americana (2023) Blue Note Records [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky [4:12]
+02. Cake a la Moda [4:43]
+03. Mal du Pays [4:49]
+04. Rat-a-Tat [4:26](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751C4B96CF8903846D663AB13A0EB99C07FCC7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346957   (155729) от 21.12.2019
+
+Ahmad Jamal - Ballades (2019) Jazz Village [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marseille [4:56]
+02. Because I Love You [6:00]
+03. I Should Care [3:25]
+04. Poinciana [4:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E29B0203D4A407276E40D93B1B9F48C10B13254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194639   (155687) от 25.12.2017
+
+Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight (03:44)
+02. Baby Lone (03:47)
+03. That's Right! (03:19)
+04. Stay Swing (03:33)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731739DA28CF1330D127F5125B217EC400D157ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346964   (155484) от 21.12.2019
+
+Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Feel So Young [3:24]
+02. Pennies from Heaven [3:18]
+03. It Had to Be You [3:08]
+04. When You're Smiling [3:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346960   (155448) от 21.12.2019
 
 Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
@@ -6,7 +122,7 @@ Katie Melua - Live In Concert (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155448.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Thomas Quasthoff & NDR Bigband - Nice 'N' Easy (2018) Okeh [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155040.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Matthew Halsall - Salute To The Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155012.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mike Nock - Piano Solos (1978) Remaster, 2015, Solid Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154982.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Saxes, Inc. - Saxes, Inc. (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154971.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charlie Mingus - Epitaph (1946-1959) 2CD, 2009, Le Chant Du Monde[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154968.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Lula Galvao - Alegria de viver (2019) [FLAC|Lossless|tracks + .cue] <Latin Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154961.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154931.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154903.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154840.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - A Merry Jazzmas (1992) [FLAC|Lossless|image + .cue] <Jazz, Christmas>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154733.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Gare du Nord - Lifesexy: Live in Holland (2012) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154706.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Willis Jackson - Nuther'n Like Thuther'n (1963, 1964) 2002, Prestige [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154705.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Pat Martino - Footprints (1972) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154688.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Oscar Peterson - The Best Of The MPS Years (1968 - 1971) 2022, MPS [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154640.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Claude Hopkins - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154616.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Christian Artmann - Our Story (2018) Sunnyside Records [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154611.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Cassius Lambert - Symmetri (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154581.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Chance Hayden - Get Somethin' (2018) Ropeadope Records [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154557.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Amy Cervini - No One Ever Tells You (2018) Anzic Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154549.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Claudio Roditi - Three For One (2003) Nagel Heyer Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154457.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154412.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C504640C8064965FB3237E96255FAD8F0EC53115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194785   (154411) от 26.12.2017
-
-Yusef Lateef - Prayer To The East (1957) 1993, Savoy Jazz [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night in Tunisia [09:55]
-02. Endura [13:10]
-03. Prayer to the East [08:19]
-04. Love Dance [06:46](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBBD55784A387F63DDF5C09D0EC1553B2F85C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194784   (154408) от 26.12.2017
-
-Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks + .cue] <Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ntsikana's Bell [06:10]
-02. Msunduza [04:42]
-03. Good News / Swazi / Waya-Wa-Egoli [07:30]
-04. Adhan and Allah-O-Akbar [04:14](   Читать дальше...   )Жанр: Ethnic JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4D04EE56466B9ED9C961D9684FDCAE8D1907AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194617   (154397) от 26.12.2017
-
-Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Up and Down [04:12]
-02. Strollin' [07:24]
-03. Groovin' High [05:43]
-04. Love for Sale [06:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347183   (154369) от 22.12.2019
-
-Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This (2019) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Face the Music and Dance (feat. Sharon van Etten) [4:07]
-02. The Sidewinder/The Beat Goes On (feat. Inara George) [4:32]
-03. Driftin' [4:43]
-04. The Thrill Is Gone/Django (feat. Miley Cyrus) [3:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC53B3B56C930549860BEB14265951A8B610130C
 ```
 
 https://mybot314.ru/tekegram_catalog/

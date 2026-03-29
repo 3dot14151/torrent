@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053688.jpg" />
+  <img src="Z:/picture/005/save_picture_1053688.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053686.jpg" />
+  <img src="Z:/picture/005/save_picture_1053686.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Culture Beat - Serenity (1993) 1st German Press [APE|Lossless|image + .cue] <Eur
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053685.jpg" />
+  <img src="Z:/picture/005/save_picture_1053685.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053684.jpg" />
+  <img src="Z:/picture/005/save_picture_1053684.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eur
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053683.jpg" />
+  <img src="Z:/picture/005/save_picture_1053683.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossl
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053680.jpg" />
+  <img src="Z:/picture/005/save_picture_1053680.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Captain Hollywood Project - Love Is Not Sex (1993) 1st German Press [APE|Lossles
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053678.jpg" />
+  <img src="Z:/picture/005/save_picture_1053678.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Dj Bobo - The Great Adventure (2026) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052693.jpg" />
+  <img src="Z:/picture/005/save_picture_1052693.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ A-Teens - The ABBA Generation (Remix) (2001) Reissue, 2021, Universal Music AB [
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043497.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - VIVA Hit Collection Vol.5 (2000) (2000) [FLAC|Lossless|image + .cue] <Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030884.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Imperio - Best of Imperio (2020) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Dream
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027045.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Joy - Joy (Все золото мира) (2000) Unofficial Compilation МЕКК�
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025939.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Fun Factory - Nonstop! The Album (1994) [FLAC|Lossless|tracks + .cue] <Euro Hous
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020614.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020271.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Aqua - Greatest Hits (2009) Speciel Edition [FLAC|Lossless|WEB-DL|tracks] <Euro-
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019929.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015297.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004229.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|i
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004072.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004069.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro Hous
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004060.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-D
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003991.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Joy Winter - Frantic Romantic (1990) [FLAC|Lossless|image + .cue] <Hi NRG, Frees
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003763.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sally Shapiro - Remix Romance Vol. 1 (2008) [FLAC|Lossless|image + .cue] <Italo-
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003760.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - The Best Of Hotsound Vol. 1 (1989) [FLAC|Lossless|image + .cue] <Italo-Disc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003443.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Rashni - Baboushka (2007) [FLAC|Lossless|image + .cue] <Euro House, Trance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002937.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ ICE MC - Cinema (2011) [FLAC|Lossless|image + .cue] <Hip-House, Pop Rap>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001893.jpg" />
 </div>
 
 

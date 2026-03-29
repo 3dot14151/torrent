@@ -1,3 +1,29 @@
+###  Публикация: 1019989   (746350) от 25.05.2016
+
+В. А. Лысенко | Современный англо-русский морской технический словарь (2004) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию специалистов «Современный англо-русский морской технический словарь» - результат 35-летнего опыта практической работы автора в составе экипажей судов. Данное издание не имеет аналогов в СНГ по широте освещения всех сторон работы судового специалиста: от специальных технических вопросов до решения правовых конфликтов по оплате труда в международных (   Читать дальше...   )Жанр: Словари, морское делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD708E1D8D1D0DA3EA62D21C7EA772DA41B8686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019975   (746268) от 25.05.2016
 
 Е. М. Поспелов (ред.) | Англо-русский словарь по картографии, геодезии и аэрофототопографии (1968) [DJVU]
@@ -6,7 +32,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746268.jpg" />
+  <img src="Z:/picture/008/save_picture_746268.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746257.jpg" />
+  <img src="Z:/picture/008/save_picture_746257.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746045.jpg" />
+  <img src="Z:/picture/008/save_picture_746045.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744739.jpg" />
+  <img src="Z:/picture/008/save_picture_744739.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744611.jpg" />
+  <img src="Z:/picture/008/save_picture_744611.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743202.jpg" />
+  <img src="Z:/picture/008/save_picture_743202.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743024.jpg" />
+  <img src="Z:/picture/008/save_picture_743024.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735820.jpg" />
+  <img src="Z:/picture/008/save_picture_735820.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735574.jpg" />
+  <img src="Z:/picture/008/save_picture_735574.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729435.jpg" />
+  <img src="Z:/picture/008/save_picture_729435.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725330.jpg" />
+  <img src="Z:/picture/008/save_picture_725330.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725027.jpg" />
+  <img src="Z:/picture/008/save_picture_725027.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723615.jpg" />
+  <img src="Z:/picture/008/save_picture_723615.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722583.jpg" />
+  <img src="Z:/picture/008/save_picture_722583.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715710.jpg" />
+  <img src="Z:/picture/008/save_picture_715710.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715639.jpg" />
+  <img src="Z:/picture/008/save_picture_715639.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714327.jpg" />
+  <img src="Z:/picture/008/save_picture_714327.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714234.jpg" />
+  <img src="Z:/picture/008/save_picture_714234.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704601.jpg" />
+  <img src="Z:/picture/008/save_picture_704601.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698022.jpg" />
+  <img src="Z:/picture/008/save_picture_698022.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682813.jpg" />
+  <img src="Z:/picture/008/save_picture_682813.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672638.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670633.jpg" />
+  <img src="Z:/picture/008/save_picture_670633.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669956.jpg" />
+  <img src="Z:/picture/008/save_picture_669956.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666244.jpg" />
+  <img src="Z:/picture/008/save_picture_666244.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F732C861865708F3E413AA97F1CA8A826DC5715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902179   (661947) от 27.05.2015
-
-ОЛМА Медиа Групп | Универсальный энциклопедический справочник (2010) [FB2, PDF, RTF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661947.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Универсальный энциклопедический справочник» содержит массу интересных и нужных знаний, собранных в одной книге. Доступность и увлекательность изложения, глубина освещения каждой темы, новые интересные факты и сведения – все это делает книгу незаменимой в домашней библиотеке.Жанр: ЭнциклопедияФормат: FB2, PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D293077373170AF2EF80FF1C28848985CC1FB39C
 ```
 
 https://mybot314.ru/tekegram_catalog/

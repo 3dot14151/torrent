@@ -1,3 +1,29 @@
+###  Публикация: 1789527   (22499) от 04.04.2025
+
+Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения в Paleo Pines переносят геймеров на территорию острова, что населен милыми динозаврами. Пользователи будут управлять протагонистом, передвигаясь по красочным локациям мира, взаимодействуя с доисторическими животными. Получится создать собственную ферму, чтобы выращивать и развивать там своих ездовых ящеров. На динозавриках выйдет кататься верхом, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Italic PigЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789642   (22396) от 05.04.2025
 
 Pull Stay (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Pull Stay (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22396.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22349.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21795.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21573.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.4.0.22794) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21390.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Subverse (2018) [En] (1.1.1) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20761.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20639.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20610.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20511.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20181.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13112) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20141.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20068.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20025.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19999.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19987.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19974.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19678.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19621.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Space Grunts 2 (2019) [En] (2.0.1b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19605.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19589.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19584.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Badlands Crew (2025) [Ru/Multi] (30737) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19513.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Super Raft Boat Together (2023) [Ru/Multi] (1.4.1s1) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19466.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Pure Bubble Hockey (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19280.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19276.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF440C84AF06FF832D0358CC0A9AA74F8A7581C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738559   (19095) от 07.05.2025
-
-Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.3) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Another Crab's Treasure - это увлекательное подводное приключение, созданное студией Aggro Crab. Вы примерите на себя роль краба-отшельника по имени Крил, который отправляется на опасную охоту за сокровищами, чтобы вернуть свою отнятую раковину. В этом уникальном подводном царстве, на грани гибели, мусор не просто является частью жизни, но и ценным ресурсом, используемым (   Читать дальше...   )Тип издания: RepackРазработчик: Aggro CrabЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55E9051801C8A5CDD171F92CB1A39885B9DA916
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896785.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896704.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jessie Reyez - BEFORE LOVE CAME TO KILL US (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896689.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895294.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895284.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895268.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kyok - DECADANCE 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895233.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Horus & Зараза - Баланс чёрного (2019) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895226.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_895218.jpg" />
+  <img src="Z:/picture/008/save_picture_895218.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Horus - Рифмономикон (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895199.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PHARAOH - Правило (2020) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895109.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893681.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893646.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893402.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rag'N'Bone Man - Wolves (2014) [MP3|320 Kbps] <Alternative Hip Hop, Indie>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890608.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Weeknd - After Hours (22-Track - Deluxe - Explicit) (2020) [FLAC 2.0|44.1/24
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889843.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jay Electronica - A Written Testimony (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888679.jpg" />
+  <img src="Z:/picture/005/save_picture_888679.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Slim Thug - THUG LIFE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888588.jpg" />
+  <img src="Z:/picture/005/save_picture_888588.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jadakiss - Ignatius (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888582.jpg" />
+  <img src="Z:/picture/005/save_picture_888582.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Conway the Machine & The Alchemist - LULU (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888579.jpg" />
+  <img src="Z:/picture/005/save_picture_888579.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joyner Lucas - ADHD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888575.jpg" />
+  <img src="Z:/picture/005/save_picture_888575.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Rag'n'Bone Man - Human (2017) Deluxe Edition [FLAC|Lossless|Web-DL|tracks] <R'n'
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886881.jpg" />
+  <img src="Z:/picture/005/save_picture_886881.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885431.jpg" />
+  <img src="Z:/picture/005/save_picture_885431.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885362.jpg" />
+  <img src="Z:/picture/005/save_picture_885362.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Enemy Radio - Loud Is Not Enough (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885357.jpg" />
+  <img src="Z:/picture/005/save_picture_885357.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885210.jpg" />
+  <img src="Z:/picture/005/save_picture_885210.jpg" />
 </div>
 
 

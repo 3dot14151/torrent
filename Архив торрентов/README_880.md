@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847426.jpg" />
+  <img src="Z:/picture/008/save_picture_847426.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847388.jpg" />
+  <img src="Z:/picture/008/save_picture_847388.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PotPlayer 210929 (1.7.21558) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847366.jpg" />
+  <img src="Z:/picture/008/save_picture_847366.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Spectrasonics - Keyscape v1.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847272.jpg" />
+  <img src="Z:/picture/008/save_picture_847272.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847224.jpg" />
+  <img src="Z:/picture/008/save_picture_847224.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847219.jpg" />
+  <img src="Z:/picture/008/save_picture_847219.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847218.jpg" />
+  <img src="Z:/picture/008/save_picture_847218.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Frank Riggio - Symmetric Human Door (2009) [FLAC|Lossless|WEB-DL|tracks] <IDM, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847217.jpg" />
+  <img src="Z:/picture/008/save_picture_847217.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Monster Tunes Miami Fever (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847216.jpg" />
+  <img src="Z:/picture/008/save_picture_847216.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - 15 Years Of Vandit Records The Remixes Vol.2 (2016) [MP3|320 кб/с] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847214.jpg" />
+  <img src="Z:/picture/008/save_picture_847214.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847206.jpg" />
+  <img src="Z:/picture/008/save_picture_847206.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847205.jpg" />
+  <img src="Z:/picture/008/save_picture_847205.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Antibreak - Advent Star (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Drum n Ba
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847119.jpg" />
+  <img src="Z:/picture/008/save_picture_847119.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Unknown Artist – Re-Thinkable (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847117.jpg" />
+  <img src="Z:/picture/008/save_picture_847117.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ iconStiX 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847115.jpg" />
+  <img src="Z:/picture/008/save_picture_847115.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847114.jpg" />
+  <img src="Z:/picture/008/save_picture_847114.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847113.jpg" />
+  <img src="Z:/picture/008/save_picture_847113.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Trance Of The Beats #003 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847111.jpg" />
+  <img src="Z:/picture/008/save_picture_847111.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Sound Drops (2010) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Psychi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847107.jpg" />
+  <img src="Z:/picture/008/save_picture_847107.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847096.jpg" />
+  <img src="Z:/picture/008/save_picture_847096.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ SparkyLinux 2.1.1 Mate [i386, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847094.jpg" />
+  <img src="Z:/picture/008/save_picture_847094.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Depeche Mode - Delta Machine (2013) [FLAC 2.0 16/44|image+cue (WEB-DL)]<Electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847090.jpg" />
+  <img src="Z:/picture/008/save_picture_847090.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Tri-BACKUP Pro 8.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847016.jpg" />
+  <img src="Z:/picture/008/save_picture_847016.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847015.jpg" />
+  <img src="Z:/picture/008/save_picture_847015.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Fausten - Fausten (2013) Ad Noiseam [FLAC|Lossless|tracks + .cue] <Dark Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847014.jpg" />
+  <img src="Z:/picture/008/save_picture_847014.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847012.jpg" />
+  <img src="Z:/picture/008/save_picture_847012.jpg" />
 </div>
 
 

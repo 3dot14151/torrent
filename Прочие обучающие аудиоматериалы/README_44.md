@@ -1,3 +1,190 @@
+###  Публикация: 1811650   (8409) от 11.08.2025
+
+Фиби Гансуорси | Выбирай себя каждый день (2022) [MP3, Людмила Пахмутова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная жизнь нередко заставляет нас забывать о главном — о внимании к собственным желаниям и потребностям. В погоне за успехом и внешними достижениями мы забываем прислушиваться к себе и заботиться о внутреннем покое и балансе. Между тем, ощущение гармонии и внутреннего удовлетворения создает условия для прихода настоящего счастья, любви и успеха. Книга Фиби (   Читать дальше...   )Жанр: Аффирмации, Медитации, Привлечение денегИздательство: БОМБОРАПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF691268FE7B1FB5130F49B1EDCE1F74C2228E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728556   (8141) от 13.08.2025
+
+[Podcast] Сборник | Conspiracy Collection (1968-2025) [OPUS] [EN]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник конспиролога.
+Ультиматум эдишн.
+О мире в котором живём.
+Для тех, кто способен абстрактно и критически мыслить.(   Читать дальше...   )Жанр: PodcastЯзык озвучки: АнглийскийИздательство: СборникПродолжительность: 3204:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5B71A6EC5A89CD232017D2F404078F109F93A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812295   (7878) от 14.08.2025
+
+Коллектив авторов | Знания, которые не займут много места. Квантовая физика (2017) [MP3, Наталья Карпинская]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со школьных уроков известно, что весь мир построен из мельчайших частиц. Но мало кто задумывается, насколько глубоко квантовая физика проникает в нашу повседневную жизнь. Современные технологии, гаджеты и удобства, которыми мы привыкли пользоваться ежедневно, появились именно благодаря открытиям в этой области науки, несмотря на кажущуюся абстрактность и отдаленность (   Читать дальше...   )Жанр: Законы природы, МикромирИздательство: ЭксмоПродолжительность: 03:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A921395D6B1E254C7F73AD3136ECEBCEAE75FB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813196   (7090) от 18.08.2025
+
+Виктор Пекелис | Твои возможности, человек (2025) [MP3, Георгий Попов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об интеллектуальных, психических и физических резервах, которыми обладает каждый человек, о некоторых научно обоснованных приемах и средствах развития наблюдательности, памяти, внимания, творческих способностей в целом.
+Затрагиваются также актуальные вопросы организации творческой работы в условиях информационных перегрузок, взаимоотношений (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 08:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C0AB143FD9786045C9B830E005F38C988C980A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813195   (7062) от 18.08.2025
+
+Артур Лиман | Крайон. Деньги: секрет притяжения. Научитесь создавать изобилие (2023) [MP3, Владислав Горбылев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это практическое руководство, раскрывающее духовные законы процветания в новой эре. Автор, Артур Лиман, исследует послания Крайона, помогая понять истинные причины богатства и бедности, а также научиться управлять энергией денег.
+Книга предлагает четкую систему знаний, объединяющую духовные принципы и практические инструменты для привлечения изобилия. Вы узнаете, (   Читать дальше...   )Жанр: Биоэнергетика, Высший разум, Духовные практики, Практическая эзотерика, Привлечение денегИздательство: АСТПродолжительность: 06:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CA7FAA6C63022B692DD071EB3D11C3A220621D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813530   (6754) от 20.08.2025
+
+Оливье Буке | Османская империя. Шесть веков истории (2025) [MP3, Александр Аравушкин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная тайн и противоречий, Османская империя простерлась на десятки тысяч километров вдоль границы Востока и Запада. Она оказала колоссальное влияние на историю Европы, будучи совсем на нее не похожа. Сравнимая по масштабу с Римской империей, к концу XVI века она занимала три континента и объединила под своей властью множество языков и народов: ее подданными были (   Читать дальше...   )Жанр: историяИздательство: АзбукаПродолжительность: 16:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1152DE4AED8144F28A0CFB5288526A1A414470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813743   (6613) от 21.08.2025
+
+Анодея Джудит | Чакры. 7 ключей для пробуждения и исцеления энергетического тела (2020) [MP3, Екатерина Бабкова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энергетическое тело человека — это сложная структура, состоящая из семи центров, называемых чакрами. Они оказывают непосредственное влияние на наше физическое здоровье, ментальное и эмоциональное состояние. В этой книге всемирно известная исследовательница и автор бестселлеров Анодея Джудит предлагает подробное исследование системы чакр и способы эффективной работы (   Читать дальше...   )Жанр: Йога, Медитации, Практическая эзотерика, СамопознаниеИздательство: ЭксмоПродолжительность: 05:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B34469C22E2534025670006672726A58DDB77BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814110   (6286) от 23.08.2025
 
 Марк Туллий Цицерон | Образцы ораторского искусства (2021) [MP3, Максим Гамаюнов]
@@ -6,7 +193,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6286.jpg" />
 </div>
 
 
@@ -32,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6261.jpg" />
 </div>
 
 
@@ -58,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5828.jpg" />
 </div>
 
 
@@ -87,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5688.jpg" />
 </div>
 
 
@@ -116,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4947.jpg" />
 </div>
 
 
@@ -143,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4799.jpg" />
 </div>
 
 
@@ -169,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3197.jpg" />
 </div>
 
 
@@ -196,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3133.jpg" />
 </div>
 
 
@@ -222,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2985.jpg" />
 </div>
 
 
@@ -249,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2321.jpg" />
 </div>
 
 
@@ -276,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1981.jpg" />
 </div>
 
 
@@ -302,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1611.jpg" />
 </div>
 
 
@@ -328,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1287.jpg" />
 </div>
 
 
@@ -356,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1147.jpg" />
 </div>
 
 
@@ -383,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_539.jpg" />
 </div>
 
 
@@ -411,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38.jpg" />
 </div>
 
 
@@ -438,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30.jpg" />
 </div>
 
 
@@ -464,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25.jpg" />
 </div>
 
 

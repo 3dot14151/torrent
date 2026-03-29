@@ -1,3 +1,82 @@
+###  Публикация: 1630437   (237184) от 30.04.2023
+
+Марни / Marnie (1964) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного произведения Уинстона Грехема
+Героиня фильма Марни Эдгар устраивается на работу в различные фирмы под чужим именем и, проработав некоторое время, исчезает с деньгами компаний, не оставляя никаких следов. Она неуловима, так как постоянно меняет не только имена, но и внешность. Марк Ратлэнд, деловой партнер одной из бывших жертв Марни, разоблачает (   Читать дальше...   )Производство: США / Alfred J. Hitchcock ProductionsЖанр: триллер, драма, мелодрама, детектив, криминал, экранизацияРежиссер: Альфред ХичкокАктеры: Типпи Хедрен, Мартин Габел, Шон Коннери, Луиз Лэтэм, Дайан Бэйкер, Алан Напье, Боб Суини, Милтон Зельцер, Генри Бекман, Эдит ЭвансонПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D543340ECA332C40DD4BEDC094F73FAF8CA7510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637229   (237136) от 19.06.2023
+
+Маленький человек – что же дальше? / Little Man, What Now? (1934) HDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноименном романе Ханса Фаллады. Немецкий служащий, тот самый маленький человек, что находится на нижней ступени социальной лестницы, который может рассчитывать, только на неквалифицированную малооплачиваемую работу, еле-еле позволяющую сводить концы с концами. Ситуация осложняется тем, что в семье ожидается пополнение, его девушка Эмма забеременела (   Читать дальше...   )Производство: США / Universal PicturesЖанр: драма, мелодрамаРежиссер: Фрэнк БорзегиАктеры: Маргарет Саллаван, Дугласс Монтгомери, Алан Хейл, Катрин Дусе, Девитт Дженнингс, Бодил Росинг, Мюриэль Керклэнд, Дональд Хайнс, Джордж Микер, Пол ФиксПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские, английские - отдельноПродолжительность: 01:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E53B6027B170CA86F4E08999D7497EE325223F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630820   (237125) от 02.05.2023
+
+Преданные / Betrayed (1954) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237125.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Голландии, во время Второй мировой войны Карлу Ван Овен посылают шпионить на союзников, хотя и подозревают, что она прибегала однажды к помощи нацистов. Полковник голландской разведки Питер Девентер соглашается, что она может присоединиться к Движению Сопротивления. Но сразу после этого команда начинает нести тяжелые потери и Карлу обвиняют в предательстве...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: триллер, драма, мелодрама, военный, историяРежиссер: Готфрид РейнхартАктеры: Кларк Гейбл, Лана Тернер, Виктор Мэтьюр, Луи Кэлхерн, О.Э. Хассе Уилфрид Хайд-Уайт, Йен Кармайкл, Ниалл МакГиннис, Нора Суинбёрн, Роланд КалверПеревод: Авторский (А.Яковлев)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A5EEBB5B3A5863163DAA356816DC24484FA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574907   (236712) от 07.09.2022
 
 Он хуже меня / Lui е peggio di me (1985) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236712.jpg" />
+  <img src="Z:/picture/005/save_picture_236712.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236620.jpg" />
+  <img src="Z:/picture/005/save_picture_236620.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236580.jpg" />
+  <img src="Z:/picture/005/save_picture_236580.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236234.jpg" />
+  <img src="Z:/picture/005/save_picture_236234.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236119.jpg" />
+  <img src="Z:/picture/005/save_picture_236119.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235673.jpg" />
+  <img src="Z:/picture/004/save_picture_235673.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235529.jpg" />
+  <img src="Z:/picture/004/save_picture_235529.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235473.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235350.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235335.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235060.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234881.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234853.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234687.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234510.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234314.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234212.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234138.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233912.jpg" />
+  <img src="Z:/picture/005/save_picture_233912.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233875.jpg" />
+  <img src="Z:/picture/005/save_picture_233875.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233021.jpg" />
+  <img src="Z:/picture/005/save_picture_233021.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232915.jpg" />
+  <img src="Z:/picture/004/save_picture_232915.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232762.jpg" />
+  <img src="Z:/picture/005/save_picture_232762.jpg" />
 </div>
 
 
@@ -591,86 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97082DE2EA3A973382028236915FE5041647C9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643544   (232330) от 14.07.2023
-
-Короткая встреча / Brief Encounter (1974) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая случайность свела Анну Джессон, мать благополучного семейства, и преуспевающего врача Алека Харви. Они были так близки к тому, чтобы совершить резкий поворот в жизни, но... это оказалось лишь короткой встречей.Производство: Великобритания, Италия / Carlo Ponti Cinematografica, Cecil Clarke Productions, Incorporated Television Company (ITC)Жанр: драмаРежиссер: Алан БриджесАктеры: Ричард Бёртон, Софи Лорен, Джек Хедли, Розмари Лич, Энн Фёрбэнк, Гвен Черрелл, Бенжамин Эдни, Джон Ле Мезюрье, Jumoke Debayo, Кристофер БенжаминПеревод: Многоголосый профессиональный (СВ-Дубль по заказу ГТРК Культура)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), итальянские, испанскиеПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE02C3AFFE7334A675F0153CCA68F7A023D1C607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629081   (232134) от 27.05.2023
-
-Папа Гусь / Father Goose (1964) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая мировая война. Уолтер Эклунд - одиночка по жизни, беспечный морской бродяга. В данный момент он работает на военно-морской флот Британии. Его местонахождение - отдаленный остров в Южном море, его задание - обнаружение вражеских самолетов.
-
-Но неожиданно тихая и спокойная боевая задача превращается в полный бедлам: учительница Кэтрин Фрэно с группой детей высаживается (   Читать дальше...   )Производство: США / Granox CompanyЖанр: мелодрама, комедия, приключения, военныйРежиссер: Ральф НельсонАктеры: Кэри Грант, Лесли Карон, Тревор Ховард, Джек Гуд, Питер Форстер, Саймон Скотт, Кен Своффорд, Шэрил Лок, Пип Спарк, Верина ГринлоуПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0E1E33DFF343367A1BD12C431D82959C2062BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629665   (231720) от 30.05.2023
-
-До свидания, мистер Чипс / Goodbye, Mr. Chips (1939) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый учитель вспоминает свою долгую жизнь и многолетнюю преподавательскую карьеру в школе-интернате для мальчиков. Он выучил несколько поколений ребятишек, помнил всех своих учеников, ставших для него настоящей семьей, а также женитьбу, которая перевернула всю его жизнь. Прототипом мистера Чипса стал Джеймс Хилтон, старый учитель, проработавший в школе Кембриджа (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer British StudiosЖанр: драма, мелодрамаРежиссер: Сэм Вуд, Сидни ФранклинАктеры: Роберт Донат, Грир Гарсон, Терри Килбёрн, Джон Миллз, Пол Хенрейд, Джудит Ферс, Лин Хардинг, Милтон Росмер, Фредерик Лейстер, Луиз ХэмптонПеревод: Двуголосый профессиональный (Светла)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BAFF0AB68A3F2889511A7E807E63E27018FF20
 ```
 
 https://mybot314.ru/tekegram_catalog/

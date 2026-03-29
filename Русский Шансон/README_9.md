@@ -1,3 +1,61 @@
+###  Публикация: 683403   (357417) от 31.10.2015
+
+Сергей Трофимов - 100 лучших композиций (2013) [MP3|320 кб/с]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снегири
+02. Моему другу
+03. Петушки
+04. Я и ты(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9ACD908C0871C6B8EB37403E0DA38D87B45A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329098   (356295) от 03.10.2019
+
+Воровайки - Начало (2019) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356295.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Америкосы
+2. Добрый вечер, дорогой
+3. Муха
+4. Разные маршруты(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDF20440C31D713FE9E4A06ADF56FCE3AD86495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329274   (353946) от 04.10.2019
 
 Лесоповал - Золотые хиты (2019) [MP3|320 Kbps] <Шансон>
@@ -6,7 +64,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353946.jpg" />
+  <img src="Z:/picture/008/save_picture_353946.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349953.jpg" />
+  <img src="Z:/picture/008/save_picture_349953.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348799.jpg" />
+  <img src="Z:/picture/008/save_picture_348799.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348545.jpg" />
+  <img src="Z:/picture/008/save_picture_348545.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348065.jpg" />
+  <img src="Z:/picture/008/save_picture_348065.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347928.jpg" />
+  <img src="Z:/picture/008/save_picture_347928.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347511.jpg" />
+  <img src="Z:/picture/008/save_picture_347511.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332837.jpg" />
+  <img src="Z:/picture/005/save_picture_332837.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330074.jpg" />
+  <img src="Z:/picture/008/save_picture_330074.jpg" />
 </div>
 
 
@@ -280,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329841.jpg" />
+  <img src="Z:/picture/008/save_picture_329841.jpg" />
 </div>
 
 
@@ -309,7 +367,7 @@ VA - Вне закона (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328342.jpg" />
+  <img src="Z:/picture/008/save_picture_328342.jpg" />
 </div>
 
 
@@ -338,7 +396,7 @@ VA - Авторские песни (Эхо Души) (2011) [MP3|192 кб/с]<Ш
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328283.jpg" />
+  <img src="Z:/picture/008/save_picture_328283.jpg" />
 </div>
 
 
@@ -367,7 +425,7 @@ VA - Top 30 - Золото Шансона (2015) [MP3|320 кб/с]<Шансон,
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328146.jpg" />
+  <img src="Z:/picture/008/save_picture_328146.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326656.jpg" />
+  <img src="Z:/picture/008/save_picture_326656.jpg" />
 </div>
 
 
@@ -425,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324708.jpg" />
+  <img src="Z:/picture/008/save_picture_324708.jpg" />
 </div>
 
 
@@ -454,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320152.jpg" />
+  <img src="Z:/picture/008/save_picture_320152.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312861.jpg" />
+  <img src="Z:/picture/008/save_picture_312861.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307847.jpg" />
+  <img src="Z:/picture/008/save_picture_307847.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306135.jpg" />
+  <img src="Z:/picture/008/save_picture_306135.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306047.jpg" />
+  <img src="Z:/picture/008/save_picture_306047.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302738.jpg" />
+  <img src="Z:/picture/008/save_picture_302738.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302150.jpg" />
+  <img src="Z:/picture/008/save_picture_302150.jpg" />
 </div>
 
 
@@ -681,7 +739,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301848.jpg" />
+  <img src="Z:/picture/008/save_picture_301848.jpg" />
 </div>
 
 
@@ -710,7 +768,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284273.jpg" />
+  <img src="Z:/picture/008/save_picture_284273.jpg" />
 </div>
 
 
@@ -724,64 +782,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E788DFE2964BA9C4EE070DDAEA26D9B5169CEEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964116   (281807) от 11.12.2015
-
-Анатолий Полотно - Наша сторона (2015) [MP3|320 кб/с]<Шансон, Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наша сторона (feat. Федя Карманов)
-02. Ледостав
-03. Вниз по Лене по реке
-04. Живи и живи, что еще...(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC30165CA4831E15750A4BDB446A6874C0841685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082484   (278757) от 12.12.2016
-
-Анатолий Полотно - Берег (2016) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Берег (feat. Федя Карманов)
-02. Их умом Россию не понять (feat. Федя Карманов)
-03. Все в порядке (feat. Федя Карманов)
-04. Минуты счастья(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E056928CE09C8AC8A733869E7ABC73E235DB5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

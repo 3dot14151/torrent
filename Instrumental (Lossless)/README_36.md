@@ -1,3 +1,235 @@
+###  Публикация: 1010783   (802443) от 25.04.2016
+
+Mike Pachelli - Fade To Blue (2016) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Got Me Where You Want Me (04:20)
+02. Mediocre Lovin' (04:33)
+03. You Make Livin' Fun (04:00)
+04. Magenta Haze (05:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7597059A70C275BFED307536C312AE4B4EC4A33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120557   (801930) от 31.03.2017
+
+Stone Foundation - Street Rituals (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_801930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The Game (4:15)
+02. Open Your Heart To The World (4:05)
+03. Love Rediscovered (3:37)
+04. The Limit Of A Man (5:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF922140375BA8C167D2DC2A805F37C9A5B1B460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505858   (801453) от 29.10.2021
+
+Joe Bonamassa - Time Clocks (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilgrimage (00:55)
+02. Notches (07:03)
+03. The Heart That Never Waits (05:51)
+04. Time Clocks (07:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25339001BF320589D25FDC5DDEA43CE620F8842E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120895   (801259) от 01.04.2017
+
+Big Jack Johnson & Kim Wilson - The Memphis Barbecue Sessions (2002) [FLAC|Lossless|tracks + .cue] <Blues, Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Baby (4:09)
+02. Humming Blues (4:01)
+03. Don't Care Nothing (3:34)
+04. Smokestack Lightning (4:10)(   Читать дальше...   )Жанр: Blues, Delta BluesПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDF08C2A9D48B6DEE8BA257495111E9B7924B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120946   (801249) от 01.04.2017
+
+Off The Grid - A Lonely Soul (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Lonely Soul A Restless Heart (04:31)
+02. Maybe There's Someone (04:07)
+03. This Ring (06:12)
+04. Someday I Know (04:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB65A28AE0B6B67E2EC43F468F8B9A86E4FF876B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506251   (800831) от 30.10.2021
+
+Joe Bonamassa - Time Clocks (2021) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilgrimage (00:55)
+02. Notches (07:03)
+03. The Heart That Never Waits (05:51)
+04. Time Clocks (07:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EBC0A73DC8FEEBF1E428496C2522FAB4777E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121120   (800618) от 02.04.2017
+
+Hodge Podge Blues Band - Hodge Podge Blues Band (2010) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues Female Vocals>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banker Of Love (4:10)
+02. Thirty Pieces Of Silver (4:20)
+03. Dark Regrets (3:01)
+04. Come To Me (5:50)(   Читать дальше...   )Жанр: Blues, Blues Female VocalsПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6ADF82573B1DD83E4202ADE5F945A8BE6538F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121112   (800604) от 02.04.2017
+
+Koko Taylor - South Side Lady (1973) Remastered 1989 [FLAC|Lossless|image + .cue] <Blues, Female Vocals>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Little Mixed Up (3:42)
+02. Wonder Why (3:23)
+03. What Kind Of Man Is This? (4:56)
+04. Black Nights (3:59)(   Читать дальше...   )Жанр: Blues, Female VocalsПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99157D18D6D706CE5DEE983A295472C2168618CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505700   (799945) от 31.10.2021
 
 Marcus Lazarus - How Low Can You Go? (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +238,7 @@ Marcus Lazarus - How Low Can You Go? (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799945.jpg" />
+  <img src="Z:/picture/008/save_picture_799945.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Joe Bonamassa - Rockin' Christmas Blues (2019) [FLAC|Lossless|image + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799775.jpg" />
+  <img src="Z:/picture/008/save_picture_799775.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ DirtyHands - Dirtyhands (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799686.jpg" />
+  <img src="Z:/picture/008/save_picture_799686.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799675.jpg" />
+  <img src="Z:/picture/008/save_picture_799675.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - Confessin' The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799401.jpg" />
+  <img src="Z:/picture/008/save_picture_799401.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Walter Trout - Survivor Blues (2019) Scene [FLAC|Lossless|tracks + .cue] <Blues-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799351.jpg" />
+  <img src="Z:/picture/008/save_picture_799351.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799243.jpg" />
+  <img src="Z:/picture/008/save_picture_799243.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Peter Karp - Alabama Town (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798872.jpg" />
+  <img src="Z:/picture/008/save_picture_798872.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798749.jpg" />
+  <img src="Z:/picture/008/save_picture_798749.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ The Bluesbones - Live at the Bosuil (2013) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797650.jpg" />
+  <img src="Z:/picture/008/save_picture_797650.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797029.jpg" />
+  <img src="Z:/picture/008/save_picture_797029.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Dusty Springfield - A Girl Called Dusty (1964) Reissue 1997 [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794471.jpg" />
+  <img src="Z:/picture/008/save_picture_794471.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793726.jpg" />
+  <img src="Z:/picture/008/save_picture_793726.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Bill Thomas Trio - Rough Draft (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793622.jpg" />
+  <img src="Z:/picture/008/save_picture_793622.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Otis Redding - Otis Blue / Otis Redding Sings Soul (1965) Remastered 1991, Mono 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793585.jpg" />
+  <img src="Z:/picture/008/save_picture_793585.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ James Brown - Live At The Apollo (1962) Expanded Edition Remastered 2004 [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793471.jpg" />
+  <img src="Z:/picture/008/save_picture_793471.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Eric McFadden - Eric McFadden does AC/DC: Acoustic Tribute (2018) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793002.jpg" />
+  <img src="Z:/picture/008/save_picture_793002.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Melanie Mason - Bendin' The Blues (2001) [FLAC|Lossless|image + .cue] <Chicago B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792930.jpg" />
+  <img src="Z:/picture/008/save_picture_792930.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Melanie Mason - Bendin' The Blues (2001) [FLAC|Lossless|image + .cue] <Chicago B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DEC155EBC86C5B8C18055837354420CB8B475AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123226   (792528) от 07.04.2017
-
-Dave Fields - Unleashed (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anticipating You  (06:35) 
-02. Going Down  (04:38) 
-03. Child Of The World  (05:15) 
-04. My Mama's Got The Blues  (04:01) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1286CC284D046800056CF52A11D39A559C6E93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123421   (792524) от 07.04.2017
-
-Jason Barnhouse - The Wounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run Your Fingers (feat. Aaron Scott, Johnny Compton & Aaron Fisher)  (03:21) 
-02. This Should Be (feat. Aaron Fisher, Johnny Compton & Aaron Scott)  (04:51) 
-03. Questions (feat. Aaron Fisher, Aaron Scott & Johnny Compton)  (03:10) 
-04. Liquid Emotion (feat. Johnny Compton, Aaron Fisher & Aaron Scott)  (04:11) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE88D427684BB41D13854293D729388A406F0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123347   (792522) от 07.04.2017
-
-The Delta Saints - Bones (2015) [FLAC|Lossless|tracks + .cue] <Delta Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I Worry  (03:47) 
-02. Bones  (03:34) 
-03. Heavy Hammer  (03:05) 
-04. Zydeco  (03:21) (   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3637415AF6B585F638379FF44DE3EDFA0395FC10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123402   (792489) от 07.04.2017
-
-The Yardbirds - Birdland (2003) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not Talking  (02:44) 
-02. Crying Out For Love  (04:36) 
-03. The Nazz Are Blue  (03:15) 
-04. For Your Love  (03:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB7B46A2B425FE0CBF7914BCEFBF6A78570129D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510503   (791416) от 16.11.2021
-
-Gov't Mule - Heavy Load Blues (2021) 2xCD, Deluxe Edition [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc A:
-01. Blues Before Sunrise (3:44)
-02. Hole In My Soul (4:29)
-03. Wake Up Dead (5:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E88F9597CF595C5111661D0C754E2CD5A9E6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387552   (791337) от 02.06.2020
-
-Otis Redding - Stax Classics (2017) [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 (Sittin' On) The Dock Of The Bay
-2 These Arms Of Mine
-3 Try A Little Tenderness
-4 I've Been Loving You Too Long(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5AABF707C9883C1CE89111804BBCAF6F4DD7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202409   (790462) от 28.01.2018
-
-Carl Verheyen - Essential Blues (2017) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Take What I Want (3:37)
-02. Someday After A While (4:29)
-03. Stealing Gasoline (4:31)
-04. Dodging The Blues (4:20)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00.39.50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201DF6BD8F0137FF887F373457C3307FCF156423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202328   (790450) от 28.01.2018
-
-Jimmie Vaughan - 6 альбомов, 7 CD (1994-2011) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Texas Blues, Jazz Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джимми Лоренс Воэн (Jimmie Lawrence Vaughan), американский блюз-роковый гитарист и певец, старший брат легенды техасского блюза, гитариста Стиви Рэй Вона, ключевая фигура в становлении остинской блюзовой сцены 70-х, родился 20 марта 1951 года в местечке Оак Клифф, Южный Даллас, штат Техас. Несколько известных блюзовых гитаристов оказали значительное влияние на стиль (   Читать дальше...   )Список альбомов:
-1994 | Strange Pleasure
-1998 | Out There
-2001 | Do You Get The Blues?(   Читать дальше...   )Жанр: Blues, Modern Electric Texas Blues, Jazz Blues |Продолжительность: 05:46:39 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C403C24F0CD84508879D90DD7CD0C5467F5717
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Notepad++ 7.5.6 Final + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766524.jpg" />
+  <img src="Z:/picture/008/save_picture_766524.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VueScan Pro 9.6.07 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766518.jpg" />
+  <img src="Z:/picture/008/save_picture_766518.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MeshBoolean v1.6 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766515.jpg" />
+  <img src="Z:/picture/008/save_picture_766515.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sandboxie 5.24 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766494.jpg" />
+  <img src="Z:/picture/008/save_picture_766494.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MultiBootHDD 64GB 2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766484.jpg" />
+  <img src="Z:/picture/008/save_picture_766484.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Total Commander 9.12 Extended 18.3 Ful |  Lite RePack (& Portable) by BurSoft  [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766483.jpg" />
+  <img src="Z:/picture/008/save_picture_766483.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BELOFF 2018.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766482.jpg" />
+  <img src="Z:/picture/008/save_picture_766482.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Privacy Eraser Free 5.1 Build 3567 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766297.jpg" />
+  <img src="Z:/picture/008/save_picture_766297.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ save2pc Ultimate 5.4.8 Build 1565 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766271.jpg" />
+  <img src="Z:/picture/008/save_picture_766271.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Unity Pro 2019.4.0f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766254.jpg" />
+  <img src="Z:/picture/008/save_picture_766254.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Visual Studio 2019 Professional 16.6.2 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766210.jpg" />
+  <img src="Z:/picture/008/save_picture_766210.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Visual Studio 2019 Community 16.6.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766208.jpg" />
+  <img src="Z:/picture/008/save_picture_766208.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ LibreOffice 6.4.5.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766198.jpg" />
+  <img src="Z:/picture/008/save_picture_766198.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ StartIsBack++ 2.0.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766173.jpg" />
+  <img src="Z:/picture/008/save_picture_766173.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Paint.NET 4.0.16 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766172.jpg" />
+  <img src="Z:/picture/008/save_picture_766172.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Daum PotPlayer 1.7.1915 DC 17.04.2017 Stable RePack + Portable by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766166.jpg" />
+  <img src="Z:/picture/008/save_picture_766166.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Advanced Renamer 3.77 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766149.jpg" />
+  <img src="Z:/picture/008/save_picture_766149.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Topaz Gigapixel AI 5.0.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766140.jpg" />
+  <img src="Z:/picture/008/save_picture_766140.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Microsoft Visual Studio 2019 Enterprise 16.6.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766133.jpg" />
+  <img src="Z:/picture/008/save_picture_766133.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Unity Asset - Obfuscator Pro 3.9.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766132.jpg" />
+  <img src="Z:/picture/008/save_picture_766132.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ ScreenToGif 2.35.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766083.jpg" />
+  <img src="Z:/picture/008/save_picture_766083.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Wise Care 365 Pro 4.61.439 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766078.jpg" />
+  <img src="Z:/picture/008/save_picture_766078.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Autorun Organizer 5.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766073.jpg" />
+  <img src="Z:/picture/008/save_picture_766073.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Bat! Professional 9.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766051.jpg" />
+  <img src="Z:/picture/008/save_picture_766051.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Wise Care 365 Pro 5.2.5.520 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766034.jpg" />
+  <img src="Z:/picture/008/save_picture_766034.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766031.jpg" />
+  <img src="Z:/picture/008/save_picture_766031.jpg" />
 </div>
 
 

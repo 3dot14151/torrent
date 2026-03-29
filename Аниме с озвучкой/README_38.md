@@ -1,3 +1,29 @@
+###  Публикация: 1629496   (237615) от 28.04.2023
+
+Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма разворачивается на солнечных просторах Гавайи. Главная героиня, это семнадцатилетняя симпатичная девушка Хива Нацунаги, обладательница шикарных каштановых волос и глаз цвета карамели. Она всегда готова без сомнения и полностью окунуться в любые приключения и путешествия. Однажды ей приходит в голову мысль отправиться в Гавайи за сестрой. Попав в это (   Читать дальше...   )Производство: Япония, студия Bandai Namco PicturesЖанр: повседневностьРежиссер: Мидзусима СэйдзиЯзык озвучки: Русский (Anistar (без рекламы))Субтитры: ОтсутствуютПродолжительность: 1 эпизод по 98 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD3F98F8A5B9284360E0A0D9EB081F3E502C2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547971   (237411) от 04.05.2022
 
 Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRip 720p raw+rus+ukr+eng
@@ -6,7 +32,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237411.jpg" />
+  <img src="Z:/picture/005/save_picture_237411.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235763.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234976.jpg" />
+  <img src="Z:/picture/005/save_picture_234976.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234671.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233265.jpg" />
+  <img src="Z:/picture/005/save_picture_233265.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233259.jpg" />
+  <img src="Z:/picture/005/save_picture_233259.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233198.jpg" />
+  <img src="Z:/picture/004/save_picture_233198.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233183.jpg" />
+  <img src="Z:/picture/005/save_picture_233183.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг короля [2021, TV, 23 и
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233108.jpg" />
+  <img src="Z:/picture/005/save_picture_233108.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Yasuke | Ясукэ [2021, Web, 6 из 6] WEB-DL 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232754.jpg" />
+  <img src="Z:/picture/005/save_picture_232754.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232073.jpg" />
+  <img src="Z:/picture/004/save_picture_232073.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231610.jpg" />
+  <img src="Z:/picture/004/save_picture_231610.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231532.jpg" />
+  <img src="Z:/picture/004/save_picture_231532.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231151.jpg" />
+  <img src="Z:/picture/005/save_picture_231151.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231132.jpg" />
+  <img src="Z:/picture/005/save_picture_231132.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231120.jpg" />
+  <img src="Z:/picture/005/save_picture_231120.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231061.jpg" />
+  <img src="Z:/picture/004/save_picture_231061.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230603.jpg" />
+  <img src="Z:/picture/004/save_picture_230603.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце све�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230520.jpg" />
+  <img src="Z:/picture/005/save_picture_230520.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230519.jpg" />
+  <img src="Z:/picture/005/save_picture_230519.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230325.jpg" />
+  <img src="Z:/picture/005/save_picture_230325.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230322.jpg" />
+  <img src="Z:/picture/005/save_picture_230322.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230307.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229697.jpg" />
+  <img src="Z:/picture/004/save_picture_229697.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226313.jpg" />
+  <img src="Z:/picture/005/save_picture_226313.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F36DDF903FC91A16768DB3A6B20CAA59EF1D1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513396   (224561) от 28.11.2021
-
-Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альтернативном мире с нуля [ТВ-2] [2020, TV, 25 из 25] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Субару Нацуки, ничем не примечательный затворник, вдруг попадает в другой мир! Казалось бы, всё теперь ему по плечу, а рядом будет красавица-призывательница. Да только вот реальность оказалась жестока: с магией он всё ещё не в ладах, сил не прибавилось, да и никакой красавицы рядом не предвидится. А тут ещё и разбойники напали! Вот только на помощь ему пришла сребровласая (   Читать дальше...   )Производство: Студия White FoxЖанр: фэнтези, драма, исекайРежиссер: Ватанабэ МасахаруЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Встроенные, Надписи |Продолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC5ADB78602E063CFB95A039F011AF2F8890B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

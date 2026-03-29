@@ -1,3 +1,112 @@
+###  Публикация: 1170166   (400603) от 30.09.2017
+
+Piezo 1.5.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_400603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo - простое и симпатичное решение для качественной записи звука, которое поможет вам записать звук из любого приложения или любого друго источника звука (аудио выход, микрофон и т.д.), при этом, практически не требуя никаких настроек. Приложение не требует никаких настроек, достаточно его запустить и выбрать из списка источников приложение. Piezo умеет записывать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C1C7A0F5D6DFB999E54B2DDC2C550A18C1C916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170157   (400572) от 30.09.2017
+
+MenuBar Stats 2.2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_400572.jpg" />
+</div>
+
+
+###  Подробнее
+
+MenuBar Stats - системный монитор, очистка памяти и здоровье батареи.
+Каждый модуль можно увидеть в строке меню. Каждый модуль может быть объединен в 1 окне, или в отдельном окне.
+
+Вы можете отобразить краткую информацию или максимум подробной информации, включая графики, топ-процессы и многое другое. Получать уведомления для вашего здоровья или батареи от других (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: Fabrice LeyneПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD7402C6E16A1CC08E56C9BC6B7B3591D17BB1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170162   (400429) от 30.09.2017
+
+MacClean 3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_400429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики PhoneClean – популярного инструмента для очистки iOS-устройств – представили обновленное решение для компьютеров Mac. Приложение MacClean 3 позиционируется как эффективное средство с набором специальных модулей, с помощью которых можно избавить OS X от ненужных файлов.
+
+MacClean 3 содержит целый ряд новых функций для очистки Mac от неиспользуемых файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E925292C0A804A3C23810E6C876591651AF43DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170194   (400208) от 30.09.2017
+
+Человек-паук: Возвращение домой / Spider-Man: Homecoming (2017) WEB-DL [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_400208.jpg" />
+</div>
+
+
+###  Подробнее
+
+После исторической встречи с командой Мстителей Питер Паркер возвращается домой, стараясь зажить обычной жизнью под опекой своей тёти Мэй. Но теперь за Питером приглядывает ещё кое-что… Тони Старк видел Человека-Паука в деле и должен стать его наставником. Когда новый злодей Стервятник угрожает уничтожить всё, что дорого Питеру, приходит время доказать всем, что (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Роберт Дауни мл., Майкл Китон, Мариса Томей, Джон Фавро, Джейкоб Баталон, Зендея, Лора Хэрриер, Тони Револори, Дональд ГловерПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 02:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DC9A6F17C1C09DD19C7A30F00BA2646FD6B14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565555   (400026) от 26.10.2012
 
 Hope Sandoval & The Warm Inventions - Through The Devil Softly (2009) [ALAC|Lossless]<Indie Rock/Dream Pop>
@@ -6,7 +115,7 @@ Hope Sandoval & The Warm Inventions - Through The Devil Softly (2009) [ALAC|Loss
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400026.jpg" />
+  <img src="Z:/picture/008/save_picture_400026.jpg" />
 </div>
 
 
@@ -41,7 +150,7 @@ TextSoap 8.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399820.jpg" />
+  <img src="Z:/picture/008/save_picture_399820.jpg" />
 </div>
 
 
@@ -67,7 +176,7 @@ iTubeDownloader 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399817.jpg" />
+  <img src="Z:/picture/008/save_picture_399817.jpg" />
 </div>
 
 
@@ -95,7 +204,7 @@ TouchCopy 16.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399626.jpg" />
+  <img src="Z:/picture/008/save_picture_399626.jpg" />
 </div>
 
 
@@ -124,7 +233,7 @@ Geekbench 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399538.jpg" />
+  <img src="Z:/picture/008/save_picture_399538.jpg" />
 </div>
 
 
@@ -153,7 +262,7 @@ Textual 7 Standard Edition 7.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398741.jpg" />
+  <img src="Z:/picture/008/save_picture_398741.jpg" />
 </div>
 
 
@@ -182,7 +291,7 @@ Downie 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398630.jpg" />
+  <img src="Z:/picture/008/save_picture_398630.jpg" />
 </div>
 
 
@@ -211,7 +320,7 @@ DCommander 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398623.jpg" />
+  <img src="Z:/picture/008/save_picture_398623.jpg" />
 </div>
 
 
@@ -239,7 +348,7 @@ TotalFinder 1.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398565.jpg" />
+  <img src="Z:/picture/008/save_picture_398565.jpg" />
 </div>
 
 
@@ -267,7 +376,7 @@ Little Snitch 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398352.jpg" />
+  <img src="Z:/picture/008/save_picture_398352.jpg" />
 </div>
 
 
@@ -294,7 +403,7 @@ popCalendar 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397802.jpg" />
+  <img src="Z:/picture/008/save_picture_397802.jpg" />
 </div>
 
 
@@ -322,7 +431,7 @@ NetWorker - Advanced Network Information App 4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397773.jpg" />
+  <img src="Z:/picture/008/save_picture_397773.jpg" />
 </div>
 
 
@@ -350,7 +459,7 @@ FontDoctor 10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397772.jpg" />
+  <img src="Z:/picture/008/save_picture_397772.jpg" />
 </div>
 
 
@@ -378,7 +487,7 @@ Mazzy Star - 3 альбома [ALAC|Lossless]<Indie Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397677.jpg" />
+  <img src="Z:/picture/008/save_picture_397677.jpg" />
 </div>
 
 
@@ -413,7 +522,7 @@ Tuxera NTFS for Mac 2012.3.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397673.jpg" />
+  <img src="Z:/picture/008/save_picture_397673.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ Carbon Copy Cloner 5.0.3 (5115) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397620.jpg" />
+  <img src="Z:/picture/008/save_picture_397620.jpg" />
 </div>
 
 
@@ -470,7 +579,7 @@ CADintosh X 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397617.jpg" />
+  <img src="Z:/picture/008/save_picture_397617.jpg" />
 </div>
 
 
@@ -496,7 +605,7 @@ Araxis Merge Pro 2017 (4937) macOS Sierra Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396726.jpg" />
+  <img src="Z:/picture/008/save_picture_396726.jpg" />
 </div>
 
 
@@ -524,7 +633,7 @@ Translatium - translator 7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396718.jpg" />
+  <img src="Z:/picture/008/save_picture_396718.jpg" />
 </div>
 
 
@@ -550,7 +659,7 @@ Winclone Pro 6.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396628.jpg" />
+  <img src="Z:/picture/008/save_picture_396628.jpg" />
 </div>
 
 
@@ -577,7 +686,7 @@ Bartender 3 v.3.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396568.jpg" />
+  <img src="Z:/picture/008/save_picture_396568.jpg" />
 </div>
 
 
@@ -604,7 +713,7 @@ Privatus 5.0.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395813.jpg" />
+  <img src="Z:/picture/008/save_picture_395813.jpg" />
 </div>
 
 
@@ -615,115 +724,6 @@ Privatus - это простое приложение для удаления н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D10214CD4408A1202B6BA68A30C560A7DE3186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171625   (395812) от 05.10.2017
-
-Paste 2.2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить содержимое буфера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2017Разработчик: Dmitry ObukhovПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234A95C899B5ABA249353753516600B0B6310CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171607   (395764) от 05.10.2017
-
-Dropshare 4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395764.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-
-Dropshare - приложение строки меню для Drag&Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2017Разработчик: DropshareПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3428A294D8D58BB2C6412B20FCBFAD5F0B4F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171660   (395575) от 05.10.2017
-
-PhoneClean Pro 5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395575.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneClean Pro – персональный уборщик мусора для устройств на базе операционной системы iOS. Программа поможет избавиться от различного ненужного хлама владельцам iPhone, iPod Touch и iPad. Довольно часто, пользователи этих устройств сталкиваются с тем, что места во встроенной памяти становится недостаточно и приходится искать приложения, которые можно было бы удалить, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3CA098ACBA95B185EF90639AEA2AF19C320AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171558   (395464) от 05.10.2017
-
-iStat Menus 6.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395464.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus  — лучшее приложение для контроля работы Mac
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
-
-iStat Menus позволяет в режиме реального времени следить за десятками показателей. Загруженность процессора, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября  2017Разработчик: BjangoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский*, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69549C6CCF7B80A17E2BD5A8C0E6F2ADFA60960
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ IObit Uninstaller Pro 9.6.0.2 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764574.jpg" />
+  <img src="Z:/picture/008/save_picture_764574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Camtasia 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764568.jpg" />
+  <img src="Z:/picture/008/save_picture_764568.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Talamanca - Arrivals & Departures (2017) [MP3|320 Kbps] <Breaks,House,Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764562.jpg" />
+  <img src="Z:/picture/008/save_picture_764562.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764559.jpg" />
+  <img src="Z:/picture/008/save_picture_764559.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ K-Lite Codec Pack Update 13.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764557.jpg" />
+  <img src="Z:/picture/008/save_picture_764557.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764552.jpg" />
+  <img src="Z:/picture/008/save_picture_764552.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Wondershare PDFelement 6 Pro 6.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764550.jpg" />
+  <img src="Z:/picture/008/save_picture_764550.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Mozilla Thunderbird 60.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764535.jpg" />
+  <img src="Z:/picture/008/save_picture_764535.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Waterfox 56.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764533.jpg" />
+  <img src="Z:/picture/008/save_picture_764533.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Telegram Desktop 2.1.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764526.jpg" />
+  <img src="Z:/picture/008/save_picture_764526.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ YouTube By Click Premium 2.2.133 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764520.jpg" />
+  <img src="Z:/picture/008/save_picture_764520.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Media Player Classic Home Cinema 1.9.6 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764519.jpg" />
+  <img src="Z:/picture/008/save_picture_764519.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ O&O Defrag Professional 23.5 Build 5019 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764517.jpg" />
+  <img src="Z:/picture/008/save_picture_764517.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Kerish Doctor 2020 4.80 DC 03.07.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764514.jpg" />
+  <img src="Z:/picture/008/save_picture_764514.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ iClock Pro v3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764492.jpg" />
+  <img src="Z:/picture/008/save_picture_764492.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764490.jpg" />
+  <img src="Z:/picture/008/save_picture_764490.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Scanitto Pro 3.17 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764489.jpg" />
+  <img src="Z:/picture/008/save_picture_764489.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Divinyls - What A Life! (1985) [WavPack|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764487.jpg" />
+  <img src="Z:/picture/008/save_picture_764487.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DjVu Reader FS 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764484.jpg" />
+  <img src="Z:/picture/008/save_picture_764484.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ TechSmith Snagit 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764477.jpg" />
+  <img src="Z:/picture/008/save_picture_764477.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Accusonus - Regroover Pro 1.7.8 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764464.jpg" />
+  <img src="Z:/picture/008/save_picture_764464.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ XYplorer 19.60.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764461.jpg" />
+  <img src="Z:/picture/008/save_picture_764461.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC 03.07.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764452.jpg" />
+  <img src="Z:/picture/008/save_picture_764452.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Balabolka 2.15.0.747 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764450.jpg" />
+  <img src="Z:/picture/008/save_picture_764450.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Wise Care 365 Pro 5.5.5.550 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764449.jpg" />
+  <img src="Z:/picture/008/save_picture_764449.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Privacy Eraser Free 5.19.0 Build 4122 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764413.jpg" />
+  <img src="Z:/picture/008/save_picture_764413.jpg" />
 </div>
 
 

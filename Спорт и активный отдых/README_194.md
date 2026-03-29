@@ -1,3 +1,185 @@
+###  Публикация: 1814198   (6250) от 23.08.2025
+
+MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалификация (23.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6250.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2025 суббота 11:50 МСК этап 14 Балатонфэкаяр. Гран-при Венгрии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814244   (6249) от 23.08.2025
+
+MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6249.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2025 суббота 16:00 МСК этап 14 Балатонфэкаяр. Гран-при Венгрии. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905FD24395BD227D832F5D9E74EB34E4563215C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814463   (6074) от 24.08.2025
+
+MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6074.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 августа 2025 воскресенье 15:00 МСК этап 14 Балатонфэкаяр. Гран-при Венгрии. Гонка (26 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CE9108679D9CFDFF0A5C77C4C1C95E1FB13533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815675   (4941) от 31.08.2025
+
+Формула 1. Сезон 2025. Этап 15. Гран-при Нидерландов. Квалификация (30.08.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4941.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 августа 2025, суббота. 16:00 МСК. Этап 15, Зандворт. Гран-при Нидерландов. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B55980A615437BF4DB5B27E8811CF4019BD1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815890   (4829) от 01.09.2025
+
+Формула 1. Сезон 2025. Этап 15. Гран-при Нидерландов. Гонка (31.08.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4829.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 августа 2025, суббота. 16:00 МСК. Этап 15. Арена: Кольцо Зандворт. Гран-при Нидерландов. Гонка (72 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5249C49EE1F0D0768ABD720146D66F69696237F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816668   (4100) от 06.09.2025
+
+Обратный отсчет: Канело против Кроуфорда / Countdown: Canelo vs. Crawford (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 2) 1win Studio [AD]
+
+>>Спорт и активный отдых
+>>Бокс
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джош Бролин, в качестве рассказчика, раскроет подробности подготовки и личной жизни Канело Альвареса и Теренса Кроуфорда перед их историческим поединком в суперсреднем весе.Производство: США / NetflixЖанр: документальный, спортРежиссер: Джеки Декер, Тим МуленУчастники: Канело Альварес, Теренс КроуфордПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: ~00:45:00 серияРеклама: присутствует пара вставок видеорекламы и статичный логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DECDBBEC240AD9EF53EC00D38B19088B507AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816885   (3873) от 07.09.2025
+
+Формула 1. Сезон 2025. Этап 16. Гран-при Италии. Квалификация (06.09.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3873.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 сентября 2025 суббота 17:00 МСК этап 16 Монца. Гран-при Италии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06CAB46EF07214C307E3D3C29A93D3C6069EEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816880   (3841) от 07.09.2025
 
 MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалификация (06.09.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +188,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3841.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3839.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3837.jpg" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3718.jpg" />
 </div>
 
 
@@ -110,7 +292,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2905.jpg" />
 </div>
 
 
@@ -136,7 +318,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Спринт (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2902.jpg" />
 </div>
 
 
@@ -162,7 +344,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2751.jpg" />
 </div>
 
 
@@ -188,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1614.jpg" />
 </div>
 
 
@@ -214,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1436.jpg" />
 </div>
 
 
@@ -240,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1032.jpg" />
 </div>
 
 
@@ -266,7 +448,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_476.jpg" />
 </div>
 
 
@@ -292,7 +474,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_474.jpg" />
 </div>
 
 
@@ -318,7 +500,7 @@ MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_206.jpg" />
 </div>
 
 

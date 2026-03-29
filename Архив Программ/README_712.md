@@ -1,3 +1,213 @@
+###  Публикация: 1028333   (690536) от 22.06.2016
+
+Dism++ 10.1.6.1 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dism++ - утилита предназначена для продвинутых пользователей, которая поможет осуществить «генеральную уборку» в операционной системе Windows. С ней вы можете очистить систему от временных файлов, удалить логи, кэш и т.д. Интересной особенностью является поддержка сжатия уже установленной системы (% сжатия выбирается в настройках программы). помимо всего прочего (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1149F201F97CB448025E46085E81AD9484E8A915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534868   (690532) от 04.03.2022
+
+Calibre 5.38.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB61FB5FB7F8B81111E7B01A28C04B10C07CC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534873   (690531) от 04.03.2022
+
+BurnAware Professional / Premium 15.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690531.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5E1A964B0DAB8ED420E8978BB73A2B59EBE819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534805   (690528) от 04.03.2022
+
+WonderFox HD Video Converter Factory Pro 24.9 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690528.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE83D3D914CA01D8E8916F335C4FE17118E0354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534879   (690526) от 04.03.2022
+
+Macrorit Partition Expert 6.0.0 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779F093F52DD59460307135B6375DAB3DE92A9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534992   (690524) от 04.03.2022
+
+EF Commander 2022.03 + Portable  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690524.jpg" />
+</div>
+
+
+###  Подробнее
+
+EF Commander  — замечательный двухпанельный файловый менеджер с почти неограниченными возможностями, простой в использовании и крайне нетребователен к ресурсам компьютера. Используется для управления файлами самых разнообразных типов и форматов, выполнен в стиле Total Commander, но несколько отличающийся от последнего функциями и интерфейсом.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C371179736FBA0142575D95152FBD0F647B784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403537   (690484) от 20.08.2020
+
+Magic Uneraser 5.1 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление удаленных файлов в несколько простых шагов! Magic Uneraser является самым удобным и простым в использовании инструментом для восстановления данных. Программа восстанавливает любые типы файлов. Продукт поддерживает все типы носителей, включая жесткие диски, SSD диски, флэш-накопители и карты памяти.
+Простое и надежное восстановление файлов
+Magic Uneraser (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C2A92E3BDB00E51F37E0B07A8CEE12A209BBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403527   (690482) от 20.08.2020
+
+Topaz Gigapixel AI 5.1.1 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C035AA041ED04EFC1161AC5FF2863D78B407652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403530   (690478) от 20.08.2020
 
 Topaz Mask AI 1.3.0 RePack (& Portable) by TryRooM [En]
@@ -6,7 +216,7 @@ Topaz Mask AI 1.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690478.jpg" />
+  <img src="Z:/picture/008/save_picture_690478.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ Google Chrome 84.0.4147.135 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690476.jpg" />
+  <img src="Z:/picture/008/save_picture_690476.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ FlipBuilder Flip PDF Professional 2.3.25 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690413.jpg" />
+  <img src="Z:/picture/008/save_picture_690413.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ Multi Commander 6.2 Build 2147 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690412.jpg" />
+  <img src="Z:/picture/008/save_picture_690412.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ CCleaner 5.19.5633 Professional Edition Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690409.jpg" />
+  <img src="Z:/picture/008/save_picture_690409.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ Qmmp 0.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690402.jpg" />
+  <img src="Z:/picture/008/save_picture_690402.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ Hotspot Shield Elite 5.20.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690400.jpg" />
+  <img src="Z:/picture/008/save_picture_690400.jpg" />
 </div>
 
 
@@ -188,7 +398,7 @@ BurnAware Professional 12.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690386.jpg" />
+  <img src="Z:/picture/008/save_picture_690386.jpg" />
 </div>
 
 
@@ -214,7 +424,7 @@ Vivaldi 2.3.1440.61 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690379.jpg" />
+  <img src="Z:/picture/008/save_picture_690379.jpg" />
 </div>
 
 
@@ -240,7 +450,7 @@ Ant Download Manager Pro 1.19.3 Build 72843 (& portable) RePack by xetrin [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690327.jpg" />
+  <img src="Z:/picture/008/save_picture_690327.jpg" />
 </div>
 
 
@@ -266,7 +476,7 @@ Adobe Animate CC 2015.1 15.1.1.13 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690271.jpg" />
+  <img src="Z:/picture/008/save_picture_690271.jpg" />
 </div>
 
 
@@ -292,7 +502,7 @@ Auslogics File Recovery 7.0.0.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690268.jpg" />
+  <img src="Z:/picture/008/save_picture_690268.jpg" />
 </div>
 
 
@@ -318,7 +528,7 @@ AusLogics BoostSpeed 9.0.0.0 DC 20.06.2016 RePack (& Portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690265.jpg" />
+  <img src="Z:/picture/008/save_picture_690265.jpg" />
 </div>
 
 
@@ -344,7 +554,7 @@ Avast Free Antivirus 12.1.2272 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690256.jpg" />
+  <img src="Z:/picture/008/save_picture_690256.jpg" />
 </div>
 
 
@@ -370,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690224.jpg" />
+  <img src="Z:/picture/008/save_picture_690224.jpg" />
 </div>
 
 
@@ -396,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690219.jpg" />
+  <img src="Z:/picture/008/save_picture_690219.jpg" />
 </div>
 
 
@@ -422,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690217.jpg" />
+  <img src="Z:/picture/008/save_picture_690217.jpg" />
 </div>
 
 
@@ -448,7 +658,7 @@ Master PDF Editor 5.3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690215.jpg" />
+  <img src="Z:/picture/008/save_picture_690215.jpg" />
 </div>
 
 
@@ -459,217 +669,6 @@ Master PDF Editor - это программа, предназначенная д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA2C6CECF721BE52D8F6103383BA7834B6D8E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289041   (690213) от 14.03.2019
-
-Slimjet 22.0.4.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860AC2EE368E17652FC28485AFF5C81F0D3E6476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403435   (690152) от 20.08.2020
-
-Blender 2.83.5 LTS + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C731533B98B21AADDC24972784D088C911027629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403569   (690149) от 20.08.2020
-
-IObit Uninstaller Pro 10.0.2.20 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690149.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F1ABFEBB45D5747F7948C997B82A15D657CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402993   (690139) от 20.08.2020
-
-4K Video Downloader 4.13.0.3800 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690139.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
-Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0CD102BA0095B168F5A7FF330FF02C17387FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028366   (690109) от 22.06.2016
-
-Avast Internet Security 12.1.2272 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Internet Security - Nitro Update в сочетании с самым защищенным в мире браузером. Заблокируйте навязчивую рекламу с помощью Блокировщика рекламы, воспользуйтесь Загрузчиком видео для просмотра любимых видео в режиме оффлайн, совершайте покупки или банковские операции онлайн с помощью Режима безопасных платежей, который надежно изолирует ваш браузер от любых (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181147312A5880370D0F867C87B4F3A1BE79C1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028413   (690098) от 22.06.2016
-
-Avast Premier 12.1.2272 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premier - Nitro Update совершенствует сканирование сети, включает установщик обновлений стороннего ПО, защищает от фишинговых и мошеннических сайтов, удаляет конфиденциальные данные без возможности восстановления, включает защищенный браузер, для совершения покупок и банковских операций онлайн в условиях абсолютной защищенности и без рекламы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A860315C51E0F7D92011649AF9306B3E68B0CD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028374   (690093) от 22.06.2016
-
-Kolor Autopano Giga 4.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autopano Giga - программа для создания панорамных изображений, которую без преувеличения можно считать грандиозным прорывом в этой области в течение последних лет. Весь процесс по созданию панорамы полностью автоматизирован: сама подгонит фрагменты, откорректирует и сбалансирует цвет и яркость, может даже сама найти подходящие для склейки фото в указанной папке. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E1B7A74B22D101E33868BA86CB223DCEC6573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534704   (690088) от 04.03.2022
-
-SamDrivers 22.1 OLD - Сборник драйверов для Windows [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от SamLab, для всех 32-х и 64-битных операционных систем Windows, начиная от Windows XP и до Windows 11, включая серверные платформы. В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F3F687346222A195EC9179FC6711937F274497
 ```
 
 https://mybot314.ru/tekegram_catalog/

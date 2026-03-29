@@ -1,3 +1,81 @@
+###  Публикация: 1783734   (15016) от 11.06.2025
+
+Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641224   (14912) от 12.06.2025
+
+Strangeland (2021) [Multi] (3.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь посреди кошмарного карнавала и наблюдаете, как золотовласая женщина бросается ради Вас в бездонный колодец. Вы ищете подсказки и помощь у насмешливых воронов, безглазого писца, живой печки, изуродованной русалки и многих других, кто обитает в парке. Тем временем с пика возвышающихся американских горок пронзительно визжит тень, и Вы осознаёте, что (   Читать дальше...   )Тип издания: LicenseРазработчик: Wormwood StudiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Венгерский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Венгерский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0DA7F1F1E4E615E0910F86A2C14F1EB00F68F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752028   (14905) от 12.06.2025
+
+Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прогуляйтесь по улицам Парижа в игре Broken Sword - Shadow of the Templars: Reforged - значительно улучшенной версии многоуважаемого и всеми любимого классического приключения, получившего множество наград. Насладитесь глобальной историей, в которой отважный американец Джордж Стоббарт и бесстрашная журналистка Нико Коллар погружаются в захватывающее приключение, (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution Software LtdЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793755   (14883) от 12.06.2025
 
 Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
@@ -6,7 +84,7 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14883.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14882.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14672.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14665.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14664.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14661.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14576.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14575.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Multi] (1.0.20250606) Scene
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14558.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Suzerain (2020) [En] (3.1.0.1.137/dlc) License GOG [Expanded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14484.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14466.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Crow Country (2024) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14437.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14382.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14376.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Lamplight City (2018) [Multi] (1.13.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14354.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14335.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14213.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.11.7) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14187.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14179.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5-34484/dlc) Repack FitGirl [The Compl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14176.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14130.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14108.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14101.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C084FE962E78D86502A7A7BAF4E374DA61AE82D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802736   (14091) от 19.06.2025
-
-Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14091.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли Кулебры (Kulebra) вы исследуете Лимбо (Limbo, так же "Чистилище"), яркую загробную жизнь с латиноамериканским нотками, полную опасностей, интриг, юмора, коварства и глубоких, мрачных тайн. Вы будете использовать множество приемов и навыков, чтобы помочь разноцветным (в буквальном смысле) обитателям Лимбо принять их проблемы, связанные с потерями, (   Читать дальше...   )Тип издания: RepackРазработчик: GallaЖанр: Приключенческие игры, ИндиЯзык интерфейса: Английский, Испанский (Латинская Америка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3265880E3D17B742EE4A5486EBE1F51DC08832DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802790   (14084) от 19.06.2025
-
-Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14084.jpg" />
-</div>
-
-
-###  Подробнее
-
-1975 год. В водах Шотландии терпит катастрофу буровая платформа «Бейра Д». Исследуйте тонущую платформу и спасите членов своего экипажа от ужаса за гранью логики и реальности. Still Wakes the Deep - возвращение к жанру ужаса от первого лица от The Chinese Room, создателей получивших признание игр Amnesia: A Machine for Pigs, Everybody’s Gone to the Rapture и Dear (   Читать дальше...   )Тип издания: RepackРазработчик: The Chinese RoomЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C3758BF8F1249E149473641FFE20FF03302ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613217   (13967) от 21.06.2025
-
-Dreams in the Witch House (2023) [En] (1.08) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркхэм, Массачусетс, 1929 год. Уолтер Гилман, многообещающий студент-математик, только что переехал в город и начинает учебу в Мискатоникском университете. Пансион Домбровски, где он проживает, имеет плохую репутацию, но Уолтер не боится старых слухов... Пока не начались сны. Воплощается отвратительный план, и если Уолтер не будет осторожен, это может стоить ему (   Читать дальше...   )Тип издания: LicenseРазработчик: Atom Brain GamesЖанр: Adventure, Point-and-click, HorrorЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D5F00B3D68DBBA829278406B7CE1FFC24C44A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

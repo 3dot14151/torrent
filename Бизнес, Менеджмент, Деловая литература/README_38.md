@@ -1,3 +1,30 @@
+###  Публикация: 915151   (594482) от 04.07.2015
+
+Андрей Гартвич | «Упрощенка» с нуля. Налоговый самоучитель (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594482.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается об упрощенной системе налогообложения, ласково называемой «упрощенкой». Это самая популярная система налогообложения, используемая малым бизнесом – как индивидуальными предпринимателями, так и предприятиями.
+Общие правила налогообложения рассматриваются применительно к указанной системе. Упрощенная система сравнивается с альтернативными налоговыми (   Читать дальше...   )Жанр: Бухучет, налогообложение, аудитФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A8D7D4679DB6B1883DB063DDE2855AEE678917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915132   (594406) от 04.07.2015
 
 Елена Ветлужских | Система вознаграждения. Как разработать цели и KPI (2014) [FB2, EPUB]
@@ -6,7 +33,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594406.jpg" />
+  <img src="Z:/picture/008/save_picture_594406.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594405.jpg" />
+  <img src="Z:/picture/008/save_picture_594405.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594403.jpg" />
+  <img src="Z:/picture/008/save_picture_594403.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594341.jpg" />
+  <img src="Z:/picture/008/save_picture_594341.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594327.jpg" />
+  <img src="Z:/picture/008/save_picture_594327.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593842.jpg" />
+  <img src="Z:/picture/008/save_picture_593842.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592902.jpg" />
+  <img src="Z:/picture/008/save_picture_592902.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592899.jpg" />
+  <img src="Z:/picture/008/save_picture_592899.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592326.jpg" />
+  <img src="Z:/picture/008/save_picture_592326.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592270.jpg" />
+  <img src="Z:/picture/008/save_picture_592270.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592262.jpg" />
+  <img src="Z:/picture/008/save_picture_592262.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592239.jpg" />
+  <img src="Z:/picture/008/save_picture_592239.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592209.jpg" />
+  <img src="Z:/picture/008/save_picture_592209.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591805.jpg" />
+  <img src="Z:/picture/008/save_picture_591805.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591400.jpg" />
+  <img src="Z:/picture/008/save_picture_591400.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591314.jpg" />
+  <img src="Z:/picture/008/save_picture_591314.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590914.jpg" />
+  <img src="Z:/picture/008/save_picture_590914.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590874.jpg" />
+  <img src="Z:/picture/008/save_picture_590874.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590861.jpg" />
+  <img src="Z:/picture/008/save_picture_590861.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590852.jpg" />
+  <img src="Z:/picture/008/save_picture_590852.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590811.jpg" />
+  <img src="Z:/picture/008/save_picture_590811.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590360.jpg" />
+  <img src="Z:/picture/008/save_picture_590360.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590339.jpg" />
+  <img src="Z:/picture/008/save_picture_590339.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590326.jpg" />
+  <img src="Z:/picture/008/save_picture_590326.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590283.jpg" />
+  <img src="Z:/picture/008/save_picture_590283.jpg" />
 </div>
 
 
@@ -654,35 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4DE543F92EF151130AA29202E5C5B62EE4D9741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916164   (590282) от 09.07.2015
-
-Игорь Манн, Надежда Поминова | Точки контакта онлайн (2013) [PDF, DOCX, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите быстро и просто улучшить свой бизнес?
-
-Обратите внимание на точки контакта! Они возникают каждый раз, когда клиент любым способом контактирует с компанией, и оказывают решающее влияние на то, захочет ли он иметь с вами дело.
-(   Читать дальше...   )Жанр: БизнесФормат: PDF, DOCX, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3471AAE779E80CBA5D1D9F3D4B76C8B9DF0B3FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

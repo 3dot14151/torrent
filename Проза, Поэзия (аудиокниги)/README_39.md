@@ -1,3 +1,29 @@
+###  Публикация: 1130764   (712364) от 03.05.2017
+
+Дина Рубина | Холодная весна в Провансе (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Рубина приехала в Израиль уже состоявшимся серьезным прозаиком. Именно трудности вхождения в новую реальность и связанное с этим одиночество человека там, где даже «камни сохранили величие», стали темами ее творчества на несколько лет... «Солнце склонялось к вечеру, когда он вышел из дома с мольбертом и ушел в поля. Там, прислонив мольберт к стогу сена, достал (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333A909333F77B15F39262932197C13F49444A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024930   (712197) от 11.06.2016
 
 Евгений Шишкин | Правда и блаженство (2012) [MP3]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712197.jpg" />
+  <img src="Z:/picture/008/save_picture_712197.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711910.jpg" />
+  <img src="Z:/picture/008/save_picture_711910.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711462.jpg" />
+  <img src="Z:/picture/008/save_picture_711462.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710942.jpg" />
+  <img src="Z:/picture/008/save_picture_710942.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710789.jpg" />
+  <img src="Z:/picture/008/save_picture_710789.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710782.jpg" />
+  <img src="Z:/picture/008/save_picture_710782.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709962.jpg" />
+  <img src="Z:/picture/008/save_picture_709962.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709831.jpg" />
+  <img src="Z:/picture/008/save_picture_709831.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709289.jpg" />
+  <img src="Z:/picture/008/save_picture_709289.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708991.jpg" />
+  <img src="Z:/picture/008/save_picture_708991.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708874.jpg" />
+  <img src="Z:/picture/008/save_picture_708874.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707524.jpg" />
+  <img src="Z:/picture/008/save_picture_707524.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707162.jpg" />
+  <img src="Z:/picture/008/save_picture_707162.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707118.jpg" />
+  <img src="Z:/picture/008/save_picture_707118.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707100.jpg" />
+  <img src="Z:/picture/008/save_picture_707100.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706952.jpg" />
+  <img src="Z:/picture/008/save_picture_706952.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706181.jpg" />
+  <img src="Z:/picture/008/save_picture_706181.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705365.jpg" />
+  <img src="Z:/picture/008/save_picture_705365.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704072.jpg" />
+  <img src="Z:/picture/008/save_picture_704072.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702545.jpg" />
+  <img src="Z:/picture/008/save_picture_702545.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702509.jpg" />
+  <img src="Z:/picture/008/save_picture_702509.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701559.jpg" />
+  <img src="Z:/picture/008/save_picture_701559.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701550.jpg" />
+  <img src="Z:/picture/008/save_picture_701550.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701383.jpg" />
+  <img src="Z:/picture/008/save_picture_701383.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701240.jpg" />
+  <img src="Z:/picture/008/save_picture_701240.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A48A9F03E1819C4BDE094CCDAEF75B1AD6C8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132520   (701130) от 09.05.2017
-
-Эммануил Казакевич | Дом на площади (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть дилогии (продолжение «Весны на Одере»). Главный автобиографический герой - майор Лубенцов: начальник дивизионной разведки в первом романе и комендант немецкого городка – во втором, где рассказ о буднях советской комендатуры в послевоенной провинциальной Германии, о смятении и неуверенных надеждах простого немца перемежается острыми и гневными главами, (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 19:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D316754FB3F37A51CCD6B95B8CD13949874ECF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

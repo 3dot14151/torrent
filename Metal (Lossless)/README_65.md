@@ -1,3 +1,90 @@
+###  Публикация: 1110319   (852266) от 03.03.2017
+
+Ember Falls - Welcome To Ember Falls (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Modern Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cost Of Doing Business (3:41)
+02. Falling Rain (3:07)
+03. Of Letting Go (4:04)
+04. The Enemy You Need (3:35)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3043AD0BB220A9B7FF0FD1F75147FC771DE1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001851   (850567) от 30.03.2016
+
+Death Penalty - Death Penalty (2014) Japanese Edition [FLAC|Lossless|tracks] <Rock, Doom Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grotesque Horizon    00:47
+02. Howling at the Throne of Decadence    05:49
+03. Eyes of the Heretic    05:13
+04. Eyes of the Heretic    05:50(   Читать дальше...   )Жанр: Rock, Doom Metal, Heavy MetalПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2177CC5641EE7E5DA0D00D526A3AFD161FB8FEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111034   (850436) от 04.03.2017
+
+Xentrix - Scourge (1996) Reissued, 2016 [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 13 Years
+02. Scourge
+03. Incite
+04. Caught You Living(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7924E049D9B7B452E3958B62B0EF0467BEFC3731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001875   (850214) от 30.03.2016
 
 Asking Alexandria - The Black (2016) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Metalcore>
@@ -6,7 +93,7 @@ Asking Alexandria - The Black (2016) [FLAC|Lossless|tracks + .cue] <Post-Hardcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850214.jpg" />
+  <img src="Z:/picture/008/save_picture_850214.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Sabaton - Heroes On Tour (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848407.jpg" />
+  <img src="Z:/picture/008/save_picture_848407.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Black Abyss - Possessed (2012) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848117.jpg" />
+  <img src="Z:/picture/008/save_picture_848117.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Veler - The Road of Rebirth (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848116.jpg" />
+  <img src="Z:/picture/008/save_picture_848116.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Black Rose - Game of Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848114.jpg" />
+  <img src="Z:/picture/008/save_picture_848114.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ This Ending - Needles Of Rust (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848113.jpg" />
+  <img src="Z:/picture/008/save_picture_848113.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Tales And Legends - Struggle Of The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848111.jpg" />
+  <img src="Z:/picture/008/save_picture_848111.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ KK's Priest - Sermons Of The Sinner (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847978.jpg" />
+  <img src="Z:/picture/008/save_picture_847978.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ KK's Priest - Sermons Of The Sinner (2021) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847975.jpg" />
+  <img src="Z:/picture/008/save_picture_847975.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Evil Scapes - Sanity Of No One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847969.jpg" />
+  <img src="Z:/picture/008/save_picture_847969.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Last In Line - Heavy Crown (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847118.jpg" />
+  <img src="Z:/picture/008/save_picture_847118.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Boris & Merzbow - Rock Dream (2007) 2CD Limited Edition [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846798.jpg" />
+  <img src="Z:/picture/008/save_picture_846798.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Myra - 3 Альбома + 1 EP (2008-2016) [FLAC|Lossless|tracks+.cue]<Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846652.jpg" />
+  <img src="Z:/picture/008/save_picture_846652.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Offensive - Awenasa (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846324.jpg" />
+  <img src="Z:/picture/008/save_picture_846324.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Room 7 - V.I.I (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846321.jpg" />
+  <img src="Z:/picture/008/save_picture_846321.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Imago Imperii - A Tale Of Darkness And Hope (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846319.jpg" />
+  <img src="Z:/picture/008/save_picture_846319.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Lancelot EC - Renacer (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846318.jpg" />
+  <img src="Z:/picture/008/save_picture_846318.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Beast In Black - Berserker (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,  Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846176.jpg" />
+  <img src="Z:/picture/008/save_picture_846176.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Tim Ripper Owens Progects - 8 albums (2006-2021) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845910.jpg" />
+  <img src="Z:/picture/008/save_picture_845910.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Black Sabbath - Heaven And Hell (1980) 2 SHM-CD, Japan Deluxe Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845905.jpg" />
+  <img src="Z:/picture/008/save_picture_845905.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Royal Hunt - 20th Anniversary: Special Edition [The Best Of] (2012) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_844458.jpg" />
+  <img src="Z:/picture/005/save_picture_844458.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Black Anvil - Time Insults The Mind (2008) [FLAC|Lossless]<Blackened Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844034.jpg" />
+  <img src="Z:/picture/008/save_picture_844034.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ Sodom - Epitome Of Torture (2013) Limited Edition [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843743.jpg" />
+  <img src="Z:/picture/008/save_picture_843743.jpg" />
 </div>
 
 
@@ -663,93 +750,6 @@ Sodom - Epitome Of Torture (2013) Limited Edition [FLAC|Lossless]<Thrash Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003050   (843570) от 03.04.2016
-
-Black Tide - Light From Above (2008) Japanes Edition [FLAC|Lossless|tracks] <Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shockwave    03:37
-02. Shout    03:25
-03. Warriors of Time    05:52
-04. Give Me a Chance    03:34(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E8CAAA1D4EC3BF0796A7E358B862EB7C890B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003062   (843566) от 03.04.2016
-
-Morbid Saint - Spectrum Of Death (2016) Remastered Edition 2CD [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843566.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-01. Lock Up Your Children
-02. Burned at the Stake(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DB585B206CFF5D609ECFB6B594E0FE4C0B1565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003011   (843493) от 03.04.2016
-
-When Nothing Remains - In Memoriam (2016) [FLAC|Lossless|tracks] <Doom Metal, Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reunited In The Grave
-02. Drowning In Sorrows
-03. In Memoriam
-04. Ghost Story(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B6127CD05F125204EBB374B4B34A8BBFCB2E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

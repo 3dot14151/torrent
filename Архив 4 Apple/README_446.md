@@ -1,3 +1,113 @@
+###  Публикация: 1332214   (316840) от 19.10.2019
+
+Vectoraster 7 v7.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vectoraster - программа для создания векторной графики на основе растровых моделей и полутонов из растровых изображений. Вы можете всячески конфигурировать растровые и точечные узоры для создания различных стилей изображений.
+
+Растры могут быть легко экспортированы в качестве векторов в EPS или PDF-файлы, как изображения, JPEG, PNG или TIFF, или просто скопировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E492B862FF72BAD5D4A2C5C6D7C0AA34DEB7193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332298   (316839) от 19.10.2019
+
+PrefEdit 4.3 (Build 191018) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316839.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrefEdit - утилита для изменения настроек программ, путем редактирования их plist-файлов.
+PrefEdit - уникальное приложение для просмотра и редактирования скрытых настроек системы и приложений Mac OS X, в том числе и в файлах plist. Для облегчения задач редактирования, в приложении доступен полнотекстовый поиск по любым критериям. Встроенный браузер обеспечивает удобную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480E39D811E08E3DD1F4CC54EC0CF5DE62D31E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332210   (316838) от 19.10.2019
+
+SILKYPIX Developer Studio Pro 9E v9.0.14.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316838.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+
+С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AB9662351843D125BADDBC57BFC85B7F1EFBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332046   (316837) от 19.10.2019
+
+JixiPix Chromatic Edges 1.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316837.jpg" />
+</div>
+
+
+###  Подробнее
+
+JixiPix переносит винтаж в совершенно новый экстрим. Прошли те времена, когда у вас было несколько крошечных вариантов добавления бликов к вашим изображениям. Chromatic Edges возвращает тонкую магию обработки фотографий с помощью стеклянных, серебряных и бумажных гравюр - всего несколько нажатий и у вас уникальная фотография.
+Особое внимание тут уделено краям ваших (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F766E044765286024417165D6F8074BDB4D683A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332296   (316836) от 19.10.2019
 
 Geekbench 5 v5.0.3 [En]
@@ -6,7 +116,7 @@ Geekbench 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316836.jpg" />
+  <img src="Z:/picture/008/save_picture_316836.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ System Monitor 2.6  (build 191015)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316678.jpg" />
+  <img src="Z:/picture/008/save_picture_316678.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ Adguard 2.1.5 (626) nightly (CL - 1.5.84) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316677.jpg" />
+  <img src="Z:/picture/008/save_picture_316677.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ Grids for Instagram 5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316676.jpg" />
+  <img src="Z:/picture/008/save_picture_316676.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ Banktivity 7 v7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316675.jpg" />
+  <img src="Z:/picture/008/save_picture_316675.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ SecuritySpy 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316674.jpg" />
+  <img src="Z:/picture/008/save_picture_316674.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ JPEG SILKYPIX Photography 9E v9.2.14
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316673.jpg" />
+  <img src="Z:/picture/008/save_picture_316673.jpg" />
 </div>
 
 
@@ -194,7 +304,7 @@ Audio Hijack 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316672.jpg" />
+  <img src="Z:/picture/008/save_picture_316672.jpg" />
 </div>
 
 
@@ -221,7 +331,7 @@ Navicat Premium 12 v12.1.27 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316668.jpg" />
+  <img src="Z:/picture/008/save_picture_316668.jpg" />
 </div>
 
 
@@ -247,7 +357,7 @@ UninstallPKG 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316667.jpg" />
+  <img src="Z:/picture/008/save_picture_316667.jpg" />
 </div>
 
 
@@ -275,7 +385,7 @@ TotalFinder 1.7.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316636.jpg" />
+  <img src="Z:/picture/008/save_picture_316636.jpg" />
 </div>
 
 
@@ -303,7 +413,7 @@ Coda 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316585.jpg" />
+  <img src="Z:/picture/008/save_picture_316585.jpg" />
 </div>
 
 
@@ -330,7 +440,7 @@ Audirvana 3.5.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316501.jpg" />
+  <img src="Z:/picture/008/save_picture_316501.jpg" />
 </div>
 
 
@@ -356,7 +466,7 @@ ON1 Photo RAW 2020 v14.0.0.7955 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316496.jpg" />
+  <img src="Z:/picture/008/save_picture_316496.jpg" />
 </div>
 
 
@@ -382,7 +492,7 @@ Luminar 3  v3.1.4 (5108) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316476.jpg" />
+  <img src="Z:/picture/008/save_picture_316476.jpg" />
 </div>
 
 
@@ -410,7 +520,7 @@ Master of Typing - Мастер Печати 3 v3.8.7 (15.8.7) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316467.jpg" />
+  <img src="Z:/picture/008/save_picture_316467.jpg" />
 </div>
 
 
@@ -436,7 +546,7 @@ Waltr 2 v2.6.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316408.jpg" />
+  <img src="Z:/picture/008/save_picture_316408.jpg" />
 </div>
 
 
@@ -463,7 +573,7 @@ Downie 2.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316374.jpg" />
+  <img src="Z:/picture/008/save_picture_316374.jpg" />
 </div>
 
 
@@ -491,7 +601,7 @@ Kiwi for Gmail 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316357.jpg" />
+  <img src="Z:/picture/008/save_picture_316357.jpg" />
 </div>
 
 
@@ -518,7 +628,7 @@ NCH VideoPad Pro 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316266.jpg" />
+  <img src="Z:/picture/008/save_picture_316266.jpg" />
 </div>
 
 
@@ -546,7 +656,7 @@ Ableton Live Suite 10 v10.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316042.jpg" />
+  <img src="Z:/picture/008/save_picture_316042.jpg" />
 </div>
 
 
@@ -572,7 +682,7 @@ VirtualBox 6.0.14 for Mac v6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316030.jpg" />
+  <img src="Z:/picture/008/save_picture_316030.jpg" />
 </div>
 
 
@@ -585,111 +695,6 @@ VirtualBox активно развивается с частыми обновл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11EC5A01430654087000889646A89745BC6DB767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332060   (315845) от 19.10.2019
-
-CloudMounter 3.5 (585) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315845.jpg" />
-</div>
-
-
-###  Подробнее
-
-CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с онлайн файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к онлайн данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3694A75F37F3BA5836A9CA715AE1A847B6EC820C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421847   (315619) от 06.11.2020
-
-BusyCal 3 v3.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315619.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73286152CD6707B20B1D0A3E3AC5039B5FE4DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421879   (315618) от 06.11.2020
-
-ProFind 1.8.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC6BF66B22838385E60285D7DCC2B514EC48512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332126   (315602) от 19.10.2019
-
-Adobe Premiere Pro CC 2019 v13.1.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2019 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K x 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED124B0634E9BAACB684357CF66D8F8BD072AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

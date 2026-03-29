@@ -1,3 +1,82 @@
+###  Публикация: 1614611   (199426) от 22.04.2023
+
+Скажи мне, что это любовь / Sarangira malhaeyo / Call It Love (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) DublikTV, Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Шим У Чжу стала несчастной из-за ее отца и его любовницы. После смерти отца Шим У Джу выгнала из дома женщина, с которой встречался ее отец. Желая отомстить этой женщине, она знакомится с сыном бывшей любовницы ее отца, - и понимает, что влюбилась в него.
+Хан Дон Джин — трудоголик, всю жизнь страдавший от одиночества. Его жизнь меняется после того, как он встречает (   Читать дальше...   )Производство: Южная Корея, Arc Media, Studio Santa Claus EntertainmentЖанр: мелодрамаРежиссер: Ли Гван-ён, Ким Джи-ёнАктеры: Ким Ён-гван, Ли Сон-гён, Сон Джун, Ан Хи-ён, Ким Е-вон, Нам Ги-э, Пак Чин-а, Чан Сон-бомПеревод: Многоголосый (DublikTV), Двуголосый (Softbox)Язык озвучки: русский, корейский, английскийСубтитры: английские (SDH), французскиеПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E127358C634A90A35308CE7F2878173C1C4C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607944   (199410) от 22.04.2023
+
+Хроники преступления / Приманка / Mikki / Beomjweui Yeondaegi / Decoy (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ку До Хан (Чан Гын Сок) - бывший юрист, а теперь детектив. Он гонится за правдой о нераскрытом преступлении, случившемся 8 лет назад, стараясь раскрыть дело об убийстве, которое происходит в настоящем. Те, с кем он пересекается, - это репортер с большим энтузиазмом Чон На Ён (Ли Эллия) и мошенник Но Сан Чон (Хо Сон Тхэ).Производство: Южная Корея, Coupang PlayЖанр: криминал, детектив, триллерРежиссер: Ким Хон-сонАктеры: Чан Гын-сок, Хо Сон-тхэ, Ли Элия, Ю Сон-джу, Пак Мён-хун, Ли Сон-ук, О Ён-а, Ли Вон-джон, Ли Сын-джунПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CEE531E0FE01540388C6A1FDFDCA0BEADE9AFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627442   (199292) от 25.04.2023
+
+Вы окружены / Neo-hui-deul-eun po-wi-dwaess-da / Neohuideuleun powidwaetta /You're All Surrounded (2014) WEBRip [H.264/720p] (сезон 1, серии 1-20 из 20) Тайм Медиа Групп
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199292.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках кампании по борьбе с коррупцией начальник каннамского полицейского участка провела кадровую перестановку, уволила часть сотрудников, вместо которых были взяты на службу выпускники полицейской академии. Таким образом "укрепили" следственный отряд известного спеца по поимке преступников Со Пан Сока. Сможет ли четвёрка новобранцев проявить себя и (   Читать дальше...   )Производство: Южная Корея | «HB Entertainment», «SBS»Жанр: Комедия, боевик, мелодрамаРежиссер: Ю Ин-щикАктеры: Ли Сын-ги, Чха Сын-вон, Ко А-ра, О Юн-а, Ан Джэ-хён, Сон Джи-ру, Пак Чон-мин, Лим Вон-хи, Чиу, Со И-сукПеревод: Многоголосый профессиональный (Тайм Медиа Групп)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25883BCCE03DD5213E1A0047DC399F45A2F703E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630322   (199149) от 30.04.2023
 
 Дьявольский судья / Akmapansa / Angmapansa / The Devil Judge (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Мобильное телевидение, MoyGolos
@@ -6,7 +85,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199149.jpg" />
+  <img src="Z:/picture/005/save_picture_199149.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199137.jpg" />
+  <img src="Z:/picture/005/save_picture_199137.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199091.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199080.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199078.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199076.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198983.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198906.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198830.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198777.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198719.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198604.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198401.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198276.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198142.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198128.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197993.jpg" />
+  <img src="Z:/picture/004/save_picture_197993.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197990.jpg" />
+  <img src="Z:/picture/004/save_picture_197990.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197891.jpg" />
+  <img src="Z:/picture/004/save_picture_197891.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197860.jpg" />
+  <img src="Z:/picture/004/save_picture_197860.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197740.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197373.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196566.jpg" />
+  <img src="Z:/picture/004/save_picture_196566.jpg" />
 </div>
 
 
@@ -600,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309B628D7FEDC09BEEF2EF4E57FBE70ADA9C5C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630231   (196558) от 26.06.2023
-
-Плохая мать / Плохая мамочка / Nappeun eomma / The Good Bad Mother (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-14 из 14) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деревенская женщина Ён-сун растила сына одна — Кан-хо вырос и стал прокурором. Но однажды с ним происходит несчастный случай, и его интеллектуальное и психическое развитие откатывается до уровня ребёнка. Парню приходится вернуться домой и жить с мамой на свиной ферме.Производство: Южная Корея, Drama House, Film Monster, jTBC, Studio LuluLalaЖанр: комедия, драмаРежиссер: Щим На-ёнАктеры: Ра Ми-ран, Ли До-хён, Ан Ын-джин, Ю Ин-су, Чон Ун-ин, Чхве Му-сон, Со И-сук, Ким Вон-хэ, Чо Джин-ун, Чан Вон-ёнПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: русские, украинские, английские, французскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD71F8AB1191578B8084C27999C533BA07FBD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628237   (196481) от 26.06.2023
-
-Доктор Чха / Доктор Чха Чон Сук / Dakteo Cha Jeongsuk / Doctor Cha (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox (обновляемая)
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чха Чон Сук замужем за Со Ин Хо, который работает главным хирургом в университетской больнице. У него строгий, чувствительный и основательный характер. Чха Чон Сук последние 20 лет была домохозяйкой после того, как отказалась от карьеры врача во время учебы в резидентуре. После стольких лет она решает возобновить обучение в ординатуре.Производство: Южная Корея, jTBC, Studio LuluLalaЖанр: комедия, мелодрама, драмаРежиссер: Ким Дэ-джин, Ким Джон-укАктеры: Ом Джон-хва, Ким Бён-чхоль, Мён Сэ-бин, Мин У-хёк, Сон Джи-хо, Ким Ми-гёнПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: русские, украинские, английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111710E66D3C0702F5EEC4D5886B5DF8ABA880B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631766   (196290) от 02.07.2023
-
-Мы встретились случайно / Eojjeoda majuchin, geudae / Run Into You / My Perfect Stranger (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочная история о мужчине, который путешествует в прошлое, чтобы найти правду о серийных убийствах. Он встречает женщину, которая путешествует во времени, надеясь предотвратить свадьбу родителей. В самый разгар их скитаний они застревают в 1987 году.
-Юн Хэ Джун (Ким До-ук) – ведущий новостей, уравновешенный и прямолинейный, красив, к тому же имеет теплое сердце. (   Читать дальше...   )Производство: Южная Корея, Arc Media, Korean Broadcasting System (KBS)Жанр: детектив, фэнтези, мелодрамаРежиссер: Кан Су-ён, Ли Ун-хиАктеры: Ким Дон-ук, Чин Ги-джу, Со Джи-хе, Ли Вон-джон, Ким Джон-су, Ли Гю-хве, Лим Джон-юн, Ким Хе-ын, Ким Джон-ён, Чхве Ён-уПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42FF2EF7EC12ACB05407C2593A648D2D3B6A2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

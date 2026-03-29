@@ -6,7 +6,7 @@ Green Hell (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433090.jpg" />
+  <img src="Z:/picture/008/save_picture_433090.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sleeping Dogs Limited Edition + 10 DLC [Multi7/+] (Repack/1.5) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432781.jpg" />
+  <img src="Z:/picture/008/save_picture_432781.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Sims 3 Anthology [Native port] [Rus]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432767.jpg" />
+  <img src="Z:/picture/008/save_picture_432767.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432350.jpg" />
+  <img src="Z:/picture/008/save_picture_432350.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430751.jpg" />
+  <img src="Z:/picture/005/save_picture_430751.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430731.jpg" />
+  <img src="Z:/picture/005/save_picture_430731.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ I-Ninja [Ru/Multi6] (RePack) 2004 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430729.jpg" />
+  <img src="Z:/picture/008/save_picture_430729.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Total War: Attila (2015) [Ru/En] (1.4.0/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430648.jpg" />
+  <img src="Z:/picture/008/save_picture_430648.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430578.jpg" />
+  <img src="Z:/picture/005/save_picture_430578.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Black Mesa [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430439.jpg" />
+  <img src="Z:/picture/008/save_picture_430439.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ POSTAL 4: No Regerts (2019) [En] (0.2.1) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429062.jpg" />
+  <img src="Z:/picture/008/save_picture_429062.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Grandia [PS1] [En] [NTSC] (1997)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428108.jpg" />
+  <img src="Z:/picture/008/save_picture_428108.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Assassin's Creed Dilogy (2008-2010) [Ru/En] Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427748.jpg" />
+  <img src="Z:/picture/008/save_picture_427748.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Call of Juarez: Bound in Blood / Call of Juarez: Узы крови [Ru/En] (RePa
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427452.jpg" />
+  <img src="Z:/picture/008/save_picture_427452.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Fallout Shelter (2016) [Ru/En] (1.8) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427388.jpg" />
+  <img src="Z:/picture/008/save_picture_427388.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Rochard [Ru/Multi12] (Steam-Rip/1.31) 2011 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426051.jpg" />
+  <img src="Z:/picture/008/save_picture_426051.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wargame: Red Dragon (2014) [Ru/Multi] (587/2dlc) SteamRip R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425780.jpg" />
+  <img src="Z:/picture/008/save_picture_425780.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Grandia 2 [Sega Dreamcast] [En] [NTSC] (1999)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425730.jpg" />
+  <img src="Z:/picture/008/save_picture_425730.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Karos Online (2009) [Ru/En] (19.10.16) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425454.jpg" />
+  <img src="Z:/picture/008/save_picture_425454.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_423556.jpg" />
+  <img src="Z:/picture/005/save_picture_423556.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Saints Row The Third + 19 DLC [Multi9\+] (RePack/1.0.0.1u4) 2011 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423532.jpg" />
+  <img src="Z:/picture/008/save_picture_423532.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Red Dead Redemption undead Nightmare [ps3] [ENG] [NTSC-U] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423388.jpg" />
+  <img src="Z:/picture/008/save_picture_423388.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422747.jpg" />
+  <img src="Z:/picture/005/save_picture_422747.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Saints Row The Third + 19 DLC [Multi9\+] (RePack/1.0.0.1u4) 2011 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421288.jpg" />
+  <img src="Z:/picture/008/save_picture_421288.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ BlackSite Area 51 / Зона 51 [Ru] (RePack/1.2) 2008 | R.G.Spieler
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421228.jpg" />
+  <img src="Z:/picture/005/save_picture_421228.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421174.jpg" />
+  <img src="Z:/picture/008/save_picture_421174.jpg" />
 </div>
 
 

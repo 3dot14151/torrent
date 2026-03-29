@@ -1,3 +1,29 @@
+###  Публикация: 1690124   (62177) от 22.03.2024
+
+Sasaki to P-chan / Sasaki and Peeps / Сасаки и Пи-тян [2024, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Сасаки состоит из одной только работы, и в конце каждого дня он чувствует лишь усталость. Чтобы заполнить внутреннюю пустоту, он посещает зоомагазин, ещё не зная, что его жизнь изменится навсегда. Купленная им очаровательная птичка оказывается реинкарнацией великого мудреца из другого мира. Он наделяет Сасаки сверхъестественными способностями — огромной магической (   Читать дальше...   )Жанр: приключения, комедия, фэнтези.Режиссер: Киси СэйдзиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 1-ая серия 49 мин, 11 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F677225BBACD07EB02432EE3DFDBD4A9AE4F9D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691734   (62171) от 22.03.2024
 
 Momochi-san Chi no Ayakashi Ouji | The Demon Prince of Momochi House | Принц-аякаси из дома Момоти [2024, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +32,7 @@ Momochi-san Chi no Ayakashi Ouji | The Demon Prince of Momochi House | Прин�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62171.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62075.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Saikyou Tank no Meikyuu Kouryaku / The Strongest Tank's Labyrinth Raids / Сил
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62074.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Yubisaki to Renren | A Sign of Affection | Любовь с кончиков па
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62052.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61995.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61980.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Ao no Exorcist: Shimane Illuminati Hen | Blue Exorcist: Shimane Illuminati Saga 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61978.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61968.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Oroka na Tenshi wa Akuma to Odoru / The Foolish Angel Dances with the Devil / Г
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61896.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Dosanko Gal wa Namara Menkoi / Hokkaido Gals Are Super Adorable! / Досанк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61891.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время "п
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61863.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Jaku Chara Tomozaki-kun 2nd Stage / Bottom-tier Character Tomozaki 2nd Stage / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61658.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3nd / Classroom of the Elite III
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61655.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Gekai Elise | Doctor Elise: The Royal Lady with the Lamp | Королева со
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61630.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Yuuki Bakuhatsu Bang Bravern | Bang Brave Bang Bravern | Взрывной хра
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61557.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Gekkan Mousou Kagaku | Delusional Monthly Magazine | Псевдонаучный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61537.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61472.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Chiyu Mahou no Machigatta Tsukaikata / The Wrong Way to Use Healing Magic / Не
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61369.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61210.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Boku no Kokoro no Yabai Yatsu (2024) | The Dangers in My Heart (2024) | Опас
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61162.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Metallic Rouge | Металлическая Руж [2024, TV, 13 эп.] WebRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60915.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60822.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60612.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59911.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55865.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF536D49023B3673259AB16B68932275C6BD9C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712124   (53775) от 10.06.2024
-
-Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katte ni Ikiru Koto ni Shita / Бывший герой решил жить самостоятельно [2024, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аллен не смог получить Дар богов, после чего даже родные сочли его неудачником и выгнали из дома. Однако его настоящая личность — бывший герой, сохранивший не только воспоминания, но и способности из прошлой жизни! Аллен пытался начать спокойную жизнь, но наткнулся на попавшую в смертельную опасность бывшую невесту и невольно встал на столь нежеланный геройский путь.Жанр: приключения, фэнтези.Режиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1173669   (389700) от 12.10.2017
+
+NG: Ловец комет: Миссия "Розетта" (Розетта: посадка на комету) / Comet Catcher: The Rosetta Landing (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_389700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический аппарат Rosetta достиг цели своего 10-летнего полёта. Он максимально приблизился к комете 7P/Чурюмова-Герасименко. Завтра ожидается высадка спускаемого зонда Philae Европейского космического агентства. Впервые земной аппарат опустится на поверхность кометы. Сконструированный для этой миссии космический аппарат Rosetta достиг цели своего 10-летнего путешествия (   Читать дальше...   )Производство: США, Darlow Smithson Productions. LTD FOR PBS & National Geographic ChannelsЖанр: Документальный, научно - познавательный, космосРежиссер: Рой ГриффинПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A9996542E91B0C8D633C19AC77E4F4C039D8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252838   (387706) от 07.10.2018
+
+NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.264/1080i-LQ] (4 эпизода)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это реальные ужасающие свидетельства людей, подвергшихся нападению хищника. Они остались в живых, чтобы рассказать нам о том, что они пережили.Производство: США, Optomen Productions, LLC, National GeographicЖанр: Документальный, морская фауна, исследованияРежиссер: Кайл МакКейбПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 4 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E1A5D9AAC78879B19E0AC30D54EFBA63363D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252910   (387703) от 07.10.2018
+
+NGW: История одной гиеновой собаки / A Wild Dog's Tale (2012) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387703.jpg" />
+</div>
+
+
+###  Подробнее
+
+За гиеной закрепилась незаслуженная слава мерзкого животного. Однако это одни из самых интересных животных на нашей планете.
+История самки гиеновой собаки, которая подружилась с несколькими хищниками других видов и помогает вырастить детенышей шакала в дельте Окаванго.Производство: Ботсвана, Table Mountain Films, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Бред БэстлингПеревод: Дублированный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F5231025CD67D961777EC527D00FE1F1098914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252915   (387692) от 07.10.2018
+
+NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Провинция Шаньдун - родина самого знаменитого китайского философа Конфуция. Джонатан Клементс, который является историком и экспертом по азиатской культуре, будет ведущим этого фильма. В ходе увлекательного головокружительного путешествия по девяти тщательно отобранным городам в провинии Шаньдун, Клементс, являясь ученым занимающимся исследованиями современных тенденций (   Читать дальше...   )Производство: КНР, Five Star Cultural and Media LTD, National GeographicЖанр: Документальный, исследование, история, культураРежиссер: Ян Ю, Джонатан ШутцПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFFA59EE63A7E5229F8A42263AC27067EBB6620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253239   (385441) от 08.10.2018
 
 NG. Экстремальный Китай. Горы Сыгунян / Extreme China (2018) DVB
@@ -6,7 +111,7 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385441.jpg" />
+  <img src="Z:/picture/008/save_picture_385441.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383558.jpg" />
+  <img src="Z:/picture/008/save_picture_383558.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383450.jpg" />
+  <img src="Z:/picture/008/save_picture_383450.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383014.jpg" />
+  <img src="Z:/picture/008/save_picture_383014.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380500.jpg" />
+  <img src="Z:/picture/008/save_picture_380500.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377283.jpg" />
+  <img src="Z:/picture/008/save_picture_377283.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377167.jpg" />
+  <img src="Z:/picture/008/save_picture_377167.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376897.jpg" />
+  <img src="Z:/picture/008/save_picture_376897.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375003.jpg" />
+  <img src="Z:/picture/008/save_picture_375003.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374942.jpg" />
+  <img src="Z:/picture/008/save_picture_374942.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371865.jpg" />
+  <img src="Z:/picture/008/save_picture_371865.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedie
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370514.jpg" />
+  <img src="Z:/picture/008/save_picture_370514.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364093.jpg" />
+  <img src="Z:/picture/008/save_picture_364093.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363970.jpg" />
+  <img src="Z:/picture/008/save_picture_363970.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363835.jpg" />
+  <img src="Z:/picture/008/save_picture_363835.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ NGW: Остров муссонов. Королева Яла / Island of the Mons
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363832.jpg" />
+  <img src="Z:/picture/008/save_picture_363832.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363614.jpg" />
+  <img src="Z:/picture/008/save_picture_363614.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359366.jpg" />
+  <img src="Z:/picture/008/save_picture_359366.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359023.jpg" />
+  <img src="Z:/picture/008/save_picture_359023.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358909.jpg" />
+  <img src="Z:/picture/008/save_picture_358909.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358902.jpg" />
+  <img src="Z:/picture/008/save_picture_358902.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357946.jpg" />
+  <img src="Z:/picture/008/save_picture_357946.jpg" />
 </div>
 
 
@@ -564,110 +669,6 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6BA551EA7FD51EA6DAC232213413AEFD348ECFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417483   (357551) от 20.10.2020
-
-NG: Подъем "Коста Конкордии" / The Raising the Costa Concordia (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это эксклюзивная история о том, как проводились работы по подъёму и эвакуации круизного лайнера "Коста Конкордия", потерпевшего кораблекрушение около итальянского острова Джильо 13 января 2012 года.Производство: Великобритания / Windfall FilmsЖанр: ДокументальныйРежиссер: Colin CampbellПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F0DB8EDE3E731C4B5035E89846F3B838B0EEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417336   (357547) от 20.10.2020
-
-NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari. Snake Killers (2001) DVDRemux
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, медоед - самое сильное плотоядное существо в нашем мире. Его традиционная добыча - птицы, пчелы, скорпионы, ящерицы и змеи, но подчас жертвами его смертоносных когтей и мощных челюстей становятся дикобразы, трубкозубы, антилопы и даже буйволы. Однако, при всей своей свирепости, медоед питает ненасытную страсть к меду. Перед Вами захватывающий фильм Дэвида (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Дэвид Хьюз, Кэрол ХьюзПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBDB0625706BD63A308788FEBEF30E70E460551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329001   (356296) от 03.10.2019
-
-NG: Секретное оружие Японии / Japan's Secret Weapon (2009) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1946 года, спустя 8 месяцев после окончания Второй мировой войны, в США было принято решение на высочайшем правительственном уровне: одна из самых совершенных систем японского оружия была отправлена на морское дно, чтобы избежать её попадания в руки Советского Союза. Мы узнаем о том, как мог измениться ход Второй мировой войны, если бы японцы осуществили свой (   Читать дальше...   )Производство: США, Spy Pond Production, Windfall Films, National GeographicЖанр: Документальный, история, исследованияРежиссер: Эрик СтэнджПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B801A46F85CF07EA6B77E75CB78F3B925EB1BF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256508   (354264) от 22.10.2018
-
-NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of New Guinea (Lost Mummies of New Guinea) (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высоко в скалах, окружающих территорию, на которой живет племя Кок в Папуа-Новой Гвинее, располагаются галереи, сооруженные их предками. Подвешенные в них на цепях мумии смотрят прямо на деревню. Они сохранены на века, чтобы их навещали и отдавали им почести. С 50-х годов, когда в этот регион стали заезжать миссионеры, ритуал мумификации умерших родственников был (   Читать дальше...   )Производство: США, John Rubin Productions INC, National GeographicЖанр: Документальный, история, исследованиеРежиссер: Джон РубинПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A8E71568B46495DD73E80BC3B9EC387FEC898E
 ```
 
 https://mybot314.ru/tekegram_catalog/

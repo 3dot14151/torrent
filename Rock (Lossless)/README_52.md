@@ -1,3 +1,145 @@
+###  Публикация: 598942   (736761) от 28.01.2022
+
+Тартак - 15 Albums + 6 Single (2001-2021) [FLAC, APE|Lossless|image + .cue, tracks + .cue, tracks] <RapCore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736761.jpg" />
+</div>
+
+
+###  Подробнее
+
+2001 - Демо_графічний_вибух
+2003 - Система Нервiв (перевидання 2005)
+2004 - Музичний лист щастя
+2005 - 1й Комерційний(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, Rap-Punk, Folk, RapCoreПродолжительность: 13:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAA2E6BFC4104CFE095FFF6A4D369FB22848B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397846   (736691) от 24.07.2020
+
+Stone Temple Pilots - 2011-08-03 Hampton Beach Ballroom Casino Hampton Beach, NH (2020) Concert recording [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crackerman [04:17]
+02. Wicked Garden [04:45]
+03. Vasoline [03:37]
+04. Heaven and Hot Rods [03:56](   Читать дальше...   )Жанр: RockПродолжительность: 01:5:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED34FC5922F670CE42D038B7F6AEC3CAEE696C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527560   (736389) от 29.01.2022
+
+The Beatles - Get Back: The Rooftop Performance (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Back (Rooftop Performance / Take 1) (4:43)
+ 02. Get Back (Rooftop Performance / Take 2) (3:24)
+ 03. Don't Let Me Down (Rooftop Performance / Take 1) (3:22)
+ 04. I've Got A Feeling (Rooftop Performance / Take 1) (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0C2E4043E6418B10F04DB24CF1079C9E83CF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398040   (736193) от 25.07.2020
+
+Morse / Portnoy / George - Cover To Cover Anthology (2020) Vol. 1-3 (3xCD) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock, Hard Rock, Classic RockПродолжительность: 02:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CED0E20EC84C2411A2BDD54F74F77050DF6A768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527996   (735884) от 30.01.2022
+
+Michael McDonald - Soul Speak (2008) [FLAC|Lossless|image + .cue] <Pop-Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_735884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Knew You Were Waiting (For Me)
+02. Living For The City
+03. Love T.K.O.
+04. Walk On By(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB781C288454A65C42355F3DC9375F77B830CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527984   (735879) от 30.01.2022
 
 Michael McDonald - Motown (2003-2004) 2xCD [FLAC|Lossless|image + .cue] <Pop- Rock, Soft Rock>
@@ -6,7 +148,7 @@ Michael McDonald - Motown (2003-2004) 2xCD [FLAC|Lossless|image + .cue] <Pop- Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735879.jpg" />
+  <img src="Z:/picture/008/save_picture_735879.jpg" />
 </div>
 
 
@@ -33,7 +175,7 @@ Jethro Tull - The Zealot Gene (2022) [FLAC|Lossless|tracks + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735846.jpg" />
+  <img src="Z:/picture/008/save_picture_735846.jpg" />
 </div>
 
 
@@ -62,7 +204,7 @@ Magic Bus - The Earth Years (2020) [FLAC|Lossless|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735745.jpg" />
+  <img src="Z:/picture/008/save_picture_735745.jpg" />
 </div>
 
 
@@ -91,7 +233,7 @@ Plus 33 - Open Window (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, In
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735739.jpg" />
+  <img src="Z:/picture/008/save_picture_735739.jpg" />
 </div>
 
 
@@ -120,7 +262,7 @@ Fleetwood Mac - Tusk (1979) Reissue, 1999, Warner Bros [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735696.jpg" />
+  <img src="Z:/picture/008/save_picture_735696.jpg" />
 </div>
 
 
@@ -149,7 +291,7 @@ Mark Knopfler - Sailing To Philadelphia (2000) Japanese Edition [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735694.jpg" />
+  <img src="Z:/picture/008/save_picture_735694.jpg" />
 </div>
 
 
@@ -178,7 +320,7 @@ Karate - 595 (2007) Live [FLAC|Lossless|tracks + .cue] <Post Rock, Fusion>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735303.jpg" />
+  <img src="Z:/picture/008/save_picture_735303.jpg" />
 </div>
 
 
@@ -207,7 +349,7 @@ John Demarkis - Finding The Akashic Record (2020) [FLAC|Lossless|WEB-DL|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735298.jpg" />
+  <img src="Z:/picture/008/save_picture_735298.jpg" />
 </div>
 
 
@@ -236,7 +378,7 @@ Zip Tang - Cold Coming (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735297.jpg" />
+  <img src="Z:/picture/008/save_picture_735297.jpg" />
 </div>
 
 
@@ -265,7 +407,7 @@ Alberto Rigoni - Odd Times (2020) (feat. Marco Minnemann & Alexandra Zerner) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734343.jpg" />
+  <img src="Z:/picture/008/save_picture_734343.jpg" />
 </div>
 
 
@@ -294,7 +436,7 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734226.jpg" />
+  <img src="Z:/picture/008/save_picture_734226.jpg" />
 </div>
 
 
@@ -323,7 +465,7 @@ Queen - News Of The World (1977) 1993 GoldCD Reissue, MFSL UltraDisc II [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732499.jpg" />
+  <img src="Z:/picture/008/save_picture_732499.jpg" />
 </div>
 
 
@@ -352,7 +494,7 @@ Hidden Lands - Halcyon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732215.jpg" />
+  <img src="Z:/picture/008/save_picture_732215.jpg" />
 </div>
 
 
@@ -381,7 +523,7 @@ Barock Project - Skyline (2015) 2CD [FLAC|Lossless|tracks + .cue] <Neo-Prog, Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732170.jpg" />
+  <img src="Z:/picture/008/save_picture_732170.jpg" />
 </div>
 
 
@@ -410,7 +552,7 @@ The Corrs - Unplugged (1999) [APE|Lossless|image + .cue] <Folk Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732088.jpg" />
+  <img src="Z:/picture/008/save_picture_732088.jpg" />
 </div>
 
 
@@ -439,7 +581,7 @@ Grand Funk Railroad/Mark Farner - We're An American Band / Just Another Injustic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731989.jpg" />
+  <img src="Z:/picture/005/save_picture_731989.jpg" />
 </div>
 
 
@@ -468,7 +610,7 @@ Rod Stewart - Ballads (UY) Unofficial Release [APE|Lossless|image + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731988.jpg" />
+  <img src="Z:/picture/008/save_picture_731988.jpg" />
 </div>
 
 
@@ -497,7 +639,7 @@ VA - Greatest Oldies 70's (unknown year) Unofficial Release [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731987.jpg" />
+  <img src="Z:/picture/008/save_picture_731987.jpg" />
 </div>
 
 
@@ -526,7 +668,7 @@ Bonnie Tyler - The Very Best Of (1993) [APE|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731986.jpg" />
+  <img src="Z:/picture/008/save_picture_731986.jpg" />
 </div>
 
 
@@ -555,7 +697,7 @@ Hank Marvin - 7 Альбомов (1969 - 2013) [FLAC|Lossless|image + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731847.jpg" />
+  <img src="Z:/picture/008/save_picture_731847.jpg" />
 </div>
 
 
@@ -584,7 +726,7 @@ VA - 100 Hits Rock Jukebox (2016) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731718.jpg" />
+  <img src="Z:/picture/008/save_picture_731718.jpg" />
 </div>
 
 
@@ -598,151 +740,6 @@ VA - 100 Hits Rock Jukebox (2016) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FDC85A7F91EB040F477E7BEB6B662AB88D98373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127486   (731116) от 22.04.2017
-
-Ray Davies - Americana (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший фронтмен The Kinks Рэй Дэвис выпускает пятый сольный альбом «Americana», это его первая пластинка за последние десять лет. Выпущен 21 апреля 2017 года на лейбле Legacy Recordings, продюсерами записи выступили Гай Мэсси и Джон Джексон.01. Americana (4:02)
-02. The Deal (5:04)
-03. Poetry (5:05)
-04. Message From The Road (2:57)(   Читать дальше...   )Жанр: Rock, Folk-RockПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF78972985AE25CDCD25AE33469C8BB37D6C22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021978   (731112) от 31.05.2016
-
-Atsushi Yokozeki Project - Raid (1991) [FLAC|Lossless|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of Sphinx (Instrumental)     03:32
-02. More Than Enough    04:54
-03. Straight From The Heart    04:19
-04. Camel (Instrumental)   03:48(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365AB37A3978721035B440184BF140F7E67B2549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127518   (730988) от 22.04.2017
-
-Bear’s Den - Red Earth & Pouring Rain (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Earth & Pouring Rain  (04:52) 
-02. Emeralds  (04:30) 
-03. Dew On The Vine  (05:02) 
-04. Roses On A Breeze  (05:21) (   Читать дальше...   )Жанр: Rock, Alternative, FolkПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32A8B244ACA3DB21938C40EBFCD42C9472448B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283606   (730960) от 19.02.2019
-
-Steve Hackett - At The Edge Of Light (2019) Limited Edition, Mediabook [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen Walls And Pedestals (2:17)
-02. Beasts In Our Time (6:21)
-03. Under The Eye Of The Sun (7:07)
-04. Underground Railroad (6:23)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87895CD15C7F9AEC7012B9D03EA766E2CC7BA2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530073   (730891) от 09.02.2022
-
-Houston - IV (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Is The Night
-02. You're Still The Woman
-03. Hero
-04. A Lifetime In A Moment(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0DC3690C0514413F7C68A4F8D93A5EEF2133B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

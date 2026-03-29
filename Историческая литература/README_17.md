@@ -1,3 +1,133 @@
+###  Публикация: 1368151   (910370) от 19.03.2020
+
+Валерия Черепенчук | История флагов. От рыцарских знамен до государственных штандартов (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знамена, штандарты, флаги... За каждым стоит своя история и порой самые невероятные политические, экономические и социальные события. Флаги делают гораздо больше, чем просто идентифицируют страны и группы людей. В каждом цвете, символе и дизайне граждане и правительства стран заявляют о своей верности, патриотизме и возносят свою историю. Благодаря этой книге вы (   Читать дальше...   )Жанр: Всемирная история, ВексиллологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385F6F0F4629124E1EE1C514C1291744F0886A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098351   (910363) от 29.01.2017
+
+Э.Э. Ухтомский | Путешествие на Восток Его Императорского Высочества государя Наследника Цесаревича 1890—1891 [3 книги] (1893 - 1897) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено трехсотдневному (с 23 октября 1890 года по 4 августа 1891 года ) путешествию великого князя Николая Александровича (будущего императора Николая II) по Греции, Египту, Индии, Китаю, Японии и Сибири. Это путешествие задумывалось как заключительный этап образования наследника российского императора, одновременно являясь важнейшим дипломатическим шагом (   Читать дальше...   )Жанр: историографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD46A8F911D1EC2316D04920330A712FA1459C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990661   (910072) от 26.02.2016
+
+Б. И. Марушкин | Против буржуазной фальсификации истории советского общества [Критика американской буржуазной историографии] (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре дается краткий анализ буржуазной историографии истории советского общества, вскрывается фальсификаторский характер «исторических» теорий и концепций, имеющих наибольшее распространению в империалистической пропаганде, показан крах расчетов антикоммунизма на «эрозию» советского общества.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6551EA3A5086D4A2E1436539A9DBF7BA83C5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990695   (909927) от 26.02.2016
+
+В. Л. Секистов (ред.) | Большая ложь о войне. Критика новейшей буржуазной историографии второй мировой войны (1971) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909927.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются «новые» школы и направления современной буржуазной историографии. На большом фактическом материале авторы убедительно разоблачают реакционные взгляды американских, английских, французских и западногерманских буржуазных историков и мемуаристов, их фальсификацию главных проблем второй мировой войны.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA275CD8EE326744368BC6A4BD9AE7130DFB0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990455   (909870) от 26.02.2016
+
+В. Аристов-Литвак, А. Штейн | Выстрел на "Скороходе". Быковщина и ее уроки (1929) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темой взят случай, имевший место в конце прошлого года на одном из круп­нейших заводов Ленинграда. Из низмен­ных побуждений, уволенный за злостные прогулы и недобросовестное отношение к производству рабочий Быков выстрелил в мастера Степанкова, которого он считал виновником увольнения с завода. Это происшествие произвело громаднейшее впечат­ление на рабочих как „Скорохода", (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1EFAF3C31D7F80483B3A6C4548130D2B083C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990610   (909857) от 26.02.2016
 
 О. Л. Вайнштейн | Западноевропейская средневековая историография (1964) [DJVU]
@@ -6,7 +136,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909857.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909669.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908947.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908857.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908394.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908136.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906791.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906448.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906446.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906443.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906400.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906196.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906072.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905311.jpg" />
 </div>
 
 
@@ -380,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905070.jpg" />
 </div>
 
 
@@ -406,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902599.jpg" />
 </div>
 
 
@@ -433,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900916.jpg" />
 </div>
 
 
@@ -461,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900722.jpg" />
 </div>
 
 
@@ -488,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900311.jpg" />
 </div>
 
 
@@ -515,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900310.jpg" />
 </div>
 
 
@@ -543,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899232.jpg" />
 </div>
 
 
@@ -554,139 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2446C2397EE3A18AC75F4EC626E70AAE29E2FE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992995   (899091) от 03.03.2016
-
-Федор Раззаков | Пуля для Зои Федоровой, или КГБ снимает кино (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба звезды советского кинематографа Зои Федоровой неординарна и противоречива, а ее убийство до сих пор не раскрыто.
-Арест как пособницы иностранному шпиону, положение дочери «врага народа», попытка самоубийства в лефортовском изоляторе, обвинение в шпионаже в пользу иностранных государств, долгие годы заключения в знаменитой «Владимирке» и блестящая творческая (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F155D9589F2B363929B42F0EBED8E5DC5DFB7140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100855   (897701) от 05.02.2017
-
-Павел Винклер | Всё о холодном оружии (2013) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897701.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В основу представляемого вашему вниманию издания лег труд известного русского историка П. П. фон Винклера «Оружие». Проанализировав имеющиеся иностранные сочинения, изучив коллекции Эрмитажа, Артиллерийского музея и других собраний оружия, автор обобщил и представил богатый фактический материал. Основная часть книги посвящена античному и средневековому (   Читать дальше...   )Жанр: Общие работы по всемирной историиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADD124C3B119B0B215E2B98FCA7663C892F2B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993047   (897397) от 04.03.2016
-
-С. А. Токарев (отв. ред.) | Календарные обряды и обычаи в странах зарубежной Европы. Зимние праздники. XIX — начало XX в. (1973) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга — монографическое исследование, посвященное подробному описанию и разбору традиционных народных обрядов — праздников, которые проводятся в странах зарубежной Европы. Авторами показывается история возникновения обрядности и ее классовая сущность, прослеживается формирование обрядов с древнейших времен до первых десятилетий XX в., выявляются конкретные (   Читать дальше...   )Жанр: История, культурология, этнографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23690AFEA319CFFD213AD63F03664C45E48E2A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369369   (896808) от 02.09.2021
-
-Тематический сборник | История политических репрессий в СССР. (История ГУЛАГа) [197 книг] (1947-2015) [FB2, DJVU, PDF] [Обновляемая]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896808.jpg" />
-</div>
-
-
-###  Подробнее
-
-История политических преследований и репрессий в нашей стране, будь то Россия времен Ленина - Сталина, а может быть Хрущева - Брежнева заслуживает глубокого изучения, хотя бы для того, что бы в будущем не допустить того, что уже случилось когда-то и имеет тенденцию повториться вновь. Не берусь расставлять какие-то акценты или навязывать свое видение всего случившегося (   Читать дальше...   )Жанр: ИсторияФормат: FB2, DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0C8A45984342E56FB3B9181394AAC57E351CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101207   (896396) от 06.02.2017
-
-В. И. Фурсов | Путь длиною в миллионы лет [Человек и его история] (1974) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896396.jpg" />
-</div>
-
-
-###  Подробнее
-
-С давних времен человечество стремится разгадать загадку своего происхождения. В предлагаемой брошюре прослеживается длительный путь эволюционного развития и становления современного человека, рассказывается о достижениях биологических наук и прежде всего антропологии, благодаря которым мы можем заглянуть в глубь своей истории на десятки миллионов лет.
-
-Книжка написана (   Читать дальше...   )Жанр: История, науковедение, биология, антропологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547B1927F958D9898ED6986A3DD8346FDA503203
 ```
 
 https://mybot314.ru/tekegram_catalog/

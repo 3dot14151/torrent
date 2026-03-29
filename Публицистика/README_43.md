@@ -1,3 +1,83 @@
+###  Публикация: 924817   (557223) от 04.08.2015
+
+Джон Перкинс | Исповедь экономического убийцы (2005) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Дж. Перкинса — первый в мире автобиографический рассказ о жизни, подготовке и методах деятельности особой сверхзасекреченной группы «экономических убийц» — профессионалов высочайшего уровня, призванных работать с высшими политическими и экономическими лидерами интересующих США стран мира. В книге–исповеди, ставшей в США и Европе бестселлером, Дж. Перкинс раскрывает (   Читать дальше...   )Жанр: История, Политика, ЭкономикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD0D2BC81C11875B66AFFBC38EABD397EE9B7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153654   (557013) от 28.07.2017
+
+Н. Черникова | Император Всероссийский Николай II Александрович (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудно найти в истории России другую личность с настолько неоднозначной трактовкой характера и действий, как Николай II.
+С одной стороны – тот самый добрый царь, о котором мечтали все поколения народа. С другой – народное же прозвище "Николай Кровавый". Одни вменяли ему в вину чрезвычайную мягкость и нерешительность в делах. Другие шёпотом сетовали – как (   Читать дальше...   )Жанр: История, Биографии и мемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E86A48E141582D03D991AB55A6E51BE3FAB7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153650   (556740) от 28.07.2017
+
+А. Колпакиди, Г. Потапов | Николай II. Святой или кровавый? (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556740.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Николае II изданы сотни книг, тысячи статей, сняты десятки художественных и документальных фильмов. В большинстве из них повествуется о семейной идиллии и трагической гибели последнего самодержца, при котором экономика России процветала и росла самыми быстрыми темпами в мире.
+Такой книги, как эта, ещё не было ни в наше, ни в советское время. В ней рассказывается (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B4DA03A2F4AEBDB2FBE889F1D09D68A40615B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235878   (556573) от 14.07.2018
 
 Иммануил Кант | Чем больше привычек, тем меньше свободы (2018) [FB2]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556573.jpg" />
+  <img src="Z:/picture/008/save_picture_556573.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556554.jpg" />
+  <img src="Z:/picture/008/save_picture_556554.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556215.jpg" />
+  <img src="Z:/picture/008/save_picture_556215.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556118.jpg" />
+  <img src="Z:/picture/008/save_picture_556118.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555825.jpg" />
+  <img src="Z:/picture/008/save_picture_555825.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555805.jpg" />
+  <img src="Z:/picture/008/save_picture_555805.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555446.jpg" />
+  <img src="Z:/picture/008/save_picture_555446.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555248.jpg" />
+  <img src="Z:/picture/008/save_picture_555248.jpg" />
 </div>
 
 
@@ -225,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555242.jpg" />
+  <img src="Z:/picture/008/save_picture_555242.jpg" />
 </div>
 
 
@@ -254,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555159.jpg" />
+  <img src="Z:/picture/008/save_picture_555159.jpg" />
 </div>
 
 
@@ -280,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554811.jpg" />
+  <img src="Z:/picture/008/save_picture_554811.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554632.jpg" />
+  <img src="Z:/picture/008/save_picture_554632.jpg" />
 </div>
 
 
@@ -332,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554469.jpg" />
+  <img src="Z:/picture/008/save_picture_554469.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554205.jpg" />
+  <img src="Z:/picture/008/save_picture_554205.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554179.jpg" />
+  <img src="Z:/picture/008/save_picture_554179.jpg" />
 </div>
 
 
@@ -413,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554150.jpg" />
+  <img src="Z:/picture/008/save_picture_554150.jpg" />
 </div>
 
 
@@ -441,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554113.jpg" />
+  <img src="Z:/picture/008/save_picture_554113.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553811.jpg" />
+  <img src="Z:/picture/008/save_picture_553811.jpg" />
 </div>
 
 
@@ -496,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553742.jpg" />
+  <img src="Z:/picture/008/save_picture_553742.jpg" />
 </div>
 
 
@@ -524,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553726.jpg" />
+  <img src="Z:/picture/008/save_picture_553726.jpg" />
 </div>
 
 
@@ -550,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553522.jpg" />
+  <img src="Z:/picture/008/save_picture_553522.jpg" />
 </div>
 
 
@@ -576,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553496.jpg" />
+  <img src="Z:/picture/008/save_picture_553496.jpg" />
 </div>
 
 
@@ -604,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552926.jpg" />
+  <img src="Z:/picture/008/save_picture_552926.jpg" />
 </div>
 
 
@@ -615,87 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7143A9FA0012ED02C22F868D5E09EEE90AA45386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237282   (552519) от 23.07.2018
-
-Н. И. Ганин | Г. В. Плеханов - первый выдающийся теоретик и пропагандист марксизма в России (1957) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552519.jpg" />
-</div>
-
-
-###  Подробнее
-
-План изложения материала следующий:
-
-I. Социально-экономическая обстановка в России в 70-х гг. XIX века.
-(   Читать дальше...   )Жанр: История, политология, публицистика, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91389A4518F631AB7810E574F8F6192C4BED7CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237227   (552291) от 23.07.2018
-
-Тами Олдхэм-Эшкрафт | Во власти стихии. Реальная история любви, суровых испытаний и выживания в открытом океане (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552291.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 сентября 1983 года Тами Олдхэм и ее жених Ричард Шарп па борту прекрасной парусной яхты покинули Таити, чтобы отправиться к берегам Калифорнии. Молодые, свободные, влюбленные в океанский простор, они надеялись, что тридцатидневный переход в Сан-Диего станет для них очередным романтическим приключением. Но внезапно приключение обернулось испытанием: 11 октября (   Читать дальше...   )Жанр: Истории из жизниФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046977FB153988AEAB571120864A8C0617045AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309259   (552146) от 18.06.2019
-
-Б. В. Левшин | Академия наук СССР в годы Великой Отечественной войны [1941-1945 гг.] (1966) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Отечественная война была суровым испытанием для советского народа и созданного им социалистического общественного и государственного строя. Она явилась также серьезной проверкой творческих сил нашей науки. Этот трудный экзамен советская наука с честью выдержала. Она продемонстрировала перед всем миром свою силу и способность в короткие сроки использовать (   Читать дальше...   )Жанр: История, науковедение, политология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B287E14F5B2A519ACB582CC4DEF819CABC543E
 ```
 
 https://mybot314.ru/tekegram_catalog/

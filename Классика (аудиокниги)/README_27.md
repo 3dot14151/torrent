@@ -1,3 +1,108 @@
+###  Публикация: 1563782   (503713) от 15.07.2022
+
+Александр Писарев | Хлопотун, или Дело мастера боится (1953) [MP3, Всеволод Санаев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиопостановка по одноимённой пьесе русского драматурга Александра Писарева. Репейкин — добрый человек, который готов взяться за любое дело в помощь кому угодно. Он уже весьма не молод, но так и не создал собственной семьи. И решил наконец всё же создать собственное семейное счастье с дочерью своего старого боевого товарища, с которым вместе служил в армии и воевал (   Читать дальше...   )Жанр: Классика, РадиоспектакльПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7618E3CEF26BE7C9EFDD165FED9AA13D2917FB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934068   (503475) от 04.09.2015
+
+Александр Дюма | Сын Портоса (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является сюжетным продолжением романа "Виконт де Бражелон" и главными героями ее являются Арамис и сын Портоса Жоэль. По лихости и динамичности сюжета это произведение во многом напоминает столь любимых читателями всего мира "Трех мушкетеров". Погони и дуэли, отравления, любовные приключения, бесчисленные интриги двора Людовика XIV - все (   Читать дальше...   )Жанр: Классика. Исторические приключенияПродолжительность: 10:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8412D3C5D03F162F6A2628D79F3CECDFA40970AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563973   (502701) от 16.07.2022
+
+Антон Чехов | О любви (2022) [MP3, Павел Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь это не всегда страсть и буря эмоций, не всегда ухаживания и свадьба. Иногда любовь, это тихо смотреть на любимого человека, вздыхать украдкой в одиночестве не смея и боясь порушить счастье любимой, поломав и исковеркав жизнь и ее, и друга, который тебе доверяет. Иногда любовь это удивление поворотам жизни и шуткам судьбы, когда старый и неказистый получает (   Читать дальше...   )Жанр: КлассикаПродолжительность: 00:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E2A55A3C3370F854108B61A5CB273CD76726E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379946   (501973) от 25.08.2011
+
+Виктор Мари Гюго | Собор Парижской Богоматери (2010) [MP3, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика (аудио).
+Роман «Собор Парижской Богоматери» – живописует Париж XV века и великое творение готики. У Гюго легенда уравнена в правах с историей: «У книги нет никаких притязаний на историю, разве что на описание с известным знанием и известным тщанием, но лишь обзорно и урывками, состояния нравов, верований, законов, искусств, наконец, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз»Продолжительность: 21:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C197C8F80952DFD9840B27E8B3EA2A4F180AF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 379806   (501968) от 25.08.2011
 
 Михаил Лермонтов | Герой нашего времени (2007) [MP3, Иван Басов]
@@ -6,7 +111,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501968.jpg" />
+  <img src="Z:/picture/008/save_picture_501968.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500144.jpg" />
+  <img src="Z:/picture/008/save_picture_500144.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498834.jpg" />
+  <img src="Z:/picture/008/save_picture_498834.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498418.jpg" />
+  <img src="Z:/picture/008/save_picture_498418.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498359.jpg" />
+  <img src="Z:/picture/008/save_picture_498359.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496935.jpg" />
+  <img src="Z:/picture/008/save_picture_496935.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496804.jpg" />
+  <img src="Z:/picture/008/save_picture_496804.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495596.jpg" />
+  <img src="Z:/picture/008/save_picture_495596.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494780.jpg" />
+  <img src="Z:/picture/008/save_picture_494780.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493135.jpg" />
+  <img src="Z:/picture/008/save_picture_493135.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492501.jpg" />
+  <img src="Z:/picture/008/save_picture_492501.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492254.jpg" />
+  <img src="Z:/picture/008/save_picture_492254.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490435.jpg" />
+  <img src="Z:/picture/008/save_picture_490435.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488709.jpg" />
+  <img src="Z:/picture/008/save_picture_488709.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488345.jpg" />
+  <img src="Z:/picture/008/save_picture_488345.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487893.jpg" />
+  <img src="Z:/picture/008/save_picture_487893.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486587.jpg" />
+  <img src="Z:/picture/008/save_picture_486587.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486521.jpg" />
+  <img src="Z:/picture/008/save_picture_486521.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486407.jpg" />
+  <img src="Z:/picture/008/save_picture_486407.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486401.jpg" />
+  <img src="Z:/picture/008/save_picture_486401.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486393.jpg" />
+  <img src="Z:/picture/008/save_picture_486393.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486392.jpg" />
+  <img src="Z:/picture/008/save_picture_486392.jpg" />
 </div>
 
 
@@ -570,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767A61457E894C3B1AA55A12F15BD1099F5A38C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566119   (486389) от 27.07.2022
-
-Николай Гоголь и др. | Сборник - Классика русского рассказа. (Выпуск 09) (2015) [MP3, А. Котов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию очередной сборник серии «Классика русского рассказа». Выбрать и составить перечень литературных произведений – задача не из легких. Ведь у каждого нашего слушателя свои вкусы, предпочтения и пристрастия. Мы постарались создать такой сборник рассказов, чтобы он понравился без исключения всем. Ведь в него вошли без преувеличения лучшие (   Читать дальше...   )Жанр: Классика русского рассказаПродолжительность: 03:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EA0220A612FF7A8A38621575B082A06613A10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244075   (483977) от 31.08.2018
-
-Николай Лесков | Захудалый род (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Род наш один из самых древних родов на Руси: все Протозановы по прямой линии происходят от первых владетельных князей, и под родовым гербом нашим значится, что он нам не милостью дарован, а принадлежит «не по грамоте». В исторических рассказах о старой Руси встречается немало имен наших предков, и некоторые из них воспоминаются с большим одобрением. До Ивана Даниловича (   Читать дальше...   )Жанр: Русская классикаПродолжительность: 08:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EB80F69E2B21553277D5D760571424510EF62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200324   (483870) от 31.08.2018
-
-Николай Гоголь | Страшная месть (1994) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый есаул женит своего сына. Отец выносит иконы, чтобы благословить ими молодых, но неожиданно один из гостей - казаков, превращается в страшного урода. Все в ужасе от него отпрянули, но есаул Горобец догадывается, что это превращение связано с иконами и что перед ним колдун...Жанр: Классика, РадиоспектакльПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA483135263DAEDB1A8797CB78E08E2A9DEE8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238024   (483036) от 20.09.2010
-
-Уильям Шекспир | Много шума из ничего (Радиоспектакль) (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483036.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Много шума из ничего" - одна из самых популярных комедий Шекспира, как при его жизни, так и в настоящее время. Сюжет заимствован у итальянского новеллиста Банделло. Вся пьеса построена на идее обмана чувств, иллюзорности видимого. Яркие живые характеры, драматизм сюжета в сочетании с мажорным настроением и обилием комических эпизодов свидетельствуют о (   Читать дальше...   )Жанр: Комедия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77846580001E56D2B447060D62C314412301EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

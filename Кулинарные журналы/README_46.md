@@ -1,3 +1,55 @@
+###  Публикация: 1180901   (337499) от 05.11.2017
+
+Журнал | Гастрономъ. Спецвыпуск №6. Всё из баклажанов, перцев и тыквы (сентябрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сезонные перцы, баклажаны и тыква - три верных товарища, способных сделать прекрасной любую трапезу - завтрак, обед, ужин, званый пир или дружескую вечеринку, застолье на даче или пикник на обочине. Они поистине многогранны: замечательно смотрятся и в тарелке с супом, и в миске с салатом, и в качестве гарнира, и даже в виде десерта. Мы предлагаем вам приготовить (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16B31A67730FB4980E1095B7B223BA57C3AFCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954992   (337492) от 09.11.2015
+
+Газета  | Рождественский стол №1 (3) (2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздничные кушанья в Рождество могут быть самые различные, но обязательно должно быть одно центральное блюдо - гусь, индейка, утка, курица, рыба, запеченные целиком. Блюдо, которое станет символом единства всех собравшихся за праздничным столом. Рождественские блюда хоть и считаются традиционными, но весьма разнообразны. В меню, как правило, входит запеченное мясо, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AC802BD0298E153DEAD10E41405FA78C0517D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954991   (337190) от 09.11.2015
 
 Газета | 1001 совет и секрет. Спецвыпуск №159. Мультиварка может всё. Новый год без хлопот (ноябрь 2015) [PDF]
@@ -6,7 +58,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337190.jpg" />
+  <img src="Z:/picture/008/save_picture_337190.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336035.jpg" />
+  <img src="Z:/picture/008/save_picture_336035.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333844.jpg" />
+  <img src="Z:/picture/008/save_picture_333844.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333836.jpg" />
+  <img src="Z:/picture/008/save_picture_333836.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332527.jpg" />
+  <img src="Z:/picture/008/save_picture_332527.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332521.jpg" />
+  <img src="Z:/picture/008/save_picture_332521.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328417.jpg" />
+  <img src="Z:/picture/008/save_picture_328417.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328259.jpg" />
+  <img src="Z:/picture/008/save_picture_328259.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327502.jpg" />
+  <img src="Z:/picture/008/save_picture_327502.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327440.jpg" />
+  <img src="Z:/picture/008/save_picture_327440.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325798.jpg" />
+  <img src="Z:/picture/008/save_picture_325798.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325796.jpg" />
+  <img src="Z:/picture/008/save_picture_325796.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325795.jpg" />
+  <img src="Z:/picture/008/save_picture_325795.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321913.jpg" />
+  <img src="Z:/picture/008/save_picture_321913.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321908.jpg" />
+  <img src="Z:/picture/008/save_picture_321908.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321797.jpg" />
+  <img src="Z:/picture/008/save_picture_321797.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321791.jpg" />
+  <img src="Z:/picture/008/save_picture_321791.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321489.jpg" />
+  <img src="Z:/picture/008/save_picture_321489.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319275.jpg" />
+  <img src="Z:/picture/008/save_picture_319275.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319088.jpg" />
+  <img src="Z:/picture/008/save_picture_319088.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318380.jpg" />
+  <img src="Z:/picture/008/save_picture_318380.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317300.jpg" />
+  <img src="Z:/picture/008/save_picture_317300.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316304.jpg" />
+  <img src="Z:/picture/008/save_picture_316304.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316121.jpg" />
+  <img src="Z:/picture/008/save_picture_316121.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE15D2409F0BBEC3E5935FF1D6CE210A07AA188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076129   (315991) от 24.11.2016
-
-Журнал | Приготовь. Спецвыпуск №12. На новый год (декабрь 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315991.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске собраны рецепты вкуснейших праздничных блюд, которые и можно, и нужно приготовить к новогоднему столу, - от салатов и закусок до супов, горячего и десертов.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA22DC9E7E79DBA3E9A040347BBBA31B94E21764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959522   (314698) от 25.11.2015
-
-Журнал | Еда. Коллекция. №8 (58) Любимые рецепты. Новый год (2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год - пора волшебства, в которое верят даже взрослые. Мы стараемся превратить этот праздник в чудесную сказку. Чтобы в ваш дом поскорее пришло радостное предновогоднее настроение, а на столе царило изобилие, воспользуйтесь добрыми подсказками. В сборнике почти 200 вкусных новогодних и рождественских рецептов, с помощью которых вы без труда сможете составить (   Читать дальше...   )Жанр: Домоводство, кулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CBC42A77B7D1927E95CDB1ACD1DC186C930C09
 ```
 
 https://mybot314.ru/tekegram_catalog/

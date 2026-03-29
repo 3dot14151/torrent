@@ -1,3 +1,58 @@
+###  Публикация: 1313346   (524436) от 08.07.2019
+
+А.Н. Роганин | Геометрия в схемах, терминах, таблицах (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524436.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии в удобной форме (в виде таблиц и схем) изложены основные понятия геометрии, изучение которых предусмотрено действующей школьной программой.
+Пособие предназначено для учащихся и учителей общеобразовательных школ, абитуриентов, а также для всех, кто интересуется математикой.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C16AB022A634ED12D70C5E34DC49B1FBB93453C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928164   (523293) от 15.08.2015
+
+М. Иорданский (ред.) | Песни для детей (1937) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издаваемый сборник песен для начальной школы соответствует программам Наркомпроса 1937 г. В сборнике песенный материал расположен по классам. В него включены новые песни советских композиторов, народные песни и песни из музыкального наследия.
+
+При составлении данного сборника учтено, что ряд песен для начальной школы вошел в сборник «60 песен дошкольников» и в «Музыкальный (   Читать дальше...   )Жанр: Детская образовательная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0B41D2661ADBA609D028FE8291171E74EF28D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918974   (523049) от 15.08.2015
 
 В.В. Казаков | Наглядная геометрия. 8 класс (2012) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523049.jpg" />
+  <img src="Z:/picture/008/save_picture_523049.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522972.jpg" />
+  <img src="Z:/picture/008/save_picture_522972.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522401.jpg" />
+  <img src="Z:/picture/008/save_picture_522401.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522268.jpg" />
+  <img src="Z:/picture/008/save_picture_522268.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520545.jpg" />
+  <img src="Z:/picture/008/save_picture_520545.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519550.jpg" />
+  <img src="Z:/picture/008/save_picture_519550.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519436.jpg" />
+  <img src="Z:/picture/008/save_picture_519436.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518971.jpg" />
+  <img src="Z:/picture/008/save_picture_518971.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517384.jpg" />
+  <img src="Z:/picture/008/save_picture_517384.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517222.jpg" />
+  <img src="Z:/picture/008/save_picture_517222.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516264.jpg" />
+  <img src="Z:/picture/008/save_picture_516264.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515264.jpg" />
+  <img src="Z:/picture/008/save_picture_515264.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515260.jpg" />
+  <img src="Z:/picture/008/save_picture_515260.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515259.jpg" />
+  <img src="Z:/picture/008/save_picture_515259.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515245.jpg" />
+  <img src="Z:/picture/008/save_picture_515245.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515152.jpg" />
+  <img src="Z:/picture/008/save_picture_515152.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515066.jpg" />
+  <img src="Z:/picture/008/save_picture_515066.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514091.jpg" />
+  <img src="Z:/picture/008/save_picture_514091.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514082.jpg" />
+  <img src="Z:/picture/008/save_picture_514082.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514026.jpg" />
+  <img src="Z:/picture/008/save_picture_514026.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513995.jpg" />
+  <img src="Z:/picture/008/save_picture_513995.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513881.jpg" />
+  <img src="Z:/picture/008/save_picture_513881.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513866.jpg" />
+  <img src="Z:/picture/008/save_picture_513866.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513857.jpg" />
+  <img src="Z:/picture/008/save_picture_513857.jpg" />
 </div>
 
 
@@ -632,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9245FB61B800E529CDF721B8A59AF0BA074D39B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931137   (513019) от 25.08.2015
-
-Фёдор Наливкин (изд.) | Детство знаменитых людей (1847) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный автор выбрал в назидание маленьким читателям тридцать две знаменитых в Европе персоны, о чьем детстве сохранились некоторые сведения. Среди этих людей известные ученые, писатели и поэты, государственные деятели, проповедники, юристы, художники, музыканты, но все они в детстве были трудолюбивы и достигали успехов благодаря своей усидчивости, усердию и (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5D0D67A0CC0CB9DF9218A53F34299ECD2E68CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931129   (513014) от 25.08.2015
-
-Разговоры нянюшки с детьми (1840) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание «Разговоры нянюшки с детьми» – типичный пример познавательной литературы для детей второй половины XIX века. Такого рода книги охотно издавала Университетская типография. «Разговоры нянюшки...» – это десять небольших рассказов: «Корова», «Овца», «Петух», «Птица» и др., которые знакомят детей в основном с представителями животного мира, с их повадками и образом (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E7D4A167E83BDF5BC92B79F2BD5482D21828C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

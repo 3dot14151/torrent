@@ -1,3 +1,29 @@
+###  Публикация: 1099228   (906046) от 31.01.2017
+
+Constructor (1997) [Multi] (1.0) License GOG
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрок управляет строительной компанией. В каждом режиме, кроме «Build, Build, Build.», по ходу развития даются специальные задания, при выполнении которых начисляются очки авторитета. Если игрок наберёт 100 очков авторитета, то сможет обменять их на 10 000 фунтов стерлингов. Также, по ходу строительства удобств и улучшений, жильцы домов будут жаловаться, капризничать (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio 3 InteractiveЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B611E63CC0E96395D6C7E128A3DC066B2ACD4E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991068   (905451) от 28.02.2016
 
 Life in Bunker (2016) [Ru/Multi] (1.0.1192) License SKIDROW
@@ -6,7 +32,7 @@ Life in Bunker (2016) [Ru/Multi] (1.0.1192) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905451.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Galactic Civilizations III (2015) [Ru/En] (2.00) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900765.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ King Arthur / Король Артур (2011) [Ru/En] (1.07/1.0.0.6/dlc) License 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895441.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895036.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ S2: Silent Storm (2004) [Ru/En] (1.2/1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893794.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Braveland (2014) [Ru/Multi] (1.4.0.19) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879830.jpg" />
+  <img src="Z:/picture/005/save_picture_879830.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Braveland Wizard (2014) [Ru/Multi] (1.1.4.14) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879762.jpg" />
+  <img src="Z:/picture/005/save_picture_879762.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Braveland Pirate (2015) [Ru/Multi] (1.1.1.10) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879745.jpg" />
+  <img src="Z:/picture/005/save_picture_879745.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ RISK™: Factions (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878518.jpg" />
+  <img src="Z:/picture/005/save_picture_878518.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874513.jpg" />
+  <img src="Z:/picture/005/save_picture_874513.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Total Annihilation: Commander Pack (1997) [En] (3.1.0.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874284.jpg" />
+  <img src="Z:/picture/005/save_picture_874284.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ KKND 2: Krossfire (P) [En+Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874058.jpg" />
+  <img src="Z:/picture/008/save_picture_874058.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Victory and Glory Napoleon (2016) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870993.jpg" />
+  <img src="Z:/picture/008/save_picture_870993.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Alder's Blood (2020) [En] (1.0.4f1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870237.jpg" />
+  <img src="Z:/picture/008/save_picture_870237.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Planetary Annihilation: TITANS (2015) [Multi] (1.0.0.86422) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869017.jpg" />
+  <img src="Z:/picture/008/save_picture_869017.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ WARTILE (2018) [Ru/Multi] (1.1.9.4/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868462.jpg" />
+  <img src="Z:/picture/008/save_picture_868462.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Realpolitiks (2017) [Ru/Multi] (1.3.2) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867207.jpg" />
+  <img src="Z:/picture/008/save_picture_867207.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Age of Mythology (2014) [Ru/En] (2.6/dlc) Repack R.G. Механики [Extended
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863663.jpg" />
+  <img src="Z:/picture/008/save_picture_863663.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862677.jpg" />
+  <img src="Z:/picture/008/save_picture_862677.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.0) Repack Other s [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862638.jpg" />
+  <img src="Z:/picture/008/save_picture_862638.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860187.jpg" />
+  <img src="Z:/picture/008/save_picture_860187.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Rise of Nations (2014) [Ru/En] (1.10/dlc) Repack R.G. Механики [Extended
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860087.jpg" />
+  <img src="Z:/picture/008/save_picture_860087.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Fort Triumph (2020) [Ru/Multi] (1.0) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857990.jpg" />
+  <img src="Z:/picture/008/save_picture_857990.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857419.jpg" />
+  <img src="Z:/picture/008/save_picture_857419.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Broken Lines (2020) [Ru/Multi] (1.0.3) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849332.jpg" />
+  <img src="Z:/picture/008/save_picture_849332.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Broken Lines — это тактическая ролевая игра с раз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FBEAF404224C11AF4C76DC195D3DF92CF6ACF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499310   (849196) от 01.10.2021
-
-Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стань огромным игральным кубиком на ножках и сражайся до конца в постоянно меняющихся подземельях! В новом динамичном карточном roguelike, который создали Terry Cavanagh (Super Hexagon, VVVVVV), Chipzel и Marlowe Dobbe, тебе предстоит сражаться с монстрами, добывать лучшее снаряжение и повышать уровень своих персонажей, стремящихся одолеть саму Госпожу Удачу, богиню (   Читать дальше...   )Тип издания: LicenseРазработчик: Terry CavanaghЖанр: Card Game, Strategy, RoguelikeЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C8E6CC7136E304EEF0E5C42FF0AF88DDB00273
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1564347   (500578) от 18.07.2022
+
+Lighting calculations / Расчеты освещения 5.2.2 Mod by Sergey0806 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lighting calculations / Расчеты освещения - Мощная программа предназначенная для вычисления осветительных расчетов. Внутри содержит люксометр, а также справочник по различным типам ламп и их подключению.Тип издания: ProРелиз состоялся: 18.07.2022Разработчик: Ettore GallinaЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F447DDC8709410ABC4CE4F9B6734125A9211B54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564338   (500502) от 18.07.2022
 
 Electrical calculations / Электрические расчеты 9.0.0 Mod by Sanek200779 [Ru/Multi]
@@ -6,7 +32,7 @@ Electrical calculations / Электрические расчеты 9.0.0 Mod by
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500502.jpg" />
+  <img src="Z:/picture/008/save_picture_500502.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500313.jpg" />
+  <img src="Z:/picture/008/save_picture_500313.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ YouTube Vanced (Extended) 17.28.32 Mod by Number one' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500270.jpg" />
+  <img src="Z:/picture/008/save_picture_500270.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Click UI - Icon Pack 4.8 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500065.jpg" />
+  <img src="Z:/picture/008/save_picture_500065.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499956.jpg" />
+  <img src="Z:/picture/008/save_picture_499956.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499877.jpg" />
+  <img src="Z:/picture/008/save_picture_499877.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499336.jpg" />
+  <img src="Z:/picture/008/save_picture_499336.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498935.jpg" />
+  <img src="Z:/picture/008/save_picture_498935.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Currency FX Pro 1.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498360.jpg" />
+  <img src="Z:/picture/008/save_picture_498360.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498358.jpg" />
+  <img src="Z:/picture/008/save_picture_498358.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498350.jpg" />
+  <img src="Z:/picture/008/save_picture_498350.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497130.jpg" />
+  <img src="Z:/picture/008/save_picture_497130.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496898.jpg" />
+  <img src="Z:/picture/008/save_picture_496898.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495495.jpg" />
+  <img src="Z:/picture/008/save_picture_495495.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Memory Booster Full 6.0.8 [Ru] - Оптимизация памяти
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495392.jpg" />
+  <img src="Z:/picture/008/save_picture_495392.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ FlightTrack Pro 5.2.4 - Отслеживание рейсов в режиме р
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493301.jpg" />
+  <img src="Z:/picture/008/save_picture_493301.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Doodle Jump Deluxe 1.8.3 (2011) <En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492871.jpg" />
+  <img src="Z:/picture/008/save_picture_492871.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491565.jpg" />
+  <img src="Z:/picture/008/save_picture_491565.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491148.jpg" />
+  <img src="Z:/picture/008/save_picture_491148.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491057.jpg" />
+  <img src="Z:/picture/008/save_picture_491057.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491055.jpg" />
+  <img src="Z:/picture/008/save_picture_491055.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491052.jpg" />
+  <img src="Z:/picture/008/save_picture_491052.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490973.jpg" />
+  <img src="Z:/picture/008/save_picture_490973.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490869.jpg" />
+  <img src="Z:/picture/008/save_picture_490869.jpg" />
 </div>
 
 
@@ -644,43 +670,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490726.jpg" />
+  <img src="Z:/picture/008/save_picture_490726.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Легенда о фракийском воине Спартаке, попавшем в рабство к римлянам, ставшим гладиатором и возглавившим одно из самых массовых восстаний рабов в Древнем Риме - известна всем ещё со школьной скамьи. Создатели сериала дают нам возможность вновь окунуться в атмосферу античности и помогают древней легенде буквально заиграть новыми красками, с применением новейших технологий кинематографии.Жанр: Драма, Приключения, ИсторияРежиссер: Майкл ХерстАктеры: Лиам МакИнтайр / Liam McIntyre, Ману Беннетт / Manu Bennett, Вива Бьянка / Viva Bianca, Люси Лоулесс / Lucy Lawless, Крэйг Паркер / Craig Parker, Ник Тарабэй / Nick Tarabay, Питер Менса / Peter Mensah, Катрина Ло / Katrina Law и др.Перевод: Профессиональный (многоголосый, закадровый) -Продолжительность: 10 X~ 55:00 мин
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542833   (490713) от 07.09.2012
-
-Правосудие Декстера (Dexter) / (Весь 1-й сезон) (2006) [MP4|640x352] <DVDRip>
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я — Декстер. Декстер Морган. Я работаю судмедэкспертом в полиции Майами. Я не понимаю любви, мне безразличен секс, и у меня нет чувств. А еще я серийный убийца.
-
-Мой отец был полицейским и прекрасно обучил меня прятать улики. Обычным гражданам не стоит меня бояться, я убиваю только преступников, подонков, до которых почему-либо не смогла или не захотела добраться полиция. Я убиваю их, аккуратно распиливаю на части и избавляюсь от трупов. Убийство для меня — творческий акт, искусство.
-
-Но однажды… В Майами появляется некто, равный мне. Даже превзошедший меня. Сумевший меня заинтересовать. Предложивший мне своего рода товарищеское состязание. Кто этот загадочный и неуловимый «икс»?..Жанр: Триллер, Драма, КриминалРежиссер: Джон Дал, Роберт Либерман, Ник ГомезАктеры: Майкл С. Холл, Дженнифер Карпентер, Лорен Велес, Дэвид Зайас, Джеймс Римар, К.С. Ли, Джули Бенц, Десмонд Харрингтон, Кристина Робинсон, Престон БэйлиПеревод: Многоголосый закадровый (Продолжительность: 12 x ~00:55:00
 
 ## Скачать торент
 ```bash

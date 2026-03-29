@@ -6,7 +6,7 @@ Downie 4.0.7 (Build 4089) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876929.jpg" />
+  <img src="Z:/picture/005/save_picture_876929.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Lattice 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876924.jpg" />
+  <img src="Z:/picture/005/save_picture_876924.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Nicky Romero - Saturday Sessions@Don't Let Daddy Know (2020) [MP3|320 Kbps] <Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876914.jpg" />
+  <img src="Z:/picture/005/save_picture_876914.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Timmy Trumpet - Live From Sydney, Australia 2020-04-05 [MP3|320 Kbps] <Electro H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876909.jpg" />
+  <img src="Z:/picture/005/save_picture_876909.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Iridient Developer 3.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876899.jpg" />
+  <img src="Z:/picture/005/save_picture_876899.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Dirty South - 4 hour DJ Set (Quarantined from studio 2020-04-04) [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876887.jpg" />
+  <img src="Z:/picture/005/save_picture_876887.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ XYplorer 20.90.0100 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876879.jpg" />
+  <img src="Z:/picture/005/save_picture_876879.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876870.jpg" />
+  <img src="Z:/picture/005/save_picture_876870.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Geekbench 5 v5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876862.jpg" />
+  <img src="Z:/picture/008/save_picture_876862.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ IrfanView 4.42 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876849.jpg" />
+  <img src="Z:/picture/005/save_picture_876849.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Wire 2.5.2584 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876847.jpg" />
+  <img src="Z:/picture/005/save_picture_876847.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ R-Studio 7.8 Build 160829 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876846.jpg" />
+  <img src="Z:/picture/005/save_picture_876846.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ RGBGOLD 1.00 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876842.jpg" />
+  <img src="Z:/picture/005/save_picture_876842.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876840.jpg" />
+  <img src="Z:/picture/008/save_picture_876840.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Opera 36.0.2130.32 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876839.jpg" />
+  <img src="Z:/picture/005/save_picture_876839.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876836.jpg" />
+  <img src="Z:/picture/008/save_picture_876836.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876835.jpg" />
+  <img src="Z:/picture/005/save_picture_876835.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ DJ Rap - Propa Classics Volume One (2001) Mixed [FLAC|Lossless|tracks + .cue] <D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876833.jpg" />
+  <img src="Z:/picture/005/save_picture_876833.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tweak and Tuneup 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876830.jpg" />
+  <img src="Z:/picture/005/save_picture_876830.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Firefox Browser 75.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876825.jpg" />
+  <img src="Z:/picture/005/save_picture_876825.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BurnAware Professional 13.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876822.jpg" />
+  <img src="Z:/picture/005/save_picture_876822.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wondershare PDFelement Pro 7.6.0.3023 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876821.jpg" />
+  <img src="Z:/picture/005/save_picture_876821.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Complete Internet Repair 5.2.3.4063 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876816.jpg" />
+  <img src="Z:/picture/008/save_picture_876816.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ XPLife 4.0 - Изменения интерфейса Windows XP 32-bit / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876809.jpg" />
+  <img src="Z:/picture/008/save_picture_876809.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876807.jpg" />
+  <img src="Z:/picture/008/save_picture_876807.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ HDScape. Гавайи / HDScape. Hawaii (2005) BDRip [H.264/720p]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876769.jpg" />
+  <img src="Z:/picture/005/save_picture_876769.jpg" />
 </div>
 
 

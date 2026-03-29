@@ -6,7 +6,7 @@ GoodSync Enterprise 10.9.25.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720950.jpg" />
+  <img src="Z:/picture/008/save_picture_720950.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Autorun Organizer 3.08 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720942.jpg" />
+  <img src="Z:/picture/008/save_picture_720942.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 8.63.0.76 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720935.jpg" />
+  <img src="Z:/picture/008/save_picture_720935.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Reg Organizer 8.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720933.jpg" />
+  <img src="Z:/picture/008/save_picture_720933.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Skype 8.40.0.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720860.jpg" />
+  <img src="Z:/picture/008/save_picture_720860.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720857.jpg" />
+  <img src="Z:/picture/008/save_picture_720857.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Opera 58.0.3135.79 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720856.jpg" />
+  <img src="Z:/picture/008/save_picture_720856.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Light Image Resizer 5.1.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720851.jpg" />
+  <img src="Z:/picture/008/save_picture_720851.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Movavi Video Suite 20.4.1 RePack (& Portable) by  Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720736.jpg" />
+  <img src="Z:/picture/008/save_picture_720736.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Stellarium 0.90.0.9320 TEST [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720701.jpg" />
+  <img src="Z:/picture/008/save_picture_720701.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Process Lasso Pro 9.0.0.318 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720695.jpg" />
+  <img src="Z:/picture/008/save_picture_720695.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Skype 8.40.0.070 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720692.jpg" />
+  <img src="Z:/picture/008/save_picture_720692.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ uTorrent Stable 3.5.5 (build 45095) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720666.jpg" />
+  <img src="Z:/picture/008/save_picture_720666.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ uTorrent 3.5.5 Build 45095 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720661.jpg" />
+  <img src="Z:/picture/008/save_picture_720661.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ uTorrent Pro 3.5.5 Build 45095 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720654.jpg" />
+  <img src="Z:/picture/008/save_picture_720654.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kazrog - AmpCraft - 1992 1.0.1 STANDALONE, VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720643.jpg" />
+  <img src="Z:/picture/008/save_picture_720643.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MInstAll v.03.08.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720621.jpg" />
+  <img src="Z:/picture/008/save_picture_720621.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Internet Download Manager 6.28 Build 8 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720583.jpg" />
+  <img src="Z:/picture/008/save_picture_720583.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WinTools.net Premium 17.4.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720581.jpg" />
+  <img src="Z:/picture/008/save_picture_720581.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720563.jpg" />
+  <img src="Z:/picture/008/save_picture_720563.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Kazrog - True Dynamics 1.1.1 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720543.jpg" />
+  <img src="Z:/picture/008/save_picture_720543.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ DesktopOK 9.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720537.jpg" />
+  <img src="Z:/picture/008/save_picture_720537.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Task Manager DeLuxe 4.0.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720532.jpg" />
+  <img src="Z:/picture/008/save_picture_720532.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Notepad++ 8.3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720528.jpg" />
+  <img src="Z:/picture/008/save_picture_720528.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ JetBrains PhpStorm 2018.3.4 Build #PS-183.5429.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720516.jpg" />
+  <img src="Z:/picture/008/save_picture_720516.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ OBS Studio 23.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720511.jpg" />
+  <img src="Z:/picture/008/save_picture_720511.jpg" />
 </div>
 
 

@@ -1,3 +1,161 @@
+###  Публикация: 1086922   (147198) от 26.12.2016
+
+Иван (2016) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван живет в маленьком городе, работает водителем на скорой помощи. Его жизнь протекает по привычной колее, без надежд и планов. Однажды на пороге его дома появляется маленькая девочка, которая меняет и жизнь Ивана и его самого.Производство: Россия, Кинокомпания "Север"Жанр: ДрамаРежиссер: Алена ДавыдоваАктеры: Кирилл Полухин, Полина Гухман, Анастасия Мельникова, Людмила Бояринова, Сергей Яценюк, Анна ЕкатерининскаяПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3D2817480243A4C8EFE96F87A3B9816949BF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083532   (147190) от 26.12.2016
+
+Space Hulk: Deathwing (2016) [Ru/En] (1.06) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Space Hulk: Deathwing — игра в жанре шутер от первого лица (FPS), основанная на классической настольной игре Space Hulk от Games Workshop. Действие игры происходит во вселенной Warhammer 40000. Проект Space Hulk: Deathwing разработан на технологии Unreal Engine 4 и дает вам шанс вступить в яростную схватку с Генокрадами в тесных коридорах Космического скитальца в (   Читать дальше...   )Тип издания: RepackРазработчик: Streum On StudioЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2615036207514DA39621F74AE215F058B72043C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588831   (147034) от 15.12.2012
+
+uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Графический редактор для Nintendo Wii. Совместим с оригинальным контроллером uDraw GAMETABLET - простеньким планшетом с маркером, который можно использовать как для рисования, так и для управления в играх.Жанр: графический редакторЯзык интерфейса: EngФормат: Образ в формате WBFS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434810   (146950) от 26.12.2020
+
+Deworker Pro, Дмитрий Елисеев | Разработка аукциона на SlimPHP и ReactJS (2020) PCRe
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия скринкастов по разработке интерактивного аукциона с API на микрофреймворке Slim PHP и фронтендом на ReactJS по практикам DDD и DevOps.
+
+Рассмотрим всё от установки до деплоя с использованием Docker для каждой стадии процесса. С WebSocket-интерактивом и очередями на RabbitMQ. С проектированием удобной слабосвязанной доменной модели. С интеграцией сторонних сервисов (   Читать дальше...   )Производство: Deworker ProЖанр: ПрограммированиеПродолжительность: 48:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B060F29CD998BBD70C08241DEB26ADCEF9E7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434554   (146897) от 26.12.2020
+
+Доктор Лиза (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни Елизаветы Петровны Глинки. История начинается с праздничного события: Елизавета и её муж Глеб готовятся отметить 30-ю годовщину свадьбы. На домашний ужин приглашены близкие друзья, приезжают сыновья. Конечно, Лиза освободила этот день, чтобы провести его с семьёй. По плану у неё только одно дело – заехать на Павелецкий вокзал, ведь там сегодня (   Читать дальше...   )Производство: Россия, Киностудия КИТ, Продюсерский центр ИВАНЖанр: Драма, БиографияРежиссер: Оксана КарасАктеры: Чулпан Хаматова, Анджей Хыра, Константин Хабенский, Андрей Бурковский, Евгений Писарев, Алексей Агранович, Сергей Сосновский, Татьяна Догилева, Елена Коренева, Тимофей ТрибунцевПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61E608CAA56E502243388B070C6400F63D5D4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677571   (146453) от 20.11.2023
+
+Меню с «Титаника» ушло с молотка за $102 000: вот что ели самые богатые пассажиры накануне своей гибели
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экземпляр меню легендарного корабля выставил на торги аукционный дом Henry Aldridge & Son. Как пояснили аукционисты, это меню было составлено 11 апреля, за три дня до того как «Титаник» столкнулся с айсбергом и затонул.Предыдущие несколько лет меню хранилось у историка Лена Стивенсона, который изучал трагедию лайнера. А еще раньше обладателем редкости, вероятно, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271825   (146378) от 25.12.2018
 
 В Астраханской области введена в эксплуатацию крупнейшая из построенных в России солнечная электростанция
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146378.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Alien Skin Exposure X 1.0.0.2005 Revision 31988 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146200.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146137.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Adobe After Effects CC 2015 (v13.6.1) RUS/ENG Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146095.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Crash Bandicoot N. Sane Trilogy (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146079.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146040.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146032.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145996.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145965.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145421.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144902.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ Adobe After Effects CC 2019 16.0.1.48 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144897.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ The Forest (2018) [Ru/Multi] (1.10b) SteamRip R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144883.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.04) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144875.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ SafeInCloud v20.8.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144814.jpg" />
 </div>
 
 
@@ -396,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144806.jpg" />
 </div>
 
 
@@ -422,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144488.jpg" />
 </div>
 
 
@@ -450,7 +608,7 @@ Topaz Video Enhance AI 2.6.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144286.jpg" />
 </div>
 
 
@@ -476,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144144.jpg" />
 </div>
 
 
@@ -502,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144071.jpg" />
 </div>
 
 
@@ -513,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA18990CC1EAA50C8EDBB2F22E2A31A77532AD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969748   (144017) от 28.12.2015
-
-PROMT Professional 11 Build 9.0.556 Home Edition [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144017.jpg" />
-</div>
-
-
-###  Подробнее
-
-PROMT Professional 11 Домашний – переводчик бизнес-уровня, предназначенный для профессиональной, научной или учебной деятельности.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2AA79C1DDE0F2C7FC2A1ED63F99B8FA9181750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969837   (144003) от 28.12.2015
-
-Александр Медведев | Онлайн мастер-класс Александра Медведева по фотографии. Часть 2. Пакет VIP (2015) PCRec [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый вебинар Александра Медведева состоящий из 4 уроков, включающих в себя полное описание фото-продакшена:Жанр: фотографияПродолжительность: 22:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5475DD5E4F10A723CBCF092A226EBDFD16EA427B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340384   (143976) от 27.12.2019
-
-F-Secure Freedome VPN 2.30.6180 RePack by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143976.jpg" />
-</div>
-
-
-###  Подробнее
-
-F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B534B67068144DA96B57EE151DF2D77C1263D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943887   (143972) от 28.12.2015
-
-Доктор Кто / Doctor Who (2015) WEB-DL [H.264/1080p-LQ] (сезон 9, серии 0-12 из 12 + Рождественская серия) BaibaKo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор оказался в ловушке в зловещем городе далеков, самом сердце империи зла без звуковой отвёртки, без ТАРДИС, и помощи ждать неоткуда. Сможет ли он устоять перед величайшим искушением, и будет ли проявлено милосердие?Производство: Великобритания / British Broadcasting Corporation (BBC), Canadian Broadcasting Corporation (CBC)Жанр: фантастика, драма, комедия, приключенияРежиссер: Дуглас Маккиннон, Кит Боак, Хетти МакдональдАктеры: Дэвид Теннант, Дженна Коулман, Питер Капальди, Николас Бриггс, Барнеби Эдвардс, Алекс Кингстон, Николас Пегг и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Светлана Доманова, Татьяна Оболевич, Алексей Кузнецов, Александр Фурман и Владимир КурдовПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1093ED3463179352074AD90BC8CC90E1F659D51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348034   (143931) от 27.12.2019
-
-Gothic II: Gold Edition / Готика 2: Золотое издание (2010) [Ru] (2.6.0.0rev2/dlc) Repack/Mod Nobass123
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gothic II: Золотое Издание включает оригинальную игру Gothic II и официальное дополнение "Ночь Ворона"! Вы уничтожили магический барьер и освободили заключённых Долины Рудников. Вырвавшиеся на свободу бывшие заключённые стали терроризировать окрестности города Хоринис. У городского ополчения слишком мало сил, чтобы бороться с преступниками за пределами (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Piranha BytesЖанр: RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561DA4F2FB624DA6FDC7876E3B9095154578F12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265359   (143910) от 27.12.2019
-
-HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествуйте по миру и выслеживайте свои цели в экзотических местах. От залитых солнцем улиц до темных и опасных тропических лесов, нигде нельзя спрятаться от Агента 47. Вам необходимо устранить неуловимого теневого клиента и раскрыть данные его группировки. Но когда 47й выяснил настоящую личность своей цели и правду о своем прошлом, то все изменилось. HITMAN™ 2 (   Читать дальше...   )Тип издания: RepackРазработчик: IO Interactive A/SЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9448CD5E1B8E8055388524561ED0D16C2C2DF5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

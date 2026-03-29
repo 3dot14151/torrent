@@ -6,7 +6,7 @@ Download Master 6.15.1.1587 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796250.jpg" />
+  <img src="Z:/picture/008/save_picture_796250.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 7.23.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796236.jpg" />
+  <img src="Z:/picture/008/save_picture_796236.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Replay Media Catcher 6.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796225.jpg" />
+  <img src="Z:/picture/008/save_picture_796225.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vivaldi 4.3.2439.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796222.jpg" />
+  <img src="Z:/picture/008/save_picture_796222.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Codec Pack Update 16.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796221.jpg" />
+  <img src="Z:/picture/008/save_picture_796221.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AdwCleaner 5.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796212.jpg" />
+  <img src="Z:/picture/008/save_picture_796212.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox ESR 52.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796197.jpg" />
+  <img src="Z:/picture/008/save_picture_796197.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Take Command 22.00.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796194.jpg" />
+  <img src="Z:/picture/008/save_picture_796194.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Download Master 6.15.1.1587 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796191.jpg" />
+  <img src="Z:/picture/008/save_picture_796191.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Spectrasonics Omnisphere Software 2.8.1c Update (x64) RePack by vkDanilov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796188.jpg" />
+  <img src="Z:/picture/008/save_picture_796188.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ RogueKiller Anti-Malware 15.1.3 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796187.jpg" />
+  <img src="Z:/picture/008/save_picture_796187.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ LibreOffice 7.2.2.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796183.jpg" />
+  <img src="Z:/picture/008/save_picture_796183.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Skype 7.23.32.104 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796171.jpg" />
+  <img src="Z:/picture/008/save_picture_796171.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DiskDigger 1.47.83.3121 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796165.jpg" />
+  <img src="Z:/picture/008/save_picture_796165.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.17 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796162.jpg" />
+  <img src="Z:/picture/008/save_picture_796162.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Futuremark 3DMark 2.21.7309 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796159.jpg" />
+  <img src="Z:/picture/008/save_picture_796159.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SupRemo 4.5.4.2791 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796158.jpg" />
+  <img src="Z:/picture/008/save_picture_796158.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ GPU-Z 2.6.0 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796142.jpg" />
+  <img src="Z:/picture/008/save_picture_796142.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Movavi Photo Editor 5.1.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796131.jpg" />
+  <img src="Z:/picture/008/save_picture_796131.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Internet Download Manager 6.25 Build 16 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796127.jpg" />
+  <img src="Z:/picture/008/save_picture_796127.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ AIMP 4.02 Build 1713 Final + Portable DC 27.04.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796122.jpg" />
+  <img src="Z:/picture/008/save_picture_796122.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Windows 10 Manager 3.5.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796111.jpg" />
+  <img src="Z:/picture/008/save_picture_796111.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ ThisIsWin11 0.91.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_796109.jpg" />
+  <img src="Z:/picture/005/save_picture_796109.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Ventoy 1.0.59 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796106.jpg" />
+  <img src="Z:/picture/008/save_picture_796106.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ HitPaw Watermark Remover 1.3.5.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796102.jpg" />
+  <img src="Z:/picture/008/save_picture_796102.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PortableApps.com Platform 19.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796099.jpg" />
+  <img src="Z:/picture/008/save_picture_796099.jpg" />
 </div>
 
 

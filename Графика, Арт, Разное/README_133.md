@@ -1,3 +1,31 @@
+###  Публикация: 1831729   (212250) от 29.10.2025
+
+Книжная иллюстрация - Pepin Press - 5000 Animals [TIF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212250.jpg" />
+</div>
+
+
+###  Подробнее
+
+«5000 Animals» — это незаменимый визуальный архив и рабочий инструмент для дизайнеров, художников, иллюстраторов и всех, кто работает с графикой.
+
+Эта книга представляет собой обширную коллекцию из 5000 высококачественных изображений животных. Она наполнена тщательно отобранными винтажными иллюстрациями, гравюрами, ксилографиями и детализированными контурными рисунками. (   Читать дальше...   )Формат: TIFРазрешение файлов: 259х252 - 11335х12655
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3E5DD9466E32B57CFB7BB2E63490ECFB6145B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1831790   (212205) от 29.10.2025
 
 Промты - Creative Market - 539 Midjourney Street Prompts - 42166555 [TXT, JPG]
@@ -6,7 +34,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212205.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212203.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212136.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211336.jpg" />
+  <img src="Z:/picture/005/save_picture_211336.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211307.jpg" />
+  <img src="Z:/picture/005/save_picture_211307.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211073.jpg" />
+  <img src="Z:/picture/005/save_picture_211073.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210941.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210833.jpg" />
+  <img src="Z:/picture/005/save_picture_210833.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210791.jpg" />
+  <img src="Z:/picture/005/save_picture_210791.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210784.jpg" />
+  <img src="Z:/picture/005/save_picture_210784.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210777.jpg" />
+  <img src="Z:/picture/005/save_picture_210777.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210773.jpg" />
+  <img src="Z:/picture/005/save_picture_210773.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210735.jpg" />
+  <img src="Z:/picture/005/save_picture_210735.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210655.jpg" />
+  <img src="Z:/picture/005/save_picture_210655.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210654.jpg" />
+  <img src="Z:/picture/005/save_picture_210654.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210641.jpg" />
+  <img src="Z:/picture/005/save_picture_210641.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210632.jpg" />
+  <img src="Z:/picture/005/save_picture_210632.jpg" />
 </div>
 
 
@@ -450,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210621.jpg" />
+  <img src="Z:/picture/005/save_picture_210621.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210611.jpg" />
+  <img src="Z:/picture/005/save_picture_210611.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210607.jpg" />
+  <img src="Z:/picture/005/save_picture_210607.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210554.jpg" />
+  <img src="Z:/picture/005/save_picture_210554.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210369.jpg" />
+  <img src="Z:/picture/005/save_picture_210369.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210087.jpg" />
+  <img src="Z:/picture/005/save_picture_210087.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209933.jpg" />
+  <img src="Z:/picture/005/save_picture_209933.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209769.jpg" />
+  <img src="Z:/picture/005/save_picture_209769.jpg" />
 </div>
 
 
@@ -647,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB54F6F2EF388E358335268C0F23268BFBE1D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604397   (209738) от 17.01.2023
-
-Фотография - ArtStation - Grafit Studio - 330+ Male Character Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор включает в себя более 330 эталонных изображений высокого разрешения с изображением мужского персонажа — он включает в себя динамические и статические позы, а также позы, снятые с помощью вращающейся платформы с разных ракурсов. Позы включают стояние, прыжки, сидение, бег и многое другое! Это будет полезный инструмент для создания дизайна персонажей, иллюстраций, (   Читать дальше...   )Формат: JPGРазрешение файлов: 1509x2385 - 5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83B7051AA6A5517EC65BA72843E365D9E485852
 ```
 
 https://mybot314.ru/tekegram_catalog/

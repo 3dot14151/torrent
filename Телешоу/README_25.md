@@ -1,3 +1,29 @@
+###  Публикация: 1041101   (584561) от 07.08.2016
+
+Фетисов. Обезглавленный футбол (07.08.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584561.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ток-шоу «Фетисов» - именитые гости, эксклюзивные интервью, сенсационные факты и громкие скандалы. Великие победы и острые проблемы российского спорта предстанут в новом свете. Фетисов разберется лично! Вячеслав Фетисов – человек, завоевавший все возможные титулы в мировом хоккее. Он знает о спорте все. Он - тот, с кем всё по-честному! Спортсмен, политик и теперь (   Читать дальше...   )В этом выпуске: Помимо олимпийских скандалов, никак не разрешится другая  спортивная интрига этого лета: кто станет главным тренером сборной России по футболу? После провала на Евро это - задача номер один. Среди наиболее реальных кандидатов сейчас звучат фамилии Бердыева, Бородюка, Семака и Черчесова. Кто поведет сборную России к так нужным всем нам победам? Под чьим руководством (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: Общественно-спортивное ток-шоуРежиссер: Михаил СмирновПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64030C8CD9828D1B81D92369E48D521449C5A3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041035   (584524) от 07.08.2016
 
 ТЕМА с В. Листьевым: «Приватизация» (1992) SATRip
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584524.jpg" />
+  <img src="Z:/picture/008/save_picture_584524.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577085.jpg" />
+  <img src="Z:/picture/008/save_picture_577085.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576431.jpg" />
+  <img src="Z:/picture/008/save_picture_576431.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576302.jpg" />
+  <img src="Z:/picture/008/save_picture_576302.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575481.jpg" />
+  <img src="Z:/picture/008/save_picture_575481.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575475.jpg" />
+  <img src="Z:/picture/008/save_picture_575475.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574506.jpg" />
+  <img src="Z:/picture/008/save_picture_574506.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563428.jpg" />
+  <img src="Z:/picture/008/save_picture_563428.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561896.jpg" />
+  <img src="Z:/picture/008/save_picture_561896.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561539.jpg" />
+  <img src="Z:/picture/008/save_picture_561539.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559818.jpg" />
+  <img src="Z:/picture/008/save_picture_559818.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558608.jpg" />
+  <img src="Z:/picture/008/save_picture_558608.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558158.jpg" />
+  <img src="Z:/picture/008/save_picture_558158.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556988.jpg" />
+  <img src="Z:/picture/008/save_picture_556988.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556880.jpg" />
+  <img src="Z:/picture/008/save_picture_556880.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553129.jpg" />
+  <img src="Z:/picture/008/save_picture_553129.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553122.jpg" />
+  <img src="Z:/picture/008/save_picture_553122.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552336.jpg" />
+  <img src="Z:/picture/008/save_picture_552336.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552320.jpg" />
+  <img src="Z:/picture/008/save_picture_552320.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552013.jpg" />
+  <img src="Z:/picture/008/save_picture_552013.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551947.jpg" />
+  <img src="Z:/picture/008/save_picture_551947.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551177.jpg" />
+  <img src="Z:/picture/008/save_picture_551177.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550933.jpg" />
+  <img src="Z:/picture/008/save_picture_550933.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550891.jpg" />
+  <img src="Z:/picture/008/save_picture_550891.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549332.jpg" />
+  <img src="Z:/picture/008/save_picture_549332.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:635981B0C88A09964AA6E8B8E7C13912F9FA0ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047666   (549331) от 30.08.2016
-
-Место встречи. Новая мировая - это реально?! (30.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: Предвоенное положение: кто втягивает Россию в глобальный конфликт? Каких еще нам ждать провокаций и сколько продлится противостояние Востока и Запада?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808E37875F6A6AA9EBF7355D044ED4060ED05EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

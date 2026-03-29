@@ -1,3 +1,55 @@
+###  Публикация: 1169754   (402409) от 28.09.2017
+
+С.В. Гаркуша и др. | Вредители и болезни овоще-бахчевых культур и картофеля в Краснодарском крае (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_402409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издается в рамках краевой целевой программы «Развитие сельского хозяйства и регулирование рынков сельскохозяйственной продукции, сырья и продовольствия в Краснодарском крае» на 2008-2012 годы по решению отраслевого экспертного научно-технического совета департамента сельского хозяйства и перерабатывающей промышленности Краснодарского края по подпрограмме «Растениеводство», (   Читать дальше...   )Жанр: Сельское хозяйство, Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337F9752B42BD1EE37DB48E2A2091024D809DD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565199   (401111) от 25.10.2012
+
+Г.И.Гладов | Конструкции многоцелевых гусеничных и колесных машин [2010] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены общее устройство, назначение, принцип действия, а также конструктивные особенности механизмов, систем и агрегатов многоцелевых гусеничных и колесных машин, в том числе автомобильных поездов и амфибийных машин.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A65E3D8642B28DF5ADAC29A8E87189E6F372DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564690   (401015) от 25.10.2012
 
 И. Г. Араманович, В. И. Левин | Уравнения математической физики [1969] [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401015.jpg" />
+  <img src="Z:/picture/008/save_picture_401015.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398634.jpg" />
+  <img src="Z:/picture/008/save_picture_398634.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398559.jpg" />
+  <img src="Z:/picture/008/save_picture_398559.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398556.jpg" />
+  <img src="Z:/picture/008/save_picture_398556.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395691.jpg" />
+  <img src="Z:/picture/008/save_picture_395691.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395587.jpg" />
+  <img src="Z:/picture/008/save_picture_395587.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393942.jpg" />
+  <img src="Z:/picture/008/save_picture_393942.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393816.jpg" />
+  <img src="Z:/picture/008/save_picture_393816.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393742.jpg" />
+  <img src="Z:/picture/008/save_picture_393742.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393588.jpg" />
+  <img src="Z:/picture/008/save_picture_393588.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393042.jpg" />
+  <img src="Z:/picture/008/save_picture_393042.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392615.jpg" />
+  <img src="Z:/picture/008/save_picture_392615.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390472.jpg" />
+  <img src="Z:/picture/008/save_picture_390472.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390418.jpg" />
+  <img src="Z:/picture/008/save_picture_390418.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390403.jpg" />
+  <img src="Z:/picture/008/save_picture_390403.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390355.jpg" />
+  <img src="Z:/picture/008/save_picture_390355.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390029.jpg" />
+  <img src="Z:/picture/008/save_picture_390029.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389597.jpg" />
+  <img src="Z:/picture/008/save_picture_389597.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387768.jpg" />
+  <img src="Z:/picture/008/save_picture_387768.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387761.jpg" />
+  <img src="Z:/picture/008/save_picture_387761.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387723.jpg" />
+  <img src="Z:/picture/008/save_picture_387723.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387634.jpg" />
+  <img src="Z:/picture/008/save_picture_387634.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387485.jpg" />
+  <img src="Z:/picture/008/save_picture_387485.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387220.jpg" />
+  <img src="Z:/picture/008/save_picture_387220.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB81D84C518CBD014F775939E0E23391D720E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571619   (387192) от 07.11.2012
-
-В.Ф.Жуков (ред.) | Деньги. Кредит. Банки (4-издание) [2010] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деньги, кредит и банки представляют собой самостоятельный раздел экономической науки, изучающий сферу обращения через деньги, кредит и банки, который базируется на экономической теории и исследованиях западных и российских ученых. В учебнике рассматриваются и анализируются основные тендеции развития денег, денежного обращения, инфляции, кредита, банковской системы и различных видов банков. Значительная часть материала учебника базируется на теоретических и общих аспектах денег, кредита и банков. 4-издание.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040DA955BA5F093E55BFDBEC42DE4AC3EDDE3103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325832   (387024) от 19.09.2019
-
-М.Е. Скачкова, М.Е. Монастырская | Введение в градостроительную деятельность. Нормативно-правовое и информационное обеспечение (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены концептуальные основы и охарактеризованы технологии нормативно-правового регулирования градостроительной деятельности в Российской Федерации. Представлены результаты анализа и обобщения социальных, профессиональных и законосообразной трактовок понятий «градостроительство» и «градостроительная деятельность»; обозначены цели, задачи и основные (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1795F4991AA17842EF6366015D5B1AB6AC9F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

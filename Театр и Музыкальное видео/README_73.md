@@ -1,3 +1,181 @@
+###  Публикация: 1050646   (532548) от 11.09.2016
+
+Лунин или смерть Жака (1986) SATRip (2 части) (Московский драматический театр на Малой Бронной)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исповедь главного героя - декабриста Михаила Сергеевича Лунина. Стены Акатуйской тюрьмы, где Лунин провел свои последние дни. Но тут же присутствует и другой мир - прежний мир Лунина. Он - в воспоминаниях, в фантазиях... Спектакль начинается с последнего дня жизни Лунина. Именно в этот день ему предстоит подвести последнюю черту прожитому, сделать вывод. Множество (   Читать дальше...   )Производство: СССР, Московский драматический театр на Малой БроннойЖанр: Драма, спектакльРежиссер: Александр ДунаевАктеры: Олег Вавилов, Анна Каменкова, Геннадий Коротков, Анатолий Спивак, Геннадий Сайфулин, Андрей Котов, Виктор Лакирев, Татьяна Кленова, Кирилл Глазунов, Константин Бердиков, Николай СеребренниковПродолжительность: 2 x ~ 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B003609A310D573F5D04D39CC4E506F37A3B2604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533597   (532070) от 10.08.2012
+
+Deep Purple: Phoenix Rising (2011) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532070.jpg" />
+</div>
+
+
+###  Подробнее
+
+GETTIN' TIGHTER: Полнометражный полуторачасовой документальный фильм об истории Deep Purple после ухода Иэна Гиллана и Роджера Гловера. Джон Лорд и Гленн Хьюз рассказывают прежде неизвестные истории о "пост-гиллановских" годах, присутствуют впервые публикуемые изображения и оригинальные видеоматериалы, собранные в течение многих лет.01. Burn
+02. Love Child
+03. Smoke On The Water
+04. You Keep On Moving
+05. Highway StarЖанр: Документальный, Hard RockАктеры: Coverdale, Huges, Bolin, Paice, LordПеревод: ОтсутствуетЯзык субтитров: Русские, Английские, Французские, Немецкие, ИспанскиеПродолжительность: 01:25:07+0:31:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533179   (531922) от 10.08.2012
+
+Blackmore's Night - A Knight In York (2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий DVD Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Opera House 30-ого сентября 2011 года. Он охватывает все волшебство потрясающего шоу Candice, Ritchie & Co.01 Locked Within The Crystal Ball
+02 Guilded Cage
+03 The Circle
+04 Journeyman
+05 World Of Stone
+06 The Peasant's Promise
+07 Toast To Tomorrow
+08 Fire's At Midnight
+09 Barbara Allen
+10 Darkness(   Читать дальше...   )Жанр: Medieval Folk RockПеревод: ОтсутствуетПродолжительность: 1:35:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155643   (531348) от 04.08.2017
+
+The Doors - The Very Best Of (2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531348.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Doors оказала сильнейшее влияние на культуру и искусство 60-х годов. Загадочные, мистические, иносказательные тексты песен и яркий образ вокалиста группы, Джима Моррисона, сделали её едва ли не самой знаменитой и равно же противоречивой группой своего времени. Их треки до сих пор вдохновляют музыкантов, не дают покоя поклонникам и толкают на опасные эксперименты. (   Читать дальше...   )01. Light My Fire
+02. Hello, I Love You
+03. Spanish Caravan
+04. Unknown Soldier(   Читать дальше...   )Производство: EU manufactured /RHINO Records - 081 227998547Жанр: МузыкаРежиссер: Stephanie BennettАктеры: Джим Моррисон, Рэй Манзарек, Робби Кригер, Джон ДенсморПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D3EAC6824F871282D56880EFB60D91B68F9600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926783   (531290) от 11.08.2015
+
+Новогодний календарь (1965) HDTV [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал подарил вторую жизнь любимой передаче "Голубой огонек". В праздничные дни "Голубые огоньки" 60-х годов зрители смогут увидеть в новом отреставрированном варианте и уже не в черно-белом варианте, а цветном. Гостями этих программ были: первый космонавт Юрий Гагарин, Георгий Вицин, Юрий Никулин и Евгений Моргунов (знаменитые герои Трус, (   Читать дальше...   )01.Лариса Мондрус - "Милый мой фантазёр"
+02.Геннадий и Валерий Сазоновы - "Чечетка"
+03.Аркадий Райкин - "Интермедия"
+04.Ансамбль "Аккорд" - "Пингвины"(   Читать дальше...   )Производство: СССРЖанр: Фильм-концертРежиссер: Первый каналАктеры: Актеры Советской эстрадыПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CCC5865BEF2AC06B80E2E3124F12CCE232E2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926797   (531194) от 11.08.2015
+
+Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирно известный певец, автор и исполнитель песен, легендарный сэр Элтон Джон выступит со своим известным шоу The Million Dollar Piano в концертном зале Колизей в Лас-Вегасе. Центральное место в концерте отводится роялю, который является поистине чудом инженерной мысли: полностью покрытый 68 светодиодными LED-экранами, он представляет собой сплав новых технологий (   Читать дальше...   )01. The Bitch Is Back
+02. Bennie And The Jets
+03. Rocket Man
+04. Levon(   Читать дальше...   )Жанр: Rock, Pop Rock, Glam Rock, Soft Rock, R&BПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A98C072240EE92D48FF470C24ACA35352842BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051697   (530775) от 12.09.2016
 
 Константин Симонов - Из записок Лопатина (1975) SATRip (2 части) (Московский театр "Современник")
@@ -6,7 +184,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530775.jpg" />
+  <img src="Z:/picture/008/save_picture_530775.jpg" />
 </div>
 
 
@@ -33,7 +211,7 @@ Rick Astley. Live in Berlin 27.08.2016 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530682.jpg" />
+  <img src="Z:/picture/008/save_picture_530682.jpg" />
 </div>
 
 
@@ -62,7 +240,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529715.jpg" />
+  <img src="Z:/picture/008/save_picture_529715.jpg" />
 </div>
 
 
@@ -91,7 +269,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529627.jpg" />
+  <img src="Z:/picture/008/save_picture_529627.jpg" />
 </div>
 
 
@@ -121,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529517.jpg" />
+  <img src="Z:/picture/008/save_picture_529517.jpg" />
 </div>
 
 
@@ -150,7 +328,7 @@ Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529508.jpg" />
+  <img src="Z:/picture/008/save_picture_529508.jpg" />
 </div>
 
 
@@ -179,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529450.jpg" />
+  <img src="Z:/picture/008/save_picture_529450.jpg" />
 </div>
 
 
@@ -208,7 +386,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529395.jpg" />
+  <img src="Z:/picture/008/save_picture_529395.jpg" />
 </div>
 
 
@@ -237,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529387.jpg" />
+  <img src="Z:/picture/008/save_picture_529387.jpg" />
 </div>
 
 
@@ -266,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529203.jpg" />
+  <img src="Z:/picture/008/save_picture_529203.jpg" />
 </div>
 
 
@@ -293,7 +471,7 @@ Lara Fabian - En Toute Intimite a l'Olympia (2003) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528145.jpg" />
+  <img src="Z:/picture/008/save_picture_528145.jpg" />
 </div>
 
 
@@ -322,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528072.jpg" />
+  <img src="Z:/picture/008/save_picture_528072.jpg" />
 </div>
 
 
@@ -349,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528037.jpg" />
+  <img src="Z:/picture/008/save_picture_528037.jpg" />
 </div>
 
 
@@ -375,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527747.jpg" />
+  <img src="Z:/picture/008/save_picture_527747.jpg" />
 </div>
 
 
@@ -404,7 +582,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527353.jpg" />
+  <img src="Z:/picture/008/save_picture_527353.jpg" />
 </div>
 
 
@@ -430,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526607.jpg" />
+  <img src="Z:/picture/008/save_picture_526607.jpg" />
 </div>
 
 
@@ -456,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526579.jpg" />
+  <img src="Z:/picture/008/save_picture_526579.jpg" />
 </div>
 
 
@@ -483,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526565.jpg" />
+  <img src="Z:/picture/008/save_picture_526565.jpg" />
 </div>
 
 
@@ -510,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526523.jpg" />
+  <img src="Z:/picture/008/save_picture_526523.jpg" />
 </div>
 
 
@@ -536,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_526499.jpg" />
+  <img src="Z:/picture/005/save_picture_526499.jpg" />
 </div>
 
 
@@ -548,171 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926599   (526466) от 16.09.2016
-
-Необыкновенный концерт (1972) DVDRip [H.264] [Театр кукол им. С. Образцова]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526466.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1931-м Сергей Образцов создал кукольный театр и был его бессменным руководителем более 65 лет. Коллекция кукол, собранных Сергеем Владимировичем, является крупнейшей в мире, а спектакль "Необыкновенный концерт" занесен в Книгу рекордов Гиннесса.По количеству посетивших его зрителей ему нет равных до сих пор! По словам его создателя это парадийно-сатирическое (   Читать дальше...   )Производство: СССРЖанр: Комедия, Кукольный спектакльАктеры: З.Герд, С.Самодур, Е.Синельникова, М.Петров, И.Мазинг, Н.СамошинаПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0F59D71896BC9987B980AE0D3CF53C78FD9CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369780   (525603) от 01.08.2011
-
-DJ Bobo - The Magic Live Concert (1998) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Is Your Love
-02. Around The World
-03. Jealousy
-04. Shadows Of The Night(   Читать дальше...   )Производство: ГерманияЖанр: Концерт, EurodanceПродолжительность: 01:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7044D03B0E439376DBE9B163519FFAE46D702581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369845   (525578) от 01.08.2011
-
-Mylene Farmer - Mylenium Tour (2000) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Милен Фармер с французскими и русскими субтитрами. Перевод текстов песен: Александр Чертков.01. Mylenium
-02. L'Amour Naissant
-03. L'Ame-Stram-Gram
-04. Beyond My Control(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955487E1919A1DC662CEA7DB55AE159C370804C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369799   (525316) от 02.08.2011
-
-Madonna: The Confessions Tour Live from London (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Lovers 0:00:00;00
-02. I Feel Love 0:05:15;00
-03. Get Together 0:07:38;16
-04. Like a Virgin 0:12:41;21(   Читать дальше...   )Производство: СШАЖанр: КонцертПродолжительность: 02:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFDCB1BED17C10C4E84FD32E8BA6AE70C9E8AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240533   (524465) от 12.08.2018
-
-Квартирник на НТВ у Маргулиса. Uma2rman (08.11.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524465.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришли участники нижегородской рок-группы "Uma2rman". Лидер коллектива Владимир Кристовский рассказал о звездном дуэте с Патрисией Каас и том, как им удалось найти общий язык на съемках клипа. Токарь, курьер, парикмахер, ночной санитар, няня в детском саду, грузчик на винном заводе, агент по продаже шоколада - братья Кристовские (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF34FD543026070B579C1C10564C52286625CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559470   (524200) от 25.06.2022
-
-Алые Паруса-2022. Выпускной бал в Санкт-Петербурге (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524200.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Алые паруса» — праздник выпускников ленинградских школ, появление которого в конце 60-х навеяла невероятная популярность одноименного фильма по повести Александра Грина. Первый праздник состоялся 27 июня 1968 года. В этот день ленинградские школьники впервые увидели на Неве бригантину под алыми парусами, ставшую впоследствии эмблемой праздника.Производство: Россия / Пятый каналЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEC687A010239E196153F259809C12156E40993
 ```
 
 https://mybot314.ru/tekegram_catalog/

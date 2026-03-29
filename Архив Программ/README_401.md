@@ -6,7 +6,7 @@ Vivaldi 4.3.2439.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839594.jpg" />
+  <img src="Z:/picture/008/save_picture_839594.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.92 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839593.jpg" />
+  <img src="Z:/picture/008/save_picture_839593.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla FireFox 93.0.0.7940 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839592.jpg" />
+  <img src="Z:/picture/008/save_picture_839592.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Reg Organizer 8.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839589.jpg" />
+  <img src="Z:/picture/008/save_picture_839589.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SupRemo 4.5.3.2789 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839588.jpg" />
+  <img src="Z:/picture/008/save_picture_839588.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ MSI Afterburner 4.6.4 Beta 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839587.jpg" />
+  <img src="Z:/picture/008/save_picture_839587.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ O&O Defrag Professional 25.0 Build 7210 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839583.jpg" />
+  <img src="Z:/picture/008/save_picture_839583.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wireshark 3.4.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839580.jpg" />
+  <img src="Z:/picture/008/save_picture_839580.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Blender 2.93.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839579.jpg" />
+  <img src="Z:/picture/008/save_picture_839579.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Vivaldi 3.0.1874.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839560.jpg" />
+  <img src="Z:/picture/008/save_picture_839560.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CCleaner 5.16.5551 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839553.jpg" />
+  <img src="Z:/picture/008/save_picture_839553.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Windows Firewall Control 4.9.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839520.jpg" />
+  <img src="Z:/picture/008/save_picture_839520.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Apache OpenOffice 4.1.11 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839480.jpg" />
+  <img src="Z:/picture/008/save_picture_839480.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ IObit Driver Booster Pro 8.7.0.529 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839464.jpg" />
+  <img src="Z:/picture/008/save_picture_839464.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Chromium 81.0.4044.129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839456.jpg" />
+  <img src="Z:/picture/008/save_picture_839456.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Cockos REAPER 6.09 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839449.jpg" />
+  <img src="Z:/picture/008/save_picture_839449.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Glary Disk Cleaner 5.0.1.206 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839448.jpg" />
+  <img src="Z:/picture/008/save_picture_839448.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ XYplorer 20.90.0300 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839438.jpg" />
+  <img src="Z:/picture/008/save_picture_839438.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ JetBrains PyCharm Professional 2016.1 Build #PY-145.260 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839423.jpg" />
+  <img src="Z:/picture/008/save_picture_839423.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WinTools.net Premium 17.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839416.jpg" />
+  <img src="Z:/picture/008/save_picture_839416.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Google Chrome 57.0.2987.98 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839409.jpg" />
+  <img src="Z:/picture/008/save_picture_839409.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Kidz CD 1,2,3,4 +Portable [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839370.jpg" />
+  <img src="Z:/picture/008/save_picture_839370.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Light Image Resizer 4.0.4.4 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839368.jpg" />
+  <img src="Z:/picture/008/save_picture_839368.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Tor Browser Bundle 10.5.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839358.jpg" />
+  <img src="Z:/picture/008/save_picture_839358.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ DxO PhotoLab Elite 5.0.0 build 4639 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839353.jpg" />
+  <img src="Z:/picture/008/save_picture_839353.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Auslogics BoostSpeed 12.2.0.0 (DC 04.10.2021) RePack (& Portable) by KpoJIuK [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839348.jpg" />
+  <img src="Z:/picture/008/save_picture_839348.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1293964   (633610) от 05.04.2019
+
+Piano Peace - Melancholy Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Melancholia
+02 Silent Woods
+03 Wonders
+04 The Darkness(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFC5B41D8CA4C68CCF235781A34410FF10C83D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542547   (633564) от 09.04.2022
+
+VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <Classical, Folk, World, Country, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnaldo Rayol & Charlotte Church - Tormento d' amore.
+02. Jose Augusto - 'O sole mio!.
+03. Toquinho - Comme facette mammeta.
+04. Emlio Santiago - La signora di trent' anni fa.(   Читать дальше...   )Жанр: Classical, Folk, World, Country, Stage & ScreenПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFFF95ED63B2D1F6CAD4E6FC1DA69FFD783EC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143627   (633024) от 19.06.2017
 
 Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <New Age, Electronic>
@@ -6,7 +64,7 @@ Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633024.jpg" />
+  <img src="Z:/picture/008/save_picture_633024.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632438.jpg" />
+  <img src="Z:/picture/008/save_picture_632438.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632031.jpg" />
+  <img src="Z:/picture/008/save_picture_632031.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ John Denver - The Real... John Denver (2013) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631485.jpg" />
+  <img src="Z:/picture/008/save_picture_631485.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631481.jpg" />
+  <img src="Z:/picture/008/save_picture_631481.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Romantic Guitar (2002) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631131.jpg" />
+  <img src="Z:/picture/008/save_picture_631131.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ Quentin Tarantino's - Inglourious Basterds / Бесславные ублюдки
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631127.jpg" />
+  <img src="Z:/picture/008/save_picture_631127.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ James Newton Howard - Snow White & The Huntsman / Белоснежка И Охо
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631113.jpg" />
+  <img src="Z:/picture/008/save_picture_631113.jpg" />
 </div>
 
 
@@ -253,7 +311,7 @@ Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Cou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630865.jpg" />
+  <img src="Z:/picture/005/save_picture_630865.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630511.jpg" />
+  <img src="Z:/picture/008/save_picture_630511.jpg" />
 </div>
 
 
@@ -317,7 +375,7 @@ Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630510.jpg" />
+  <img src="Z:/picture/008/save_picture_630510.jpg" />
 </div>
 
 
@@ -346,7 +404,7 @@ Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Prog
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630095.jpg" />
+  <img src="Z:/picture/008/save_picture_630095.jpg" />
 </div>
 
 
@@ -375,7 +433,7 @@ Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629992.jpg" />
+  <img src="Z:/picture/008/save_picture_629992.jpg" />
 </div>
 
 
@@ -404,7 +462,7 @@ Emily Jane White - Alluvion (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629517.jpg" />
+  <img src="Z:/picture/008/save_picture_629517.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629502.jpg" />
+  <img src="Z:/picture/008/save_picture_629502.jpg" />
 </div>
 
 
@@ -462,7 +520,7 @@ Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629362.jpg" />
+  <img src="Z:/picture/008/save_picture_629362.jpg" />
 </div>
 
 
@@ -491,7 +549,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629290.jpg" />
+  <img src="Z:/picture/008/save_picture_629290.jpg" />
 </div>
 
 
@@ -520,7 +578,7 @@ Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629093.jpg" />
+  <img src="Z:/picture/008/save_picture_629093.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628637.jpg" />
+  <img src="Z:/picture/008/save_picture_628637.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628613.jpg" />
+  <img src="Z:/picture/008/save_picture_628613.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Theodore Shapiro - Ghostbusters / Охотники за привидениями
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628535.jpg" />
+  <img src="Z:/picture/008/save_picture_628535.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ John Debney - Ice Age: Collision Course  / Ледниковый период С�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628521.jpg" />
+  <img src="Z:/picture/008/save_picture_628521.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628410.jpg" />
+  <img src="Z:/picture/008/save_picture_628410.jpg" />
 </div>
 
 
@@ -700,7 +758,7 @@ Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627949.jpg" />
+  <img src="Z:/picture/008/save_picture_627949.jpg" />
 </div>
 
 
@@ -714,64 +772,6 @@ Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291492038645F5E7FE0B30D973A6FA8473A47297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229207   (627948) от 05.06.2018
-
-Артель РОСА - Счастливые люди (2018) [MP3|320 Kbps] <Russian Urban Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ромашка
-02. Ляпота
-03. Космонавты
-04. Камушка(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78F19AB00D523D45CA6AFBE69AC19F41C7FE4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909162   (627927) от 17.06.2015
-
-David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifting In
-02. Gravity Waves
-03. Isee3
-04. Forward Motion(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2547FCAF8D71925BF85491BE527A98D1E0852F
 ```
 
 https://mybot314.ru/tekegram_catalog/

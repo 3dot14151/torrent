@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187663.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187653.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187604.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187326.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187312.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187287.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187260.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187229.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186902.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186604.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180610.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22621.525], Version 22H2 (Updated Sept
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Microsoft Windows 11 [10.0.22621.2134], Version 22H2 (Updated August 2023) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173555.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172569.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Microsoft Windows 10.0.19045.3570, Version 22H2 (Updated October 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172563.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Microsoft Windows 10.0.19045.3570, Version 22H2 (Updated October 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172374.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Microsoft Windows 11 [10.0.22621.2428], Version 22H2 (Updated October 2023) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172159.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Microsoft Windows 11 [10.0.22631.2428], Version 23H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165808.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22631.2428], Version 23H2 - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165643.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161271.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161216.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161147.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161138.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161124.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161094.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161080.jpg" />
 </div>
 
 

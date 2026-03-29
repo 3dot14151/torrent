@@ -1,3 +1,81 @@
+###  Публикация: 1514678   (152373) от 21.12.2021
+
+Вечный сон / The Big Sleep (1978) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший полицейский, а ныне частный детектив Марлоу, берется за новое дело. Марлоу приглашают в роскошный особняк генерала Стернвуда, чтобы он проследил за мошенником, компрометирующим дочь благородного военного. Но то, что на первый взгляд кажется нехитрым заданием, оказывается зловещим и запутанным клубком из шантажа и убийств…Производство: Великобритания, США / ITC Entertainment, Winkast Film Productions Ltd.Жанр: Триллер, Драма, Криминал, ДетективРежиссер: Майкл УиннерАктеры: Роберт Митчем, Сара Майлз, Ричард Бун, Кэнди Кларк, Джоан Коллинз, Эдвард Фокс, Джон Миллз, Джеймс Стюарт, Оливер Рид, Гарри ЭндрюсПеревод: Многоголосый профессиональныйСубтитры: Английские (Full, SDH)Продолжительность: 01:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838613C6490CEFB53A252A3F191102036FA4E9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825724   (151846) от 21.10.2025
+
+Бархатные ручки / Mani di velluto (1979) BDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер Гвидо Квиллер разбогател на продаже бронированных стёкол для ювелирных магазинов, но тем самым разозлил страховые компании и грабителей. Во время погони за возлюбленной, которой он хотел вернуть забытую сумочку, у мопеда отказывают тормоза и он падает в фонтан. В это время едущая за ним на машине семья воров принимает Квиллера с сумкой в руках за дилетанта, (   Читать дальше...   )Производство: Италия / Capital FilmsЖанр: мелодрама, комедия, криминалАктеры: Адриано Челентано, Элеонора Джорджи, Джон Шарп, Ольга Карлатос, Джино Сантерколе, Момо Диттоньо, Аниа Пиерони, Джанкарло ТондинеллиПеревод: Многоголосый профессиональный (РТР)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB9BC46868D118133132A8CE554137BB9C5C184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587170   (151645) от 14.12.2012
+
+Китайский синдром / The China Syndrome (1979)[H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время съемок телерепортажа на атомной электростанции происходит серьезная авария. Журналистам удается снять все происходившее в это время. Они всеми силами пытаются дать в эфир этот материал, однако на пути встают влиятельные люди, заинтересованные представить аварию всего лишь мелкими неполадками......Жанр: Драма, ТриллерРежиссер: Джеймс БриджесАктеры: Джейн Фонда, Джек Леммон, Майкл Дуглас, Скотт Брейди, Джеймс Хэмптон, Питер Донат, Уилфорд Бримли, Ричард Херд, Дэниэл Валдез....Перевод: ДублированныйПродолжительность: 01:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F632BE75F483C97BC79EBB9BD8A3F8FDCED7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968928   (150908) от 25.12.2015
 
 Апачи / Apachen (1973) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150908.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150774.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150708.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150612.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150296.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149783.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149484.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149467.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149432.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149416.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149260.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149199.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148273.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147545.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147378.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147052.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146693.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145855.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145399.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145224.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145220.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145147.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145076.jpg" />
 </div>
 
 
@@ -601,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C727D4C4CA2D0EB441A7227C58C75D229383A391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429706   (143878) от 28.12.2020
-
-Дебютантка поневоле / The Reluctant Debutante (1958) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка, американка, приезжает погостить в Лондон к своему отцу и, неожиданно для себя, попадает на «Сезон». Её не интересует эта ярмарка невест и чопорные молодые аристократы. Но встреча с симпатичным молодым человеком обещает стать интересной. Как жаль, что его считают нежелательным субъектом...Производство: США / Avon Productions (II)Жанр: Мелодрама, КомедияРежиссер: Винсент МиннеллиАктеры: Рекс Харрисон, Кэй Кендалл, Джон Сэксон, Сандра Ди, Анджела Лэнсбери, Питер Майерс, Дайан Клер, Рене Аранда, Жорж Билли, Жан-Поль БлондэПеревод: Одноголосый любительский, Игорь КлушинСубтитры: Русские, английскиеПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F415C5EDA218E2E5E6F603B091BE71669354DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194287   (143674) от 28.12.2017
-
-Лесорубы / Les grandes gueules (1965) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эктор возвращается на родину, где он унаследовал лесопилку в труднодоступном месте. Дела его начинаются не ахти, поскольку его конкурент не брезгует никакими средствами, чтобы помешать ему преуспеть. Лоран вместе с товарищем Ролланом нанимаются к нему лесорубами, предложив взять еще кроме них условно освобожденных заключенных, которых не сможет переманить конкурент, (   Читать дальше...   )Производство: Франция, Италия / Alexandra Film, Les Productions Belles Rives, SNCЖанр: Драма, КомедияРежиссер: Робер ЭнрикоАктеры: Бурвиль, Лино Вентура, Мари Дюбуа, Джесс Хан, Жан-Клод Роллан, Эния Сушар, Рейне Куртуа, Роже Жаке, Ник Стефанини, Марк Эйро, Мишель Шаррель, Мишель КонстантенПеревод: АвторскийСубтитры: ОтсутствуютПродолжительность: 02:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC47B46BD61061624A6727D9497BCE58071710AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514948   (143624) от 27.12.2021
-
-Дом о семи фронтонах / The House of the Seven Gables (1940) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм поставлен по одноимённому роману признанного мастера американской литературы XIX века Натаниэля Готорна. В центре внимания картины находится борьба двух братьев Пинченов, Клиффорда и Джеффри, за обладание семейной усадьбой, которая, согласно легендам, хранит тайные сокровища, а также семейное проклятье их рода. В процессе борьбы Джеффри выдвигает против брата (   Читать дальше...   )Производство: США, Universal PicturesЖанр: драма, триллерРежиссер: Джо МэйАктеры: Джордж Сандерс, Маргарет Линдси, Винсент Прайс, Дик Форан, Нэн Грэй, Сесил Келлауэй, Алан Напье, Гилберт Эмери, Майлз Мандер, Чарльз ТроубриджПеревод: любительский одноголосый (Nocknarroys)Субтитры: русские (Conrad_Siegfried), английскиеПродолжительность: 01:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FE12B759DB0A59B640B1F81DA1881C84CA9F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

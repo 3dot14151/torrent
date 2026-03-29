@@ -6,7 +6,7 @@ VueScan Pro 9.7.68 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788307.jpg" />
+  <img src="Z:/picture/008/save_picture_788307.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BELOFF [dp] 2021.11.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788303.jpg" />
+  <img src="Z:/picture/008/save_picture_788303.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788298.jpg" />
+  <img src="Z:/picture/008/save_picture_788298.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Evorim Free Firewall 2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788297.jpg" />
+  <img src="Z:/picture/008/save_picture_788297.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Movavi Video Converter 22.1.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788276.jpg" />
+  <img src="Z:/picture/008/save_picture_788276.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Philter - The Beautiful Lies / The Blossom Chronicles / The Legend of Iya / The 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788268.jpg" />
+  <img src="Z:/picture/008/save_picture_788268.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Any Video Converter Ultimate 7.1.5 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788261.jpg" />
+  <img src="Z:/picture/008/save_picture_788261.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ KCNcrew Pack 01-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788234.jpg" />
+  <img src="Z:/picture/008/save_picture_788234.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Money Pro 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788230.jpg" />
+  <img src="Z:/picture/008/save_picture_788230.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Serial Box 02.2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788213.jpg" />
+  <img src="Z:/picture/008/save_picture_788213.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Troum & raison d'être - De Aeris In Sublunaria Influxu (2015) Essence Music [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788210.jpg" />
+  <img src="Z:/picture/008/save_picture_788210.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Carbon Copy Cloner 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788208.jpg" />
+  <img src="Z:/picture/008/save_picture_788208.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ iFinance 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788206.jpg" />
+  <img src="Z:/picture/008/save_picture_788206.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ World Party - Bang! (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788205.jpg" />
+  <img src="Z:/picture/008/save_picture_788205.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ PicturesToExe Deluxe 9.0.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788204.jpg" />
+  <img src="Z:/picture/008/save_picture_788204.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - My Life In An Insulation Test (2008) electr-ohm [FLAC|Lossless|tracks+.cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788199.jpg" />
+  <img src="Z:/picture/008/save_picture_788199.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ SRWare Iron 71.0.3700.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788193.jpg" />
+  <img src="Z:/picture/008/save_picture_788193.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Trigg & Gusset - Adagio For The Blue (2015) [FLAC|Lossless|Web-DL|tracks] <Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788191.jpg" />
+  <img src="Z:/picture/008/save_picture_788191.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Pale Moon 28.3.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788189.jpg" />
+  <img src="Z:/picture/008/save_picture_788189.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MacX DVD Ripper Pro 6.2.0 (build20190111) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788187.jpg" />
+  <img src="Z:/picture/008/save_picture_788187.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iMazing 2.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788186.jpg" />
+  <img src="Z:/picture/008/save_picture_788186.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ R-Wipe & Clean 20.0 Build 2222 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788184.jpg" />
+  <img src="Z:/picture/008/save_picture_788184.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Cherry Glazerr - Stuffed & Ready (2019) [FLAC|Lossless|tracks + .cue] <Indie, Fe
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788183.jpg" />
+  <img src="Z:/picture/008/save_picture_788183.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788180.jpg" />
+  <img src="Z:/picture/008/save_picture_788180.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Nothing But... Psy Trance Vol.01 (2018) [MP3|320 Kbps] <Psy Trance, Psychod
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788176.jpg" />
+  <img src="Z:/picture/008/save_picture_788176.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ VA - Goa Vol.65 (Compiled by DJ BIM & Materia) (2018) [MP3|320 Kbps] <Psy Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788175.jpg" />
+  <img src="Z:/picture/008/save_picture_788175.jpg" />
 </div>
 
 

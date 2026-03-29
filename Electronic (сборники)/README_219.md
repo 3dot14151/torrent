@@ -1,3 +1,61 @@
+###  Публикация: 1736165   (50397) от 11.07.2024
+
+VA - Spacesynth Forever (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abakus - New Era (5:33)
+02. Alphawave - Sky Hunters (5:06)
+03. Amateon - Space Elegia (4:13)
+04. Amateras - Cosmos Line (Ray Orion Remix) (6:17)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 04:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497CB0D0871F253C8A377C4BD1874024F23333E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735601   (50324) от 11.07.2024
+
+VA - Trance In Motion Vol.377 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcvalx - Warriors (Original Mix)
+02. 0Gravity - Wish You Were Here (Extended Mix)
+03. Kaselia - Albatross (Extended Mix)
+04. Metta & Glyde - Celestia (Alatheia Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BC1F3196DD8763E775B962DE295A9D312068D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736840   (49813) от 16.07.2024
 
 VA - Compilation  part 96 Electronic (2024) [MP3|320 Kbps] <Electronic>
@@ -6,7 +64,7 @@ VA - Compilation  part 96 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49813.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Compilation  part 97 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49716.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Compilation part 99 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49518.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 4 (2024) [MP3|224-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49088.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - compilation  part 102 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48965.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - EDM Summer Splash (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48877.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - compilation part 105 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48769.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - compilation part 103 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48762.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Record Super Chart 27.07.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48520.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - VA - compilation part 111 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47953.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Compilation part 112 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47227.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - DOWN LOW 6 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47142.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ SZMC - Alien Invasion (Collection) (2024) [MP3|320 Kbps] <Electronic, Spacesynth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46825.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Dj Polkovnik - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumental, Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46715.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Крутые пушки Лето 2024 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46470.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45774.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Music Worx Best 300 Dj Tracks August 2024 [MP3|320 Kbps] <House, Melodic Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45043.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 7 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45015.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - compilation part 116 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44928.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Record Super Chart 31.08.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44836.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - compilation  part 117  Electronic Assorted compilation (2024) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44820.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 8 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44730.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - compilation  part 118 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44606.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - compilation  part 120  Electronic Assorted (2024) [MP3|320 Kbps] <Electroni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44113.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - compilation  part 120  Electronic Assorted (2024) [MP3|320 Kbps] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D47A96DAAA42DE96AE8EAC299293D4DDDC16FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747771   (44112) от 09.09.2024
-
-VA - compilation part 121 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adik - Aamazing
-02. Zerrid - Say So
-03. Alex Ne1 - Double Impression
-04. Rawbotic - Lost in Space(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCE0E3D6AEF310E7AEE963FE76CE3CE2AE52A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748385   (43973) от 10.09.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 9 (2024) [MP3|224-320 Kbps] <Deep House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincenzo feat. Lisa Shaw - Hello (2011) (3:12)
-02. Dominique Fils-Aimé - Sun Rise (Atjazz dub, 2019) (4:30)
-03. Babulin Dub - Sax (5:53)
-04. Two-S - You (2017) (7:16)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A72CC2DFBDCC579C13B52F7E9E1DCBD8C7E9BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

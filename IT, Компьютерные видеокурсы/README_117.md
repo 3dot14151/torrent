@@ -1,3 +1,133 @@
+###  Публикация: 1801125   (15192) от 09.06.2025
+
+Валерия Ананян | Нейросети для маркетплейсов и соцсетей. Тариф PRO (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для тех, кто только начинает знакомиться с искусственным интеллектом, и для тех, кто уже имеет опыт работы с ИИ, но хочет расширить свои знания и навыки.Жанр: видеокурс, обучающий курс, нейросети, маркетплейсыЯзык озвучки: русскийПродолжительность: 04:56:41Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680759   (15004) от 11.06.2025
+
+Balun.Courses, Олег Козырев | Микросервисы, как в Bigtech-компаниях (2023) WEB-DL [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научись разрабатывать высокопроизводительные и масштабируемые микросервисы, как в Ozon/Яндекс/Тинькофф/Kaspersky Lab/ВКонтакте,  и увеличь свои шансы на трудоустройство  в BigTech-компанию или получение новой должности. Преподаватель – Олег Козырев – Senior Software Engineer в Avito. Более 100 часов менторства и обучения. Более 100 учеников уже обучились (   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 25:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151DE6C2AEBC080D80AE6C24248F169243E2F224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871950   (14375) от 17.06.2025
+
+Lynda.com | CSS с LESS и SASS (2012) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не раз ловили себя на мысли, что хотите, чтобы в CSS были такие возможности, как переменные, функции, или используемые заново классы? Теперь это реальность. LESS и Sass - это инструменты для файлов стилей CSS, называющиеся препроцессорами, которые добавляют эти возможности, и даже больше, упрощая создание сложных стилей CSS. В этом курсе автор Джо Марини представит (   Читать дальше...   )Жанр: Программирование, CSS, LESS, SASSПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521BB25B401B29A1159E3EEC8694DC2C970B6934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803332   (13839) от 22.06.2025
+
+Дмитрий Зверев | Нейросети Китая - DeepSeek и Qwen (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для эффективного развития онлайн-проекта нужно много разнообразного контента. Для постов, статей, писем рассылок и воронок продаж, рекламы и так далее. И сегодня мы получаем уникальную возможность делать больше контента за меньшее время с помощью нейросетей. Это удивительно и это уже реальность. От нее нельзя отмахнуться и сказать что-то вроде: "для меня это (   Читать дальше...   )Жанр: видеокурс, обучающий курс, нейросетиЯзык озвучки: русскийПродолжительность: 04:10:49Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5513B22776921938C6CF79BC83317B20A3ADC461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803378   (13822) от 22.06.2025
+
+Stepik, Марина Эрштейн | ИИ-помощники в подготовке публичного выступления (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный мир требует быстроты и эффективности. Искусственный интеллект уже активно используется в самых разных сферах, и ораторское мастерство — не исключение. С помощью ИИ можно за считанные минуты создать отличный текст, подготовить убедительные аргументы, настроить эмоциональную подачу и даже смоделировать реакцию аудитории. На курсе вы узнаете о том, как и (   Читать дальше...   )Производство: StepikЖанр: видеокурс, обучающий курс, нейросети, ИИЯзык озвучки: русскийПродолжительность: 01:49:10Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803302   (13794) от 22.06.2025
 
 Михаил Кузнецов | Обучение PowerPoint (2021) WEB-DL [AD] [RU]
@@ -6,7 +136,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13794.jpg" />
 </div>
 
 
@@ -35,7 +165,7 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12833.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ dometrain, Nick Chapsas | From Zero to Hero: Dependency Injection in .NET (2024)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12579.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12485.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11574.jpg" />
 </div>
 
 
@@ -141,7 +271,7 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11443.jpg" />
 </div>
 
 
@@ -169,7 +299,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11247.jpg" />
 </div>
 
 
@@ -197,7 +327,7 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11246.jpg" />
 </div>
 
 
@@ -226,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11161.jpg" />
 </div>
 
 
@@ -253,7 +383,7 @@ GeekBrains | Блокчейн-разработка (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11146.jpg" />
 </div>
 
 
@@ -282,7 +412,7 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11110.jpg" />
 </div>
 
 
@@ -311,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11049.jpg" />
 </div>
 
 
@@ -340,7 +470,7 @@ NeuralGo | Полный курс по языку Golang. С нуля до REST A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11041.jpg" />
 </div>
 
 
@@ -369,7 +499,7 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11021.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11017.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ Kobezzza, Андрей Кобец | IndexedDB в действии (2025) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10703.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10526.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10423.jpg" />
 </div>
 
 
@@ -511,7 +641,7 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10322.jpg" />
 </div>
 
 
@@ -539,7 +669,7 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9903.jpg" />
 </div>
 
 
@@ -568,7 +698,7 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9899.jpg" />
 </div>
 
 
@@ -582,146 +712,6 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810248   (9473) от 03.08.2025
-
-Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутый курс по внутреннему устройству Git. Осваиваем лучшие практики и экспертные приемы, а не элементарные команды. Ведет бывший разработчик EPAM.
-
-Подходит для программистов любого уровня, стека и языка
-(   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810607   (9298) от 05.08.2025
-
-Специалист, Сергей Прощаев | Apache Kafka для разработчиков (2025) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apache Kafka представляет собой ведущий брокер сообщений, широко используемый в современных разработческих стэках. Владение Apache Kafka позволяет Java-разработчикам выстраивать системы для обработки потоковых данных, такие как системы очередей, стриминговую обработку и обмен данными между компонентами приложений.
-
-Курс предоставит необходимые знания и умения для (   Читать дальше...   )Производство: СпециалистЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812350   (7809) от 15.08.2025
-
-Антон Агафонов | Нейросети для сетевиков 3.0 (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс создан для тех, кто хочет:
-Понимать, как работают нейросети, даже если вы никогда с ними не сталкивались.
-Увеличивать доход, при этом тратя меньше времени и сил. Нейросети берут на себя часть работы.
-Создавать тексты, фотографии и видео за считанные секунды, без помощи копирайтеров и дизайнеров.(   Читать дальше...   )Жанр: видеокурс, обучающий курс, бизнес, маркетинг, менеджмент, нейросетиЯзык озвучки: русскийПродолжительность: 07:01:22Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812382   (7802) от 15.08.2025
-
-Alexander Semenko | Вся необходимая база по Assembler (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программирование на языке ассемблера дает исключительный опыт, но часто вызывает затруднения. В этом видеокурсе используются примеры для демонстрации действительно работающих программ. Эти примеры помогут вам начать. Однако единственный способ научиться чему-либо в программировании - это сделать программу самому. Вы должны совершать свои собственные ошибки чтобы (   Читать дальше...   )Производство: Alexander SemenkoЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 18:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812321   (7775) от 15.08.2025
-
-Computer Science Center | Программирование на Rust (2019) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс знакомит слушателей с языком программирования Rust.
-Для курса необходимо уметь программировать на любом другом языке, например Python. Особенно хорошо курс сочетается с курсом по C++.
-Цель курса не просто научить программировать на Rust, а сделать акцент на его особенностях и отличиях от более традиционных языков, и увидеть знакомые задачи с другого ракурса.Производство: Computer Science CenterЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 21:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55028F53E02D26723AFE83F3EF26220AB5A5F0BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

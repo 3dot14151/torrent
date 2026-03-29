@@ -1,3 +1,55 @@
+###  Публикация: 1179432   (348361) от 31.10.2017
+
+DOOM II (1994) [En] (1.9/dlc) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры начинается вскоре после событий Doom. Игрок снова управляет безымянным морпехом из игры, расправившимся с силами ада на Фобосе, Деймосе и Марсе в оригинальной игре. Оказавшись на своей родной Земле, он обнаруживает, что она тоже стала жертвой нашествия монстров. На протяжении 30 уровней (не считая двух секретных) игрок снова сталкивается с адскими полчищами. (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36743EDEBBF5D61964FFCFAD1E295F9342DDEB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578144   (347636) от 23.11.2012
+
+Uprising 2: Lead and Destroy [En] (L) 1998
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение экшена  Uprising : Join or Die!, в котором игрок управляет экипажем сверхсовременного танка. В сиквеле игрока ждут улучшенные графика и звук, а также значительно упрощенное управление.Тип издания: ЛицензияЖанр: Action / Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0CD89B168C0806F4DC8FDFBAB30014F0A2B684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073139   (346886) от 15.11.2016
 
 Independence War 2: Edge of Chaos (2001) [En] (F14.6) License GOG
@@ -6,7 +58,7 @@ Independence War 2: Edge of Chaos (2001) [En] (F14.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346886.jpg" />
+  <img src="Z:/picture/008/save_picture_346886.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346870.jpg" />
+  <img src="Z:/picture/008/save_picture_346870.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346139.jpg" />
+  <img src="Z:/picture/008/save_picture_346139.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340196.jpg" />
+  <img src="Z:/picture/008/save_picture_340196.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339277.jpg" />
+  <img src="Z:/picture/008/save_picture_339277.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338402.jpg" />
+  <img src="Z:/picture/008/save_picture_338402.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Fallout 2 [Ru] (L) 1998
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325043.jpg" />
+  <img src="Z:/picture/008/save_picture_325043.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322440.jpg" />
+  <img src="Z:/picture/008/save_picture_322440.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Supreme Ruler 2020 (2008) [Multi] (2.0.0.1/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320247.jpg" />
+  <img src="Z:/picture/008/save_picture_320247.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316394.jpg" />
+  <img src="Z:/picture/008/save_picture_316394.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316223.jpg" />
+  <img src="Z:/picture/008/save_picture_316223.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312897.jpg" />
+  <img src="Z:/picture/008/save_picture_312897.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311651.jpg" />
+  <img src="Z:/picture/008/save_picture_311651.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311055.jpg" />
+  <img src="Z:/picture/008/save_picture_311055.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305729.jpg" />
+  <img src="Z:/picture/008/save_picture_305729.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304708.jpg" />
+  <img src="Z:/picture/008/save_picture_304708.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304579.jpg" />
+  <img src="Z:/picture/008/save_picture_304579.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304575.jpg" />
+  <img src="Z:/picture/008/save_picture_304575.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303729.jpg" />
+  <img src="Z:/picture/008/save_picture_303729.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Magic Chronicle (2003) [En] (1.1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301772.jpg" />
+  <img src="Z:/picture/008/save_picture_301772.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Blitzkrieg / Блицкриг (2003) [Ru] (1.2) Repack/Mod Sprut [Сборник
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300597.jpg" />
+  <img src="Z:/picture/008/save_picture_300597.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Blitzkrieg - GZM / Блицкриг - GZM (2003) [Ru] (1.2/9.15) Repack/Mod Spru
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300410.jpg" />
+  <img src="Z:/picture/008/save_picture_300410.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Tomb Raider I - III (1996-1998) [En] (0.74/1.1/1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292673.jpg" />
+  <img src="Z:/picture/008/save_picture_292673.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291395.jpg" />
+  <img src="Z:/picture/008/save_picture_291395.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A4F9F970FBDAA641CEB658367B9F0DA5A19B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185929   (288875) от 23.11.2017
-
-The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отстройте собственное королевство с помощью охотников, воинов, кораблестроителей и других подданных. Возведите продуманные поселения, используя более 25 типов построек. Выберите одну из 49 карт или используйте простой в освоении редактор уровней, чтобы создать новые миры с непроходимыми чащами, могучими вулканами, внушительными горными цепями. Постройте флот, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Byte StudioЖанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185964   (288867) от 23.11.2017
-
-Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боги, должно быть, сошли с ума! Сначала Всемогущий ОН, отец всех богов, за обычную попойку отправил Юпитера, Гора и Чиб-Ю на сверхтяжелое состязание. Затем трех богов попросту выставили на посмешище: К'нкура, богиня амазонок, нарочно проиграла им битву, и вместо триумфа их ждал позор и осмеяние. Settlers® III: Ultimate Collection – красочная стратегия, симулятор (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Byte StudioЖанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
 ```
 
 https://mybot314.ru/tekegram_catalog/

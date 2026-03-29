@@ -6,7 +6,7 @@ EasyUEFI Technician 4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809747.jpg" />
+  <img src="Z:/picture/008/save_picture_809747.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Eraser 6.2.0.2982 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809728.jpg" />
+  <img src="Z:/picture/008/save_picture_809728.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LDPlayer 4.0.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809701.jpg" />
+  <img src="Z:/picture/008/save_picture_809701.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Balabolka 2.15.0.743 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809693.jpg" />
+  <img src="Z:/picture/008/save_picture_809693.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WinTools.net Premium 16.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809653.jpg" />
+  <img src="Z:/picture/008/save_picture_809653.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft .NET Framework 4.7.1 Update [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809582.jpg" />
+  <img src="Z:/picture/008/save_picture_809582.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Pano2VR Pro 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809573.jpg" />
+  <img src="Z:/picture/008/save_picture_809573.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ESET SysInspector 1.4.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809564.jpg" />
+  <img src="Z:/picture/008/save_picture_809564.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ashampoo Snap 9.0.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809545.jpg" />
+  <img src="Z:/picture/008/save_picture_809545.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WinTools.net Premium 16.4.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809538.jpg" />
+  <img src="Z:/picture/008/save_picture_809538.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Defender Tools 1.0.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809486.jpg" />
+  <img src="Z:/picture/008/save_picture_809486.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809372.jpg" />
+  <img src="Z:/picture/008/save_picture_809372.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VSDC Free Video Editor 4.0.1.475 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809367.jpg" />
+  <img src="Z:/picture/008/save_picture_809367.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WirelessKeyView 1.76 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809359.jpg" />
+  <img src="Z:/picture/008/save_picture_809359.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Symantec Endpoint Protection 14.3 build 558 (14.3.558.0000) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809245.jpg" />
+  <img src="Z:/picture/008/save_picture_809245.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Windows 7 (13in2) Sergei Strelec x86/x64 6.1 (build 7601.24553) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809238.jpg" />
+  <img src="Z:/picture/008/save_picture_809238.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809237.jpg" />
+  <img src="Z:/picture/008/save_picture_809237.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.39 (4/19/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809225.jpg" />
+  <img src="Z:/picture/008/save_picture_809225.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Autodesk AutoCAD Plant 3D 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809218.jpg" />
+  <img src="Z:/picture/008/save_picture_809218.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4815.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809215.jpg" />
+  <img src="Z:/picture/008/save_picture_809215.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ The Foundry MARI 3.0 v3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809213.jpg" />
+  <img src="Z:/picture/008/save_picture_809213.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4815.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809210.jpg" />
+  <img src="Z:/picture/008/save_picture_809210.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Screenshot Captor 4.20.1 Portable by Kopejkin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809128.jpg" />
+  <img src="Z:/picture/008/save_picture_809128.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Kaspersky Rescue Disk 10.0.20.6 Build 06.05.2010 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809122.jpg" />
+  <img src="Z:/picture/008/save_picture_809122.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AkelPad 4.9.3 + Plugins (х86/х64) RePack + Portable by San_dr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809027.jpg" />
+  <img src="Z:/picture/008/save_picture_809027.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ pdfFactory Pro 6.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809024.jpg" />
+  <img src="Z:/picture/008/save_picture_809024.jpg" />
 </div>
 
 

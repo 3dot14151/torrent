@@ -1,3 +1,29 @@
+###  Публикация: 1373992   (876200) от 08.04.2020
+
+Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876200.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования – судьба двух друзей. Брэндон и Гарри выросли в приюте и всегда составляли крепкую команду. Молчаливый и физически сильный Брэндон решал те проблемы, которые можно было решить при помощи кулаков, в иных случаях в дело вступал красноречивый и хитрый Гарри. Вместе они поднялись с самого дна, преодолев множество испытаний, но на вершине мира мафии (   Читать дальше...   )Производство: Япония, студия MadhouseЖанр: приключения, драма, фантастика, мистикаРежиссер: Цуру ТосиюкиПеревод: MC Entertainment, Евгения «Suzaku» Лурье, Kansai StudioЯзык озвучки: Японский, английский и русскийСубтитры: Английские, русскиеПродолжительность: ~25 минут каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD55559B666BB6DDDE81022233EC13B3F35A61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791796   (875186) от 24.02.2015
 
 Initial D Final Stage / Инициал Ди Финальная стадия [2014, TV, 4 ep] DVD 480p Raw+Rus
@@ -6,7 +32,7 @@ Initial D Final Stage / Инициал Ди Финальная стадия [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875186.jpg" />
+  <img src="Z:/picture/005/save_picture_875186.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874017.jpg" />
+  <img src="Z:/picture/008/save_picture_874017.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873473.jpg" />
+  <img src="Z:/picture/008/save_picture_873473.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Fairy Tail / Сказка о Хвосте феи [2011, OVA, 6] DVDrip 480p raw 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872246.jpg" />
+  <img src="Z:/picture/008/save_picture_872246.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Asura / Асура (2012) BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871292.jpg" />
+  <img src="Z:/picture/008/save_picture_871292.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870225.jpg" />
+  <img src="Z:/picture/008/save_picture_870225.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869261.jpg" />
+  <img src="Z:/picture/008/save_picture_869261.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869215.jpg" />
+  <img src="Z:/picture/008/save_picture_869215.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867755.jpg" />
+  <img src="Z:/picture/008/save_picture_867755.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865974.jpg" />
+  <img src="Z:/picture/008/save_picture_865974.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Code Geass Hangyaku no Lelouch R2 / Code Geass: Lelouch of the Rebellion R2 / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865969.jpg" />
+  <img src="Z:/picture/008/save_picture_865969.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Kono Subarashii Sekai ni Shukufuku wo! / Этот замечательный м�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865513.jpg" />
+  <img src="Z:/picture/008/save_picture_865513.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865072.jpg" />
+  <img src="Z:/picture/008/save_picture_865072.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Majutsushi Orphen / Sorcerous Stabber Orphen / Волшебник-воин Ор�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863662.jpg" />
+  <img src="Z:/picture/008/save_picture_863662.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863274.jpg" />
+  <img src="Z:/picture/008/save_picture_863274.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Akira | Акира [1988, MV] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863221.jpg" />
+  <img src="Z:/picture/008/save_picture_863221.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Youjo Senki | Saga of Tanya the Evil | Военная Хроника Мален�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859730.jpg" />
+  <img src="Z:/picture/008/save_picture_859730.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859225.jpg" />
+  <img src="Z:/picture/008/save_picture_859225.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859224.jpg" />
+  <img src="Z:/picture/008/save_picture_859224.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855700.jpg" />
+  <img src="Z:/picture/008/save_picture_855700.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853967.jpg" />
+  <img src="Z:/picture/008/save_picture_853967.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Divine Gate / Божественные врата [2016, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853519.jpg" />
+  <img src="Z:/picture/008/save_picture_853519.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852763.jpg" />
+  <img src="Z:/picture/008/save_picture_852763.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Во�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852757.jpg" />
+  <img src="Z:/picture/008/save_picture_852757.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852756.jpg" />
+  <img src="Z:/picture/008/save_picture_852756.jpg" />
 </div>
 
 
@@ -650,34 +676,6 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF5FE432617619567A4A95C22441D7AF3A596AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377238   (852755) от 21.04.2020
-
-Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун Эр [TV-2] [1993, TV, 43 ep] BDRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сезон разделен на две части:
-Первая «вступительная» состоит всего из 13 эпизодов. В ней врагами девочек становятся пришельцы — брат и сестра, Эйл и Энн, которые прибыли на Землю, чтобы наполнить свое древо Темного Мира энергией за счет людей.
-Вторая же часть начинается с появления таинственной девочки, которая почему-то очень похожа на маленькую Банни. Даже прическу (   Читать дальше...   )Производство: Toei AnimationЖанр: Приключения, Комедия, Махо-СёдзёРежиссер: Сато ДзюнъитиОзвучка: Многоголосая закадроваяСубтитры: ОтсутствуютПродолжительность: 43 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E844145E259B8ABC41B17E610083A768E1F87AF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

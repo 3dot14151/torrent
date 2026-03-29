@@ -1,3 +1,102 @@
+###  Публикация: 608823   (992937) от 26.01.2013
+
+Dysentery - Internal Devastation (2011) [FLAC|Lossless]<Slamming Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epilogue (01:09)
+02. Beyond Light, Amongst the Shadows (02:47)
+03. Pernicious Passing (02:11)
+04. Entropic Putrefaction (01:34)
+05. Internal Devastation (02:19)
+06. A World Apart (03:22)
+07. In Rememberance of the Lifeless (02:32)
+08. From Creation to Dust (02:30)
+09. Forsaken Memories (02:14)
+10. Scars of Suffering (01:52)(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608247   (992936) от 26.01.2013
+
+nuERA - Dialysis (2012) [FLAC|Lossless]<Nu Metal | Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992936.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+------------------------------------------------------------------------
+01. unDONE
+02. Dialysis
+03. Circle the Drain
+04. End Transmission
+05. Own Up
+06. Head of State
+07. 90ten
+08. Because of You(   Читать дальше...   )Тип издания: АльбомЖанр: Nu Metal | RapcoreПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353570   (991988) от 18.01.2020
+
+Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Shrine of Clouds (13:47)
+02. Still Glowing Ashes (10:26)
+03. Twilight's Embrace (9:28)
+04. Inertia (6:28)(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9C150ECE251D29BEB4851DF9E4704E657A6A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353670   (991987) от 18.01.2020
 
 Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoegaze, Stoner Rock, Post Metal>
@@ -6,7 +105,7 @@ Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991987.jpg" />
 </div>
 
 
@@ -35,7 +134,7 @@ Defeated Sanity - 4 альбома (2004-2013) [FLAC|Lossless]<Technical Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991196.jpg" />
 </div>
 
 
@@ -69,7 +168,7 @@ Royal Hunt - Show Me How to Live (2011) [FLAC|Lossless]<Progressive Neoclassical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990906.jpg" />
 </div>
 
 
@@ -95,7 +194,7 @@ Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990853.jpg" />
 </div>
 
 
@@ -124,7 +223,7 @@ Abnormal Thought Patterns - Abnormal Thought Patterns (2011) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990851.jpg" />
 </div>
 
 
@@ -153,7 +252,7 @@ Abnormal Thought Patterns - Manipulation Under Anesthesia (2013) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990808.jpg" />
 </div>
 
 
@@ -182,7 +281,7 @@ Flotsam And Jetsam - The Cold (2010) Korean Ed. [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990806.jpg" />
 </div>
 
 
@@ -211,7 +310,7 @@ Dusk Dwell - Through the Bright Halls (2018) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990798.jpg" />
 </div>
 
 
@@ -240,7 +339,7 @@ Ancient Ceremony - 2CD (1997 - 2002) [WavPack|Lossless]<Symphonic Black/Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990576.jpg" />
 </div>
 
 
@@ -275,7 +374,7 @@ Dreamshade - 3 Альбома (2008-2013) Дискография [FLAC|Lossless]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990287.jpg" />
 </div>
 
 
@@ -310,7 +409,7 @@ Otep - 7 Альбомов (2002-2013) Дискография [FLAC|Lossless]<Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989967.jpg" />
 </div>
 
 
@@ -345,7 +444,7 @@ Stamina - System of Power (2017) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989887.jpg" />
 </div>
 
 
@@ -374,7 +473,7 @@ System Of A Down - Kill Rock n Roll greatest hits (2008) [FLAC|Lossless] <Nu-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989661.jpg" />
 </div>
 
 
@@ -403,7 +502,7 @@ Arise - 3CD (2003 - 2009) [WavPack|Lossless]<Melodic Death Metal / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989607.jpg" />
 </div>
 
 
@@ -438,7 +537,7 @@ Arkhon Infaustus - Hell Injection (2001) [WavPack|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989548.jpg" />
 </div>
 
 
@@ -472,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989346.jpg" />
 </div>
 
 
@@ -504,7 +603,7 @@ Elixir - Mindcreeper (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989110.jpg" />
 </div>
 
 
@@ -533,7 +632,7 @@ As Likely As Not - Stand Up and Nerve (2011) [WavPack|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988307.jpg" />
 </div>
 
 
@@ -566,7 +665,7 @@ Metallica - 11 альбомов (1983-2008) Japan Mini-LP SHM-CD /2010, Universa
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987616.jpg" />
 </div>
 
 
@@ -595,7 +694,7 @@ Sinister - The Carnage Ending (2012) Limited Edition [FLAC|Lossless]<Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987064.jpg" />
 </div>
 
 
@@ -625,7 +724,7 @@ Therion - 6CD Japan Edition (1995-2004) [WavPack|Lossless]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986870.jpg" />
 </div>
 
 
@@ -654,7 +753,7 @@ Atheist - Elements (1993) [WavPack|Lossless]<Progressive Death / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986254.jpg" />
 </div>
 
 
@@ -689,7 +788,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [WavPack|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986223.jpg" />
 </div>
 
 
@@ -703,99 +802,6 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [WavPack|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755427736596242E28CDAC8BF86DD2AAD84C780C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355037   (986170) от 24.01.2020
-
-Seven Spires - Solveig (2017) [FLAC|Lossless|tracks + .cue] <Symphonic Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Siren (01:51)
-02. Encounter (03:51)
-03. The Siren (Reprise) (00:27)
-04. The Cabaret of Dreams (04:27)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F468225E7669F58610E067B44B91F90458DC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187588   (985953) от 24.01.2020
-
-Sister Sin / Liv Sin - 7 albums, 8CD (2003-2019) Discography [FLAC|Lossless|image + .cue] <Heavy Metal, Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская группа SISTER SIN - реальный претендент на звание лучшей современной группы в стиле глэм-метал. Образованная в 2002-м году в шведском Гетеборге, эта группа дала понять слушающему миру, что глэм-метал достойно можно создать не только в Штатах. Харизматичная певица Лив, гитарист Джимми, басист Крис и барабанщик Дэйв отменно вошли в роль спасителей длинноволосого, (   Читать дальше...   )--------------------------
-
-01. Blood Moon Fever (3:15)
-02. Chapter Of The Witch (4:22)(   Читать дальше...   )Жанр: Heavy Metal, Hard'n'Heavy |Продолжительность: 05:33:42 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479693F3181DAB5C8B3A0AA0CA6FA5C7DE0AA0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612764   (985541) от 02.02.2013
-
-Running Wild - 9CD Japan Edition (1987 - 1998) Japan Edition [WavPack|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Final Battle (The End Of All Evil) [02:01]
-02. The Rivalry [05:35]
-03. Kiss Of Death [03:37]
-04. Firebreather [04:04]
-05. Return Of The Dragon [06:47]
-06. Resurrection [04:46]
-07. Ballad Of William Kidd [08:44]
-08. Agents Of Black [03:57]
-09. Fire & Thunder [07:33]
-10. The Poison [04:40](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

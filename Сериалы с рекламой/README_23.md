@@ -1,3 +1,29 @@
+###  Публикация: 1414037   (406800) от 06.10.2020
+
+Дамочки-мещанки / Vorstadtweiber (2015) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро подруг Сабина Херольд , Каролина Мельцер , Вальтрауд Штайнберг, Мария Шнайдер и Николетта Хубер - жены успешных мужчин. Они наслаждаются своей, казалось бы, беззаботной жизнью среди богатых и красивых людей из фешенебельных кварталов Вены. Но когда муж внезапно бросает Сабину, и та остаётся у разбитого корыта, идеальный фасад загородной идиллии начинает рушиться. (   Читать дальше...   )Производство: Австрия / MR TV-FilmЖанр: драма, комедияРежиссер: Сабине Дерфлингер, Харальд СихерицАктеры: Мария Кёстлингер, Нина Пролль, Юрген Маурер, Бернард Шир, Мартина Эбм, Томас Мрац, Гертруда Роль, Герти Драссль, Йоханнес Нуссбаум, Филипп Хохмайр и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BCBEFF2B0424718A891DAEB9DBFD5DA09A504F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414041   (406740) от 06.10.2020
 
 Дамочки-мещанки / Vorstadtweiber (2015) WEBRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406740.jpg" />
+  <img src="Z:/picture/008/save_picture_406740.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390159.jpg" />
+  <img src="Z:/picture/008/save_picture_390159.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389464.jpg" />
+  <img src="Z:/picture/008/save_picture_389464.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386927.jpg" />
+  <img src="Z:/picture/008/save_picture_386927.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383643.jpg" />
+  <img src="Z:/picture/008/save_picture_383643.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383521.jpg" />
+  <img src="Z:/picture/008/save_picture_383521.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383311.jpg" />
+  <img src="Z:/picture/008/save_picture_383311.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383310.jpg" />
+  <img src="Z:/picture/008/save_picture_383310.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382671.jpg" />
+  <img src="Z:/picture/008/save_picture_382671.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382665.jpg" />
+  <img src="Z:/picture/008/save_picture_382665.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380462.jpg" />
+  <img src="Z:/picture/008/save_picture_380462.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380312.jpg" />
+  <img src="Z:/picture/008/save_picture_380312.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377916.jpg" />
+  <img src="Z:/picture/008/save_picture_377916.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377902.jpg" />
+  <img src="Z:/picture/008/save_picture_377902.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377901.jpg" />
+  <img src="Z:/picture/008/save_picture_377901.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377049.jpg" />
+  <img src="Z:/picture/008/save_picture_377049.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376162.jpg" />
+  <img src="Z:/picture/008/save_picture_376162.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376013.jpg" />
+  <img src="Z:/picture/008/save_picture_376013.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375901.jpg" />
+  <img src="Z:/picture/008/save_picture_375901.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375714.jpg" />
+  <img src="Z:/picture/008/save_picture_375714.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373916.jpg" />
+  <img src="Z:/picture/008/save_picture_373916.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373689.jpg" />
+  <img src="Z:/picture/008/save_picture_373689.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373569.jpg" />
+  <img src="Z:/picture/008/save_picture_373569.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373532.jpg" />
+  <img src="Z:/picture/008/save_picture_373532.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372903.jpg" />
+  <img src="Z:/picture/008/save_picture_372903.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B629CCEA28FCCA7FAAA68FD48E80714C5CC06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047427   (372702) от 04.11.2016
-
-Штамм / The Strain (2016) WEB-DL / WEBRip [H.264/720p-LQ] (сезон 3, серии 1-10 из 10) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372702.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аэропорту Нью-Йорка экстренно приземляется самолет, полный мертвецов. Для выяснения обстоятельств их смерти на борт направляются ученые, возглавляемые лучшим городским эпидемиологом Эфраимом Гудвезером. В ходе исследований становится ясно, что пассажиры заражены вирусом вампиризма, который грозит перерасти в масштабную эпидемию, способную погубить все человечество. (   Читать дальше...   )Производство: США / MiradaЖанр: Ужасы, фантастика, драмаРежиссер: Гильермо дель Торо, Дэвид Семел, Кит ГордонАктеры: Дэвид Брэдли, Энн Бетанкорт, Николай Вич, Педро Мигель Арсе, Дрю Нельсон, Джо Веркилло, Джим Уотсон, Алекс Пэкстон, Джонатан Поттс, Рихард Заммель и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка / Автор перевода: Алексей Кузнецов, Олекса Мельник, Лира Грим и Светлана Доманова / vipere, Фиона Кудреватых и Ольга ПашковаПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149892B3C795D1CFC2CD0BFFDD9CE916D6C9A496
 ```
 
 https://mybot314.ru/tekegram_catalog/

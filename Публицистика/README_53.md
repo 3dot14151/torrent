@@ -1,3 +1,81 @@
+###  Публикация: 945273   (435509) от 09.10.2015
+
+Книжная серия | Амфора Travel [54 книги] (2008-2013) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии «Амфора Travel» выходят публицистические документальные и художественные романы о странах, написанные людьми, изучившими эти страны изнутри. Это не путеводители по стандартному набору достопримечательностей, в них описываются настоящие приключения авторов, колорит и культурное своеобразие других государств.Жанр: Путешествия, ГеографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A668925BED2F367C175445D962AA06D38EA9AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945162   (435252) от 09.10.2015
+
+Ольга Маркес | SEKTA. Школа Идеального тела. История не про тело (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435252.jpg" />
+</div>
+
+
+###  Подробнее
+
+#SEKTA – это не просто сообщество со своими правилами, это настоящая самая дружная семья в мире. Где вас поддержат, где вам помогут ровно настолько, насколько вы хотите. Смотивируют ровно на столько, насколько вы готовы быть мотивированными. Как родилась идея создания «Секты», с чего все начиналось, как развивалось?.. Кто были самыми первыми «сектантами», кто проверял (   Читать дальше...   )Жанр: Публицистика, биография, мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41D1936157ED05418960B5C632CBF4DA40C546D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063437   (434963) от 16.10.2016
+
+О. А. Феофанов | Музыка бунта (1975) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование проблем массовой культуры капиталистического мира. Современная музыка и молодежь — такова конкретная постановка темы, которую автор решает главным образом на примере Америки.Жанр: История, политология, искусство, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642D5200FDB59DFBB2F7C019ADBD6075DC5FB153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063441   (434959) от 16.10.2016
 
 О. А. Феофанов | Тигр в гитаре (1969) [PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434959.jpg" />
+  <img src="Z:/picture/008/save_picture_434959.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434815.jpg" />
+  <img src="Z:/picture/008/save_picture_434815.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434667.jpg" />
+  <img src="Z:/picture/008/save_picture_434667.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434494.jpg" />
+  <img src="Z:/picture/008/save_picture_434494.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433963.jpg" />
+  <img src="Z:/picture/008/save_picture_433963.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433735.jpg" />
+  <img src="Z:/picture/008/save_picture_433735.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433675.jpg" />
+  <img src="Z:/picture/008/save_picture_433675.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433449.jpg" />
+  <img src="Z:/picture/008/save_picture_433449.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433295.jpg" />
+  <img src="Z:/picture/008/save_picture_433295.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432984.jpg" />
+  <img src="Z:/picture/008/save_picture_432984.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432746.jpg" />
+  <img src="Z:/picture/008/save_picture_432746.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432451.jpg" />
+  <img src="Z:/picture/008/save_picture_432451.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432208.jpg" />
+  <img src="Z:/picture/008/save_picture_432208.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431738.jpg" />
+  <img src="Z:/picture/008/save_picture_431738.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431721.jpg" />
+  <img src="Z:/picture/008/save_picture_431721.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431671.jpg" />
+  <img src="Z:/picture/008/save_picture_431671.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431577.jpg" />
+  <img src="Z:/picture/008/save_picture_431577.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431001.jpg" />
+  <img src="Z:/picture/008/save_picture_431001.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430468.jpg" />
+  <img src="Z:/picture/008/save_picture_430468.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430187.jpg" />
+  <img src="Z:/picture/008/save_picture_430187.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429599.jpg" />
+  <img src="Z:/picture/008/save_picture_429599.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429597.jpg" />
+  <img src="Z:/picture/008/save_picture_429597.jpg" />
 </div>
 
 
@@ -598,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429378.jpg" />
+  <img src="Z:/picture/008/save_picture_429378.jpg" />
 </div>
 
 
@@ -609,86 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD2E79481FD9F975287FFD139BAD29EB48672B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946110   (428963) от 12.10.2015
-
-Ричард Уотсон | Файлы будущего: история следующих 50 лет (2011) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этой книги – открыть людям глаза на происходящее прямо сейчас и продемонстрировать несколько вариантов альтернативного будущего ближайших 50 лет. Ее автор, австралийский философ и футуролог, обходится без дешевых сенсаций, конспирологии и сценариев будущих катастроф и революций. Анализируя более 40 главных тенденций, влияющих на изменение политики, науки и техники, (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE332A3C938A8265805DDFC673707C587B6363F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324301   (427327) от 08.09.2019
-
-Фрэнсис Фукуяма | Идентичность. Стремление к признанию и политика неприятия (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427327.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы все больше и больше внимания люди во всем мире начинают уделять своей идентичности — национальной, расовой, гендерной, религиозной. Этот глобальный тренд, по мнению Фрэнсиса Фукуямы, автора бестселлера «Конец истории и последний человек», является решающим фактором для эффективной работы общественного механизма, будь то в странах Востока, Юго-Восточной (   Читать дальше...   )Жанр: Политическая философия, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023986AD8EAE379AEDC3ABF770D11FFFAA8F23E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945890   (427250) от 13.10.2015
-
-Станислав Зигуненко | Разведчики и шпионы (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая разница между разведчиком и шпионом? Чем же прославилась Мата Хари? Кто украл атомную бомбу? Как стать «человеком-невидимкой»? На эти и многие другие вопросы отвечает книга, посвященная самым известным шпионам и разведчикам ХХ века.
-
-Для массового читателя.Жанр: История, спецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525CB1351CCFCBE1E48E496CD1BB109E3DE348CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

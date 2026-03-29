@@ -1,3 +1,83 @@
+###  Публикация: 1517480   (162913) от 15.12.2021
+
+Эрнест Сетон-Томпсон | Королевская Аналостанка (2021) [MP3, Светлана Репина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необыкновенная история жизни самого обыкновенного трущобного котёнка, блестяще рассказанная классиком мировой литературы о животных Эрнестом Сетон-Томпсоном.Жанр: Детская литература. СказкаПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9673D2A428D202D4FC30C6CF8C7DB852F1BA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312801   (162858) от 03.11.2023
+
+Владимир Когитин | Казачьи сказки [2008] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Музыкальные спектакли для детей и их родителей.
+В сборник вошли музыкальные спектакли по народным казачьим сказкам в изложении Владимира Когитина.
+Они переносят нас в яркий и веселый мир казачьей станицы, с его богатым фольклором, песнями и шутками. Герои сказок попадают в непростые, порой забавные, а порой — печальные истории, но им всегда помогает казацкая (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: РМГ МедиаПродолжительность: 03:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED767A3BE2B980E8482EB96602E9211FABCC69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598582   (162634) от 19.12.2022
+
+Михаил Шолохов | Нахалёнок (2021) [MP3, Владимир Захаров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детская книжка Михаила Шолохова про мальчика Мишку, прозванного Нахалёнком, который становится участником незабываемых событий в донской станице в первые годы Советской власти.Жанр: Детская литератураПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBE084E9D2E4FA37ED1834FC8545C9B2B8CF60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517649   (162267) от 16.12.2021
 
 Элизабет Рудник | Disney. Любимые мультфильмы. Король Лев (2021) [MP3, Владимир Князев]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162267.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162259.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162245.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161909.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161839.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161811.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161598.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161379.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161341.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161337.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160949.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160947.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160943.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160942.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160934.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160916.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160909.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160786.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160763.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160762.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160743.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160720.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159400.jpg" />
 </div>
 
 
@@ -603,89 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5655A4758B1FE6FB468D01DBF5735F315399404A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378903   (159126) от 11.11.2023
-
-Анна Ахматова | Стихи (2007) [MP3, Наталья Тарыничева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Школьная библиотека.
-Анна Андреевна Ахматова (1889–1966) – русский поэт, писатель, литературовед, литературный критик, переводчик.
-«Школьная библиотека» знакомит своих слушателей с величайшей русским поэтом XX века – Анной Ахматовой. Перед вами сборник, в который вошли жемчужины лирики Ахматовой – стихи, относящиеся к самым разным этапам ее творчества – от (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: АудиокнигаПродолжительность: 04:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B765B32AE875166FF7739662A5765AC4F880447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676267   (159009) от 12.11.2023
-
-Антоний Погорельский | Чёрная курица (Инсценировка) (2008) [MP3, Юрий Яковлев, Маргарита Корабельникова, Лев Дуров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Мелодия – детям».
-Антоний Погорельский, настоящее имя Алексей Алексеевич Перовский (1787–1836) – русский писатель, первый из русских гофманистов, член Российской академии (1829).
-Алексей Алексеевич Перовский был человеком с замечательно живым воображением и чудесным чувством юмора. О его шутливых розыгрышах в свое время ходили легенды. Однако когда речь заходила (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E295CB69E88755E8E1F40CD06B7E86BC800F010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363613   (158788) от 12.11.2023
-
-Антоний Погорельский | Черная курица, или Подземные жители. Посетитель магика (2007) [MP3, Владимир Шевяков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Архив мировой литературы. Русская фантастика.
-Антоний Погорельский (1787–1836), известный русский писатель начала XIX века, приятель В.А. Жуковского, П.А. Вяземского и В.Л. Пушкина. Первым в России написал фантастические произведения и, вероятно, был автором первого у нас романа нравов. Цикл повестей «Двойник, или Мои вечера в Малороссии», роман «Монастырка», (   Читать дальше...   )Жанр: Русская литература для детей, классика, волшебная повестьИздательство: АрМирПродолжительность: 01:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D691E7BECBAC1ED02497585BE45AB76D7E23A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

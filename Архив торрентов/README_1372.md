@@ -6,7 +6,7 @@ Comodo IceDragon 58.0.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743240.jpg" />
+  <img src="Z:/picture/008/save_picture_743240.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743233.jpg" />
+  <img src="Z:/picture/008/save_picture_743233.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Prelude CC 2018 7.1.0.107 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743228.jpg" />
+  <img src="Z:/picture/008/save_picture_743228.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743224.jpg" />
+  <img src="Z:/picture/008/save_picture_743224.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743220.jpg" />
+  <img src="Z:/picture/008/save_picture_743220.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743214.jpg" />
+  <img src="Z:/picture/008/save_picture_743214.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 13551 (май 2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743209.jpg" />
+  <img src="Z:/picture/008/save_picture_743209.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743205.jpg" />
+  <img src="Z:/picture/008/save_picture_743205.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743204.jpg" />
+  <img src="Z:/picture/008/save_picture_743204.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743196.jpg" />
+  <img src="Z:/picture/008/save_picture_743196.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Acrobat Pro DC 2019.010.20091 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743171.jpg" />
+  <img src="Z:/picture/008/save_picture_743171.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Reg Organizer 8.26 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743170.jpg" />
+  <img src="Z:/picture/008/save_picture_743170.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Shingeki no Kyojin / Attack on Titan / Атака титанов / Вторже�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743169.jpg" />
+  <img src="Z:/picture/008/save_picture_743169.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MyLifeOrganized 2 Pro 2.12.16 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743159.jpg" />
+  <img src="Z:/picture/008/save_picture_743159.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Mozilla Firefox 37.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743135.jpg" />
+  <img src="Z:/picture/008/save_picture_743135.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Gestimer 1.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743127.jpg" />
+  <img src="Z:/picture/008/save_picture_743127.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ XnViewMP 0.90 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743126.jpg" />
+  <img src="Z:/picture/008/save_picture_743126.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Avast Internet Security 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743117.jpg" />
+  <img src="Z:/picture/008/save_picture_743117.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Windows Firewall Control 4.7.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743107.jpg" />
+  <img src="Z:/picture/008/save_picture_743107.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ SoftColor PhotoEQ 1.2.6.0 RePack (& Portable) by Dinis124-78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743077.jpg" />
+  <img src="Z:/picture/008/save_picture_743077.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Alcohol 52% 2.0.3 Build 7612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743075.jpg" />
+  <img src="Z:/picture/008/save_picture_743075.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Adobe components: Flash Player 17.0.0.169 + AIR 17.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743060.jpg" />
+  <img src="Z:/picture/008/save_picture_743060.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adobe Media Encoder CC 2018 12.1.0.171 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743059.jpg" />
+  <img src="Z:/picture/008/save_picture_743059.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sangatsu no Lion (2017) | March Comes In Like a Lion (2017) | Мартовски
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743053.jpg" />
+  <img src="Z:/picture/008/save_picture_743053.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Avast Premier 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743049.jpg" />
+  <img src="Z:/picture/008/save_picture_743049.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Adobe Audition CC 2018 11.1.0.184 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743048.jpg" />
+  <img src="Z:/picture/008/save_picture_743048.jpg" />
 </div>
 
 

@@ -1,3 +1,125 @@
+###  Публикация: 1135994   (677293) от 21.05.2017
+
+Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [04:41]
+02. I Got It Bad (And That Ain't Good) [02:37]
+03. Perdido  [03:15]
+04. Mood Indigo  [05:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1537C8DF0871CF091ACF230FAADD6343A8D66AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135907   (677288) от 21.05.2017
+
+Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Stem [02:52]
+02. Chelsea Bridge [02:56]
+03. Jump for Joy [02:57]
+04. What Am I Here For? [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA060DC67DA04B8D665481F53B7F59A50C3AAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135998   (677276) от 21.05.2017
+
+Della Reese & Duke Ellington - On the Radio: The 1962 "Live" Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [02:07]
+02. Comes Once in a Lifetime [01:47]
+03. Sophisticated Lady [03:32]
+04. Chopin's Etude in E [03:00](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1318120D65BEBC1227CE89AFC18BBEEFFB8E22DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508646   (677188) от 11.06.2012
+
+Brian Bromberg - Compared to That (2012) [FLAC|Lossless]<Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_677188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compared To That (8:26)
+02. Rory Lowery, Private Eye (9:54)
+03. If Ray Brown Was A Cowboy? (6:37)
+04. Hayride (7:30)
+05. A Little New Old School (7:20)
+06. Forgiveness (5:19)
+07. Does Anybody Really Know What Time It Is? (4:52)
+08. I'm Just Sayin' (7:43)
+09. The Eclipse (9:00)
+10. Give It To Me Baby (4:19)2012Жанр: Contemporary Jazz, FusionПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508872   (676805) от 11.06.2012
 
 Oscar Peterson Piano Solo - Tracks (1971) [FLAC|Lossless]<Piano Jazz>
@@ -6,7 +128,7 @@ Oscar Peterson Piano Solo - Tracks (1971) [FLAC|Lossless]<Piano Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676805.jpg" />
+  <img src="Z:/picture/005/save_picture_676805.jpg" />
 </div>
 
 
@@ -41,7 +163,7 @@ Howard Alden And Bucky Pizzarelli - In A Mellow Tone (2003) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676694.jpg" />
+  <img src="Z:/picture/008/save_picture_676694.jpg" />
 </div>
 
 
@@ -70,7 +192,7 @@ Lars Gullin - First Walk, Vol.5 (1951, 1952) 2002, Dragon Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676684.jpg" />
+  <img src="Z:/picture/008/save_picture_676684.jpg" />
 </div>
 
 
@@ -99,7 +221,7 @@ VA - Milestones - Un incontro in Jazz (2007) [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676682.jpg" />
+  <img src="Z:/picture/008/save_picture_676682.jpg" />
 </div>
 
 
@@ -128,7 +250,7 @@ Tim Bowman - Tim Bowman (2008) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676678.jpg" />
+  <img src="Z:/picture/008/save_picture_676678.jpg" />
 </div>
 
 
@@ -157,7 +279,7 @@ Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676598.jpg" />
+  <img src="Z:/picture/008/save_picture_676598.jpg" />
 </div>
 
 
@@ -186,7 +308,7 @@ Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676408.jpg" />
+  <img src="Z:/picture/008/save_picture_676408.jpg" />
 </div>
 
 
@@ -215,7 +337,7 @@ VA - Bossa Nova for a Summer Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676326.jpg" />
+  <img src="Z:/picture/008/save_picture_676326.jpg" />
 </div>
 
 
@@ -244,7 +366,7 @@ Tony Bennett & Dave Brubeck - The White House Sessions, Live 1962 (2013) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675541.jpg" />
 </div>
 
 
@@ -273,7 +395,7 @@ The Bill Holman Band - Brilliant Corners: The Music of Thelonious Monk (1997) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675310.jpg" />
 </div>
 
 
@@ -308,7 +430,7 @@ Papik - Cocktail Mina Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675127.jpg" />
 </div>
 
 
@@ -337,7 +459,7 @@ Mads Vinding Trio - The Kingdom (Where Nobody Dies) (1998) Stunt Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675075.jpg" />
 </div>
 
 
@@ -366,7 +488,7 @@ VA - Azure Ellington: Blue Note Plays the Duke (1998) Blue Note [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675074.jpg" />
 </div>
 
 
@@ -395,7 +517,7 @@ Duke Ellington - Columbia Jazz Profiles (1931 - 1960) 2008, Sony Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675072.jpg" />
 </div>
 
 
@@ -424,7 +546,7 @@ The Three Sounds - Hey There (1961) Remaster, 2015, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675003.jpg" />
 </div>
 
 
@@ -453,7 +575,7 @@ Duke Ellington & His Orchestra - Rotterdam 1969 (2016) Storyville Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675002.jpg" />
 </div>
 
 
@@ -482,7 +604,7 @@ Tim Bowman - Love, Joy, Peace (1996) [FLAC|Lossless|tracks + .cue] <Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674816.jpg" />
 </div>
 
 
@@ -511,7 +633,7 @@ Tony Bennett - I Wanna Be Around (1963) 2011, Sony Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674780.jpg" />
 </div>
 
 
@@ -540,7 +662,7 @@ The Chet Baker Quintet - In Concerto (1956) 1995, Nel Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674456.jpg" />
+  <img src="Z:/picture/008/save_picture_674456.jpg" />
 </div>
 
 
@@ -569,7 +691,7 @@ Lars Gullin - Silhouette, Vol.7 (1951 - 1953) 2005, Dragon Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674455.jpg" />
+  <img src="Z:/picture/008/save_picture_674455.jpg" />
 </div>
 
 
@@ -598,7 +720,7 @@ Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674454.jpg" />
+  <img src="Z:/picture/008/save_picture_674454.jpg" />
 </div>
 
 
@@ -627,7 +749,7 @@ Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673481.jpg" />
+  <img src="Z:/picture/008/save_picture_673481.jpg" />
 </div>
 
 
@@ -641,122 +763,6 @@ Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79BBC95D7B5CBE9500FE0457C8F8A1D9BEA379C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223628   (673416) от 05.05.2018
-
-Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Contemporary, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bésame Mucho 3:14
-02. It's Impossible (feat. Nathan East) 3:05
-03. C'est Magnifique 2:52
-04. I Wish You Love 3:44(   Читать дальше...   )Жанр: Adult Contemporary, Easy Listening, Smooth JazzПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA53D2B4713DA259C88A5734E84667609E9C501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136376   (673341) от 23.05.2017
-
-Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazzhaus [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [00:56]
-02. Johnny Come Lately [03:34]
-03. Swamp Goo [04:52]
-04. Knob Hill [07:18](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625845012DDB367F8D5D2972EC7F47C368D0809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136380   (673340) от 23.05.2017
-
-Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [01:11]
-02. Addi [03:20]
-03. Things Ain't What They Used to Be [03:33]
-04. Hello Dolly [03:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E6631CD3BBB1BD440EB66C71ADECCA5EB7A715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136640   (673339) от 23.05.2017
-
-Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonk [02:50]
-02. Drawing Room Blues [03:42]
-03. Frankie and Johnny [02:40]
-04. Jumpin' Room Only [02:38](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD454DCDDEAB3B3352D7FB27B26721AF9731D663
 ```
 
 https://mybot314.ru/tekegram_catalog/

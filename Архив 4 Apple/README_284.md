@@ -1,3 +1,112 @@
+###  Публикация: 1135422   (680951) от 19.05.2017
+
+CleanMyMac 3.8.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680951.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - Программа для очистки Mac
+CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
+
+CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально сортируются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.05.2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.8 и вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883E179DB378BF63ABE827D487880CBE4BB6374A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135522   (680946) от 19.05.2017
+
+Winclone Pro 6 v6.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Winclone. Или как проще всего клонировать Windows на Mac..
+По непонятным  причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 мая 2017Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B7FD562E5642C91385C5D4E15410555D7BB499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135552   (680942) от 19.05.2017
+
+OmniGraffle Pro 7.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680942.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniGraffle Pro - Отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 мая 2017Разработчик: Omni GroupПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658FC12A91600577852F93520BB084BE114F970A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135441   (680811) от 19.05.2017
+
+Hands Off! 3.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: май 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957E3AADD74F782AEE448015AD7673E31B034628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222792   (680661) от 01.05.2018
 
 while True: learn()  [En/Ru] [macOS Native game]
@@ -6,7 +115,7 @@ while True: learn()  [En/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680661.jpg" />
+  <img src="Z:/picture/008/save_picture_680661.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ VMware Fusion Pro 8.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680633.jpg" />
+  <img src="Z:/picture/008/save_picture_680633.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Sid Meier’s Civilization® VI: Rise and Fall  DLC [Multi/Ru] [macOS Native gam
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680566.jpg" />
+  <img src="Z:/picture/008/save_picture_680566.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ CleanMyMac 3.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680535.jpg" />
+  <img src="Z:/picture/008/save_picture_680535.jpg" />
 </div>
 
 
@@ -115,7 +224,7 @@ Marked 2 v2.5.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680438.jpg" />
+  <img src="Z:/picture/008/save_picture_680438.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ InfoClick 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680437.jpg" />
+  <img src="Z:/picture/008/save_picture_680437.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ EzyCal 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680316.jpg" />
+  <img src="Z:/picture/008/save_picture_680316.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ Wondershare TidyMyMusic 2.0.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680310.jpg" />
+  <img src="Z:/picture/008/save_picture_680310.jpg" />
 </div>
 
 
@@ -224,7 +333,7 @@ iShowU Instant (Advanced) 1.2.11 (609) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680307.jpg" />
+  <img src="Z:/picture/008/save_picture_680307.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ Paste 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680241.jpg" />
+  <img src="Z:/picture/008/save_picture_680241.jpg" />
 </div>
 
 
@@ -280,7 +389,7 @@ Dropshare 5.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680230.jpg" />
+  <img src="Z:/picture/008/save_picture_680230.jpg" />
 </div>
 
 
@@ -308,7 +417,7 @@ Macsome iTunes Converter 2.4.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680216.jpg" />
+  <img src="Z:/picture/008/save_picture_680216.jpg" />
 </div>
 
 
@@ -335,7 +444,7 @@ AppDelete 4.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680143.jpg" />
+  <img src="Z:/picture/008/save_picture_680143.jpg" />
 </div>
 
 
@@ -364,7 +473,7 @@ Topaz Plugins Bundle (27.06.2016) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679765.jpg" />
+  <img src="Z:/picture/008/save_picture_679765.jpg" />
 </div>
 
 
@@ -390,7 +499,7 @@ Kiten Compositor 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679414.jpg" />
+  <img src="Z:/picture/008/save_picture_679414.jpg" />
 </div>
 
 
@@ -418,7 +527,7 @@ Hazel 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679408.jpg" />
+  <img src="Z:/picture/008/save_picture_679408.jpg" />
 </div>
 
 
@@ -444,7 +553,7 @@ Ultra Character Map 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679252.jpg" />
+  <img src="Z:/picture/008/save_picture_679252.jpg" />
 </div>
 
 
@@ -470,7 +579,7 @@ DaisyDisk 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679175.jpg" />
+  <img src="Z:/picture/008/save_picture_679175.jpg" />
 </div>
 
 
@@ -497,7 +606,7 @@ Mitti 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678952.jpg" />
+  <img src="Z:/picture/008/save_picture_678952.jpg" />
 </div>
 
 
@@ -525,7 +634,7 @@ Capture One Pro 11 v11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678875.jpg" />
+  <img src="Z:/picture/008/save_picture_678875.jpg" />
 </div>
 
 
@@ -552,7 +661,7 @@ Beyond Compare 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678830.jpg" />
+  <img src="Z:/picture/008/save_picture_678830.jpg" />
 </div>
 
 
@@ -581,7 +690,7 @@ Final Cut Pro X 10.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678735.jpg" />
+  <img src="Z:/picture/008/save_picture_678735.jpg" />
 </div>
 
 
@@ -594,117 +703,6 @@ Final Cut Pro X включает основные функции аудиомо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB318094607EC153C440BF39E935304102B1F9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135860   (678733) от 20.05.2017
-
-TechTool Pro 9.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678733.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832E4A845198A11661EEA213D3AA9BDBE7D756C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135741   (678594) от 20.05.2017
-
-LRTimelapse Pro 4.7.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678594.jpg" />
-</div>
-
-
-###  Подробнее
-
-LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
-
-Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 мая 2017Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E5F42379BA2EB98863FC7E3B40573559A28F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290483   (678365) от 20.03.2019
-
-IconFly 3.8.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678365.jpg" />
-</div>
-
-
-###  Подробнее
-
-IconFly позволяет легко создавать иконки в различных форматах для приложений Mac, iPhone, IPad и Apple Watch. Кроме того, IconFly позволяет создавать иконки для Android-приложений, а также веб-иконки и значки. IconFly активно поддерживается и постоянно обновляется.
-
-IconFly проста в использовании. Просто перетащите изображение в приложение, нажмите кнопку Создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Aperio Lux TeamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C5D2167F8A65593421378FFC4AAA6E7858B8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290475   (678353) от 20.03.2019
-
-Duplicate Photos Fixer Pro 2.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2019Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6ED69559AA8C4C64A1BA7799C723634A6C3D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

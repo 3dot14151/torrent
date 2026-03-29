@@ -6,7 +6,7 @@ Altium Designer 17.0.10 Build 617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886724.jpg" />
+  <img src="Z:/picture/005/save_picture_886724.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.15031 (esd) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886720.jpg" />
+  <img src="Z:/picture/005/save_picture_886720.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886716.jpg" />
+  <img src="Z:/picture/005/save_picture_886716.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886635.jpg" />
+  <img src="Z:/picture/005/save_picture_886635.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TrustViewer 2.1.2.3550 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886626.jpg" />
+  <img src="Z:/picture/005/save_picture_886626.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ qBittorrent 4.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886620.jpg" />
+  <img src="Z:/picture/005/save_picture_886620.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ USDownloader 1.3.5.9 (10.03.2016) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886524.jpg" />
+  <img src="Z:/picture/005/save_picture_886524.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mozilla Firefox 46.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886520.jpg" />
+  <img src="Z:/picture/005/save_picture_886520.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe AIR 21.0.0.176 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886411.jpg" />
+  <img src="Z:/picture/005/save_picture_886411.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ KMSoffline 2.1.4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886403.jpg" />
+  <img src="Z:/picture/005/save_picture_886403.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Maxthon Cloud Browser 4.9.2.300 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886367.jpg" />
+  <img src="Z:/picture/005/save_picture_886367.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinUtilities Professional Edition 12.4 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886338.jpg" />
+  <img src="Z:/picture/005/save_picture_886338.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ K-Lite Codec Pack Update 12.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886316.jpg" />
+  <img src="Z:/picture/005/save_picture_886316.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ QTranslate 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886313.jpg" />
+  <img src="Z:/picture/005/save_picture_886313.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ KMS Tools Portable 01.04.2020 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886255.jpg" />
+  <img src="Z:/picture/005/save_picture_886255.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ LibreOffice 5.1.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886209.jpg" />
+  <img src="Z:/picture/005/save_picture_886209.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mozilla Firefox 45.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886187.jpg" />
+  <img src="Z:/picture/005/save_picture_886187.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Display Driver Uninstaller 15.7.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886140.jpg" />
+  <img src="Z:/picture/005/save_picture_886140.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ O&O Defrag Professional 19.5 Build 222 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886063.jpg" />
+  <img src="Z:/picture/005/save_picture_886063.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BurnAware Free 14.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886046.jpg" />
+  <img src="Z:/picture/005/save_picture_886046.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mozilla Thunderbird 91.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886025.jpg" />
+  <img src="Z:/picture/005/save_picture_886025.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Lacey Free Music & Video Downloader 2.62 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886010.jpg" />
+  <img src="Z:/picture/005/save_picture_886010.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ KeePass Password Safe 2.32 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885952.jpg" />
+  <img src="Z:/picture/005/save_picture_885952.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Hotspot Shield Elite 5.20.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885948.jpg" />
+  <img src="Z:/picture/005/save_picture_885948.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Firefox Browser 78.14.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885935.jpg" />
+  <img src="Z:/picture/005/save_picture_885935.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Emurasoft EmEditor Professional 21.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885926.jpg" />
+  <img src="Z:/picture/005/save_picture_885926.jpg" />
 </div>
 
 

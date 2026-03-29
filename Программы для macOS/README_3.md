@@ -1,3 +1,136 @@
+###  Публикация: 1439402   (1039931) от 13.01.2021
+
+vGuruSoft Video Player 1.6.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039931.jpg" />
+</div>
+
+
+###  Подробнее
+
+vGuruSoft Video Player - отличительный HD мультимедийный проигрыватель, который поддерживает более 200 мультимедийных форматов, таких как МТС, MKV, VOB, MP4, AVI, MP3, 4K, SRT, ASS и многое другое.
+С помощью интеллектуального алгоритма улучшения света, он обеспечивает  4 исключительных вида режимов изображения для оптимизации производительности воспроизведения, основываясь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: vGuruSoft Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2D20952DDCC4C234CBD671DEDC7463D8FA9AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439539   (1039824) от 13.01.2021
+
+Rhinoceros 7 v7.2 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2021Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD4A5BC6E1D0CD0C899A3F95709FF2299A9C911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439532   (1039763) от 13.01.2021
+
+Visual Paradigm Enterprise 16.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор инструментов №1 для успеха вашего проекта, проектирования, анализа и управления, которые стимулируют разработку ИТ-проектов и цифровую трансформацию.Тип издания: macOS SoftwareРелиз состоялся: 22.06.2020Разработчик: Visual ParadigmПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767016CF39220C835032B3EAB55690165CC15598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439729   (1039645) от 14.01.2021
+
+Liquivid Video Improve 2.8.3 [En/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liquivid - интуитивно понятный, простой в использовании фото / видео редактор: очистить и улучшить все свои снимки с помощью одного клика, получить удовольствие от просмотра и поделиться воспоминаниями.
+liquivid предлагает множество привлекательных визуальных эффектов, исправляет искажения объектива, вызванные широкоугольными объективами (большинстве actioncams), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2021Разработчик: Razvan ChisuПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9CDC43C3459788AF784D53057E589C82851084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439806   (1039644) от 14.01.2021
+
+Copy+ Manage clipboard history 1.1.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Copy+ это продвинутый и гибкий менеджер буфера обмена. Он незаменим при работе с текстом, графикой, файлами или любыми другими форматами данных.Тип издания: macOS SoftwareРелиз состоялся: 27.08.2019Разработчик: Shao Bing FuПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006B47FD726D52B88A4518513B8F28ABE9DF4382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439854   (1039639) от 14.01.2021
 
 Tab Space 3.8.2 [Multi/Ru]
@@ -6,7 +139,7 @@ Tab Space 3.8.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039639.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ HD Video Converter Movavi 21.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039479.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ BatchOutput Office Suite 2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039331.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Visual Attributed String 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039181.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ Tuner for YouTube music 4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038852.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ iLove Video Compressor 2.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038806.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ IP Scanner Pro 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038491.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ VisualGrep 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038323.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ Nebulosity 4.4.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038319.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ Drop - Color Picker 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038294.jpg" />
 </div>
 
 
@@ -271,7 +404,7 @@ Secret Folder  10.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037802.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ EXIF Cleaner PRO 3.0.0 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037790.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ Smart Tunes 1.1.14 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037525.jpg" />
 </div>
 
 
@@ -350,7 +483,7 @@ File Multi Tool 6 v6.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037523.jpg" />
 </div>
 
 
@@ -378,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037479.jpg" />
 </div>
 
 
@@ -404,7 +537,7 @@ Vidmore Player 1.0.12 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037474.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ CorelCAD 2021 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037472.jpg" />
 </div>
 
 
@@ -457,7 +590,7 @@ ScreenFlow 9 v9.0.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037438.jpg" />
 </div>
 
 
@@ -485,7 +618,7 @@ Bookends 13.5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037245.jpg" />
 </div>
 
 
@@ -512,7 +645,7 @@ Stringed 2 v2.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037238.jpg" />
 </div>
 
 
@@ -538,7 +671,7 @@ WidsMob Viewer Pro 1.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037193.jpg" />
 </div>
 
 
@@ -549,138 +682,6 @@ WidsMob Viewer Pro 1.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203976F20318500CCDA54E468FFE18828712AF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442459   (1036625) от 25.01.2021
-
-Delicious Library 3.9.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delicious Library - один из лучших каталогизаторов. Приложение поможет поддерживать и комфортно работать с домашней медиа-библиотекой. Привести в порядок коллекцию книг, фильмов, музыкальных дисков, игр. После того, как вы укажете название, Delicious Library автоматически загрузит все возможные данные об этом предмете. Для фильмов это будут издатель, актеры, режиссер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2021Разработчик: Delicious MonsterПоддерживаемая ОС: macOS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE31B91DC99130E8C5FF4E8B4F88C73221E2E0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442424   (1036569) от 25.01.2021
-
-Zerene Stacker Pro 1.04 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zerene Stacker или «Совмещенный фокус» -  программное обеспечение, разработанное специально для профессиональных фотографов в помощь со сложными макро-предметами. Софт также прекрасно работает с более простыми изображениями: пейзажами, просто крупными планами, но в первую очередь создан для работы с макро.Тип издания: macOS SoftwareРелиз состоялся: 22.05.2020Разработчик: Zerene Systems LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFD4CED2EDC4C5AAE416C97E68E09333436CCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442810   (1036361) от 26.01.2021
-
-timeLAPSE 2.60 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036361.jpg" />
-</div>
-
-
-###  Подробнее
-
-timeLAPSE будет автоматически делать снимок экрана вашего Mac в автоматическом режиме и периодически с интервалом в соответствии с вашими настройками, от 10 секунд до 24 часов. Все снятые скриншоты будут сохранены в выбранной вами папке. Затем эти скриншоты можно связать и скомпилировать в непрерывно воспроизводимое покадровое видео в любое время.
-timeLAPSE идеально (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2021Разработчик: Jiulong ZhaoПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3A31FB897747AF537380A8755D79BE57E7A49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442969   (1036055) от 27.01.2021
-
-MetaImage 1.9.8 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036055.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaImage - это идеальный инструмент для чтения, записи и редактирования метаданных изображений. Это первый редактор, который позволяет редактировать теги EXIF, IPTC и XMP, а также MakerNotes в красивом и знакомом интерфейсе.
-Приложение разработано для улучшения вашего рабочего процесса. Пользователи могут создавать и управлять пресетами. Кроме того, для географических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2021Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF0DB4370E39B5BC6C195B2EF3C3C5C4591BD6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442963   (1036048) от 27.01.2021
-
-Eon Timer 2.8.7 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании Time Tracking для Mac с чистым интуитивно понятным интерфейсом. Следите за временем для всего вашего проекта в одном месте, а затем отправляйте его в свой онлайн-сервис, если хотите.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F61854A4BAEFDE0CD476F8A0B60D2B208D02181
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1037213   (615680) от 23.07.2016
+
+DEVONthink Pro Office 2.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2016Разработчик: Devontechnologies, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82F8ED89A26B12BD23FCBC7C2952963C78C213B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037110   (615671) от 23.07.2016
+
+iStat Menus 5.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615671.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 5 — лучшее приложение для контроля работы Mac
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
+
+Первым хочется пожелать и дальше наслаждаться работой, а вот вторым стоит обратить внимание на крупное (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июля 2016Разработчик: BjangoПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский?!, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174CE245D29CADE2AAA9E9603AE0639A1EF0373A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545495   (615010) от 19.04.2022
+
+GraphicConverter 11 v11.6.1 BETA [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615010.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97A53D2867331D032A613A0F55648541332D98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545393   (615009) от 19.04.2022
+
+Valentina Studio Pro 12.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 18.04.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5222B969C08E5BB9CEC20C74DDCF78D233279F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545423   (615006) от 19.04.2022
 
 iCompta 6 v6.0.55 [Multi]
@@ -6,7 +113,7 @@ iCompta 6 v6.0.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615006.jpg" />
+  <img src="Z:/picture/008/save_picture_615006.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Find Any File (FAF) 2.3.3b9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615000.jpg" />
+  <img src="Z:/picture/008/save_picture_615000.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Boxy SVG 3  v3.84.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614913.jpg" />
+  <img src="Z:/picture/008/save_picture_614913.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ WiFi Explorer 3.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614905.jpg" />
+  <img src="Z:/picture/008/save_picture_614905.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Things 3 v3.15.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614901.jpg" />
+  <img src="Z:/picture/008/save_picture_614901.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Infuse PRO 7 v7.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614899.jpg" />
+  <img src="Z:/picture/008/save_picture_614899.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Train Valley 2 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614820.jpg" />
+  <img src="Z:/picture/008/save_picture_614820.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ beaTunes 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614769.jpg" />
+  <img src="Z:/picture/008/save_picture_614769.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ Sketch 86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614697.jpg" />
+  <img src="Z:/picture/008/save_picture_614697.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ Path Finder 2131 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614687.jpg" />
+  <img src="Z:/picture/008/save_picture_614687.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ iExplorer 4.1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614641.jpg" />
+  <img src="Z:/picture/008/save_picture_614641.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ Radio Silence 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614565.jpg" />
+  <img src="Z:/picture/008/save_picture_614565.jpg" />
 </div>
 
 
@@ -327,7 +434,7 @@ PhoneClean Pro 5.0.1 (20170613) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614329.jpg" />
+  <img src="Z:/picture/008/save_picture_614329.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ App Uninstaller 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614109.jpg" />
+  <img src="Z:/picture/008/save_picture_614109.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ BusyCal 3.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613976.jpg" />
+  <img src="Z:/picture/008/save_picture_613976.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ TotalFinder 1.6.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613916.jpg" />
+  <img src="Z:/picture/008/save_picture_613916.jpg" />
 </div>
 
 
@@ -437,7 +544,7 @@ TinkerTool System 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613886.jpg" />
+  <img src="Z:/picture/008/save_picture_613886.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ Hands Off! 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613557.jpg" />
+  <img src="Z:/picture/008/save_picture_613557.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ Nevercenter CameraBag Pro 2022.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613285.jpg" />
+  <img src="Z:/picture/008/save_picture_613285.jpg" />
 </div>
 
 
@@ -517,7 +624,7 @@ Allavsoft Video Downloader Converter 3.24.6.8145 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613271.jpg" />
+  <img src="Z:/picture/008/save_picture_613271.jpg" />
 </div>
 
 
@@ -543,7 +650,7 @@ NetWorker Pro 8.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613259.jpg" />
+  <img src="Z:/picture/008/save_picture_613259.jpg" />
 </div>
 
 
@@ -569,7 +676,7 @@ Alien Skin Exposure X4 Bundle 4.5.3.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613184.jpg" />
+  <img src="Z:/picture/008/save_picture_613184.jpg" />
 </div>
 
 
@@ -580,114 +687,6 @@ Alien Skin Exposure X4 Bundle 4.5.3.66 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A776565450C8A456238D5CD8CDC61D3F30D6E0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545540   (613175) от 20.04.2022
-
-EditReady 22.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
-Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
-
-Поддерживает контейнеры:(   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2014-2022 The Sync FactoryПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41FB118AFD3CDA6480D7E725A90894A12D16F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545646   (613171) от 20.04.2022
-
-AirFoil+Airfoil Satellite 5.11.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613171.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirFoil – специальное программное обеспечение, позволяющее транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2021 Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D677AF1140427D47311E1F93D19F5BCAF703F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545566   (613161) от 20.04.2022
-
-RAR Extractor Max-Unzip Winrar 8.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613161.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
-Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2020 by Elimisoft.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBDD9CD24BFC62C6BD8F4D2B8B45D2DDACC2B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545513   (613038) от 20.04.2022
-
-Blackmagic Design Fusion Studio 18.0 Beta 1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD061CA464EA5544B320753B1901521B6A1F4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

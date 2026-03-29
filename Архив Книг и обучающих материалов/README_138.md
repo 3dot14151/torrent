@@ -1,3 +1,29 @@
+###  Публикация: 553246   (443440) от 28.09.2012
+
+Максим Дубровин |Этногенез| Новелла по мотивам серии Сыщики| Исповедь потрошителя  [2012] [FB2][EPUB][RTF][PDF][JAVA]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон Викторианской эпохи. Некий доктор по имени Бертран Морт тонет в реке Темза с искореженной рукой и пулевым ранением в груди. Интересно то, что он и не против покончить с жизнью. Но тут он обнаруживает, как одна девушка бросает в воду сверток, а в нем плачущий младенец. Забыв обо всем, Берт решает спасти ребенка. И после спасения находит его мать – она бедная молодая швея Мэри, которую накануне эти событий хозяин квартиры выгнал из дома на улицу. Втроем они отправляются жить в доки Ламбета. И все сложилось бы неплохо, если бы не страшный секрет Берта и не маленький серебряный предмет в виде медузы, который превращает Морта в дьявола.Формат: FB2,EPUB,RTF,PDF,JAVA (jar+jad).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2052D650700FAC8A392FB337F724BB89041D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553255   (443420) от 28.09.2012
 
 Полина Волошина |Этногенез| Новелла по мотивам серии Маруся| Месть [2012] [FB2][EPUB][RTF][PDF][JAVA (jar+jad)]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443420.jpg" />
+  <img src="Z:/picture/008/save_picture_443420.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443236.jpg" />
+  <img src="Z:/picture/008/save_picture_443236.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443219.jpg" />
+  <img src="Z:/picture/005/save_picture_443219.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443131.jpg" />
+  <img src="Z:/picture/008/save_picture_443131.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443108.jpg" />
+  <img src="Z:/picture/008/save_picture_443108.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442956.jpg" />
+  <img src="Z:/picture/008/save_picture_442956.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442954.jpg" />
+  <img src="Z:/picture/008/save_picture_442954.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442950.jpg" />
+  <img src="Z:/picture/008/save_picture_442950.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442768.jpg" />
+  <img src="Z:/picture/008/save_picture_442768.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442761.jpg" />
+  <img src="Z:/picture/008/save_picture_442761.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442699.jpg" />
+  <img src="Z:/picture/008/save_picture_442699.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442610.jpg" />
+  <img src="Z:/picture/008/save_picture_442610.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442255.jpg" />
+  <img src="Z:/picture/008/save_picture_442255.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442152.jpg" />
+  <img src="Z:/picture/008/save_picture_442152.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442101.jpg" />
+  <img src="Z:/picture/008/save_picture_442101.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442062.jpg" />
+  <img src="Z:/picture/008/save_picture_442062.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442059.jpg" />
+  <img src="Z:/picture/008/save_picture_442059.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442052.jpg" />
+  <img src="Z:/picture/008/save_picture_442052.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441979.jpg" />
+  <img src="Z:/picture/008/save_picture_441979.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ BodyRock | The Daily HIIT 2 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441779.jpg" />
+  <img src="Z:/picture/008/save_picture_441779.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441776.jpg" />
+  <img src="Z:/picture/008/save_picture_441776.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ BodyRock | The Daily HIIT 1 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441774.jpg" />
+  <img src="Z:/picture/008/save_picture_441774.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441538.jpg" />
+  <img src="Z:/picture/008/save_picture_441538.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441533.jpg" />
+  <img src="Z:/picture/008/save_picture_441533.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441084.jpg" />
+  <img src="Z:/picture/008/save_picture_441084.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07A4A80262FD4FE8A08C8C47277F7C5F1FC22989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553849   (441082) от 29.09.2012
-
-НТВ плюс | Квартирный вопрос -"Синий бархат и сетка Рабица" [02.06.2012] SATRip
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои этой программы – сторонники современных, лаконичных, даже минималистичных решений с минимальным количеством вещей, но с максимальным количеством возможностей. Дарья Касацкая и Филипп Тангалычев постарались не только оправдать, но и превзойти их ожидания. Обеденный стол одновременно является рабочей поверхностью; зеркала расширяют пространство и скрывают места хранения чаев и приправ; не говоря уже о техническом оснащении новой кухни, о котором впору писать целый трактат.
-
-Первую в своей жизни спальню Екатерина и Сергей заполучили три года назад, когда въехали в эту квартиру. И именно спальню во время ремонта оставили напоследок, а после долгих раздумий написали к нам в программу. Теперь думать не надо – остается только гадать, что же мы собираемся сделать и зачем нам понадобится сетка Рабица.Жанр: ТелепередачаПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF56AEB245FBD412E9A6A40BA55ADCC8C654E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

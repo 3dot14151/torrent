@@ -1,3 +1,160 @@
+###  Публикация: 1724642   (55674) от 23.05.2024
+
+Создан гель для восстановления костей со 100% идентичностью
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в мире биоассемилирумый гель для регенерации, который позволяет восстановить костную ткань с идентичностью в 100% и лечить, в том числе крупные пулевые и осколочные повреждения костей, разработали специалисты Волгоградского государственного медицинского университета (ВолгГМУ). Об этом сообщил ТАСС доктор фармацевтических наук, заведующий кафедрой технологии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724703   (55666) от 23.05.2024
+
+Microsoft представила Recall — функцию записи всех действий пользователя в Windows 11
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft представила новую функцию для Windows 11 под названием Recall. Этот инструмент отслеживает и фиксирует все действия пользователя на компьютере. Благодаря этому пользователь всегда может вернуться к выполнению задач или просмотру сайтов, с которыми взаимодействовал ранее.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724912   (55579) от 24.05.2024
+
+Золото Умальты (2024) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канун революции 1917 года, Хабаровский край, окрестности реки Умальты. Люди в шаманских масках нападают на обоз, убивают охрану и похищают 40 пудов золота. Петроградский золотопромышленник Булыгин теряет все свои сбережения и вернуть золото — его единственный шанс остаться на плаву. Он едет в Хабаровск и набирает отряд головорезов.Производство: Россия / Открытая киностудия «Лендок»Жанр: Приключения, вестерн, драмаРежиссер: Андрей БогатыревАктеры: Александр Самойленко, Артём Ткаченко, Алексей Шевченков, Софья Эрнст, Павел Деревянко, Евгений Антропов, Вольфганг Черни, Иван Купреенко, Дмитрий Хасис, Андрей БогатыревПеревод: Не требуется (Русский)Субтитры: Русские, АнглийскиеПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54035DDB7971F252440BD8DC799AA89A1C18BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724937   (55493) от 25.05.2024
+
+DDR6 может предложить скорость до 21 Гбит/с. JEDEC раскрыла подробности о новом стандарте памяти
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оперативная память DDR5 пока ещё даже не стала однозначным стандартом, так как те же Core 14-го поколения поддерживают и DDR4, но организация JEDEC уже поделилась подробностями о DDR6.Итак, память LPDDR6 предложит скорости от 10 667 до 14 400 Мбит/с и пропускную способность в диапазоне от 28,5 до 38,4 Гбит/с.Что касается DDR6, тут стандарт ещё не доработан, но JEDEC (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724871   (55487) от 25.05.2024
+
+Офисные работники придумали, как с помощью Windows обмануть руководство и меньше работать
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи стали обманывать руководство, демонстрируя им поддельный экраны обновления системы, чтобы тратить меньше времени непосредственно на работу, находясь в офисе. Microsoft особенно часто выпускает апдейты своих ОС, так что она поневоле замешана в этой схеме. Россияне не смогут ею воспользоваться – Microsoft постоянно закрывает им доступ к апдейтам.Лень на (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725463   (55372) от 26.05.2024
+
+Падение империи / Гражданская война / Civil War (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальная гвардия Калифорнии и Техаса при поддержке боевой техники и авиации штурмуют столицу. Белый дом вот-вот падет. Группа журналистов пытается добраться до пылающего Вашингтона, чтобы взять последнее интервью у президента некогда Соединенных Штатов Америки. Но в стране, где царит хаос, нет ничего дороже литра бензина и ничего дешевле, чем человеческая жизнь.Производство: США, Великобритания, A24, DNA Films, IPR.VCЖанр: боевик, драмаРежиссер: Алекс ГарлендАктеры: Кирстен Данст, Вагнер Моура, Кейли Спейни, Стивен Хендерсон, Соноя Мидзуно, Ник Офферман, Джефферсон Уайт, Хуани Фелиз, Нельсон Ли, Эдмунд ДонованПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E44933375F9D5A7281BE85A7C7652FEDF913EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160813   (55370) от 26.05.2024
 
 Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.02) Repack R.G. Механики
@@ -6,7 +163,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.02) Repack R.G. Механик
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55370.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Comodo Internet Security Premium 12.3.3.8140 Final  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55276.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55273.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55161.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55073.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55055.jpg" />
 </div>
 
 
@@ -166,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54950.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.984.0.0/dlc) Repack Decepticon [Game of the Ye
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54848.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54818.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ Microsoft удалила кодек AC-3 Dolby Digital из Windows 11 24H2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54746.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54739.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54534.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54420.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54336.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54222.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54214.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54022.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53902.jpg" />
 </div>
 
 
@@ -481,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53901.jpg" />
 </div>
 
 
@@ -507,171 +664,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53896.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Киотский университет (Kyoto University) и японская лесозаготовительная компания Sumitomo Forestry совместно разработали экспериментальный спутник LignoSat, запуск которого на МКС запланирован на сентябрь этого года.LignoSat представляет собой небольшой кубсат со стороной 10 сантиметров и весом около 0,9 килограмма. Он изготовлен с использованием традиционных японских (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728884   (53880) от 09.06.2024
-
-В работе Telegram произошел глобальный сбой, спустя более часа простоя сервис заработал снова
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53880.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тапал хомяка и нажал не туда».
-Павел Дуров раскрыл причину сбоя в Telegram
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724956   (53695) от 11.06.2024
-
-1984 / 1984 / Nineteen Eighty-Four (1984) BDRip [H.264/1080p] [Handmade correction AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа-антиутопии Джорджа Оруэлла, изданного в 1949 году. Для подавления массовых волнений Океании правящая партия заново воссоздает прошлое и настоящее. За каждым гражданином неусыпно наблюдают, каждому с помощью телевидения промывают мозги. И даже двое любовников вынуждены скрывать свои чувства, поскольку секс и межличностные отношения объявлены вне (   Читать дальше...   )Производство: Великобритания, Umbrella-Rosenblum Films Production, Virgin, Virgin Benelux, Virgin SchallplattenЖанр: фантастика, драма, экранизацияРежиссер: Майкл РедфордАктеры: Джон Хёрт, Ричард Бёртон, Сюзанна Хэмилтон, Сирил Кьюсак, Грегор Фишер, Джеймс Уолкер, Эндрю Вильде, Дэвид Тревена, Дэвид Канн, Энтони БенсонПеревод: профессиональный многоголосый, профессиональный двухголосый, одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81D79B36C1FA859ECDC1181C16F2260395E1C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729174   (53606) от 12.06.2024
-
-Doom: The Dark Ages официально анонсирована — со щитом-бензопилой, управляемым механическим драконом и без мультиплеера
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слухи не обманули: 9 июня на презентации Xbox Games Showcase 2024 издательство Bethesda Softworks представило Doom: The Dark Ages — следующую главу в прославленной серии шутеров от id Software.События Doom: The Dark Ages развернутся в антураже тёмного фэнтези до Doom (2016). Игрокам предстоит узнать предысторию Палача Рока и его путь от последней надежды королевства (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574982   (53600) от 12.06.2024
-
-Мои братья и сёстры / Братство / Kardeslerim (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 3, серии 1-38 (57-94) из 38) TurkishTuz
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадир, Омер, Асие и Эмель. Они братья и сёстры, которые крепко привязаны друг к другу, терявшие отца и мать, после серии печальных событий. Во всем мире они ничего не могут сделать, кроме как держаться друг за друга, держаться за руки. До тех пор, пока не откроются двери колледжа, принадлежащего преступнику Акифу Атакулу, который стал причиной их трагедииПроизводство: Турция / NGMЖанр: драмаРежиссер: Серкан БиринджиАктеры: Джелиль Налчакан, Халит Озгюр Сары, Кунейт Мете, Аху Ягту, Фадик Севин Атасой, Симге Сельчук, Йигит Кочак, Су Бурсу Джошкун, Джелиль Налчакан, Каан Севи, Дамла Су Икизоглу и др.Перевод: Одноголосый любительский (TurkishTuz)Язык озвучки: РусскийПродолжительность: ~02:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DB922167466A87817F345F1CD1303F19674B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 27707   (53590) от 12.06.2024
-
-Бодибилдинг без одежды / Muscle Elegance Mag - Gym Heat (2000) TVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тренировка известных спортсменок мирового уровня по бодибилдингу  в необычном ракурсе.Жанр: БодибилдингАктеры: Denise Masino, Gayle Moher, Dayana Cadeau, Peggy SchoolcrПеревод: ОригинальныйПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803B9B7808CE6F0B32E73E27A598D562FDCE34DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729603   (53489) от 13.06.2024
-
-Microsoft остановила развёртывание катастрофической тестовой версии Windows 11 24H2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft заморозила развёртывание Windows 11 24H2 на канале Insider Release Preview. Обновление должно было принести ряд новых функций, среди которых поддержка Wi-Fi 7, Sudo для Windows, Rust в ядре Windows и различные настройки взаимодействия с пользователем. Microsoft не объяснила причину приостановки, ограничившись двумя строчками в своём блоге, однако длинный (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

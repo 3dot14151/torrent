@@ -1,3 +1,61 @@
+###  Публикация: 1051984   (530993) от 12.09.2016
+
+Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Need you to Understand (3:51)
+ 02.3000 Beats (3:58)
+ 03.I Want Out (3:12)
+ 04.Number One (4:40)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F026C7EC9D33026A7A03D863C628C287AFB02A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051924   (530892) от 12.09.2016
+
+Palace - Master Of The Universe (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Master Of The Universe (4:43)
+ 02.Cool Runnin' (3:57)
+ 03.Man Behind The Gun (4:45)
+ 04.Part Of Me (4:03)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600D807F367975B887935EAC1981329E293C6783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558664   (530075) от 21.06.2022
 
 Larry Sandman - More Than Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues, Blues Rock>
@@ -6,7 +64,7 @@ Larry Sandman - More Than Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530075.jpg" />
+  <img src="Z:/picture/008/save_picture_530075.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529827.jpg" />
+  <img src="Z:/picture/008/save_picture_529827.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Gun - Gun Sight (1969) Remastered /2000, Repertoire/ [FLAC|tracks+.cue]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529731.jpg" />
+  <img src="Z:/picture/008/save_picture_529731.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Circus Of Power - Circus Of Power (1988) Japan [APE|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529273.jpg" />
+  <img src="Z:/picture/008/save_picture_529273.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Bachman-Turner Overdrive - 20 альбомов, 1 Box Set (1973 - 2016) 29 CD [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528953.jpg" />
+  <img src="Z:/picture/008/save_picture_528953.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Face The Legacy - Ashes on the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528793.jpg" />
+  <img src="Z:/picture/008/save_picture_528793.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Sleazy RoXxX - Trinity Junction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528749.jpg" />
+  <img src="Z:/picture/008/save_picture_528749.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Tainted Nation - On The Outside (2016) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528073.jpg" />
+  <img src="Z:/picture/008/save_picture_528073.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Alcatrazz - The Ultimate Fortress Rock Set (2016) 5CD Box Set [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527951.jpg" />
+  <img src="Z:/picture/008/save_picture_527951.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Wolf Hoffmann (ex.Accept) - 2 Albums (1997 - 2016) [FLAC|Lossless|image + .cue]<
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527851.jpg" />
+  <img src="Z:/picture/008/save_picture_527851.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Moody Marsden - Ozone Friendly (1997) [FLAC|Lossless|image + .cue] <Rock, Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527370.jpg" />
+  <img src="Z:/picture/008/save_picture_527370.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Dust - Soulburst (2016) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526699.jpg" />
+  <img src="Z:/picture/008/save_picture_526699.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ The Apple Pie Motherhood Band - Apple Pie (2004) [FLAC|Lossless|image + .cue] <R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526696.jpg" />
+  <img src="Z:/picture/008/save_picture_526696.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Inspector - Russian Prayer (1993) [WavPack|Lossless|image + .cue] <Art Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525532.jpg" />
+  <img src="Z:/picture/008/save_picture_525532.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Storm Resistant - Storm Resistant (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524409.jpg" />
+  <img src="Z:/picture/008/save_picture_524409.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Aina - Living In A Boy's World (1988) 2005 Reissue [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524348.jpg" />
+  <img src="Z:/picture/008/save_picture_524348.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Thunder - Dopamine (2022) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524316.jpg" />
+  <img src="Z:/picture/008/save_picture_524316.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Guitar Battle (1997) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524180.jpg" />
+  <img src="Z:/picture/008/save_picture_524180.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Blue Blud - The Big Noise (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523664.jpg" />
+  <img src="Z:/picture/008/save_picture_523664.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ The Big Deal - First Bite (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522658.jpg" />
+  <img src="Z:/picture/008/save_picture_522658.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Revolution Saints - Revolution Saints (2015) [FLAC|image + .cue]<Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522517.jpg" />
+  <img src="Z:/picture/008/save_picture_522517.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Helix - Wild In The Streets (1987) Remastered, 2011 [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522145.jpg" />
+  <img src="Z:/picture/008/save_picture_522145.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Silberbart - 4 Times Sound Razing (1971) (1 альбом, 2 издания) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519836.jpg" />
+  <img src="Z:/picture/008/save_picture_519836.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Maryann Cotton - Free Falling Angels (2012) [FLAC|Lossless]<Hard Rock/Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519192.jpg" />
+  <img src="Z:/picture/008/save_picture_519192.jpg" />
 </div>
 
 
@@ -694,64 +752,6 @@ Maryann Cotton - Free Falling Angels (2012) [FLAC|Lossless]<Hard Rock/Glam Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560670   (518794) от 01.07.2022
-
-The Warning - Error (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 404 [00:56]
-02. DISCIPLE [03:40]
-03. CHOKE [03:51]
-04. ANIMOSITY [04:06](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092261ED317A3E16D5B3B5807A01552C8A5B9B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241799   (518292) от 19.08.2018
-
-Johnny Gioeli - Deen Castronovo - Set The World On Fire (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set The World On Fire (3:31)
- 02. Through (4:06)
- 03. Who I Am (3:00)
- 04. Fall Like An Angel (3:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A830232FBEFF07CCA4C0331313EE37C151FF09D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1266948   (345271) от 08.10.2019
+
+Ракетный щит Родины (2018) WEB-DL [H.264/720p-LQ] (1-8 серия из 8)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холодная война между СССР и США послужила катализатором стремительного совершенствования различных видов вооружений. И наиболее бурно развивалось ракетное оружие. Оно проникло во все области военного дела. Ракетами вооружили самолёты и вертолёты, бронетехнику, надводные корабли и подводные лодки. Ракеты стали надёжным средством борьбы с танками, живой силой, средствами (   Читать дальше...   )Производство: Россия, ООО «Студия «КРЫЛЬЯ», ООО «ВИАНЖ ПРОДАКШН»Жанр: Документальный, вооружение, историяПродолжительность: 8 х ~ 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CC0A550343ABE4975F5A3A7A5C5CD732D95137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074002   (340088) от 18.11.2016
 
 Невидимый фронт (2008) DVB (Серии 1-177 из 182) (Обновляемая)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340088.jpg" />
+  <img src="Z:/picture/008/save_picture_340088.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339600.jpg" />
+  <img src="Z:/picture/008/save_picture_339600.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337869.jpg" />
+  <img src="Z:/picture/008/save_picture_337869.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334235.jpg" />
+  <img src="Z:/picture/008/save_picture_334235.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334180.jpg" />
+  <img src="Z:/picture/008/save_picture_334180.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329320.jpg" />
+  <img src="Z:/picture/008/save_picture_329320.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314678.jpg" />
+  <img src="Z:/picture/008/save_picture_314678.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314305.jpg" />
+  <img src="Z:/picture/008/save_picture_314305.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Battle for Marjah (2010) SATRip [EN]
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312775.jpg" />
+  <img src="Z:/picture/008/save_picture_312775.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312626.jpg" />
+  <img src="Z:/picture/008/save_picture_312626.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312306.jpg" />
+  <img src="Z:/picture/008/save_picture_312306.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312131.jpg" />
+  <img src="Z:/picture/008/save_picture_312131.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310837.jpg" />
+  <img src="Z:/picture/008/save_picture_310837.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310031.jpg" />
+  <img src="Z:/picture/008/save_picture_310031.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309117.jpg" />
+  <img src="Z:/picture/008/save_picture_309117.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306571.jpg" />
+  <img src="Z:/picture/008/save_picture_306571.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296654.jpg" />
+  <img src="Z:/picture/008/save_picture_296654.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295671.jpg" />
+  <img src="Z:/picture/008/save_picture_295671.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293900.jpg" />
+  <img src="Z:/picture/008/save_picture_293900.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293130.jpg" />
+  <img src="Z:/picture/008/save_picture_293130.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291216.jpg" />
+  <img src="Z:/picture/008/save_picture_291216.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_290453.jpg" />
+  <img src="Z:/picture/005/save_picture_290453.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289500.jpg" />
+  <img src="Z:/picture/008/save_picture_289500.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289492.jpg" />
+  <img src="Z:/picture/008/save_picture_289492.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289124.jpg" />
+  <img src="Z:/picture/008/save_picture_289124.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A3C6951F1A2C3995AB2397D25EF0BF78CD87566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963618   (287134) от 08.12.2015
-
-Военная приемка. Хризантема. Убийца танков (2015) SATRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287134.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске программы «Военная приёмка» зрители увидят уникальный противотанковый ракетный комплекс, аналогов которому нет в мире.  Эта грозная машина, которая носит романтичное имя «Хризантема», может в одиночку противостоять пяти танкам. Создатели «Хризантемы» – российские конструкторы – наделили ее удивительными свойствами. Во-первых, эта машина может пробивать (   Читать дальше...   )Телекомпания: ОАО ТРК ВС РФ "ЗВЕЗДА"Жанр: ДокументальныйРежиссер: Александр ШильниковПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3867F2254C88AF2A33FB4063B0FFE1D632B9F434
 ```
 
 https://mybot314.ru/tekegram_catalog/

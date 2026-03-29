@@ -1,3 +1,108 @@
+###  Публикация: 342856   (745124) от 04.05.2014
+
+BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиноки ли мы во вселенной? За последнее время люди многое узнали о планетах и звездах Солнечной системы. Известны их размеры, вес и состав, расстояние от каждой планеты до Солнца, а современные астрономические приборы, такие, как радиотелескопы и космические зонды, позволили сделать ряд гипотез о возникновении звезд.
+Сериал ВВС «Планеты» приглашает вас в невероятное (   Читать дальше...   )Производство: Великобритания / A+E Networks, British Broadcasting Corporation (BBC)Жанр: документальныйРежиссер: Дэвид МакНабПеревод: Профессиональный двухголосыйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662B0336A701A79FE59E0BD8B49337C70F45398F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334685   (743873) от 17.07.2020
+
+Тайны невидимого мира / Mysteries of the Unseen World (2013) BDRemux [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм переносит зрителей в места нашей планеты, где они никогда раньше не были, чтобы увидеть вещи, которые находятся за пределами нашего нормального зрения, но буквально прямо перед глазами. "Тайны невидимого мира" показывает явления, которые нельзя увидеть невооруженным глазом, приглашая зрителей в земные миры, которые спрятаны от нас другими масштабами (   Читать дальше...   )Производство: США, Day's End Pictures, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Луи ШварцбергПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0BF4A099E35450330A5321B534E6C7595D9659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020319   (743450) от 27.05.2016
+
+BBC: История возникновения лекарств / BBC: Pain, Pus and Poison (2013) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743450.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сериале британский журналист и врач Майкл Мосли расскажет о том, как были изобретены самые широко используемые и значимые лекарственные средства. Программа рассказывает о том, как наши попытки найти исцеление от самых обычных простуд до смертельных заболеваний, привели нас к осознанию важности химии, а также о том, как лекарства полностью изменили жизнь миллионов (   Читать дальше...   )Производство: BBCЖанр: ДокументальныйРежиссер: Алекс Фриман/Alex FreemanПеревод: Одноголосый закадровый, профессиональныйСубтитры: НетПродолжительность: 3 x ~ 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C742FEB895914038720474F3EFB98AD4C9FEC8F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020690   (743334) от 27.05.2016
+
+Помпеи: новые секреты / Pompeii: New Secrets Revealed with Mary Beard (2016)HDTVRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историк Мэри Бирд отправляется на раскопки древнего города, застывшего во времени из-за извержения вулкана в 79 году н.э. За всё время раскопок было немало рассказано об этом городе, но, тем не менее, секретов у него ещё предостаточно, целая треть города ещё покоится в застывшей лаве, а также мы практически ничего не знаем о том, чьи тела были найдены. Используя (   Читать дальше...   )Производство: Lion Television, At Land Productions production for BBCТелекомпания: BBCЖанр: Документальный, история, исследованияРежиссер: Ян А. ХантПеревод: Одноголосый закадровый, профессиональныйСубтитры: НетФормат: AVIПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8420FBEB7318CA458292E7AFDE3E24D75501ED0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217462   (743238) от 04.04.2018
 
 NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
@@ -6,7 +111,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743238.jpg" />
+  <img src="Z:/picture/008/save_picture_743238.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743216.jpg" />
+  <img src="Z:/picture/008/save_picture_743216.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743206.jpg" />
+  <img src="Z:/picture/008/save_picture_743206.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742489.jpg" />
+  <img src="Z:/picture/008/save_picture_742489.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742281.jpg" />
+  <img src="Z:/picture/008/save_picture_742281.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742061.jpg" />
+  <img src="Z:/picture/008/save_picture_742061.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Discovery: Природа Ближнего Востока / Wildest Middle East 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742029.jpg" />
+  <img src="Z:/picture/008/save_picture_742029.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Animal Planet: Загадочные животные острова Джао / T
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741938.jpg" />
+  <img src="Z:/picture/008/save_picture_741938.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740912.jpg" />
+  <img src="Z:/picture/008/save_picture_740912.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740833.jpg" />
+  <img src="Z:/picture/008/save_picture_740833.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Discovery: Разгневанная планета (Бушующая плане�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740647.jpg" />
+  <img src="Z:/picture/008/save_picture_740647.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740309.jpg" />
+  <img src="Z:/picture/008/save_picture_740309.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740094.jpg" />
+  <img src="Z:/picture/008/save_picture_740094.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739593.jpg" />
+  <img src="Z:/picture/008/save_picture_739593.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ Animal Planet: Дом для рептилий. Террариум в балий�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739591.jpg" />
+  <img src="Z:/picture/008/save_picture_739591.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739518.jpg" />
+  <img src="Z:/picture/008/save_picture_739518.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739515.jpg" />
+  <img src="Z:/picture/008/save_picture_739515.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739410.jpg" />
+  <img src="Z:/picture/008/save_picture_739410.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739399.jpg" />
+  <img src="Z:/picture/008/save_picture_739399.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738347.jpg" />
+  <img src="Z:/picture/008/save_picture_738347.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738341.jpg" />
+  <img src="Z:/picture/008/save_picture_738341.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2021) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738043.jpg" />
+  <img src="Z:/picture/008/save_picture_738043.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2021) H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D3CF67974F60BB8A311835ADB8B7751F3B93B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527553   (736333) от 29.01.2022
-
-NG. Непокорный остров / Port Protection (Lawless Island) (2021) WEB-DL [H.264/1080p] (сезон 6, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изменчивый климат юго-востока Аляски постоянно бросает вызовы жителям небольшого поселка Порт Протекшн, живущим на самом краю цивилизации. Гэри старательно выполняет свои обязанности отца семейства, запасаясь припасами, Керли пытается противостоять жизненным невзгодам после постигшей его страшной утраты, Мэри старается скрыть свой страх перед предстоящим выживанием (   Читать дальше...   )Производство: США, Adjacent Productions, National GeographicЖанр: документальный, природа, выживаниеПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: серии x ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA45564CAAD09827D7B258EB148738243B652DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398307   (736034) от 25.07.2020
-
-Тайны анатомии (Кровеносная система) (2019) WEBRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она переносит кислород, питательные вещества и гормоны по всему организму, уносит из него отходы. Она помогает поддерживать температуру тела, уровень рH, защищает нас от инфекций, старается не покидать нас даже в самых тяжелых жизненных ситуациях и может рассказать о нас гораздо больше, чем любой документ. Все это — человеческая кровь. Одна из самых загадочных и (   Читать дальше...   )Телекомпания: Россия, ООО "ЕМГ"Жанр: Документальный, исследование, наукаРежиссер: Яна ВарлашкинаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B748FD48188423431C9ACCFD887FCA9175A3C28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398305   (736033) от 25.07.2020
-
-Тайны анатомии (Нервная система) (2019) WEBRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она первой реагирует на любые изменения внешней среды. Ее ответ является быстрым, точным и адресным. Она защищает, отдает приказы и передает информацию. Она умеет запоминать, обучаться, действовать на автомате и подчиняться нашим волевым усилиям. Без неё организм превратится в бессмысленный набор клеток. Это — нервная система. Одна из самых сложных и загадочных структур (   Читать дальше...   )Телекомпания: Россия, ООО "ЕМГ"Жанр: Документальный, исследование, наукаРежиссер: Яна ВарлашкинаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296C716C917D267CE69C54C8F0826AD1E0C5AC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528422   (734883) от 01.02.2022
-
-Опасные товары / Broken (2019) WEB-DL [H.264/1080p] (серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия документальных расследований расскажет, как халатность и обман в производстве и сбыте популярных потребительских товаров могут привести к ужасным последствиям.Производство: США, Zero Point Zero, NetflixЖанр: документальный, научно-популярный, исследованияРежиссер: Сара Холм Йохансен, Стив РивоПеревод: многоголосый профессиональный (Пифагор)Субтитры: Русские - Full / Forced (Екатерина Гребеньщикова, И. Великанова, Елена Гердова); Английские - SDH / Full / ForcedПродолжительность: серии x ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9017522D5301914B6C807B64D5478E9A173F3FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

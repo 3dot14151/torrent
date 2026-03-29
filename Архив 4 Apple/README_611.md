@@ -1,3 +1,111 @@
+###  Публикация: 1431840   (166255) от 15.12.2020
+
+iSnow 2.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166255.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSnow - новогоднее приложение придаст вам ярких впечатлений под Новый год. Пусть идет снег на вашем рабочем столе, и пусть Санта и его олени летают вокруг вашего монитора. В то время как снег накапливается над вашими окнами, где-то бредёт белый медведь.
+Есть много возможностей контролировать снегопад, ветер, красный нос Рудольфа, размер снежинок, Санту, медведя, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2020Разработчик: Rick JansenПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B543543379285F1E430FD01419AD956760A52B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431911   (166253) от 15.12.2020
+
+TinkerTool System 7 v7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166253.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X.
+
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0285E890C383F3CB66F611E4FABA14017A108985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673279   (166249) от 31.10.2023
+
+SimpleMind − Mind Mapping 2.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
+SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © 2009-2023, ModelMaker Tools - SimpleAppsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575D4584DBAFFB57FA9BC95DBACDADE373197401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431873   (166246) от 15.12.2020
+
+Hides 5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повысьте производительность с помощью Hides!Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA65D0FD99193CAB7FA58729A74A0AC08FF8271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431846   (166235) от 15.12.2020
 
 Audio Ease Snapper 3.0.5 [En]
@@ -6,7 +114,7 @@ Audio Ease Snapper 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166235.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Maxon Cinema 4D Studio R21.026 (RB290015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166234.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166193.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Loopback 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166181.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ Alien Skin Exposure X5 Bundle 5.2.0.166 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166135.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Path Finder 10 v10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166124.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ ABBYY Lingvo European 1.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166123.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166076.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ Movavi Screen Recorder 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166049.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ Vectorworks 2021 v26.0.1 SP1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165948.jpg" />
 </div>
 
 
@@ -274,7 +382,7 @@ Compressor 4.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165943.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Xliff Editor 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165916.jpg" />
 </div>
 
 
@@ -328,7 +436,7 @@ CheckBook Pro 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165913.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ Scrutiny 9 v9.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165909.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165899.jpg" />
 </div>
 
 
@@ -407,7 +515,7 @@ Smultron 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165890.jpg" />
 </div>
 
 
@@ -436,7 +544,7 @@ Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165881.jpg" />
 </div>
 
 
@@ -463,7 +571,7 @@ KCNcrew Pack 12-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165871.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ PDF to Pages Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165865.jpg" />
 </div>
 
 
@@ -515,7 +623,7 @@ Tap Forms Organizer 5 5.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165860.jpg" />
 </div>
 
 
@@ -543,7 +651,7 @@ CleanMyMac X 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165839.jpg" />
 </div>
 
 
@@ -571,7 +679,7 @@ FontLab 7 7.0.1 (build 7276) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165812.jpg" />
 </div>
 
 
@@ -582,112 +690,6 @@ FontLab 7, это новая программа, для профессионал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA2641826F86CEDA32077FE8BDDC2D7A724B38E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345828   (165809) от 16.12.2019
-
-Softorino YouTube Converter 2 2.1.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165809.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей Folder Colorizer, одной из программ, сделавших их знаменитыми, вы можете попробовать Softorino YouTube Converter 2, программу для Mac, которая порадует вашу папку «Приложения». Мощный инструмент, который позволяет вам скачивать видео с разных платформ, включая YouTube, Vimeo, Dailymotion и другие подобные VK или SoundCloud.
-
-Своя отличная совместимость (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Softorino Inc.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3431BB9C1497499250F659FA60FA1E4965A935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345682   (165806) от 16.12.2019
-
-iWork Converter 2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активные пользователи iWork не могут пропустить это приложение, ведь одним кликом файл из формата Pages превращается в doc или pdf, Numbers в xls. Самый простой и быстрый конвертер.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tyorex SoftwareПоддерживаемая ОС: macOS 10.7 LionЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386FD066A706147904DC31016243D1D634D4E5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345816   (165801) от 16.12.2019
-
-RazorSQL 9.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165801.jpg" />
-</div>
-
-
-###  Подробнее
-
-RazorSQL – программа для управления основными базами данных внутри одной программы. Программа позволяет запускать SQl запросы, визуально редактировать, создавать, изменять и просматривать таблицы, импортировать и экспортировать данные, создавать запросы в программе создания запросов и просматривать базы данных в навигаторе баз данных. Программа также содержит встроенную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2019Разработчик: Richardson Software, LLCПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFD92ADF787610BEE286D6FCB39A8A9FE0EBF5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345820   (165797) от 16.12.2019
-
-One Switch 1.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165797.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FireballПоддерживаемая ОС: macOS 10.14 MojaveЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB844240EDF786A18612412775FE202FD62B7A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

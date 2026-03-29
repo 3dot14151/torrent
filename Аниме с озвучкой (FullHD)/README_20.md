@@ -1,3 +1,30 @@
+###  Публикация: 1627181   (247050) от 11.07.2023
+
+Великая небесная стена | Иллюзия рaя | Tengoku Daimakyou | Heavenly Delusion [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом аниме нас ожидает мистическое переплетение двух историй из, казалось бы, абсолютно разных миров. Одна из них расскажет нам о событиях в так называемом ""раю"", где туда-сюда снуют взрослые, а дети играют среди зелёных садов и учатся под присмотром заботливых роботов. Этот рай окружён гигантскими стенами, и никто даже не задумывается, что (   Читать дальше...   )Производство: Япония / Студия Production I.GЖанр: ПриключенияРежиссер: Мори ХиротакаЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Hekomi, JazzJack, Kroxxa, WhiteCroW (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581832   (246784) от 24.07.2023
 
 Золотое божество [ТВ-4] | Золотой Камуй | Golden Kamuy (2022) [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
@@ -6,7 +33,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246784.jpg" />
+  <img src="Z:/picture/004/save_picture_246784.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246744.jpg" />
+  <img src="Z:/picture/004/save_picture_246744.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246706.jpg" />
+  <img src="Z:/picture/004/save_picture_246706.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245201.jpg" />
+  <img src="Z:/picture/004/save_picture_245201.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245058.jpg" />
+  <img src="Z:/picture/004/save_picture_245058.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244887.jpg" />
+  <img src="Z:/picture/004/save_picture_244887.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244866.jpg" />
+  <img src="Z:/picture/004/save_picture_244866.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242285.jpg" />
+  <img src="Z:/picture/004/save_picture_242285.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241821.jpg" />
+  <img src="Z:/picture/004/save_picture_241821.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ Yakitori | Yakitori: Soldiers of Misfortune | Якитори [2023, Web, 6] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241403.jpg" />
+  <img src="Z:/picture/005/save_picture_241403.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241372.jpg" />
+  <img src="Z:/picture/004/save_picture_241372.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240888.jpg" />
+  <img src="Z:/picture/004/save_picture_240888.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240623.jpg" />
+  <img src="Z:/picture/004/save_picture_240623.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240599.jpg" />
+  <img src="Z:/picture/004/save_picture_240599.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240554.jpg" />
+  <img src="Z:/picture/004/save_picture_240554.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240035.jpg" />
+  <img src="Z:/picture/004/save_picture_240035.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239934.jpg" />
+  <img src="Z:/picture/004/save_picture_239934.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238952.jpg" />
+  <img src="Z:/picture/005/save_picture_238952.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238789.jpg" />
+  <img src="Z:/picture/005/save_picture_238789.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235763.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234976.jpg" />
+  <img src="Z:/picture/005/save_picture_234976.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234671.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233265.jpg" />
+  <img src="Z:/picture/005/save_picture_233265.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233259.jpg" />
+  <img src="Z:/picture/005/save_picture_233259.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233198.jpg" />
+  <img src="Z:/picture/004/save_picture_233198.jpg" />
 </div>
 
 
@@ -644,32 +671,6 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A949FFDD6C0D6889ADF2FBD9E5FB902850F2FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553425   (233183) от 25.05.2022
-
-Бедствие ли это? | Sounan Desuka? | Are You Lost? [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233183.jpg" />
-</div>
-
-
-###  Подробнее
-
-После авиакатастрофы четыре старшеклассницы оказываются на необитаемом острове. Здесь нет ничего, поэтому они сами должны делать всё! И поедать всё (бе-е-е)! Хоть это и история выживания, но на самом деле у девушек всё хорошо. Пускай жизнь на необитаемом острове и включает в себя поедание цикад, создание солнцезащитного крема, изготовление ножей, охоту на кроликов (   Читать дальше...   )Производство: Студия Ezola, Студия Studio BlancЖанр: Комедия, приключения, этти, сэйнэнРежиссер: Нагаяма НобуёсиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (AniDub), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV), (Crunchyroll)Продолжительность: 12 серий по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A705E3711E23AE25EB0F8D548EF7C9050F921E89
 ```
 
 https://mybot314.ru/tekegram_catalog/

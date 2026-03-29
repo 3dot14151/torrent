@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795362.jpg" />
+  <img src="Z:/picture/008/save_picture_795362.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boxy SVG 3  v3.38.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795358.jpg" />
+  <img src="Z:/picture/008/save_picture_795358.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795351.jpg" />
+  <img src="Z:/picture/008/save_picture_795351.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Smart Defrag 5.0.2.769 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795350.jpg" />
+  <img src="Z:/picture/008/save_picture_795350.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795346.jpg" />
+  <img src="Z:/picture/008/save_picture_795346.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Chrome 50.0.2661.94 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795336.jpg" />
+  <img src="Z:/picture/008/save_picture_795336.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795333.jpg" />
+  <img src="Z:/picture/008/save_picture_795333.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Advanced SystemCare Ultimate 11.0.1.59 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795328.jpg" />
+  <img src="Z:/picture/008/save_picture_795328.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795327.jpg" />
+  <img src="Z:/picture/008/save_picture_795327.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795324.jpg" />
+  <img src="Z:/picture/008/save_picture_795324.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Advanced SystemCare Pro 11.1.0.198 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795323.jpg" />
+  <img src="Z:/picture/008/save_picture_795323.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795321.jpg" />
+  <img src="Z:/picture/008/save_picture_795321.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795311.jpg" />
+  <img src="Z:/picture/008/save_picture_795311.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795306.jpg" />
+  <img src="Z:/picture/008/save_picture_795306.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Total Commander 10.0 MAX-Pack 2021.11.10 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795299.jpg" />
+  <img src="Z:/picture/008/save_picture_795299.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795298.jpg" />
+  <img src="Z:/picture/008/save_picture_795298.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795297.jpg" />
+  <img src="Z:/picture/008/save_picture_795297.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795293.jpg" />
+  <img src="Z:/picture/008/save_picture_795293.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795288.jpg" />
+  <img src="Z:/picture/008/save_picture_795288.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Adguard 2.4.8 (795) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795280.jpg" />
+  <img src="Z:/picture/008/save_picture_795280.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adguard 2.4.8 (795) Release [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795275.jpg" />
+  <img src="Z:/picture/008/save_picture_795275.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Numi 3.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795266.jpg" />
+  <img src="Z:/picture/008/save_picture_795266.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Knots 3D (Узлы 3D) 4.4.1 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795258.jpg" />
+  <img src="Z:/picture/008/save_picture_795258.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VirtualBox 5.0.20 r106931 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795249.jpg" />
+  <img src="Z:/picture/008/save_picture_795249.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795244.jpg" />
+  <img src="Z:/picture/008/save_picture_795244.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795243.jpg" />
+  <img src="Z:/picture/008/save_picture_795243.jpg" />
 </div>
 
 

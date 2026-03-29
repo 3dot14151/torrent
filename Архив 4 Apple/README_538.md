@@ -1,3 +1,110 @@
+###  Публикация: 1640550   (232324) от 18.06.2023
+
+Timer RH PRO  2.11.2 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2023Разработчик: © 2014 3bitlabПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5EA33425F8FE1DD7094A0AE5FFB1D24545C68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643832   (232310) от 03.07.2023
+
+Downie 4.6.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 03.07.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A43770C1BB8ED2954F428DD969E38A343E0CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640791   (232309) от 19.06.2023
+
+RightFont 8.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
+RightFont - менеджер шрифтов с красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2023Разработчик: © 2023 RightFont TeamПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE9BDE0E0C6ECC3EE95481EB12934DB10152BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640898   (232276) от 19.06.2023
+
+GraphicConverter for Mac 12.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232276.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B037FCF917B7993673905453686F206FF4CCE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622064   (232234) от 27.03.2023
 
 ImageRanger Pro Edition 1.9.3.1857 [En]
@@ -6,7 +113,7 @@ ImageRanger Pro Edition 1.9.3.1857 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232234.jpg" />
+  <img src="Z:/picture/005/save_picture_232234.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Dropshare 5.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232219.jpg" />
+  <img src="Z:/picture/005/save_picture_232219.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ NCH MixPad Masters 10.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232197.jpg" />
+  <img src="Z:/picture/005/save_picture_232197.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ URL Manager Pro 6.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232195.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ EdgeView 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232188.jpg" />
+  <img src="Z:/picture/005/save_picture_232188.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Privatus 6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232153.jpg" />
+  <img src="Z:/picture/005/save_picture_232153.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Blocs 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232132.jpg" />
+  <img src="Z:/picture/005/save_picture_232132.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ YT Saver Video Downloader & Converter for Mac 6.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232125.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ PullTube 1.8.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232106.jpg" />
+  <img src="Z:/picture/005/save_picture_232106.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Texifier 1.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232066.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232050.jpg" />
+  <img src="Z:/picture/005/save_picture_232050.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232046.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ FSNotes 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232028.jpg" />
+  <img src="Z:/picture/005/save_picture_232028.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Swinsian 3.0 Preview 7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232009.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ Live Wallpaper & Themes 4K Pro 17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231995.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ Yate 6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231982.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ One Switch 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231975.jpg" />
 </div>
 
 
@@ -459,7 +566,7 @@ Contacts Journal CRM 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231957.jpg" />
+  <img src="Z:/picture/005/save_picture_231957.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ Overlay 4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231947.jpg" />
+  <img src="Z:/picture/005/save_picture_231947.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ Total Video Converter Pro for Mac 5.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231906.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ calibre 6.22.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231888.jpg" />
 </div>
 
 
@@ -565,7 +672,7 @@ VueScan Pro 9.8.10 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231882.jpg" />
 </div>
 
 
@@ -576,112 +683,6 @@ VueScan является приложением для работы со ска�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB59CBE8FA80FB32137FC2A1B6D6212FC9F2D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643057   (231876) от 30.06.2023
-
-iA Writer 6.0.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2023Разработчик: © 2010–2023 Information Architects GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23523ED185001452432777AF9E406E4BB2EDE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643281   (231831) от 01.07.2023
-
-FontLab 8 v.8.2.0.8532 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231831.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2023 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E086E43DD87AE1F6A216234FE90E801F481C469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554870   (231810) от 01.06.2022
-
-Boom 3D 1.3.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boom 3D является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение автоматически калибруется в соответствии с типом компьютера Mac, обеспечивая уникальное персонализированное звучание. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.05.2022Разработчик: © 2021 Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10.3+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470D190FB031763532101B258613253F2852AA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639532   (231744) от 13.06.2023
-
-Feeder 4 v.4.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.06.2023Разработчик: © 2004 - 2022 Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B445E01C1D3BB950CDE4C62133F814B81FA30491
 ```
 
 https://mybot314.ru/tekegram_catalog/

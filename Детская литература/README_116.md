@@ -1,3 +1,29 @@
+###  Публикация: 932085   (510189) от 28.08.2015
+
+Елена Журек | Сказки Изумрудного Леса (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510189.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Изумрудном Лесу происходят удивительные события. С маленькими друзьями – Зайчонком, Лисенком, Ежонком, Бельчонком и другими – случаются самые невероятные приключения. Они становятся настоящими следопытами, спасают заблудившегося котенка, знакомятся с эльфами и ловят падающие звезды. Друзья всегда выручают друг друга из беды, а помогает им Мудрая Сова и ее бездонный (   Читать дальше...   )Жанр: СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8473DEE90C4D75DF9AFCED20CE7B3DA4DEB2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932067   (510187) от 28.08.2015
 
 Н.С. Лесков | Тупейный художник (1922) [PDF, DJVU]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510187.jpg" />
+  <img src="Z:/picture/008/save_picture_510187.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510111.jpg" />
+  <img src="Z:/picture/008/save_picture_510111.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510108.jpg" />
+  <img src="Z:/picture/008/save_picture_510108.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510101.jpg" />
+  <img src="Z:/picture/008/save_picture_510101.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510096.jpg" />
+  <img src="Z:/picture/008/save_picture_510096.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509947.jpg" />
+  <img src="Z:/picture/008/save_picture_509947.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509502.jpg" />
+  <img src="Z:/picture/008/save_picture_509502.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509471.jpg" />
+  <img src="Z:/picture/008/save_picture_509471.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509465.jpg" />
+  <img src="Z:/picture/008/save_picture_509465.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509460.jpg" />
+  <img src="Z:/picture/008/save_picture_509460.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509280.jpg" />
+  <img src="Z:/picture/008/save_picture_509280.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509274.jpg" />
+  <img src="Z:/picture/008/save_picture_509274.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509221.jpg" />
+  <img src="Z:/picture/008/save_picture_509221.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509101.jpg" />
+  <img src="Z:/picture/008/save_picture_509101.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508951.jpg" />
+  <img src="Z:/picture/008/save_picture_508951.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508791.jpg" />
+  <img src="Z:/picture/008/save_picture_508791.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508394.jpg" />
+  <img src="Z:/picture/008/save_picture_508394.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508329.jpg" />
+  <img src="Z:/picture/008/save_picture_508329.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508322.jpg" />
+  <img src="Z:/picture/008/save_picture_508322.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507995.jpg" />
+  <img src="Z:/picture/008/save_picture_507995.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507981.jpg" />
+  <img src="Z:/picture/008/save_picture_507981.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507257.jpg" />
+  <img src="Z:/picture/008/save_picture_507257.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507251.jpg" />
+  <img src="Z:/picture/008/save_picture_507251.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507248.jpg" />
+  <img src="Z:/picture/008/save_picture_507248.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507225.jpg" />
+  <img src="Z:/picture/008/save_picture_507225.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C86C74B61D116DFE222EE16AA142BC46065F0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933208   (507057) от 31.08.2015
-
-Виктор Астафьев | Лучшие рассказы для детей [сборник] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчиком, Виктор Астафьев заблудился в тайге и много дней провел один. А когда в школе все писали сочинение о том, как прошло лето, пятиклассник обо всем этом и написал. Вскоре сочинение было напечатано в школьном журнале «Жив». Так появился первый рассказ для детей «Васюткино озеро» Виктора Петровича Астафьева…Жанр: Советская классическая проза, Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5A0E7B2682D79BFFA6CAFD18795BE90321D145
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1696499   (119736) от 02.02.2024
+
+Пчеловод / The Beekeeper (2024) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчел и не распространяется о своей прошлой жизни. Пожилая соседка рада, что в их край приехал заинтересованный человек, улучшающий природу и экологию. Пасечник часто общается с милой миссис Паркер, которая однажды становится жертвой финансовых мошенников. Аферисты похищают деньги со всех счетов женщины, и (   Читать дальше...   )Производство: Великобритания, США / Miramax, Cedar Park Entertainment, Punch Palace ProductionsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рейвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филишия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный (Jaskier), двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764833FD74899A4D8052C6F251BE2A90CEC160C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695888   (119733) от 02.02.2024
+
+Пчеловод / The Beekeeper (2024) WEB-DLRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адам Клэй живет в тихом пригороде, занимается разведением пчёл и не распространяется о своей прошлой жизни. Он дружит с пожилой соседкой миссис Паркер, у которой арендует сарай. Однажды миссис Паркер становится жертвой кибермошенников, которые похищают деньги со всех её счетов. Не в силах вынести такой удар, женщина сводит счёты с жизнью. Осознав, что закон в данной (   Читать дальше...   )Производство: США, Великобритания / Cedar Park Entertainment, Miramax FilmsЖанр: боевик, триллерРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Эмми Рэйвер-Лэмпман, Бобби Надери, Джош Хатчерсон, Джереми Айронс, Дэвид Уиттс, Михаэль Эпп, Тейлор Джеймс, Филисия Рашад, Джемма РедгрейвПеревод: Многоголосый профессиональный (Jaskier | 18+)Язык озвучки: английскийСубтитры: русские, английские (full, SDH), французскиеПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4B3AF12AA5800B1DA11EFD1874D0988C1EE425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696072   (119731) от 02.02.2024
+
+Тёща (2023) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ольга Николаевна — волевая женщина и начальница ЖКХ, которая вполне довольна своей жизнью. Она хозяйка дома и на работе, полностью контролирует своего мужа Романа Павловича и оберегает дочь Варю. Единственный, кто не вписывается в её счастливую картину мира, — это зять Виктор, от которого на днях должна родить горячо любимая дочка. И вот однажды шквал взаимных претензий (   Читать дальше...   )Производство: Россия / Берг Саунд, Кинокомпания «Темп»Жанр: комедияРежиссер: Аскар УзабаевАктеры: Лариса Гузеева, Гарик Харламов, Настасья Самбурская, Александр Лыков, Марк Богатырев, Никита Тарасов, Анна Уколова, Толепберген Байсакалов, Жаныл Асанбекова, Ёла СанькоПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEB5D61752F4D80CC270F9CB9021DC1C4A6FEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695200   (119585) от 03.02.2024
+
+Догмен / Dogman (2023) BDRemux [H.264/1080p] [Полная версия]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попавшегося полиции странного мужчину в инвалидной коляске, у которого фургоне обнаружили стаю разнопородных собак, а в месте его проживания — несколько трупов, допрашивает психиатр-криминалист. Тот охотно рассказывает о своём трудном детстве: как жестокий отец посадил его в клетку к псам, из-за чего у мальчика развилась с животными невероятная эмоциональная связь (   Читать дальше...   )Производство: Франция / Luc Besson ProductionЖанр: боевикРежиссер: Люк БессонАктеры: Калеб Лэндри Джонс, Джоджо Т. Гиббс, Кристофер Денэм, Клеменс Шик, Джон Чарльз Агилар, Грэйс Пальма, Ирис Бри, Мариза Беренсон, Lincoln Powell, Alexander SettineriПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (forced, full)Продолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B766B6F3812BC03C7A92C549D3472027EDEF8635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977063   (119578) от 03.02.2024
+
+Книжная серия | Мастера фантазии [96 книг] (2006-2023) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастера фэнтези - серия переводной фантастики (как это ни странно) и фэнтези издательства «АСТ». Изначально серия не имела официального названия, но из-за того, что первыми томами в ней были книги Джорджа Мартина в издательских прайсах её обозначали «под Мартина».
+
+У серии можно выделить несколько периодов жизни.
+В первый, продлившийся с 2006 по 2010 год в ней издавалось (   Читать дальше...   )Жанр: Героическая фантастика, Зарубежная фантастика, Боевое фэнтезиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5ECDC67F6B0B713455162D1F0299AD819261B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696129   (119577) от 03.02.2024
+
+MetaStealer пытается выдать себя за сертификат Минцифры
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалисты компании FACCT (бывшая Group-IB) предупредили, что перехватили фишинговые письма, отправленные якобы от лица Минцифры.В этих посланиях жертвам предлагается срочно установить сертификат безопасности Минфицры, а иначе у них якобы возникнут проблемы с доступом к онлайн-банкингу и «Госуслугам». На деле под видом сертификата распространяется стилер MetaStealer (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696093   (119541) от 03.02.2024
 
 Крупнейший оператор проката Hertz распродает 20 000 автомобилей Tesla
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119541.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119403.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119398.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119287.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119028.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ Avast Premium Security 24.1.6099 RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118708.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118670.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118225.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ God of War (2022) [Ru/En] (1.0.475.7534) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118208.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ Smart AudioBook Player Pro v10.6.4 Mod by Balatan [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118058.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2032.0 (11.02.2024) RePack
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117895.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ SolidWorks 2024 SP1.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117123.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117120.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117119.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ Grime (2021) [Ru/Multi] (1.3.5/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117117.jpg" />
 </div>
 
 
@@ -400,7 +559,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2071.0 (10.02.2024) RePack 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116979.jpg" />
 </div>
 
 
@@ -426,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116806.jpg" />
 </div>
 
 
@@ -452,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116757.jpg" />
 </div>
 
 
@@ -479,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116309.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ Counter-Strike 1.6 (2003) [Ru/Multi] (1.1.2.5/pv48/b4554) Repack CSDnet
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116301.jpg" />
 </div>
 
 
@@ -517,168 +676,6 @@ Counter-Strike 1.6 - культовый многопользовательски
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6D11D92CE86FB2DF77702EFFF80D40570ABB04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701907   (116150) от 23.02.2024
-
-Затерянные в Рио Браво / Taken from Rio Bravo (2024) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116150.jpg" />
-</div>
-
-
-###  Подробнее
-
-1874 год, Восточный Техас. Двое друзей преследуют группу садистов-торговцев людьми, которые похитили пять женщин. Вместе с индейским разведчиком они должны как можно быстрее найти и освободить женщин, пока торговцы не продали их в качестве секс-рабынь на мексиканской границе.Производство: США / Hollywood StormЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Джо Корнет, Синтия Ротрок, Маттиас Хьюз, Дон Уилсон, Ирина Антоненко, Джон Мак, Джеймс Чок, Мария ПэрисПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAE121479A7F7718DCA90C81B66016A6B7D4C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702447   (115943) от 24.02.2024
-
-Areaweb | Laravel — создание крутого API (2024) WEB-DL [AD] [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс: Laravel — создание крутого API от Areaweb.
-В этом курсе мы полностью разберемся с понятием REST API и научимся писать свои собственный запросы используя лучшие практики на Laravel.Производство: AreawebЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:14:50Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D86D6DEE67A8959E87BE206B1E1F55710E1BD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701885   (115784) от 25.02.2024
-
-10 сказочных персонажей в разных экранизациях. Кто же лучше?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115784.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время на экраны вышло много новых версий знакомых нам с детства сказок. Вот только их герои выглядят уже совершенно по-другому. Некоторые из них и вовсе превратились в персонажей мрачного городского фэнтези. Взять хотя бы Бабу-ягу, которая устраивается работать няней и ворует детей, или Царевну-Лебедь, живущую в мире антиутопии.Василиса© Василиса Прекрасная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702091   (115454) от 27.02.2024
-
-Кинг Конг / King Kong (2005) HybridRip [AV1/2160p] [4K, SDR, 10-bit]  [Open Matte] [Extended Cut] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115454.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1930-м году съемочная группа под предводительством режиссера-неудачника Карла Дэнхэма отправляется на загадочный Остров Черепа неподалеку от Суматры, чтобы изучать легенды о гигантской горилле по кличке Конг. По прибытии не место они обнаруживают, что Кинг Конг и правда существует.
-Горилла живет в самой чаще непроходимых джунглей, где помимо него, спрятанные от (   Читать дальше...   )Производство: Германия, США, Новая Зеландия / Universal Pictures, WingNut FilmsЖанр: боевик, драма, мелодрама, приключения, фэнтезиРежиссер: Питер ДжексонАктеры: Наоми Уоттс, Эдриан Броуди, Джек Блэк, Томас Кречман, Энди Серкис, Колин Хэнкс, Джейми Белл, Кайл Чандлер, Эван Парк, Лобо ЧанПеревод: Дублированный, многоголосый закадровый (Киномания)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 03:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153C13E7AEF701CAA40292BAF4ADBE00CFE42444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052869   (115282) от 28.02.2024
-
-Dire Straits - 13 Albums, 2 Box Set, Promo, Single, EP, CDVideo (1978 - 2023) 73 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock, Classic Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что Dire Straits возникли в тот момент, когда наибольшей популярностью в Англии пользовались панк-рок и "новая волна", музыка группы, в которой явственно прослеживались американские блюзовые традиции, имела настолько высокую "пробу", что, по существу, определила мэйнстрим рока восьмидесятых годов.
-Dire Straits собрал бывший преподаватель (   Читать дальше...   )Список альбомов:
-1978 - Dire Straits
-1979 - Communique
-1980 - Making MoviesЖанр: Blues Rock, Classic RockПродолжительность: 54:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FAA9C275FA2F2F6F5B4FF56770B57CF4085ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 150013   (115280) от 28.02.2024
-
-Звездные врата: Вселенная / Stargate: Universe (2009) HDTVRip [H.264/720p] (сезон 1, серии 1-20 из 20) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сериал знаменитой фантастической саги "Звездные врата" рассказывает о судьбе группы военных, ученых и гражданских, которые стараются спастись через Звездные врата от внезапного нападения на их секретную базу. Выжившие оказываются на борту корабля Древних, который следует неизвестным курсом далеко за пределами Млечного Пути, без возможности вернуться (   Читать дальше...   )Производство: Канада, США / MGM Television, SyfyЖанр: Фантастика, Драма, ПриключенияРежиссер: Энди МикитаАктеры: Роберт Карлайл, Луис Феррейра, Брайан Джей Смит, Элайза Леверскью, Дэвид Блу, Алайна Хаффман, Джамиль Уолкер Смит, Минг-На, Лу Даймонд ФиллипсПеревод: Многоголосый профессиональный (LostFilm)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E453E69A212078E99919A4B3C5F971DA56F651DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

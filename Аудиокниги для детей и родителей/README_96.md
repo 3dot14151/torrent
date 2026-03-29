@@ -1,3 +1,82 @@
+###  Публикация: 443791   (48234) от 01.08.2024
+
+Марсель Эме | Сказки кота Мурлыки. Красная книга (2010) [MP3, Кирилл Петров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсель Эме (1902–1967) – французский писатель прозаик, драматург, автор комедий, романов, сказок и новелл. Марсель Эме оставил за собой огромное творческое наследие: 17 романов, несколько сборников рассказов, пьес, сказок, сценариев. Марселю Эме блестяще удавались не только серьезные книги для взрослых, но и детские произведения. Критики называют его продолжателем (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Нигде не купишьПродолжительность: 03:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC38FC019D6DCDD8E33ECC4F1AFFF7F98F00EF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443794   (48223) от 01.08.2024
+
+Марсель Эме | Сказки кота Мурлыки. Синяя книга (2010) [MP3, Кирилл Петров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсель Эме (1902–1967) – французский писатель прозаик, драматург, автор комедий, романов, сказок и новелл. Марсель Эме оставил за собой огромное творческое наследие: 17 романов, несколько сборников рассказов, пьес, сказок, сценариев. Марселю Эме блестяще удавались не только серьезные книги для взрослых, но и детские произведения. Критики называют его продолжателем (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Нигде не купишьПродолжительность: 04:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D5082BB62B181C06A3CE3955164EE08B7CDB2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305227   (47814) от 05.08.2024
+
+Лаймен Фрэнк Баум | Волшебник из Страны Оз (Книга 2). Чудесная Страна Оз (2010) [MP3, Геннадий Храпунков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Театральный фонограф.
+Лаймен Фрэнк Баум (1856–1919) – американский журналист, драматург, автор детских рассказов. Хотя Баум написал более семи десятков детских книг, его известность базируется в основном на книге о «Волшебнике...» и других историях о стране Оз, во всех из которых особое значение придается таким американским добродетелям, как практичность, (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаВ ролях: Геннадий Храпунков, Сергей Щепачёв и др.Перевод: Ирина ВоскресенскаяИздательство: ООО «АрМир»Продолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2A1820E37B1BB6563F65814824CB167DBF633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 437787   (47813) от 05.08.2024
 
 Лаймен Фрэнк Баум | Волшебник из Страны Оз (Книга 5). Путешествие в Страну Оз (2011) [MP3, Геннадий Храпунков и др.]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47813.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47804.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47789.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47784.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47778.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47731.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47385.jpg" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47349.jpg" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47317.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47234.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46942.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46787.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46767.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46656.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46158.jpg" />
 </div>
 
 
@@ -411,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46155.jpg" />
 </div>
 
 
@@ -438,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46127.jpg" />
 </div>
 
 
@@ -465,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44971.jpg" />
 </div>
 
 
@@ -491,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44769.jpg" />
 </div>
 
 
@@ -518,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44269.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43956.jpg" />
 </div>
 
 
@@ -573,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43354.jpg" />
 </div>
 
 
@@ -602,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43243.jpg" />
 </div>
 
 
@@ -613,90 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F8D5B6553A271020F03553DE23A5F35A477BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382623   (42596) от 24.09.2024
-
-Януш Корчак | Король Матиуш на необитаемом острове (2007) [MP3, Ольга Вяликова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Януш Корчак (1878–1942) – польский детский писатель и педагог.
-«Король Матиуш на необитаемом острове» – продолжение повести «Король Матиуш Первый». Эти философские сказки стали классикой детской литературы и завоевали сердца миллионов детей и взрослых во всем мире. Динамичный сюжет в книге сочетается с удивительно трогательными моментами, которые не оставят равнодушными (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказочная повестьПеревод: Наталья ПодольскаяИздательство: Студия «АРДИС»Продолжительность: 07:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8688D0B413668914B626DF3F8E25F1088C6F0F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382618   (42567) от 24.09.2024
-
-Януш Корчак | Король Матиуш I (Радиоспектакль) (2007) [MP3, Лев Дуров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Януш Корчак (1878–1942) – польский детский писатель и педагог.
-Представьте, что страной будут управлять не король, важные министры и советники, а маленький принц Матиуш и его друзья – обычные мальчишки и девчонки.
-Вы думаете, у них ничего не получится?
-Что это будет несерьезно?(   Читать дальше...   )Жанр: Зарубежная литература для детей, сказочная повестьПродолжительность: 03:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A6152EC261F9A945428372ED39E4AA71318F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382622   (42561) от 24.09.2024
-
-Януш Корчак | Король Матиуш Первый (2007) [MP3, Екатерина Хлыстова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Януш Корчак (1878–1942) – польский детский писатель и педагог.
-«Король Матиуш Первый» – философская сказка, ставшая классикой детской литературы и завоевавшая сердца миллионов детей и взрослых во всем мире. Трогательные моменты, которые не оставят равнодушными ни одного слушателя, сочетаются в этой повести с динамичным сюжетом. Маленькому (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказочная повестьПеревод: Наталья ПодольскаяИздательство: Студия «АРДИС»Продолжительность: 08:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF90471CE5B5BDF7E8B1E03B68BB13F8B33C28FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

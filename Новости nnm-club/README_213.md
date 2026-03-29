@@ -1,3 +1,162 @@
+###  Публикация: 1262970   (290692) от 17.11.2018
+
+A Way Out (2018) [Ru/Multi] (1.0.62) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игры Brothers - A Tale of Two Sons представляют вам A Way Out, приключение, предназначенное исключительно для совместного прохождения. Вам предстоит сыграть роль одного из двух заключенных, затеявших дерзкий побег из тюрьмы.Тип издания: RepackРазработчик: HazelightЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0446ADA15644322AD1EC9E31C10F881CBEED17F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145039   (290649) от 21.12.2009
+
+Мерлин / Merlin (2008) TVRip / Сезон 2 (13 серий из 13) / [WestFilm.TV]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство Камелот погружено в хаос. Чародейство и волшебство сеют смуту среди людей. Пришедший к власти Утер Пендрагон запрещает колдовство под страхом смерти, изгоняет волшебников, убивает всех драконов, оставляя в назидание лишь одного. Через 20 лет в Камелот прибывает Мерлин, уроженец маленькой деревушки, рождённый с волшебными способностями. Он становится помощником (   Читать дальше...   )Жанр: Фэнтези, Приключения, ДрамаРежиссер: James HawesАктеры: Colin Morgan, John Hurt, Anthony Head, Katie McGrath, Eve Myles, Richard Wilson, Caroline Faber, Gary Oliver, Ed Coleman, Bradley James, Angel Coulby, Louise DylanПеревод: Двухголосный закадровыйЯзык субтитров: русский, английскийПродолжительность: ~43 минуты серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185710   (290622) от 22.11.2017
+
+TechSmith Camtasia Studio 9.1.1 Build 2546 RePack by KpoJIuK  [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia Studio - мощная утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели. Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI. Сделанное при помощи программы видео можно экспортировать в один (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B5CF408A88F8742E29CBE19BCDE9730754FC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185597   (290620) от 22.11.2017
+
+Winamp Pro 5.666 Build 3516 Final Repack by elchupacabra (21.11.2017)  [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winamp – популярный, проверенный временем медиаплеер. Воспроизводит файлы в форматах MP3, OGG, AAC, WAV, MOD, XM, S3M, IT, MIDI и т.д., поддерживает воспроизведение видео (AVI, ASF, MPEG, NSV). Есть возможность смены скинов, большое количество настроек и параметров, модуль визуализации, медиа-библиотека и многое другое.Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446C920F61BF92B38D03A96ACC239DFD15C6CB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334518   (290589) от 31.10.2019
+
+⚡ Tutanota: Почему «социальное рейтингование» — это страшно
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_290589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Массовая слежка повсюду вокруг нас, и потенциальные последствия должны волновать вас.
+Это неделя свободных высказываний [скорее всего, намёк на речь Цукерберга и заявление ProtonMail. — редакция]. Так давайте же взглянем на худшего врага свободы слова: массовую слежку и её последствия. Современная форма массовой слежки — онлайн-наблюдение — проста, дешева и молниеносна. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334748   (290516) от 31.10.2019
+
+WebForMySelf | Python. Полное руководство (2019) [unpacked]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый раздел является квинтэссенцией тщательно отобранной (только то, что востребовано и применимо в реальной жизни) актуализированной исчерпывающей теоретической базы по Питону последней версии и многочисленных практических занятий для обязательного закрепления полученных знаний и самопроверки.
+
+Второй большой раздел видеокурса полностью посвящен изучению библиотеки (   Читать дальше...   )Жанр: Программирование, PythonФормат: unpackedПродолжительность: 23:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7479FBC8246BA64A4F66EC84241435C7079AA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963176   (290433) от 06.12.2015
 
 Проекты - VideoHive - Photo Projector (v.1) - 13503218 [AEP]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290433.jpg" />
+  <img src="Z:/picture/008/save_picture_290433.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290422.jpg" />
+  <img src="Z:/picture/008/save_picture_290422.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Townsmen (2016) [Ru/Multi] (1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289267.jpg" />
+  <img src="Z:/picture/008/save_picture_289267.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289266.jpg" />
+  <img src="Z:/picture/008/save_picture_289266.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ KMSAuto Net 2016 1.4.9 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289263.jpg" />
+  <img src="Z:/picture/008/save_picture_289263.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288987.jpg" />
+  <img src="Z:/picture/008/save_picture_288987.jpg" />
 </div>
 
 
@@ -168,7 +327,7 @@ Microsoft Windows 10 Professional VL x86-x64 1809 RS5 RU by OVGorskiy 11.2018 2D
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288888.jpg" />
+  <img src="Z:/picture/008/save_picture_288888.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288736.jpg" />
+  <img src="Z:/picture/008/save_picture_288736.jpg" />
 </div>
 
 
@@ -220,7 +379,7 @@ Windows 10 1909 Professional x64 Matros v10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288733.jpg" />
+  <img src="Z:/picture/008/save_picture_288733.jpg" />
 </div>
 
 
@@ -247,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288730.jpg" />
+  <img src="Z:/picture/008/save_picture_288730.jpg" />
 </div>
 
 
@@ -273,7 +432,7 @@ Uninstall Tool 3.4.4 Build 5416 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288628.jpg" />
+  <img src="Z:/picture/008/save_picture_288628.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287519.jpg" />
+  <img src="Z:/picture/008/save_picture_287519.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287266.jpg" />
+  <img src="Z:/picture/008/save_picture_287266.jpg" />
 </div>
 
 
@@ -354,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287213.jpg" />
+  <img src="Z:/picture/008/save_picture_287213.jpg" />
 </div>
 
 
@@ -380,7 +539,7 @@ ITVDN | Серия уроков HowTo (2016) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287188.jpg" />
+  <img src="Z:/picture/008/save_picture_287188.jpg" />
 </div>
 
 
@@ -406,7 +565,7 @@ Nero Burning ROM 2017 18.0.01000 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287175.jpg" />
+  <img src="Z:/picture/008/save_picture_287175.jpg" />
 </div>
 
 
@@ -432,7 +591,7 @@ MSActBackUp 1.1.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287173.jpg" />
+  <img src="Z:/picture/008/save_picture_287173.jpg" />
 </div>
 
 
@@ -458,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287162.jpg" />
+  <img src="Z:/picture/008/save_picture_287162.jpg" />
 </div>
 
 
@@ -486,7 +645,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (24037) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287092.jpg" />
+  <img src="Z:/picture/008/save_picture_287092.jpg" />
 </div>
 
 
@@ -512,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287076.jpg" />
+  <img src="Z:/picture/008/save_picture_287076.jpg" />
 </div>
 
 
@@ -523,165 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270074   (287044) от 14.12.2010
-
-Сказ о розовом зайце (2010) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Провинциальный парень Ерлан, студент 3 курса одного из алматинских ВУЗов. Он приехал в город в надежде добиться успеха в будущем. Среда «золотой молодежи» куда он попадает, оказалось непростой. У нее свои законы, собственные порядки, и для того, чтобы сохранить свои моральные принципы, многое придется заново пережить и испытать.Производство: Казахстан, Студия КазахфильмЖанр: ДрамаРежиссер: Фархат ШариповАктеры: Ануар Нурпеисов, Максим Акбаров, Карлыгаш Мухамеджанова, Фархад Абдраимов, Бахтияр Кожа, Мурат Бисенбин, Саят ИсембаевСубтитры: ОтсутствуютПродолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C65B494BC34B9175273461583D2A8616200328B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270401   (287040) от 14.12.2010
-
-Disciples III: Resurrection / Disciples 3: Орды нежити [Ru] (Repack) 2010 | cdman
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disciples III: Resurrection – грандиозное продолжение серии!
-Новая веха в истории Невендаара, где в главной роли выступит безжалостная и беспощадная раса – Орды Нежити. Это история самоотверженной любви и неувядающей славы, в которой лишённые жизни, но не лишившиеся способности чувствовать герои вершат страшную месть во имя богини смерти Мортис.Тип издания: РепакЖанр: Add-on / Strategy (Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D0D16E0B1B212ADADA576D5F72394C4CB43E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186281   (286967) от 24.11.2017
-
-Davinci Resolve Studio 14.1.1.005 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если верить описанию разработчика, то программа DaVinci Resolve мощная система как отвечающая за цветокоррекцию так и за профессиональный нелинейный монтаж. Если вам нужно понятными инструментами выполнить монтаж, поиграть с цветовыми параметрами, выполнить обработку конечного продукта в едином интерфейсе, то вероятно данная разработка будет вам полезна. Опять, возвращаясь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93665F2C6681C8FE04C6F4A3F08BDAA2B1E791B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398203   (286771) от 12.12.2013
-
-(MP4 176х144) Смешарики. 401 серия без заставок (мод-artem7711) (2003-2013) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вырезаны заставки в начале каждой серии:
-список серий и оригинал: Смешарики 215 серий + Пин-код, Новые приключения, Смешалости 111 серий в 3D + Азбуки 54 серииЖанр: Короткометражный, Семейный, АнимацияРежиссер: Денис Чернов, Илья Максимов, Алексей Горбунов, Джангир Сулейманов, Алексей Лебедев, Дмитрий ЯковенкоАктеры: Крош, Ёжик, Нюша, Бараш и Копатыч, Совунья, Лосяш, Кар-Карыч, ПинПеревод: ОтсутствуетПродолжительность: 221 х 00:06:09, 40 х 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D10775B504C11FF0AF94956842EBA2B79AE2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714847   (286757) от 12.12.2013
-
-Отбросы / Плохие / Долбанутые / Misfits (2013) HDTV [720p] [сезон 5 полностью, серии 1-8 из 8] (Кубик В Кубе)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал повествует о буднях молодых нарушителей закона, которые отрабатывают на общественных работах. Но если бы все так было просто... Еще не так давно, во время грозы, некоторые жители города получили различные способности. От управления сыром до бессмертия. И по великой случайности, у всех, кто отрабатывает в общественном центре, есть способности. Это способности (   Читать дальше...   )Жанр: Комедия, Криминал, ФантастикаРежиссер: Том Грин, Том ХарперАктеры: Натан МакМюллен, Карла Кром, Иван Реон, Лорен Соча, Роберт ШиэнПеревод: Двухголосый закадровый, профессиональныйПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D7629C19D2BEDE5F28A624BC37C00870D5B38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962655   (286751) от 08.12.2015
-
-Денис Борисов | Я 2.0. Твое обновление (2015) PCRec, PDF [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я 2.0 - это инструкция как трансформировать свою личность на новый, более продвинутый, уровень. Вы хотите получать от жизни желаемое? Именно это и называется быть счастливым. Именно на это и направлено данное пособие. В чем его суть?
-В РЕЗУЛЬТАТЕ! Вам будет дано множество КОНКРЕТНЫХ ШАГОВ, которые позволят вам стать ДРУГИМ в СЛЕДУЮЩЕМ ГОДУ! То что вы представляете (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D139CAD375573F3AE1BB8450AF8FB97CD80446CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

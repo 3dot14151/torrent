@@ -1,3 +1,84 @@
+###  Публикация: 1277570   (766809) от 28.01.2019
+
+Антуан де Сент-Экзюпери  | Маленький принц [«Moroz Records»] [1961 / 2003, lossless]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Философско-аллегорическая сказка - гимн хрупким, но прочным связям, узам братства и любви, чистым, ответственным и бескорыстным отношениям, объединяющим людей, если они способны отбросить всё ложное, суетное, своекорыстное, пробудить в себе вечно юную и прекрасную душу - душу ребёнка...Жанр: аудиоспектакльПродолжительность: 1:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DABA907AFFC008FB5117927F6D60491568FFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277459   (766797) от 28.01.2019
+
+Радионяня | Как себя вести * Мамины помощники * Занимательная грамматика * Смешные рассказы * Весёлые уроки [«Два жирафа»] [1972-1987 / 2002, lossless, 5CD]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная образовательная программа для младших школьников на всесоюзном радио в 1970-1980-х годах. Шла в эфире в первое воскресенье месяца. Идею радиопередачи предложила и разработала редактор Всесоюзного радио Елена Лебедева. Авторами являлись Эдуард Успенский, Аркадий Хайт, Лион Измайлов, Ефим Смолин и многие другие поэты и писатели-юмористы. Автор текста знаменитой (   Читать дальше...   )1. Весёлый урок «Физика: природа звука»
+2. Песня «Звук»
+3. Смешные случаи на уроках # 1
+4. Весёлый урок «Зоология: млекопитающие и их классификация»(   Читать дальше...   )Жанр: Радиопередача / радиоспектакльПродолжительность: 0:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7AE5002A07E92C114E6067000922DABEE8BDDAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277637   (766795) от 28.01.2019
+
+Николай Носов | Приключения Незнайки. Незнайка-путешественник [«Extraphone»] [1961 / 1996, lossless]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже не одно поколение маленьких читателей смеются над веселыми историями из жизни коротышек из Цветочного города. Веселые и поучительные — и просто очень интересные и заманчивые приключения Незнайки погружают ребенка в сказочный добрый мир!Жанр: Музыкальная сказка / инсценировка / аудиоспектакльПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A0F3E97BDE413B383F8B5D782E256C1703DC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277408   (766750) от 28.01.2019
 
 Библейские Истории [«Мелодия»] [1988 / 2012, lossless, 8CD Box Set]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766750.jpg" />
+  <img src="Z:/picture/008/save_picture_766750.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764438.jpg" />
+  <img src="Z:/picture/008/save_picture_764438.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764427.jpg" />
+  <img src="Z:/picture/008/save_picture_764427.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764098.jpg" />
+  <img src="Z:/picture/008/save_picture_764098.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763752.jpg" />
+  <img src="Z:/picture/008/save_picture_763752.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763745.jpg" />
+  <img src="Z:/picture/008/save_picture_763745.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763599.jpg" />
+  <img src="Z:/picture/008/save_picture_763599.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763542.jpg" />
+  <img src="Z:/picture/008/save_picture_763542.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762302.jpg" />
+  <img src="Z:/picture/008/save_picture_762302.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762293.jpg" />
+  <img src="Z:/picture/008/save_picture_762293.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762291.jpg" />
+  <img src="Z:/picture/008/save_picture_762291.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760985.jpg" />
+  <img src="Z:/picture/008/save_picture_760985.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760523.jpg" />
+  <img src="Z:/picture/008/save_picture_760523.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759979.jpg" />
+  <img src="Z:/picture/008/save_picture_759979.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756775.jpg" />
+  <img src="Z:/picture/008/save_picture_756775.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756507.jpg" />
+  <img src="Z:/picture/008/save_picture_756507.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755066.jpg" />
+  <img src="Z:/picture/008/save_picture_755066.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754000.jpg" />
+  <img src="Z:/picture/008/save_picture_754000.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753953.jpg" />
+  <img src="Z:/picture/008/save_picture_753953.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752356.jpg" />
+  <img src="Z:/picture/005/save_picture_752356.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746628.jpg" />
+  <img src="Z:/picture/008/save_picture_746628.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746626.jpg" />
+  <img src="Z:/picture/008/save_picture_746626.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746553.jpg" />
+  <img src="Z:/picture/008/save_picture_746553.jpg" />
 </div>
 
 
@@ -599,87 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11CEC1F6110FF82FE1D114209A5D014F3B62FD0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396746   (745588) от 16.07.2020
-
-Анна Могилёва | Юна - ученица волшебника. Книга 1 (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юна — ученица волшебника» — это иллюстрированная сказка о работе, магии, приключениях и других мирах. Тёплая уютная книга, к которой можно обратиться, когда грустно, непонятно, и кажется, что ничего не получится.
-Выбрать профессию сложно, освоить — ещё сложнее. Особенно, когда нужно не просто учиться, но и взрослеть: искать себя, бороться с детскими страхами, преодолевать (   Читать дальше...   )Жанр: Детская литература, ФэнтезиПродолжительность: 06:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CF6BA759E5D977374772AE3282B1031146C136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524372   (745195) от 15.01.2022
-
-Александр Мелентьевич Волков | Жёлтый туман (2013) [MP3, Алексей Борзунов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745195.jpg" />
-</div>
-
-
-###  Подробнее
-
-И вновь Волшебной стране угрожает опасность. Проспав пять тысяч лет, злая колдунья Арахна, проснувшись, обнаруживает вокруг себя Волшебную страну, с добрыми беззащитными жителями. С помощью своих подданных - гномов, колдунья изучила историю страны, прошедшую за время её отсутствия и решила подчинить себе все народы, населяющие Волшебную страну с помощью Жёлтого Тумана, (   Читать дальше...   )Жанр: Детские приключения, СказкиПродолжительность: 06:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F09BCD052B3D32C20D30627FB0784286D44F068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524365   (745194) от 15.01.2022
-
-Александр Мелентьевич Волков | Тайна заброшенного замка (2013) [MP3, Алексей Борзунов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебную страну и её столицу Изумрудный город населяли племена маленьких людей – Жевунов, Мигунов, Болтунов, у которых была очень хорошая память на всё, чему они удивлялись.
-
-Удивительным было для них появление девочки Элли, когда её домик раздавил злую волшебницу Гингему, как пустую яичную скорлупу. Не менее удивились жители Волшебной страны, когда увидели сестру (   Читать дальше...   )Жанр: Внеклассное чтение, Детские приключения, СказкиПродолжительность: 05:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF65A18DB32EDF53362FBAE2752EBE1F4ED033C
 ```
 
 https://mybot314.ru/tekegram_catalog/

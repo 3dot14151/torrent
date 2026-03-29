@@ -1,3 +1,31 @@
+###  Публикация: 467972   (96627) от 14.03.2012
+
+Карл Ян Гранквист, Лена Катарина Сванберг | Классические рецепты Шведской кухни [2006] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_96627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Источником кулинарного богатства шведской кухни всегда являлись дары леса и моря. Это остается в силе и сейчас, когда шведская кухня испытывает влияние со стороны кулинарных культур других народов, а шведские повара получают такое количество международных призов, что это иногда дает повод говорить о шведском гастрономическом чуде. Богатая шведская кулинарная культура сформировалась в условиях интенсивного солнечного лета и продолжительной холодной зимы. В «Классических рецептах шведской кухни» метрдотель-эмеритус Карл Ян Гранквист представляет ассортимент исконно шведских блюд. Среди них, конечно, присутствует сельдь и шнапс,
+но не пропустите также мясные тефтели по-шведски, салаку, «стариковскую смесь», картофельные клецки, «Искушение Янссона», пряное печенье, а также другие деликатесные сладкие и соленые блюда из сокровищницы шведского кулинарного наследия.
+Приятного аппетита! Smaklig mеltid!Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466080   (96369) от 11.03.2012
 
 800 рецептов закусок [2010] [PDF]
@@ -6,7 +34,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96369.jpg" />
+  <img src="Z:/picture/005/save_picture_96369.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96166.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93842.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_92487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_92487.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90817.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90808.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90553.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90455.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90386.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89817.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89790.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89773.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89670.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89364.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89292.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89064.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89004.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88993.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88786.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88604.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88600.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88598.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88468.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88176.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88135.jpg" />
 </div>
 
 
@@ -652,35 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482280   (87981) от 12.04.2012
-
-Г.Рушицка | Пироги и торты [1997] [Pdf]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционные и новые рецепты пирогов и тортов с кремом и фруктами. Большой противень, полный сочных, свежих пирогов, приведет в восторг любого.
- Во время беседы с друзьями за чашкой кофе, в дни семейных торжеств, на празднике, устраиваемом в саду, на пикнике — пироги, испеченные на противне, всегда всем понравятся.
- Летом в пышное дрожжевое тесто добавляют фруктовую начинку. Зимой пироги оформляют кремом, приготовленным из сливок, орехов и шоколада, и трудно отдать предпочтение тому или иному лакомству.
- Побалуйте своих гостей и себя. И не нужно бояться, что придется долго вымешивать тесто и использовать много продуктов: все рецепты просты в приготовлении.Жанр: Кулинария, выпечкаФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED508452CE2412BE35E6B8AC8E9BBA3668F7663
 ```
 
 https://mybot314.ru/tekegram_catalog/

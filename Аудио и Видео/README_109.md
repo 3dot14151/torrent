@@ -6,7 +6,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721157.jpg" />
+  <img src="Z:/picture/008/save_picture_721157.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721050.jpg" />
+  <img src="Z:/picture/008/save_picture_721050.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721044.jpg" />
+  <img src="Z:/picture/008/save_picture_721044.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720858.jpg" />
+  <img src="Z:/picture/008/save_picture_720858.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720852.jpg" />
+  <img src="Z:/picture/008/save_picture_720852.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Chill Horizons, Vol. 1 (2020) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720835.jpg" />
+  <img src="Z:/picture/008/save_picture_720835.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Marga Sol - Mandala (Oriental World Lounge Vibes) (2017) [AAC|~342 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720834.jpg" />
+  <img src="Z:/picture/008/save_picture_720834.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Think Deep, Vol. 1 (Deluxe Chill House & Atmospheric Deep House Music) (202
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720832.jpg" />
+  <img src="Z:/picture/008/save_picture_720832.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720788.jpg" />
+  <img src="Z:/picture/008/save_picture_720788.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720785.jpg" />
+  <img src="Z:/picture/008/save_picture_720785.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Buddha Gold, Vol. 3 - The Finest in Mystic Bar Music (2019) [AAC|~333 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720764.jpg" />
+  <img src="Z:/picture/008/save_picture_720764.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Buddha Gold, Vol. 4 - The Finest in Mystic Bar Music (2020) [AAC|~325 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720761.jpg" />
+  <img src="Z:/picture/008/save_picture_720761.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Buddha Gold, Vol. 1 - The Finest in Mystic Bar Music (2017) [AAC|~321 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720756.jpg" />
+  <img src="Z:/picture/008/save_picture_720756.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720686.jpg" />
+  <img src="Z:/picture/008/save_picture_720686.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720237.jpg" />
+  <img src="Z:/picture/008/save_picture_720237.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719949.jpg" />
+  <img src="Z:/picture/008/save_picture_719949.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719494.jpg" />
+  <img src="Z:/picture/005/save_picture_719494.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719224.jpg" />
+  <img src="Z:/picture/008/save_picture_719224.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719123.jpg" />
+  <img src="Z:/picture/008/save_picture_719123.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718952.jpg" />
+  <img src="Z:/picture/008/save_picture_718952.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718944.jpg" />
+  <img src="Z:/picture/008/save_picture_718944.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718909.jpg" />
+  <img src="Z:/picture/008/save_picture_718909.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Formentera Solaire Chill (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718897.jpg" />
+  <img src="Z:/picture/008/save_picture_718897.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 2 (2022) [AAC|~323 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718888.jpg" />
+  <img src="Z:/picture/008/save_picture_718888.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Santorini Solaire Chill (2018) [AAC|~318 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718886.jpg" />
+  <img src="Z:/picture/008/save_picture_718886.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - Notes from the Depth, Vol. 1 (2019) [AAC|~330 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718878.jpg" />
+  <img src="Z:/picture/008/save_picture_718878.jpg" />
 </div>
 
 

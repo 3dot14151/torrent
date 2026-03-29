@@ -1,3 +1,177 @@
+###  Публикация: 566725   (396819) от 29.10.2012
+
+Герои гитары / Guitar Heroes At The BBC (2008) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_396819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записи различных групп и музыкантов, сделанные в период с 1969 по 2006 год, были показаны по телевидению каналом BBC Four 10 и 17 октября 2008 года. "Лучшие гитаристы.."
+Представлены разные стили и манеры игры, а также группы с гитарным драйвом.Жанр: Музыка, Hard RockРежиссер: Holly Murray, Mark CooperАктеры: Various artistsПеревод: ОтсутствуетПродолжительность: 01:58:17 + 01:57:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171120   (396550) от 04.10.2017
+
+Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (диск 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_396550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я долго работал над этим сборником клипов. Перепахал много гектар видеоматериала и выбрал лучшее что есть в мировом рэпе. Исключил попадание сюда однообразной речетативной пурги, которой навалом в рэпе и хип-хопе. Это 1я часть сборника. Смотрите, слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+001 50 Cent - In Da Club
+002 Down Low -  Potion
+003 Dino MC47 - Гражданин Р(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 03:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A09C366959208CBC3D1D40AF5B249BEC74A8526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567143   (395788) от 30.10.2012
+
+Manowar - The Day The Earth Shook - The Absolute Power (2006) 2*DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный DVD, содержащий почти семь часов эксклюзивного материала, переносит зрителя в ряды
+аудитории Earthshaker Fest 2005, чтобы лицезреть полную версию более чем двухчасового выступления
+MANOWAR, кульминацией которого стало исполнение в финале классической композиции "Battle
+Hymn", причем впервые всеми бывшими и нынешними участниками группы. Также оператор делает
+экскурс в MANOWAR Mega Fan Convention, выявляя искреннюю любовь и преданность фэнов MANOWAR
+Королям металла. Кроме того, DVD содержит эклюзивные интервью с участниками группы,
+организаторами съезда и режиссером.
+
+Треклист:Жанр: Heavy MetalРежиссер: Нил ДжонсонАктеры: Джои ДеМайо, Эрик Адамс, Донни Хамзик, Карл ЛоганПеревод: ОтсутствуетПродолжительность: 06:54:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567396   (395716) от 30.10.2012
+
+Маленькие комедии большого дома (1974) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители нового дома влюбляются, ссорятся и мирятся, работают и отдыхают, танцуют и поют: «Смотровой ордер» — оптимистическая комедия с переездом и вселением. «Грабеж» — психологический ретро детектив со взломом. «Московская серенада» — комедийный мюзикл о любви с песнями и танцами. «Звуковое письмо» — четвертая новелла в исполнении Александра Ширвиндта. «Пой, ласточка, пой…» — жилищно-бытовая оратория для ЖЭКа с фортепьяно.Жанр: Комедия, Драма, МелодрамаРежиссер: Александр Ширвиндт, Андрей Миронов, Валентин ПлучекАктеры: Татьяна Пельтцер, Борис Кумаритов, Надежда Каратаева, Виктор Рухманов, Лилия Шарапова, Людмила Селянская, Андрей Миронов, Наталья Защипина, Спартак Мишулин, Нина Архипова, Юрий Авшаров, Зоя Зелинская, Даниил Каданов, Екатерина Градова, Александр Диденко, Зиновий Высоковский, Нина Феклисова, Владимир Кулик, Валентина Шарыкина, Лев Тертель, Александр Ширвиндт, Анатолий Папанов, Валентина Токарская, Георгий Тусузов, Владимир Ушаков, Михаил Державин, Федор Димант, Юрий Соковнин, Вадим Завьялов, Галина Степанова (II), Бронислава Тронова, Наталья Фекленко, Наталья Энке, Вячеслав Гронин, Тамара МуринаПродолжительность: 01:10:43+01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525915D9472C76A704E3C551FFA7762DB6A15941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715908   (395617) от 27.10.2013
+
+Звёзды 60-х / 60's All Stars [Часть 1] (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck Berry - Memphis
+02. Brian Pool & The Tremeloes - Do you love me
+03. Gerry & The Pacemakers - I like it
+04. The Searchers - Sugar & spice(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Beat, Rock'n'Roll
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715926   (395610) от 27.10.2013
+
+Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petula Clark - Downtown
+02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
+03. Them - Baby please don't go
+04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 150065   (395211) от 01.11.2009
 
 Scorpions - World Wide Live (1985) DVD-5
@@ -6,7 +180,7 @@ Scorpions - World Wide Live (1985) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395211.jpg" />
+  <img src="Z:/picture/008/save_picture_395211.jpg" />
 </div>
 
 
@@ -32,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394688.jpg" />
+  <img src="Z:/picture/008/save_picture_394688.jpg" />
 </div>
 
 
@@ -58,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394595.jpg" />
+  <img src="Z:/picture/008/save_picture_394595.jpg" />
 </div>
 
 
@@ -88,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394148.jpg" />
+  <img src="Z:/picture/008/save_picture_394148.jpg" />
 </div>
 
 
@@ -117,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394085.jpg" />
+  <img src="Z:/picture/008/save_picture_394085.jpg" />
 </div>
 
 
@@ -146,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393317.jpg" />
+  <img src="Z:/picture/008/save_picture_393317.jpg" />
 </div>
 
 
@@ -175,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392909.jpg" />
+  <img src="Z:/picture/008/save_picture_392909.jpg" />
 </div>
 
 
@@ -204,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392749.jpg" />
+  <img src="Z:/picture/008/save_picture_392749.jpg" />
 </div>
 
 
@@ -234,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392666.jpg" />
+  <img src="Z:/picture/005/save_picture_392666.jpg" />
 </div>
 
 
@@ -263,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392624.jpg" />
+  <img src="Z:/picture/008/save_picture_392624.jpg" />
 </div>
 
 
@@ -290,7 +464,7 @@ Pinkpop - The Vintage Years 1970-1974 (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392038.jpg" />
+  <img src="Z:/picture/008/save_picture_392038.jpg" />
 </div>
 
 
@@ -321,7 +495,7 @@ Pirupa - Party Non Stop (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391680.jpg" />
+  <img src="Z:/picture/008/save_picture_391680.jpg" />
 </div>
 
 
@@ -347,7 +521,7 @@ The Concert For New York City (2001) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391141.jpg" />
+  <img src="Z:/picture/008/save_picture_391141.jpg" />
 </div>
 
 
@@ -376,7 +550,7 @@ Status Quo: Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390899.jpg" />
+  <img src="Z:/picture/008/save_picture_390899.jpg" />
 </div>
 
 
@@ -405,7 +579,7 @@ No Doubt - Looking Hot (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390885.jpg" />
+  <img src="Z:/picture/008/save_picture_390885.jpg" />
 </div>
 
 
@@ -431,7 +605,7 @@ Daniel Bedingfield - Secret Fear (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390207.jpg" />
+  <img src="Z:/picture/008/save_picture_390207.jpg" />
 </div>
 
 
@@ -457,7 +631,7 @@ Mungo Jerry - Video Collection (70-77) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390111.jpg" />
+  <img src="Z:/picture/008/save_picture_390111.jpg" />
 </div>
 
 
@@ -483,7 +657,7 @@ Christina Aguilera - Your Body (2012) HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389243.jpg" />
+  <img src="Z:/picture/008/save_picture_389243.jpg" />
 </div>
 
 
@@ -509,7 +683,7 @@ Space RockerZ & Ellie lawson - Under The Same Sky (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388270.jpg" />
+  <img src="Z:/picture/008/save_picture_388270.jpg" />
 </div>
 
 
@@ -535,7 +709,7 @@ Master and Ian Carey - Lights Out (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388261.jpg" />
+  <img src="Z:/picture/008/save_picture_388261.jpg" />
 </div>
 
 
@@ -546,168 +720,6 @@ Master and Ian Carey - Lights Out (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BACBEE445D1D357AE4A20913D5176E735D85F7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718780   (388237) от 04.11.2013
-
-Black Country Communion - Live Over Europe (2011) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Over Europe – концертное издание англо-американской рок-супергруппы, записанное на 14 HD камер летом 2011 года в городах Германии: Гамбурге, Мюнхене и Берлине и выпущенный 24 октября 2011 года. Группа первоначально была задумана во время совместного концерта для Guitar Center (сеть магазинов музыкальных инструментов со штаб-квартирой в Калифорнии, США) Joe Bonamassa (   Читать дальше...   )01. Revolution Of The Machine (Intro)
-02. Black Country
-03. One Last Soul
-04. Crossfire(   Читать дальше...   )Производство: Mascot RecordsЖанр: Hard Rock, Blues RockФормат: MKVПродолжительность: 01:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6277FD97ED1B7FB44DB601114007D55C7F7D4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571523   (388016) от 07.11.2012
-
-Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD716F14FA7D971328EBA8D33D680BF394CDA0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571878   (388003) от 07.11.2012
-
-Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEEC113215ED1FE4E4D7B8B7ABF89E368987D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571525   (387865) от 07.11.2012
-
-Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Relax, Chill OutПродолжительность: 00:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497DD0C72E6C5304EBB80B2DB837311C4925EA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571733   (387741) от 07.11.2012
-
-Израиль Камакавивиоле / Israel Kamakawiwo'ole Facing Future 14 Somewhere Over The Rainbow [H.264] (2012) Mp4
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень красивый клип и очень прекрасный, замечательный голос!Жанр: Музыка, Jazz, reggae, HawaiianПродолжительность: 00:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A271EC93A1534F4FE1202EE3ADC60D40454E3BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574229   (387629) от 04.09.2022
-
-Квартирник у Маргулиса. The Hatters (04.09.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заявив о себе в начале 2016 года, The Hatters практически сразу же стали известными: пройдя путь от маленьких площадок до многотысячных стадионов, они обрели армию преданных поклонников, а под их песни в стиле «народного алкохардкора на душевных инструментах» устоять не может никто. В гостях у Евгения Маргулиса участники The Hatters поделились интересными воспоминаниями (   Читать дальше...   )00:00:13 Love Is Love
-00:08:47 Сильная Женщина
-00:14:06 Двигай
-00:17:47 На табуретку взгромоздясь(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Фолк-рокПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C4E126D8A3A0484483536C50893DCCAF525FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Tales Of Xillia 2 [PS3] [Jap] [NTCS-J] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389875.jpg" />
+  <img src="Z:/picture/008/save_picture_389875.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389739.jpg" />
+  <img src="Z:/picture/008/save_picture_389739.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Deponia 2: Chaos on Deponia [En] (L/1.1.2.2271) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388999.jpg" />
+  <img src="Z:/picture/008/save_picture_388999.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Grand Theft Auto: San Andreas / Multiplayer [Ru] (RePack) 2005 | D.S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388821.jpg" />
+  <img src="Z:/picture/008/save_picture_388821.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CheMax Rus (2013) [Ru] (13.9) Cheats CheMax Team
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388164.jpg" />
+  <img src="Z:/picture/008/save_picture_388164.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Transcripted [En/Multi5] (P) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387063.jpg" />
+  <img src="Z:/picture/008/save_picture_387063.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Teardown (2022) [En] (1.1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387039.jpg" />
+  <img src="Z:/picture/008/save_picture_387039.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Painkiller Hell & Damnation [Ru] (Steam-Rip/Update 1) 2012 l R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_386767.jpg" />
+  <img src="Z:/picture/005/save_picture_386767.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Zombasite (2016) [En] (1.006) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386342.jpg" />
+  <img src="Z:/picture/008/save_picture_386342.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Renowned Explorers: International Society (2015) [En] (401/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386106.jpg" />
+  <img src="Z:/picture/008/save_picture_386106.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_385764.jpg" />
+  <img src="Z:/picture/005/save_picture_385764.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Call of Duty: Ghosts (2013) [En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385396.jpg" />
+  <img src="Z:/picture/008/save_picture_385396.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ King's Bounty: Warriors of the North [Ru/En] (RePack/1.3.1) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384920.jpg" />
+  <img src="Z:/picture/008/save_picture_384920.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384791.jpg" />
+  <img src="Z:/picture/008/save_picture_384791.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ FIFA Manager 13 [En] (RePack/1.0) 2012 l R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384677.jpg" />
+  <img src="Z:/picture/008/save_picture_384677.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sonic Mania (2017) [Multi] (1.03) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384407.jpg" />
+  <img src="Z:/picture/008/save_picture_384407.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384165.jpg" />
+  <img src="Z:/picture/008/save_picture_384165.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Worms Revolution [Multi8/+] (Repack/1.0.61.0/3 DLC) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382762.jpg" />
+  <img src="Z:/picture/008/save_picture_382762.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Deadlight [Ru/En] (RePack/1.0.9249.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382596.jpg" />
+  <img src="Z:/picture/008/save_picture_382596.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Vampyr (2018) [Ru/Multi] (1.0/u3/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381130.jpg" />
+  <img src="Z:/picture/008/save_picture_381130.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tomb Raider [PS3] [EUR] [RUSSOUND] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381036.jpg" />
+  <img src="Z:/picture/008/save_picture_381036.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ L.A. Noire (2011) [Ru/Multi] (1.3.2617/dlc) Repack Other s [Complete Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380323.jpg" />
+  <img src="Z:/picture/008/save_picture_380323.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ I Am Alive [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379819.jpg" />
+  <img src="Z:/picture/008/save_picture_379819.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Sine Mora [En/Multi6] (L) 2012 l SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379696.jpg" />
+  <img src="Z:/picture/008/save_picture_379696.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379565.jpg" />
+  <img src="Z:/picture/008/save_picture_379565.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.1.47.0.8) Repack R.G. Catalyst 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379561.jpg" />
+  <img src="Z:/picture/008/save_picture_379561.jpg" />
 </div>
 
 

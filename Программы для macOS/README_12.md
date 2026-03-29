@@ -1,3 +1,136 @@
+###  Публикация: 1467453   (1017946) от 03.05.2021
+
+SimpleMind Pro 1.29.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
+SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.05.2021Разработчик: SimpleappsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C09C51C5920FA663F1438D7BDA414BB3F9F5FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467229   (1017944) от 03.05.2021
+
+macOS Server 5.11.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017944.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS Server для устройств macOS и iOS позволяет легко обмениваться файлами, планировать встречи, синхронизировать контакты, разрабатывать приложения, поддерживать собственный сайт, публиковать wiki-проекты, управлять настройкой Mac, iPhone и iPad, заходить в сеть удалённо и многое другое. Любой пользователь может быстро и легко превратить компьютер Mac с macOS в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2021Разработчик: Apple Inc.Поддерживаемая ОС: macOS 11.0 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48547599255F52797B436DD115865F839620C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467503   (1017782) от 04.05.2021
+
+MultiDock 1.44 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017782.jpg" />
+</div>
+
+
+###  Подробнее
+
+MultiDock - это простое приложение, позволяющее упорядочивать часто используемые приложения, документы и папки с помощью небольших панелей (например, Dock).
+MultiDock развивалось по мере создания новой версии ActiveDock. Некоторые из этих новых функций могут быть доступны в следующей версии ActiveDock.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C75AEB83BB23C91373880FE2A522528A3131A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467504   (1017777) от 04.05.2021
+
+WindowSwitcher 1.42 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017777.jpg" />
+</div>
+
+
+###  Подробнее
+
+WindowSwitcher - позволяет Вам быстро находить и переключаться между открытыми окнами приложения (все окна, только активные окна, активные окна приложения) и управлять позицией окон на экране, например, прямо из списка окон, помещать окно Safari слева и окно Pages справа, таким образом, удобно искать и аннотировать информацию в «Интернете».
+Переключение между окнами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18327BB468344D097047F073EBC2C439FBA5D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468042   (1017436) от 06.05.2021
+
+ON1 Resize 2021.5 v15.5.0.10403 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017436.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Resize (ранее известный как Perfect Resize Standard) - это простое приложение для изменения размера изображений, которое предоставляет набор инструментов, предназначенных для подготовки ваших фотографий к печати. Организовать и изменить размер. ON1 Изменение размера стало намного лучше. NEW ON1 Resize теперь включает в себя один из самых быстрых способов просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A8305BFD9919EB27153CF1840AED49E3051659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468181   (1017427) от 06.05.2021
 
 ON1 HDR 2021.5 v15.5.0.10403 [Multi/Ru]
@@ -6,7 +139,7 @@ ON1 HDR 2021.5 v15.5.0.10403 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017427.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ ON1 Portrait AI 2021 2021.5 v15.5.0.10403 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017415.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Script Debugger 8 v8.0. [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017408.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ ON1 Effects 2021.5 v15.5.0.10403 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017278.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ Perfect Horizon Full 1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017260.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Klipped 1.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016798.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ CapsLocker 1.4.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016616.jpg" />
 </div>
 
 
@@ -192,7 +325,7 @@ AudioSwitcher 3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016603.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ PeakHour 4 v4.1.14 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016601.jpg" />
 </div>
 
 
@@ -245,7 +378,7 @@ Bible 6.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016599.jpg" />
 </div>
 
 
@@ -272,7 +405,7 @@ Total Video Converter Pro 4.7.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016574.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ ArchCommander 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016467.jpg" />
 </div>
 
 
@@ -327,7 +460,7 @@ system-eye 1.2.35 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016461.jpg" />
 </div>
 
 
@@ -354,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016424.jpg" />
 </div>
 
 
@@ -381,7 +514,7 @@ MacClean360 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016423.jpg" />
 </div>
 
 
@@ -407,7 +540,7 @@ Image Deblur - Blurred & Shaky 1.0.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016316.jpg" />
 </div>
 
 
@@ -434,7 +567,7 @@ Enigma Recovery Professional 3.0.164 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016310.jpg" />
 </div>
 
 
@@ -461,7 +594,7 @@ Mac Mouse Fix 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016283.jpg" />
 </div>
 
 
@@ -487,7 +620,7 @@ MovieMator Video Editor Pro 3.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016164.jpg" />
 </div>
 
 
@@ -513,7 +646,7 @@ Tipard Blu-ray Player for Mac 6.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016154.jpg" />
 </div>
 
 
@@ -539,7 +672,7 @@ Be Focused Pro - Focus Timer 2.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016104.jpg" />
 </div>
 
 
@@ -552,140 +685,6 @@ Be Focused Pro - сосредоточьтесь на производитель�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F131ECECD87A101F6EBE4EAE5453723ED78E972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470151   (1015958) от 15.05.2021
-
-Icon Slate 4.6.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача создания иконки (значка, пиктограммы) для приложения может быть весьма утомительным занятием. Кроме того, мало спроектировать высококачественную иконку.После, вам нужно экспортировать ее во все необходимые размеры и убедиться, что вы ничего не пропустили.
-Приложение Icon Slate разработано и призвано на помощь принять все хлопоты на себя, чтоб помочь вам гораздо (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2020Разработчик: Jérémy MarchandПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638C181DE425E304EED4D1C3B5E3338663A5EB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470159   (1015897) от 15.05.2021
-
-Malwarebytes for Mac Premium 3.5.26 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейшее приложение для поиска и удаления вредоносного ПО (руткиты, трояны, программы-шпионы, рекламное и фишинговое ПО, и пр.). При этом Malwarebytes находит и обезвреживает те вредоносные программы, которые не под силу выявить даже известным комплексным антивирусным продуктам.
-Проверенная технология Malwarebytes эффективно противостоит возрастающей угрозе для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2018Разработчик: MalwarebytesПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5244628B34348E4E3FD8BA267089A3115E95BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470386   (1015810) от 16.05.2021
-
-Reflect Studio 3.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reflect Studio - новый фото редактор от создателей LensFlare студии, позволяет создавать красивые фотографии с потрясающими отражающими поверхностями - эффект, который должен быть в арсенале каждого фотографа и дизайнера. Reflect Studio включает в себя отражающие поверхности кроме  просто водной, такие как океаны, лед, полы, пляжи и многое другое.
-Вы сможете поделиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.05.2021Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43473F544CD06B13A36831B3DBB12E3DB1DD25BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470692   (1015662) от 17.05.2021
-
-Byword 2 v2.9.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Byword — сила в простоте.
-Byword — минималистичный текстовый редактор от Metaclassy с поддержкой технологии Markdown. Если кратко, то Markdown — это простой язык разметки текстов, который позволяет создавать фактически полностью оформленную веб-публикацию одновременно с написанием самого материала. «Оформленную» — это значит с гиперссылками, выделением текста в нужных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19.03.2019Разработчик: Metaclassy, LdaПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBC63E20C5E8757381849BA0A5FFDFC23FAD77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470556   (1015641) от 17.05.2021
-
-RAR Extractor Expert Pro 3.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015641.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Expert - это простой в использовании, быстрый файловый архиватор. С помощью RAR Extractor Expert вам нужно всего лишь дважды щелкнуть файл архива, чтобы распаковать его. RAR Extractor Expert также поддерживает распаковку защищенных паролем файлов и пакетное извлечение.Тип издания: macOS SoftwareРелиз состоялся: 16.04.2021Разработчик: xiaoqin chenПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C514B3739CCFB103EFEB0FD1BB0F98C1880131EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

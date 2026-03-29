@@ -1,3 +1,108 @@
+###  Публикация: 1395709   (753656) от 11.07.2020
+
+Большое австралийское приключение (Голд-Кост) / Coast Australia (2017) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя захватывающую береговую линию Австралии - людей, их историю и множество чудес природы . В этой части изучим знаменитые курорты Саншайн Кост и Голд Кост, а также много всякого из жизни простых австралийцев ...Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426852E1FF56506F4418CF6C70430A1B7AC22069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395727   (753646) от 11.07.2020
+
+Большое австралийское приключение (Остров Норфолк) / Coast Australia (2017) HDTV [H.264/1080i] (сезон 2, серия 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753646.jpg" />
+</div>
+
+
+###  Подробнее
+
+О́стров Но́рфолк - небольшой обитаемый остров в Тихом океане, расположенный между Австралией, Новой Каледонией и Новой Зеландией. Остров был открыт капитаном Джеймсом Куком в 1774 году, во время его плавания по юго-западной части Тихого океана. Вместе с двумя близлежащими островками образует одну из австралийских внешних территорий. Нил Оливер со своей (   Читать дальше...   )Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD2A148493622D8E0B9CE328DBB26C64E826597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395732   (753562) от 11.07.2020
+
+Большое австралийское приключение (Бассов пролив) / Coast Australia (2017) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бассов пролив - участок Мирового океана, находящийся между выдающимся в море юго-восточным берегом Австралии и отстоящим от него на двести километров островом Тасмания.
+Проливу всего лишь около 10 тыс. лет, и по меркам исторической геологии он считается совсем молодым. До этого здесь была единая суша, но в связи с общим повышением уровня моря низина оказалась залита (   Читать дальше...   )Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339CD68798CA6CF6D71902ED2A6A9B1FA5862B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395644   (753561) от 11.07.2020
+
+BBC. Как устроены шикарные отели. Marina Bay Sands (Сингапур) / Amazing Hotels: Life Beyond the Lobby (2018) HDTV [H.264/1080i] (сезон 1, серия 1)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сингапурский отель Marina Bay Sands можно смело назвать самым необычным отелем в мире. Еще в процессе строительства стало ясно, что он станет самым дорогостоящим отелем в мире. Архитекторы решили поразить всех удивительной неземной концепцией: на трёх 200-метровых башнях по 55 этажей находится огромный бассейн, где вода как будто утекает за горизонт. Кроме бассейна, (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательныйРежиссер: Макс Шапира, Крис АлкокПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC807B57F084F635A68605E8A234FD591B9D030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395730   (753553) от 11.07.2020
 
 Большое австралийское приключение (Новый Южный Уэльс) / Coast Australia (2017) HDTV [H.264/1080i] (сезон 2, серия 7)
@@ -6,7 +111,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753553.jpg" />
+  <img src="Z:/picture/008/save_picture_753553.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753551.jpg" />
+  <img src="Z:/picture/008/save_picture_753551.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753539.jpg" />
+  <img src="Z:/picture/008/save_picture_753539.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG. С точки зрения науки. Морские чудовища др�
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753437.jpg" />
+  <img src="Z:/picture/008/save_picture_753437.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752640.jpg" />
+  <img src="Z:/picture/008/save_picture_752640.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752288.jpg" />
+  <img src="Z:/picture/005/save_picture_752288.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752142.jpg" />
+  <img src="Z:/picture/008/save_picture_752142.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752131.jpg" />
+  <img src="Z:/picture/005/save_picture_752131.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ NG. Реальность или фантастика? Привидения / Is 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752110.jpg" />
+  <img src="Z:/picture/008/save_picture_752110.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751826.jpg" />
+  <img src="Z:/picture/008/save_picture_751826.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751824.jpg" />
+  <img src="Z:/picture/008/save_picture_751824.jpg" />
 </div>
 
 
@@ -303,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751820.jpg" />
+  <img src="Z:/picture/008/save_picture_751820.jpg" />
 </div>
 
 
@@ -329,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751692.jpg" />
+  <img src="Z:/picture/008/save_picture_751692.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ Discovery. Чужая планета  / Alien Planet (2005) HDTVRip [H.264/720p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751641.jpg" />
+  <img src="Z:/picture/008/save_picture_751641.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ Animal Planet: Дом для рептилий. Террариум юрского
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751609.jpg" />
+  <img src="Z:/picture/008/save_picture_751609.jpg" />
 </div>
 
 
@@ -407,7 +512,7 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750937.jpg" />
+  <img src="Z:/picture/008/save_picture_750937.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750833.jpg" />
+  <img src="Z:/picture/008/save_picture_750833.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750647.jpg" />
+  <img src="Z:/picture/008/save_picture_750647.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750310.jpg" />
+  <img src="Z:/picture/008/save_picture_750310.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ Discovery. Техногеника. Ту-144. Первый пассажирски
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749957.jpg" />
+  <img src="Z:/picture/008/save_picture_749957.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ Discovery. Рыбацкие легенды Якуба Вагнера / Rybi Lege
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749911.jpg" />
+  <img src="Z:/picture/008/save_picture_749911.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749819.jpg" />
+  <img src="Z:/picture/008/save_picture_749819.jpg" />
 </div>
 
 
@@ -576,114 +681,6 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACFACAEF60DA77CFB46E911A734FA1CE454C22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709364   (749733) от 23.05.2016
-
-PBS. Природа - Дом животных / Nature - The Animal House (2007) BDRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные строят дома по тем же самым причинам, что и люди, но они начали это делать гораздо гораздо раньше человека... Дома животных могут быть очень простыми, но иногда ни похожи на настоящее архитектурное чудо. Все эти сооружения - вне зависимости от того, нора это, гнездо или еще что-либо - это места, где разворачиваются драмы и где порой происходят очень неординарные (   Читать дальше...   )Жанр: Документальный, природа
-
-Релиз группыПеревод: Одноголосый закадровый (профессиональный, Дмитрий Есарев)Язык субтитров: русский, английскийПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBDC1CE309031B6E41261777F4A30B99BBEE9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019508   (749620) от 23.05.2016
-
-BBC: Горькое озеро / Bitter Lake (2015) Web-DLRip [H.264/720p] [EN / RU Sub]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Политики использовали наше доверие к ним, чтобы рассказывать нам истории, придающие смысл хаосу мировых событий. Но делать это становится все сложнее, и политики, случайным образом реагируя на каждый новый кризис, — оставляют нас в недоумении и дезориентированности.
-«Горькое озеро» — это новый увлекательный и эпический фильм Адама Кертиса, который объясняет почему (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, новейшая история, политикаРежиссер: Адам Кертис (Adam Curtis)Перевод: СубтитрамиЯзык озвучки: АнглийскийСубтитры: Русский (ass) + английские субтитры отдельным файлом (.srt)Продолжительность: 02:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0D9AA01A9AE123A73802CFA58CCAF355EB19F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216506   (749094) от 31.03.2018
-
-BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал от мастеров жанра канала ВВС. На этот раз мы не просто станем свидетелями жизни животных, а перенесемся в мир миниатюры, где маленькие существа борются за жизнь наравне с большими и сильными обитателями фауны. Мы увидим, как они видят нас. Сможем заметить, как от движений маленьких животных шевелятся травинки. Уникальный спектр съемки позволит уловить самые (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-познавательный, природа, фауна, исследованиеРежиссер: Саймон БеллПеревод: Одноголосый закадровый, профессиональныйСубтитры: ДатскиеПродолжительность: 3 x ~ 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9B7CD8B41E2F5ECF7DAE2F2556B3F411D505EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467565   (748662) от 02.05.2014
-
-BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремление жить дольше - едва ли не самая давняя человеческая мечта. Но в то время как ученые всего мира веками искали ответ, несколько изолированных сообществ нашли ответ сами собой - не подозревая об этом. На удаленном японском острове Окинава, в калифорнийском городе Лома Линда и в горах Сардинии - люди живут дольше, чем где-либо еще на земле.
-В этих уникальных сообществах группа ученых, посвятивших свою жизнь поискам эликсира долголетия, пытается раскрыть их тайны. Horizon предпринимает путешествие по всему миру, чтобы встретиться с людьми, которые могут показать нам всем, как жить более долгой и здоровой жизнью.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC42215AE9ADFC88695146DE29FC13BFFE2C9B99
 ```
 
 https://mybot314.ru/tekegram_catalog/

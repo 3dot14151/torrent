@@ -6,7 +6,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208718.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208628.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208236.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Profileschool, Алексей Шадрин | Художественный обр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208229.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208129.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Photoplay, Мария Климова | Цвет в фотографии (2020) W
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208125.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop: все форма�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207072.jpg" />
+  <img src="Z:/picture/005/save_picture_207072.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Udemy, Nour Design | Эпические фотоманипуляции с пом
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202124.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200060.jpg" />
+  <img src="Z:/picture/005/save_picture_200060.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Mskcinemaschool, Вадим Панасюк | «Кино на коленке 3.0�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200013.jpg" />
+  <img src="Z:/picture/005/save_picture_200013.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Openschool, Олег Самойлов, Ксения Соловьева | Фот�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199395.jpg" />
+  <img src="Z:/picture/005/save_picture_199395.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198725.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Nerual Dreming | Нейробуст (2023) WEB-DL [AD] [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198670.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198647.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198368.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Enterclass, Ольга Паволга | Черно-белая фотографи
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198313.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198266.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Williams Academy, Tamara Williams | Masterclass Photo & Retouch + Brushes (2023)
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198193.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Fine., Юлия Киселева | Мастер класс по работе с 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198183.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ liveclasses, Алексей Шадрин | Калибровка мониторо
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197579.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Andbery Cinematography, Андрей Береснев | PRO.СВЕТ (2020) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197572.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Color grading dao, Виталий Бужан | ПРОДВИНУТАЯ ЦВЕТО
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197543.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197056.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Contrse, Дарья Калугина | Photoshop: финальный штрих 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195672.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ WhitePhotoSchool, Сергей Гунин | Гуру света - Практик
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195668.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195639.jpg" />
 </div>
 
 

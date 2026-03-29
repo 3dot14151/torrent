@@ -1,3 +1,55 @@
+###  Публикация: 1133561   (695045) от 12.05.2017
+
+Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.05.12) WEB-DL [H.264/720p-LQ] (сезон 2, выпуск 18)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695045.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D744CE09E336C9EAF6C76BBAD7C3DD61084426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132097   (695044) от 12.05.2017
+
+Слишком близко к дому / Too Close to Home (2016) WEBRip [H.264] (сезон 2, серии 1-8 из 8) ColdFilm [MP4|720x400] [AD]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695044.jpg" />
+</div>
+
+
+###  Подробнее
+
+История молодой женщины скромного воспитания, умудрившуюся пробиться на политическую сцену в Вашингтоне. Когда Анна покидает свой дом в трейлерном парке, она рвёт все связи с прошлым, с родными и друзьями. Её новые богатые друзья в Вашингтоне ничего не подозревают о прошлом Анны до тех пор, пока она не попадает в крупный политический скандал, что вынуждает её искать (   Читать дальше...   )Производство: США / Tyler Perry StudiosЖанр: драмаРежиссер: Тайлер ПерриАктеры: Брук Энн Смит, Брэд Бенедикт, Даниэль Савре, Бритт Джордж, Келли Салливан, Брок О’Херн, Энни Трэш и др.Перевод: Двуголосый закадровый, любительский - ColdfilmПродолжительность: ~00:43:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C4083C267932788D4D35142FCB63DA86D078C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133464   (695043) от 12.05.2017
 
 Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.05.12) SATRip (сезон 2, выпуск 18) [AD]
@@ -6,7 +58,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695043.jpg" />
+  <img src="Z:/picture/008/save_picture_695043.jpg" />
 </div>
 
 
@@ -24,6 +76,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133380   (695038) от 12.05.2017
+
+Process Lasso Pro 9.0.0.340 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70546308A205EFE0DF8AF1D7D1A6853E1313B9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133366   (695035) от 12.05.2017
 
 Witness - Witness (1988) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
@@ -32,7 +110,7 @@ Witness - Witness (1988) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695035.jpg" />
+  <img src="Z:/picture/008/save_picture_695035.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695032.jpg" />
+  <img src="Z:/picture/008/save_picture_695032.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695030.jpg" />
+  <img src="Z:/picture/008/save_picture_695030.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695029.jpg" />
+  <img src="Z:/picture/008/save_picture_695029.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ R-Studio 8.7 Build 170939 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695021.jpg" />
+  <img src="Z:/picture/008/save_picture_695021.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Aiseesoft Video Converter Ultimate 9.2.38 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695020.jpg" />
+  <img src="Z:/picture/008/save_picture_695020.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ LibreOffice 6.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695017.jpg" />
+  <img src="Z:/picture/008/save_picture_695017.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Comfy File Recovery 4.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695012.jpg" />
+  <img src="Z:/picture/008/save_picture_695012.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Wallpapers - Naked Girls-9 [JPEG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695000.jpg" />
+  <img src="Z:/picture/008/save_picture_695000.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Mole`s Smart Version Patch Constructor 2.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694963.jpg" />
+  <img src="Z:/picture/008/save_picture_694963.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694959.jpg" />
+  <img src="Z:/picture/008/save_picture_694959.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ PDF-XChange Viewer Pro 2.5.322.3 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694958.jpg" />
+  <img src="Z:/picture/008/save_picture_694958.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694957.jpg" />
+  <img src="Z:/picture/008/save_picture_694957.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ ClipGrab 3.6.5 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694951.jpg" />
+  <img src="Z:/picture/008/save_picture_694951.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694949.jpg" />
+  <img src="Z:/picture/008/save_picture_694949.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ DesktopOK 4.69 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694946.jpg" />
+  <img src="Z:/picture/008/save_picture_694946.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694945.jpg" />
+  <img src="Z:/picture/008/save_picture_694945.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694944.jpg" />
+  <img src="Z:/picture/008/save_picture_694944.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694943.jpg" />
+  <img src="Z:/picture/008/save_picture_694943.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694942.jpg" />
+  <img src="Z:/picture/008/save_picture_694942.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694941.jpg" />
+  <img src="Z:/picture/008/save_picture_694941.jpg" />
 </div>
 
 
@@ -599,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694940.jpg" />
+  <img src="Z:/picture/008/save_picture_694940.jpg" />
 </div>
 
 
@@ -613,87 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63D151064F23FC6FC243241BDA0AAD9B9000566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027871   (694939) от 20.06.2016
-
-Футбол. Чемпионат Европы 2016. Обзор матчей 2 Тура (15.06.2016-18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы 2016. Обзор матчей. 2 Тур
-Нарезка голов, опасных моментов, предупреждений и удалений матчей 2 тура Евро-2016 c комментарием.Жанр: СпортЯзык озвучки: русскийПродолжительность: ~ 00:25:00 каждый обзор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D47DEE7D0A538B69330193B8F71CDAF5A8ECED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027851   (694938) от 20.06.2016
-
-Email Archiver Enterprise 3.3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архивирование электронной почты может быть болезненным опытом. Упростите свою жизнь с Email Archiver
-Email Archiver - с помощью этого приложения вы можете архивировать и хранить всю вашу почту или отдельные письма в формате PDF. Удобство использования такого подхода неоспоримо, т.к. для того, чтобы прочитать почтовые сообщения, не требуется собственно Mail.app.
- (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2016Разработчик: Palmer Andersen Design & Development Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21DD5F81DAADD89304BBA8A0749A7CDE5AC2426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221474   (694933) от 24.04.2018
-
-Comfy Photo Recovery 4.7 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановите цифровые изображения программой Comfy Photo Recovery. Программа восстанавливает не только случайно удаленные фото файлы, но и изображения, утерянные после форматирования жесткого диска, карты памяти или USB флешки. Функция «Поиска разделов», реализованная в программе, позволяет найти и продолжить восстановление цифровых изображений с раздела, который (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBCA0158C52AEDF913729BD4E7792E5E3361245
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1578571   (345691) от 23.09.2022
+
+Олег Соколов | Плащ и шпага. Испанская война и тайна тамплиеров (2022) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам нравятся "Три мушкетера", "Двадцать лет спустя", "Приключения капитана Алатристе"?
+Значит книга, которую вы держите в руках, написана именно для вас!
+В этом романе бурные события Испанской войны Наполеона причудливо переплетаются с таинственной историей поиска сокровищ тамплиеров и страстным любовным романом. Всё это — и любовная (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 13:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5151D9EA5407EBDA10C464B830EB03DB5ED15ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330415   (341295) от 10.10.2019
+
+Владимир Муравьёв | Карамзин (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Михайлович Карамзин — великий российский историк и писатель, реформатор отечественной словесности. Создатель бессмертной повести «Бедная Лиза», он не только положил начало новому литературному направлению — сентиментализму, но и определил дальнейшие пути развития отечественной литературы. Однако главным трудом всей его жизни по праву считается двенадцатитомная (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 22:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64830A864B8FC19B361F85C70D235D192616FC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073310   (340561) от 18.11.2016
+
+Сергей Нечаев | Жанна д'Арк (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанна Дарк безусловно самый известный персонаж времен Столетней Войны. Звезда ее вспыхнула ярко и стремительно и столь же быстро исчезла в дыму инквизиторского костра, оставив после себя легенды и вопросы.
+Несмотря на огромное количество литературы – научной, публицистической, художественной ( впрочем в основном англо и франкоязычной), споры вокруг личности и деяний (   Читать дальше...   )Жанр: Исторический романПродолжительность: 10:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311CB9F7EE247E42176FEF02C6BCDDC465245DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419399   (339578) от 28.10.2020
 
 Александр Бушков | Тайны Смутного времени (2020) [MP3]
@@ -6,7 +87,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339578.jpg" />
+  <img src="Z:/picture/008/save_picture_339578.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339257.jpg" />
+  <img src="Z:/picture/008/save_picture_339257.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337480.jpg" />
+  <img src="Z:/picture/008/save_picture_337480.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335491.jpg" />
+  <img src="Z:/picture/008/save_picture_335491.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335406.jpg" />
+  <img src="Z:/picture/008/save_picture_335406.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335221.jpg" />
+  <img src="Z:/picture/008/save_picture_335221.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334413.jpg" />
+  <img src="Z:/picture/008/save_picture_334413.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333846.jpg" />
+  <img src="Z:/picture/008/save_picture_333846.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333766.jpg" />
+  <img src="Z:/picture/008/save_picture_333766.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333239.jpg" />
+  <img src="Z:/picture/008/save_picture_333239.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332525.jpg" />
+  <img src="Z:/picture/008/save_picture_332525.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330951.jpg" />
+  <img src="Z:/picture/008/save_picture_330951.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329812.jpg" />
+  <img src="Z:/picture/008/save_picture_329812.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328883.jpg" />
+  <img src="Z:/picture/008/save_picture_328883.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326717.jpg" />
+  <img src="Z:/picture/008/save_picture_326717.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326655.jpg" />
+  <img src="Z:/picture/008/save_picture_326655.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325542.jpg" />
+  <img src="Z:/picture/008/save_picture_325542.jpg" />
 </div>
 
 
@@ -464,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323433.jpg" />
+  <img src="Z:/picture/008/save_picture_323433.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323310.jpg" />
+  <img src="Z:/picture/008/save_picture_323310.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323306.jpg" />
+  <img src="Z:/picture/008/save_picture_323306.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321866.jpg" />
+  <img src="Z:/picture/008/save_picture_321866.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321856.jpg" />
+  <img src="Z:/picture/008/save_picture_321856.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321846.jpg" />
+  <img src="Z:/picture/008/save_picture_321846.jpg" />
 </div>
 
 
@@ -605,86 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5203F67F8D9AC0C4791418BF11E61603726ED5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420615   (321655) от 03.11.2020
-
-Василий Зайцев | За Волгой земли для нас не было. Записки снайпера (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Василий Григорьевич Зайцев — участник Сталинградского сражения, знатный снайпер, организатор снайперского движения в 62-й армии. Герой Советского Союза.
- В своём романе- записках он рассказывает всё: от детства, потом о школе снайперского мастерства и о войне. Перед читателями раскрывает некоторые секреты снайперского искусства.Жанр: Роман-воспоминаниеПродолжительность: 07:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B85A7962831E47F85B6F48569D933F285AF059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957952   (318875) от 23.11.2015
-
-Виктор Некрасов | В окопах Сталинграда (2013) [OGG]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй единственная правдивая книга от непосредственного участника тех событий.
-За эту книгу, после её прочтения Иосифом Сталиным, Виктор Некрасов получил в 1947 году Сталинскую премию 2-й степени. По мотивам повести и по сценарию Некрасова в 1956 году был снят фильм «Солдаты»Жанр: Военная прозаПродолжительность: 11:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9421A20ED4D3197FF82BE3B3D8AC6350A24611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075331   (318553) от 23.11.2016
-
-Михаил Пыляев | Старая Москва (2007) [MP3, Денис Некрасов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига по произведению известного писателя и краеведа Михаила Ивановича Пыляева "Старая Москва". Это своеобразное собрание очерков, описывающих жизнь, обычаи, быт и развлечения москвичей XVIII - начала XIX столетия.Жанр: ИсторияИздательство: СиДиКомПродолжительность: 10:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DF51F35F56C6C2AA28C22784EB0E3D0B48DC2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

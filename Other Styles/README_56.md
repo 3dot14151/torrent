@@ -6,7 +6,7 @@ Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743359.jpg" />
+  <img src="Z:/picture/008/save_picture_743359.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742434.jpg" />
+  <img src="Z:/picture/008/save_picture_742434.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742139.jpg" />
+  <img src="Z:/picture/008/save_picture_742139.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sam Green - Just Stand Still (2017) [MP3|320 Kbps] <Acoustic Folk, Acoustic Rock
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742137.jpg" />
+  <img src="Z:/picture/008/save_picture_742137.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Shoji Meguro - Persona 5 Original Soundtrack (2017) [FLAC|Lossless|tracks] <Soun
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742129.jpg" />
+  <img src="Z:/picture/008/save_picture_742129.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dr. Jeffrey Thompson - Journey of the Spirit (2016) [FLAC|Lossless] <New Age, Me
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742128.jpg" />
+  <img src="Z:/picture/008/save_picture_742128.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Dr. Jeffrey Thompson - Theta Meditation System (2001) 2CD [FLAC|Lossless] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742040.jpg" />
+  <img src="Z:/picture/008/save_picture_742040.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Jean-Michel Jarre - Original Album Classics Vol 2 (2018) 5CD Box Set [FLAC|Lossl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741785.jpg" />
+  <img src="Z:/picture/008/save_picture_741785.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741701.jpg" />
+  <img src="Z:/picture/008/save_picture_741701.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741333.jpg" />
+  <img src="Z:/picture/008/save_picture_741333.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Birds of Chicago - Love in Wartime (2018) [FLAC|Lossless|tracks + .cue] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741163.jpg" />
+  <img src="Z:/picture/008/save_picture_741163.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Siavash - Hamsayeh Haa (1994) [FLAC|Lossless|tracks + .cue] <World Music>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741159.jpg" />
+  <img src="Z:/picture/008/save_picture_741159.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Gente de Zona - Lo Mejor Que Suena Ahora (2007) [MP3|320 Kbps] <Reggaeton, Cubat
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740905.jpg" />
+  <img src="Z:/picture/008/save_picture_740905.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Gente de Zona - Que Suenen Los Metales (2010) [MP3|192 Kbps] <Reggaeton, Cubaton
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740903.jpg" />
+  <img src="Z:/picture/008/save_picture_740903.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740762.jpg" />
+  <img src="Z:/picture/008/save_picture_740762.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Gente de Zona - Visualizate (2012) [MP3|320 Kbps] <Reggaeton, Cubaton>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740713.jpg" />
+  <img src="Z:/picture/008/save_picture_740713.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [MP3|320 Kbps] <Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740662.jpg" />
+  <img src="Z:/picture/008/save_picture_740662.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ DelaDap - This Is DelaDap (2014) [FLAC|Lossless]<Ethnopop, World, Electronic, Ur
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740273.jpg" />
+  <img src="Z:/picture/008/save_picture_740273.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740232.jpg" />
+  <img src="Z:/picture/008/save_picture_740232.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Restoration: The Songs Of Elton John And Bernie Taupin (2018) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740170.jpg" />
+  <img src="Z:/picture/008/save_picture_740170.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Arctic Raindance - The Sound Of The Fjords (1998) [MP3|320 Kbps] <Native america
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739559.jpg" />
+  <img src="Z:/picture/008/save_picture_739559.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Greensky Bluegrass - Stress Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Bluegra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739114.jpg" />
+  <img src="Z:/picture/008/save_picture_739114.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - The Best Of Bond... James Bond (2021) Compilation, 2CD [FLAC|Lossless|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738989.jpg" />
+  <img src="Z:/picture/008/save_picture_738989.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Ernesto Cortazar - Infinite Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738776.jpg" />
+  <img src="Z:/picture/008/save_picture_738776.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Fausto Papetti - Playlist: Fausto Papetti (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737335.jpg" />
+  <img src="Z:/picture/008/save_picture_737335.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737086.jpg" />
+  <img src="Z:/picture/008/save_picture_737086.jpg" />
 </div>
 
 

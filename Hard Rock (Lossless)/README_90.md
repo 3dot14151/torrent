@@ -1,3 +1,61 @@
+###  Публикация: 1680573   (133861) от 30.11.2023
+
+Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Again [00:04:41]
+02. Anymore [00:04:31]
+03. Pieces Of Forever [00:04:12]
+04. Hope's Holding You [00:05:00](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397596   (133561) от 30.11.2023
+
+Dokken - 27 альбомов (1983 - 2023) 37 CD[FLAC|WavPack|Lossless|image + .cue|tracks + .cue]<Hard Rock, Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот германо-американский хард-роковый проект был создан вокалистом Доном Доккеном (Don Dokken)(р. 29 июня 1953). Впервые Доккен был замечен продюсером Дитером Дирксом, который завербовал его, чтобы использовать в качестве вокалиста... группы Scorpions. Их фронтмен, Клаус Майне, в 1981 году неожиданно потерял голос и добровольно, не желая портить карьеру друзьям, (   Читать дальше...   )Список альбомов:
+1979 - Dokken - Back In The Streets (EP)
+1984 - Dokken - Tooth And Nail
+1985 - Dokken - Under Lock And KeyЖанр: Hard Rock, HeavyПродолжительность: 32:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9486AD57474D4FCBEC4DDFFC23F9646E89852C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681246   (133160) от 02.12.2023
 
 Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
@@ -6,7 +64,7 @@ Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133160.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132763.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ghost - 13 Commandments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132647.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Graveyard - 6 albums (2007-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132489.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132222.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131425.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131239.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Cinderella (Tom Keifer) - 14 Albums, 1 Box Set  (1986 - 2019) 25 CD [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131230.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Blue Oyster Cult (Blue Öyster Cult) - First Night (2023) 50th Anniversary Live,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131153.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Humble Pie - 23 Albums, 2 Box Set (1969 - 2022) 43 CD [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130917.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Wonderworld - Live Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130061.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129761.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129749.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Boston - Boston (1976) (Reissue 2007) Remastered Japan Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129692.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Led Zeppelin - 20 Albums, 3 Box Set (1969 - 2018) 89 CD [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129670.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129536.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Foghat - Night Shift (1976) (Reissue 2008), Limited Edition, Remastered K2HD  [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129269.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129160.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Giant - Shifting Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129150.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Slave To The System - Slave To The System (2006) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129110.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Crowne - Wonderland (2025) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128661.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Palace Of The King - Friends In Low Places (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127584.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Gluecifer - B Sides and Rarities 1994-2005 (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126866.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Kalamity Kills - Kalamity Kills (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126454.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Kalamity Kills - Kalamity Kills (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB60E6AAD84F48208CF0134770BEC49FD6421153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686313   (126420) от 23.12.2023
-
-Tragik - Realm Angelic (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High & Mighty [00:02:57]
-02. Genesis [00:04:40]
-03. Somethin' Goin' On [00:04:46]
-04. Breakdown [00:04:06](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAEE545B43C24F84B7BC561E950283B4A9A57CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686889   (126263) от 24.12.2023
-
-The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nail You Higher Than Before (00:04:54)
-02 - Leave You Lying On The Ground (00:04:16)
-03 - Funeral Pyre (00:05:35)
-04 - Die Alone (00:02:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F17BDBE18BDF08460B45BC060FE7E9A0E205581
 ```
 
 https://mybot314.ru/tekegram_catalog/

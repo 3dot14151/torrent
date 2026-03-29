@@ -6,7 +6,7 @@ Ashampoo Photo Optimizer 8.1.1.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733385.jpg" />
+  <img src="Z:/picture/005/save_picture_733385.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PotPlayer 200730 (1.7.21278) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733383.jpg" />
+  <img src="Z:/picture/005/save_picture_733383.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Anti-Malware 1.21.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733376.jpg" />
+  <img src="Z:/picture/005/save_picture_733376.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733372.jpg" />
+  <img src="Z:/picture/005/save_picture_733372.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SyMenu 6.12.7517 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733371.jpg" />
+  <img src="Z:/picture/005/save_picture_733371.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733347.jpg" />
+  <img src="Z:/picture/005/save_picture_733347.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733334.jpg" />
+  <img src="Z:/picture/008/save_picture_733334.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ simplewall 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733332.jpg" />
+  <img src="Z:/picture/008/save_picture_733332.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Movavi Photo Editor 6.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733302.jpg" />
+  <img src="Z:/picture/008/save_picture_733302.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.5.015 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733300.jpg" />
+  <img src="Z:/picture/008/save_picture_733300.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ macOS Catalina 10.15.6 (19G73) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733298.jpg" />
+  <img src="Z:/picture/005/save_picture_733298.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ ESET NOD32 Internet Security 13.2.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733296.jpg" />
+  <img src="Z:/picture/005/save_picture_733296.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Karakuri Kiden Hiwou Senki | Clockwork Fighters Hiwou's War | Заводные �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733282.jpg" />
+  <img src="Z:/picture/008/save_picture_733282.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ESET NOD32 Antivirus 13.2.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733250.jpg" />
+  <img src="Z:/picture/005/save_picture_733250.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Kaspersky Offline Update 14.0.0.4651 (g) (24.05.2014) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733096.jpg" />
+  <img src="Z:/picture/008/save_picture_733096.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AOMEI Partition Assistant Pro 9.6 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733038.jpg" />
+  <img src="Z:/picture/008/save_picture_733038.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Meta 1.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732953.jpg" />
+  <img src="Z:/picture/008/save_picture_732953.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732929.jpg" />
+  <img src="Z:/picture/008/save_picture_732929.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ K-Lite Codec Pack Update 15.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732916.jpg" />
+  <img src="Z:/picture/008/save_picture_732916.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WhatsApp 2.2031.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732910.jpg" />
+  <img src="Z:/picture/008/save_picture_732910.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ WhatsApp 2.2031.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732904.jpg" />
+  <img src="Z:/picture/008/save_picture_732904.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Boom 3D 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732900.jpg" />
+  <img src="Z:/picture/008/save_picture_732900.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ FinePrint Software (FinePrint 10.35 / pdfFactory Pro 7.35) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732877.jpg" />
+  <img src="Z:/picture/008/save_picture_732877.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Calibre 4.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732876.jpg" />
+  <img src="Z:/picture/008/save_picture_732876.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VueScan Pro 9.7.29 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732871.jpg" />
+  <img src="Z:/picture/008/save_picture_732871.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ DaVinci Resolve Studio 16.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732826.jpg" />
+  <img src="Z:/picture/008/save_picture_732826.jpg" />
 </div>
 
 

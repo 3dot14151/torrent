@@ -1,3 +1,119 @@
+###  Публикация: 1449747   (1029576) от 23.02.2021
+
+Marbin - Russian Dolls (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion,Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When There Becomes Here. 6:00
+02. Yellow Roman Candles. 2:57
+03. The Great Rosegray. 8:13
+04. Years That Ask Questions. 3:36(   Читать дальше...   )Жанр: Fusion,Jazz-RockПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042C812F5487D79CAB02D64C4EA101DC47358D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450012   (1029392) от 24.02.2021
+
+Fats Waller - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade for a Wealthy Widow [2:39]
+02. How Can You Face Me? [2:49]
+03. Sweetie Pie [3:06]
+04. Mandy [2:32](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E98DB44FC1B0AA55D09DAA9DB2CE2BBDD4DE64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450014   (1029391) от 24.02.2021
+
+Willie "The Lion" Smith - 1925 - 1937 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Blues [3:00]
+02. Keep Your Temper [2:58]
+03. Rock, Jenny, Rock [2:42]
+04. It's Right Here for You [2:39](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D9EFF6EAC3B34AF1AEEA01B35440EA11405C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450249   (1029229) от 25.02.2021
+
+Django Reinhardt - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosetta [2:30]
+02. Sugar [2:42]
+03. A Pretty Girl Is Like a Melody [2:39]
+04. Margie [2:17](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB59825E8008A9A9C731810AEFC0BEB08019F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623789   (1029095) от 03.04.2023
 
 Silje Nergaard - Japanese Blue (Acoustic Version) (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues, Soul>
@@ -6,7 +122,7 @@ Silje Nergaard - Japanese Blue (Acoustic Version) (2020) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029095.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Keiko Matsui - Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029085.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Coleman Hawkins - 1929 - 1934 (1991) Classics [FLAC|Lossless|tracks + .cue] <Ear
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029075.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Red Nichols - 1930 - 1931 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028569.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ricky Ford - Ebony Rhapsody (1990) Candid [FLAC|Lossless|tracks + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028384.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ella Fitzgerald & Louis Armstrong - Together (1956 - 1957) 2CD, 2009, Not Now Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028236.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Jazz Dictionary F (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028234.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ The Red Heads - 1925 - 1927 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028103.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Cristina Branco - Eva (2020) [WavPack|Lossless|image + .cue] <Fado, Tango>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027764.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Dakota Staton - The Complete Early Years (1955 - 1958) 2CD, 2019, Acrobat [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027413.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Angelo Comincini - Misteri Architettonici (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027233.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027115.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027114.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Willie ''The Lion'' Smith - 1950 - 1953 (2005) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026977.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Singing With The Stars (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026901.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Singing With The Stars Vol.2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026882.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Mezz Mezzrow - 1944 - 1945 (1999) Classics [FLAC|Lossless|image + .cue] <Dixiela
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026805.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Antonio Forcione - Acoustic Revenge (1999) Naim [FLAC|Lossless|image + .cue] <In
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026736.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Jazz Dictionary T (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026441.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Art Pepper - Unreleased Art, Vol.11: Atlanta (1980) 2CD, 2020, Widow's Taste [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026440.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ahmad Jamal - Tranquility & Outertimeinnerspace (1968, 1972) 2015, Universal [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026268.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026136.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3BE26338F2E4C615FA67E540328C458D9C951F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454892   (1026009) от 17.03.2021
-
-Steve Davis Quartet with Larry Willis - Alone Together (2007) Mapleshade Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milestones [6:32]
-02. My Foolish Heart [4:13]
-03. Surrey with the Fringe on Top [9:51]
-04. Alone Together [8:55](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DC624E71A260814B490EFEAC3E65BB5DF9B720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454760   (1025993) от 17.03.2021
-
-Dena DeRose - I Can See Clearly Now (2000) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Should Lose You [4:44]
-02. Detour Ahead [6:37]
-03. I've Never Been in Love Before [4:23]
-04. I Can See Clearly Now [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB31B53B60D2C53572A729DA3E15545CD413353E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454895   (1025985) от 17.03.2021
-
-Dena DeRose - Travelin' Light: Live in Antwerp, Belgium (2010) 2012, MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'n Easy [4:27]
-02. 'S Wonderful [4:24]
-03. Two Different Worlds [4:11]
-04. East of the Sun (And West of the Moon) [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F688FB8413641AAA13F9D87FCD520241796914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455313   (1025856) от 18.03.2021
-
-Toots Thielemans & Kenny Werner (2001) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolphin Dance [7:08]
-02. The Dolphin [7:00]
-03. Sinatra Medley [5:58]
-04. Tender Is the Night [3:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2D217F1239FAD212215DB55FBA6E90F9FA04FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

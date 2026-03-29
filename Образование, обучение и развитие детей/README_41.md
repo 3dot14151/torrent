@@ -1,3 +1,56 @@
+###  Публикация: 1152295   (567306) от 22.07.2017
+
+Н.Н.  Плавильщиков | Юным любителям природы (1975) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга в помощь любителям природы. Ее написал известный энтомолог доктор биологических наук Н.Н. Плавильщиков. Но в ней рассказывается не только о жизни насекомых. Автор знакомит с сезонными изменениями в природе; рассказывает, какие можно провести наблюдения и поставить опыты над растениями и животными.
+Много интересных сведений и полезных советов сообщает в (   Читать дальше...   )Жанр: Научно-популярнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C52E6D644936DDAC9664C816BD18A5B6610CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044272   (566943) от 19.08.2016
+
+Александр Блинков | Геометрия в негеометрических задачах (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатая книжка серии "Школьные математические кружки" посвящена геометрическим методам решения различных задач и предназначена для занятий со школьниками 6-11 классов. В неё вошли разработки девяти занятий математического кружка с подробно разобранными примерами различной сложности, задачами для самостоятельного решения и методическими указаниями для (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4467EA133D1BAD753AFB04151D3592BBD8DC2EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922880   (566444) от 30.07.2015
 
 М.С. Фетисова (ред.) | Я говорю по-французски. Мой первый самоучитель в картинках (2010) [DJVU]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566444.jpg" />
+  <img src="Z:/picture/008/save_picture_566444.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566267.jpg" />
+  <img src="Z:/picture/008/save_picture_566267.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566233.jpg" />
+  <img src="Z:/picture/008/save_picture_566233.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564532.jpg" />
+  <img src="Z:/picture/008/save_picture_564532.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564439.jpg" />
+  <img src="Z:/picture/008/save_picture_564439.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564396.jpg" />
+  <img src="Z:/picture/008/save_picture_564396.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562638.jpg" />
+  <img src="Z:/picture/008/save_picture_562638.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562565.jpg" />
+  <img src="Z:/picture/008/save_picture_562565.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561867.jpg" />
+  <img src="Z:/picture/008/save_picture_561867.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560954.jpg" />
+  <img src="Z:/picture/008/save_picture_560954.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560920.jpg" />
+  <img src="Z:/picture/008/save_picture_560920.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560586.jpg" />
+  <img src="Z:/picture/008/save_picture_560586.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559544.jpg" />
+  <img src="Z:/picture/008/save_picture_559544.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558924.jpg" />
+  <img src="Z:/picture/008/save_picture_558924.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558811.jpg" />
+  <img src="Z:/picture/008/save_picture_558811.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556405.jpg" />
+  <img src="Z:/picture/008/save_picture_556405.jpg" />
 </div>
 
 
@@ -441,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556133.jpg" />
+  <img src="Z:/picture/008/save_picture_556133.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555520.jpg" />
+  <img src="Z:/picture/008/save_picture_555520.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555420.jpg" />
+  <img src="Z:/picture/008/save_picture_555420.jpg" />
 </div>
 
 
@@ -520,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555058.jpg" />
+  <img src="Z:/picture/008/save_picture_555058.jpg" />
 </div>
 
 
@@ -546,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554983.jpg" />
+  <img src="Z:/picture/008/save_picture_554983.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554820.jpg" />
+  <img src="Z:/picture/008/save_picture_554820.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552783.jpg" />
+  <img src="Z:/picture/008/save_picture_552783.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551722.jpg" />
+  <img src="Z:/picture/008/save_picture_551722.jpg" />
 </div>
 
 
@@ -638,60 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCBAC5296D7DEA9660D516D082B16EBADD7D6801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815775   (551546) от 24.08.2014
-
-И.В.Ковалец | Смена сезонов (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551546.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии ребенок найдет много интересных и познавательных заданий на тему времен года, которые даны с учетом его жизненного опыта. Выполняя эти задания, ребенок в игровой форме познакомится с основными признаками каждого времени года, с сезонными изменениями, которые происходят в живой и неживой природе. Узнает о занятиях и играх детей, которые различны в зависимости от времени года. Работая вместе с ребенком над пособием, Вы поможете расширить его познания о гармонии окружающего мира.
-Пособие предназначено (   Читать дальше...   )Жанр: учебное наглядное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7FD9B78F40DB7D504F1465CC07A6B5BFA790C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046822   (550868) от 28.08.2016
-
-С.Я. Лайзане | Физическая культура для малышей (1978) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550868.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии раскрыты организация и методика воспитательной работы по физической культуре с детьми 1—3 лет. Упражнения и игры, разработанные автором, представляют собой последовательную систему физического воспитания детей младшего дошкольного возраста.
-Особое место уделено педагогическому контролю и описанию приемов обследования движений детей 1—3 лет. Это позволит (   Читать дальше...   )Жанр: ПособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74409C2D505FCDA54519719E4CBE23319FAB7F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1328668   (359263) от 02.10.2019
+
+Геннадий Гор | Волшебная дорога [сборник] (1978) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь человека подобна книге, но не каждому доводится не только прочесть эту книгу, но и путешествовать вместе с ней по странам и временам, по реальным событиям далёкого прошлого и страницам других книг. Ведь книга по имени Офелия, это ещё и женщина: загадочная, капризная и прекрасная, и перед ней открыты пути, недоступные другим людям.Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0B16CC6287CD4A2F4D1C45FD5CAE6E98E8C43F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328865   (359261) от 02.10.2019
+
+Коллектив авторов | Ошибка создателя [сборник] (1975) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 60-х ХХ века. Бывшее Бельгийское Конго. Провинция Катанга под руководством Моиза Чомбе. Белые наемники патрулируют джунгли и наталкиваются на неизвестное существо. Что это? Оборотень, неизвестное африканское животное или пришелец из космоса? И что с ним делать дальше?Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F09F76C582ECB8F6211AD290F7A2C395FD29CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328674   (359260) от 02.10.2019
 
 А. Кузнецов (сост.) | Звездная гавань [сборник] (1981) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359260.jpg" />
+  <img src="Z:/picture/008/save_picture_359260.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359257.jpg" />
+  <img src="Z:/picture/008/save_picture_359257.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359256.jpg" />
+  <img src="Z:/picture/008/save_picture_359256.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359175.jpg" />
+  <img src="Z:/picture/008/save_picture_359175.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359151.jpg" />
+  <img src="Z:/picture/008/save_picture_359151.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Aриадна Громова, Виктор Комаров | По следам н
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359149.jpg" />
+  <img src="Z:/picture/008/save_picture_359149.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359147.jpg" />
+  <img src="Z:/picture/008/save_picture_359147.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359103.jpg" />
+  <img src="Z:/picture/008/save_picture_359103.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359063.jpg" />
+  <img src="Z:/picture/008/save_picture_359063.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358994.jpg" />
+  <img src="Z:/picture/008/save_picture_358994.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358907.jpg" />
+  <img src="Z:/picture/008/save_picture_358907.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358566.jpg" />
+  <img src="Z:/picture/008/save_picture_358566.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358517.jpg" />
+  <img src="Z:/picture/008/save_picture_358517.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358150.jpg" />
+  <img src="Z:/picture/008/save_picture_358150.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358126.jpg" />
+  <img src="Z:/picture/008/save_picture_358126.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357938.jpg" />
+  <img src="Z:/picture/008/save_picture_357938.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357927.jpg" />
+  <img src="Z:/picture/008/save_picture_357927.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357767.jpg" />
+  <img src="Z:/picture/008/save_picture_357767.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357750.jpg" />
+  <img src="Z:/picture/008/save_picture_357750.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357738.jpg" />
+  <img src="Z:/picture/008/save_picture_357738.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357559.jpg" />
+  <img src="Z:/picture/008/save_picture_357559.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356711.jpg" />
+  <img src="Z:/picture/008/save_picture_356711.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356634.jpg" />
+  <img src="Z:/picture/008/save_picture_356634.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356629.jpg" />
+  <img src="Z:/picture/008/save_picture_356629.jpg" />
 </div>
 
 
@@ -636,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91F16734B09DCC7DFA22DA68CE78EFC086857302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329072   (356521) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Последнее путешествие полковника Фосетта [Сборник] (1965) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда все исследовательские работы на Анизателле были выполнены, люди неожиданно обнаружили необычное плато, которое не реагировало ни на какое внешнее воздействие...Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881DA172BB5DDB16577A674B30E44A3FB6CA8DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329185   (356520) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Уравнение с Бледного Нептуна [Сборник] (1964) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земляне направили космический корабль в район Фомальгаута с целью экспериментальной проверки гравиконцентраторов. В ходе эксперимента один из приборов записал весьма странное сообщение в виде изображения нескольких листков бумаги с формулами, которые явно писал человек. Формулы несли новые знания неизвестные людям…Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C962648A2C31633B8441A83207027378C63A36F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

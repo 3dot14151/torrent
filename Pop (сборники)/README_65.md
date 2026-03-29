@@ -1,3 +1,177 @@
+###  Публикация: 1041077   (584465) от 07.08.2016
+
+VA - Самые Популярные Новинки Года. Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Недоспелов - На Экскаваторе
+002. Аида Николайчук - Inner Power
+003. Sasha Holiday - Цвет Желаний
+004. Анимация - Не По-Русски(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327263301F423A1F896759F2FC70584FFEC95AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040876   (584462) от 07.08.2016
+
+VA - Awesome 80s Super Hits (2016) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lio - Le banana split
+02. Tapo & Roby - Under The Ice
+03. Francis Lalanne - On se retrouvera (BOF ''Le passage'')
+04. Veronique Jannot - J'ai fait l'amour avec la mer(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01B46342F53B9C960CA1C2FE5757D6E26170B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040969   (584430) от 07.08.2016
+
+VA - Никто кроме ты. Русское радио (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584430.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бьянка - Никто Кроме Ты (Летняя Песня)
+002. Olisha - Дай Мне
+003. Стрелки - Семь Морей
+004. Andre Tay - Детство(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EB1EFBF4B8BD92F0BD9B4665F414F04F01D9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301583   (584280) от 12.05.2019
+
+VA - German TOP 100 Single Charts 17.05. (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juju - Vermissen (feat. Henning May)
+002. Lil Nas X - Old Town Road
+003. Pietro Lombardi - Bella Donna
+004. Billie Eilish - bad guy(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CEA6430AC2FDA5740B74875C5403FA764F70D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301340   (584227) от 12.05.2019
+
+VA - Dance Sound Strange May (2019) [MP3|320 Kbps] <Dance, Hands Up, Hard Trance, Nu Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584227.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Disco Killerz and GATTUSO - Million Things (Original Mix)
+002. Inner Sinner - Chances (Radio Edit)
+003. DJ Luciano - Do You Miss Me So Much
+004. Dj tomsten - Redy To Blah Baby(   Читать дальше...   )Жанр: Dance, Hands Up, Hard Trance, Nu DiscoПродолжительность: 08:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C99D2845B165BE5B5BA2657DA79FB459C47B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301179   (584215) от 12.05.2019
+
+VA - Heartbeat: Popular Greatest Hits (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrena Line - Outside (Original Mix)
+002. Alex Mota - Samba
+003. Altar Feat. Joelapussy - Cha Cha Cha
+004. Aestria - Into U(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E32F5A2F1F7E1F14538A2CF42F6C9DF182A7BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358554   (584125) от 04.07.2011
 
 VA - Turbo дискотека 50/50 (2011) [MP3|256 kbps]<Pop>
@@ -6,7 +180,7 @@ VA - Turbo дискотека 50/50 (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584125.jpg" />
+  <img src="Z:/picture/008/save_picture_584125.jpg" />
 </div>
 
 
@@ -32,7 +206,7 @@ VA - Летний заводной музон. Сборник 8 (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584063.jpg" />
+  <img src="Z:/picture/008/save_picture_584063.jpg" />
 </div>
 
 
@@ -61,7 +235,7 @@ VA - Классный muzon. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584061.jpg" />
+  <img src="Z:/picture/008/save_picture_584061.jpg" />
 </div>
 
 
@@ -90,7 +264,7 @@ VA - Клубная Туса От Русских Диджеев (2011) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584044.jpg" />
+  <img src="Z:/picture/008/save_picture_584044.jpg" />
 </div>
 
 
@@ -116,7 +290,7 @@ VA - Море музыки Top 100 (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584041.jpg" />
+  <img src="Z:/picture/008/save_picture_584041.jpg" />
 </div>
 
 
@@ -142,7 +316,7 @@ VA - Море позитива популярный сборник (2015) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583839.jpg" />
+  <img src="Z:/picture/008/save_picture_583839.jpg" />
 </div>
 
 
@@ -171,7 +345,7 @@ VA - Русский Хит Парад 90-Х (2011) [MP3|192-256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583787.jpg" />
+  <img src="Z:/picture/008/save_picture_583787.jpg" />
 </div>
 
 
@@ -197,7 +371,7 @@ VA - Billboard TOP100 Single Charts (13.08.2016) (2016) [MP3|128-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583415.jpg" />
+  <img src="Z:/picture/008/save_picture_583415.jpg" />
 </div>
 
 
@@ -226,7 +400,7 @@ VA - Drive Best Hits Compilation Vol.10 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583407.jpg" />
+  <img src="Z:/picture/008/save_picture_583407.jpg" />
 </div>
 
 
@@ -255,7 +429,7 @@ VA - Музыкайф Европы Плюс Часть 3 (2011) [MP3|256 kbps]<D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583097.jpg" />
+  <img src="Z:/picture/008/save_picture_583097.jpg" />
 </div>
 
 
@@ -281,7 +455,7 @@ VA - Новички в попсе Vol 12 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582812.jpg" />
+  <img src="Z:/picture/008/save_picture_582812.jpg" />
 </div>
 
 
@@ -310,7 +484,7 @@ VA - Дискотека забытых хитов (зарубежная) - 15 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582688.jpg" />
+  <img src="Z:/picture/008/save_picture_582688.jpg" />
 </div>
 
 
@@ -339,7 +513,7 @@ VA - We Love Summer (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582470.jpg" />
+  <img src="Z:/picture/008/save_picture_582470.jpg" />
 </div>
 
 
@@ -368,7 +542,7 @@ VA - Running Hits Summer Edition (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582124.jpg" />
+  <img src="Z:/picture/008/save_picture_582124.jpg" />
 </div>
 
 
@@ -397,7 +571,7 @@ VA - Recover - Ministry of Sound (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581474.jpg" />
+  <img src="Z:/picture/008/save_picture_581474.jpg" />
 </div>
 
 
@@ -426,7 +600,7 @@ VA - Летняя дискотека 50х50 №6 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581469.jpg" />
+  <img src="Z:/picture/008/save_picture_581469.jpg" />
 </div>
 
 
@@ -455,7 +629,7 @@ VA - Я буду рядом (2016) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581467.jpg" />
+  <img src="Z:/picture/008/save_picture_581467.jpg" />
 </div>
 
 
@@ -484,7 +658,7 @@ VA - Лучшая сотка летних дискотек №3 (2016) [MP3|256-
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581463.jpg" />
+  <img src="Z:/picture/008/save_picture_581463.jpg" />
 </div>
 
 
@@ -513,7 +687,7 @@ VA - Boom Enerjy №5 (2016) [MP3|320 Kbps] <Pop, Dance, club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581459.jpg" />
+  <img src="Z:/picture/008/save_picture_581459.jpg" />
 </div>
 
 
@@ -542,7 +716,7 @@ VA - New World hits №2 (2016) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581437.jpg" />
+  <img src="Z:/picture/008/save_picture_581437.jpg" />
 </div>
 
 
@@ -556,168 +730,6 @@ VA - New World hits №2 (2016) [MP3|256-320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAED504ECAF4530D8613EEC34FE096CA520DE7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041872   (581429) от 10.08.2016
-
-VA - Супер популярный летний Русский (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581429.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Билан - В Твоей Голове
-002. Единое Братство Feat. David Argunetta - По Волнам
-003. Наталья Подольская - Сердечко
-004. Оля Полякова - Плавочки(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF4066660D1416C84BC7FF83856E5186969DF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041732   (581419) от 10.08.2016
-
-VA - German Top №8 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - This One's For You (feat. Zara Larsson)Жанр: PopПродолжительность: 05:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528691E1B24E072AF988D4D8A4C147C45726EB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041895   (581236) от 10.08.2016
-
-VA - Молодёжная 100-ка. Презент Летних Новинок (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mnek - More Than A Miracle
-02. Ваня Чебанов - Все Хорошо
-03. Evgen Dia - Меланхолия
-04. Лиза Хегай - Наполовину(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A9D093CD846CB6AC73A905F0EF07C3C03B2184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359838   (581161) от 07.07.2011
-
-VA - Улётные новинки граммофона - хитовая авиация (2011) [MP3|160 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 09:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB5779B5DEE5DB9E4EACF10FC6093471A8637E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359807   (581160) от 07.07.2011
-
-VA - Самые сливки МузТВ 6  (2011) [MP3|256 kbps]<Pop / Dance >
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop / DanceПродолжительность: 06:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E878D0C233287A3595E6B19523719112197D210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359627   (581153) от 07.07.2011
-
-VA - Русская Ночная Супердискотека №4 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4246190E8B3A5CDFE17B9F26C73145402AE089F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

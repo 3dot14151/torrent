@@ -6,7 +6,7 @@ Privacy Eraser Free 4.61.0 Build 3425 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886987.jpg" />
+  <img src="Z:/picture/005/save_picture_886987.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Loaris Trojan Remover 3.1.21.1446 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886978.jpg" />
+  <img src="Z:/picture/005/save_picture_886978.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Viber 12.7.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886966.jpg" />
+  <img src="Z:/picture/005/save_picture_886966.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WinSCP 5.17.3 Build 10325 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886958.jpg" />
+  <img src="Z:/picture/005/save_picture_886958.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Trojan Killer 2.1.19 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886957.jpg" />
+  <img src="Z:/picture/005/save_picture_886957.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PhotoLine 22.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886955.jpg" />
+  <img src="Z:/picture/005/save_picture_886955.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WireGuard VPN 0.4.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886951.jpg" />
+  <img src="Z:/picture/005/save_picture_886951.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886935.jpg" />
+  <img src="Z:/picture/005/save_picture_886935.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Opera GX 67.0.3575.130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886916.jpg" />
+  <img src="Z:/picture/005/save_picture_886916.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ORPALIS PDF Reducer Professional 3.1.14 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886901.jpg" />
+  <img src="Z:/picture/005/save_picture_886901.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Total Commander LE 2.30 (9.00a-x32-x64) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886870.jpg" />
+  <img src="Z:/picture/005/save_picture_886870.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Mozilla Firefox MO 3.52 (45.7.0 esr) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886866.jpg" />
+  <img src="Z:/picture/005/save_picture_886866.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886864.jpg" />
+  <img src="Z:/picture/005/save_picture_886864.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Audition 2020 13.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886861.jpg" />
+  <img src="Z:/picture/005/save_picture_886861.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_886857.jpg" />
+  <img src="Z:/picture/009/save_picture_886857.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ iMazing 2.11.4 (Build 13602) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886832.jpg" />
+  <img src="Z:/picture/005/save_picture_886832.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886830.jpg" />
+  <img src="Z:/picture/005/save_picture_886830.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CoolUtils Total Audio Converter 5.3.0.226 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886817.jpg" />
+  <img src="Z:/picture/005/save_picture_886817.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ ORPALIS PaperScan Professional 3.0.101 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886797.jpg" />
+  <img src="Z:/picture/005/save_picture_886797.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sketch 64 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886782.jpg" />
+  <img src="Z:/picture/005/save_picture_886782.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Gary Allan - 11 альбомов (1996-2013) [FLAC|Lossless]<Country>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886777.jpg" />
+  <img src="Z:/picture/005/save_picture_886777.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Carbon Copy Cloner 5.1.16 (Build 5965) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886772.jpg" />
+  <img src="Z:/picture/005/save_picture_886772.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - ElectroЖесть v.24 (2010) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886758.jpg" />
+  <img src="Z:/picture/005/save_picture_886758.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Icecream PDF Editor PRO 2.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886740.jpg" />
+  <img src="Z:/picture/005/save_picture_886740.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Altium Designer 17.0.10 Build 617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886724.jpg" />
+  <img src="Z:/picture/005/save_picture_886724.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886701.jpg" />
+  <img src="Z:/picture/005/save_picture_886701.jpg" />
 </div>
 
 

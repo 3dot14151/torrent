@@ -1,3 +1,81 @@
+###  Публикация: 1410546   (435656) от 21.09.2020
+
+Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wind Peaks — это поисковая игра, вручную нарисованная в мультипликационной стилистике, рассказывающая историю о группе скаутов, которые находят карту и благодаря ей попадают в магическую часть леса. В WInd Peaks история рассказывается через спрятанные предметы и окружение. Чтобы продвинуться по ней и активировать кат-сцену, найдите все предметы на уровне.Тип издания: RepackРазработчик: Actoon StudioЖанр: Adventure (Quest), Hidden Object, 2DЯзык интерфейса: Русский, Английский, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A073BDE7B5F7CB1E0E1C114ECEB0897361B24E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571512   (431288) от 22.08.2022
+
+A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431288.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Tale of Paper - это платформер-головоломка, рассказывающий историю Линии, волшебного персонажа из бумаги, который может менять свою форму с помощью оригами. Превращаться в лягушку, ракету, птицу и других персонажей, пока Лайн отправляется в эмоциональное путешествие, чтобы осуществить мечту своего создателя.Тип издания: LicenseРазработчик: Open House GamesЖанр: Приключение, Головоломка, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C80A2390CF2494302AE20EF58B574062629578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165319   (430054) от 14.09.2017
+
+Still Life 2 (2009) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто же скрывается под именем мистера Икс? В игре Still Life 2 вас ждет долгожданный финал оригинальной Still Life и новое расследование агента Виктории МакФерсон. Осенью 2008 года Викторию отправляют в штат Мейн, где было обнаружено тело Эллен Данниган. Характер действий преступника, а также отправленное полиции и прессе видео не оставляют сомнений: Мучитель с Восточного (   Читать дальше...   )Тип издания: LicenseРазработчик: GameCO StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F28FBE5BBE1D1476A74704021F01A17528EE3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002402   (429676) от 18.10.2016
 
 Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episodes 1-8]
@@ -6,7 +84,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429676.jpg" />
+  <img src="Z:/picture/008/save_picture_429676.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429221.jpg" />
+  <img src="Z:/picture/008/save_picture_429221.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428732.jpg" />
+  <img src="Z:/picture/005/save_picture_428732.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428627.jpg" />
+  <img src="Z:/picture/008/save_picture_428627.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426681.jpg" />
+  <img src="Z:/picture/008/save_picture_426681.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Path to Mnemosyne (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424118.jpg" />
+  <img src="Z:/picture/008/save_picture_424118.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423431.jpg" />
+  <img src="Z:/picture/008/save_picture_423431.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422944.jpg" />
+  <img src="Z:/picture/008/save_picture_422944.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422817.jpg" />
+  <img src="Z:/picture/008/save_picture_422817.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/Multi] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422780.jpg" />
+  <img src="Z:/picture/008/save_picture_422780.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420073.jpg" />
+  <img src="Z:/picture/008/save_picture_420073.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Panzer Dragoon: Remake (2020) [Ru/Multi] (0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420067.jpg" />
+  <img src="Z:/picture/008/save_picture_420067.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Trollhunters: Defenders of Arcadia / Охотники на троллей: За�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420021.jpg" />
+  <img src="Z:/picture/008/save_picture_420021.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Octave (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418029.jpg" />
+  <img src="Z:/picture/008/save_picture_418029.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack CoolGames [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416643.jpg" />
+  <img src="Z:/picture/008/save_picture_416643.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Best Month Ever! (2022) [Ru/Multi] (1.0.0_020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416064.jpg" />
+  <img src="Z:/picture/008/save_picture_416064.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Jotun (2015) [Ru/Multi] (11-09-2019) License GOG [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415901.jpg" />
+  <img src="Z:/picture/008/save_picture_415901.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) License GOG [Alone Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415293.jpg" />
+  <img src="Z:/picture/008/save_picture_415293.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (1.0) License [20th Anniversa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414111.jpg" />
+  <img src="Z:/picture/008/save_picture_414111.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413151.jpg" />
+  <img src="Z:/picture/008/save_picture_413151.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412098.jpg" />
+  <img src="Z:/picture/008/save_picture_412098.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411941.jpg" />
+  <img src="Z:/picture/008/save_picture_411941.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411755.jpg" />
+  <img src="Z:/picture/008/save_picture_411755.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC860DAAB58D6346A7F0384151BE607341E691FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066480   (411081) от 26.10.2016
-
-Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Full Throttle - одно из самых лучших детищ Lucas Arts. Это увлекательный, динамечный и очень кинематографичный квест. Прекрасная графика, идеальная анимация, великолепная озвучка, 3D-шные модели мотоциклов и прочих механизмов, интересный сюжет, прекрасно поставленные заставки - всё это должно, несомненно, порадовать игрока.Тип издания: RepackРазработчик: LucasArts EntertainmentЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9ECD1A34D5BFE2486B249E7E490906759A8059E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413375   (409202) от 03.10.2020
-
-The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409202.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything).Тип издания: LicenseРазработчик: CroteamЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE82D7E9C7CE2D74DAAD61651136E2F7DC7204D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066803   (409148) от 27.10.2016
-
-Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409148.jpg" />
-</div>
-
-
-###  Подробнее
-
-"По ту сторону кристалла" — игра в ремонт мира с персонажами, дающими навыки для победы над врагами! Мир, разрушенный взрывом кристалла, угроза для обитателей и богиня, создающая героя. Они нужны, чтобы разгадать загадки и пройти зоны уровней. Готовы оказаться по ту сторону кристалла? Города в руинах, жители исчезли, но надежда ещё есть. Джинджер должен (   Читать дальше...   )Тип издания: LicenseРазработчик: Drakhar StudioЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491125655F4FECB2504D239CD1DDE71A25564D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

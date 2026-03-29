@@ -1,3 +1,29 @@
+###  Публикация: 562830   (403846) от 22.10.2012
+
+А.Б.Аверин | Адмиралы и Маршалы. Корабли проектов 1134 и 1134А [2007] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_403846.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 60-70-е гг. в Советском Союзе на двух судостроительных заводах в Ленинграде и Николаеве по трем проектам, разработанным Северным ПКБ, был построен 21 корабль со схожими номерами проекта- 1134, 1134А, 1134Б. В шифре присутствовало объединяющее слово - "Беркут". В этой книге повествуется о кораблях проектов 1134 и 1134А, она является 1 и 2 частью общего труда, объединенного названием - "Беркуты". Достаточно подробно описано устройство кораблей двух проектов, их вооружение, рассказано об истории их создания и их боевой работе.  Книга иллюстрирована 370 фотографиями и обширным графическим материалом.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571728D92E47B322429C1356F3924AFCF25183E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563310   (403700) от 22.10.2012
 
 Алон Гук | Мой Западный берег. Записки бойца израильского спецназа [2010] [FB2]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403700.jpg" />
+  <img src="Z:/picture/008/save_picture_403700.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403598.jpg" />
+  <img src="Z:/picture/008/save_picture_403598.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403508.jpg" />
+  <img src="Z:/picture/008/save_picture_403508.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403489.jpg" />
+  <img src="Z:/picture/008/save_picture_403489.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403447.jpg" />
+  <img src="Z:/picture/008/save_picture_403447.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403106.jpg" />
+  <img src="Z:/picture/008/save_picture_403106.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402604.jpg" />
+  <img src="Z:/picture/008/save_picture_402604.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402260.jpg" />
+  <img src="Z:/picture/008/save_picture_402260.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402254.jpg" />
+  <img src="Z:/picture/008/save_picture_402254.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400575.jpg" />
+  <img src="Z:/picture/008/save_picture_400575.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400504.jpg" />
+  <img src="Z:/picture/008/save_picture_400504.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397609.jpg" />
+  <img src="Z:/picture/008/save_picture_397609.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397538.jpg" />
+  <img src="Z:/picture/008/save_picture_397538.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397532.jpg" />
+  <img src="Z:/picture/008/save_picture_397532.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397055.jpg" />
+  <img src="Z:/picture/008/save_picture_397055.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396764.jpg" />
+  <img src="Z:/picture/008/save_picture_396764.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396614.jpg" />
+  <img src="Z:/picture/008/save_picture_396614.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395934.jpg" />
+  <img src="Z:/picture/008/save_picture_395934.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394837.jpg" />
+  <img src="Z:/picture/008/save_picture_394837.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393115.jpg" />
+  <img src="Z:/picture/008/save_picture_393115.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393109.jpg" />
+  <img src="Z:/picture/008/save_picture_393109.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393053.jpg" />
+  <img src="Z:/picture/008/save_picture_393053.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393039.jpg" />
+  <img src="Z:/picture/008/save_picture_393039.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392979.jpg" />
+  <img src="Z:/picture/008/save_picture_392979.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392901.jpg" />
+  <img src="Z:/picture/008/save_picture_392901.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA857674482DA5635AC6A81377F9AC1445C733A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172441   (392830) от 08.10.2017
-
-Сергей Жевалов | Анти-Суворов. «Ледокол» опровергнут! (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фальсификатор-ревизионист от истории В. Суворов-Резун вслед за Геббельсом заявил, что Германия 22 июня 1941 года совершила не вероломное, без объявления войны, нападение на Советский Союз, а… «превентивный» удар.
-Автор, используя архивные материалы, воспоминания советских, германских, английских и американских участников Второй мировой войны, работы ведущих историков (   Читать дальше...   )Жанр: Военная история, Исторические исследованияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F23FBBA760927E019CBD419F3DBB03C5D64499
 ```
 
 https://mybot314.ru/tekegram_catalog/

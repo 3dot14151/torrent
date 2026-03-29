@@ -6,7 +6,7 @@ VueScan Pro 9.5.48 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770224.jpg" />
+  <img src="Z:/picture/008/save_picture_770224.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Pure Chillout (2001) [FLAC|Lossless]<Electronic, Modern Classical, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770213.jpg" />
+  <img src="Z:/picture/008/save_picture_770213.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770200.jpg" />
+  <img src="Z:/picture/008/save_picture_770200.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ qBittorrent 3.3.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770196.jpg" />
+  <img src="Z:/picture/008/save_picture_770196.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Navicat Premium 11.2.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770193.jpg" />
+  <img src="Z:/picture/008/save_picture_770193.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cyberfox 46.0.3 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770191.jpg" />
+  <img src="Z:/picture/008/save_picture_770191.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770188.jpg" />
+  <img src="Z:/picture/008/save_picture_770188.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770186.jpg" />
+  <img src="Z:/picture/008/save_picture_770186.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Process Lasso Pro 8.9.8.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770184.jpg" />
+  <img src="Z:/picture/008/save_picture_770184.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ant Download Manager 0.3.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770154.jpg" />
+  <img src="Z:/picture/008/save_picture_770154.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Replay Video Capture 8.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770150.jpg" />
+  <img src="Z:/picture/008/save_picture_770150.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adobe Acrobat Pro DC 2015.016.20039 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770104.jpg" />
+  <img src="Z:/picture/008/save_picture_770104.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770101.jpg" />
+  <img src="Z:/picture/008/save_picture_770101.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770085.jpg" />
+  <img src="Z:/picture/008/save_picture_770085.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ DaVinci Resolve Studio 12.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770071.jpg" />
+  <img src="Z:/picture/008/save_picture_770071.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Daum PotPlayer 1.6.60136 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770070.jpg" />
+  <img src="Z:/picture/008/save_picture_770070.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ JetBrains WebStorm 2016.1.2 Build #WS-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770069.jpg" />
+  <img src="Z:/picture/008/save_picture_770069.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770056.jpg" />
+  <img src="Z:/picture/008/save_picture_770056.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770050.jpg" />
+  <img src="Z:/picture/008/save_picture_770050.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770043.jpg" />
+  <img src="Z:/picture/008/save_picture_770043.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770041.jpg" />
+  <img src="Z:/picture/008/save_picture_770041.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Slime Rancher (2016) [Ru] (0.3.1) Repack ours
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770040.jpg" />
+  <img src="Z:/picture/008/save_picture_770040.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ TeamViewer 11.0.59518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770033.jpg" />
+  <img src="Z:/picture/008/save_picture_770033.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770030.jpg" />
+  <img src="Z:/picture/008/save_picture_770030.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Adobe Acrobat XI Pro 11.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770009.jpg" />
+  <img src="Z:/picture/008/save_picture_770009.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Angry Birds в кино / Angry Birds (2016) CAMRip
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770003.jpg" />
+  <img src="Z:/picture/008/save_picture_770003.jpg" />
 </div>
 
 

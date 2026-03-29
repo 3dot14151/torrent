@@ -6,7 +6,7 @@ Adguard Premium 6.2.437.2171 RePack by elchupacabra (7.01.2018) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813054.jpg" />
+  <img src="Z:/picture/008/save_picture_813054.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stellarium 0.15.2 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813047.jpg" />
+  <img src="Z:/picture/008/save_picture_813047.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ LibreOffice 5.3.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813045.jpg" />
+  <img src="Z:/picture/008/save_picture_813045.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813043.jpg" />
+  <img src="Z:/picture/008/save_picture_813043.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813033.jpg" />
+  <img src="Z:/picture/008/save_picture_813033.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MKVToolNix 10.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813031.jpg" />
+  <img src="Z:/picture/008/save_picture_813031.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Scorpion: Disfigured [Ru] 2009 | spartak07 [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813014.jpg" />
+  <img src="Z:/picture/008/save_picture_813014.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812978.jpg" />
+  <img src="Z:/picture/008/save_picture_812978.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Advanced SystemCare Pro 13.5.0.264 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812965.jpg" />
+  <img src="Z:/picture/008/save_picture_812965.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812963.jpg" />
+  <img src="Z:/picture/008/save_picture_812963.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ K-Lite Codec Pack 12.1.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812950.jpg" />
+  <img src="Z:/picture/008/save_picture_812950.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812946.jpg" />
+  <img src="Z:/picture/008/save_picture_812946.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812939.jpg" />
+  <img src="Z:/picture/008/save_picture_812939.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Debut Video Capture Pro 4.00 RePack by 78Sergey
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812890.jpg" />
+  <img src="Z:/picture/008/save_picture_812890.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812880.jpg" />
+  <img src="Z:/picture/008/save_picture_812880.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mega Bomberman 1.1.1 (SEGA Genesis Game) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812848.jpg" />
+  <img src="Z:/picture/008/save_picture_812848.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Zoner Photo Studio Professional 12.0.1.8 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_812783.jpg" />
+  <img src="Z:/picture/009/save_picture_812783.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812762.jpg" />
+  <img src="Z:/picture/008/save_picture_812762.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Free Studio 6.6.35.323 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812760.jpg" />
+  <img src="Z:/picture/008/save_picture_812760.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Razer Cortex 8.0.104.420 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812757.jpg" />
+  <img src="Z:/picture/008/save_picture_812757.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - La La Land - The Complete Musical Experience (2017) [FLAC 2.0|44kHz/24bit|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812752.jpg" />
+  <img src="Z:/picture/008/save_picture_812752.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Cumulative Update KB4016636 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812751.jpg" />
+  <img src="Z:/picture/008/save_picture_812751.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Battletech 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812726.jpg" />
+  <img src="Z:/picture/008/save_picture_812726.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812710.jpg" />
+  <img src="Z:/picture/008/save_picture_812710.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ HomeWiki 1.0.2 Portable [Ru/En] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812687.jpg" />
+  <img src="Z:/picture/008/save_picture_812687.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Gtopala SIW (System Information for Windows) 2017 7.1.0323 Technician Portable [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812685.jpg" />
+  <img src="Z:/picture/008/save_picture_812685.jpg" />
 </div>
 
 

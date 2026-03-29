@@ -6,7 +6,7 @@ Need for Speed: The Run (2011) [Xbox360] [PAL] 14699 [FreeBoot] [License / TU4] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413305.jpg" />
+  <img src="Z:/picture/008/save_picture_413305.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412924.jpg" />
+  <img src="Z:/picture/008/save_picture_412924.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hacked Xbox Backwards Compatibility / Взломанный эмулятор Xbox
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411760.jpg" />
+  <img src="Z:/picture/008/save_picture_411760.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Resident Evil: Revelations / Biohazard: Revelations [PS3] [EUR] [Ru] [4.31] [Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411653.jpg" />
+  <img src="Z:/picture/008/save_picture_411653.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Spiritfarer (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411178.jpg" />
+  <img src="Z:/picture/008/save_picture_411178.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Disney Epic Mickey 2: The Power of Two (2012) [Xbox360] [RegionFree] [FreeBoot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410691.jpg" />
+  <img src="Z:/picture/008/save_picture_410691.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Pure Football (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408516.jpg" />
+  <img src="Z:/picture/008/save_picture_408516.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hades (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.36054] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407852.jpg" />
+  <img src="Z:/picture/008/save_picture_407852.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Immortal Realms Vampire Wars (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.1
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407846.jpg" />
+  <img src="Z:/picture/008/save_picture_407846.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Valkyria Chronicles  4 (2018) [Switch] [USA] 8.1.0 [NSZ] [Unofficial] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407844.jpg" />
+  <img src="Z:/picture/008/save_picture_407844.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ash of Gods: Redemption (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.0.3] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407747.jpg" />
+  <img src="Z:/picture/008/save_picture_407747.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Last Guardian / Последний хранитель (2016) [PS4] [EUR] 5.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407016.jpg" />
+  <img src="Z:/picture/008/save_picture_407016.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ EA SPORTS UFC 3 (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.14] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406984.jpg" />
+  <img src="Z:/picture/008/save_picture_406984.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Jak and Daxter Collection [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405694.jpg" />
+  <img src="Z:/picture/008/save_picture_405694.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ ExciteBots: Trick Racing [Wii] [NTSC] [Eng] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405408.jpg" />
+  <img src="Z:/picture/008/save_picture_405408.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Dilogy Rayman Legends + Origins (2015) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403748.jpg" />
+  <img src="Z:/picture/008/save_picture_403748.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 3.40 [Repack / 1.01] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403742.jpg" />
+  <img src="Z:/picture/008/save_picture_403742.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Forza Horizon [XBOX360] [RUSSOUND] [Region Free] [Kinect] [LT+3.0] (XGD3/15574) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403299.jpg" />
+  <img src="Z:/picture/008/save_picture_403299.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Pinball Hall of Fame: The Williams Collection [Wii] [NTSC-U] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403265.jpg" />
+  <img src="Z:/picture/008/save_picture_403265.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Metro: Last Light [PS3] [Ru/En] [Repack / 1.02 / 7 DLC] (2013) | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403081.jpg" />
+  <img src="Z:/picture/005/save_picture_403081.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ The Adventures Of Tintin: The Game [PS3] [PAL] [ENG] [MOVE] [3.55] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402702.jpg" />
+  <img src="Z:/picture/008/save_picture_402702.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Kega Fusion [Sega Mega Drive 2] [Ru] (2011)
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402197.jpg" />
+  <img src="Z:/picture/008/save_picture_402197.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401132.jpg" />
+  <img src="Z:/picture/008/save_picture_401132.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 4.76 [OFW] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401127.jpg" />
+  <img src="Z:/picture/008/save_picture_401127.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ DOOM 3 BFG Edition (2012) [PS3] [EUR] 3.40 [Repack / 1.01] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401081.jpg" />
+  <img src="Z:/picture/008/save_picture_401081.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Dark Souls: Prepare To Die Edition [XBOX360] [PAL] [En] [LT+3.0] (XGD3 / 15574) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400737.jpg" />
+  <img src="Z:/picture/008/save_picture_400737.jpg" />
 </div>
 
 

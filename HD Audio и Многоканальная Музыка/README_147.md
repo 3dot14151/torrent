@@ -1,3 +1,235 @@
+###  Публикация: 1741075   (105749) от 04.08.2024
+
+The Home Team - The Crucible Of Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Turn You Off [3:20]
+02 - Brag [3:14]
+03 - Love & Co [2:40]
+04 - Roommates [3:21](   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C60217F014540BE5CD269D1D5FA5D417CDE1A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740978   (105748) от 04.08.2024
+
+The Jive Aces - Keeping the Show on the Road (2024) [FLAC 24/96|Lossless|WEB-DL|image + .cue] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Is Our Bizness (2:35)
+02. Clementine (3:07)
+03. It Don't Mean a Thing (3:17)
+04. Pink Panther Theme (3:03)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B81E5A5E9C9F57C65759B76F89B6C180C2E16ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740836   (105739) от 04.08.2024
+
+Papa Roach - Leave a Light On (Talk Away The Dark) (2024) EP [FLAC 16/44.1, 24/48, 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Leave a Light On (Talk Away The Dark) [3:07]
+02 - Leave a Light On (Talk Away The Dark) [3:08]
+03 - Scars (feat. Chris Daughtry) [3:52]
+04 - Leave a Light On (Talk Away The Dark) (Piano Vocal) [3:07](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B698FD5314AFCC68FF23AA52F5CAD753475C195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740973   (105734) от 04.08.2024
+
+Roberto Giaquinto - Ground Floor (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turkish Flower (3:56)
+02. Scissors (0:28)
+03. The Phoenix (2:44)
+04. Ground Floor (3:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D095A432F34C5D86825459FD830E3673C5F6BB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740963   (105733) от 04.08.2024
+
+Joseph Marcus - Beyond The Dome: The Remixes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival of the Giants (Wonky Logic Remix) (3:42)
+02. Beyond the Dome (Ben Nobuto Remix) (3:43)
+03. Morning Affirmation (Scott Xylo Remix) (2:57)
+04. Challenge Day (NikNak Remix) (3:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7536538B7E1B7CCEDA718AD397D14F80CA4804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740968   (105732) от 04.08.2024
+
+Mai-Liis - Kaleidoscope (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book (5:01)
+02. Wash Away the Wrong (5:01)
+03. What If I Met You Then (5:00)
+04. New Year's Ditty (3:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543869B5B682F6122A38646CECA35B3D6107AC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740977   (105731) от 04.08.2024
+
+Soren (Søren) Lee, Jakob Dinesen, Victor Jones - Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving On (5:21)
+02. Hope (7:09)
+03. Like Tears in The Rain (5:15)
+04. Let's Go (4:34)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BC667F47D3CF91E01081D8927D30DDD3A34858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740970   (105730) от 04.08.2024
+
+Nils Landgren Funk Unit - Raw (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raw (3:06)
+02. If You Like It (4:15)
+03. In Your Skin (4:50)
+04. On the One (3:42)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010584796175160D78B45DDF0E4F2BB24B7D21DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740975   (105729) от 04.08.2024
 
 Slowly Rolling Camera - Silver Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +238,7 @@ Slowly Rolling Camera - Silver Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105729.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Flat Black - Dark Side Of The Brain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105728.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Karla Leal - Can't Deny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105724.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ The Chickens - Drink My Wine: The Smooth Soul Sessions (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105699.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Helloween - Walls of Jericho (1985) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105691.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ The Suspenders - Funkypedia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105686.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Helloween - Keeper of the Seven Keys, Pt. 1 (1987) Remaster 2024 [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105683.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Helloween - Keeper of the Seven Keys, Pt. 2 (1988) Remaster 2024 [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105681.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Tibor Burai - War horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105678.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Michael Wolff - Memoir (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105676.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ The Sofia Goodman Group - Receptive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105675.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Tony Grey - Infinity Glitch (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105673.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105666.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Cher - Living Proof (2001) Deluxe Edition, Reissue, 2024 [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105661.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Cher - Closer to the Truth (2013) Super Deluxe Edition, Reissue, 2024 [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105633.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Jay Lang - Blues, Vol. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105619.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ King Gizzard & The Lizard Wizard - Flight b741 (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105618.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Kaisas - Ieria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105617.jpg" />
 </div>
 
 
@@ -513,236 +745,6 @@ Kaisas - Ieria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8774B40CC963F60D9600D72BF9163878CDA91653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741730   (105616) от 08.08.2024
-
-AJ Fullerton - Closer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost There (2:49)
-02. Oh Frustration (3:47)
-03. Get By (3:11)
-04. New Stories (3:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9E56E981CA4111AC149192A27F380B0B0BD705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741750   (105615) от 08.08.2024
-
-Cody Dickinson - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homemade Blues (3:14)
-02. Big City (2:22)
-03. Walk Right In (3:02)
-04. Goodbye Albuquerque Tuesday Night (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D009F71CCCC74ACE453FD064BC75BCC3D92A386E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741871   (105614) от 08.08.2024
-
-Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Red & The Black (Live) (5:09)
-02. O.D.'d On Life Itself (Live) (4:53)
-03. Hot Rails To Hell (Live) (5:01)
-04. 7 Screaming Diz-Busters (Live) (7:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5E4F2163BDC88A9E3E32E677A06BFC9DAE703E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741752   (105613) от 08.08.2024
-
-Geoff Everett - The Crow Hill Roadsters (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rusty Old Pick up Truck (4:17)
-02. Nothin' is the Same Anymore (3:37)
-03. I Can't Take It (6:53)
-04. Bicycle Blues (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F936481C46E52FEFD00B2702A51325CEDE8FB9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741516   (105611) от 08.08.2024
-
-Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frozen Land - пауэр-метал группа из Финляндии, сформированная в 2017 году.2018 - Frozen Land
-2023 - Out Of The DarkЖанр: Power MetalПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18CC09271746C5776160CA7638CBF33E01D2B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741747   (105609) от 08.08.2024
-
-Brianna Harness - Spiritual Ecstasy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close to the Creek (2:00)
-02. Work My Life Away (2:57)
-03. Tennessee Tornado (3:28)
-04. Perennial Stream (1:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE77D005D525BD7A4012395C0BEE9425E3E5375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742228   (105590) от 10.08.2024
-
-Siamese - Elements (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Hardcore, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Shape Of Water [3:35]
-02 - Vertigo [3:40]
-03 - Predator [3:41]
-04 - Chemistry [3:25](   Читать дальше...   )Жанр: Rock, Post-Hardcore, Alternative RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00893CD45431E99DA45137536EDD081B0BA240C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742105   (105589) от 10.08.2024
-
-Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remastered, 2024, Century Media [FLAC 24/96|Lossless|WEB-DL|tracks] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Open the Gates [4:35]
-02 - Shadows Over Transylvania [4:23]
-03 - My Dark Desires [3:53]
-04 - In The Sign of the Horns [3:46](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A80F8CE1F141EA5D4CB965D3E9B7F199314D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

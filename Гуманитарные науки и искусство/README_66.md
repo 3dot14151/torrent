@@ -1,3 +1,29 @@
+###  Публикация: 1151939   (568858) от 21.07.2017
+
+Э. Я. Брегеля (ред.) | Критика буржуазных и реформистских экономических теорий (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку данная книга предназначена служить пособием по политической экономии, а не по истории экономических учений, в ней не ставилась задача подробно прослеживать историческое развитие каждой буржуазной теории. Поэтому, рассматривая ту или иную теорию, авторы ограничивались краткими указаниями на ее родоначальников, а затем сосредоточивали внимание на критике (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC77F419328FA7B0EA4D5ABB1BB57C31D7EFD8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151938   (568836) от 21.07.2017
 
 М. С. Роговин (сост.) | Современная буржуазная военная психология (1964) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568836.jpg" />
+  <img src="Z:/picture/008/save_picture_568836.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568561.jpg" />
+  <img src="Z:/picture/008/save_picture_568561.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568355.jpg" />
+  <img src="Z:/picture/008/save_picture_568355.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568351.jpg" />
+  <img src="Z:/picture/008/save_picture_568351.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568221.jpg" />
+  <img src="Z:/picture/008/save_picture_568221.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568116.jpg" />
+  <img src="Z:/picture/008/save_picture_568116.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567335.jpg" />
+  <img src="Z:/picture/008/save_picture_567335.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ J.A.S. Grenville | A History of the World: From the 20th to the 21st Century (20
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567281.jpg" />
+  <img src="Z:/picture/008/save_picture_567281.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567280.jpg" />
+  <img src="Z:/picture/008/save_picture_567280.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567260.jpg" />
+  <img src="Z:/picture/008/save_picture_567260.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566959.jpg" />
+  <img src="Z:/picture/008/save_picture_566959.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566617.jpg" />
+  <img src="Z:/picture/008/save_picture_566617.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565557.jpg" />
+  <img src="Z:/picture/008/save_picture_565557.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564196.jpg" />
+  <img src="Z:/picture/008/save_picture_564196.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564195.jpg" />
+  <img src="Z:/picture/008/save_picture_564195.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564188.jpg" />
+  <img src="Z:/picture/008/save_picture_564188.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564088.jpg" />
+  <img src="Z:/picture/008/save_picture_564088.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563982.jpg" />
+  <img src="Z:/picture/008/save_picture_563982.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563739.jpg" />
+  <img src="Z:/picture/008/save_picture_563739.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563732.jpg" />
+  <img src="Z:/picture/008/save_picture_563732.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562850.jpg" />
+  <img src="Z:/picture/008/save_picture_562850.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562848.jpg" />
+  <img src="Z:/picture/008/save_picture_562848.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562637.jpg" />
+  <img src="Z:/picture/008/save_picture_562637.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561314.jpg" />
+  <img src="Z:/picture/008/save_picture_561314.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561040.jpg" />
+  <img src="Z:/picture/008/save_picture_561040.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9388446767E7055E9D5F6B3B65354108A1D0A66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923973   (561038) от 02.08.2015
-
-В. П. Трофимов | «Технологический детерминизм» и общественный прогресс (1972) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современной идеологической борьбе значительное место в стане убежденных противников марксизма-ленинизма и его философии занимает французский представитель западной философии и социологии Раймон Арон. В целом концепцию «технологического детерминизма» Р. Арона можно охарактеризовать как одно из проявлений пессимистических, антипрогрессивистских тенденций в современной (   Читать дальше...   )Жанр: История, политология, социология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00631606A5D4C876A13C9F24D029A2C9E250EC44
 ```
 
 https://mybot314.ru/tekegram_catalog/

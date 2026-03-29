@@ -1,3 +1,32 @@
+###  Публикация: 1316493   (505897) от 26.07.2019
+
+Ian Gillan - Contractual Obligation #2 Live in Warsaw (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang Me Out to Dry (4:08)
+02. Pictures of Home (5:34)
+03. No Lotion for That (3:14)
+04. Strange Kind of Woman (5:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C5822B07F1B52080079934F096CF30F00D51BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933964   (504501) от 03.09.2015
 
 Riverside - Love, Fear and the Time Machine (2015) [MP3|320 кб/с]<Progressive Rock>
@@ -6,7 +35,7 @@ Riverside - Love, Fear and the Time Machine (2015) [MP3|320 кб/с]<Progressive
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504501.jpg" />
+  <img src="Z:/picture/008/save_picture_504501.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Creedence Clearwater Revival - The Best Of C.C.R. (Japanese Edition) (1985) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504500.jpg" />
+  <img src="Z:/picture/008/save_picture_504500.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Beth Hart - Livе Аt Тhе Rоуаl Аlbеrt Наll (2018) 2xCD [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503714.jpg" />
+  <img src="Z:/picture/008/save_picture_503714.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Lucid Grave - Cosmic Mountain (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502765.jpg" />
+  <img src="Z:/picture/008/save_picture_502765.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Josiah - We Lay On Cold Stone (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502764.jpg" />
+  <img src="Z:/picture/008/save_picture_502764.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Supasonic Fuzz - Cobracadabra (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502713.jpg" />
+  <img src="Z:/picture/008/save_picture_502713.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Flying Colors & The Neal Morse Band - Morsefest 2019 (2021) 4xCD, Live [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502616.jpg" />
+  <img src="Z:/picture/008/save_picture_502616.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502610.jpg" />
+  <img src="Z:/picture/008/save_picture_502610.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ VA - Mojo Presents Yellow Submarine Resurfaces (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502563.jpg" />
+  <img src="Z:/picture/008/save_picture_502563.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ The Sword - High Country (2015) [OGG| 435-535 кб/с]<70's Stoner Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502518.jpg" />
+  <img src="Z:/picture/008/save_picture_502518.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Honkeyfinger - 2 Albums (1 Full-length, 1 EP) (2008 - 2009) [MP3|320 kbps]<One M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501756.jpg" />
+  <img src="Z:/picture/008/save_picture_501756.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Quiet Confusion - Magella (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501731.jpg" />
+  <img src="Z:/picture/008/save_picture_501731.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ Volt Ritual - Volt Ritual (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501730.jpg" />
+  <img src="Z:/picture/008/save_picture_501730.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Palace - One 4 The Road (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501726.jpg" />
+  <img src="Z:/picture/008/save_picture_501726.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Paralyzed - Heavy Road (2022) [MP3|263-290 kbps VBR] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501725.jpg" />
+  <img src="Z:/picture/008/save_picture_501725.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Silent Monolith - Empty Kingdom (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501724.jpg" />
+  <img src="Z:/picture/008/save_picture_501724.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Sons of Arrakis - Volume I (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501721.jpg" />
+  <img src="Z:/picture/008/save_picture_501721.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501660.jpg" />
+  <img src="Z:/picture/008/save_picture_501660.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ The Searchers - Les Genies du Rock - Sweets For My Sweet (1995) [MP3|320 кб/с
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501337.jpg" />
+  <img src="Z:/picture/008/save_picture_501337.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ King Crimson - 7 Albums (1969-1974) Remastering 40th Anniversary Series /2009-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501065.jpg" />
+  <img src="Z:/picture/008/save_picture_501065.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ Eternal Sun Temple - Vol I. (2022) [MP3|320 Kbps] <Doom, Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500671.jpg" />
+  <img src="Z:/picture/008/save_picture_500671.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ Ian Neal - Barkston Ash (2022) [MP3|320 Kbps] <Progressive Symphonic Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500663.jpg" />
+  <img src="Z:/picture/008/save_picture_500663.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ The Black Noodle Project - When The Stars Align, It Will Be Time (2022) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500655.jpg" />
+  <img src="Z:/picture/008/save_picture_500655.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ Chris Antblad - Sweet Surrender (2022) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500649.jpg" />
+  <img src="Z:/picture/008/save_picture_500649.jpg" />
 </div>
 
 
@@ -713,7 +742,7 @@ God Is an Astronaut - The Beginning of the End (2022) Live 20 Year Anniversary R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500647.jpg" />
+  <img src="Z:/picture/008/save_picture_500647.jpg" />
 </div>
 
 
@@ -727,35 +756,6 @@ God Is an Astronaut - The Beginning of the End (2022) Live 20 Year Anniversary R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70D3AADAA1BC42A49A089498B316F001E5BA4FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564584   (499661) от 19.07.2022
-
-Carlotta Valdes - Praha (2022) [MP3|320 Kbps] <Prog-Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alussa(00:05:36)
-02 - Newly Bound(00:03:13)
-03 - La Grande Blance(00:05:22)
-04 - M(00:05:01)(   Читать дальше...   )Жанр: Prog-Metal, Progressive RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2105FD14155BE8F216FFF30200A1A2B603316A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

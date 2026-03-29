@@ -6,7 +6,7 @@ Icecream PDF Converter Pro 2.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756838.jpg" />
+  <img src="Z:/picture/008/save_picture_756838.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Whistlers - Gold (2019) [MP3|320 Kbps] <Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756837.jpg" />
+  <img src="Z:/picture/008/save_picture_756837.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Autorun Organizer 3.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756830.jpg" />
+  <img src="Z:/picture/008/save_picture_756830.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756829.jpg" />
+  <img src="Z:/picture/008/save_picture_756829.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ashampoo Snap 10.0.8 RePack&(Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756825.jpg" />
+  <img src="Z:/picture/008/save_picture_756825.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NG: Тайные истории НЛО / Secret history of UFO's (2012) IPTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756818.jpg" />
+  <img src="Z:/picture/008/save_picture_756818.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AnyToISO Pro 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756794.jpg" />
+  <img src="Z:/picture/008/save_picture_756794.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Advanced SystemCare Pro 8.2.0.795 DC 13.04.2015 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756792.jpg" />
+  <img src="Z:/picture/008/save_picture_756792.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Microsoft Windows 10 TP Language Pack build 10056 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756791.jpg" />
+  <img src="Z:/picture/008/save_picture_756791.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VideoProc Converter 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756781.jpg" />
+  <img src="Z:/picture/008/save_picture_756781.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Infuse PRO 7 v7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756779.jpg" />
+  <img src="Z:/picture/008/save_picture_756779.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ OmniPlayer Pro - Media Player 1.4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756776.jpg" />
+  <img src="Z:/picture/008/save_picture_756776.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VideoProc Converter 4K 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756771.jpg" />
+  <img src="Z:/picture/005/save_picture_756771.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756698.jpg" />
+  <img src="Z:/picture/008/save_picture_756698.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Juuou Mujin no Fafnir / Unlimited Fafnir / Безграничный Фафнир
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756669.jpg" />
+  <img src="Z:/picture/008/save_picture_756669.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Fabio Carioli - Relaxing Sensation Music (2018) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756597.jpg" />
+  <img src="Z:/picture/008/save_picture_756597.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.235 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756587.jpg" />
+  <img src="Z:/picture/008/save_picture_756587.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Skype 8.38.0.138 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756583.jpg" />
+  <img src="Z:/picture/008/save_picture_756583.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ WSUS Offline Update 11.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756582.jpg" />
+  <img src="Z:/picture/008/save_picture_756582.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ HiBit Uninstaller 2.7.35 + Portable (DC 07.01.2022) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756523.jpg" />
+  <img src="Z:/picture/008/save_picture_756523.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Translatium - translator 8.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756503.jpg" />
+  <img src="Z:/picture/008/save_picture_756503.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ MediaInfo 18.03.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756486.jpg" />
+  <img src="Z:/picture/008/save_picture_756486.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756480.jpg" />
+  <img src="Z:/picture/008/save_picture_756480.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ qBittorrent 4.4.0 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756475.jpg" />
+  <img src="Z:/picture/008/save_picture_756475.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VSDC Video Editor Pro 6.3.1.939 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756428.jpg" />
+  <img src="Z:/picture/008/save_picture_756428.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ AAct 3.9.9.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756412.jpg" />
+  <img src="Z:/picture/008/save_picture_756412.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 1130975   (674221) от 22.05.2017
+
+Discovery: Золотой путь Паркера Шнабеля / Gold rush Parkers trail (2017) HDTVRip [H.264/720p-LQ] (Серии 1-4 из 5) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674221.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце XIX века более 100 тысяч человек отправились к покрытому льдом Клондайку в поисках удачи и богатства, но большинство из них так и не добрались до конца пути. Голодные медведи, суровая местность, бурные горные потоки и жгучие морозы пощадили лишь каждого третьего путешественника. Теперь по следам своих предков-золотодобытчиков отправляется Паркер Шнабель. (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, реалити-ТВ, природа, география, путешествия, приключения, исследованиеРежиссер: Джеймс ЛевелПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 4 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECF301B57DD1E38725D3646529112A9FD275F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463803   (673890) от 12.06.2012
+
+BBC: Замерзшая планета / Frozen planet (7 серий из 7, включая дополнительные материалы о создании фильма) (2011) [H.264/1080p-LQ] BDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_673890.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом путешествии мы отправимся на край земли. В места где экстремальные условия отрицают само существования жизни.
+Однако жизнь здесь не просто существует, она процветает. Приспосабливаясь и изменяясь, приобретая удивительные формы, находя неожиданные способы существования, жизнь еще раз доказывает величие и грандиозность эволюцииЖанр: ДокументальныйРежиссер: Аластер ФовергиллПеревод: Одноголосый закадровыйФормат: MKVПродолжительность: 00:58:29 | 00:57:06 | 00:56:29 | 00:57:37 | 00:57:27 | 00:57:42 | 00:57:50 | 00:21:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223452   (673298) от 05.05.2018
+
+NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673298.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Масаи-Мара в семье слонов родился малыш по имени И, как раз в то время, когда пришла засуха. Чтобы выжить, семье придётся мигрировать.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Том Бартон-ХамфрейсПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC43F35BB91890219D342975DEF5F26C2059A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223512   (673197) от 05.05.2018
+
+NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes (2015) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американские документалисты National Geographic во главе с режиссёром Брайаном Тервиллигером, композитором Джеймсом Хорнером и закадровым голосом Харрисона Форда создали окрыляющий фильм об авиации, окружающей нас и делающей нашу жизнь столь захватывающей. Съёмки проходили в 18 странах. Создатели фильма перенесут зрителей в крупнейшие и самые живописные аэропорты (   Читать дальше...   )Производство: USA, Antarctica, Argentina, Australia, Brazil, Cambodia, Chile, China, Costa Rica, Egypt, France, Italy, Kenya, Maldives, Mexico, Netherlands, Terwilliger Productions, Periscope Film, National GeographicЖанр: Документальный, познавательный, путешествие, авиацияРежиссер: Брайан ТервиллигерПеревод: Одноголосый закадровый, профессиональный (RusFilm)Субтитры: русские, английскиеПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8FA26AEAF8C904EFA783D0AB4B0FEFC17945B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134746   (672423) от 23.05.2017
 
 NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] (Серии 1-2 из 2)
@@ -6,7 +111,7 @@ NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672423.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NG: Известная Вселенная. От атома до космоса /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672390.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ PBS: Мозг с Дэвидом Иглменом / The Brain with David Eagleman
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672313.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672187.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670629.jpg" />
+  <img src="Z:/picture/008/save_picture_670629.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NG: Секретные материалы древности:  Вампиры с
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669951.jpg" />
+  <img src="Z:/picture/008/save_picture_669951.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668809.jpg" />
+  <img src="Z:/picture/008/save_picture_668809.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ BBC. Мир природы. Обитатели пробкового леса (28
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668526.jpg" />
+  <img src="Z:/picture/008/save_picture_668526.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NG: Землетрясение на Эвересте / Earthquake on Everest (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668098.jpg" />
+  <img src="Z:/picture/008/save_picture_668098.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667249.jpg" />
+  <img src="Z:/picture/008/save_picture_667249.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Animal Planet. Кошек не любить нельзя [2 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667100.jpg" />
+  <img src="Z:/picture/008/save_picture_667100.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ Animal Planet. Кошек не любить нельзя [1 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667039.jpg" />
+  <img src="Z:/picture/008/save_picture_667039.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666921.jpg" />
+  <img src="Z:/picture/008/save_picture_666921.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666353.jpg" />
+  <img src="Z:/picture/008/save_picture_666353.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ BBC. Восхождение животных: Триумф позвоночны�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665946.jpg" />
+  <img src="Z:/picture/008/save_picture_665946.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ Animal Planet. Кошек не любить нельзя [3 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665929.jpg" />
+  <img src="Z:/picture/008/save_picture_665929.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ Animal Planet. Кошек не любить нельзя [5 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665928.jpg" />
+  <img src="Z:/picture/008/save_picture_665928.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ Animal Planet. Кошек не любить нельзя [4 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665925.jpg" />
+  <img src="Z:/picture/008/save_picture_665925.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ NG: Секс в каменном веке / Sex in the Stone Age (2011) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665885.jpg" />
+  <img src="Z:/picture/008/save_picture_665885.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ Animal Planet. Кошек не любить нельзя [6 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665744.jpg" />
+  <img src="Z:/picture/008/save_picture_665744.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665235.jpg" />
+  <img src="Z:/picture/008/save_picture_665235.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ NG: Начало (Происхождение: Путешествие челов�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665040.jpg" />
+  <img src="Z:/picture/008/save_picture_665040.jpg" />
 </div>
 
 
@@ -563,110 +668,6 @@ NG: Начало (Происхождение: Путешествие челов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25788A065F6B895A6D3DC34CE3D9D2EC3DFB2E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224657   (664796) от 11.05.2018
-
-NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие думают, что жизнь хищников легка и добыча пропитания для них - пустяковое дело: выследил жертву, догнал, напал, убил и съел. А вот и нет! Более чем в половине случаев хищники терпят неудачу. Ошибкам нет числа, да ещё и напарники подводят. Неудачи идут сплошной чередой и впору уже впасть в отчаяние. Ведь очень часто выбранная жертва оказывается быстрее, хитрее, (   Читать дальше...   )Производство: Earth Touch USA, LLC for National Geographic NetworksЖанр: Документальный, познавательный, природа, животный мирРежиссер: Грэм ДуэнПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3 x 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F292722A96FC6D4F45341D913A1F2F5AF2DD6328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512113   (664785) от 18.06.2012
-
-BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of the Gods (2010) BDRemux [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти создания столь прекрасны, что они казались людям спустившимися с небес, не столь удивительно, что европейцы впервые увидев их, посчитали птиц обитателями райского сада Эдема. Этим Эдемом была Новая Гвинея обитаемый остров, который еще не исследовали европейцы и поныне эти великолепные создания можно найти только здесь. Речь идет о невиданных птицах их красота (   Читать дальше...   )Производство: Великобритания / Tigress ProductionsЖанр: ДокументальныйРежиссер: Харви ДжонсПеревод: Двуголосый профессиональныйСубтитры: английскиеПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14499C3C62D452F448ED8311954C6F625F43060E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224603   (664781) от 11.05.2018
-
-NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Птицы - это единственные представители флоры, которых можно найти на всех семи континентах. Есть птицы, которые убивают, птицы, которые прыгают, танцуют, обладают пронзительным криком и умеют дрожать.Производство: Германия, National Geographic ChannelsЖанр: Документальный, природа, флора, фаунаРежиссер: Лесли ШверинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA369E42C42777B2D169E25C0B7349CD35DE23F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512419   (664586) от 18.06.2012
-
-Animal Planet. Кошек не любить нельзя [6 серий из 6] / Must love cats (2010) HDTVRip
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к невиданным кошачьим приключениям в сериале «Кошек не любить нельзя»! Ее ведущий, музыкант Джон Фултон, большой любитель кошек, приглашает совершить путешествие по удивительному миру пушистых хвостатых созданий. Из этого сериала вы узнаете о кошках много удивительного — например, слышит ли кошка с четырьмя ушами лучше, чем ее обыкновенные сородичи. Мы также посетим удивительный город во Флориде, выстроенный исключительно для кошек!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 х 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98F2FACC538262098FB40A8136542B552B0D02E
 ```
 
 https://mybot314.ru/tekegram_catalog/

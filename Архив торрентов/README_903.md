@@ -6,7 +6,7 @@ Insert Name - Opus Dei 2.4. Point Of Impact (2011) [MP3|320 kbps] <Psytrance, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841239.jpg" />
+  <img src="Z:/picture/008/save_picture_841239.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Wirecast Pro 7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841236.jpg" />
+  <img src="Z:/picture/008/save_picture_841236.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - UKF Dubstep (2016) [MP3|320 Kbps] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841234.jpg" />
+  <img src="Z:/picture/008/save_picture_841234.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841231.jpg" />
+  <img src="Z:/picture/008/save_picture_841231.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VirtualBox 5.1.16 r113841 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841221.jpg" />
+  <img src="Z:/picture/008/save_picture_841221.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Boxy SVG 3.37.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841218.jpg" />
+  <img src="Z:/picture/008/save_picture_841218.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Movie Thumbnails Maker 2 v3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841217.jpg" />
+  <img src="Z:/picture/008/save_picture_841217.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MovieSherlock 6.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841216.jpg" />
+  <img src="Z:/picture/008/save_picture_841216.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Multitouch 1.17.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841215.jpg" />
+  <img src="Z:/picture/008/save_picture_841215.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Logoist 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841209.jpg" />
+  <img src="Z:/picture/008/save_picture_841209.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ iCalamus 2 v2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841208.jpg" />
+  <img src="Z:/picture/008/save_picture_841208.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Files Inspector Pro 3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841198.jpg" />
+  <img src="Z:/picture/008/save_picture_841198.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Soft Organizer Pro 9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841195.jpg" />
+  <img src="Z:/picture/008/save_picture_841195.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ RAM Saver Professional 21.9 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841193.jpg" />
+  <img src="Z:/picture/008/save_picture_841193.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Display Driver Uninstaller 18.0.4.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841191.jpg" />
+  <img src="Z:/picture/008/save_picture_841191.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Gilisoft Audio Recorder Pro 10.1.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841188.jpg" />
+  <img src="Z:/picture/008/save_picture_841188.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841179.jpg" />
+  <img src="Z:/picture/008/save_picture_841179.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sunrider Academy / Академия Санрайдер (2015) [Ru/En] Repack
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841177.jpg" />
+  <img src="Z:/picture/008/save_picture_841177.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841165.jpg" />
+  <img src="Z:/picture/008/save_picture_841165.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ DVDFab 8.0.8.2 RePack by rs.bandito.soft [Русский + английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841162.jpg" />
+  <img src="Z:/picture/008/save_picture_841162.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Beatport 10 Must Hear Tracks - Trance - Week 11 (13.03.2011) [MP3|320 kbps]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841160.jpg" />
+  <img src="Z:/picture/008/save_picture_841160.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ SUMo 2.13.1.109 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841157.jpg" />
+  <img src="Z:/picture/008/save_picture_841157.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - AG: I Love Vocal Trance #19 (16.03.2011) [MP3|320 kbps]<Trance, Vocal Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841156.jpg" />
+  <img src="Z:/picture/008/save_picture_841156.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841155.jpg" />
+  <img src="Z:/picture/008/save_picture_841155.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Larry Miller - Unfinished Business (Promo) (2010) [APE|Lossless]<Blues - Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841154.jpg" />
+  <img src="Z:/picture/008/save_picture_841154.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_841152.jpg" />
+  <img src="Z:/picture/009/save_picture_841152.jpg" />
 </div>
 
 

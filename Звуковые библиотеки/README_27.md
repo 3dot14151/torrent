@@ -1,3 +1,85 @@
+###  Публикация: 1818542   (2291) от 17.09.2025
+
+Звуковые библиотеки - Payhip - yurkiez october kit [WAV, FST, VOX, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрьский набор лупов и пресетов от yurkiez.Формат: WAV, FST, VOX, OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF480BA3D018AED0C1DBF3E9C09CD25299A5D0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818930   (1951) от 19.09.2025
+
+Звуковые библиотеки - Samy Beatz - AfroHits [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1951.jpg" />
+</div>
+
+
+###  Подробнее
+
+AfroHits | Набор ударных инструментов Afrobeat от Samy Beatz и EmeraldP.
+
+AfroHits поможет вам ускорить рабочий процесс и подарит массу вдохновения для следующего бита. Используйте эти высококачественные сэмплы ударных, сбивки, лупы ударных и мелодий, чтобы вывести свой трек на новый уровень!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDEFC32A9D09DD3C14A9679E5BA842252795664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819167   (1796) от 20.09.2025
+
+Звуковые библиотеки - Producer Loops - Audentity Records - Pop Vocals & FX 3 [WAV, MID]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1796.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Pop Vocals & FX 3» — новейшая часть нашей известной серии вокалов, хуков и вокальных эффектов. Новый пакет включает в себя запоминающиеся, полезные и уникальные вокалы и хуки, эмоциональные тексты песен, вокальные эффекты, вокальные нарезки и фразы, вокодеры и многое другое.
+
+В этот инструмент для создания музыки вложено много труда и страсти, и это действительно (   Читать дальше...   )Формат: WAV, MID
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AF4A42DB0BC922ACD72BD5DB2642549228A0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819263   (1568) от 21.09.2025
 
 Пресеты - Splice  - Serum 2 Dreampop [SerumPreset]
@@ -6,7 +88,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1568.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1419.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1273.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1152.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1136.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1122.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_483.jpg" />
 </div>
 
 

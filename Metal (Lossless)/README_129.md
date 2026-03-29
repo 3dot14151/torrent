@@ -1,3 +1,89 @@
+###  Публикация: 1047135   (550460) от 29.08.2016
+
+Lоst Sосiеtу - Теrrоr Нungrу (2014) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spurgatory
+02. Game Over
+03. Attaxic
+04. Lethal Pleasure(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EC1F1F92D5A09A35D1DE834FCE1498598C406D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047125   (550455) от 29.08.2016
+
+Defaillance - Contemplation Misanthropique De L'Humanite... (2008) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contemplation 12:52
+02. Misanthropique 12:42
+03. De l'Humanite... 05:24Жанр: Black MetalПродолжительность: 00:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3932F62915B2115C960A9A082EA6BFF05BE8BAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047066   (550260) от 29.08.2016
+
+Dеlаin - Мооnbаthеrs (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal, Gothic Metal, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suckerpunch (Live In The Netherlands)
+02. Turn The Lights Out (Live In The Netherlands)
+03. The Glory and The Scum (Live In The Netherlands)
+04. Don't Let Go (Live In The Netherlands)(   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Melodic MetalПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B609CD4A7599C94F0A28E18CA6799F9AEA097C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047367   (550175) от 29.08.2016
 
 Flaw - Divided We Fall (2016) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Nu Metal>
@@ -6,7 +92,7 @@ Flaw - Divided We Fall (2016) [FLAC|Lossless|tracks + .cue] <Alt.Metal, Nu Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550175.jpg" />
+  <img src="Z:/picture/008/save_picture_550175.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Debauchery vs. Blood God - Thunderbeast  (2016) 3СD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550107.jpg" />
+  <img src="Z:/picture/008/save_picture_550107.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ Nightwish - Decades (2018) Compilation [FLAC|Lossless|WEB-DL|tracks|24Bit] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549480.jpg" />
+  <img src="Z:/picture/008/save_picture_549480.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549339.jpg" />
+  <img src="Z:/picture/008/save_picture_549339.jpg" />
 </div>
 
 
@@ -122,7 +208,7 @@ Viсiоus Rumоrs - Соnсussiоn Рrоtосоl (2016) Jараnеsе Еditiоn 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549338.jpg" />
+  <img src="Z:/picture/008/save_picture_549338.jpg" />
 </div>
 
 
@@ -151,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549337.jpg" />
+  <img src="Z:/picture/008/save_picture_549337.jpg" />
 </div>
 
 
@@ -180,7 +266,7 @@ Secret Rule - Machination (2016) [FLAC|Lossless|tracks + .cue] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549252.jpg" />
+  <img src="Z:/picture/008/save_picture_549252.jpg" />
 </div>
 
 
@@ -209,7 +295,7 @@ Tarja - The Shadow Self (2016) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549103.jpg" />
+  <img src="Z:/picture/008/save_picture_549103.jpg" />
 </div>
 
 
@@ -238,7 +324,7 @@ Strained Nerve - The New Dawn (2015) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547475.jpg" />
+  <img src="Z:/picture/008/save_picture_547475.jpg" />
 </div>
 
 
@@ -267,7 +353,7 @@ Anomalie - Between The Light (2014) [FLAC|Lossless|image + .cue] <Post-Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547473.jpg" />
+  <img src="Z:/picture/008/save_picture_547473.jpg" />
 </div>
 
 
@@ -296,7 +382,7 @@ Seance - Fornever Laid To Rest (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547139.jpg" />
+  <img src="Z:/picture/008/save_picture_547139.jpg" />
 </div>
 
 
@@ -325,7 +411,7 @@ Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547137.jpg" />
+  <img src="Z:/picture/008/save_picture_547137.jpg" />
 </div>
 
 
@@ -354,7 +440,7 @@ Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547131.jpg" />
+  <img src="Z:/picture/008/save_picture_547131.jpg" />
 </div>
 
 
@@ -383,7 +469,7 @@ Accuser - Dependent Domination (2011) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547018.jpg" />
+  <img src="Z:/picture/008/save_picture_547018.jpg" />
 </div>
 
 
@@ -412,7 +498,7 @@ Ancient Skin - Nobis Quoque Peccatoribus (2008) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545862.jpg" />
+  <img src="Z:/picture/008/save_picture_545862.jpg" />
 </div>
 
 
@@ -441,7 +527,7 @@ Eternal Suffering - Echo Of Lost Words (2010) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545858.jpg" />
+  <img src="Z:/picture/008/save_picture_545858.jpg" />
 </div>
 
 
@@ -470,7 +556,7 @@ Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545852.jpg" />
+  <img src="Z:/picture/008/save_picture_545852.jpg" />
 </div>
 
 
@@ -499,7 +585,7 @@ Epica - The Divine Conspiracy (2007) [FLAC|Lossless|image + .cue]<Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545680.jpg" />
+  <img src="Z:/picture/008/save_picture_545680.jpg" />
 </div>
 
 
@@ -528,7 +614,7 @@ Eldritch - Cracksleep (2018) [FLAC|Lossless|image + .cue] <Progressive Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545505.jpg" />
+  <img src="Z:/picture/008/save_picture_545505.jpg" />
 </div>
 
 
@@ -557,7 +643,7 @@ Emptiness Soul - Without You (2009) [FLAC|Lossless|image + .cue] <Depressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545026.jpg" />
+  <img src="Z:/picture/008/save_picture_545026.jpg" />
 </div>
 
 
@@ -586,7 +672,7 @@ Deviator - Mighty Black Inner Flame (2009) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544986.jpg" />
+  <img src="Z:/picture/008/save_picture_544986.jpg" />
 </div>
 
 
@@ -615,7 +701,7 @@ Mattsson - Another Dimension (2000) [FLAC|Lossless|image + .cue] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544985.jpg" />
+  <img src="Z:/picture/008/save_picture_544985.jpg" />
 </div>
 
 
@@ -644,7 +730,7 @@ Hospice - Land Of Eternal Night (2006) [FLAC|Lossless|image + .cue] <Symphonic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544984.jpg" />
+  <img src="Z:/picture/008/save_picture_544984.jpg" />
 </div>
 
 
@@ -658,93 +744,6 @@ Hospice - Land Of Eternal Night (2006) [FLAC|Lossless|image + .cue] <Symphonic B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BED2F4349A946D7E9F69ACD436E0A79062B894B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049009   (544980) от 04.09.2016
-
-Far From Mind - Breakpoint' 33 (2009) [FLAC|Lossless|image + .cue] <Black Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 33: The Freedom Path
-02. Anytime (Nothing's For Granted)
-03. One Click Away (Requiem)
-04. Emotions(   Читать дальше...   )Жанр: Black Metal, Gothic MetalПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A850C83FA14E73A0724BD0902235E818BD08C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049072   (544975) от 04.09.2016
-
-Вiо-Месhаnical Degenerаtiоn - Wаrbeats (2016) [FLAC|Lossless|image + .cue] <Industrial, EBM, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They're Coming!
-02. Lies For Answers
-03. Invisible Threat
-04. Machine Men(   Читать дальше...   )Жанр: Industrial, EBM, ElectronicПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493467FD16A074BFBD69B6BEC882870DE87B4A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049001   (544972) от 04.09.2016
-
-Ghosthill - Embrace of a Chasm (2010) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Billion Years of Torments (instrumental)
-02. The Last Dimension
-03. Cyclonic Death
-04. The Mist(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE292599ED682ABD12AEA40ABB311E51716EAAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

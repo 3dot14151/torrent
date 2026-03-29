@@ -1,3 +1,30 @@
+###  Публикация: 1759606   (37791) от 09.11.2024
+
+Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Истребитель демонов: Тренировка столпов [2024, TV, 8 из 8] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инцидент в Деревне кузнецов завершился, и его последствия могут оказаться судьбоносными для Японии. Собравшись на срочное совещание, столпы, обсудив текущую ситуацию, приходят к заключению, что нынешние охотники на демонов слишком слабы, чтобы оказывать достойное сопротивление Молодым лунам. Такое положение дел чревато большими человеческими потерями и может поставить (   Читать дальше...   )Производство: UfotableЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Японский, русский (Studio Band, FlarrowFilms, Jaskier, AniLibria, TVShows)Субтитры: Английские, Русские (Crunchyroll, YakuSub Studio)Продолжительность: 1 эп. на 49 мин. ;
+2-6 эп. по 25 мин. ; 7 эп. на 30 мин. ; 8 эп. на 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8066EA62A6B04C58484EAB53377F567F44237004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759570   (37477) от 12.11.2024
 
 Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | Моя любовь к Ямаде 999 уровня [2023, TV, 13 из 13] BDRip 1080p raw+rus
@@ -6,7 +33,7 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37477.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37125.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37100.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37030.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36540.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36158.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36074.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35973.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35964.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35658.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35635.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35621.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35542.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35536.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34660.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ Mirai Shounen Conan | Future Boy Conan | Conan, The Boy in Future | Конан -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34523.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ Ginga e Kickoff! | Victory Kickoff! | Вперед, ко вселенной! [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34119.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34051.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33919.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Hitoribocchi no Isekai Kouryaku | Нападение одиночки на ин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33747.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33643.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Sayounara Ryuusei, Konnichiwa Jinsei | Goodbye, Dragon Life | Прoщaй, жиз
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33510.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33397.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33297.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33280.jpg" />
 </div>
 
 
@@ -648,32 +675,6 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFE0A05816EE5C447251136D40AF8C90525CA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729342   (33261) от 23.12.2024
-
-Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: Турбо [2018, TV, 51 эп.] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя два года после Международного Кубка Блэйдера история посвящается Айгеру Акабане, «дикарю», который вырос в природе. После битвы с Вальтом Аоем он вдохновился стать Блэйдером №1 в мире вместе со своим Бейблэйдом Зи Ахиллесом. Он стремится бороться с сильными противниками, чтобы стать сильнее. Чтобы победить Вальта Аоя и стать чемпионом мира, Айгер начинает (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоСубтитры: ОтсутствуютПродолжительность: 51 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DD0779FBF8476CE43686703A96937149D3CD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

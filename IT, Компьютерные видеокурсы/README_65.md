@@ -1,3 +1,137 @@
+###  Публикация: 575402   (365121) от 16.11.2012
+
+Видеоурок | Технология ремонта блока питания ATX [2012] WEB-DLRip [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блок питания персонального компьютера преобразует сетевое переменное напряжение 220 вольт 50 герц в постоянное напряжение плюс пять и плюс двенадцать вольт которые используются для питания цифровых схем. Вам представлен один из вариантов ремонта блока питания. Приятного просмотра.Жанр: ВидеоурокПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B3CEAF9B1ABD01DB88526B5277D6181E775462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797926   (364811) от 28.10.2015
+
+Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сборник видеуроков от Lynda.com по фреймворку Bootstrap 3 за 2011 - 2014 года. Сюда вошли все актуальные курсы от Lynda.com на сегодняшний день. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 10:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416875   (364742) от 17.10.2020
+
+[Udemy] KodeKloud Training и др. | OpenShift для абсолютных новичков - Практический опыт / OpenShift for the Absolute Beginners - Hands-on (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите основы OpenShift, которые вам понадобятся для создания простого кластера OpenShift и приступите к развертыванию и управлению приложением.
+Создайте прочную основу для OpenShift и оркестровки контейнеров с помощью этого руководства для начинающих.
+Развертывайте OpenShift с Minishift;
+Понимайте проекты, пользователей;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96268EADC07D7B396493DAE5F79C78FC9E8B3894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416703   (364606) от 17.10.2020
+
+Fandroid | Продвинутый курс по созданию андроид-приложения «Диктофон» на языке Котлин (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364606.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом Продвинутом курсе вы узнаете, как создать андроид-приложение «Диктофон» для записи голоса, самостоятельно и независимо от опыта в программировании. В курсе содержится пошаговая инструкция по разработке мобильного приложения, с учетом актуальных тенденций в разработке, с использованием популярных инструментов и рекомендуемых подходов:
+Язык разработки: Kotlin (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 01:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F75E4F29D190BF93115FCADFA34AE5D5CEF8A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416854   (364602) от 17.10.2020
+
+Сергей Голубицкий | Руководство по DarkNet - I2P и Freenet (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364602.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вебинарах о DarkNet Сергей Голубицкий не транслирует общеизвестное мнение о «Тёмном интернете» как рассаднике антисоциальных возможностей, а даёт культурологическое представление о Даркнете как феномене современной социальной мифологии. В рамках интересов МИНОА после просмотра вебинара вы научитесь не тому, где покупать наркотики, а тому как использовать Даркнет (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A01DBEEC74294C7CDF7C8B5D5F095BA1DC33193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416696   (364520) от 17.10.2020
 
 [ProfIT] Степанцев Альберт | PHP-2: Профессиональное программирование (2020) PCRec
@@ -6,7 +140,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364520.jpg" />
+  <img src="Z:/picture/008/save_picture_364520.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364512.jpg" />
+  <img src="Z:/picture/008/save_picture_364512.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ Stepik, Дмитрий Фокеев | Верстка и веб-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363277.jpg" />
+  <img src="Z:/picture/008/save_picture_363277.jpg" />
 </div>
 
 
@@ -88,7 +222,7 @@ Slurm (Слёрм), В. Севостьянов, А. Бурылов | Apache Kafk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363276.jpg" />
+  <img src="Z:/picture/008/save_picture_363276.jpg" />
 </div>
 
 
@@ -117,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362309.jpg" />
+  <img src="Z:/picture/008/save_picture_362309.jpg" />
 </div>
 
 
@@ -143,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362307.jpg" />
+  <img src="Z:/picture/008/save_picture_362307.jpg" />
 </div>
 
 
@@ -171,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362194.jpg" />
+  <img src="Z:/picture/008/save_picture_362194.jpg" />
 </div>
 
 
@@ -200,7 +334,7 @@ Slurm (Слёрм), Александр Волочнев | AWS База. Адми
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361058.jpg" />
+  <img src="Z:/picture/008/save_picture_361058.jpg" />
 </div>
 
 
@@ -226,7 +360,7 @@ Lectoria, Артем Зернов | MODX: Большой курс по разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361056.jpg" />
+  <img src="Z:/picture/008/save_picture_361056.jpg" />
 </div>
 
 
@@ -255,7 +389,7 @@ Slurm (Слёрм), Денис Наумов и др. | Python: Работа с A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361053.jpg" />
+  <img src="Z:/picture/008/save_picture_361053.jpg" />
 </div>
 
 
@@ -283,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361052.jpg" />
+  <img src="Z:/picture/008/save_picture_361052.jpg" />
 </div>
 
 
@@ -312,7 +446,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361050.jpg" />
+  <img src="Z:/picture/008/save_picture_361050.jpg" />
 </div>
 
 
@@ -340,7 +474,7 @@ Slurm (Слёрм), Владимир Федорков | Тюнинг и масш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361048.jpg" />
+  <img src="Z:/picture/008/save_picture_361048.jpg" />
 </div>
 
 
@@ -369,7 +503,7 @@ Udemy, Roman Dushkin | Системы, основанные на знаниях 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359132.jpg" />
+  <img src="Z:/picture/008/save_picture_359132.jpg" />
 </div>
 
 
@@ -395,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359129.jpg" />
+  <img src="Z:/picture/008/save_picture_359129.jpg" />
 </div>
 
 
@@ -421,7 +555,7 @@ Foxminded, Дмитрий Береговец | Python с нуля. Курс пи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358670.jpg" />
+  <img src="Z:/picture/008/save_picture_358670.jpg" />
 </div>
 
 
@@ -447,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357634.jpg" />
+  <img src="Z:/picture/008/save_picture_357634.jpg" />
 </div>
 
 
@@ -476,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355221.jpg" />
+  <img src="Z:/picture/008/save_picture_355221.jpg" />
 </div>
 
 
@@ -504,7 +638,7 @@ Slurm (Слёрм), Павел Селиванов | Terraform (2022) WEB-DL [К�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353933.jpg" />
+  <img src="Z:/picture/008/save_picture_353933.jpg" />
 </div>
 
 
@@ -533,7 +667,7 @@ Slurm (Слёрм), Иван Чувашов | PostgreSQL: replication, backup an
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353912.jpg" />
+  <img src="Z:/picture/008/save_picture_353912.jpg" />
 </div>
 
 
@@ -561,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353797.jpg" />
+  <img src="Z:/picture/008/save_picture_353797.jpg" />
 </div>
 
 
@@ -574,141 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55D58369E40CDA1A2E57A24478B97C6343713ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952217   (353156) от 02.11.2015
-
-Oleg Lav | Right Click Enhancer Professional - Редактор контекстного меню (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Right Click Enhancer Professional — создание волшебного меню правой кнопки мыши одна из тех программ кому нравится порядок, аккуратность и быстрота действий при работе с компьютером. Right Click Tweaker - позволит добавить в контекстное меню уже готовые твики. Right Click Shortcust Creator - добавляем новые папки, файлы, ярлыки приложений и быстрый доступ к различным (   Читать дальше...   )Жанр: МенюПродолжительность: 00:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C90463CC4C2BB93F9DD824AED612522DC6358BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178830   (352724) от 29.10.2017
-
-PROG Kiev | Java PRO (2017) CamRip [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для тех, кто уже знает основы Java и хочет научится работать с фреймворками. Мы разберем Spring IoC, Spring MVC, Spring Boot, Spring Data и Spring Security, а так же JPA/Hibernate и множество других современных библиотек и технологий.Жанр: Программирование, JavaПродолжительность: 14:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AD1BFA5FE29877913F5C9FE59863C6388FE1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178714   (352722) от 29.10.2017
-
-PROG Kiev | Java OOP (2017) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для тех, кто прослушал наш курс «Java Start» или имеет базовые знания языка Java и хочет повысить свой уровень квалификации.
-Программа включает детальный разбор ООП, занятия по многопоточному программированию, работе с файловой системой, библиотеке коллекций и разработке клиент-серверных приложений.
-После окончания курса вы будете уверенно ориентироваться (   Читать дальше...   )Жанр: Программирование, JavaПродолжительность: 21:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C175673C8E91951302146FD373EB6A95047E1545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071433   (351339) от 13.11.2016
-
-JSExpert | Пoнятный JavaScript (2016) PCRec [H.264/1080p]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это больше чем видео курс, серия лекций или цикл статей. Это комплексная программа обучения, которая позволит Вам действительно выучить основы языка JavaScript и не взорвать Ваш мозг. Если Вы будете выполнять все рекомендации и задания у вас будет результат! Если раньше у Вас не получалось это не Ваша вина, возможно Вас просто неправильно учили.Жанр: javascript, frontendПродолжительность: 46:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885DACCC6F0EE11C17110ECB9F4D4FDA1C41331F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418284   (351094) от 23.10.2020
-
-[SymfonyCasts] Ryan Weaver | API Platform, Часть 3: Custom Resources / API Platform Part 3: Custom Resources (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в третью часть серии статей о API Platform! В первой части мы создали полнофункциональный API. Затем, в части 2, мы повысили уровень, добавив надежную систему безопасности, проверки безопасности и пользовательские поля.
-Так что осталось? В части 3 мы выводим настройки на следующий уровень:
-- Реализация "publish" в RESTful;
-- Сложные правила (   Читать дальше...   )Производство: SymfonyCastsЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B6181DABABB3F1446B8B3E877A68AB0ADF95A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

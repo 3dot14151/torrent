@@ -1,3 +1,29 @@
+###  Публикация: 1004388   (669903) от 02.07.2016
+
+Ragnastrike Angels / Ангелы Рагнастрайк [2016, TV, 12] WEB-DLRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация выходящей летом 2016г. игрушки для смартфонов и ПК про сражения 38-метровых девушек с пришельцами под названием Фиарему.Производство: Студия Satelight / サテライトЖанр: приключенияРежиссер: Вада ДзюнъитиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 30 сек.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6086FDEDADFED0D443B5B1DAD675A5122F0A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974063   (669872) от 02.07.2016
 
 Ansatsu Kyoushitsu (2016) / Assassination Classroom (2016) / Класс убийц [ТВ-2] [2016, TV, 25 ep] HDTV 720p Raw
@@ -6,7 +32,7 @@ Ansatsu Kyoushitsu (2016) / Assassination Classroom (2016) / Класс убий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669872.jpg" />
+  <img src="Z:/picture/008/save_picture_669872.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Netoge no Yome / And You Thought There Is Never a Girl Online? / А ты дум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669745.jpg" />
+  <img src="Z:/picture/008/save_picture_669745.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kamigami no Asobi / Game gods / Игры богов [2014, TV, 12 из 12] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668922.jpg" />
+  <img src="Z:/picture/008/save_picture_668922.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Garo: Vanishing Line | Гаро: Линия схода [2017, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666930.jpg" />
+  <img src="Z:/picture/008/save_picture_666930.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Puka Puka Juju / Дюгонь Дюдю [2012, TV-sp] HDTV 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657843.jpg" />
+  <img src="Z:/picture/005/save_picture_657843.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Buta / Хряк [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657750.jpg" />
+  <img src="Z:/picture/005/save_picture_657750.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Otona Joshi no Anime Time: Kawamo o Suberu Kaze / A Wind Skimming the River's Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656400.jpg" />
+  <img src="Z:/picture/005/save_picture_656400.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Onee-chan ga Kita | Сестра без приглашения [2014, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656144.jpg" />
+  <img src="Z:/picture/008/save_picture_656144.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Sabiiro no Armor: Reimei | Rusted Armors: Daybreak | Ржавые доспехи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655872.jpg" />
+  <img src="Z:/picture/008/save_picture_655872.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655861.jpg" />
+  <img src="Z:/picture/008/save_picture_655861.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655672.jpg" />
+  <img src="Z:/picture/008/save_picture_655672.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Mayoiga | The Lost Village [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653058.jpg" />
+  <img src="Z:/picture/008/save_picture_653058.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Project Scard: Praeter no Kizu | Scar on the Praeter | Проект Скард [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652636.jpg" />
+  <img src="Z:/picture/008/save_picture_652636.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652335.jpg" />
+  <img src="Z:/picture/008/save_picture_652335.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Ueno-san wa Bukiyou | How Clumsy You Are, Miss Ueno. | Неуклюжая Уэн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652083.jpg" />
+  <img src="Z:/picture/008/save_picture_652083.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Fantasy Bishoujo Juniku Ojisan to / Life with an Ordinary Guy Who Reincarnated i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651910.jpg" />
+  <img src="Z:/picture/008/save_picture_651910.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650910.jpg" />
+  <img src="Z:/picture/008/save_picture_650910.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Revisions | Ревизия [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650378.jpg" />
+  <img src="Z:/picture/008/save_picture_650378.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Pastel Memories | Пастельные воспоминания [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650248.jpg" />
+  <img src="Z:/picture/008/save_picture_650248.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Futsal Boys!!!!! | Футзалисты [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650208.jpg" />
+  <img src="Z:/picture/008/save_picture_650208.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650135.jpg" />
+  <img src="Z:/picture/008/save_picture_650135.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Lupin Sansei: Part 6 | Lupin the Third Part 6 | Люпен III: Часть VI [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649976.jpg" />
+  <img src="Z:/picture/008/save_picture_649976.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Arakawa Under the Bridge / Под мостом Аракавы [2010, TV, 13] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649132.jpg" />
+  <img src="Z:/picture/005/save_picture_649132.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Virtual-san wa Miteiru | Virtualsan Looking | Виртуальный просм�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648622.jpg" />
+  <img src="Z:/picture/008/save_picture_648622.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Doukyonin wa Hiza, Tokidoki, Atama no Ue. | Мой сосед у меня на �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648386.jpg" />
+  <img src="Z:/picture/008/save_picture_648386.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Doukyonin wa Hiza, Tokidoki, Atama no Ue. | Мой сосед у меня на �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2DBADA98FD4771656A758BDDFD59A245C32BD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251809   (648272) от 28.03.2019
-
-Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер [2018, TV, 23] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хайдзи Киёсэ был успешным профессиональным бегуном, однако травма изменила его жизнь и вынудила уйти из спорта. Однажды он знакомится с другим бывшим атлетом Какеру Курахарой, который бросил бег из-за конфликта, и эта встреча заставляет двух парней пожелать вернуться в большой спорт. Хайдзи решает избрать для этого экидэн (марафонский шоссейный пробег-эстафету) из (   Читать дальше...   )Производство: Студия Production I.GЖанр: приключенияРежиссер: Номура КадзуяПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3FC4F38B5F81CBE2B7C31F17F688116202E894
 ```
 
 https://mybot314.ru/tekegram_catalog/

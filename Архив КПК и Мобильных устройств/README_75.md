@@ -1,3 +1,29 @@
+###  Публикация: 937550   (374847) от 24.10.2015
+
+Shuttle+ Music Player 1.5.10 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shuttle+ Music Player - Очередной музыкальный плеер на андроид, который сочетает в себе основные качества. Он интуитивно понятный, легкий, и в тоже время мощный. В него встроен шести полосный эквалайзер с функцией увеличения баса. Также плеер умеет скачивать текст и изображения треков и альбомов. А функция редактирования тегов поможет исправить не правильное название (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 22 октября 2015 гРазработчик: SimpleCityПоддерживаемая ОС: Android 2.3 или более поздняяЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF325D53FCFDBD8B9F7AA6226A2B4CD560FF1C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949881   (374749) от 24.10.2015
 
 Garmin: Дороги Беларуси 5.30 [Ru]
@@ -6,7 +32,7 @@ Garmin: Дороги Беларуси 5.30 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374749.jpg" />
+  <img src="Z:/picture/008/save_picture_374749.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374520.jpg" />
+  <img src="Z:/picture/008/save_picture_374520.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Game Guardian v7.3.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374356.jpg" />
+  <img src="Z:/picture/008/save_picture_374356.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Puffin Web Browser Pro 4.6.1.2083 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374235.jpg" />
+  <img src="Z:/picture/008/save_picture_374235.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Root Explorer File Manager  3.3.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374120.jpg" />
+  <img src="Z:/picture/008/save_picture_374120.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ World of Tanks Blitz  v.2.0.140 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374118.jpg" />
+  <img src="Z:/picture/008/save_picture_374118.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Sleepa Relaxing Sounds v2.0.2 [Ru/Multi] - расслабление и сон (�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374065.jpg" />
+  <img src="Z:/picture/008/save_picture_374065.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ PhotoDirector Premium 8.4.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373989.jpg" />
+  <img src="Z:/picture/008/save_picture_373989.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373670.jpg" />
+  <img src="Z:/picture/008/save_picture_373670.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Little Metal Ball (1.1.4)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372628.jpg" />
+  <img src="Z:/picture/005/save_picture_372628.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_371117.jpg" />
+  <img src="Z:/picture/005/save_picture_371117.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Zombie Outbreak v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371116.jpg" />
+  <img src="Z:/picture/008/save_picture_371116.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ DiskInfo PRO 4.9.8 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371071.jpg" />
+  <img src="Z:/picture/008/save_picture_371071.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Royal Revolt 2 v1.4.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370911.jpg" />
+  <img src="Z:/picture/008/save_picture_370911.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_370742.jpg" />
+  <img src="Z:/picture/005/save_picture_370742.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Disk & Storage Analyzer PRO 3.0.5.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370464.jpg" />
+  <img src="Z:/picture/008/save_picture_370464.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Auto War TD 1.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369728.jpg" />
+  <img src="Z:/picture/008/save_picture_369728.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Textra SMS 3.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369724.jpg" />
+  <img src="Z:/picture/008/save_picture_369724.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Neverending Nightmares / Бесконечные кошмары v2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369722.jpg" />
+  <img src="Z:/picture/008/save_picture_369722.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Ys Chronicles 1 v1.0.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369585.jpg" />
+  <img src="Z:/picture/008/save_picture_369585.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369576.jpg" />
+  <img src="Z:/picture/008/save_picture_369576.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ SpongeBob Moves In / Губка Боб: мой Бикини Боттом v4.33.0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369392.jpg" />
+  <img src="Z:/picture/008/save_picture_369392.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Instagram 9.7.5 (Beta) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368876.jpg" />
+  <img src="Z:/picture/008/save_picture_368876.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ The Plateau  1.2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_368501.jpg" />
+  <img src="Z:/picture/005/save_picture_368501.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ PLANK! v1.0.7 Ad-Free [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367935.jpg" />
+  <img src="Z:/picture/008/save_picture_367935.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ PLANK! v1.0.7 Ad-Free [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4328EA950D93410F3B8AEA293998CD0497B40FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869119   (367383) от 28.09.2019
-
-ArtRage v1.3.15 [Ru/En] - рисование красками на Android
-
->>След.
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выразите свою художественную сторону с простыми в использовании инструментами, которые работают так же, как и реальные! ArtRage моделирует рисование красками на Android. Исследуйте мощную и интуитивно понятную среду, которая позволяет пользователям всех уровней работать с широким спектром натуральных красок и эскизных инструментов.Тип издания: Пиратка (Убрана проверка лицензии) + ModРелиз состоялся: 05.06.2019Разработчик: Ambient Design Ltd.Поддерживаемая ОС: Android 4.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6389E1EA58D4994183F8B060B87F3CBCDD087FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

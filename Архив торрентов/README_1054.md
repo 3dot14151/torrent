@@ -6,7 +6,7 @@ Spamihilator 0.9.9.53 [Multi (Ru)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_805265.jpg" />
+  <img src="Z:/picture/005/save_picture_805265.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805259.jpg" />
+  <img src="Z:/picture/008/save_picture_805259.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805254.jpg" />
+  <img src="Z:/picture/008/save_picture_805254.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Vivaldi 1.8.770.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805246.jpg" />
+  <img src="Z:/picture/008/save_picture_805246.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805231.jpg" />
+  <img src="Z:/picture/008/save_picture_805231.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Freemake Video Converter 4.1.9.9 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805226.jpg" />
+  <img src="Z:/picture/008/save_picture_805226.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805214.jpg" />
+  <img src="Z:/picture/008/save_picture_805214.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Wallpapers 3D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805178.jpg" />
+  <img src="Z:/picture/008/save_picture_805178.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Tesla - Five Man Video Band (2002) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805170.jpg" />
+  <img src="Z:/picture/008/save_picture_805170.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ GPU Caps Viewer 1.34.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805136.jpg" />
+  <img src="Z:/picture/008/save_picture_805136.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Icecream Screen Recorder Pro 4.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805133.jpg" />
+  <img src="Z:/picture/008/save_picture_805133.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Novicorp WinToFlash Professional 1.6.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805124.jpg" />
+  <img src="Z:/picture/008/save_picture_805124.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805081.jpg" />
+  <img src="Z:/picture/008/save_picture_805081.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Immersive Explorer 1.1.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805066.jpg" />
+  <img src="Z:/picture/008/save_picture_805066.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Process Lasso Pro 8.0.2.0 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805057.jpg" />
+  <img src="Z:/picture/008/save_picture_805057.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805056.jpg" />
+  <img src="Z:/picture/008/save_picture_805056.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805044.jpg" />
+  <img src="Z:/picture/008/save_picture_805044.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Fast & Furious: Adrenaline HD 1.2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805020.jpg" />
+  <img src="Z:/picture/008/save_picture_805020.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Whispered World (2009) [Ru/Multi] (3.2.0418) SteamRip Let'sPlay [Special Edi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805007.jpg" />
+  <img src="Z:/picture/008/save_picture_805007.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VMware Fusion Pro 8.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805004.jpg" />
+  <img src="Z:/picture/008/save_picture_805004.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Avast Premier 17.3.2290 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805000.jpg" />
+  <img src="Z:/picture/008/save_picture_805000.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ viber 6.7.0.1082 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804998.jpg" />
+  <img src="Z:/picture/008/save_picture_804998.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Windows and Office ISO Download Tool 4.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804997.jpg" />
+  <img src="Z:/picture/008/save_picture_804997.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mozilla Firefox 37.0.1 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804965.jpg" />
+  <img src="Z:/picture/008/save_picture_804965.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804917.jpg" />
+  <img src="Z:/picture/008/save_picture_804917.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final Portable by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804914.jpg" />
+  <img src="Z:/picture/008/save_picture_804914.jpg" />
 </div>
 
 

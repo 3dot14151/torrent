@@ -1,3 +1,29 @@
+###  Публикация: 1385281   (800040) от 23.05.2020
+
+Остров героев (23.05.2020) WEB-DL [H.264/1080p-LQ] (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чего стоят подписчики, когда нечего есть? Каким будет утреннее селфи, если провести ночь на земле со змеями? Что важнее: зажечь на тусовке или зажечь костер, чтобы не замерзнуть? Восьми популярным блогерам предстоит найти ответы на эти вопросы в новом реалити-шоу «Остров героев»! Они отправятся выживать на необитаемый остров Мого-Мого в Панаме и покажут, на что способны (   Читать дальше...   )Телекомпания: ТНТ, ООО «Остров Героев Интернешнл»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF67C2BB76E7559C6113D1464E40E9F772B475C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121009   (799178) от 04.04.2017
 
 Холостяк (Украина) (2017.03.31) SATRip  (7 сезон, 4 выпуск + Пост шоу)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799178.jpg" />
+  <img src="Z:/picture/008/save_picture_799178.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798867.jpg" />
+  <img src="Z:/picture/008/save_picture_798867.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797782.jpg" />
+  <img src="Z:/picture/008/save_picture_797782.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797772.jpg" />
+  <img src="Z:/picture/008/save_picture_797772.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797649.jpg" />
+  <img src="Z:/picture/008/save_picture_797649.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797643.jpg" />
+  <img src="Z:/picture/008/save_picture_797643.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797585.jpg" />
+  <img src="Z:/picture/008/save_picture_797585.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797049.jpg" />
+  <img src="Z:/picture/008/save_picture_797049.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796403.jpg" />
+  <img src="Z:/picture/008/save_picture_796403.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795628.jpg" />
+  <img src="Z:/picture/008/save_picture_795628.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795621.jpg" />
+  <img src="Z:/picture/008/save_picture_795621.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795578.jpg" />
+  <img src="Z:/picture/008/save_picture_795578.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794870.jpg" />
+  <img src="Z:/picture/008/save_picture_794870.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794805.jpg" />
+  <img src="Z:/picture/008/save_picture_794805.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794791.jpg" />
+  <img src="Z:/picture/008/save_picture_794791.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794632.jpg" />
+  <img src="Z:/picture/008/save_picture_794632.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793610.jpg" />
+  <img src="Z:/picture/008/save_picture_793610.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793571.jpg" />
+  <img src="Z:/picture/008/save_picture_793571.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793400.jpg" />
+  <img src="Z:/picture/008/save_picture_793400.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792523.jpg" />
+  <img src="Z:/picture/008/save_picture_792523.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792487.jpg" />
+  <img src="Z:/picture/008/save_picture_792487.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792475.jpg" />
+  <img src="Z:/picture/008/save_picture_792475.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792471.jpg" />
+  <img src="Z:/picture/008/save_picture_792471.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789880.jpg" />
+  <img src="Z:/picture/008/save_picture_789880.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789503.jpg" />
+  <img src="Z:/picture/008/save_picture_789503.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9374C37219055A20FD7FA4234D93D5D3CCF8E959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276085   (788967) от 14.01.2019
-
-Аншлаг и компания. Старый Новый год (12.01.2019) HDTVRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788967.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Аншлаговцы" уже много лет – привычная компания для телезрителей в Старый Новый год. Сегодня с лучшими номерами выступят постоянные участники и гости "Аншлага". Собравшись 13 января в своем клубе, чтобы встретить Старый Новый год вместе с любимыми зрителями, все артисты по традиции подготовили новые праздничные номера. В программу также вошли (   Читать дальше...   )Телекомпания: Россия / ВГТРКЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 02:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAE62A0D8F7AAF0E33063860533A05E37772B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

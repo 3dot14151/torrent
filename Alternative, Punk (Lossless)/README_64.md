@@ -1,3 +1,31 @@
+###  Публикация: 1679321   (138281) от 25.11.2023
+
+Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Doom Metal, Free Jazz, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Eons
+2021 - Solar Drone CeremonyЖанр: Avantgarde, Doom Metal, Free Jazz, KrautrockПродолжительность: 2CD, 03:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273288   (137892) от 31.12.2018
 
 Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop, Dream Pop>
@@ -6,7 +34,7 @@ Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137892.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Foo Fighters - 15 альбомов, 3 сингла (1995 - 2023) 26 CD [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136999.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Swiss & Die Andern - 9 Albums (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136954.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Vimic - Open Your Omen (2025) [FLAC|Lossless|WEB-DL|tracks] <lternative Metal, G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136787.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136703.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136702.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ U.S. Highball - No Thievery, Just Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134330.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134326.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ Princess Thailand - Golden Frames (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134325.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Radical Dance Faction & Youth - Welcome to the Edge (2023) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134307.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Maelfoy - Failures, Fears and Forgiveness (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134293.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ MOF - Outsiders (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap-Rock, Math Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131519.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Tariot - Drag Me To Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131183.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Thousand Foot Krutch - The End Is Where We Begin (2012) [FLAC|Lossless]<Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130694.jpg" />
 </div>
 
 
@@ -418,7 +446,7 @@ The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130089.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129763.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129758.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129560.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129221.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129169.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129167.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129164.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128930.jpg" />
 </div>
 
 
@@ -679,7 +707,7 @@ Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128643.jpg" />
 </div>
 
 
@@ -708,7 +736,7 @@ Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128540.jpg" />
 </div>
 
 
@@ -722,35 +750,6 @@ Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:033FC158A46796557634920929F8373AE000DD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 402526   (128078) от 14.12.2023
-
-Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock, Stoner, Psychedelic, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя некоторые описывают их как психоделический блюз-рок, Radio Moscow является больше обращением к классическому року 70-ых. Певцу, гитаристу, барабанщику группы, Паркеру Григгсу(Parker Griggs) удалось однажды вручить демонстрационную ленту в руки Дэна Ауэрбаха из Black Keys после концерта. Ауэрбаху  так понравился демонстрационный пример, что он среди ночи позвонил (   Читать дальше...   )Список альбомов:
-2007 - Radio Moscow
-2009 - Brain Cycles
-2011 - The Great Escape Of Leslie Magnafuzz\Жанр: Garage Rock, Stoner, Psychedelic, Blues RockПродолжительность: 05:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61712588D00B04E029F47922B235A6E87A0E791F
 ```
 
 https://mybot314.ru/tekegram_catalog/

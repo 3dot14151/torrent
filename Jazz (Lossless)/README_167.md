@@ -1,3 +1,131 @@
+###  Публикация: 1243113   (496201) от 25.08.2018
+
+Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoot Swings the Blues (take 1) [8:39]
+02. Zoot Swings the Blues (take 2) [2:28]
+03. Trotting [3:48]
+04. I Wonder Who [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93E0197713A115189B5786F69B2909C00FBE02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542688   (496083) от 05.09.2012
+
+VA - Vocal Refrain (1993)  BoxSet 5CD[FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connee Boswell - Fare Thee, Honey, Fare Thee Well [03:08]
+02. Cab Calloway - The Jumpin' Five [02:51]
+03. Jimmy Rushing - Evenin' [02:43]
+04. The Andrews Sisters - Long Time, No See [03:21]
+05. Ethel Waters - Love Is the Thing [03:15]
+06. Fred Astaire - Let's Face the Music & Dance [02:29]
+07. Jack Teagarden & Johnny Mercer - Christmas Night in Harlem [03:25]
+08. Mary Ann McCall - Between 18th & 19th on Chestnut Street [02:57]
+09. Gene Austin - Sentimental Baby [03:32]
+10. Bunny Berigan - Mama, I Wanna Make Rhythm [02:51](   Читать дальше...   )Жанр: Jazz, VocalФормат: BoxSet 5CDПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543039   (495961) от 05.09.2012
+
+VA - Gold - Jazz Divas (2007) 2CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald - Mack the Knife (live) [05:07]
+02. Freda Payne - After the Lights Go Down Low [03:26]
+03. Astrud Gilberto - I Will Wait for You [04:37]
+04. Lorez Alexandria - Show Me [04:02]
+05. Nina Simone - I Loves You Porgy (live) [02:31]
+06. Gloria Lynne - Joey, Joey, Joey [03:39]
+07. Marlena Shaw - Go Away Little Boy [02:46]
+08. Annie Ross - Twisted [07:42]
+09. Blossom Dearie - Surrey with the Fringe on Top [04:18]
+10. Sheila Jordan - The Inch Worm [06:07](   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158055   (495864) от 14.08.2017
+
+Duke Pearson - Sweet Honey Bee (1966) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Honey Bee [05:01]
+02. Sudel [05:44]
+03. After The Rain [04:46]
+04. Gaslight [06:02](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF475F872AF4EFA5D1FD3C330B3FF60541CC154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542971   (495737) от 05.09.2012
 
 Kenny G & Rahul Sharma - Namaste (2012)[FLAC (tracks+cue)|Lossless]<Smooth Jazz, World>
@@ -6,7 +134,7 @@ Kenny G & Rahul Sharma - Namaste (2012)[FLAC (tracks+cue)|Lossless]<Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495737.jpg" />
+  <img src="Z:/picture/008/save_picture_495737.jpg" />
 </div>
 
 
@@ -41,7 +169,7 @@ NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494905.jpg" />
+  <img src="Z:/picture/008/save_picture_494905.jpg" />
 </div>
 
 
@@ -70,7 +198,7 @@ Don Byas - Midnight at Minton's (1941) 1999, HighNote [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494834.jpg" />
+  <img src="Z:/picture/008/save_picture_494834.jpg" />
 </div>
 
 
@@ -99,7 +227,7 @@ Lennie Tristano & Buddy DeFranco - Cool & Quiet (1949) /2015, Universal/ [FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494505.jpg" />
+  <img src="Z:/picture/008/save_picture_494505.jpg" />
 </div>
 
 
@@ -128,7 +256,7 @@ John Coltrane - Jupiter Variation (1967) /2015, Universal/[FLAC|tracks+.cue]<Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494462.jpg" />
+  <img src="Z:/picture/008/save_picture_494462.jpg" />
 </div>
 
 
@@ -157,7 +285,7 @@ Bill Evans - Montreux II (1970) /2013, King Records/[FLAC|tracks+.cue]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494458.jpg" />
+  <img src="Z:/picture/008/save_picture_494458.jpg" />
 </div>
 
 
@@ -186,7 +314,7 @@ Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (198
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494457.jpg" />
+  <img src="Z:/picture/008/save_picture_494457.jpg" />
 </div>
 
 
@@ -215,7 +343,7 @@ Big John Patton - Oh Baby! (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz-Funk,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494455.jpg" />
+  <img src="Z:/picture/008/save_picture_494455.jpg" />
 </div>
 
 
@@ -244,7 +372,7 @@ Masayoshi Takanaka - The White Goblin (1997) [FLAC|Lossless|tracks + .cue] <Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494417.jpg" />
+  <img src="Z:/picture/008/save_picture_494417.jpg" />
 </div>
 
 
@@ -273,7 +401,7 @@ Warne Marsh & Kenny Drew Trio - I Got A Good One For You (1980) 1999, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494231.jpg" />
+  <img src="Z:/picture/008/save_picture_494231.jpg" />
 </div>
 
 
@@ -302,7 +430,7 @@ Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493836.jpg" />
+  <img src="Z:/picture/008/save_picture_493836.jpg" />
 </div>
 
 
@@ -331,7 +459,7 @@ VA - The Best of Big Band (2008) [FLAC|Lossless]<Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493738.jpg" />
+  <img src="Z:/picture/008/save_picture_493738.jpg" />
 </div>
 
 
@@ -366,7 +494,7 @@ VA - The Smooth Jazz Piano - Ebony & Ivory (2001) 3 CD[FLAC|Lossless]<Piano Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493601.jpg" />
+  <img src="Z:/picture/008/save_picture_493601.jpg" />
 </div>
 
 
@@ -401,7 +529,7 @@ Max Roach His Chorus And Orchestra - It's Time (1962) 1996, Impulse! [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493348.jpg" />
+  <img src="Z:/picture/008/save_picture_493348.jpg" />
 </div>
 
 
@@ -430,7 +558,7 @@ Pete Candoli & Conte Candoli - Two Brothers (1999) Hindsight Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492920.jpg" />
+  <img src="Z:/picture/008/save_picture_492920.jpg" />
 </div>
 
 
@@ -459,7 +587,7 @@ Stefano Cantini - L'amico del vento (2005) Egea [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492683.jpg" />
+  <img src="Z:/picture/008/save_picture_492683.jpg" />
 </div>
 
 
@@ -488,7 +616,7 @@ Louis Armstrong - The Hot Fives & Hot Sevens, volume III (1927, 1928) 1989, CBS 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492569.jpg" />
+  <img src="Z:/picture/008/save_picture_492569.jpg" />
 </div>
 
 
@@ -517,7 +645,7 @@ Dave Burrell & Billy Martin - Consequences (2006) Amt [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492099.jpg" />
+  <img src="Z:/picture/008/save_picture_492099.jpg" />
 </div>
 
 
@@ -546,7 +674,7 @@ Stefan Kaempfert - Kaempfert Plays Kaempfert (2011) Edel Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492098.jpg" />
+  <img src="Z:/picture/008/save_picture_492098.jpg" />
 </div>
 
 
@@ -575,7 +703,7 @@ Lionel Hampton And His All-Stars - Air Mail Special (1953, 1954) 2007, Membran M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491590.jpg" />
+  <img src="Z:/picture/008/save_picture_491590.jpg" />
 </div>
 
 
@@ -604,7 +732,7 @@ Stefon Harris & Blackout - Sonic Creed (2018) Motema [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491187.jpg" />
+  <img src="Z:/picture/008/save_picture_491187.jpg" />
 </div>
 
 
@@ -633,7 +761,7 @@ VA - Jazz and Beatles Part Two (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491142.jpg" />
+  <img src="Z:/picture/008/save_picture_491142.jpg" />
 </div>
 
 
@@ -653,122 +781,6 @@ VA - Jazz and Beatles Part Two (2012) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318897   (490987) от 08.08.2019
-
-Chuck Hedges & The Johnny Varro Trio - Skylark (1983) 1995, Delmark Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [4:37]
-02. Here's That Rainy Day [4:04]
-03. Autumn Leaves [4:20]
-04. 'Round Midnight [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CA3E84B65FD8B9DAC90A24C37971EA8C79B5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565770   (490445) от 25.07.2022
-
-The Uptown String Quartet - Max Roach Presents The Uptown String Quartet (1989) Philips [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extensions [3:36]
-02. Let Us Break Bread Together [3:08]
-03. Jelly Roll Rag [3:17]
-04. Tricotism [3:34](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03B942084BB16CA195A1327E6C1F2601E088F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055019   (490414) от 21.09.2016
-
-Louis Armstrong - The Hot Fives, volume I (1925, 1926) 1988, CBS Records[FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.My Heart [02:32]
- 02.(YES!) I'm in the Barrel [02:47]
- 03.Gut Bucket Blues [02:52]
- 04.Come Back, Sweet Papa [02:35](   Читать дальше...   )Жанр: New Orleans Jazz, DixielandПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5A9F0623F5C1D4FD138AC1C94E7CA51A97F880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937086   (490319) от 14.09.2015
-
-The Workshop - Conversations With The Drum (2015) /Onze Heures Onze/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Riff Thing [00:58]
-02. Lyon Part One [04:33]
-03. Nine To Hate [06:36]
-04. Sesirnu [05:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA57ECB30A0026C0F90AA473FBAE435348BA5DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,71 @@
+###  Публикация: 507361   (683953) от 08.06.2012
+
+Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_683953.jpg" />
+</div>
+
+
+###  Подробнее
+
+(08:46) 1. To Be With You
+(09:15) 2. Lonesome
+(10:57) 3. Be Gentle
+(06:07) 4. Silent Attitude
+(04:50) 5. Near And Far
+(10:18) 6. Follow The Senses
+(09:27) 7. Soft Touch
+(05:17) 8. Bкeak AwayЖанр: MeditativeПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507739   (683153) от 08.06.2012
+
+Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_683153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidamari No Ki ~Akatsuki~ (4:16)
+02. Umi E. (5:08)
+03. Seimei No Ki (3:48)
+04. Hashire (4:30)
+05. Umi E ~Piano Version~ (4:00)
+06. Seimei No Ki ~Piano Version~ (3:18)
+07. Hidamari No Ki ~Piano Version~ (4:03)
+08. Yasashii Kaze (2:39)
+09. Anun (0:58)
+10. Omowarete (1:02)(   Читать дальше...   )2000Жанр: Score, Smooth JazzПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506751   (682990) от 08.06.2012
 
 Ара Геворкян/Ara Gevorgyan - 6 Альбомов (1997-2010) [MP3|128-320 kb/s<Армянская музыка>
@@ -6,7 +74,7 @@
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682990.jpg" />
+  <img src="Z:/picture/008/save_picture_682990.jpg" />
 </div>
 
 
@@ -41,7 +109,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682911.jpg" />
+  <img src="Z:/picture/008/save_picture_682911.jpg" />
 </div>
 
 
@@ -70,7 +138,7 @@ Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682897.jpg" />
+  <img src="Z:/picture/008/save_picture_682897.jpg" />
 </div>
 
 
@@ -99,7 +167,7 @@ Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682874.jpg" />
+  <img src="Z:/picture/008/save_picture_682874.jpg" />
 </div>
 
 
@@ -128,7 +196,7 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682610.jpg" />
+  <img src="Z:/picture/008/save_picture_682610.jpg" />
 </div>
 
 
@@ -160,7 +228,7 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682596.jpg" />
+  <img src="Z:/picture/008/save_picture_682596.jpg" />
 </div>
 
 
@@ -189,7 +257,7 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682464.jpg" />
+  <img src="Z:/picture/008/save_picture_682464.jpg" />
 </div>
 
 
@@ -218,7 +286,7 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682461.jpg" />
+  <img src="Z:/picture/008/save_picture_682461.jpg" />
 </div>
 
 
@@ -247,7 +315,7 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682343.jpg" />
+  <img src="Z:/picture/008/save_picture_682343.jpg" />
 </div>
 
 
@@ -276,7 +344,7 @@ Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Co
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682204.jpg" />
+  <img src="Z:/picture/008/save_picture_682204.jpg" />
 </div>
 
 
@@ -305,7 +373,7 @@ Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 �
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682194.jpg" />
+  <img src="Z:/picture/008/save_picture_682194.jpg" />
 </div>
 
 
@@ -334,7 +402,7 @@ James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681977.jpg" />
+  <img src="Z:/picture/008/save_picture_681977.jpg" />
 </div>
 
 
@@ -363,7 +431,7 @@ VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spiele
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681974.jpg" />
+  <img src="Z:/picture/008/save_picture_681974.jpg" />
 </div>
 
 
@@ -392,7 +460,7 @@ Jennifer Nettles (Дженнифер Неттлз) - To Celebrate Christmas (201
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680939.jpg" />
+  <img src="Z:/picture/008/save_picture_680939.jpg" />
 </div>
 
 
@@ -421,7 +489,7 @@ Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Na
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680936.jpg" />
+  <img src="Z:/picture/008/save_picture_680936.jpg" />
 </div>
 
 
@@ -450,7 +518,7 @@ VA - Viva Latina 2018 (2018) 2CD [MP3|320 Kbps] <Latin, Pop>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680798.jpg" />
+  <img src="Z:/picture/008/save_picture_680798.jpg" />
 </div>
 
 
@@ -482,7 +550,7 @@ VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680665.jpg" />
+  <img src="Z:/picture/008/save_picture_680665.jpg" />
 </div>
 
 
@@ -512,7 +580,7 @@ Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680339.jpg" />
+  <img src="Z:/picture/008/save_picture_680339.jpg" />
 </div>
 
 
@@ -541,7 +609,7 @@ Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680258.jpg" />
+  <img src="Z:/picture/008/save_picture_680258.jpg" />
 </div>
 
 
@@ -570,7 +638,7 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680249.jpg" />
+  <img src="Z:/picture/008/save_picture_680249.jpg" />
 </div>
 
 
@@ -599,7 +667,7 @@ Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680232.jpg" />
+  <img src="Z:/picture/008/save_picture_680232.jpg" />
 </div>
 
 
@@ -628,7 +696,7 @@ Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679263.jpg" />
+  <img src="Z:/picture/008/save_picture_679263.jpg" />
 </div>
 
 
@@ -657,7 +725,7 @@ VA - Kamasutra Essential Music (2013) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679131.jpg" />
+  <img src="Z:/picture/008/save_picture_679131.jpg" />
 </div>
 
 
@@ -686,7 +754,7 @@ VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678213.jpg" />
+  <img src="Z:/picture/008/save_picture_678213.jpg" />
 </div>
 
 
@@ -700,64 +768,6 @@ VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06BD949CF6FFAAC23D34C4E734EE40F4B06A49E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290423   (678198) от 20.03.2019
-
-VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility Spa Universe - Physical Therapy 3:27
-02. Meditation Music Zone - Anti Stress 3:28
-03. Relaxation Meditation Songs Divine - Relief From Stress 3:30
-04. Tranquility Spa Universe - Break Of The Day 3:34(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BDFC6F0EF49BCE5E852BF12F4BAD77305D7640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290471   (677985) от 20.03.2019
-
-Acoustic Sound Orchestra - Candle In The Wind (1997) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Deep Is Your Love (3:37)
-02. Little Snowman (2:47)
-03. Spiel Mir Das Lied Vom Tod (3:29)
-04. Claire (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 02:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021BFDFFED30A3B559D47B3FD99DC00C7FBB6226
 ```
 
 https://mybot314.ru/tekegram_catalog/

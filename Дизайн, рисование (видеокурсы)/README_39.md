@@ -1,3 +1,30 @@
+###  Публикация: 919273   (583538) от 18.07.2015
+
+Digital Tutors | Введение в ZBrush 4R5/ Introduction to ZBrush 4R5 (2013) PCRec [H.264/720p]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583538.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке мы узнаем про ZBrush - мощный инструмент скульптинга, создания живописи и иллюстраций.
+Мы начнем с изучения интерфейса ZBrush, рассмотрим весь процесс моделирования. Поговорим о Pixols - уникальном процессе 2.5D, обсудим основные методы для создания и манипулирования с геометрией на холсте. Обсудим дробление вашей сетки и начнем использовать скульптурные (   Читать дальше...   )Жанр: 3D-графикаПродолжительность: 06:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B53D7863278CC3940CB8F063329969EDFEB8A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919307   (583533) от 18.07.2015
 
 Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Training (2014) PCRec [H.264/720p]
@@ -6,7 +33,7 @@ Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Train
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583533.jpg" />
+  <img src="Z:/picture/008/save_picture_583533.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Profileschool | Adobe Photoshop. Допечатная подготовка из�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583225.jpg" />
+  <img src="Z:/picture/008/save_picture_583225.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ CGcircuit, Andy Van Straten | Skinning with nCloth Part II (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582809.jpg" />
+  <img src="Z:/picture/008/save_picture_582809.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581812.jpg" />
+  <img src="Z:/picture/008/save_picture_581812.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ XYZ School, Дмитрий Клюшкин | Concept art with Dmitry Klyushkin (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581708.jpg" />
+  <img src="Z:/picture/008/save_picture_581708.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ CG Cookie, Tim Von Rueden | Piero - Animated Character Concept (Concept Art Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580867.jpg" />
+  <img src="Z:/picture/008/save_picture_580867.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580235.jpg" />
+  <img src="Z:/picture/008/save_picture_580235.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ World Of Level Design | UE4 How To Create Custom Decals (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578796.jpg" />
+  <img src="Z:/picture/008/save_picture_578796.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Figma.center, Владимир Чернышов | Дизайн генерато�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578701.jpg" />
+  <img src="Z:/picture/008/save_picture_578701.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ Marco Bucci | 3D Techniques with Digital Painting (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577256.jpg" />
+  <img src="Z:/picture/008/save_picture_577256.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577096.jpg" />
+  <img src="Z:/picture/008/save_picture_577096.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Corey Barker | Planet Photoshop by Corey Barker [2008-2011] [EN] PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576585.jpg" />
+  <img src="Z:/picture/008/save_picture_576585.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Unreal Sensei | The Unreal Masterclass (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575364.jpg" />
+  <img src="Z:/picture/008/save_picture_575364.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ Fxphd, Nick Nimble | Houdini Ocean Effects (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573770.jpg" />
+  <img src="Z:/picture/008/save_picture_573770.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571872.jpg" />
+  <img src="Z:/picture/008/save_picture_571872.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569910.jpg" />
+  <img src="Z:/picture/008/save_picture_569910.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ Gumroad.com | Sci-Fi Weapon Process (2017) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566852.jpg" />
+  <img src="Z:/picture/008/save_picture_566852.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562715.jpg" />
+  <img src="Z:/picture/008/save_picture_562715.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ MDA | Обучение веб-дизайну от профессионалов �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559081.jpg" />
+  <img src="Z:/picture/008/save_picture_559081.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ Udemy, Christina Wu/Dubell | How to Draw and Paint People Made Simple (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557884.jpg" />
+  <img src="Z:/picture/008/save_picture_557884.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ Patreon, FlyCat | Semi realistic potrait modelling in Blender 3.1 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557882.jpg" />
+  <img src="Z:/picture/008/save_picture_557882.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556866.jpg" />
+  <img src="Z:/picture/008/save_picture_556866.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ XYZ School, Тамара Бахлычева | Hand-Paint (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556852.jpg" />
+  <img src="Z:/picture/008/save_picture_556852.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ Digital Tutors | Introduction to Materials in Houdini (2015) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547155.jpg" />
+  <img src="Z:/picture/008/save_picture_547155.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538506.jpg" />
+  <img src="Z:/picture/008/save_picture_538506.jpg" />
 </div>
 
 
@@ -665,33 +692,6 @@ Scott Deardorff портретный художник, который приме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCAF5CDF4B1A63AD6357B053558CFAABDC9043D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557751   (537217) от 17.06.2022
-
-Digital Tutors, Kurt Williams | Creating a Floater Pack in Maya (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537217.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе по Maya мы рассмотрим способы создания и размещения "floaters"(дословно не переводится, примерно: элементы которые можно использовать как ресурсы в любых проектах и в любо виде float-плавающий(напр. плавающая лицензия у софта) ) для детализации геометрии.
-Мы изучим 3D и 2D методы создания, применяя различные приложения и несколько путей добавления (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание ассетовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D426F9DF641DAD95190CD8D2E06027999DA8702
 ```
 
 https://mybot314.ru/tekegram_catalog/

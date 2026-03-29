@@ -1,3 +1,134 @@
+###  Публикация: 1134732   (686792) от 16.05.2017
+
+Total Video Player Pro 2.9.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Video Playerr Pro является мощным, полнофункциональным HD медиа-плеером, поддерживающего разрешение 1080p, 3GP, MP4, H264, MOV, FLV, и все другие популярные видео файлы вместе с любыми форматами аудио (MP3, WMA, OGG, MPEG-1, MPEG -2 и т.д.), а также DVD-диски и аудио компакт-дисков.   Нет необходимости устанавливать какие-либо видео кодеки; Этот небольшой инструмент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: eTinySoft Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291CE6B0D37FE652ACAC83D9C332F1B5D3E7B7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535373   (686704) от 06.03.2022
+
+Aimersoft Video Suite 12.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aimersoft Video Suite - ваше универсальное видео решение для преобразования, сжатия, загрузки видео, записи DVD и многого другого. Aimersoft Video Suite позволяет конвертировать между всеми цифровыми видеоформатами с качеством без потерь. С помощью этого программного обеспечения вы можете конвертировать 1000 видеоформатов, включая WebM, HEVC, FLV, MP4, MOV, MTS и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2022Разработчик: © 2022 AimersoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AFF318E82223F5A5A4246494FF624D1D0FCDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289614   (686624) от 16.03.2019
+
+PrinTao CANON 24 Edition 8 v8.0r12 (build 181) [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Printao 8 - это легкая профессиональная печать. PrinTao 8 - это абсолютно новое решение для печати Mac OS X для всех, кто хочет получать высококачественные отпечатки простым и эффективным способом. Сконцентрируйтесь на изображениях и не обращайте внимания на сложные настройки драйвера принтера! Сосредоточьтесь на самом главном и получите отпечатки в беспрецедентном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: LaserSoftПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1F7839CFA64391A5430339A4EEE273AA7C5951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222270   (686603) от 28.04.2018
+
+Adobe After Effects CC 2018 v15.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686603.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов.
+ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8A417DF7DBB5B26D1737A73B125CC51A602DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535337   (686561) от 06.03.2022
+
+QR Creator PRO 4.1.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686561.jpg" />
+</div>
+
+
+###  Подробнее
+
+QR Creator PRO — это быстрое и эффективное решение для создания QR-кодов.Тип издания: macOS SoftwareРелиз состоялся: 04.03.202Разработчик: © 2022 Astrvm VitriolvmПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425408A392242A24AAED442C9F6F71253F672990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028859   (686490) от 24.06.2016
 
 DM1 - The Drum Machine 2.2 [En]
@@ -6,7 +137,7 @@ DM1 - The Drum Machine 2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686490.jpg" />
+  <img src="Z:/picture/008/save_picture_686490.jpg" />
 </div>
 
 
@@ -35,7 +166,7 @@ PrinTao EPSON 24 Edition 8 v8.0r12 (build 181) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686370.jpg" />
+  <img src="Z:/picture/008/save_picture_686370.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ OS X Server 5.1.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686249.jpg" />
+  <img src="Z:/picture/008/save_picture_686249.jpg" />
 </div>
 
 
@@ -89,7 +220,7 @@ OmniPlan Pro v3.11.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685565.jpg" />
+  <img src="Z:/picture/008/save_picture_685565.jpg" />
 </div>
 
 
@@ -115,7 +246,7 @@ JPEGmini 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685240.jpg" />
+  <img src="Z:/picture/008/save_picture_685240.jpg" />
 </div>
 
 
@@ -143,7 +274,7 @@ MiniNote Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684538.jpg" />
+  <img src="Z:/picture/008/save_picture_684538.jpg" />
 </div>
 
 
@@ -172,7 +303,7 @@ Horcrux Email Backup 2.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684424.jpg" />
+  <img src="Z:/picture/008/save_picture_684424.jpg" />
 </div>
 
 
@@ -201,7 +332,7 @@ Analog 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684290.jpg" />
+  <img src="Z:/picture/008/save_picture_684290.jpg" />
 </div>
 
 
@@ -229,7 +360,7 @@ Picture Instruments Fast Resize Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684230.jpg" />
+  <img src="Z:/picture/008/save_picture_684230.jpg" />
 </div>
 
 
@@ -256,7 +387,7 @@ YouTubeHunter Pro 5.6.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684190.jpg" />
+  <img src="Z:/picture/008/save_picture_684190.jpg" />
 </div>
 
 
@@ -283,7 +414,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684044.jpg" />
+  <img src="Z:/picture/008/save_picture_684044.jpg" />
 </div>
 
 
@@ -309,7 +440,7 @@ On1 Photo 10.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683915.jpg" />
+  <img src="Z:/picture/008/save_picture_683915.jpg" />
 </div>
 
 
@@ -335,7 +466,7 @@ Autopano Giga 4.4.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682528.jpg" />
+  <img src="Z:/picture/008/save_picture_682528.jpg" />
 </div>
 
 
@@ -362,7 +493,7 @@ Clean Text Menu 7.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681989.jpg" />
+  <img src="Z:/picture/008/save_picture_681989.jpg" />
 </div>
 
 
@@ -389,7 +520,7 @@ Temp Monitor 1.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681672.jpg" />
+  <img src="Z:/picture/008/save_picture_681672.jpg" />
 </div>
 
 
@@ -415,7 +546,7 @@ Barcody 3.11 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681097.jpg" />
+  <img src="Z:/picture/008/save_picture_681097.jpg" />
 </div>
 
 
@@ -444,7 +575,7 @@ OmniPlan Pro 3.7.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680649.jpg" />
+  <img src="Z:/picture/008/save_picture_680649.jpg" />
 </div>
 
 
@@ -470,7 +601,7 @@ Moom 3 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680589.jpg" />
+  <img src="Z:/picture/005/save_picture_680589.jpg" />
 </div>
 
 
@@ -496,7 +627,7 @@ JustBroadcaster for Facebook 2.1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680313.jpg" />
+  <img src="Z:/picture/008/save_picture_680313.jpg" />
 </div>
 
 
@@ -523,7 +654,7 @@ Corel Painter 12 (0.0.502) [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680223.jpg" />
+  <img src="Z:/picture/005/save_picture_680223.jpg" />
 </div>
 
 
@@ -557,7 +688,7 @@ BetterZip 4.2.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680212.jpg" />
+  <img src="Z:/picture/008/save_picture_680212.jpg" />
 </div>
 
 
@@ -570,150 +701,6 @@ BetterZip 4.2.3 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE54723ADE51C4D98904980DA9EA33E28F1050BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135821   (679144) от 20.05.2017
-
-JustBroadcaster YTEd 1.7.4 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679144.jpg" />
-</div>
-
-
-###  Подробнее
-
-JustBroadcaster YTEd - создай трансляцию на YouTube в считанные минуты
-Начало трансляции на YouTube менее чем за 2 минуты.
-Видео-микшер и прямые трансляции на YouTube.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 мая 2017Разработчик: Mihail GaraninПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F512AD458E61048347B07AACA71D629D8DF265B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135769   (679142) от 20.05.2017
-
-Deliveries 3.0.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679142.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Deliveries вы можете быстро отслеживать все свои посылки.
-Deliveries помогает вам следить за всеми вашими посылками, так что вы всегда будете знать, когда они прибудут до места назначения. Будь то последний гаджет или роман, который вы заказывали заранее в Интернете, Deliveries будет следить за ними, так что вы не пропустите звонок в дверь.
-
-Основной список показывает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2016Разработчик: Junecloud LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16612A720C75309C2B8853C24E929D7DDF24BBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135832   (678976) от 20.05.2017
-
-Aiseesoft PDF Converter 3.3.29 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft PDF Converter Pro - мощный PDF конвертер для Mac.
-Aiseesoft PDF Converte for Mac - Конвертер PDF в Text, Word, Excel, EPUB, HTML и другие форматы. Поддержка сохранения в TIFF, JPEG, PNG, GIF, BMP, TGA, PPM, JPEG2000 и другие форматы.
-
- Передача готовых файлов на мобильное устройство. Настройка параметров. Пакетный режим работы. Предварительный просмотр в (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: RayShare Co., LtdПоддерживаемая ОС: MacOS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C8FA9FE721D9E3C917F140325F62D17B80DBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135812   (678959) от 20.05.2017
-
-Kigo Video Converter Ultimate 6.1.5 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практичное и удобное в использовании приложение, которое поможет вам  загрузить и конвертировать мультимедийный контент всего за несколько кликов мыши
-
-Video Converter Ultimate поддерживает все популярные видеоформаты, включая FLV, MPEG1, MPEG2, MP4, 3GP, 3G2, MOV, AVI, M2TS, MPEG TS / TP (для видео высокой четкости) и т.д., и все типы DVD для воспроизведения на iPod, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: Kigosoft IncПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1A564E84C19DAD795F782FAB76AF6DF2CC3820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135580   (678593) от 20.05.2017
-
-FTP Server 1.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678593.jpg" />
-</div>
-
-
-###  Подробнее
-
-FTP Server обеспечивает простой способ обмена файлами между компьютерами и другими устройствами.
-
-FTP Server поставляется с собственной аутентификацией пароля, поэтому вам не нужно передавать свою учетную запись другим людям, и вам не нужно создавать системного пользователя для аутентификации.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: Coral WuПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F38ABF91FD7545D68CCF5503D7308757F391DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1319381   (484591) от 11.08.2019
+
+NNM-Club Sound Cleaner Group Collection - s6
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle и не только к проектам After Effects от наших неформальных участников движения Sound cleaner, а также не вошедших в ранние сборники от именитых и активных.Формат: WAV, MP3, AAC, MPC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E29D023C2A3600B075CD4F532B74B932EB7CA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319458   (482579) от 12.08.2019
+
+Звуковые библиотеки - Music Maker Jam - Soundpools Pack 4 [OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборники стилей Music Maker Jam возвращаются и в очередной раз собирают все новинки из MMJ, а также упущения из предыдущих релизов. В 4 издании собрано 136 стилей, содержащие 25607 звучаний различных инструментов высокого качества. Стили подходят для установки не только в MMJ, но и в более профессиональные версии программы (Magix Music Maker Premium/Live и т.д.). (   Читать дальше...   )Формат: OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15543D17FDC40103D83918CF3948ABFF7E718611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319661   (480912) от 13.08.2019
+
+Звуковые библиотеки - Orange Tree Samples - Evolution Jumbo 12 [Kontakt, OGG, MID, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы рады представить Evolution Jumbo 12, долгожданное 12-струнное акустическое дополнение к нашей серии гитар Evolution, записанное с Taylor 355. Эта гитара обладает шелковистым верхом, но в то же время обладает достаточным количеством тела в низких и средних частотах. несомненно, результатом этого является гитара большего размера. Evolution Jumbo 12, смешанный на (   Читать дальше...   )Формат: Kontakt: NICNT, NKI, NKC, NKR, NKX, NKSN; OGG, MID, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361382569B2C96995AB09ADA2EE300326D7F0857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320146   (475063) от 16.08.2019
 
 Звуковые библиотеки - Cinesamples - VOXOS 2 Epic Choirs [Kontakt]
@@ -6,7 +84,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475063.jpg" />
+  <img src="Z:/picture/008/save_picture_475063.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471235.jpg" />
+  <img src="Z:/picture/008/save_picture_471235.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468264.jpg" />
+  <img src="Z:/picture/008/save_picture_468264.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466127.jpg" />
+  <img src="Z:/picture/008/save_picture_466127.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466121.jpg" />
+  <img src="Z:/picture/008/save_picture_466121.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.06
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466017.jpg" />
+  <img src="Z:/picture/008/save_picture_466017.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ NNM-Club Sound Cleaner Collection - andgelo12 - Album 4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462969.jpg" />
+  <img src="Z:/picture/008/save_picture_462969.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459778.jpg" />
+  <img src="Z:/picture/008/save_picture_459778.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456693.jpg" />
+  <img src="Z:/picture/008/save_picture_456693.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456443.jpg" />
+  <img src="Z:/picture/008/save_picture_456443.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454705.jpg" />
+  <img src="Z:/picture/008/save_picture_454705.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454597.jpg" />
+  <img src="Z:/picture/008/save_picture_454597.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449103.jpg" />
+  <img src="Z:/picture/008/save_picture_449103.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448564.jpg" />
+  <img src="Z:/picture/008/save_picture_448564.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446933.jpg" />
+  <img src="Z:/picture/008/save_picture_446933.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446170.jpg" />
+  <img src="Z:/picture/008/save_picture_446170.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444830.jpg" />
+  <img src="Z:/picture/008/save_picture_444830.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444391.jpg" />
+  <img src="Z:/picture/008/save_picture_444391.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440293.jpg" />
+  <img src="Z:/picture/008/save_picture_440293.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Mixosaurus - Expert Virtual Drums 1.1 REPACK [Kontakt, MID]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439674.jpg" />
+  <img src="Z:/picture/008/save_picture_439674.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ Impact Soundworks - Ventus Ethnic Winds Duduk [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435630.jpg" />
+  <img src="Z:/picture/008/save_picture_435630.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ Spіtfіre Audіo - Symphonіc Strіngs [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433681.jpg" />
+  <img src="Z:/picture/008/save_picture_433681.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ Concept Samples - Interface Vol.2 [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433679.jpg" />
+  <img src="Z:/picture/008/save_picture_433679.jpg" />
 </div>
 
 
@@ -605,85 +683,6 @@ Concept Samples - Interface Vol.2 [WAV]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20F4C0E8287ADD9EE13DC4EA32C2AC85FBB2D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323648   (433560) от 05.09.2019
-
-Spitfire Audio - BML Mural Symphonic Strings Vol. 1&2 RePack Андрей650071 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spitfire представляет Mural - новую библиотеку в серии British Modular Range, которая представляет вам детально засэмплированные струнные при участии лучших музыкантов Лондона. Mural предлагает большой струнный оркестр из 60 человек (16,14,12,10,8), записанный и исполненный для обеспечения невероятной детальности. Это не эпические струнные для трейлеров. Звук библиотеки (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D987C0A04D4F3202765896554E5639B474877EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394383   (427435) от 30.09.2011
-
-Звуковые библиотеки - Steven Slate Drums - Platinum 3.5 [NKI]
-
->>След.
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steven Slate Drums Platinum - это библиотека которая содержит более 40 наборов ударных в том числе 13 комплектов а также 10 новых гибридных комплектов, которые используют несколько различных слоев для создания новых и уникальных звуков.Этот пакет представляет собой наиболее полный виртуальный инструмент барабанаФормат: NKI
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324375   (427321) от 08.09.2019
-
-ProjectSam - Symphobia 3 Lumina v1.5 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427321.jpg" />
-</div>
-
-
-###  Подробнее
-
-К вашим услугам полный оркестр, хор, малые ансамбли и широкий диапазон новых инструментов, Lumina погружает в мир фантазий, таинства и воодушевления, добавьте глубину и изысканность в вашу музыкальную палитру. Основываясь на еще большем количестве материала, третий том в серии Symphobia является самым амбициозным релизом за все время.
-Тепло и красота совместного (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A62A2CAFDD9D501C80C2D62AE7C2B270D609D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

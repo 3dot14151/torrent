@@ -6,7 +6,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434457.jpg" />
+  <img src="Z:/picture/008/save_picture_434457.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433430.jpg" />
+  <img src="Z:/picture/008/save_picture_433430.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433427.jpg" />
+  <img src="Z:/picture/008/save_picture_433427.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433106.jpg" />
+  <img src="Z:/picture/008/save_picture_433106.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432294.jpg" />
+  <img src="Z:/picture/008/save_picture_432294.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431241.jpg" />
+  <img src="Z:/picture/008/save_picture_431241.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431114.jpg" />
+  <img src="Z:/picture/008/save_picture_431114.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427959.jpg" />
+  <img src="Z:/picture/008/save_picture_427959.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426811.jpg" />
+  <img src="Z:/picture/008/save_picture_426811.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424489.jpg" />
+  <img src="Z:/picture/008/save_picture_424489.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422264.jpg" />
+  <img src="Z:/picture/008/save_picture_422264.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422260.jpg" />
+  <img src="Z:/picture/008/save_picture_422260.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422133.jpg" />
+  <img src="Z:/picture/008/save_picture_422133.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421055.jpg" />
+  <img src="Z:/picture/008/save_picture_421055.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420033.jpg" />
+  <img src="Z:/picture/008/save_picture_420033.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419962.jpg" />
+  <img src="Z:/picture/008/save_picture_419962.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419869.jpg" />
+  <img src="Z:/picture/008/save_picture_419869.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419856.jpg" />
+  <img src="Z:/picture/008/save_picture_419856.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419264.jpg" />
+  <img src="Z:/picture/008/save_picture_419264.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418376.jpg" />
+  <img src="Z:/picture/008/save_picture_418376.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418100.jpg" />
+  <img src="Z:/picture/008/save_picture_418100.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415792.jpg" />
+  <img src="Z:/picture/008/save_picture_415792.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415703.jpg" />
+  <img src="Z:/picture/008/save_picture_415703.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415466.jpg" />
+  <img src="Z:/picture/008/save_picture_415466.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415405.jpg" />
+  <img src="Z:/picture/008/save_picture_415405.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415393.jpg" />
+  <img src="Z:/picture/008/save_picture_415393.jpg" />
 </div>
 
 

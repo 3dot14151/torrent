@@ -1,3 +1,29 @@
+###  Публикация: 1619611   (245533) от 23.03.2023
+
+Растин / Rustin (2001) DVD5 [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Растин — название города в штате Алабама, куда после завершения своей профессиональной карьеры футболиста возвращается Билли Стаген и становится местным шерифом. Прошлое ещё не отпустило Билли, а между тем его жизнь переворачивается с ног на голову, когда в город приезжает шестнадцатилетняя девушка по имени Ли, которая утверждает, что она — его внебрачная дочь.Производство: США  /  C-Dub Productions, Dahlia Street Films, Grabba-Bat ProductionsЖанр: Драма, комедияРежиссер: Рик ДжонсонАктеры: Рик Джонсон, Мит Лоаф, Эшли Джонсон, Закари Тай Брайан, Майкл Пападжон, Shanessa Sweeney, Ли Эверетт, Лелэнд Л. Джонс, Джонатан Барби, Дэн БинПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81CBE0DFE59745EED6D6EFA65CB29449F694504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619727   (245509) от 23.03.2023
 
 Неудачи / The Failures (2003) DVDRip [H.264] [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245509.jpg" />
+  <img src="Z:/picture/004/save_picture_245509.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241730.jpg" />
+  <img src="Z:/picture/004/save_picture_241730.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224476.jpg" />
+  <img src="Z:/picture/005/save_picture_224476.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220756.jpg" />
+  <img src="Z:/picture/005/save_picture_220756.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219828.jpg" />
+  <img src="Z:/picture/005/save_picture_219828.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217038.jpg" />
+  <img src="Z:/picture/005/save_picture_217038.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216620.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200173.jpg" />
+  <img src="Z:/picture/005/save_picture_200173.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198405.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193679.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187988.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Fanimatrix: Run Program (2003) DVDRip [EN]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183594.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181326.jpg" />
+  <img src="Z:/picture/005/save_picture_181326.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181194.jpg" />
+  <img src="Z:/picture/005/save_picture_181194.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176420.jpg" />
+  <img src="Z:/picture/004/save_picture_176420.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164793.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160373.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158674.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158466.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158305.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157916.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149140.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147188.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143950.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142244.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91F8E8EBA481ADDBE80CF1109F4BDD58FA0E2CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593309   (135207) от 23.12.2012
-
-Линии Веллингтона / Linhas de Wellington / Lines Of Wellington (2012) DVDRip   [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм "Линии Веллингтона" — исторический эпос о нашествии в Португалию наполеоновских войск. После завоевания Испании Наполеон Бонапарт в 1810 году послал мощную армию, чтобы вторгнуться в пределы Португалии. Преодолев установленные против них укрепленные районы, французы подошли к Лиссабону, они были встречены объединенными силами британской и португальской армий под командованием Артура Веллингтона. Кроме батальных эпизодов фильм изобилует сценами любовных интриг и предательств, благородных поступков и эгоистической жестокости, что присуще всем участникам исторического повествования от самых высоких социальных эшелонов до самых скромных обывателей. Этот проект был задуман и подготовлен Раулем Руисом, но осуществлен после его смерти вдовой выдающегося режиссера Валерией Сармиенто.Жанр: Драма, ВоенныйРежиссер: Валерия СармиентоАктеры: Нуно Лопес, Сорая Чавес, Мариса Паредес, Джон Малкович, Карлотту Котта, Виктория Герра, Марселло Уржеги, Джемима Уэст, Хосе Афонсо Пиментел, Мигель БоргесПеревод: ОтсутствуетПродолжительность: 02:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0E272D7AAAF51D1B39D51BE13981520830942D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1185957   (289825) от 23.11.2017
+
+Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming Flutes
+02. Pride & Reign
+03. Deep Celtic
+04. Reprise(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFDB2173AE41472B0FA48F2EA9662856037EE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185690   (289660) от 23.11.2017
+
+Bill Yeats - Relaxing Spanish Guitar (2008) [APE|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I'm With You 3:47
+02 - Piazza Garibaldi 4:26
+03 - Midday On The Promenade 3:40
+04 - Sangria 4:47(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4368A9E0EE6085BFA845E37ED1BEB00AA5837FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080057   (289650) от 06.12.2016
 
 Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [FLAC|Lossless|tracks]<Soundtrack>
@@ -6,7 +64,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289650.jpg" />
+  <img src="Z:/picture/008/save_picture_289650.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289579.jpg" />
+  <img src="Z:/picture/008/save_picture_289579.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Na
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289510.jpg" />
+  <img src="Z:/picture/008/save_picture_289510.jpg" />
 </div>
 
 
@@ -97,7 +155,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289417.jpg" />
+  <img src="Z:/picture/008/save_picture_289417.jpg" />
 </div>
 
 
@@ -126,7 +184,7 @@ Tom Holkenborg - Терминатор: Темные судьбы / Terminator: D
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289409.jpg" />
+  <img src="Z:/picture/008/save_picture_289409.jpg" />
 </div>
 
 
@@ -155,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289198.jpg" />
+  <img src="Z:/picture/008/save_picture_289198.jpg" />
 </div>
 
 
@@ -184,7 +242,7 @@ Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288471.jpg" />
+  <img src="Z:/picture/008/save_picture_288471.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Sou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
+  <img src="Z:/picture/008/save_picture_288277.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288190.jpg" />
+  <img src="Z:/picture/008/save_picture_288190.jpg" />
 </div>
 
 
@@ -276,7 +334,7 @@ Meister der Entspannung und Meditation - Early Morning Yoga Music (2019) [FLAC|L
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287735.jpg" />
+  <img src="Z:/picture/008/save_picture_287735.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Med
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287177.jpg" />
+  <img src="Z:/picture/008/save_picture_287177.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286299.jpg" />
+  <img src="Z:/picture/008/save_picture_286299.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286265.jpg" />
+  <img src="Z:/picture/008/save_picture_286265.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ Karunesh - Revelation (2009) [MP3|320 kbps]<New Age/Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286238.jpg" />
+  <img src="Z:/picture/008/save_picture_286238.jpg" />
 </div>
 
 
@@ -426,7 +484,7 @@ Clannad - The Real... Clannad (The Ultimate Collection) 3CD (2018) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285928.jpg" />
+  <img src="Z:/picture/008/save_picture_285928.jpg" />
 </div>
 
 
@@ -455,7 +513,7 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285715.jpg" />
+  <img src="Z:/picture/008/save_picture_285715.jpg" />
 </div>
 
 
@@ -484,7 +542,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285668.jpg" />
+  <img src="Z:/picture/008/save_picture_285668.jpg" />
 </div>
 
 
@@ -513,7 +571,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285516.jpg" />
+  <img src="Z:/picture/008/save_picture_285516.jpg" />
 </div>
 
 
@@ -542,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285051.jpg" />
+  <img src="Z:/picture/008/save_picture_285051.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284555.jpg" />
+  <img src="Z:/picture/008/save_picture_284555.jpg" />
 </div>
 
 
@@ -597,7 +655,7 @@ Various Artists - Лондонские поля/ London Fields (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284361.jpg" />
+  <img src="Z:/picture/008/save_picture_284361.jpg" />
 </div>
 
 
@@ -626,7 +684,7 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284259.jpg" />
+  <img src="Z:/picture/008/save_picture_284259.jpg" />
 </div>
 
 
@@ -655,7 +713,7 @@ Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283946.jpg" />
+  <img src="Z:/picture/008/save_picture_283946.jpg" />
 </div>
 
 
@@ -684,7 +742,7 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283033.jpg" />
+  <img src="Z:/picture/008/save_picture_283033.jpg" />
 </div>
 
 
@@ -698,64 +756,6 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BBFCCDEA7097349308F877A2E3BD34AA9C2D583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081231   (283029) от 10.12.2016
-
-Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Footprints [00:03:04]
-02 -  Heaven Is Real [00:05:24]
-03 -  Wedding Theme [00:04:09]
-04 -  Music Therapy [00:03:36](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A991FEEC3A2A591FBC5CEA4F76542B5BAD7E13C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081383   (282910) от 10.12.2016
-
-Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firewalk [11:06]
-02. Earth Spirit [13:09]
-03. Ocean Goddess [10:47]
-04. Breath of the Earth [12:23](   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF9C47C789897BB3819B30FDE88D75357A4617DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1162714   (452270) от 04.09.2017
+
+Cheats v48.2 [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ищете чит-коды для вашей любимой игры? Вы нашли ответ! Oiynsoft Cheats — это огромнейшая база чит-кодов для игр различных платформ. На данный момент в программе содержатся чит-коды для более 7500 игр 13 платформ на русском и английском языках. Поддерживаются следующие платформы: мобильные (Android, iOS, Java), серии консолей Xbox и PlayStation, а также PC, N-Gage (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 09.06.2017Разработчик: OiynsoftПоддерживаемая ОС: Android 4.0.3 или более поздняяЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52EF7CC23AA03B907D94C297DD38984FFD203D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942179   (451182) от 02.10.2015
 
 Braveland Pirate 1.0.1 [Ru/Multi]
@@ -6,7 +32,7 @@ Braveland Pirate 1.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451182.jpg" />
+  <img src="Z:/picture/008/save_picture_451182.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451023.jpg" />
+  <img src="Z:/picture/008/save_picture_451023.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Player FM Podcasts v4.1.0.129 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450732.jpg" />
+  <img src="Z:/picture/008/save_picture_450732.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450349.jpg" />
+  <img src="Z:/picture/008/save_picture_450349.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450334.jpg" />
+  <img src="Z:/picture/008/save_picture_450334.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_450283.jpg" />
+  <img src="Z:/picture/005/save_picture_450283.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450221.jpg" />
+  <img src="Z:/picture/008/save_picture_450221.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Simple Planner v1.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450214.jpg" />
+  <img src="Z:/picture/008/save_picture_450214.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ QuickCalend v30.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450119.jpg" />
+  <img src="Z:/picture/008/save_picture_450119.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450094.jpg" />
+  <img src="Z:/picture/008/save_picture_450094.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_450044.jpg" />
+  <img src="Z:/picture/005/save_picture_450044.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449855.jpg" />
+  <img src="Z:/picture/005/save_picture_449855.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449852.jpg" />
+  <img src="Z:/picture/005/save_picture_449852.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449570.jpg" />
+  <img src="Z:/picture/008/save_picture_449570.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Lego Звездные войны: Поиск R2-D2 / Lego Star Wars: The Quest f
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446240.jpg" />
+  <img src="Z:/picture/008/save_picture_446240.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Lego Звездные войны: Награда Бомбада / Lego Star Wars
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446236.jpg" />
+  <img src="Z:/picture/008/save_picture_446236.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ Lego Звездные войны: Империя наносит удар / Lego 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446133.jpg" />
+  <img src="Z:/picture/008/save_picture_446133.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ Moddy. Учет расходов и доходов 1.0.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445991.jpg" />
+  <img src="Z:/picture/008/save_picture_445991.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445864.jpg" />
+  <img src="Z:/picture/008/save_picture_445864.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ MyScore 1.5.3 + Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445062.jpg" />
+  <img src="Z:/picture/008/save_picture_445062.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Poweramp Remote 4 Android Wear 1.29 [Ru] - Управление плеером P
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444760.jpg" />
+  <img src="Z:/picture/008/save_picture_444760.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440821.jpg" />
+  <img src="Z:/picture/005/save_picture_440821.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440644.jpg" />
+  <img src="Z:/picture/005/save_picture_440644.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440634.jpg" />
+  <img src="Z:/picture/005/save_picture_440634.jpg" />
 </div>
 
 
@@ -648,39 +674,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440314.jpg" />
+  <img src="Z:/picture/005/save_picture_440314.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Великолепный, интуитивно понятный и очень функциональный будильник.Разработчик: doubleTwist ™Язык интерфейса: Английский/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553028   (440174) от 29.09.2012
-
-[Игра] (Android) Bad Piggies HD v1.0 2012
-
->>След.
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плохие Свиньи для Андроид - это новая игра от создателей Angry Birds. На этот раз игроку представиться возможность играть за тех самых свиней-похитителей птичьих яиц, против которых мы сражались во всех частях Angry Birds! Особенности геймплея Bad Piggies для Андроид - игра более реалистичнее, как всегда красочная 3D графика и музыкальное сопровождение. Плохие Поросята для Андроид - это очередная Головоломка от всемирно известного разработчика Rovio Mobile.Android 2.2 и вышеЖанр: Головоломки,Аркады
 
 ## Скачать торент
 ```bash

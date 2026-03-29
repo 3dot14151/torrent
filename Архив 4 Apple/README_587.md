@@ -1,3 +1,109 @@
+###  Публикация: 1429724   (176083) от 07.12.2020
+
+Multitouch 1.20.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch!
+
+Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63D0D370E9A325E554174486B01909E695F87E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429826   (176082) от 07.12.2020
+
+VideoTag 1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176082.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoTag - сделайте вашу библиотеку TV / iTunes наглядной и потрясающей. Пометьте свои файлы mp4 / m4v метаданными и сделайте так, чтобы ваш телевизор или медиатека iTunes великолепно выглядели на всех ваших устройствах. Просто перетащите видеофайл из Finder или из TV / iTunes, и VideoTag быстро загрузит высококачественные метаданные с themoviedb.org. Вы можете выбрать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Bitfield AB.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3448E2D61053F5A9559CE60651360D7BFB124F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429729   (176079) от 07.12.2020
+
+ProFind 1.8.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAD07DF114E3825985B464038D48CB84EFF1032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429814   (176077) от 07.12.2020
+
+PullTube 1.6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1140F35B03DFF766356ACE47F9FA616CCEC63597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429671   (176074) от 07.12.2020
 
 Trminal 1.1 [En]
@@ -6,7 +112,7 @@ Trminal 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176074.jpg" />
+  <img src="Z:/picture/004/save_picture_176074.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ BlueHarvest 8 v8.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176071.jpg" />
+  <img src="Z:/picture/004/save_picture_176071.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Path Finder 10.0b11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176057.jpg" />
+  <img src="Z:/picture/004/save_picture_176057.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Blocs 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176040.jpg" />
+  <img src="Z:/picture/004/save_picture_176040.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Sync Folders Pro 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176037.jpg" />
+  <img src="Z:/picture/004/save_picture_176037.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Unite 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176000.jpg" />
+  <img src="Z:/picture/004/save_picture_176000.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Things 3 v3.13.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175997.jpg" />
+  <img src="Z:/picture/004/save_picture_175997.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ App Icon Generator 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175978.jpg" />
+  <img src="Z:/picture/004/save_picture_175978.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Big Sur Cache Cleaner 16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175972.jpg" />
+  <img src="Z:/picture/004/save_picture_175972.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ FontLab 7 v7.2.0.7644 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175864.jpg" />
+  <img src="Z:/picture/004/save_picture_175864.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ Screen Wonders 2.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175493.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ Marked 2 - Markdown Preview 2.6.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175491.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ Texifier 1.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175486.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ BusyContacts 2023.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175483.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ MWeb Pro 4.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175478.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ Araxis Merge Pro Edition 2023.5953 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175470.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ Dash 7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175458.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ iNet Network Scanner 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175452.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ Valentina Studio Pro 13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175443.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ n-Track Studio Suite 10.0..0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175435.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ MediaInfo for Mac 23.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175431.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ OmniReader Pro for Mac 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175402.jpg" />
 </div>
 
 
@@ -578,112 +684,6 @@ OmniReader - полифункциональное приложение для ч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB31EA4996C3271B88C7538121FC0482622A9802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667983   (175395) от 10.10.2023
-
-BusyCal 2023.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175395.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © Busy Apps, 2007-2022Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B562F069307DD79F99C8E1C329B9A040BFB2CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667979   (175390) от 10.10.2023
-
-Allavsoft Video Downloader Converter 3.25.9.8679  [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69DE241D36AB44AF30F67EA4DF0509135FF5FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667990   (175387) от 10.10.2023
-
-Hazel 5.2.2 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29.05.2023Разработчик: © 2023 Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D375A4642AE6ED5B41340AB8BD8F485DAA0039B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667924   (175364) от 10.10.2023
-
-Bartender 5 v.5.0.39 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 14.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EDB0432FCA02EF661E29BAAE8756C7E55DC98A
 ```
 
 https://mybot314.ru/tekegram_catalog/

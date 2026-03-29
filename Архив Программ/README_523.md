@@ -6,7 +6,7 @@ The KMPlayer 4.2.2.40 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783308.jpg" />
+  <img src="Z:/picture/008/save_picture_783308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPU-Z 1.92.2 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783303.jpg" />
+  <img src="Z:/picture/008/save_picture_783303.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SamDrivers 20.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783302.jpg" />
+  <img src="Z:/picture/008/save_picture_783302.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HandBrake 1.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783296.jpg" />
+  <img src="Z:/picture/008/save_picture_783296.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.06.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783277.jpg" />
+  <img src="Z:/picture/008/save_picture_783277.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783262.jpg" />
+  <img src="Z:/picture/008/save_picture_783262.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Program Uninstaller 2.2.1.116 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783217.jpg" />
+  <img src="Z:/picture/008/save_picture_783217.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ XMedia Recode 3.4.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783214.jpg" />
+  <img src="Z:/picture/008/save_picture_783214.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ant Download Manager PRO 1.7.3 Build 48180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783188.jpg" />
+  <img src="Z:/picture/008/save_picture_783188.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SRWare Iron 64.0.3350.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783183.jpg" />
+  <img src="Z:/picture/008/save_picture_783183.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MediaHuman Audio Converter 1.9.6.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783179.jpg" />
+  <img src="Z:/picture/008/save_picture_783179.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ EximiousSoft GIF Creator 7.32 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783176.jpg" />
+  <img src="Z:/picture/008/save_picture_783176.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Registry First Aid Platinum 11.1.0 Build 2492 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783155.jpg" />
+  <img src="Z:/picture/008/save_picture_783155.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ScreenPresso Pro 1.7.2.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783151.jpg" />
+  <img src="Z:/picture/008/save_picture_783151.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ WPS Office Premium 10.2.0.5996 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783117.jpg" />
+  <img src="Z:/picture/008/save_picture_783117.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Opera GX 68.0.3618.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783095.jpg" />
+  <img src="Z:/picture/008/save_picture_783095.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ CyberGhost VPN 6.0.8.2959 RePack by Elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783089.jpg" />
+  <img src="Z:/picture/008/save_picture_783089.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ K-Lite Codec Pack Update 15.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783069.jpg" />
+  <img src="Z:/picture/008/save_picture_783069.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Glary Utilities Pro 5.144.0.170 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783056.jpg" />
+  <img src="Z:/picture/008/save_picture_783056.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ RogueKiller Anti-Malware 14.6.0.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783054.jpg" />
+  <img src="Z:/picture/008/save_picture_783054.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Lacey Free Music & Video Downloader 2.41 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783050.jpg" />
+  <img src="Z:/picture/008/save_picture_783050.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Auslogics Duplicate File Finder 8.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783040.jpg" />
+  <img src="Z:/picture/008/save_picture_783040.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ CherryPlayer 3.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783036.jpg" />
+  <img src="Z:/picture/008/save_picture_783036.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Glary Disk Explorer 5.27.1.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783031.jpg" />
+  <img src="Z:/picture/008/save_picture_783031.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ TinyWall 3.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783029.jpg" />
+  <img src="Z:/picture/008/save_picture_783029.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Revo Uninstaller Pro 4.3.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783024.jpg" />
+  <img src="Z:/picture/008/save_picture_783024.jpg" />
 </div>
 
 

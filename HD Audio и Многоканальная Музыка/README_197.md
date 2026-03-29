@@ -1,3 +1,235 @@
+###  Публикация: 1791260   (67882) от 12.04.2025
+
+Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk, Gothic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Dark [00:03:13]
+02. Telarañas [00:03:48]
+03. Under My Skin [00:03:22]
+04. Monster [00:03:36](   Читать дальше...   )Жанр: Darkwave, Post-Punk, Gothic RockПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7306BA225FCA50E532DDA060BC7AA76629AA8044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791208   (67875) от 12.04.2025
+
+Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One :
+01. All Men Play On 10
+02. Animals
+03. Thor (The Powerhead)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791185   (67870) от 12.04.2025
+
+Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mechanize
+02. Industrial Discipline
+03. Fear Campaign
+04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791116   (67869) от 12.04.2025
+
+Within Destruction - Animetal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Electronic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Animetal (00:03:53)
+02 - Demon Child (00:02:55)
+03 - Kanashibari (00:03:30)
+04 - Bitter Embrace (00:03:34)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Electronic RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F9F30CE99E0F9945AE9D55B60A9B1AB26F2AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791298   (67824) от 13.04.2025
+
+Destinity - Ascension (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension (1:18)
+02. Light up Your Sky (3:45)
+03. Dying Light (3:56)
+04. Crimson Portrait (4:27)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E1F73DEB171678C4E9FE07651D20D22E614B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791482   (67806) от 14.04.2025
+
+Elvenking - Reader Of The Runes - Luna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal, Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Season Of The Owl [5:20]
+02 - Luna [3:08]
+03 - Gone Epoch [4:58]
+04 - Stormcarrier (feat. Mathias Lillmåns) [4:53](   Читать дальше...   )Жанр: Folk Metal, Melodic Power MetalПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6E8F4715B914EE8D52F1A523689F149549960A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791467   (67802) от 14.04.2025
+
+Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (Live In Helsinki 2023) [2:09]
+02 - Circus of Doom (Live In Helsinki 2023) [4:42]
+03 - Straight to the Heart (Live In Helsinki 2023) [4:17]
+04 - Familiar Hell (Live In Helsinki 2023) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1236B5A84CE414CECC53A30120E8E11702559742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791765   (67777) от 15.04.2025
+
+Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Intro
+02 – Earthbreaker
+03 – March On Legionnaire
+04 – Event Horizon(   Читать дальше...   )Жанр: Melodic Power, Heavy MetalПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18471EEC3707571A46382FC4196386ADDA077B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791955   (67772) от 17.04.2025
 
 Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -6,7 +238,7 @@ Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67772.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Crow's Flight - The Dark Horizon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67770.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67768.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Insolate - Full Disclosure (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67764.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Juno Francis - Melancholia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67763.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Powe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67762.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67759.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67757.jpg" />
 </div>
 
 
@@ -237,7 +469,7 @@ Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67756.jpg" />
 </div>
 
 
@@ -266,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67754.jpg" />
 </div>
 
 
@@ -295,7 +527,7 @@ Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67753.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67752.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67751.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67724.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67690.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67662.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67661.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67660.jpg" />
 </div>
 
 
@@ -510,237 +742,6 @@ Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C566F7A30D52936C8D0BE0E94B61CB4896F7BF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792600   (67655) от 19.04.2025
-
-Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Knows What You’ll Find? (Spriitzz Remix) [00:04:16]
-02. I Can’t Lose You (Airwolf Paradise Remix) [00:03:10]
-03. Control (Paige Tomlinson Remix) [00:05:31]
-04. So What (Prozak Remix) [00:04:01](   Читать дальше...   )Жанр: DanceПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8764281EB7BCD45DEA34AFCD08A30D969FE308AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792148   (67625) от 20.04.2025
-
-Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67625.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fighting The World
-A2. Blow Your Speakers
-A3. Carry On
-A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792775   (67621) от 20.04.2025
-
-Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67621.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-742617000027
-A2-(Sic)
-A3-Eyeless
-A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792753   (67615) от 20.04.2025
-
-Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A storm is coming (3:33)
-02. Mind reconstruction (3:32)
-03. Steps in to the future (3:47)
-04. Tempest of my soul (3:34)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792807   (67612) от 20.04.2025
-
-Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uber das Meer (Remastered) [00:04:23]
-02. Was soll ich dir sagen (Remastered) [00:04:23]
-03. Warten auf Wunder (Remastered) [00:04:15]
-04. Bitte geh mir aus dem Weg (Remastered) [00:04:05](   Читать дальше...   )Жанр: Pop Rock, IndustrialПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792636   (67608) от 20.04.2025
-
-Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance [00:02:33]
-02. Starburster [00:03:41]
-03. Here's The Thing [00:02:43]
-04. Desire [00:03:39](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DB2D597AF6E54FE6207A38872AC17411266833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792375   (67607) от 20.04.2025
-
-Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Through Stars [00:05:14]
-02. Damned [00:03:59]
-03. To the Dark [00:03:54]
-04. All for Sale [00:03:31](   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B3EFD5844707F9464E1E391E37DA69259004C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792754   (67600) от 20.04.2025
-
-Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
-2019 - Enigma Fire
-2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

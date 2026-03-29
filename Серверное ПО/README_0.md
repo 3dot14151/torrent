@@ -6,7 +6,7 @@ Microsoft Lync 2010 Client RUS x86 4.0.7577.0 [Русский]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260655.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Lync 2010 Client RUS x64 4.0.7577.0 [Русский]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249015.jpg" />
+  <img src="Z:/picture/005/save_picture_249015.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Endpoint Configuration Manager 2203 [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232838.jpg" />
+  <img src="Z:/picture/005/save_picture_232838.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HP Service Pack for ProLiant Gen 11 2023.04 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188476.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HP Service Pack for ProLiant Gen 9 2022.08 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188381.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HP Service Pack for ProLiant Gen 10 2023.09 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188194.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HP Service Pack for ProLiant Gen 10 2023.03 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188187.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft® SQL Server® 2012 Express с пакетом обновления 1 (
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135074.jpg" />
+  <img src="Z:/picture/005/save_picture_135074.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft SQL Server 2012  Enterprise Edition (x86 and x64) (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102339.jpg" />
+  <img src="Z:/picture/005/save_picture_102339.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Oracle Database 11g Release 2 11.2.0.3 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81344.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ SolarWinds Platform 2025.2.1 [Multi]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2650.jpg" />
 </div>
 
 

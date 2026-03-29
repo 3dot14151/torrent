@@ -1,3 +1,235 @@
+###  Публикация: 1001050   (855715) от 27.03.2016
+
+Airborne Blues Virus - Get on Down (2016) [FLAC|Lossless|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gone Fishin'
+2. Your Leaving
+3. No Money
+4. Checkin'(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C868B43F74CD96C09224FA4CB7DD5130955DFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107528   (855676) от 01.03.2017
+
+Beau Williams - Bodacious! (1984) 2011, Remastered, Funky Town Grooves [FLAC|Lossless|image + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say No  05:07
+02. The Last Time I Made Love  03:18
+03. C'est La Vie  04:19
+04. Danger Zone  06:05(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF855FADA05B62A9E610FD1FDD242C05931EFABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110181   (855673) от 01.03.2017
+
+Angel Forrest - Mother Tongue Blues (2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You (4:04)
+02. Mother Tongue Blues (3:46)
+03. Blue Firegirl (5:12)
+04. Morningstar (3:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0CCDBDA232C5F9A0F02BFD6D5F00BA502CB6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110174   (855615) от 01.03.2017
+
+Dana Gillespie - Cat's Meow (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dana Gillespie (Дана Гиллеспи) - родилась 30 марта 1949 года в Англии. Будучи дочерью знаменитого трубача, тромбониста и мастера эпатажа Джона Биркса Гиллеспи, с успехом унаследовала творческий талант. Свой первый диск она записала в 15 лет. В 60-е она исполняла фолк, в 70-е перешла к року (ее продюсировал Дэвид Боуи), а в 80-е вернулась к своей давней любви - блюзу. (   Читать дальше...   )01. Cat's Meow (3:28)
+02. Love Matters (4:44)
+03. Eternally Yours (5:17)
+04. Eureka Moment (4:22)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364AEE754E656710C6095BED9E70C13A33DE5DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770157   (852454) от 24.03.2014
+
+Beth Hart & Joe Bonamassa - Live In Amsterdam (2014)  2CD [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Well (4:51)
+02. If I Tell You I Love You (3:51)
+03. See Saw (3:19)
+04. Strange Fruit (5:58)(   Читать дальше...   )Жанр: Blues |Продолжительность: 01:47:51 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3259BBDC7DFF4CDB559FE4A1BB923D1FAD21934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110972   (850430) от 04.03.2017
+
+The Blind Boys Of Alabama - Down In New Orleans (2008) [FLAC|Lossless|tracks + .cue] <Blues, Gospel>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blind Boys of Alabama (Блайнд Бойз оф Алабама) — американская музыкальная группа из штата Алабама, исполняющая музыку в жанре госпел. Является пятикратным лауреатом премии «Грэмми». Выступает с 1939 года. В 2003 году группа была принята в Зал славы госпела, в 2010 — в Музыкальный зал славы штата Алабама01. Free At Last  (3:33)
+02. Make A Better World (3:19)
+03. How I Got Over (5:03)
+04. You Got To Move (3:35)(   Читать дальше...   )Жанр: Blues, GospelПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB30E0742E45C9E6F2BEDA2F05A1DC97DAEB812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499529   (847465) от 02.10.2021
+
+Samantha Fish - Faster (2021) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faster
+02. All Ice No Whiskey
+03. Twisted Ambition
+04. Hypnotic(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A610CB44CE401B8ABA412E5CF4454773177138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111771   (846797) от 06.03.2017
+
+Delta Moon - Cabbagetown (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock And Roll Girl (3:44)
+02. The Day Before Tomorrow (3:32)
+03. Just Lucky I Guess (3:40)
+04. Coolest Fools (2:51)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C932BB016980EE6629D19E100BC62C350DBA7971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111812   (846756) от 06.03.2017
 
 Jeff Healey - Songs From The Road (2006) [APE|Lossless|image + .cue] <Blues Rock>
@@ -6,7 +238,7 @@ Jeff Healey - Songs From The Road (2006) [APE|Lossless|image + .cue] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846756.jpg" />
+  <img src="Z:/picture/008/save_picture_846756.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Stefano Galli - Focus (2014) [FLAC|Lossless|tracks] <Blues, Soul-Blues, Guitar B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845390.jpg" />
+  <img src="Z:/picture/008/save_picture_845390.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Two Timer - The Big Ass Beer To Go (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845184.jpg" />
+  <img src="Z:/picture/008/save_picture_845184.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Gary Moore - Parisienne Walkways: The Collection (2020) 2CD [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844718.jpg" />
+  <img src="Z:/picture/008/save_picture_844718.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Gladys Knight - 5 альбомов (1991-2006) [FLAC|Lossless]<R&B, Soul, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843751.jpg" />
+  <img src="Z:/picture/008/save_picture_843751.jpg" />
 </div>
 
 
@@ -148,7 +380,7 @@ Mick Clarke - 2 Album (2014 - 2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843301.jpg" />
+  <img src="Z:/picture/008/save_picture_843301.jpg" />
 </div>
 
 
@@ -176,7 +408,7 @@ Chris Rea - Blue Guitars III - Louisianna & New Orleans (2020) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842610.jpg" />
+  <img src="Z:/picture/008/save_picture_842610.jpg" />
 </div>
 
 
@@ -205,7 +437,7 @@ Chris Rea - Blue Guitars V - Texas Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842463.jpg" />
+  <img src="Z:/picture/008/save_picture_842463.jpg" />
 </div>
 
 
@@ -234,7 +466,7 @@ Linda Riggi - Born With The Blues (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_841642.jpg" />
+  <img src="Z:/picture/009/save_picture_841642.jpg" />
 </div>
 
 
@@ -263,7 +495,7 @@ C.W. Stoneking - Gon' Boogaloo (2014) [FLAC|Lossless|tracks + .cue] <Acoustic Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841627.jpg" />
+  <img src="Z:/picture/008/save_picture_841627.jpg" />
 </div>
 
 
@@ -292,7 +524,7 @@ Chris Rea - Blue Guitars VI - Chicago Blues (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841076.jpg" />
+  <img src="Z:/picture/008/save_picture_841076.jpg" />
 </div>
 
 
@@ -321,7 +553,7 @@ Joe Bonamassa - Dust Bowl (2011) [FLAC|Lossless]<Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840796.jpg" />
+  <img src="Z:/picture/008/save_picture_840796.jpg" />
 </div>
 
 
@@ -349,7 +581,7 @@ Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840104.jpg" />
+  <img src="Z:/picture/008/save_picture_840104.jpg" />
 </div>
 
 
@@ -378,7 +610,7 @@ Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839826.jpg" />
+  <img src="Z:/picture/008/save_picture_839826.jpg" />
 </div>
 
 
@@ -407,7 +639,7 @@ Chris Rea - Blue Guitars VII - Blues Ballads (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839581.jpg" />
+  <img src="Z:/picture/008/save_picture_839581.jpg" />
 </div>
 
 
@@ -436,7 +668,7 @@ John Lee Hooker - The Classic Early Years 1948-1951 (JSP box 4CD) (2002) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839025.jpg" />
+  <img src="Z:/picture/008/save_picture_839025.jpg" />
 </div>
 
 
@@ -462,7 +694,7 @@ Chris Rea - Blue Guitars X - Latin Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837874.jpg" />
+  <img src="Z:/picture/008/save_picture_837874.jpg" />
 </div>
 
 
@@ -491,7 +723,7 @@ Chris Rea - Blue Guitars IX - Celtic & Irish Blues (2020) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837864.jpg" />
+  <img src="Z:/picture/008/save_picture_837864.jpg" />
 </div>
 
 
@@ -505,238 +737,6 @@ Chris Rea - Blue Guitars IX - Celtic & Irish Blues (2020) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B7B6855543862C5C0FCE24632FF2E834097EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501115   (837862) от 08.10.2021
-
-Chris Rea - Blue Guitars XI - 60S & 70s (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Baby Told Me (Blues) (2:42)
-02. Got to Be Moving (3:46)
-03. My Baby Told Me (Gospel) (3:04)
-04. Heartbreaker (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C871C80F757F5CB7DF9D33C0C5C8BD64E6D524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879379   (837351) от 18.03.2015
-
-Ray Charles - Standards (1998) [APE|Lossless]<Blues, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Had To Be You [02:45]
-02. Am I Blue [03:38]
-03. Come Rain Or Come Shine [03:42]
-04. Georgia On My Mind [03:40](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 01:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF7EE1348AA5B6202E9BA634D2039D8CFC55602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113769   (836613) от 12.03.2017
-
-The Jeff Healey Band - Live At Grossman's (1994) Live, 2011, Eagle Records [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  I'm Going Home  (05:49) 
-02|  Killing Floor  (05:58) 
-03|  As The Years Go Passing By  (07:02) 
-04|  Ain't That Just Like A Woman  (04:52) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6629162A607A6638EF1D1CC5ECAEF515052A4449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113942   (835340) от 13.03.2017
-
-Lane Mack - Lane Mack (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Is Coming (4:21)
-02. High And Tight (3:48)
-03. Jesus' Cadillac (4:13)
-04. Be You (2:49)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E736A95E2888409F9A584C5681FC249EEBEFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114071   (835305) от 13.03.2017
-
-Jeff Healey - Mess Of Blues (2008) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock & Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  I'm Tore Down  (05:27) 
-02|  How Blue Can You Get  (08:55) 
-03|  Sugar Sweet  (03:46) 
-04|  Jambalaya  (04:00) (   Читать дальше...   )Жанр: Blues Rock, Rock & RollПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3C0E4F8B70C0191160C1E6030BB488928ECE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113882   (835295) от 13.03.2017
-
-Jeff Healey - Heal My Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Daze Of The Night  (04:00) 
-02|  Moodswing  (04:08) 
-03|  Baby Blue  (04:06) 
-04|  I Misunderstood  (04:34) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7A66B2FA3F71A53DE59C31FD07086BDAA8595B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113861   (835292) от 13.03.2017
-
-Lazer Lloyd - Lazer Lloyd (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Burning Thunder  (03:31) 
-02|  Suffering  (04:22) 
-03|  Rockin' In The Holy Land  (03:40) 
-04|  Never Give Up  (04:28) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804A6BDBC66065F980ECB09C17312CC4074877C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113939   (835286) от 13.03.2017
-
-Brad Curtis & The SOME x 6 Band - Like A Sonic Gypsy (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Still 2017 (4:49)
-02. Forty Years 2017 (3:19)
-03. The Edge Of Darkness  2017 (3:43)
-04. Can You See Your Dreams 2017 (4:11)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0AA2B0248A36F7CB43F2D0F3A3A00C2438236B
 ```
 
 https://mybot314.ru/tekegram_catalog/

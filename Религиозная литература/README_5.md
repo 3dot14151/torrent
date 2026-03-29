@@ -1,3 +1,81 @@
+###  Публикация: 1454847   (1026145) от 16.03.2021
+
+Схиигумен Иоанн (Алексеев) | Письма Валаамского старца, схиигумена Иоанна (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026145.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе. Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455363   (1025823) от 18.03.2021
+
+Священник Сергий Филимонов (сост.) | Великопостный служебник. Службы Великого поста (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великопостный служебник был составлен в 1990-е годы, когда автор обучался в Санкт-Петербургской Духовной Семинарии и Академии. В течение ряда лет он «апробировался» в Академическом храме и в других храмах Санкт-Петербургской епархии. Первое издание служебника вышло в свет в 2005 году. Данное издание значительно дополнено, в него внесены необходимые изменения, учтены (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47BBA630E6CC4EF433EEE02E5FDCACC7446EA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455393   (1025676) от 19.03.2021
+
+Святитель Димитрий Ростовский | Воскресение души. Сборник поучений на Великий пост и приходских поучений (1999) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025676.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Остерегайтесь, братие! Разрыв начинается незаметно. Сначала является охлаждение к Церкви, потом следует осуждение церковного строя жизни и её уставов, потом уклонение мыслей на сторону лжеучений. Душа ваша делается враждебной Церкви: ей не нравится всё церковное, она противится Церкви. И вот разрыв. Являются лжеучители. Они посевают в ваших душах вражду к Церкви, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A5DE510F9640ED0F367D80AD0115B4A324E65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455992   (1025274) от 21.03.2021
 
 О.Е. Голосова (сост.) и др. | Прииде пост. Чтения на каждый день Великого поста (2013) [FB2, EPUB, PDF]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025274.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025134.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025130.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025117.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024935.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024787.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024783.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024224.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023872.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023510.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023158.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023149.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022614.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022606.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022472.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022428.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022074.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021891.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021629.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021012.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020989.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020677.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020503.jpg" />
 </div>
 
 
@@ -607,86 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203B9C702CFDF706851C94DD7FFADD7FAEF16413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463585   (1020322) от 19.04.2021
-
-Сретенский монастырь (изд.) | Святой великомученик Феодор Тирон. Житие и канон (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святой великомученик Феодор Тирон был воином мармаритского полка в городе Амасии Понтийской области (северо-восточная область Малой Азии, тянувшаяся вдоль берега Понта Эвксинского, т.е. Чёрного моря). Прозвище его Тирон происходит от латинского tiro, что значит «новобранец», «рекрут».
-
-Во время проводимой по указанию императора Галерия (305-311) кампании по принуждению (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766BB06041ED28FCB83DC88A571CA6431738D8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464114   (1020004) от 21.04.2021
-
-Отчий дом (изд.) | Архимандрит Павел (Груздев) [Документы к биографии. Воспоминания о батюшке. Избранные записи из дневниковых тетрадей] (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство сочло необходимым и правильным дать возможность читателям узнать о жизни архимандрита Павла (Груздева), основываясь на официальных документах, на воспоминаниях очевидцев — тех людей, которым посчастливилось знать батюшку, пользоваться его советом и поддержкой, на собственных рассказах отца Павла о себе и его многолетних записях. Этой целью и обусловлена (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A383197CBE1491DCF95D5BFB5069BE2F82E31C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464499   (1019814) от 22.04.2021
-
-Елена Зубова (сост.) | Свеча — огонь любви. Как правильно поставить свечу? (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как правильно поставить свечу в храме? Для чего вообще мы ставим свечи? О чём нам может рассказать горящая свеча? Что надо знать о святых, перед иконами которых мы возжигаем свечи? Ответы на эти и многие другие вопросы вы найдёте в этой небольшой книжке.Жанр: Православие. Религиозно-просветительское изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E135B4FC6F4977183E8141673DB016099C7F120C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1362155   (950713) от 22.02.2020
+
+Сатья Дас | Быть счастливой, а не удобной! Как перестать быть жертвой, вырваться из разрушающих отношений и начать жить счастливо (2020) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще в детстве маленьким девочкам рассказывают, какими они должны быть, чтобы их любили. На многих постоянно кричат, их насмешливо критикуют и постоянно упрекают, что они не оправдали ожиданий. По мере взросления такие девочки обрастают комплексами и считают себя хуже, чем есть на самом деле. Они приобретают синдром жертвы и запрещают себе даже думать о счастье.
+Книга (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E52BC6D9C737B5D271D0D46A592EE30A4C20788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362218   (950585) от 22.02.2020
+
+Лайфхакер | Ловушки мышления. Почему наш мозг с нами играет и как его обыграть (2020) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – путеводитель по самым распространенным человеческим заблуждениям и способам их преодоления. Перед вами не скучная энциклопедия, а настоящий учебник жизни, который поможет лучше узнать самого себя, окружающих и мир вокруг. Эффективные методики, собранные командой популярного онлайн-издания ЛАЙФХАКЕР, позволят выйти из круга иллюзий и выбрать счастливую (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9A8F6236E7275C28C547966FEB417B81379E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981544   (949454) от 02.02.2016
+
+Ицхак Адизес и др. | От застоя к росту. Как раскрыть и развить в себе потенциал бизнес-лидера (2015) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о мощной методике, сочетающей в себе модель ролей PAEI Адизеса и типологию личностей по эннеаграммам, которая поможет раскрыть ваш потенциал руководителя.
+За последние десятилетия коучинг колоссально распространился в мире и получил признание в качестве эффективного инструмента для достижения личных целей. Однако этот стремительный рост возымел и негативные (   Читать дальше...   )Жанр: Бизнес, ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D37A5A32963D8A30086756A191C0C40665919D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982017   (949392) от 02.02.2016
 
 Стивен Кови и др. | Главное внимание главным вещам: Жить, любить, учиться и оставить наследие (2011) [FB2, EPUB, PDF, DOCX]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949392.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949342.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949194.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949127.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948018.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947899.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947740.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947229.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946420.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946415.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945331.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945216.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945164.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944614.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944229.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943754.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943617.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943422.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942606.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942414.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942324.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942220.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941601.jpg" />
 </div>
 
 
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F54B9B71150B228212C9C732760908247C05AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983883   (941468) от 07.02.2016
-
-Брайан Трейси | Обновление. Пошаговый план личного развития (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для тех, кто хочет сделать «перезагрузку» своей жизни, найти новую интересную работу или открыть бизнес, достичь больших целей. Брайан Трейси предлагает рассматривать себя как корпорацию, которой нужно управлять и успех которой зависит исключительно от вас. Вопросы и тесты, предложенные автором, помогут понять, чего вы на самом деле хотите от жизни, а рекомендации (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E095A5A98350A8F1229220941507602DB846746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363899   (940734) от 29.02.2020
-
-Тобиас Бек | Ныть вредно. Сам не страдай и другим не давай (2020) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940734.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Тобиаса Бека была непростая жизнь. Его выгнали из школы с диагнозом "необучаемый", он провел значительную часть юности в самой жуткой секте Германии, а в двадцатилетнем возрасте жил в доме на дереве в бедном районе Бразилии. Но все испытания, которые выпали на долю автора, только закалили его характер. Благодаря большому жизненному опыту он разработал (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростПеревод: М.Б. КлюшинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4192E746D22779AE13CECB14E4364236B0186D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363684   (940681) от 29.02.2020
-
-Анатолий Протопопов | Трактат о любви, как её понимает жуткий зануда (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное новое издание широко известного произведения Анатолия Протопопова «Трактат о любви, как ее понимает жуткий зануда» расскажет о том, как инстинкты управляют нами, что есть любовь с точки зрения эволюции и почему мужчина и женщина никогда не поймут друг друга.
-Фокус нашего внимания будет сосредоточен на любви, как явлении выбора одним человеком другого, (   Читать дальше...   )Жанр: Социальная психологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBBB100E5CD48399DCBB34B0CB6F308FE302617
 ```
 
 https://mybot314.ru/tekegram_catalog/

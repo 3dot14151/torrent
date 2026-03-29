@@ -6,7 +6,7 @@ Neil Young - Talkin to the Trees (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66057.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brewer's Droop - The Booze Brothers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66029.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66027.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ e-Dancer, Kevin Saunderson, Dantiez - e-Dancer (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66018.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66008.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66006.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65984.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65982.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65981.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Marturos - Messages to the Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65980.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Surman, Karin Krog - Electric Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65979.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tardigrade Inferno - Made in Hell (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65977.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65976.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65968.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65964.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65959.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65958.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65957.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Leverage - Gravity (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65951.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65947.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GoGo Penguin - Necessary Fictions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65941.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kiss - Love Gun (1977) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65932.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cocojoey - STARS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <hyperpop, bitpop, c
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65924.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65923.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kiss - Animalize (1984) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65915.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Kiss - Asylum (1985) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65912.jpg" />
 </div>
 
 

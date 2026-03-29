@@ -1,3 +1,109 @@
+###  Публикация: 1649288   (230777) от 27.07.2023
+
+Pixelmator Pro 3.3.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2022 Pixelmator TeamПоддерживаемая ОС: macOS 11.0Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2013584AF7DF8159E9057F77162C97E44A8113C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649289   (230763) от 27.07.2023
+
+RAR Extractor Max-Unzip File 11.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230763.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
+Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2022 by Elimisoft.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607F3054094D2D96DC8E3D6922C72567ECEDD5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648999   (230759) от 25.07.2023
+
+iBarcoder 3.14.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53C0B82B1EAA2BA0269AC75E5D224D4BA55D867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649431   (230751) от 27.07.2023
+
+CloudMounter 4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230751.jpg" />
+</div>
+
+
+###  Подробнее
+
+CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с online файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к online данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2023Разработчик: © 2023 Electronic Team, Inc.,Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A59BEB01415A9FF69FF88A9C704D5E9446F102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649494   (230739) от 27.07.2023
 
 Live Wallpaper & Themes 4K Pro 17.4 [En]
@@ -6,7 +112,7 @@ Live Wallpaper & Themes 4K Pro 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230739.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ VueScan Pro 9.8.13 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230720.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230713.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Money Pro - Personal Finance 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230690.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ MacDroid Pro 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230684.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ PDF Reader Pro Edition 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230508.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Adobe Bridge 2023 13.0.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230446.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229919.jpg" />
+  <img src="Z:/picture/005/save_picture_229919.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ VueScan Pro 9.5.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229892.jpg" />
+  <img src="Z:/picture/005/save_picture_229892.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ MarsEdit 4 v4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229873.jpg" />
+  <img src="Z:/picture/005/save_picture_229873.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ iBoostUp Premium 8.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229831.jpg" />
+  <img src="Z:/picture/005/save_picture_229831.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ Duplicate File Finder Pro 6.10  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229778.jpg" />
+  <img src="Z:/picture/004/save_picture_229778.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ iMazing 2.10.6 (build 11553) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229773.jpg" />
+  <img src="Z:/picture/004/save_picture_229773.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ iClock Pro 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229760.jpg" />
+  <img src="Z:/picture/004/save_picture_229760.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ Capture One 20 Pro v13.0.0.184 b6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229756.jpg" />
+  <img src="Z:/picture/004/save_picture_229756.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ KCNcrew Pack 11-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229753.jpg" />
+  <img src="Z:/picture/004/save_picture_229753.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ CodeRunner 4 v4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229738.jpg" />
+  <img src="Z:/picture/004/save_picture_229738.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ NCH Prism Plus 6.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229713.jpg" />
+  <img src="Z:/picture/004/save_picture_229713.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ XYLIO Future DJ Pro 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229694.jpg" />
+  <img src="Z:/picture/004/save_picture_229694.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Sensei 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229678.jpg" />
+  <img src="Z:/picture/004/save_picture_229678.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ Iridient Developer 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229673.jpg" />
+  <img src="Z:/picture/004/save_picture_229673.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229615.jpg" />
+  <img src="Z:/picture/004/save_picture_229615.jpg" />
 </div>
 
 
@@ -573,115 +679,6 @@ Amadeus Pro - многотрековый музыкальный редактор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1071E89CC0EF6D716BDD0B7E1B76A1728228B25D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424374   (229581) от 16.11.2020
-
-Translate Tab 2.0.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так уж сложилось, что потребность переводить возникает у многих и часто. Это может быть как несколько слов, так и какая нибудь статейка с зарубежного сайта по интересующей тематике. И скорее всего сегодняшний пользователь выберет переводчик Google Translate, как наиболее удобный сервис онлайн перевода. Неудобность лишь в том, что в браузере, в который нужно все время (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: Alex IzvekovПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A0CA80442F15E129F7F161D7DA7313CAD204E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424447   (229546) от 16.11.2020
-
-DearMob iPhone Manager 4.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229546.jpg" />
-</div>
-
-
-###  Подробнее
-
-DearMob iPhone Manager разработан для более безопасного и простого управления iOS: регулярно создавайте резервные копии в случае неожиданных сценариев, передавайте все, что вам нравится, и управляйте файлами, чтобы улучшить свою «цифровую» жизнь.
-Теперь вы можете избавиться от iTunes / Finder и получить больше возможностей.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B70CA342149882A2426DD1787B7473EE697604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512787   (229506) от 26.11.2021
-
-SnapMotion Unlimited 5.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229506.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
-
-SnapMotion имеет два режима:
-● Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2021Разработчик: © 2012-2019 NeededAppsПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3696A31A32A49FF52BAAEAC47709B8D5426E5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512781   (229490) от 26.11.2021
-
-Find Any File (FAF) 2.3.2 b9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: © 2021 Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B838125BC9885D36943FD488010E97BE74456FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

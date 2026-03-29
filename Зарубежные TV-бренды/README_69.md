@@ -1,3 +1,107 @@
+###  Публикация: 1235305   (558373) от 12.07.2018
+
+Истории Кремниевой Долины / Silicon Valley: The Untold Story (2018) WEB-DL [H.264/1080p-LQ] (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558373.jpg" />
+</div>
+
+
+###  Подробнее
+
+К югу от Сан-Франциско находится ареал, где рождаются не просто новые продукты, а целые новые направления индустрии. Здесь разрабатывают и производят компьютеры и их составляющие, микропроцессоры, устройства мобильной связи и программное обеспечение. Тут располагаются офисы Apple, Facebook, Google и Intel. Кремниевая долина – это место, история, инфраструктура, инновации (   Читать дальше...   )Производство: США, Kikim Media, Discovery ScienceЖанр: Документальный, научно-популярныйПеревод: Двуголосый закадровый, профессиональный (Discovery Россия)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE29D44337EF1C8A0288845536B1A3241100CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230763   (557739) от 29.05.2019
+
+Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (Сезон 3, серии 17 из 17)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как строили самые известные здания Древнего мира и Средних веков? Как архитекторам той эпохи удалось опередить свое время? Трудно поверить, что столь колоссальные сооружения возводились задолго до появления современных технологий и мощной строительной техники. С помощью компьютерной графики мы «разберем по кирпичикам» старинные постройки и узнаем, как, из чего и (   Читать дальше...   )Производство: США, Windfall Films, Discovery ChannelЖанр: Документальный, наука, история, археологияРежиссер: Мартин Горст, Джеймс ФранклинПеревод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09668F2EC235FD400F81BE613DAB006DFCEF4D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924140   (557471) от 04.08.2015
+
+BBC. Длинные тени Первой мировой войны / The Long Shadow (2014) IPTVRip (Серии: 3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский историк Дэвид Рейнольдс отправляется в путешествие по Европе, чтобы ответить на вопрос, каким образом трагические события Первой мировой войны определили ход европейской истории за последние 100 лет. На протяжении трех серий программы Рейнольдс внимательно изучает, какое влияние оказал этот международный конфликт на следующие поколения европейцев, политические (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, история, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DABAF6B61889C93E5829BC32FC32562DB7CF22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915735   (557377) от 04.08.2015
+
+Discovery. Катастрофа на колесах / Wheels That Fail (2014) HDTVRip [Серии 1-10]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этой программы съехали с катушек – когда они за рулем, это просто катастрофа! Такой подборки видео о происшествиях на колесах вы еще не видели: Discovery Channel выбрал самые смешные, самые опасные и самые захватывающие ролики, где автомобили и мотоциклы сталкиваются, переворачиваются, взрываются, падают в воду, летят под откос – и этот список можно продолжать (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE753E04ED803DFBDF2F600A1CDA6029F28B1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235778   (557283) от 13.07.2018
 
 BBC. Может ли питание насекомыми спасти мир? / Can Eating Insects Save the World? (2013) HDTVRip
@@ -6,7 +110,7 @@ BBC. Может ли питание насекомыми спасти мир? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557283.jpg" />
+  <img src="Z:/picture/008/save_picture_557283.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557062.jpg" />
+  <img src="Z:/picture/008/save_picture_557062.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557006.jpg" />
+  <img src="Z:/picture/008/save_picture_557006.jpg" />
 </div>
 
 
@@ -78,13 +182,13 @@ https://mybot314.ru/tekegram_catalog/
 ---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305439   (556952) от 30.05.2019
 
-﻿BBC: Размер имеет значение / Size Matters (2017) DVB (серии 1-2 из 2)
+BBC: Размер имеет значение / Size Matters (2017) DVB (серии 1-2 из 2)
 
 >>Зарубежные TV-бренды
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556952.jpg" />
+  <img src="Z:/picture/008/save_picture_556952.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Атом / BBC: Atom (2007) HDTVRip (Сезон 1, эпизод 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556546.jpg" />
+  <img src="Z:/picture/008/save_picture_556546.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556403.jpg" />
+  <img src="Z:/picture/008/save_picture_556403.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556399.jpg" />
+  <img src="Z:/picture/008/save_picture_556399.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556355.jpg" />
+  <img src="Z:/picture/008/save_picture_556355.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556241.jpg" />
+  <img src="Z:/picture/008/save_picture_556241.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556239.jpg" />
+  <img src="Z:/picture/008/save_picture_556239.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG: Разгадка египетских тайн. Подлинный Рамз�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556225.jpg" />
+  <img src="Z:/picture/008/save_picture_556225.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556209.jpg" />
+  <img src="Z:/picture/008/save_picture_556209.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Разгадка египетских тайн. Настоящая Клео�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556203.jpg" />
+  <img src="Z:/picture/008/save_picture_556203.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Animal Planet: В дикие края с Эваном. Стройная Лори
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555893.jpg" />
+  <img src="Z:/picture/008/save_picture_555893.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Animal Planet: Герои среди нас / Dodo Heroes (2018) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555869.jpg" />
+  <img src="Z:/picture/008/save_picture_555869.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ History Channel. Морские котики: тайная сила / Navy SEALs
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555862.jpg" />
+  <img src="Z:/picture/008/save_picture_555862.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555660.jpg" />
+  <img src="Z:/picture/008/save_picture_555660.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555640.jpg" />
+  <img src="Z:/picture/008/save_picture_555640.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555631.jpg" />
+  <img src="Z:/picture/008/save_picture_555631.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555541.jpg" />
+  <img src="Z:/picture/008/save_picture_555541.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Animal Planet: В дикие края с Эваном. Среди ягуаров
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555170.jpg" />
+  <img src="Z:/picture/008/save_picture_555170.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555169.jpg" />
+  <img src="Z:/picture/008/save_picture_555169.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41EEDBAFEB0AB550A71180507001CE65DC543074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307654   (554832) от 10.06.2019
-
-Секреты дикой Индии / Secrets of Wild India (2011) BDRemux [H.264/1080i] (серии 3 из 3) [hand made 50fps]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индия, являющаяся домом для более чем миллиарда человек, имеет и дикие области, населенные великанами, хищниками и экзотическими существами. Легендарный натуралист сэр Дэвид Аттенборо в очередном фильме из серии "Дикая природа" расскажет о удивительной природе этой загадочной страны. Вы посмотрите на мир гигантских травоядных, обитающих в предгорьях Гималаев (   Читать дальше...   )Производство: США, Icon Films for National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Дункан ЧардПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: РусскиеПродолжительность: 3 x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E769751F77647B1716155F7DFC271F1E4438936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307669   (554794) от 10.06.2019
-
-Неизведанная Европа / Wildest Europe (2016) HDTV [H.264/1080i-LQ] (серии 5 из 5)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал раскрывает невероятную красоту и разнообразие дикой природы европейского континента. Результатом явилось удивительное и чудесное путешествие и разнообразные пейзажи. Ни на одном другом континенте нет такого разнообразия ландшафтов и такого количества диких животных, втиснутых в такое ограниченное пространство.Производство: EU, Off the Fence for Animal Planet InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Паппи Риддл, Колин Коллис, Сара ТиткомбПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A9141D6A1C199FE2268645AEE041323740E0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236241   (554705) от 16.07.2018
-
-BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская империя ( British  Empire ) развивалась и наращивала свою мощь более двух сотен лет. Небольшая европейская страна какой мы её знаем сегодня, вплоть до 30 годов прошлого столетия являлась самым большим государством в мире. Великобритании принадлежали множество колоний на всех континентах земного шара. Почти четвёртая часть человечества насильственно подчинялось (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, история, исследованиеРежиссер: Джереми ПаксманПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: русские, в непереведённых фрагментахПродолжительность: 5 x 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B240CF0DCEA0C270354051BC1097A82B048A81C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229987   (554645) от 16.07.2018
-
-History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip HDTVRip [H.264/720p-LQ] (10 серий из 10)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554645.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Одиссея» Гомера - самый известный эпос во всей мировой литературе: сказание о приключениях героя, о мифологических чудищах и мстительных богах. Но было ли нечто подобное на самом деле? И есть ли тому подтверждения? Очень часто первые представления о добре и зле мы получаем из знакомых с детства мифов Древнего мира. Тысячелетия назад эти «наивные» истории о богах (   Читать дальше...   )Производство: США, KPI, A&E Television Networks, History ChannelЖанр: Документальный, мифы, история, эпосРежиссер: Кристофер Кассель, Джессика КонвэйАктеры: Стэн Бернард, Тейт Стейнсик, Грег Форд, Блэр Джонс, Станислав Адамицкий, Джозеф БедделемПродолжительность: 10 x ~ 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDABA95896EA6CA7401D7CC73FE5ABC9C2C2CBDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

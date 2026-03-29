@@ -1,3 +1,119 @@
+###  Публикация: 1723547   (109475) от 16.05.2024
+
+Planeta Vina - Космический Mусорг (2024) [MP3|320kbps] <Post-Grunge, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Света [00:02:28]
+02. Мы скажем вам нет [00:03:21]
+03. Радость повсюду [00:03:33]
+04. Их не остановить [00:03:07](   Читать дальше...   )Жанр: Post-Grunge, Stoner RockПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A3346F5062A7264B0BDB6749F6991FD4FDC16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744455   (105231) от 23.08.2024
+
+Ze Fish - Душевнородной (2024) [MP3|320 Kbps] <Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя Жизнь [00:03:28]
+02 - Поздно умирать молодым [00:02:46]
+03 - Собирайся, поехали! [00:03:50]
+04 - Море [00:03:00](   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538ABF0D270B2C979263ED985077F503B8DD57F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744467   (105210) от 23.08.2024
+
+Blind Ivy - Satcitananda (2024) [MP3|320 Kbps] <Metalcore, Groove Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:00:49]
+02 - The Point Of No Return [00:04:52]
+03 - In Your Blood [00:03:48]
+04 - Enemy Is Here [00:03:17](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Female VocalsПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262894C1C1FDEF6311E74475F87B3D3307EC8C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744459   (105055) от 26.08.2024
+
+Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Пуля-дура (аудио) [00:05:29]
+02 - На всех парусах (аудио) [00:06:56]
+03 - Звериная душа (аудио) [00:07:27]
+04 - Всё та же злость (аудио) [00:04:01](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DF043AC17963F14830C8FCFC7FE53A3190E70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746606   (104863) от 01.09.2024
 
 F.O.R. - Love (2024) [MP3|320 Kbps] <Gothic Metal, Alternative Rock>
@@ -6,7 +122,7 @@ F.O.R. - Love (2024) [MP3|320 Kbps] <Gothic Metal, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104863.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104779.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ploho - Почва (2024) [MP3|320 Kbps] <Post Punk, New Wave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104768.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ashwind - Холодные Камни (2024) [MP3|320 Kbps] <Melodic Doom, Death
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104640.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Abyss Evolution - Первый (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104639.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103364.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mare Incognitum - Тени грехов (2025) [MP3|320 Kbps] <Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101713.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101535.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101244.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100956.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Melyazm - Чтобы было (2014) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100605.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99499.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95281.jpg" />
 </div>
 
 
@@ -388,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94735.jpg" />
 </div>
 
 
@@ -417,7 +533,7 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93569.jpg" />
 </div>
 
 
@@ -452,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91143.jpg" />
 </div>
 
 
@@ -481,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90937.jpg" />
 </div>
 
 
@@ -516,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88963.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ Digimortal - 3 альбома, 1 сингл (2007-2011) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88613.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ylande - Северный Ветер (2012) [MP3|320 кб/с]<romantic folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88534.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86969.jpg" />
 </div>
 
 
@@ -656,7 +772,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86816.jpg" />
 </div>
 
 
@@ -676,146 +792,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DF67543F0192CDEE7B941B548FF1BA9FE30846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478239   (86619) от 05.04.2012
-
-Сергей Маврин (Маврик) - Дискография (13 CD) (1998-2010) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождение [00:01:14]
-02. Моё время [00:05:28]
-03. Моя свобода [00:10:16]
-04. Душа [00:05:54]
-05. Новый день [00:07:50]
-06. Моё небо [00:05:38]
-07. Падшая звезда [00:02:55]
-08. Final [00:02:07]
-09. Show time [00:03:46]
-10. Утоли мои печали [00:05:22]1998-2010Жанр: Heavy MetalФормат: MP3 (tracks)Продолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE022C41847F2FF7B16842D4D4873FE385299474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476672   (85823) от 01.04.2012
-
-Кукрыниксы - Myself (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOS
-02. Полжизни
-03. Колокола
-04. Хрустальный мир
-05. Страхи
-06. Как твои дела
-07. Я объявляю войну
-08. Здесь и сейчас
-09. Жизнь бывает разная
-10. Режиссер(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5484C551559DABFFBDDA953E9EB94BEC587BA953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473078   (84291) от 25.03.2012
-
-Ария - Герой асфальта 20 лет дубль 2 в Санкт-Петербурге! (2010) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Последний закат
- 03. Отшельник
- 04. Колизей
- 05. Беги за солнцем
- 06. Крещенье огнем
- 07. Антихрист
- 08. Свет былой любви
- 09. Кровь королей
- 10. На службе силы зла(   Читать дальше...   )2010Жанр: Heavy MetalПродолжительность: 01:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156D9B8AF85C71A2356DFA9968C87FE4490C12B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472406   (83930) от 23.03.2012
-
-Ногу Свело! - Обратная Сторона Ноги (2011) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сибирская любовь
-02. Московский романс
-03. Идем на восток
-04. Черная-рыжая
-05. 7 планет
-06. Лилипутская любовь
-07. Бензин
-08. Из Алма-Аты
-09. Свинка-свинка
-10. Хару Мамбуру(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

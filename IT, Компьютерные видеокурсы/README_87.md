@@ -1,3 +1,145 @@
+###  Публикация: 1652090   (194493) от 09.08.2023
+
+Stepik, Shultais Education, Никита Шультайс | Проектирование баз данных (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194493.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе в простой форме рассказывается теория проектирования баз данных, а также даются практические инструменты на примере учебной базы данных автосалона.
+В ходе небольшой серии уроков рассматриваются варианты логического и концептуального проектирования, нормализация базы до формы 4НФ, а также денормализация таблиц.Производство: Stepik, Shultais EducationЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1FAFD2E00E1B096B43D9C1F9E62D580B659DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652724   (194313) от 13.08.2023
+
+Stepik, Илья Фофанов | React - Полное руководство (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для тех, кто много слышал о библиотеке React, но при этом ни разу полноценно не пробовал поработать с ней.
+Обучение построено вокруг небольшого учебного проекта, который вы начнете разрабатывать практически с первых лекций.
+Таким образом, по мере разработки вы будете гармонично подходить к каждой следующей теме, изучая ее применительно к (   Читать дальше...   )Производство: StepikЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653406   (194269) от 16.08.2023
+
+Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194269.jpg" />
+</div>
+
+
+###  Подробнее
+
+From this course, you can learn Software Architecture and Clean Code Design in OOP.
+
+There are a lot of other courses on this topic. So, why would you choose exactly this course?  Here are just a few reasons:
+- Coding examples(   Читать дальше...   )Жанр: Java, OOP, Patterns, SOLIDЯзык озвучки: АнглийскийПродолжительность: 22:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5819E2302CA3370C1533B6A77E6A004915D18493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653047   (194268) от 14.08.2023
+
+Infostart, Николай Бондаренко | Видеокурс «1C - Предприятие для программистов - Оперативные задачи» (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс из траектории обучения 1С-программиста, целиком посвященный одной из важнейших тем - решению оперативных задач. Материалы состоят из записей вебинаров последнего набора курса.
+
+Основная цель курса:
+Сформировать у слушателей практические навыки, связанные с разработкой прикладных решений, работающих на платформе “1С:Предприятие” и предназначенных для автоматизации (   Читать дальше...   )Производство: InfostartЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:58:08Реклама: Вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9C4E75ED51DC4724A3FDFBC17FA58079B9B588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653733   (194159) от 17.08.2023
+
+Корпоративный университет Правительства Нижегородской области | Microsoft Excel базовый уровень (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс подходит не только для тех, кто только начинает осваивать Excel, но и для тех, кто уже работает с программой, но сталкивается с определенными трудностями при работе с таблицами, создании отчетов, графиков, диаграмм или написании хорошей формулы.
+
+Чему Вы научитесь:
+Создавать правильные таблицы (структура, форматирование, стили).(   Читать дальше...   )Производство: Корпоративный университет Правительства Нижегородской областиЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:06:05Реклама: Вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869EF7441BC74166BBE895436617403EC15C4CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656498   (193472) от 30.08.2023
 
 Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WEB-DL [AD] [RU]
@@ -6,7 +148,7 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193472.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Udemy, Sebastian Glöckner | Der Komplette Excel Kurs - Vom Anfänger zum Profi 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193225.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193141.jpg" />
+  <img src="Z:/picture/004/save_picture_193141.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Adrian Cantrill | AWS Certified Advanced Networking - Specialty (2022) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193092.jpg" />
+  <img src="Z:/picture/004/save_picture_193092.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | GitHub Actions - The Complete 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193089.jpg" />
+  <img src="Z:/picture/004/save_picture_193089.jpg" />
 </div>
 
 
@@ -150,7 +292,7 @@ Adrian Cantrill | AWS Certified SysOps Administrator - Associate [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193064.jpg" />
+  <img src="Z:/picture/004/save_picture_193064.jpg" />
 </div>
 
 
@@ -179,7 +321,7 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193044.jpg" />
+  <img src="Z:/picture/004/save_picture_193044.jpg" />
 </div>
 
 
@@ -208,7 +350,7 @@ Filab, Діма Малєєв, Кріс Косик | Engineering Management (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192592.jpg" />
 </div>
 
 
@@ -234,7 +376,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Beginner's Guide to Groovy for Java Devs (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192524.jpg" />
 </div>
 
 
@@ -262,7 +404,7 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192500.jpg" />
 </div>
 
 
@@ -291,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192492.jpg" />
 </div>
 
 
@@ -319,7 +461,7 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192490.jpg" />
 </div>
 
 
@@ -345,7 +487,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192488.jpg" />
 </div>
 
 
@@ -374,7 +516,7 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192482.jpg" />
 </div>
 
 
@@ -403,7 +545,7 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192477.jpg" />
 </div>
 
 
@@ -430,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192469.jpg" />
 </div>
 
 
@@ -457,7 +599,7 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192097.jpg" />
 </div>
 
 
@@ -485,7 +627,7 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192050.jpg" />
 </div>
 
 
@@ -511,7 +653,7 @@ Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192038.jpg" />
 </div>
 
 
@@ -538,7 +680,7 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191839.jpg" />
 </div>
 
 
@@ -565,7 +707,7 @@ Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191745.jpg" />
 </div>
 
 
@@ -577,146 +719,6 @@ All code examples in the course are written in Java but that's doesn't mean you 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657994   (191721) от 06.09.2023
-
-Thinknetica Pro, Анна Буянова | Старый Добрый Код: как жить с существующим кодом (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воркшоп для разработчиков, которые хотят рационально подходить к улучшению существующего кода и научиться оптимально и безопасно рефакторить его "под прикрытием" тестов.
-Результат:Научитесь определять проблемные места в коде, который нужно изменить
-Поймёте как находить компромиссы между желанием написать "красивый" 100% покрытый тестами код и (   Читать дальше...   )Производство: Thinknetica ProЖанр: Онлайн-воркшопЯзык озвучки: РусскийПродолжительность: 05:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658200   (191405) от 07.09.2023
-
-Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - djChat (2023) WEBRip [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191405.jpg" />
-</div>
-
-
-###  Подробнее
-
-The course focuses on building a chat server administration API and integrating it with a front-end templating framework. It also covers API integration and building chat services with features like authentication.
-
-The first module covers source control and project initiation, including creating a new Django DRF project and configuring environment variables. It (   Читать дальше...   )Производство: Udemy, Very AcademyЖанр: React, Typescirpt, Django, DRF, RESTЯзык озвучки: АнглийскийПродолжительность: 28:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658223   (191340) от 07.09.2023
-
-Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите фундаментальные аспекты Laravel - одного из самых мощных фреймворков для разработки веб-приложений. Узнайте, как создавать эффективные и надежные базовые веб-приложения, используя все преимущества Laravel.Производство: Laravelcreative.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658857   (190808) от 09.09.2023
-
-HYPE4 Academy | Подборка курсов по UI и web-дизайну (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hype4 Academy it`s an educational platform with both paid and free content for designers and developers. We will be adding new featured, articles and materials in the coming weeks.
-1. Hype4 Academy - Boring UI Course
-2. Hype4 Academy - Design + AI - Get Ready for the Future
-3. Hype4 Academy - How to create a UI Case Study(   Читать дальше...   )Производство: HYPE4 AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDAB452E48B5D8C86886F7AA9C49076252A22E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657391   (190728) от 09.09.2023
-
-МИФ.Курсы, Ренат Шагабутдинов | Магия Excel. Практикум. Формулы Excel с нуля до сложных (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разобравшись с формулами, вы сможете экономить время (десятки и сотни часов) и сократить рутину. Вас не будет прошибать холодный пот при фразе: «Подготовьте отчет к концу дня». Больше никаких ошибок и скучной ручной работы. Только магия. Магия Excel.Доллары, пробелы и двоеточия: нюансы формул
-Высший пилотаж: формулы массива
-Сравнение двух списков
-Новая функция LAMBDA(   Читать дальше...   )Производство: МИФ.КурсыЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:02:42Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C074D9503C4B15E989C5A5E31403ADCEA23EA16
 ```
 
 https://mybot314.ru/tekegram_catalog/

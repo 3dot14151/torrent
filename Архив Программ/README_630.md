@@ -6,7 +6,7 @@ Microsoft Edge 98.0.1108.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733550.jpg" />
+  <img src="Z:/picture/005/save_picture_733550.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Burning Studio FREE 1.23.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733545.jpg" />
+  <img src="Z:/picture/008/save_picture_733545.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Notepad++ 8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733533.jpg" />
+  <img src="Z:/picture/005/save_picture_733533.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CrystalDiskInfo 8.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733522.jpg" />
+  <img src="Z:/picture/008/save_picture_733522.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Visual Studio Code 1.64.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733516.jpg" />
+  <img src="Z:/picture/008/save_picture_733516.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ventoy 1.0.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733511.jpg" />
+  <img src="Z:/picture/008/save_picture_733511.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Foxit PDF Editor Pro 11.2.1.53537 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733485.jpg" />
+  <img src="Z:/picture/005/save_picture_733485.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Visual Studio 2019 Professional 16.6.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733427.jpg" />
+  <img src="Z:/picture/008/save_picture_733427.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Visual Studio 2019 Community 16.6.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733426.jpg" />
+  <img src="Z:/picture/008/save_picture_733426.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Visual Studio 2019 Enterprise 16.6.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733424.jpg" />
+  <img src="Z:/picture/008/save_picture_733424.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BluffTitler Ultimate 15.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733417.jpg" />
+  <img src="Z:/picture/008/save_picture_733417.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ CameraBag Pro 2020.30 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733409.jpg" />
+  <img src="Z:/picture/008/save_picture_733409.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ashampoo Photo Optimizer 8.1.1.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733385.jpg" />
+  <img src="Z:/picture/005/save_picture_733385.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PotPlayer 200730 (1.7.21278) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733383.jpg" />
+  <img src="Z:/picture/005/save_picture_733383.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Auslogics Anti-Malware 1.21.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733376.jpg" />
+  <img src="Z:/picture/005/save_picture_733376.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ SyMenu 6.12.7517 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733371.jpg" />
+  <img src="Z:/picture/005/save_picture_733371.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733347.jpg" />
+  <img src="Z:/picture/005/save_picture_733347.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ simplewall 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733332.jpg" />
+  <img src="Z:/picture/008/save_picture_733332.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Movavi Photo Editor 6.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733302.jpg" />
+  <img src="Z:/picture/008/save_picture_733302.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.5.015 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733300.jpg" />
+  <img src="Z:/picture/008/save_picture_733300.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ESET NOD32 Internet Security 13.2.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733296.jpg" />
+  <img src="Z:/picture/005/save_picture_733296.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ESET NOD32 Antivirus 13.2.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733250.jpg" />
+  <img src="Z:/picture/005/save_picture_733250.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Kaspersky Offline Update 14.0.0.4651 (g) (24.05.2014) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733096.jpg" />
+  <img src="Z:/picture/008/save_picture_733096.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ AOMEI Partition Assistant Pro 9.6 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733038.jpg" />
+  <img src="Z:/picture/008/save_picture_733038.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ K-Lite Codec Pack Update 15.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732916.jpg" />
+  <img src="Z:/picture/008/save_picture_732916.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ WhatsApp 2.2031.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732910.jpg" />
+  <img src="Z:/picture/008/save_picture_732910.jpg" />
 </div>
 
 

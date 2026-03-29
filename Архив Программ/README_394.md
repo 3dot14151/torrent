@@ -6,7 +6,7 @@ Total Commander 9.0a - Titan v7 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844229.jpg" />
+  <img src="Z:/picture/008/save_picture_844229.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 8.1 with Update 3 RUS-ENG x86 -16in1- (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844218.jpg" />
+  <img src="Z:/picture/008/save_picture_844218.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deep Data Recovery 2.1.1 [En] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844173.jpg" />
+  <img src="Z:/picture/008/save_picture_844173.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AOMEI Backupper Technician Plus 6.6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844158.jpg" />
+  <img src="Z:/picture/008/save_picture_844158.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SIGERSHADERS XS Material Presets Studio 2.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844124.jpg" />
+  <img src="Z:/picture/008/save_picture_844124.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Zoom Player MAX 16.5 Build 1650 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844046.jpg" />
+  <img src="Z:/picture/008/save_picture_844046.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MAGIX Vegas Pro 19.0 Build 381 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844037.jpg" />
+  <img src="Z:/picture/008/save_picture_844037.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Realtek High Definition Audio Driver 6.0.8924.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844003.jpg" />
+  <img src="Z:/picture/008/save_picture_844003.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ableton - Live Suite 11.0.11 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843924.jpg" />
+  <img src="Z:/picture/008/save_picture_843924.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Windows XP Pro SP3 Rus VL Final x86 Diablik94 Edition [13.03.2011/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_843767.jpg" />
+  <img src="Z:/picture/009/save_picture_843767.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sweet Home 3D 3.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843763.jpg" />
+  <img src="Z:/picture/008/save_picture_843763.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Right Click Enhancer Professional 4.3.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843615.jpg" />
+  <img src="Z:/picture/008/save_picture_843615.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft Windows 10 TP Language Pack build 10036 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843378.jpg" />
+  <img src="Z:/picture/008/save_picture_843378.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Display Driver Uninstaller 15.7.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843208.jpg" />
+  <img src="Z:/picture/008/save_picture_843208.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Photo Supreme 5.4.0.2834 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843049.jpg" />
+  <img src="Z:/picture/008/save_picture_843049.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Allavsoft Video Downloader Converter 3.22.4.7420 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843043.jpg" />
+  <img src="Z:/picture/008/save_picture_843043.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PeaZip 7.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843037.jpg" />
+  <img src="Z:/picture/008/save_picture_843037.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Pidgin 2.10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843021.jpg" />
+  <img src="Z:/picture/008/save_picture_843021.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ LockScreen 1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843020.jpg" />
+  <img src="Z:/picture/008/save_picture_843020.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Radiocent 3.5.0.85 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843018.jpg" />
+  <img src="Z:/picture/008/save_picture_843018.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843004.jpg" />
+  <img src="Z:/picture/008/save_picture_843004.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842995.jpg" />
+  <img src="Z:/picture/008/save_picture_842995.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Opera 68.0.3618.56 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842991.jpg" />
+  <img src="Z:/picture/008/save_picture_842991.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842989.jpg" />
+  <img src="Z:/picture/008/save_picture_842989.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ USDownloader 1.3.5.9 Portable (26.04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842987.jpg" />
+  <img src="Z:/picture/008/save_picture_842987.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ PDF Shaper Professional 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842983.jpg" />
+  <img src="Z:/picture/008/save_picture_842983.jpg" />
 </div>
 
 

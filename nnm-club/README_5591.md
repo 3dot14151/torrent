@@ -1,25 +1,22 @@
-###  Публикация: 1498151   (828514) от 14.10.2021
+###  Публикация: 1380896   (830960) от 04.05.2020
 
-VA - Lavender in Summer: Chillout Your Mind (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - NNM-Club - Stop Corona Virus by Nataly11 - 1380896 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup, Julie Harrington - You Are (Original Mix) (2:56)
-02. Leo de la Rosa, Iolanda Rodríguez - No Me Hagas Volar (5:46)
-03. Gary B - Easier (Marga Sol Sunset Rmx) (5:11)
-04. Simon Le Grec - Feelings (Piano Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:36
+Stop Corona Virus - шаблон After Effects, разработанный по мотивам Corona Virus (Five Simple Rules) и адаптированный для русского глаза.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFFFCA62DC4DB4F8B08474A55D942353C0502B22
+magnet:?xt=urn:btih:C505DDBFD2039F5C2F70F9F4D892463B774AD1C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500069   (828513) от 14.10.2021
+###  Публикация: 1380597   (830959) от 04.05.2020
 
-VA - Global Chill Out Masters, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - VideoHive - Corona Virus (Five Simple Rules) - 26203876 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Airily - Shinjiru (5:35)
-02. Fushe - Heavenxo (9:58)
-03. Maciej Labuda - Blue Hope (6:30)
-04. Synapsis - Alluring Force (Five Seasons Deep Chill Remix) (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:09
+Corona Virus - проект на злободневную тему коронавируса.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26D1053FE196EC20E638673178E2D0D4758E15EA
+magnet:?xt=urn:btih:2CE9049E04B91ED1A34CD197B083F22F28614C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497794   (828512) от 14.10.2021
+###  Публикация: 1380809   (830958) от 04.05.2020
 
-VA - 0815 Lo-Fi Chill Hop, Vol. 2 (2020) [AAC|~293 Kbps] <Jazzy, Chillhop, Lounge>
+Проекты - VideoHive - Puppet Show - Revealer - 22299015 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazzy System - London Nights (3:30)
-02. CiYou - I'm Driving (3:21)
-03. Jean Mare - Vox7 (2:18)
-04. Jazzy System - Simple Things (3:46)(   Читать дальше...   )Жанр: Jazzy, Chillhop, LoungeПродолжительность: 00:48:28
+Puppet Show - Простая анимация на детскую тематику, полностью настраиваемая.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE6CB01D3B70DA00ADF3684F385587FB42FA4517
+magnet:?xt=urn:btih:1C5F000A27CAC660CA5E4828BDF43C753CA7718E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497797   (828511) от 14.10.2021
+###  Публикация: 1380775   (830957) от 04.05.2020
 
-VA - 0815 Lo-Fi Chill Hop, Vol. 3 (2021) [AAC|~301 Kbps] <Jazzy, Chillhop, Lounge>
+Сергей Панченко | Начало времен (2020) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. CiYou - Slow Fi (3:04)
-02. Jazzy System - Networks (4:05)
-03. Nightbar Jazz - Breath of the City (Radio Mix) (3:13)
-04. Richard Bonnee - Beautiful and Magical (3:11)(   Читать дальше...   )Жанр: Jazzy, Chillhop, LoungeПродолжительность: 00:56:56
+Группе туристов, отправившихся на плато Путорана и дежурной смене в пусковой шахте оборудованной УКП (унифицированным командным пунктом) посчастливилось пережить безумный ураган. Но выжить мало, нужно учиться выживать. Истории сложной адаптации героев разбавлены сюжетом про людей, живущих спустя сотню лет после катастрофы.Жанр: Боевая фантастика, научная фантастикаПродолжительность: 20:54:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A97DA2820339DC55F5BC6D7A2DBFE5720452A1B
+magnet:?xt=urn:btih:8C41F3807383AE824B96DA83FE599CDF18FAE42F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502104   (828510) от 14.10.2021
+###  Публикация: 1380815   (830956) от 04.05.2020
 
-VA - Playa del Lounge (2010) [AAC|~332 Kbps] <Lounge, Downtempo, Ambient>
+Пассажир (2017) WEBRip [H.264/1080p-LQ]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pedro Del Mar - Playa Del Lounge (Intro Mix) (1:15)
-02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient Mix) (6:47)
-03. The Movement - Rainmaker (Chillout Mix) (4:19)
-04. System F, Armin van Buuren - Exhale (Tim Besamusica's Lounge Mix) (4:21)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:52:10
+Москва. 1970 год. Герой СССР, космонавт Николай Валерьевич Басов, пытается оправиться от трагедии, омрачившей его жизнь. Он ведет затворнический образ жизни, изолируя себя в собственной квартире. Николай с трудом воспринимает окружающий мир и уже не способен относиться к жизни так, как делал это до аварии — роковые 36 часов, проведенные после вынужденной посадки (   Читать дальше...   )Производство: Россия / 308 Ent, Hype Film, Moving Picture Company, TheЖанр: Короткометражный, триллер, фантастикаРежиссер: Егор АбраменкоАктеры: Артур СмольяниновСубтитры: ОтсутствуютПродолжительность: 00:11:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:733CAD3A8D1361F67155E1257C66C81EF878A94E
+magnet:?xt=urn:btih:3C82E525C2C8AA24D06B304AFA5655DA2765D15C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +128,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502106   (828509) от 14.10.2021
+###  Публикация: 305532   (830955) от 04.05.2020
 
-VA - Playa del Lounge 2 (2011) [AAC|~346 Kbps] <Lounge, Downtempo, Ambient>
+Мелодия | И. Якушенко | Зайка почтальон (1979) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pedro Del Mar - When the Sun Goes Down (Chillout Mix) (4:01)
-02. Hysteria! - Winding Roads (Chillout Mix) (3:36)
-03. Santerna - Feeling Like A River (Chillout Mix) (4:58)
-04. Pedro Del Mar - Windows To My Soul (Alexei Zakharov Chillout Mix) (7:16)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:43:49
+Перед вами новая работа Всесоюзной фирмы грампластинок "Мелодия" — детский музыкальный спектакль, написанный по мотивам русских народных сказок драматургом Георгием Фере и композитором Игорем Якушенко.
+Авторы называют свое произведение «детской музыкальной комедией», и это, наверное правильно, хотя жанр здесь смешанный — тут соединились хрошо знакомая нам (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:47:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A35BBC7AB4D2B8FAA11FC9417FD985DDC6058FD8
+magnet:?xt=urn:btih:154A4E24B6AE9AE83955FA0B8DF470C222CE2719
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502108   (828508) от 14.10.2021
+###  Публикация: 1380692   (830954) от 04.05.2020
 
-VA - Playa del Lounge 4 (2013) [AAC|~327 Kbps] <Lounge, Downtempo, Ambient>
+Геннадий Бузов | Выявление специальных технических средств несанкционированного получения информации (2019) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunlounger, Yoav - Today Tonight (Chillout Mix) (5:23)
-02. Betsie Larkin & Solarstone - Breathe You in (Pedro Del Mar & R.I.B. Chillout Remix) (4:45)
-03. Thomas Lemmer, Lena Belgart - Is it Too Late (Classic Piano Mix) (3:41)
-04. AxelPolo & M.PRAVDA, Tom Tyler - It is Over (Chillout Mix) (4:08)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:37:59
+Рассмотрены практические аспекты поиска и выявления средств несанкционированного получения информации с учетом развития современных технических средств и новых тенденций в организации поиска. Изложены методические рекомендации в области организации и осуществления мероприятий по подготовке и проведению работ по выявлению электронных устройств, предназначенных для (   Читать дальше...   )Жанр: Информационная безопасностьФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C30641B7782466C1170C87149FF527CED9F35C
+magnet:?xt=urn:btih:D5D44F7DAB54453A4429026995AC6E2278855B09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501912   (828507) от 14.10.2021
+###  Публикация: 1380865   (830953) от 04.05.2020
 
-VA - Beautiful Barcelona (Chill House Deluxe) (2021) [AAC|~323 Kbps] <Lounge, Chill House, Downtempo>
+Идеальный план / A Perfect Plan (2020) WEB-DLRip [MVO] [AD]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luis Hermandez - Todo El Tiempo (Original Mix) (4:00)
-02. Living Room - Travelling & Learning (Original Mix) (2:58)
-03. Chris le Blanc, Paris Bizarre - Si Vous Voulez (Original Mix) (4:24)
-04. Roberto Sol - Miles Beyond (Original Mix) (4:36)(   Читать дальше...   )Жанр: Lounge, Chill House, DowntempoПродолжительность: 02:37:11
+Четыре печально известных грабителя просыпаются в неизвестном и закрытом месте. Оказывается, что их похитили для того, чтобы они украли бриллианты. Но для этого им нужно выполнить несколько заданий.Производство: КанадаЖанр: Боевик, триллер, криминал, детективРежиссер: Джесси Д. АйкменАктеры: Уильям Форсайт, Кэтлин Манро, Карло Рота, Гия Сандху, Майкл Хью, Милтон Барнс, Алли Чунг, Дин Армстронг, Янник БиссонПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:25:52Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040D11706388237D7E6D1988F79B99DE0A2D8E52
+magnet:?xt=urn:btih:BB1DCF4BE60658368698AA16BBB16D217D653761
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,26 +207,158 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502436   (828506) от 14.10.2021
+###  Публикация: 1380821   (830952) от 04.05.2020
 
-Shapes 5.0 [En]
+Подлодка / Torpedo (2020) BDRip [H.264/720p-LQ] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830952.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар Второй мировой войны партизанскому отряду во главе со Станом поручают секретную миссию. Он должен доплыть до берегов Америки в нацистской подлодке, груженой ураном.Производство: Бельгия / A Team Productions, Column Film, Atlas International FilmЖанр: Боевик, приключения, военный, историяРежиссер: Sven HuybrechtsАктеры: Коэн Де Боу, Туре Рифенштейн, Элла-Джун Генрард, Йорен Селдеслахтс, Свен Де Риддер, Стефан Персеваль, Берт Халфут, Rudy Mukendi, Жиль Десхрейвер, Робрехт Ванден ТоренПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:38:29Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380793   (830951) от 04.05.2020
+
+Хардкор / Hardcore Henry (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная супружеская жизнь с очаровательной Эстель — это всё, что помнит Генри после того, как просыпается в научной лаборатории, где его приводит в чувства собственная жена. Но супругу тут же похищают, и ничего непонимающий Генри бросается преследовать монстра Акана, который украл его жену.
+Ради достижения цели Генри готов на многое. Но позже оказывается, что (   Читать дальше...   )Производство: Россия, США / Базелевс Продакшн, Robusto, CGFЖанр: боевик, фантастикаРежиссер: Илья НайшуллерАктеры: Шарлто Копли, Данила Козловский, Хейли Беннетт, Андрей Дементьев, Сергей Шнуров, Кирилл Серебренников, Александр Паль, Светлана Устинова, Даша Чаруша, Равшана КурковаПеревод: Дублированный, Авторский одноголосыйСубтитры: английские (Full, SDH)Продолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16C97B689228D2BC91BB80F3B21E084F632D573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380939   (830950) от 04.05.2020
+
+Вячеслав Соколов | «Прокачаться до сотки» [3 книги] (2019-2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл: «Прокачаться до сотки». книги 1-3.
+
+Три десантника, погибнув в бою, оказываются на другой планете, куда попадают, благодаря, не смирившимся с их смертью друзьям. Ибо на планете Эдем нет смерти и всё вокруг до боли напоминает фэнтезийную компьютерную игру. Если ты погиб, то тебя ждет всего лишь потеря уровней, а затем следует возрождение. Казалось бы, играй (   Читать дальше...   )Жанр: ЛитРПГ, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD9B8622C21967FF47FE8530A8852307CAA2458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380741   (830949) от 04.05.2020
+
+Союз зверей: Спасение двуногих / Pets United (2019) WEB-DL [H.264/1080p-LQ] [PL] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суперсовременном комфортабельном мегаполисе Робо-Сити всегда порядок и спокойствие, ведь за этим следят роботы. Они — главные помощники людей и их питомцев. Единственный нарушитель спокойствия — местный «Робин Гуд», бродячий пес Роджер, который крадет еду у богатых избалованных зверюшек и раздает ее бездомным. Как же он злит гламурную кошечку Белль! Вот только (   Читать дальше...   )Производство: Германия, Китай, Великобритания / China Film, Euro Sino Entertainment, Fish Blowing BubblesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Райнхард КлооссАктеры: Натали Дормер, Эдди Марсан, Джефф Баррелл, Харви Фридман, Иэн Одль, Брайан Ларкин, Наоми МакДональд, Андрес Уильямс, Феликс АуэрПеревод: отсутствуетЯзык озвучки: дублированный - польскийСубтитры: ОтсутствуютПродолжительность: 01:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C775F55F1EBADA1EF3033341367E80F687FF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380671   (830948) от 04.05.2020
+
+BBC. Нас уже 7.7 миллиардов человек. Дальше - больше / 7.7 Billion People and Counting (2020) HDTV [H.264/1080i]
+
+>>След.
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830948.jpg" />
+</div>
+
+
+###  Подробнее
+
+По прогнозам ООН, при существующих темпах рождаемости и повышении продолжительности жизни, к 2050 году на Земле будет проживать 10 млрд человек. Сможет ли наша планета обеспечить ресурсами такое количество людей? Сможем ли мы при такой численности вести образ жизни, к которому привыкли развитые страны и стремятся развивающиеся?Производство: Великобритания, Curious Films, BBC Two - HorizonЖанр: Документальный, научно-популярныйРежиссер: Чарли РасселПеревод: Одноголосый закадровый, профессиональный (Русская служба BBC News)Субтитры: отсутствуютПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3426EF355F60417D1E55957FF228B0CCAACC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380788   (830947) от 04.05.2020
+
+Avast Premium Security 20.3.2405 Final [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shapes - это элегантное приложение на Mac для построения диаграмм, которое является одновременно простым и эффективным. Shapes дает вам все самые важные функции, которые необходимы в качестве инструмента для работы с диаграммами без всякой лишнего «мусора».
-Shapes отлично подходит для программистов и веб-дизайнеров, которые ищут простой инструмент для быстрого проектирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: Todd DitchendorfПоддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Английский
+Комплексный антивирус Avast Premium Security – расширенная версия антивируса Avast, включающая дополнительные функции: брандмауэр, защита от программ-вымогателей, инструменты защиты конфиденциальности.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C088249F714814B3D74FC8F11E7C234E843C274
+magnet:?xt=urn:btih:C68AFF77545428F57CBA42A165147B8FB3BCDE65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +366,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500027   (828505) от 14.10.2021
+###  Публикация: 1380034   (830946) от 04.05.2020
 
-VA - Luxury Kingsize Lounge, Vol. 3 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - VideoHive - Seamless Loop Kinetic Posters - 24684532 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 351 Lake Shore Drive, Genius Jane - September Rain (4:03)
-02. Mariella Narvaez, Lo Vita - Loving Tough (6:10)
-03. Pakka, Stephan Maria - Freedom (Lounge Mix) (4:59)
-04. Lazy Hammock - Work Me Out (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:03
+Seamless Loop Kinetic Posters - отличный пакет разнообразных анимированных постеров, фонов, обратных отсчетов,  использование которых придаст профессиональный вид вашим работам.
+Автор: -sparta-Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33F45028330D32C7D28BC942F8BD142CA05A43D
+magnet:?xt=urn:btih:252A6BE35D924A5081563778127AC55F61992537
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +393,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499965   (828504) от 14.10.2021
+###  Публикация: 1378214   (830945) от 04.05.2020
 
-VA - The Seeds of Lounge, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+Место встречи изменить нельзя (1979) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминально-детективный сериал «Место встречи изменить нельзя», в основу которого лег роман братьев Вайнеров «Эра милосердия», рассказывает о непростых рабочих буднях сотрудников уголовного розыска города Москвы сразу же после окончания Великой Отечественной войны.
+На дворе осень 1945-го года. В центре сюжета опытный сотрудник МУРа – Глеб Жеглов, а также молодой (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: Боевик, криминал, детектив, драмаРежиссер: Станислав ГоворухинАктеры: Владимир Высоцкий, Владимир Конкин, Сергей Юрский, Виктор Павлов, Наталья Фатеева, Леонид Куравлёв, Светлана Светличная, Александр Белявский, Евгений Евстигнеев, Армен Джигарханян и др.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B0A65117B2F78C87FE60E6B1BFBB8DED4374DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497393   (830944) от 13.10.2021
+
+VA - Buddhatronic - the Compilation, Vol. 4 (2019) [AAC|~328 Kbps] <Downtempo, Lounge, Chill Out>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Angel Eyes (Mystic Ethno Mix) (5:28)
+02. Blériot, Jean Mare - Lonely Beach and Moon (Jean Mare Remix) (5:33)
+03. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (4:28)
+04. Lebensart - Cinematic Landscapes (Mystic Pictures Wellness Cut) (5:12)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9914FDF08F80413B893C8D25EE93CB465D310F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496948   (830943) от 13.10.2021
+
+VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Smokey - Sunset (Original Mix) (3:15)
+02. Tai Tung - Ancient Art (Original Mix) (5:28)
+03. Anemine - Das Wehen vom Meer (Original Mix) (1:38)
+04. Ingo Herrmann - Future Dreams (Original Mix) (2:43)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303DB5F7AF61FBAC0A54C21077AC9D8C11A4E00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498161   (830942) от 13.10.2021
+
+VA - Chilling On Purple Clouds, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup, Lunamila - The Lights (3:37)
+02. Cool Beach - Petals of Sound (2:18)
+03. Tim Angrave - Refined Interjection (6:41)
+04. Ben Mitchell - Blue-Sky Thinking (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704C65420A3D3AC0835078941D85BFE9A0EA2456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496251   (830941) от 13.10.2021
+
+VA - Global Lounge Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830941.jpg" />
 </div>
 
 
 ###  Подробнее
 
 01. 351 Lake Shore Drive, Genius Jane - Sunrise (5:37)
-02. Lazy Hammock - Deep Sunday Bliss (4:42)
-03. Aiemo, Martha - Velvet City (Vocal Mix) (4:27)
-04. VAN - Noite (1:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:36:43
+02. Velvet Dreamer - Whisper of the Evening Sea (5:20)
+03. Lemongrass - Loving You (4:01)
+04. Soulounge, Florine Dimonye - Waiting in Vain (4:19)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9938E932F689E400441725939C4E37ADFE2DF847
+magnet:?xt=urn:btih:D65FD89D15D4FD01469751630EA8C471FB132A38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +536,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500067   (828503) от 14.10.2021
+###  Публикация: 1496252   (830940) от 13.10.2021
 
-VA - Global Chill Out Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Global Lounge Masters, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Downtempo, Chillout>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Faro - Wide Sky Sight Garden (4:27)
-02. Thomas Lemmer, Naemi Joy - White Room (Setsuna Remix) (4:53)
-03. Coral Chiller - Mental Time (6:31)
-04. Weathertunes - Wide View (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:21
+01. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
+02. Aquascape - Sunrise (6:43)
+03. Five Seasons - In Your Town (3:55)
+04. T2'n - Charly One (4:35)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:39:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78B6B74D8185F1B043527162E26239873EF2E261
+magnet:?xt=urn:btih:CE6A8D6641B04DF56F9E6DB6D025384B6FD42F2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,54 +565,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502440   (828502) от 14.10.2021
+###  Публикация: 1495980   (830939) от 13.10.2021
 
-WidsMob Denoise 2.17 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828502.jpg" />
-</div>
-
-
-###  Подробнее
-
-WidsMob Denoise простое приложение снижения шума для смартфонов и видеокамер с различными форматами фотографий. Это идеальное решение для удаления шума для портретных, а также пейзажных фотографий. Независимо от того, снимаете ли в помещении, в условиях низкой освещенности, прикоснитесь к старым изображениям или портрету, вы можете легко получить желаемые эффекты.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2021Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6248B93B0BF40D4FCD456B6C679FADEC0F7F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501696   (828501) от 14.10.2021
-
-VA - Models Lounge (You'll Be Falling in Love) (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Chill out Magnifique, Vol. 1 (2019) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sphere - Spring (Original Mix) (3:58)
-02. Living Room - Neo (Original Mix) (3:41)
-03. Chillson, Marc Hartman - Easy Does It (Original Mix) (4:05)
-04. Jazzamor - He's Not There (Original Mix) (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:43
+01. Maximus, Ensemble Ethnique - Mystery of the Seven Chakras (Original Mix) (3:07)
+02. Jasmon - River of My Heart (Original Mix) (5:04)
+03. Jane Maximova - Clouds (Original Mix) (5:49)
+04. Abey Brown - Calma (Original Mix) (6:27)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:06:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1998308F3CC6B72ECC6A9A26B89DFC7BD6282621
+magnet:?xt=urn:btih:9B1EAF7595F513A06F835B22F418077348F7BCFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +594,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500020   (828500) от 14.10.2021
+###  Публикация: 1497891   (830938) от 13.10.2021
 
-VA - Luxury Kingsize Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Röyksopp - Junior (2009) [AAC|~349 Kbps] <Electronic, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 351 Lake Shore Drive, Genius Jane - Brighter Than the Sun (7:29)
-02. Lemongrass - Magnificent (Tim Angrave Resplendent Remix) (6:14)
-03. Lounge Groove Avenue - Touch My Soul (4:13)
-04. Gold Lounge - Open Your Mind (6:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:43:32
+01. Happy Up Here (2:44)
+02. The Girl and the Robot (4:29)
+03. Vision One (5:00)
+04. This Must Be It (4:42)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:56:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBA5F78950FA2CC325B957E77722CD20FDEDAE7D
+magnet:?xt=urn:btih:A71825F8BB7F7E83F30FE77B1A13B448F79E6942
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,25 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006382   (828499) от 11.04.2016
+###  Публикация: 1498559   (830937) от 13.10.2021
 
-Анна Макарова | Русская поваренная книга (2016) [PDF]
+VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 2 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
 
->>Разное (категория книг)
->>Кулинария
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ах, как вкусно пахнет!», – говорим мы, когда услышим какой-то невероятный запах. Аромат, который возбуждает аппетит. Эта книга подобна сказочной скатерти-самобранке, из которой появляются невероятные похлебки, наваристые борщи с жареными карасями, мясные и рыбные жаркое, холодные заливные и студни с языком, ветчиной, белорыбицей; пирожки, кулебяки, расстегаи, блины (   Читать дальше...   )Жанр: блюда на каждый день, кулинарные рецепты, оригинальные рецепты, русская кухняФормат: PDF
+01. Music Of The Earth - Afterglow (Longglow Edit) (5:37)
+02. Manyus Joan Eta - Sea Ballad (5:34)
+03. VAN - Others City (6:19)
+04. Ialaz - Interlude 2 (1:50)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:19:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:973ACA7DF6BEDC5E7A65B88ED85808A9C0528C2B
+magnet:?xt=urn:btih:EF4B47141C76BBB68C816173DA727C91B9FFF18C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +652,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006309   (828498) от 11.04.2016
+###  Публикация: 1497390   (830936) от 13.10.2021
 
-Wise Registry Cleaner 9.15.589 + Portable [Multi/Ru]
+VA - Buddhatronic - the Compilation, Vol. 2 (2017) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
 
->>След.
->>Архив Программ
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - бесплатная утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01. Artenovum - Blue Sun (Ambient Lounge Mix) (5:34)
+02. Pascheba - Nirvana (3:28)
+03. Buddhatronic - World of Grace (Mystic Voice Mix) (4:54)
+04. Artenovum - Francesca (Mystic Dream Mix) (4:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:49:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89537C9590A5620F2FADA8A699B12AC368765CF9
+magnet:?xt=urn:btih:39CD7D1456E62C3270DEC0321C309B96DD5806BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,238 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006271   (828497) от 11.04.2016
+###  Публикация: 1497392   (830935) от 13.10.2021
 
-Чад Уотербери | Революция мышц (Muscle revolution) (2007) [PDF]
+VA - Buddhatronic - the Compilation, Vol. 3 (2018) [AAC|~320 Kbps] <Downtempo, Lounge, Chill Out>
 
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представленная книга - наиболее качественный перевод на русский язык американского спортивного бестселлера 2007 года, сделанный группой переводчиков из числа подготовленных спортсменов-специалистов Athlete.ru, на себе оценивших практическую пользу и справедливость изложенной в книге информации в ходе полугодового эксперимента.В книге "Революция мышц" изложены (   Читать дальше...   )Жанр: Силовой спортФормат: PDF
+01. Jean Mare - Here We Go Again (Buddha Chillout Mix) (5:44)
+02. Artenovum - Eehee (Mystic Voices Enigmatic Mix) (4:51)
+03. Book of Dreams - Garden of Secret (Mystic Sphere Mix) (5:38)
+04. Buddhatronic - Granular Dreams (Send Me an Angel Mix) (4:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD9CEE52791169D4ACBD33A8FBF206E4F8498F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006327   (828496) от 11.04.2016
-
-Алексей Фалеев | Секреты силового тренинга (2009) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны важные советы и рекомендации тем, кто хочет нарастить силу и мышечную массу, указаны основные ошибки начинающих Спортсменов-силовиков. Особое внимание уделено технике  силового   тренинга , тренировочным циклам, Психологическому настрою, правильному питанию.
-Для широкого круга читателей.Жанр: СпортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F141A5B9D2913825E22DB58E20579CA1587F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006131   (828495) от 11.04.2016
-
-QupZilla 2.0.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828495.jpg" />
-</div>
-
-
-###  Подробнее
-
-QupZilla — web-браузер построенный на базе Qt и браузерного движка WebKit, быстрый и безопасный с открытым исходным кодом, предназначенный для массового пользователя. Он позволяет интеграцию с пользовательским окружением рабочего стола и имеет ряд отличительных особенностей, положительно воспринятых рецензентами. QupZilla распространяется под лицензией GPL v3. Среди (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A374F36FA4B55F8DB272533F7896323AC018B474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006414   (828494) от 11.04.2016
-
-Ирина Рыженкова | Профессиональные навыки менеджера. Повышение личной и командной эффективности [2-е издание] (2016) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о необходимых и полезных для менеджера навыках и умениях. Описание управленческих методик четко привязано к конкретным практическим задачам и проблемам, возникающим у менеджеров в ежедневной работе: при подготовке и проведении совещаний, переговоров, презентаций, а также при работе в команде. Материалы данной книги обеспечивают менеджеров новейшими (   Читать дальше...   )Жанр: МенеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D21D9C51165209C5E68680DD1A18EBD34A4659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006178   (828493) от 11.04.2016
-
-AdwCleaner 5.110 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828493.jpg" />
-</div>
-
-
-###  Подробнее
-
-AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547798F9F0277D03319E30F9F31EBD40C7A4AF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006452   (828492) от 11.04.2016
-
-Проекты - VideoHive - Orbs&Strokes Logo Opening - 55004 [AEP]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамической анимации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB8C364FB94EB263EF193DBE467DC9B42F4DEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005859   (828491) от 11.04.2016
-
-В.Е. Зализняк, Г.И. Щепановская | Теория и практика по вычислительной математике (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие предназначено для студентов математических и физико-технических специальностей, изучающих дисциплину «Численные методы». В пособии кратко излагаются методы решения задач численного анализа и приводятся задания для практических занятий.
-   Наиболее подходящей для проведения практических занятий, по мнению авторов, является среда программирования (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AFE49F9F2DB2E7884C243AED312BAE6A910120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543676   (828490) от 11.04.2016
-
-Кир Булычев | Узники Ямагири-Мару (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса и ее друзья отправляются на место гибели японских боевых кораблей в Тихом океане, чтобы найти там сокровища, взятые одним из капитанов. Но они еще не знают, что именно там поселилось множество мутировавших рыбок — убийц китов и людей..Жанр: Детская фантастикаПродолжительность: 02:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909C2750B7DC11627518DCBBA5BFF010A4B74EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006017   (828489) от 11.04.2016
-
-Акинцев & Партнёры | Конференция Трафик (2012) WEBRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828489.jpg" />
-</div>
-
-
-###  Подробнее
-
-✔ Конференция дает полный обзор каналов привлечения клиентов на сайт: социальные сети, e-mail маркетинг, блоги, контекстная реклама, видео анонсы.
-
-✔ Ставит систему. Вы понимаете, как работает каждый прием, а значит, можете создавать свои комбинации и модификации подходов.
-(   Читать дальше...   )Жанр: Раскрутка проектов ,реклама, инфобизнесПродолжительность: 08:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D1C4442616728888190B1C204D94B44471C279
+magnet:?xt=urn:btih:199BF1785FF355E5370305E6F18979FBA23A0C8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

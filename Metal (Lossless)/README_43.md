@@ -1,3 +1,96 @@
+###  Публикация: 1355037   (986170) от 24.01.2020
+
+Seven Spires - Solveig (2017) [FLAC|Lossless|tracks + .cue] <Symphonic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Siren (01:51)
+02. Encounter (03:51)
+03. The Siren (Reprise) (00:27)
+04. The Cabaret of Dreams (04:27)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F468225E7669F58610E067B44B91F90458DC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187588   (985953) от 24.01.2020
+
+Sister Sin / Liv Sin - 7 albums, 8CD (2003-2019) Discography [FLAC|Lossless|image + .cue] <Heavy Metal, Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведская группа SISTER SIN - реальный претендент на звание лучшей современной группы в стиле глэм-метал. Образованная в 2002-м году в шведском Гетеборге, эта группа дала понять слушающему миру, что глэм-метал достойно можно создать не только в Штатах. Харизматичная певица Лив, гитарист Джимми, басист Крис и барабанщик Дэйв отменно вошли в роль спасителей длинноволосого, (   Читать дальше...   )--------------------------
+
+01. Blood Moon Fever (3:15)
+02. Chapter Of The Witch (4:22)(   Читать дальше...   )Жанр: Heavy Metal, Hard'n'Heavy |Продолжительность: 05:33:42 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479693F3181DAB5C8B3A0AA0CA6FA5C7DE0AA0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612764   (985541) от 02.02.2013
+
+Running Wild - 9CD Japan Edition (1987 - 1998) Japan Edition [WavPack|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Of The Final Battle (The End Of All Evil) [02:01]
+02. The Rivalry [05:35]
+03. Kiss Of Death [03:37]
+04. Firebreather [04:04]
+05. Return Of The Dragon [06:47]
+06. Resurrection [04:46]
+07. Ballad Of William Kidd [08:44]
+08. Agents Of Black [03:57]
+09. Fire & Thunder [07:33]
+10. The Poison [04:40](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355297   (984983) от 25.01.2020
 
 Edenbridge - The Grand Design (2006) [FLAC|Lossless|image + .cue] <Sympho Metal>
@@ -6,7 +99,7 @@ Edenbridge - The Grand Design (2006) [FLAC|Lossless|image + .cue] <Sympho Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984983.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ Ensiferum - Victory Songs (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984980.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ Breaking Benjamin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984975.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ Ironsword - Servants of Steel (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984823.jpg" />
 </div>
 
 
@@ -122,7 +215,7 @@ Mechina - Progenitor (2016) [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984596.jpg" />
 </div>
 
 
@@ -151,7 +244,7 @@ Centurian - Contra Rationem (2013) Scene [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984523.jpg" />
 </div>
 
 
@@ -186,7 +279,7 @@ Meshiaak - Mask Of All Misery (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983632.jpg" />
 </div>
 
 
@@ -215,7 +308,7 @@ Wastelands - Until the End of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983627.jpg" />
 </div>
 
 
@@ -244,7 +337,7 @@ Konvent - Puritan Masochism (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983623.jpg" />
 </div>
 
 
@@ -273,7 +366,7 @@ Temperance - Viridian (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983615.jpg" />
 </div>
 
 
@@ -302,7 +395,7 @@ Scream Of Death - Visible Sins (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983521.jpg" />
 </div>
 
 
@@ -331,7 +424,7 @@ Tool - 8 albums, 10CD (1992-2019) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983371.jpg" />
 </div>
 
 
@@ -360,7 +453,7 @@ Evanescence - Greatest Hits (2008) [FLAC|Lossless]<Gothic Metal, Alternative>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982391.jpg" />
 </div>
 
 
@@ -389,7 +482,7 @@ White Ward - Futility Report (2017) [FLAC|Lossless|tracks + .cue] <Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982357.jpg" />
 </div>
 
 
@@ -418,7 +511,7 @@ White Ward - Origins (2016) Сompilation [FLAC|Lossless|Web-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982356.jpg" />
 </div>
 
 
@@ -447,7 +540,7 @@ Fear My Thoughts - Vulcanus (2007) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982287.jpg" />
 </div>
 
 
@@ -476,7 +569,7 @@ Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982081.jpg" />
 </div>
 
 
@@ -505,7 +598,7 @@ Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982078.jpg" />
 </div>
 
 
@@ -534,7 +627,7 @@ Kuni - Rock (2011) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982072.jpg" />
 </div>
 
 
@@ -563,7 +656,7 @@ Casket - 3 альбома (1997 - 1998) Discography [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982069.jpg" />
 </div>
 
 
@@ -592,7 +685,7 @@ Silent Knight - Conquer & Command (2015) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981812.jpg" />
 </div>
 
 
@@ -621,7 +714,7 @@ Pomegranate Tiger - Entities (2013) [FLAC|Lossless]<Progressive Metal, Instrumen
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981402.jpg" />
 </div>
 
 
@@ -656,7 +749,7 @@ Barbarossa - The Weight of Void (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981159.jpg" />
 </div>
 
 
@@ -670,93 +763,6 @@ Barbarossa - The Weight of Void (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A0D2BBDAD53F8D9626699283233356D1CECCC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225190   (980896) от 28.01.2020
-
-Paul Dianno (Paul Di'Anno) - 15 albums, 23 CD (1986-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут Paul Di'Anno, а иногда Paul Dianno, и даже Paul D'ianno. Но как бы ни писали его фамилию, речь идет об одном и том же человеке. Вокалист (1980-1981) группы Iron Maiden, настоящее имя которого Paul Andrews, с кем связаны первые успехи коллектива: запись успешной демо-кассеты The Soundhouse Tapes, издания первого и второго студийных альбомов, выступление (   Читать дальше...   )--------------------------
-
-01. Wrathchild (Iron Maiden cover) (2:52)
-02. Women In Uniform (Skyhooks cover) (2:57)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock |Продолжительность: 22:15:32 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCA2B80EA7714ECAE47C747031589FEDC8185AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356175   (980558) от 29.01.2020
-
-Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marching Into Oblivion (5:16)
-02. Confusion On A Grand Scale (4:40)
-03. Darkstar (7:10)
-04. Waiting (3:10)(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8428E0ED2FF57124FC0CDFAAA5CDBD5222CD98EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356233   (980553) от 29.01.2020
-
-Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Down (5:27)
-02. Where The Winds Blow (5:06)
-03. The Hunchback Of Notre Dame (8:54)
-04. Singers At The World's Dawn (6:57)(   Читать дальше...   )Жанр: Heavy Metal, Progressive RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14588A49ABC3D40968F87139C74130B0972A222
 ```
 
 https://mybot314.ru/tekegram_catalog/

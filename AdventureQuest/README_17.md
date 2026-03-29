@@ -1,3 +1,81 @@
+###  Публикация: 1387327   (849044) от 01.10.2021
+
+Those Who Remain (2020) [Ru/Multi] (1.0191) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849044.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Those Who Remain вы окажетесь в самом центре захватывающего психологического ужастика, действие которого разворачивается в сонном городке Дормонт – отколовшегося от реальности городке, охваченном тьмой и последствиями поступков местных жителей. Преодолейте страшные, простирающиеся из темноты ужасы и переживите ночь в Дормонте, вместе с Эдвардом подвергнув испытанию (   Читать дальше...   )Тип издания: RepackРазработчик: Camel 101Жанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57691813C9B1ACAD7D672A7BA4CA07D3DC6E64DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002267   (848227) от 31.03.2016
+
+Amigdala (2016) [En] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герман Дривен, мужчина средних лет, фанатик теории заговора который отрекся от всех прелестей жизни, от друзей, семьи и своей работы. Герман не обращал внимания на все что происходило вокруг, остался без ничего, и все из-за своей одержимости "Филадельфийским экспериментом". С момента проведения эксперимента прошло уже 11 лет, но Герману удалось найти документ (   Читать дальше...   )Тип издания: LicenseРазработчик: GuidiGermanoЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56074504CE53154730B16FD12F937DD69F67371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002718   (846429) от 01.04.2016
+
+Layers of Fear (2016) [Ru/Multi] (5.1.3.48304/upd 2) Repack SpaceX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Layers of Fear - жуткий психологический триллер, события которого разворачиваются в доме сумасшедшего художника, который и является главным героем. Найдите корни собственного безумия и попробуйте избавиться от них. Авторы описывают проект как «психоделический хоррор, в котором любой поворот камеры может привести к кардинальным изменениям окружающего пейзажа». Локации (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober Team SAЖанр: Adventure (Horror)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0016BB37C870596FFAC0B68727450BB104CED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002810   (846202) от 01.04.2016
 
 Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +84,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846202.jpg" />
+  <img src="Z:/picture/008/save_picture_846202.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dap (2021) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845817.jpg" />
+  <img src="Z:/picture/008/save_picture_845817.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Meridian 157 (2019-2021) [Ru/Multi] (1.0.6/1.0.6/1.0.6.0/1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845815.jpg" />
+  <img src="Z:/picture/008/save_picture_845815.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Heaven's Hope (2016) [En/De] (1.0) License CODEX [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844734.jpg" />
+  <img src="Z:/picture/008/save_picture_844734.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack Choice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844577.jpg" />
+  <img src="Z:/picture/008/save_picture_844577.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844363.jpg" />
+  <img src="Z:/picture/008/save_picture_844363.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Inspector Waffles (2021) [Multi] (1.0.2.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844151.jpg" />
+  <img src="Z:/picture/008/save_picture_844151.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ LUNA The Shadow Dust (2020) [Graphic] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844114.jpg" />
+  <img src="Z:/picture/008/save_picture_844114.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Hektor (2015) [En] (1.1.0b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843477.jpg" />
+  <img src="Z:/picture/008/save_picture_843477.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Swordbreaker: The Game / Мечелом (2015) [Ru/En] (1.0 u1) Repack DARKSiDER
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842622.jpg" />
+  <img src="Z:/picture/008/save_picture_842622.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ A Juggler's Tale (2021) [Ru/Multi] (1.13) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842334.jpg" />
+  <img src="Z:/picture/008/save_picture_842334.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Monumental (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841283.jpg" />
+  <img src="Z:/picture/008/save_picture_841283.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Wick (2015) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841270.jpg" />
+  <img src="Z:/picture/008/save_picture_841270.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Distraint (2015) [Ru/Multi] (03.04.16) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841172.jpg" />
+  <img src="Z:/picture/008/save_picture_841172.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ BREATHEDGE (2021) [Ru/En] (1.1.0.4/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840812.jpg" />
+  <img src="Z:/picture/008/save_picture_840812.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Children Of Morta (2019) [Ru/Multi] (1.2.74/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837629.jpg" />
+  <img src="Z:/picture/008/save_picture_837629.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Anna's Quest (2015) [Ru/Multi] (1.1.0214) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836047.jpg" />
+  <img src="Z:/picture/008/save_picture_836047.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd17) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836035.jpg" />
+  <img src="Z:/picture/008/save_picture_836035.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Maid of Sker (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836005.jpg" />
+  <img src="Z:/picture/008/save_picture_836005.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Deponia: The Complete Journey (2014) [Ru/En] (3.3.0155) Repack R.G. Механи
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835783.jpg" />
+  <img src="Z:/picture/008/save_picture_835783.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Breathedge (2021) [Ru/Multi] (1.1.0.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834751.jpg" />
+  <img src="Z:/picture/008/save_picture_834751.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Broken Sword: Тень тамплиеров. Расширенное издани
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833399.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833208.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ The Magister (2021) [En] (1.0.0.4) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF93279980334E77AB563547D29997C2EB19FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005656   (832140) от 09.04.2016
-
-Statues (2015) [Ru/Multi] (1.0) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас никогда не посещала мысль, что статуи, которых вы постоянно видите в своем городе, такие же живые, как и мы? Что их пустой взгляд хранит за собой частицу души скульптора, который в течение года или даже больше, аккуратно, кусок за куском выбивал из камня? Что за каменной грудью бьется каменное сердце, которое в каждый момент времени наполнено скорее всего не (   Читать дальше...   )Тип издания: LicenseРазработчик: Room710GamesЖанр: Adventure, Horror, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5701CE27EB1A07774AAEB5396F7BE7BAFB63A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005702   (832066) от 09.04.2016
-
-Mind: Path to Thalamus (2015) [Ru/Multi] (1.0/upd1) License SKIDROW [Enhanced Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mind: Path to Thalamus – головоломка с видом от первого лица, действия которой развиваются в фантастическом сюрреалистическом мире. Для продвижения уровнями нужно буквально подчинять своей воле окружающую среду. Все это возможно благодаря тому, что протагонист путешествует по миру, созданному им самим в своем разуме, а локации во многом зависят от текущего эмоционального (   Читать дальше...   )Тип издания: LicenseРазработчик: Carlos Coronado, Dani Navarro, Luka NietoЖанр: Logic (Puzzle), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123CF9020B77A57BCEC93BCC9401F1F0E8CABDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501974   (831647) от 12.10.2021
-
-Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в мрачный мир монстров. Заключите с ними союз, чтобы свергнуть злодейку, жаждущую власти. Охотьтесь, сражайтесь, а также укрощайте и скрещивайте монстров, чтобы оставить след в истории мира. Вместе с монстрами восстановите равновесие на Crown Island. Раскройте мрачную историю Crown Island, создавая собственную легенду. В прошлом островом повелевали жестокие (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio AurumЖанр: jRPG, AdventureЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3E5DE74A6A5E55FF76D4254934C4A838D602A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

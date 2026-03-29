@@ -6,7 +6,7 @@ Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796648.jpg" />
+  <img src="Z:/picture/008/save_picture_796648.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796304.jpg" />
+  <img src="Z:/picture/008/save_picture_796304.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Didier Marouani Space - Greatest Hits (2008) Star Mark, 2CD [MP3|320 кб/с] <E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796045.jpg" />
+  <img src="Z:/picture/008/save_picture_796045.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793251.jpg" />
+  <img src="Z:/picture/008/save_picture_793251.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Alphaville - Strange Attractor (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792406.jpg" />
+  <img src="Z:/picture/008/save_picture_792406.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Marnie - Strange Words and Weird Wars (2017) [MP3|320 Kbps] <Electronic, Synthpo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790475.jpg" />
+  <img src="Z:/picture/008/save_picture_790475.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789434.jpg" />
+  <img src="Z:/picture/008/save_picture_789434.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Rational Youth - 5 Studio Albums (1982-2013) [MP3|320 Kbps] <Electronic, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788950.jpg" />
+  <img src="Z:/picture/008/save_picture_788950.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ IAMX - Alive In New Light (2018) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788603.jpg" />
+  <img src="Z:/picture/008/save_picture_788603.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Spaceinvader - Escape (2018) [MP3|320 Kbps] <Synthwave, Darksynth, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782937.jpg" />
+  <img src="Z:/picture/008/save_picture_782937.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Ladies Of Synth (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780251.jpg" />
+  <img src="Z:/picture/008/save_picture_780251.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Midnight Danger - Malignant Force (2018) [MP3|320 Kbps] <Darksynth, Retrowave, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780212.jpg" />
+  <img src="Z:/picture/008/save_picture_780212.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Ladies Of Synth Vol.2 (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779501.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Perturbator - The Uncanny Valley (2016) + Bonus [MP3|320 кб/с] <Synthpop, Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776729.jpg" />
+  <img src="Z:/picture/008/save_picture_776729.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Nina - Sleepwalking (2018) Deluxe Edition [MP3|320 Kbps] <Synthpop, Synthwave, N
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771739.jpg" />
+  <img src="Z:/picture/008/save_picture_771739.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771628.jpg" />
+  <img src="Z:/picture/008/save_picture_771628.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Space Odyssey. First Human In Space (2017) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766967.jpg" />
+  <img src="Z:/picture/008/save_picture_766967.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Space Holidays Vol. 11 (2019) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766177.jpg" />
+  <img src="Z:/picture/008/save_picture_766177.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Space Holidays Vol. 12 (2020) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766155.jpg" />
+  <img src="Z:/picture/008/save_picture_766155.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Blind Date - Dreamworld (1986) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766111.jpg" />
+  <img src="Z:/picture/008/save_picture_766111.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763652.jpg" />
+  <img src="Z:/picture/008/save_picture_763652.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Waveshaper - Station Nova (2016) [MP3|320 кб/с] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762641.jpg" />
+  <img src="Z:/picture/008/save_picture_762641.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758744.jpg" />
+  <img src="Z:/picture/008/save_picture_758744.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Peru - 7 Studio Albums (1981-1993) [MP3|320 Kbps] <Electronic, Synth-pop, Ambien
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757933.jpg" />
+  <img src="Z:/picture/008/save_picture_757933.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755571.jpg" />
+  <img src="Z:/picture/008/save_picture_755571.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755204.jpg" />
+  <img src="Z:/picture/008/save_picture_755204.jpg" />
 </div>
 
 

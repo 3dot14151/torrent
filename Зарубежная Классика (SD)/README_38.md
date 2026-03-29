@@ -1,3 +1,83 @@
+###  Публикация: 1214412   (764863) от 21.03.2018
+
+Никогда не было так мало / Never So Few (1959) WEB-DLRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бирма. Вторая Мировая война. Том Рейнольдс, командующий небольшим британско-американским соединением. Основная часть его сил составлена из местных войск кэхинов. Рейнольдса с небольшим отрядом посылают против японских позиций возле китайской границы. Там несколько его солдат попадают в засаду Националистической Китайской группы.
+После проведенной боевой операции (   Читать дальше...   )Производство: США / Canterbury Productions, Metro-Goldwyn-Mayer (MGM)Жанр: Драма, ВоенныйРежиссер: Джон СтёрджесАктеры: Фрэнк Синатра, Джина Лоллобриджида, Питер Лоуфорд, Стив МакКуин, Ричард Джонсон, Пол Хенрейд, Брайан Донлеви, Дин Джонс, Чарльз Бронсон, Филип Ан, Роберт Брэй, Кипп ХэмилтонПеревод: Авторский (Ю.Живов)Субтитры: АнглийскиеПродолжительность: 02:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA82F6A984721C0FC29A7E75D202D9F49C44203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521625   (764344) от 03.01.2022
+
+Прекрасная американка / La belle Americaine (1961) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деятельная Полетт Периньон, жена Марселя, рабочего-металлурга, мечтающего о покупке соседского мотоцикла, видит в газете объявление о продаже американского автомобиля. Хозяйка почти новой машины просит за неё не дороже стоимости старого мотоцикла, и Марсель совершает сделку. Вот оно - cчастье! Однако с этого момента в жизни скромного пролетария начинается чёрная (   Читать дальше...   )Производство: Франция, Compagnie Commerciale Française Cinématographique (CCFC), Corflor, Le Film d'Art, Panorama FilmsЖанр: комедияРежиссер: Робер Дери, Пьер ЧернияАктеры: Альфред Адам, Колетт Броссе, Робер Бюрнье, Пьер Дак, Элиана д’Альмейда, Бернар Деран, Робер Дери, Анни Дюко, Жак Фаббри, Луи де ФюнесПеревод: дублированный, профессиональный многоголосый (ОРТ)Субтитры: нетПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F8D4A38F7BFE6DA6AD5ACBD6343846326FFB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126083   (764234) от 19.04.2017
+
+Фотоувеличение / Blowup / Blow-Up (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — известный, талантливый молодой фотограф, прототипом которого был то ли Берт Штерн, то ли Дэвид Бейли, что скорее.
+Однажды, работая в городском парке, он случайно снимает заинтересовавшую его странную пару. А дальше… через вроде бы романтическое просвечивает вроде бы криминальное… События разворачиваются, ничего не проясняя… На сильно увеличенных кадрах (   Читать дальше...   )Производство: США, Великобритания, ИталияЖанр: триллер, драма, криминал, детективРежиссер: Микеланджело АнтониониАктеры: Дэвид Хеммингс, Ванесса Редгрейв, Сара Майлз, Питер Боулз, Джон Кастл, Джейн Биркин, Джиллиан Хиллз, Верушка фон ЛендорфПеревод: многоголосый, двухголосый x3, одноголосыйЯзык субтитров: русский x3, английскийПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1176C2888C0596620F4445D21D9FBA5072E8CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276022   (764220) от 31.01.2019
 
 Чочара / La Ciociara (1960) BDRip [H.264]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764220.jpg" />
+  <img src="Z:/picture/008/save_picture_764220.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764177.jpg" />
+  <img src="Z:/picture/008/save_picture_764177.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763929.jpg" />
+  <img src="Z:/picture/008/save_picture_763929.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763449.jpg" />
+  <img src="Z:/picture/008/save_picture_763449.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763426.jpg" />
+  <img src="Z:/picture/008/save_picture_763426.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763217.jpg" />
+  <img src="Z:/picture/008/save_picture_763217.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762972.jpg" />
+  <img src="Z:/picture/008/save_picture_762972.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762893.jpg" />
+  <img src="Z:/picture/008/save_picture_762893.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762612.jpg" />
+  <img src="Z:/picture/008/save_picture_762612.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762273.jpg" />
+  <img src="Z:/picture/008/save_picture_762273.jpg" />
 </div>
 
 
@@ -272,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761769.jpg" />
+  <img src="Z:/picture/008/save_picture_761769.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760681.jpg" />
+  <img src="Z:/picture/008/save_picture_760681.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760318.jpg" />
+  <img src="Z:/picture/008/save_picture_760318.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760117.jpg" />
+  <img src="Z:/picture/008/save_picture_760117.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759505.jpg" />
+  <img src="Z:/picture/008/save_picture_759505.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758609.jpg" />
+  <img src="Z:/picture/008/save_picture_758609.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757366.jpg" />
+  <img src="Z:/picture/008/save_picture_757366.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756774.jpg" />
+  <img src="Z:/picture/008/save_picture_756774.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753724.jpg" />
+  <img src="Z:/picture/008/save_picture_753724.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753569.jpg" />
+  <img src="Z:/picture/008/save_picture_753569.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753002.jpg" />
+  <img src="Z:/picture/008/save_picture_753002.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752824.jpg" />
+  <img src="Z:/picture/008/save_picture_752824.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752789.jpg" />
+  <img src="Z:/picture/008/save_picture_752789.jpg" />
 </div>
 
 
@@ -598,87 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69D4EE8DB422A2F278AC90B9D99FAF378CDAF0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205978   (752746) от 31.05.2010
-
-За десять минут до полуночи / 10 to Midnight (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный Чарльз Бронсон в главной роли:
-
-Молодой парень (Джин Дэвис), весьма приятной наружности, но с чудинкой в глазах, получает удовольствие, убивая женщин, сам будучи при этом абсолютно голым. За ним охотятся детектив (Бронсон) и его молодой помощник (Стивенс), который неравнодушен к дочери начальника. Когда маньяк начинает и ее терроризировать, герой Бронсона, (   Читать дальше...   )Жанр: Детектив, Триллер, БоевикРежиссер: Дж. Ли Томпсон.Актеры: Чарльз Бронсон, Лиза Айлбакер, Эндрю Стивенс, Джин Дэвис, Джеффри Льюис, Уилфорд Бримли и др.Перевод: Многоголосый закадровыйПродолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C40736C6F669615DED706D96F655642642982F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780717   (752055) от 30.04.2014
-
-Потоп / Potop (1974) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая эпопея Генрика Сенкевича, охватывающая события XYII века войны Речи Посполитой со шведами. Сложно складываются отношения главных героев Анджея Кмитица и Оленьки Биллевич. Волею судьбы Кмитиц связан клятвою с отступником Гетманом.
-Он оказывается в стане врагов и вынужден воевать против своих. Друзья считают его предателем, Оленька отказывается от него, (   Читать дальше...   )Жанр: ДрамаРежиссер: Ежи Гоффман / Jerzy HoffmanАктеры: Даниэль Ольбрыхский /Daniel Olbrychski/, Малгожата Браунек /Malgorzata Braunek/, Тадеуш Ломницкий /Tadeusz Lomnicki/, Казимеж Вихняж /Kazimierz Wichniarz/, Владислав Ханца /Wladyslaw Hancza/, Лежек Тележински /Leszek TeleszynskiПеревод: ДублированныйПродолжительность: 1-я серия 2:27:46; 2-я серия 2:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245587E442CDEF6D7C0D7FDE786FBF579B91CFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017906   (751629) от 22.05.2016
-
-Когда на земле царили динозавры / When Dinosaurs Ruled the Earth (1970) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллион лет до нашей эры, когда на земле царили динозавры, племя жителей скал приносило в жертву богу солнца светловолосых девушек. Однажды, в день жертвоприношения, произошла страшная вспышка на солнце, от которой поднималась ужасная буря, во время которой очередная жертва — Санна, сбегает от соплеменников. Девушка находит приют в соседнем племени, живущем в песках, (   Читать дальше...   )Производство: ВеликобританияЖанр: Фантастика, фэнтези, мелодрама, приключенияРежиссер: Вэл ГестАктеры: Виктория Ветри, Роберт Хоудон, Патрик Аллен, Дрюи Хенли, Шон Кэффри, Магда Конопка, Имоджен Хэссэл, Патрик Хол, т Жан Россини, Кэрол ХоукинсПеревод: Профессиональный одноголосый (НТВ-Москва)Субтитры: ОтсутствуютПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D664066B49ACC57793E1F9D50CD0C38AE28F461E
 ```
 
 https://mybot314.ru/tekegram_catalog/

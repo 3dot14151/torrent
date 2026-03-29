@@ -1,3 +1,56 @@
+###  Публикация: 920407   (580007) от 22.07.2015
+
+Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен Calculate Linux Desktop MATE (CLDM), третий десктоп в семействе Calculate Linux, предоставляющий полноценное рабочее место для применения, как в офисе, так и дома. Дистрибутив обратно совместим с Gentoo и кроме портежей использует общие репозитории Calculate Linux, которые на сегодняшний день насчитывают 2000 бинарных пакетов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94698E3F8F20796B41C99067822479E2CB2AEA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919537   (579851) от 22.07.2015
+
+Chromixium 1.5 [i386] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел стабильный выпуск проекта Chromixium, в рамках которого развивается Linux-дистрибутив, похожий по оформлению и принципам работы на ChromeOS, но основанный на пакетной базе Ubuntu Linux и позволяющий использовать все приложения из репозиториев Ubuntu 14.04 LTS наряду со свойственными ChromeOS web-приложениями.
+Из доступных в Chromixium 1.5 возможностей отмечается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6650829A1F83F0CAAAA0F401FB2A7B6350827A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 688331   (577036) от 11.08.2013
 
 Mageia 4 Alpha I [i586, x86-64] 4xDVD
@@ -6,7 +59,7 @@ Mageia 4 Alpha I [i586, x86-64] 4xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577036.jpg" />
+  <img src="Z:/picture/008/save_picture_577036.jpg" />
 </div>
 
 
@@ -40,7 +93,7 @@ Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575926.jpg" />
+  <img src="Z:/picture/008/save_picture_575926.jpg" />
 </div>
 
 
@@ -66,7 +119,7 @@ Fedora 26 [x86-64] 3xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575801.jpg" />
+  <img src="Z:/picture/008/save_picture_575801.jpg" />
 </div>
 
 
@@ -92,7 +145,7 @@ RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575689.jpg" />
+  <img src="Z:/picture/008/save_picture_575689.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ Sabayon 13.08 (Multi DE) Поддержка анонимного доступа 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573539.jpg" />
+  <img src="Z:/picture/008/save_picture_573539.jpg" />
 </div>
 
 
@@ -146,7 +199,7 @@ Tor Browser 2.3.25-12 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573179.jpg" />
+  <img src="Z:/picture/008/save_picture_573179.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ Sabayon 13.08 (Multi DE) Поддержка анонимного доступа 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571619.jpg" />
+  <img src="Z:/picture/008/save_picture_571619.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ Image Uploader 1.3.1 build 4318 Stable [Multi/Ru] Repack The Hacker [x86-x64] (c
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571345.jpg" />
+  <img src="Z:/picture/008/save_picture_571345.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ Abbyy FineReader 7.0 Professional 7.0.0.509 Repack The Hacker [x86-x64] (cxarchi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567805.jpg" />
+  <img src="Z:/picture/008/save_picture_567805.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566854.jpg" />
+  <img src="Z:/picture/008/save_picture_566854.jpg" />
 </div>
 
 
@@ -281,7 +334,7 @@ Wing IDE Professional 6 6.0.6-1 [x64] (tar.bz2,deb,rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566665.jpg" />
+  <img src="Z:/picture/008/save_picture_566665.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565166.jpg" />
+  <img src="Z:/picture/008/save_picture_565166.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ Tixati 2.53 [amd64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564881.jpg" />
+  <img src="Z:/picture/008/save_picture_564881.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ Xubuntu 17.04 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564875.jpg" />
+  <img src="Z:/picture/008/save_picture_564875.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564742.jpg" />
+  <img src="Z:/picture/008/save_picture_564742.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ PCLinuxOS 2013.08 KDE FullMonty [x32, x64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564030.jpg" />
+  <img src="Z:/picture/008/save_picture_564030.jpg" />
 </div>
 
 
@@ -441,7 +494,7 @@ Ctlos Linux Openbox/i3 v2.2 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563139.jpg" />
+  <img src="Z:/picture/008/save_picture_563139.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ OS4 OpenLinux 13.7 KDE  [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559735.jpg" />
+  <img src="Z:/picture/008/save_picture_559735.jpg" />
 </div>
 
 
@@ -497,7 +550,7 @@ openSUSE-Tumbleweed 20170725 [x86-64] 3xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557701.jpg" />
+  <img src="Z:/picture/008/save_picture_557701.jpg" />
 </div>
 
 
@@ -525,7 +578,7 @@ BlackArch Linux 2016.08.19 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557578.jpg" />
+  <img src="Z:/picture/008/save_picture_557578.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ Gentoo Linux 20160704 LiveDVD [x86, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557577.jpg" />
+  <img src="Z:/picture/008/save_picture_557577.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ Oracle Linux 6.7 Server [i386, x86-64] 2xDVD,2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557309.jpg" />
+  <img src="Z:/picture/008/save_picture_557309.jpg" />
 </div>
 
 
@@ -603,7 +656,7 @@ Sabayon 17.08 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556732.jpg" />
+  <img src="Z:/picture/008/save_picture_556732.jpg" />
 </div>
 
 
@@ -629,7 +682,7 @@ Parted Magic 2019.05.30 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555731.jpg" />
+  <img src="Z:/picture/008/save_picture_555731.jpg" />
 </div>
 
 
@@ -640,60 +693,6 @@ Parted Magic — готовое решение для работы с разде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27635A27178CADEBA77C4965717BE1308706ED21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236539   (554183) от 18.07.2018
-
-MorphOS 3.11 [PowerPC] 1xCD
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554183.jpg" />
-</div>
-
-
-###  Подробнее
-
-MorphOS — проприетарная многозадачная операционная система (ОС), предназначенная для линейки процессоров PowerPC. Основой MorphOS является микроядро Quark (англ.). Происхождение операционной системы уходит корнями в 1995 год, когда компания Phase5 озвучила собственный план обновления парка ПК Amiga, путём миграции на архитектуру PowerPC (решение, аналогичное принятому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE95160DB83A7D9C9535FE8C87316E7B32853B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236787   (553802) от 20.07.2018
-
-Debian Live GNU/Linux 9.5.0 + nonfree Stretch [amd64] 12xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступно (https://www.debian.org/News/2018/20180714) пятое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе.  Выпуск включает 91 обновление с устранением проблем со стабильностью и 100 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 9.5 можно отметить удаление пакетов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C53D1DF5AE43903E37F8838C45A650BFE061C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

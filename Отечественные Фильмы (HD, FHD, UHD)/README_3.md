@@ -1,3 +1,133 @@
+###  Публикация: 1437347   (1042258) от 04.01.2021
+
+Скосырев (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о трагической смерти старшины милиции Тракторозаводского районного отдела г. Волгограда Николая Фёдоровича Скосырева. Он погиб при исполнении служебного долга 31 октября 1967 года.  В Волгограде Николай Скосырев нес службу на посту ГАИ в районе моста у Сухой Мечетки.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Анатолий АртамоновАктеры: Дмитрий Антонов, Алексей Шестаков, Анастасия Решетняк, Светлана Кузнецова, Юрий ДымовСубтитры: ОтсутствуютПродолжительность: 00:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798C4A5622CF686B567A0B7403ACF04CA2384DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437551   (1041975) от 05.01.2021
+
+Белая дорога Эльзы (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главную героиню зовут Эльза, ей шесть лет. Оставшись без родителей, девочка живёт вместе с бабушкой и дедушкой в маленьком домике, который расположен густого леса. Эльза умна и любознательна, как всякий ребёнок. Она любит своих бабушку и дедушку, хотя нередко с ними и спорит. Уклад жизни семьи пропитан хакасскими традициями и поверьями. Бабушка рассказывает народные (   Читать дальше...   )Производство: Россия / ХакасФильмЖанр: ДрамаРежиссер: Юрий КурочкаАктеры: Анат Быдышев, Акун Марткачакова, Надежда Кокова, Илария Мамышева, Алексей Абдин, Анна Туртугешева, Митхас Абдин, Николай БельтерековСубтитры: ОтсутствуютПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B900C4E79585CF62EB9504AB8C72018BB4E6F766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437576   (1041937) от 05.01.2021
+
+Turbo (2016) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистическая сюреаллистическая история о том, как мечтательная русская девушка, пожилой американский диджей и беременная румынка поменялись судьбами.Производство: Россия / ООО «Интерпроект», SEANCE FOR 2, Unit of INDEPENDENT filmmakersЖанр: Мистика, притча, арт-хаусРежиссер: Анна ЕфремоваАктеры: Мария Биорк, Евгений Сангаджиев, Борис Зуев, Анна Ефремова и др.Субтитры: Русские (hardsub на иностранную речь)Продолжительность: 02:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520FF6535A992BC49372E2518A797FB0821FB18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610788   (1041785) от 09.02.2023
+
+Бывшие. Happy end (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яна и Илья зависимые, она — от наркотиков, он — от алкоголя. Они познакомились в реабилитации. По правилам им нужно держаться подальше друг от друга, если они хотят оставаться трезвыми. Но чувства, вспыхнувшие между ними, не дают им этого сделать. Они срывались, расставались, искали счастье с другими, но чем дальше убегали от любви, тем больше их тянуло друг к другу. (   Читать дальше...   )Производство: Россия, START, Yellow, Black & WhiteЖанр: мелодрама, драмаРежиссер: Антон МегердичевАктеры: Любовь Аксёнова, Денис Шведов, Наталья Рогожкина, Анастасия Лапина, Петар Зекавица, Эра Зиганшина, Сергей ЛанбаминПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EB3B921917EE6ECD430378C2CE934AE9489AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437864   (1041657) от 06.01.2021
+
+Муха (2008) WEBRip [H.264/720p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Водитель-дальнобойщик Федор Мухин - закоренелый холостяк. Женщины его любят, а он и помнит-то далеко не всех, с кем его свела судьба. Не помнит и учительницу Машу из маленького уральского городка, от которой однажды получает телеграмму с просьбой срочно приехать. Что-то заставляет Федора откликнуться...Производство: Россия / ТвиндиЖанр: ДрамаРежиссер: Владимир КоттАктеры: Александра Тюфтей, Алексей Кравченко, Сергей Селин, Евгения Добровольская, Екатерина Чебышева, Денис Демин, Ольга Лапшина, Евгения Пресникова, Алексей Ярмилко, Александра БоговаяСубтитры: РусскиеПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB11231AD7B38088F627088679F764082BD826D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596352   (1041572) от 10.02.2023
 
 ...и будет дочь (2021) WEBRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041572.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041514.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041434.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041395.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041298.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041284.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041023.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041006.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040985.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040958.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040766.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040742.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040702.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040237.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040210.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040098.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039489.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039471.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038910.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038790.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038786.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEF392CE15A3C5E0E336E584B441F88ED342A94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209198   (1038701) от 21.02.2023
-
-Отставник. Позывной «бродяга» (2017) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подполковник на пенсии Юрий Жуковский — холостяк со стажем, уже давно привык к одиночеству и рутинной жизни. Привычное однообразие рушится, когда он неожиданно встречает бывшего начальника — генерала Терентьева, который отправляет его, бывшего командира спецназа, с заданием в военную часть города Зареченска. Там Юрию предстоит разобраться в обстоятельствах трагедии (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: Боевик, криминалРежиссер: Александр ЯкимчукАктеры: Игорь Бочкин, Анна Табанина, Леонид Ворон, Александр Аравушкин, Алексей Байдаков, Роман Агеев, Екатерина Кукуй, Владимир Петров, Артур ХаритоненкоПеревод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C88735C1A4C58A065C16F81EF55F03F4899FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440096   (1038622) от 17.01.2021
-
-#c_училища (2020) WEB-DL [H.264/720p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная студентка Танька из рабочего района влюбляется в преподавателя – интеллигентного Сережу, мечтающего уехать в Москву от серости провинциального города. Сережа поздно понимает, что за девушка перед ним, и что его мечтам уже не суждено сбыться.Производство: Россия / Студия Павла ЛунгинаЖанр: ДрамаРежиссер: Анна СаяннаяАктеры: Анастасия Куимова, Василий Михайлов, Иван Макаревич, Антон Момот, Александр Числов, Елена МорозоваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4BA59E2BD9D208326837BD574DE69EB1D2FF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440289   (1038616) от 17.01.2021
-
-Реальные пацаны против зомби (2020) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Пермь завезли древний коми-пермяцкий вирус, который постепенно превращает жителей в зомби. Спустя год город оцеплен военными, учёные пытаются найти вакцину. Самолёты скидывают продовольствие. Но герои, как и остальные жители Перми, приспособились к новой реальности. Они живут обычной жизнью: ходят в кафе, занимаются бизнесом, строят планы на будущее и пытаются (   Читать дальше...   )Производство: Россия / Good Story Media, ТНТЖанр: Комедия, фантастикаРежиссер: Жанна КадниковаАктеры: Николай Наумов, Зоя Бербер, Валентина Мазунина, Станислав Тляшев, Марина Федункив, Игорь Ознобихин, Владимир Селиванов, Армен Бежанян, Мария Скорницкая, Алексей БазановПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB9AEAB997DBD094BDCE8EEC0FDE1E0B3C61D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614889   (1038309) от 23.02.2023
-
-Болтун (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038309.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о человеке, который не может отпустить прошлое. И в настоящем для него места нет.Производство: Россия / МедиаточкаЖанр: Короткометражный, драма, криминалРежиссер: Роман Соболев, Андрей ГоловинАктеры: Роман Соболев, Дмитрий Худяков, Дмитрий Канев, Антон АнтоновСубтитры: отсутствуютПродолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3443E68419B2E61843243A633F4989CB4771A271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440707   (1038145) от 19.01.2021
-
-Реальные пацаны против зомби (2020) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038145.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Пермь завезли древний коми-пермяцкий вирус, который постепенно превращает жителей в зомби. Спустя год город оцеплен военными, учёные пытаются найти вакцину. Самолёты скидывают продовольствие. Но герои, как и остальные жители Перми, приспособились к новой реальности. Они живут обычной жизнью: ходят в кафе, занимаются бизнесом, строят планы на будущее и пытаются (   Читать дальше...   )Производство: Россия / Good Story Media, ТНТЖанр: Комедия, фантастикаРежиссер: Жанна КадниковаАктеры: Николай Наумов, Зоя Бербер, Валентина Мазунина, Станислав Тляшев, Марина Федункив, Игорь Ознобихин, Владимир Селиванов, Армен Бежанян, Мария Скорницкая, Алексей БазановПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29533A5B2FA57D26800AEA1661803CF727FECF53
 ```
 
 https://mybot314.ru/tekegram_catalog/

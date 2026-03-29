@@ -6,7 +6,7 @@ ABBA - Voyage (2021) [AAC|~325 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798403.jpg" />
+  <img src="Z:/picture/008/save_picture_798403.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Midnight Hours: Urban Chillout Vibes (2021) [AAC|~301 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798318.jpg" />
+  <img src="Z:/picture/008/save_picture_798318.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Urban City Vibes, vol. 7 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798317.jpg" />
+  <img src="Z:/picture/008/save_picture_798317.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Havana Highway: Urban Chillout Vibes (2021) [AAC|~319 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798315.jpg" />
+  <img src="Z:/picture/008/save_picture_798315.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Urban City Vibes, vol. 8 (Urban Funk, Soul and Lounge Music) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798312.jpg" />
+  <img src="Z:/picture/008/save_picture_798312.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jean‐Michel Jarre - Welcome To The Other Side - Live in Notre-Dame VR (2021) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798275.jpg" />
+  <img src="Z:/picture/008/save_picture_798275.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Luxury Lounge Sunset, Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798171.jpg" />
+  <img src="Z:/picture/008/save_picture_798171.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Best Sound of Chill & Lounge 2021 – Winter Edition (2021) [AAC|~312 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798170.jpg" />
+  <img src="Z:/picture/008/save_picture_798170.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Best Sound of Chill & Lounge 2021 - Summer Edition (2021) [AAC|~307 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798169.jpg" />
+  <img src="Z:/picture/008/save_picture_798169.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Luxury Buddha Lounge, Vol. 1 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798168.jpg" />
+  <img src="Z:/picture/008/save_picture_798168.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (202
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798161.jpg" />
+  <img src="Z:/picture/008/save_picture_798161.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (201
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798155.jpg" />
+  <img src="Z:/picture/008/save_picture_798155.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (201
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798153.jpg" />
+  <img src="Z:/picture/008/save_picture_798153.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Luxury Buddha Lounge, Vol. 3 (2014) [AAC|~319 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798151.jpg" />
+  <img src="Z:/picture/008/save_picture_798151.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Chill Out Nation, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798150.jpg" />
+  <img src="Z:/picture/008/save_picture_798150.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Luxury Buddha Lounge, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798149.jpg" />
+  <img src="Z:/picture/008/save_picture_798149.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Café De La Cita, Vol. 5 (Jazzy Bar Lounge & Chill out Tunes to Relax) (202
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798148.jpg" />
+  <img src="Z:/picture/008/save_picture_798148.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chill Out Nation, Vol. 2 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798145.jpg" />
+  <img src="Z:/picture/008/save_picture_798145.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - 50 Italian Standards, vol. 2 (2020) [AAC|~318 Kbps] <Nu Jazz, Lounge, Easy 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798144.jpg" />
+  <img src="Z:/picture/008/save_picture_798144.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - 50 Italian Standards, vol. 3 (2021) [AAC|~316 Kbps] <Nu Jazz, Lounge, Easy 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798142.jpg" />
+  <img src="Z:/picture/008/save_picture_798142.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - 50 Italian Standards, vol. 1 (2018) [AAC|~326 Kbps] <Nu Jazz, Lounge, Easy 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798138.jpg" />
+  <img src="Z:/picture/008/save_picture_798138.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798122.jpg" />
+  <img src="Z:/picture/008/save_picture_798122.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Electric Light Orchestra - ELO 50th Anniversary Vol. 1 (2021) [AAC|~342 Kbps] <R
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798115.jpg" />
+  <img src="Z:/picture/008/save_picture_798115.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798019.jpg" />
+  <img src="Z:/picture/008/save_picture_798019.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798018.jpg" />
+  <img src="Z:/picture/008/save_picture_798018.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798017.jpg" />
+  <img src="Z:/picture/008/save_picture_798017.jpg" />
 </div>
 
 

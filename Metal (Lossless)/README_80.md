@@ -1,3 +1,90 @@
+###  Публикация: 1122873   (793708) от 06.04.2017
+
+SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nights All Nine (02:37)
+2. Midwinter Sacrifice (05:37)
+3. Blood of the North (07:35)
+4. Black Sun's Bane (05:02)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7772AE1C5637DBDDB1A4B64AC7525460733976E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122875   (793707) от 06.04.2017
+
+SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793707.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. King Of The World (09:33)
+2. Beyond The North Winds (08:21)
+3. Pale Autumnal Moon (03:08)
+4. Under The Mountain (09:16)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E1A647190293E16291FE89DEBAEBF06CE06DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201075   (793702) от 23.01.2018
+
+Metallica - Load (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Load — вышел в 1996 г, за год ранее альбома01. Ain't My Bitch (5:04)
+ 02. 2 X 4 (5:28)
+ 03. The House Jack Built (6:39)
+ 04. Until It Sleeps (4:28)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0038588459708516CDEB3FE4936A3CB4FDD92DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386556   (793629) от 30.05.2020
 
 Earthside - A Dream in Static (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Earthside - A Dream in Static (2015) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793629.jpg" />
+  <img src="Z:/picture/008/save_picture_793629.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Crest - Letters From Fire (2002) [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793623.jpg" />
+  <img src="Z:/picture/008/save_picture_793623.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Blaze Bayley - Endure And Survive (Infinite Entanglement Part II) (2017) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793620.jpg" />
+  <img src="Z:/picture/008/save_picture_793620.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ SIG:AR:TYR - The Stranger (2003) [FLAC|Lossless|WEB-DL|tracks] <Epic Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793619.jpg" />
+  <img src="Z:/picture/008/save_picture_793619.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Devilment - II - The Mephisto Waltzes (2016) [FLAC|Lossless|image + .cue] <Extre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793378.jpg" />
+  <img src="Z:/picture/008/save_picture_793378.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Dead by April - 3 альбома (2009-2014) Дискография [FLAC|image+
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793104.jpg" />
+  <img src="Z:/picture/008/save_picture_793104.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793057.jpg" />
+  <img src="Z:/picture/008/save_picture_793057.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ The Ocean - Phanerozoic I: Palaeozoic (2018) Limited Edition 2CD [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793052.jpg" />
+  <img src="Z:/picture/008/save_picture_793052.jpg" />
 </div>
 
 
@@ -233,7 +320,7 @@ Disbeliever - Archetype (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792977.jpg" />
+  <img src="Z:/picture/008/save_picture_792977.jpg" />
 </div>
 
 
@@ -262,7 +349,7 @@ Armored Dawn - Power of Warrior (2016) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792975.jpg" />
+  <img src="Z:/picture/008/save_picture_792975.jpg" />
 </div>
 
 
@@ -291,7 +378,7 @@ Xiphea - Witchcraft (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Femal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792968.jpg" />
+  <img src="Z:/picture/008/save_picture_792968.jpg" />
 </div>
 
 
@@ -320,7 +407,7 @@ Archspire - 4 Studio Albums (2011-2021) 4xCD [WavPack|Lossless|image + .cue] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792902.jpg" />
+  <img src="Z:/picture/008/save_picture_792902.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Black Label Society - Grimmest Hits (2018) [FLAC|Lossless|image + .cue] <Souther
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792869.jpg" />
+  <img src="Z:/picture/008/save_picture_792869.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Motorhead - Under Cover (2017) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792771.jpg" />
+  <img src="Z:/picture/008/save_picture_792771.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Otargos - Ten-Eyed Nemesis (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792680.jpg" />
+  <img src="Z:/picture/008/save_picture_792680.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Katatonia - City Burials (2020) Limited Edition [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792587.jpg" />
+  <img src="Z:/picture/008/save_picture_792587.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Lione/Conti - Lione/Conti (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792226.jpg" />
+  <img src="Z:/picture/008/save_picture_792226.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Paradoxx - Plan Of Attak - The Complete Worxx (1985) Compilation, Limited Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792154.jpg" />
+  <img src="Z:/picture/008/save_picture_792154.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791720.jpg" />
+  <img src="Z:/picture/008/save_picture_791720.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
+  <img src="Z:/picture/008/save_picture_791719.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
+  <img src="Z:/picture/008/save_picture_791717.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791716.jpg" />
+  <img src="Z:/picture/008/save_picture_791716.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791715.jpg" />
+  <img src="Z:/picture/008/save_picture_791715.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275036   (791714) от 09.01.2019
-
-VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tortuga - Hell's Red Roads (03:25)
-02. Sylosis - Visions of Demise (04:26)
-03. Romeo Must Die - Who Died and Made You God (03:19)
-04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275042   (791713) от 09.01.2019
-
-Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peeled Back Organs (3:57)
- 02. Embalmed in Perservatives (3:10)
- 03. Slime (3:36)
- 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274838   (791712) от 09.01.2019
-
-Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth of the Universe
-02. Moonchild
-03. Surveillance Society
-04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
 ```
 
 https://mybot314.ru/tekegram_catalog/

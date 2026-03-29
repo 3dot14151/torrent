@@ -1,3 +1,108 @@
+###  Публикация: 1691525   (123257) от 12.01.2024
+
+Money Pro - Personal Finance 2.10.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2024Разработчик: © 2015-2023 iBear LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0D7C92A0B9B4C129E4B23C46F157CDF4ADF2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691521   (123250) от 12.01.2024
+
+Path Finder 2166 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2024Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFDB934288BDC9EDFA6110A73F2E7B29765636C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691638   (123112) от 13.01.2024
+
+Navicat Premium 16.3.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E311289051C86623F85036A056887BFDCD34AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691621   (123108) от 13.01.2024
+
+Wondershare PDFelement Pro OCR 10.2.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123108.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2024Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EAF70A3EF12F66C34181C4989016C595F44F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691633   (123107) от 13.01.2024
 
 Little Snitch 5.7.2 [Multi]
@@ -6,7 +111,7 @@ Little Snitch 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123107.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ SiteSucker Pro 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123093.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Pixelmator Pro 3.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123083.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Proxyman for Mac 4.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123059.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Boxy SVG 4.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123052.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ SiteSucker 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123051.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Noir – Dark Mode for Safari 2024.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123048.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ MarsEdit 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123047.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122958.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ Ableton Live Suite 11 v.11.3.20 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122943.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Bookends 14.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122914.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Ghost Buster Pro 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122902.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Navicat Data Modeler Essentials for Mac 3.3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122900.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ Find Any File (FAF) 2.4.2b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122895.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ Navicat for Oracle on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122880.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ Text Workflow 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122879.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122878.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ Navicat for Redis on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122877.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ DaisyDisk 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122770.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ KCNcrew Pack 01-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122752.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ HitPaw Watermark Remover for Mac 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122750.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ Magic Disk Cleaner 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122747.jpg" />
 </div>
 
 
@@ -575,114 +680,6 @@ Magic Disk Cleaner находит и удаляет временные файл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F9DEFFDB3CBAEB45CE0909146DD06BBEBB720A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692146   (122714) от 15.01.2024
-
-FxFactory Pro 8.0.12 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122714.jpg" />
-</div>
-
-
-###  Подробнее
-
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2024Разработчик: © 2022 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5.1 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55C338F8990C724E99A628AF16AD2AAB34410B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692278   (122713) от 15.01.2024
-
-Serial Box & SerialSeeker 01-2024 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122713.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial.
-В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.01.2024Разработчик: ©2002-2021 The Three MonkeysПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D689C6A6F59CE5B90838FE317AFE9CCFF151DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692238   (122712) от 15.01.2024
-
-iShowU Studio 2 v.2.3.13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
-iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени. iShowU (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2023Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17DDAE297C09E1D54639474B53A579594FAE63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692236   (122711) от 15.01.2024
-
-EasyGantt Classic  4.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая сильная сторона EasyGantt - это простота и надежность. Вы можете создавать диаграммы Ганта, не ломая голову. Мы сосредоточим наше внимание на функциях, которые на самом деле используют большинство менеджеров проектов. Кроме того, сгенерированные диаграммы визуально привлекательны. Одна картинка стоит тысячи слов.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2023Разработчик: © 2023 xProline LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FEA34F4B061B6351DCB8AE4CE3BF1FE82D0339
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ TextMate 2 v2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837794.jpg" />
+  <img src="Z:/picture/008/save_picture_837794.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ GroupsPro 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837793.jpg" />
+  <img src="Z:/picture/008/save_picture_837793.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Boxy SVG 3  v3.37.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837792.jpg" />
+  <img src="Z:/picture/008/save_picture_837792.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ WinNTSetup 5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837770.jpg" />
+  <img src="Z:/picture/008/save_picture_837770.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Windows 10 Manager 3.5.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837765.jpg" />
+  <img src="Z:/picture/008/save_picture_837765.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ KMSAuto Lite 1.5.9 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837760.jpg" />
+  <img src="Z:/picture/008/save_picture_837760.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Stardock Groupy 1.50 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837756.jpg" />
+  <img src="Z:/picture/008/save_picture_837756.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Icecream Ebook Reader 3.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837746.jpg" />
+  <img src="Z:/picture/008/save_picture_837746.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837745.jpg" />
+  <img src="Z:/picture/008/save_picture_837745.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ xrecode II 1.0.0.231 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837736.jpg" />
+  <img src="Z:/picture/008/save_picture_837736.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.1 (Complete) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837734.jpg" />
+  <img src="Z:/picture/008/save_picture_837734.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Teenage Mutant Ninja Turtles: Return of the Shredder 1.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837733.jpg" />
+  <img src="Z:/picture/008/save_picture_837733.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837728.jpg" />
+  <img src="Z:/picture/008/save_picture_837728.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837712.jpg" />
+  <img src="Z:/picture/008/save_picture_837712.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PDFpenPro 12 v12.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837710.jpg" />
+  <img src="Z:/picture/008/save_picture_837710.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Movie Thumbnails Maker 2 v3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837706.jpg" />
+  <img src="Z:/picture/008/save_picture_837706.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837704.jpg" />
+  <img src="Z:/picture/008/save_picture_837704.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ DVDFab 8.0.8.3 Final [Multi/Rus] + Portable "PortableAppz"
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837698.jpg" />
+  <img src="Z:/picture/008/save_picture_837698.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837689.jpg" />
+  <img src="Z:/picture/008/save_picture_837689.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837687.jpg" />
+  <img src="Z:/picture/008/save_picture_837687.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837675.jpg" />
+  <img src="Z:/picture/008/save_picture_837675.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837672.jpg" />
+  <img src="Z:/picture/008/save_picture_837672.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Office 2013-2021 C2R Install + Lite 7.3.4 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837645.jpg" />
+  <img src="Z:/picture/008/save_picture_837645.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837642.jpg" />
+  <img src="Z:/picture/008/save_picture_837642.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Auslogics BoostSpeed 12.2.0.0 (DC 04.10.2021) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837638.jpg" />
+  <img src="Z:/picture/008/save_picture_837638.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ W10 Digital Activation 1.4.2 by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837636.jpg" />
+  <img src="Z:/picture/008/save_picture_837636.jpg" />
 </div>
 
 

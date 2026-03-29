@@ -6,7 +6,7 @@ Beethoven - Symphonies and Overtures (Jos Van Immerseel & Anima Eterna Orchestra
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479691.jpg" />
+  <img src="Z:/picture/008/save_picture_479691.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Мировая Классика в современной обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477934.jpg" />
+  <img src="Z:/picture/008/save_picture_477934.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - The Musicals Album (2017) [MP3|320 Kbps] <Classical, Soundtrack>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477841.jpg" />
+  <img src="Z:/picture/008/save_picture_477841.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Biber - Missa Bruxellensis (Jordi Savall) (1999) [FLAC|Lossless|image + .cue] <C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475074.jpg" />
+  <img src="Z:/picture/008/save_picture_475074.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474869.jpg" />
+  <img src="Z:/picture/008/save_picture_474869.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473527.jpg" />
+  <img src="Z:/picture/008/save_picture_473527.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Новая и Старая Классика (2012) [MP3|320 кб/с]<Нео
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471087.jpg" />
+  <img src="Z:/picture/008/save_picture_471087.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gabor Boldoczki - Oriental Trumpet Concertos (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470697.jpg" />
+  <img src="Z:/picture/008/save_picture_470697.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Frederic Chopin (Artur Rubinstein) - The Chopin Collection (1991) [MP3|320 Kbps]
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470400.jpg" />
+  <img src="Z:/picture/008/save_picture_470400.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 300% Classic In Rock (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vocal
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469262.jpg" />
+  <img src="Z:/picture/008/save_picture_469262.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Classico: Klassik mit Popstars (1999) [FLAC|Lossless|image + .cue] <Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469099.jpg" />
+  <img src="Z:/picture/008/save_picture_469099.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468897.jpg" />
+  <img src="Z:/picture/008/save_picture_468897.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mozart - Symphony Nos. 38 & 39 (Alexander Schneider & Chamber Orchestra of Europ
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467021.jpg" />
+  <img src="Z:/picture/008/save_picture_467021.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Humperdinck - Sleeping Beauty No1-5; Die Maurische Rhapsodie (Martin Fischer-Die
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464768.jpg" />
+  <img src="Z:/picture/008/save_picture_464768.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464766.jpg" />
+  <img src="Z:/picture/008/save_picture_464766.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Brahms - Ein deutsches Requiem (John Eliot Gardiner & Orchestre Revolutionnaire 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464764.jpg" />
+  <img src="Z:/picture/008/save_picture_464764.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Beethoven - Piano Sonatas Nos.26, 27 & 29 (Solomon Cutner) (2000) [FLAC|image +.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464759.jpg" />
+  <img src="Z:/picture/008/save_picture_464759.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Лучшая музыка против стресса #100 (2012) [MP3|224 
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459664.jpg" />
+  <img src="Z:/picture/008/save_picture_459664.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Il Volo with Placido Domingo - Notte Magica - A Tribute To The Three Tenors (201
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459362.jpg" />
+  <img src="Z:/picture/008/save_picture_459362.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Corrette - Concertos for Organ and Orchestra (Rene Saorgin & Ensemble Baroque De
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457969.jpg" />
+  <img src="Z:/picture/008/save_picture_457969.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Horowitz - Plays Hydn & Clementi (Vladimir Horowitz) (2003) [FLAC|image +.cue]<C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457967.jpg" />
+  <img src="Z:/picture/008/save_picture_457967.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Wolfgang Amadeus Mozart-Klarinettenkonzert A-dur KV 622 & Sinfonia concertante E
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457832.jpg" />
+  <img src="Z:/picture/008/save_picture_457832.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Schumann - Kinderszenen, Fantaisie, Arabeske (Vladimir Horowitz) (2003) [FLAC|im
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457818.jpg" />
+  <img src="Z:/picture/008/save_picture_457818.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Rachmaninov - Transcriptions for Orchestra (Neeme Jarvi & Detroit Symphony Orche
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457812.jpg" />
+  <img src="Z:/picture/008/save_picture_457812.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Bach, Scarlatti, Mozart - Piano works (Vladimir Horowitz) (2003) [FLAC|image +.c
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457646.jpg" />
+  <img src="Z:/picture/008/save_picture_457646.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Nils Frahm - Old Friends New Friends (2021) 2xCD [FLAC|Lossless|tracks + .cue] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457445.jpg" />
+  <img src="Z:/picture/008/save_picture_457445.jpg" />
 </div>
 
 

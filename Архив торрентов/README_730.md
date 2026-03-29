@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887791.jpg" />
+  <img src="Z:/picture/005/save_picture_887791.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ O&O Defrag Professional 19.5 Build 222 RePack by Zhmak [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887784.jpg" />
+  <img src="Z:/picture/005/save_picture_887784.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887779.jpg" />
+  <img src="Z:/picture/005/save_picture_887779.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887774.jpg" />
+  <img src="Z:/picture/005/save_picture_887774.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887749.jpg" />
+  <img src="Z:/picture/005/save_picture_887749.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DaisyDisk 4.21.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887740.jpg" />
+  <img src="Z:/picture/005/save_picture_887740.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood - Blind Alchemist; S
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887730.jpg" />
+  <img src="Z:/picture/005/save_picture_887730.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ LuLu 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887720.jpg" />
+  <img src="Z:/picture/005/save_picture_887720.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mirror for Sony TV 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887705.jpg" />
+  <img src="Z:/picture/005/save_picture_887705.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FBackup 9.2.405 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887696.jpg" />
+  <img src="Z:/picture/005/save_picture_887696.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887660.jpg" />
+  <img src="Z:/picture/005/save_picture_887660.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Trance 100 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887654.jpg" />
+  <img src="Z:/picture/005/save_picture_887654.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Mobthrow - Discography 4 Releases (2009-2014) [MP3|320 кб/с]<Dubstep, Breaks,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887615.jpg" />
+  <img src="Z:/picture/005/save_picture_887615.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Bandizip 7.19 Build 43923 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887608.jpg" />
+  <img src="Z:/picture/005/save_picture_887608.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887606.jpg" />
+  <img src="Z:/picture/005/save_picture_887606.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887605.jpg" />
+  <img src="Z:/picture/005/save_picture_887605.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Mozilla FireFox 92.0.0.7916 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887595.jpg" />
+  <img src="Z:/picture/005/save_picture_887595.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Manuel Le Saux - Destiny (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887586.jpg" />
+  <img src="Z:/picture/005/save_picture_887586.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PassMark PerformanceTest 10.1 Build 1004 RePack (& Portable) by elchupacabra [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887584.jpg" />
+  <img src="Z:/picture/005/save_picture_887584.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Firefox Browser 91.1.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887572.jpg" />
+  <img src="Z:/picture/005/save_picture_887572.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Firefox Browser 92.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887563.jpg" />
+  <img src="Z:/picture/005/save_picture_887563.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ K-Lite Codec Pack Update 16.4.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887555.jpg" />
+  <img src="Z:/picture/005/save_picture_887555.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ TagScanner 6.1.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887551.jpg" />
+  <img src="Z:/picture/005/save_picture_887551.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887541.jpg" />
+  <img src="Z:/picture/005/save_picture_887541.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Opera GX 78.0.4093.214 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887529.jpg" />
+  <img src="Z:/picture/005/save_picture_887529.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887526.jpg" />
+  <img src="Z:/picture/005/save_picture_887526.jpg" />
 </div>
 
 

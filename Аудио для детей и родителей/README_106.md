@@ -1,3 +1,81 @@
+###  Публикация: 1749513   (104338) от 14.09.2024
+
+Эрхард Дитль | Огрики и жабечательный Новый год (2022) [MP3, Оксана Архиреева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все в Грязьбурге готовятся к празднованию Нового года. Все, кроме огриков, потому что они раньше и не слышали о таком празднике! Но как только огрики узнают, что Новый год — это ярмарки, поделки и веселье, они уже не могут остаться в стороне — ведь всё это так по-огриковски! И хотя по вине горожан зелёная семейка чуть не оказывается за решёткой в новогоднюю ночь, (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Мария ШалуноваИздательство: Альпина ДиджиталПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBAB69DB58C436E7A52AB63C4C3B945309D9013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749583   (104292) от 15.09.2024
+
+Владислав Крапивин | Мальчик со шпагой (2019) [MP3, Иван Забелин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104292.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мальчик со шпагой» – роман-трилогия современного российского писателя Владислава Крапивина. В романе описывается становление личности шестиклассника Серёжи Каховского, характер которого крепнет на глазах читателя. Серёжа встает на защиту справедливости, проходит тяжёлые испытания, учится не задумываясь совершать смелые поступки и делать правильный выбор между честью (   Читать дальше...   )Жанр: детские приключения, советская классикаИздательство: АРДИСПродолжительность: 13:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAC2158D2272F14AFB3506F7233AB003FC8B7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750966   (104124) от 22.09.2024
+
+Екатерина Боронина | Рассказы звериного доктора (2012) [MP3, Александр Котов, Александр Бордуков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Про детского писателя Екатерину Боронину известно не так много. Родилась в Ленинграде в 1907 году, училась в Ленинградском Государственном Университете, сотрудничала с детским журналом «Ёж», а также с молодежной газетой «Смена». Автор нескольких повестей и сборников рассказов для детей. Вот, пожалуй, и все. Но, наверное, самое главное, это не сухие факты биографии, (   Читать дальше...   )Жанр: Детская литератураИздательство: СОЮЗПродолжительность: 02:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02FE55817281CDF207F741BB74512D493608D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752643   (103904) от 01.10.2024
 
 Даниэль Дефо | Робинзон (Мюзикл) (2010) [MP3, Леонид Каневский, Вячеслав Богачёв]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103904.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103672.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103667.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Various Artists - Lullabies For Little People (Колыбельные для м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103163.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102675.jpg" />
 </div>
 
 
@@ -144,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102447.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102418.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102162.jpg" />
 </div>
 
 
@@ -232,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102025.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102020.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101967.jpg" />
 </div>
 
 
@@ -317,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101800.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99431.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98967.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98366.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96378.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96346.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91176.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91173.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91165.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91164.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90888.jpg" />
 </div>
 
 
@@ -617,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90828.jpg" />
 </div>
 
 
@@ -631,105 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB78EDB647750CE73D70DDC3A6F1F3CFC95217B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487900   (90741) от 25.04.2012
-
-VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Детская музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник песен для малышей. 172 лучших композиций в исполнении Григория Гинзбурга, Я.Флиера, Инструментального ансамбля под управлением Г.Богдановича, Оркестра народных инструментов под управлением В.Федосеева и многих других.
-
-Этот диск станет лучшим подарком для будущих мам, родителей и, конечно же, для малышей, которые приобщаться к народному творчеству, классическим произведениям, к творчеству народов мира и т.д01. А. Зайцев, В. Астрова - Кошкино пальто
-02. Детский вокальный ансамбль - Блин с горчицей
-03. Детский вокальный ансамбль - Весёлые котята
-04. Детский вокальный ансамбль - Курочка-рябушечка
-05. Детский вокальный ансамбль - Расплата
-06. И. Банковский, В. Астрова, С. Бокаев - Патока с имбирём
-07. О. Борисова, Н. Жеренков, В. Астрова - Как на тоненький ледок
-08. П. Любимцев, Г. Арзамасова, В. Астрова - Только мама…
-09. П. Любимцев, Н. Жеренков, В. Астрова - Дядя Вася и утюг
-10. Т. Белякова, В. Астрова - Весёлая пастушка(   Читать дальше...   )2008Жанр: Детская музыкаПродолжительность: 00:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486831   (90670) от 25.04.2012
-
-Русские народные сказки | Петушок и бобовое зернышко [2005] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство "Весть-ТДА" совместно со звукозаписывающей фирмой "РМГ Рекордз" представляет серию детских сказок. В сказках и радиопостановках задействованы лучшие актеры московских театров и кино.
-Прекрасный подарок детям и их родителям.Содержание:
-Петушок и Бобовое зернышко (00:59:59)
-1. Теремок (Обр. Е. Чарушин)
-2. Девочка-снегурочка (Обр. В. Даль)
-3. Почему сова мышей ловит (Обр. Г. Науменко)
-4. Петушок и бобовое зернышко (Обр. О. Капица)
-5. Ворона (Обр. В. Даль)
-6. Лиса и козел (Обр. К. Ушинский)
-7. Мороз и заяц (Обр Г. Науменко)
-8. Лиса и заяц (Обр. В. Даль)(   Читать дальше...   )Жанр: русские народные сказкиПродолжительность: 05:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A73AF1E6E4B63BF27C3D65D5950004183FDE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487497   (90660) от 25.04.2012
-
-Катя Матюшкина; Катя Оковитая | Носки врозь! [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящим сыщикам всегда найдется дело. Днем и ночью, в любое время года неутомимые Фу-Фу и Кис-Kис не знают покоя. А в лесу опять произошло преступление. У крота похищен недавно найденный клад. Невзирая на очевидные опасности, герои берутся за расследование. И, как оказываете не они одни... В Лесу появился еще один сыщик - Кролик. А он, как вы понимаете, тот еще (   Читать дальше...   )Жанр: детский детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

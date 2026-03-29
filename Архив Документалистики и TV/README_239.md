@@ -1,3 +1,159 @@
+###  Публикация: 943004   (447573) от 04.10.2015
+
+Футбол. Лига Европы 2015-16. Группа C. 2 тур. ПАОК (Греция) – Боруссия Д (Германия) (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Групповой этап Лиги Европы Группа C. 2 тур. ПАОК (Греция) – Боруссия Д (Германия).Телекомпания: НТВ+, Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:56:11 + 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CFC5FC9E4839FB4D2709D4693A19B1490D488F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943514   (447572) от 04.10.2015
+
+Футбол. Чемпионат России 2015-2016. 11 тур. РФПЛ. Кубань - Анжи (2015) IPTV [H.264/720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016, 11 тур Кубань - Анжи.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:07:55 + 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1ED8275CE14CAF80050880AF18D875230C6EDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943463   (447571) от 04.10.2015
+
+Футбол. Чемпионат России 2015-2016. 11 тур. РФПЛ. Мордовия - Спартак (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016, 11 тур. Мордовия - Спартак.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 02:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15E85039A6DEE49FEACF535C08A6C9AF8D41253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943194   (447570) от 04.10.2015
+
+Обзор. Полный Обзор Матчей. Лига Европы 2015-16. 2-й тур. (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный обзор игр группового этапа Лиги Европы 2015-16.Телекомпания: НТВ+, Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E79C8121C249C6A3C56260DD2AF5CFEE5A8295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943510   (447476) от 04.10.2015
+
+Футбол. Чемпионат Испании 2015-16. 7 тур. Liga BBVA. Севилья – Барселона (2015) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2015-16, Liga BBVA. 6 тур. Севилья – Барселона.Телекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:30 + 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F814B7811A6FFDE70F984E0BD1D0BA6D41C365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943470   (447475) от 04.10.2015
+
+Футбол. Чемпионат России 2015-2016. 11 тур. РФПЛ. Зенит - Ростов (2015) IPTV [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016, 11 тур. Зенит - Ростов.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаФормат: TSПродолжительность: 01:09:36 + 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D8FED572BABFCE22CEEFB0E01227DFE04561A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943714   (447474) от 04.10.2015
 
 Воскресное время - Первый канал (04.10.2015) SATRip
@@ -6,7 +162,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447474.jpg" />
+  <img src="Z:/picture/008/save_picture_447474.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447464.jpg" />
+  <img src="Z:/picture/008/save_picture_447464.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447463.jpg" />
+  <img src="Z:/picture/008/save_picture_447463.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447457.jpg" />
+  <img src="Z:/picture/008/save_picture_447457.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446767.jpg" />
+  <img src="Z:/picture/008/save_picture_446767.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446764.jpg" />
+  <img src="Z:/picture/008/save_picture_446764.jpg" />
 </div>
 
 
@@ -168,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446357.jpg" />
+  <img src="Z:/picture/008/save_picture_446357.jpg" />
 </div>
 
 
@@ -197,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446356.jpg" />
+  <img src="Z:/picture/008/save_picture_446356.jpg" />
 </div>
 
 
@@ -226,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446200.jpg" />
+  <img src="Z:/picture/008/save_picture_446200.jpg" />
 </div>
 
 
@@ -255,7 +411,7 @@ NG: Гиганты мира животных (1 сезон: 3 серии из 3)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446104.jpg" />
+  <img src="Z:/picture/008/save_picture_446104.jpg" />
 </div>
 
 
@@ -281,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445507.jpg" />
+  <img src="Z:/picture/008/save_picture_445507.jpg" />
 </div>
 
 
@@ -310,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445337.jpg" />
+  <img src="Z:/picture/008/save_picture_445337.jpg" />
 </div>
 
 
@@ -338,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445208.jpg" />
+  <img src="Z:/picture/008/save_picture_445208.jpg" />
 </div>
 
 
@@ -364,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444903.jpg" />
+  <img src="Z:/picture/008/save_picture_444903.jpg" />
 </div>
 
 
@@ -393,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444782.jpg" />
+  <img src="Z:/picture/008/save_picture_444782.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444308.jpg" />
+  <img src="Z:/picture/008/save_picture_444308.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ NG: Жизнь до рождения. В утробе матери. Близне
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_444239.jpg" />
+  <img src="Z:/picture/005/save_picture_444239.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444145.jpg" />
+  <img src="Z:/picture/008/save_picture_444145.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ NG: Жизнь до рождения. В утробе матери. Челове
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_444050.jpg" />
+  <img src="Z:/picture/005/save_picture_444050.jpg" />
 </div>
 
 
@@ -532,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443606.jpg" />
+  <img src="Z:/picture/008/save_picture_443606.jpg" />
 </div>
 
 
@@ -547,162 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B045383BBA1FB4368EDA873A18CAFB7BC8ACACF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553212   (443600) от 28.09.2012
-
-В ожидании конца света (4 эпизод) Назад в каменный век / Doomsday Preppers (episode 4) Back to the Stone Age (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как бы вы стали готовиться к концу света? Мы познакомимся с обыкновенными во всем остальном американцами, которые начали приготовления к крушению нашей цивилизации, и узнаем об их необычных взглядах, мотивах и стратегиях выживания. От бункеров до изолированных укрепленных жилищ, эти «выживальщики» не остановятся ни перед чем, чтобы во всеоружии встретить любые катаклизмы. Но всё ли они сделали для этого? Наши эксперты оценят их готовность и выяснят, каковы же реальные шансы этих людей на выживание, если их самые худшие страхи оправдаются.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 0:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213171115E30D521A6A0775DDE33FC36F30A08A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124041   (443394) от 08.09.2017
-
-Быстрые и громкие / Fast N' Loud (2017) HDTVRip [H.264/1080i-LQ] (Сезон 12, Серии 1,6-9, Bonus из 10+Bonus) [AD]
-
->>След.
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь с Ричардом Роулинсом. У него нюх на выгодные сделки, глаз-алмаз что касается машин и язык без костей. И с Аароном Кауфманом - самый выдающийся механик на планете. Нет такой машины, которую он не разобрал бы и не собрал заново за очень короткое время. Они вместе владеют гаражом Gas Monkey в Далласе (штат Техас). Что они делают? Тюнингуют машины за деньги, (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, автомобилиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: серий по ~00:43:00Реклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6245F5C40958CE284F0FB30658D212A8310CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943822   (443241) от 06.10.2015
-
-Футбол. Чемпионат Германии 2015-16. Bundes Liga. 8 тур. Боруссия М – Вольфсбург (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Германии 2015-16, 8 тур. Боруссия М – Вольфсбург.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678E84F8109425D83BF2519D6F6D2EC4A1DD126C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943861   (443240) от 06.10.2015
-
-Футбол. Чемпионат Испании 2015-16. 7 тур. Liga BBVA. Атлетик Б – Валенсия (2015) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Испании 2015-16, Liga BBVA. 7 тур. Атлетик Б – Валенсия.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:50:35 + 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E876CB9C5C6DA5C61809F44427747B7E9436B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943839   (443239) от 06.10.2015
-
-Футбол. Чемпионат Голландии 2015-16. Eredivisie. 8 тур. Аякс – ПСВ (2015) DVBRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Голландии 2015-16, 8 тур. Аякс – ПСВ.Телекомпания: Sport 1Жанр: Спорт, ТелепередачаФормат: MP4Продолжительность: 01:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397A1252DC1732915156EF1F7ED829FC6EE80E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943806   (443238) от 06.10.2015
-
-Футбол. Чемпионат России 2015-2016. 11 тур. РФПЛ. Динамо - ЦСКА (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат России 2015-2016, 11 тур. Динамо - ЦСКА.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 02:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76ED645476509BE91D3107B3325E25444A21D46
 ```
 
 https://mybot314.ru/tekegram_catalog/

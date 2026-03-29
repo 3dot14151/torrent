@@ -1,3 +1,112 @@
+###  Публикация: 1513913   (221467) от 01.12.2021
+
+GoodNotes 5 v5.7.50 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBED805863D7AC9749C70EEFB4ADC999454BAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514030   (221462) от 01.12.2021
+
+goPanel 2 v2.9.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простота установки и менеджер Apache, PHP, MySQL, Mail Server и FTP.
+goPanel - наиболее интуитивное приложение для управления веб-серверами и является альтернативой существующему программному обеспечению, будет полезна если вы устанавливаете сервера на базе Unix  для веб-хостинга.
+Легко для того, чтобы установить и настроить Apache, PHP, MySQL, FTP, домены и Mail (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F45D790F618ABC02D0F928287172319166858A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425444   (221461) от 20.11.2020
+
+Adobe After Effects 2020 v17.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов.
+
+Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует сенсорную память сетчатки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11B1D1B3F3BE2F235A3BF090D4F61F664DC4C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513962   (221452) от 01.12.2021
+
+PDF Search + PDF Converter 11.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221452.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: Muharrem OzkanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A568F69E3454C9443ACE77960907FC52960E4D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514027   (221436) от 01.12.2021
 
 AICopy - quote & essay rewrite 2.6 [En]
@@ -6,7 +115,7 @@ AICopy - quote & essay rewrite 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221436.jpg" />
+  <img src="Z:/picture/005/save_picture_221436.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Workspaces 2.0.3 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221409.jpg" />
+  <img src="Z:/picture/005/save_picture_221409.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Project Office Pro 9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221396.jpg" />
+  <img src="Z:/picture/005/save_picture_221396.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Serial Box & SerialSeeker/iSerial Reader 2021 - 12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221337.jpg" />
+  <img src="Z:/picture/005/save_picture_221337.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ BatchOutput PDF 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221334.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ Stats 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221323.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ Yate 6.16.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221314.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ Things 3 v3.15.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221313.jpg" />
+  <img src="Z:/picture/005/save_picture_221313.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ Nevercenter CameraBag Pro 2023.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221305.jpg" />
 </div>
 
 
@@ -247,7 +356,7 @@ Professional Recorder & Editor 6.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221299.jpg" />
 </div>
 
 
@@ -274,7 +383,7 @@ Downie 4 v.4.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221289.jpg" />
 </div>
 
 
@@ -302,7 +411,7 @@ Sketch 61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221283.jpg" />
+  <img src="Z:/picture/005/save_picture_221283.jpg" />
 </div>
 
 
@@ -329,7 +438,7 @@ Adobe Photoshop 2021 v22.0.1 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221150.jpg" />
+  <img src="Z:/picture/005/save_picture_221150.jpg" />
 </div>
 
 
@@ -355,7 +464,7 @@ MacCleaner 3 PRO 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221122.jpg" />
 </div>
 
 
@@ -381,7 +490,7 @@ PDF Expert 3.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221103.jpg" />
 </div>
 
 
@@ -408,7 +517,7 @@ Get Backup Pro 3 v3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221023.jpg" />
+  <img src="Z:/picture/005/save_picture_221023.jpg" />
 </div>
 
 
@@ -434,7 +543,7 @@ NCH WavePad Mater 11.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221019.jpg" />
+  <img src="Z:/picture/005/save_picture_221019.jpg" />
 </div>
 
 
@@ -460,7 +569,7 @@ Studies 1.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221000.jpg" />
+  <img src="Z:/picture/005/save_picture_221000.jpg" />
 </div>
 
 
@@ -488,7 +597,7 @@ Adobe XD 24.4.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220993.jpg" />
+  <img src="Z:/picture/005/save_picture_220993.jpg" />
 </div>
 
 
@@ -514,7 +623,7 @@ Chaos Control Premium 1.10.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220988.jpg" />
+  <img src="Z:/picture/005/save_picture_220988.jpg" />
 </div>
 
 
@@ -543,7 +652,7 @@ Elmedia Player Pro 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220944.jpg" />
+  <img src="Z:/picture/005/save_picture_220944.jpg" />
 </div>
 
 
@@ -570,7 +679,7 @@ PDFpen Pro 12 v12.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220888.jpg" />
+  <img src="Z:/picture/005/save_picture_220888.jpg" />
 </div>
 
 
@@ -581,116 +690,6 @@ PDFpen Pro - приложение для создания и редактиро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C13788C6ED424E8B6D017648ACF7C7A2C32216BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425624   (220843) от 21.11.2020
-
-Photomatix Pro Standalone Program 6 v6.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photomatix Pro – программа для профессиональных фотографов и продвинутых любителей. Photomatix Pro комбинирует любое число различных кадров в сцене с высокой контрастностью в одно изображение с деталями и всеми тенями. Photomatix Pro – автономная система, которая расширяет динамический диапазон фотографов.
-
-Photomatix может автоматически создавать HDR изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2020Разработчик: HDRsoftПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D633444FC3FC0B5E6B0F386FFFDFA59DF7F7606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084465   (220813) от 18.12.2016
-
-VueScan Pro 9.5.63 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220813.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 декабря 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAB9F4E185FEBB094467902EA80D90E114E3DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966334   (220801) от 17.12.2015
-
-Pacifist 3.5.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pacifist — удобная распаковка .pkg
-Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.
-
-Pacifist – приложение, которое открывает пакеты Mac OS X (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 декабря 2015Разработчик: CharlesSoftПоддерживаемая ОС: 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBCC482B95DC2E7F407F222BCCB7219C5C3A265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425612   (220728) от 21.11.2020
-
-Jump Desktop (RDP, VNC, Fluid) 8.6.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
-Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Phase Five SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1B7A4C4E829220C57EBEE42960A8BFC9811460
 ```
 
 https://mybot314.ru/tekegram_catalog/

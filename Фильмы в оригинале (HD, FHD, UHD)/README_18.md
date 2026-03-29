@@ -1,3 +1,107 @@
+###  Публикация: 1209100   (779456) от 25.02.2018
+
+Колесо чудес / Wonder Wheel  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779456.jpg" />
+</div>
+
+
+###  Подробнее
+
+История страсти, жестокости и предательства, рассказывающая о четырех героях, чьи судьбы переплелись среди бурной жизни знаменитого парка развлечений. Действие разворачивается на живописном Кони Айленде в Нью-Йорке.Производство: США / Amazon Studios, Gravier Productions, Perdido ProductionsЖанр: драмаРежиссер: Вуди АлленАктеры: Джеймс Белуши, Джуно Темпл, Джастин Тимберлейк, Кейт Уинслет, Макс Казелла, Джек Гор, Дэвид Крамхолц, Роберт С. Кирк, Томми Нохилли, Тони Сирико, Стив Ширрипа, Джон ДуманьянПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25560F732E5172652016247B8C93856E81A5BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209567   (779189) от 27.02.2018
+
+Форма воды / The Shape of Water (2017) WEB-DL [H.264/1080p-LQ] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в 1963 году. Главная героиня — немая уборщица в научной лаборатории. В стенах секретного учреждения идёт работа по изучению отловленного человека-амфибии. Женщина влюбляется в мутанта и помогает ему бежать…Производство: США, Bull Productions, Double Dare You (DDY), Fox Searchlight PicturesЖанр: Приключения, Драма, Фэнтези, УжасыРежиссер: Гильермо дель ТороАктеры: Салли Хокинс, Майкл Шеннон, Ричард Дженкинс, Октавия Спенсер, Майкл Стулбарг, Даг Джонс, Дэвид Хьюлетт, Ник Сирси, Стюарт Арнотт, Найджел Беннетт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B670A76AC7E1CE009856209A45F01EF7FFB16C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209790   (779066) от 28.02.2018
+
+Тоня против всех / I, Tonya (2017) BDRip [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американской фигуристке Тоне Хардинг пришлось нелегко: сначала тяжелое детство с грозной матерью, потом тяжелая юность, ранний брак с проходимцем и неудачи на соревнованиях из-за заниженных судьями оценок. А потом случился скандал: во время важнейших соревнований идея запугать конкурентку идёт не по плану…Производство: США, Clubhouse Pictures (II), LuckyChap EntertainmentЖанр: Биография, Комедия, Драма, СпортРежиссер: Крэйг ГиллеспиАктеры: Марго Робби, Себастьян Стэн, Эллисон Дженни, Джулианна Николсон, Пол Уолтер Хаузер, Бобби Каннавале, Бояна Новакович, Кэйтлин Карвер, Мэйзи Смит, МакКенна Грейс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские (отдельным файлом)Продолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27BCC786F6A492A84BD319F88BF35840FFDC9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209798   (779044) от 28.02.2018
+
+Леди Бёрд / Lady Bird  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристина МакФерсон учится в консервативной католической школе в Сакраменто. Она ищет себя, своё место в мире и пытается быть не похожей на других. Её волосы выкрашены в странный красно-розовый цвет, а имя Леди Бёрд она дала себе сама и именно так просит её называть. И главная её мечта - вырваться из этого провинциального захолустья и поехать учиться в Нью-Йорк.Производство: США / Scott Rudin Productions, Entertainment 360, IAC FilmsЖанр: драма, комедияРежиссер: Грета ГервигАктеры: Сирша Ронан, Лори Меткаф, Трэйси Леттс, Лукас Хеджес, Тимоти Шаламе, Бини Фелдштейн, Лоис Смит, Стивен Хендерсон, Одейя Раш, Джордан Родригез, Мариэль Эйснер, Джон КарнаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A26C1C82783374E8D325B9086488858A76845D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209987   (778981) от 01.03.2018
 
 Безбашенные / Renegades  (2017) BDRemux [H.264/1080p] [EN / It Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778981.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778949.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778810.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778797.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778642.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778615.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778598.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778512.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778481.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778443.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778278.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778224.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778117.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778097.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777724.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777719.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777717.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777397.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777386.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777071.jpg" />
+  <img src="Z:/picture/008/save_picture_777071.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777044.jpg" />
+  <img src="Z:/picture/008/save_picture_777044.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776815.jpg" />
+  <img src="Z:/picture/008/save_picture_776815.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7818D26353D8D1E8328FBCB1726C88F2D0E9BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211945   (776702) от 09.03.2018
-
-Аутсайдер / Изгой / The Outsider (2018) WEBRip [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония после Второй мировой войны. Американского военнопленного освобождают благодаря помощи сокамерника, принадлежащего к якудза. Став свободным, солдат начинает завоевывать их уважение и возвращает свой долг в опасном криминальном мире.Производство: США, Linson Entertainment, Waypoint EntertainmentЖанр: Криминал, Драма, Детектив, ТриллерРежиссер: Мартин ЗандвлиетАктеры: Джаред Лето, Таданобу Асано, Киппэй Сина, Рори Кокрейн, Эмиль Хирш, Сиори Куцуна, Юрино, Нозоми де Ланкесэ, Кодзи Като, Сотаро ЯсудаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Португальские, Голландские, Французские, НемецкиеПродолжительность: 02:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0F4F562AFBAA85AD8AFF4E2F67AC373A5753D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014174   (776655) от 06.05.2016
-
-Ведьма / The Witch / The VVitch: A New-England Folktale  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья колонистов покидает плантацию, чтобы жить на уединенной ферме рядом с лесом в Новой Англии. Но вскоре младший ребёнок, ещё младенец, исчезает.Производство: США, Великобритания, Канада, Бразилия, Parts and Labor, RT Features, Rooks Nest Entertainment, Code Red Productions, Scythia Films, Maiden Voyage Pictures, Mott Street Pictures, Pulse Films, Very Special ProjectsЖанр: ужасы, детективРежиссер: Роберт ЭггерсАктеры: Аня Тейлор-Джой, Ралф Айнесон, Кейт Дики, Харви Скримшо, Элли Грэйнджер, Лукас Доусон, Батшеба Гарнетт, Сара Стефенс, Джулиан Ричингс, Вахаб Каудхри, Дерек ХердПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F85A1FFF4A61DAC6D2780C71533B7ECAE71C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212140   (776271) от 10.03.2018
-
-Звёздные войны: Последние джедаи / Star Wars: Episode VIII - The Last Jedi (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая история о противостоянии света и тьмы, добра и зла начинается после гибели Хана Соло. В Галактике, где Первый Орден и Сопротивление яростно сражаются друг с другом в войне, героиня Рей пробудила в себе Силу. Но что произойдет, когда она встретится с единственным оставшимся в живых рыцарем-джедаем — Люком Скайуокером?
-Кайло Рен перешел на Темную сторону Силы (   Читать дальше...   )Производство: США, Lucasfilm, Ram Bergman Productions, Walt Disney PicturesЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Райан ДжонсонАктеры: Марк Хэмилл, Кэрри Фишер, Адам Драйвер, Дэйзи Ридли, Джон Бойега, Оскар Айзек, Энди Серкис, Лупита Нионго, Донал Глисон, Энтони Дэниелс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (idx/sub) (отдельным файлом)Продолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166C4CC6FBD3220BBA1A797ED39E1F30B97DA6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212554   (775586) от 12.03.2018
-
-Аннигиляция / Annihilation (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не знает, откуда взялась Зона Икс — смертельно опасная территория, кишащая аномальными явлениями. Там не бегают чудовища, оттуда не приносят трофеев, и охотники за наживой там не промышляют. Тайная правительственная организация отправляет в Зону одну исследовательскую экспедицию за другой, но чаще всего те не возвращаются — или возвращаются, но неуловимо и (   Читать дальше...   )Производство: Великобритания, США / DNA Films, Paramount Pictures, Scott Rudin ProductionsЖанр: Приключения, Драма, Фэнтези, Ужасы, Детектив, Фантастика, ТриллерРежиссер: Алекс ГарлендАктеры: Натали Портман, Бенедикт Вонг, Соноя Мидзуно, Дэвид Гяси, Оскар Айзек, Джон Шваб, Дженнифер Джейсон Ли, Джина Родригез, Тува Новотны, Тесса Томпсон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Aрабские, Датские, Немецкие, Греческие, Испанские, Финские, Французские, и др...Продолжительность: 01:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF16A200A4C82B45B47BC4F4055427987C2E521
 ```
 
 https://mybot314.ru/tekegram_catalog/

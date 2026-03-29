@@ -1,3 +1,110 @@
+###  Публикация: 1303612   (569420) от 23.05.2019
+
+Book Collector 19.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборщик книг позволяет автоматически каталогизировать ваши книги в базе данных, просто напечатав название книги или отсканировав штрих-код ISBN, чтобы загрузить все данные из различных источников в Интернете. Просматривайте свою коллекцию по ряду организационных факторов или используйте представление миниатюр для просмотра изображений обложки.Тип издания: macOS SoftwareРелиз состоялся: 16.05.2019Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CB03E90E4DF097AD750156910E059C7B4D2508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303866   (569410) от 23.05.2019
+
+Scrutiny 8 v8.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.05.2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F7410D78003B7BBF4B95CD97BA84A2191386B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303609   (569406) от 23.05.2019
+
+Movie Collector Pro 19.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каталог ваших фильмов, книг, музыки, комиксов и видеоигр. Просто введите названия или отсканируйте штрих-коды для автоматической детализации элемента и изображения обложки. Все программные решения (для настольных компьютеров, онлайн или мобильных устройств) поставляются с бесплатным облачным хранилищем CLZ для сбора данных. Используйте облачное хранилище CLZ для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.05.2019Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65C12F19C159E9CF97FFE17AA4C968D906D09EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303699   (569401) от 23.05.2019
+
+Multitouch 1.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch!
+
+Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 21.05.2019Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CEC42E2664041D5B8CFA4686CC06D9525E1452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303621   (569397) от 23.05.2019
 
 Postbox 6 v6.1.17 [Multi/Ru]
@@ -6,7 +113,7 @@ Postbox 6 v6.1.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569397.jpg" />
+  <img src="Z:/picture/008/save_picture_569397.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Amadeus Pro 2.6 (2152) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569290.jpg" />
+  <img src="Z:/picture/008/save_picture_569290.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Cisdem PDF Converter OCR 6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569194.jpg" />
+  <img src="Z:/picture/008/save_picture_569194.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Viscosity 1.7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569175.jpg" />
+  <img src="Z:/picture/008/save_picture_569175.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569143.jpg" />
+  <img src="Z:/picture/008/save_picture_569143.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ MediaHuman Youtube Downloader 3.9.9.16 (2205) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569117.jpg" />
+  <img src="Z:/picture/008/save_picture_569117.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ News Explorer 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569109.jpg" />
+  <img src="Z:/picture/008/save_picture_569109.jpg" />
 </div>
 
 
@@ -198,7 +305,7 @@ Network Radar 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569096.jpg" />
+  <img src="Z:/picture/008/save_picture_569096.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ Nice Clipboard 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569094.jpg" />
+  <img src="Z:/picture/008/save_picture_569094.jpg" />
 </div>
 
 
@@ -255,7 +362,7 @@ MacX Video Converter Pro 6.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568963.jpg" />
+  <img src="Z:/picture/008/save_picture_568963.jpg" />
 </div>
 
 
@@ -282,7 +389,7 @@ Network Utility X 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568934.jpg" />
+  <img src="Z:/picture/008/save_picture_568934.jpg" />
 </div>
 
 
@@ -309,7 +416,7 @@ Doo - Get Things Done 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568927.jpg" />
+  <img src="Z:/picture/008/save_picture_568927.jpg" />
 </div>
 
 
@@ -338,7 +445,7 @@ Reeder 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568917.jpg" />
+  <img src="Z:/picture/008/save_picture_568917.jpg" />
 </div>
 
 
@@ -367,7 +474,7 @@ Live Home 3D Pro Edition 3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568855.jpg" />
+  <img src="Z:/picture/008/save_picture_568855.jpg" />
 </div>
 
 
@@ -395,7 +502,7 @@ LensFlare Studio 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568785.jpg" />
+  <img src="Z:/picture/008/save_picture_568785.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ Wondershare Video Converter Ultimate 10.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568678.jpg" />
+  <img src="Z:/picture/008/save_picture_568678.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ TechSmith Camtasia Studio 2019.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568662.jpg" />
+  <img src="Z:/picture/008/save_picture_568662.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ Comic Life 3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568440.jpg" />
+  <img src="Z:/picture/008/save_picture_568440.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ Fantastical 2 v2.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568313.jpg" />
+  <img src="Z:/picture/008/save_picture_568313.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ News Explorer 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567468.jpg" />
+  <img src="Z:/picture/008/save_picture_567468.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ Alfred Powerpack 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567309.jpg" />
+  <img src="Z:/picture/008/save_picture_567309.jpg" />
 </div>
 
 
@@ -591,7 +698,7 @@ Cryptey - a menu bar cryptocurrency ticker 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567137.jpg" />
+  <img src="Z:/picture/008/save_picture_567137.jpg" />
 </div>
 
 
@@ -602,118 +709,6 @@ Cryptey - это криптовалютный код в строке меню, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:704E85AF1ECD389C2B55E2C303498402BFC91592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098644   (567096) от 22.07.2017
-
-PDF Squeezer 3.7.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567096.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
-Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.
-
-Особенности: (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2017Разработчик: Daniel DienerПоддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Русский, Английский, Испанский, Итальянский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2818163B3D5860D170CDC90A2E7E55749CFE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152131   (566681) от 22.07.2017
-
-ConceptDraw Office 4.0.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566681.jpg" />
-</div>
-
-
-###  Подробнее
-
-ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa .
-Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики.
-Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: CS Odessa Corp.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844E6F89DEDB0924CD4C9E7EC0E4F5401A5B2506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152533   (565678) от 23.07.2017
-
-Kiwi for Gmail 2.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiwi для Gmail 2.0 объединяет все G Suite (ранее Google Apps) с Gmail в качестве центральной части. Мы превращаем Gmail и остальную часть G Suite в полноценный настольный клиент, который берет все, что вы знаете и любите Gmail и такие приложения, как Документы, Таблицы и Презентации, и добавляете замечательные новые функции - в том числе возможность упростить вашу (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.07.2017Разработчик: Zive, Inc.Поддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D746E1EB5243CE34485A1B72B18A12E9DA8215EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147343   (565672) от 23.07.2017
-
-File Cabinet Pro 4.2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565672.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Cabinet Pro  - менеджер документов из строки меню
-Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
-
-Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 июля 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25105CB4E9E98C4A5DA1D2135643D8CA8F1BE3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

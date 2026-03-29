@@ -1,3 +1,90 @@
+###  Публикация: 1626395   (243895) от 14.04.2023
+
+Zebedy - Waiting for the Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Well Being (02:59)
+02 - Building Sandcastles (04:43)
+03 - This City Is Ours (04:11)
+04 - Thrive (01:12)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DFC15FDE17CD3E88A124B177E24C68265CE7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611476   (243893) от 12.02.2023
+
+Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal, Hardcore Punk, Post Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Short Distance Runner [00:05:25]
+02. Wasted On Purpose [00:05:08]
+03. Cleveland Balloonfest '86 [00:06:22]
+04. Your Opinion Is Wrong [00:04:54](   Читать дальше...   )Жанр: Sludge Metal, Doom Metal, Hardcore Punk, Post HardcoreПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626413   (243886) от 14.04.2023
+
+Where the Sun Comes Down - Necropolis Railway (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mater Tenebrarum [00:02:06]
+02. Wait For The Pain [00:04:42]
+03. No Sun City [00:05:26]
+04. Longway Home [00:06:43](   Читать дальше...   )Жанр: Psych Doom, StonerПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB90B8934D3DF17E78BACDDAC944E426E7FA673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626420   (243874) от 14.04.2023
 
 Archon Angel - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
@@ -6,7 +93,7 @@ Archon Angel - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243874.jpg" />
+  <img src="Z:/picture/004/save_picture_243874.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Betelzeus - Shedding the Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243865.jpg" />
+  <img src="Z:/picture/004/save_picture_243865.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243862.jpg" />
+  <img src="Z:/picture/004/save_picture_243862.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Voelker - How The Other Half Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243854.jpg" />
+  <img src="Z:/picture/004/save_picture_243854.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ Treponem Pal - Screamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243846.jpg" />
+  <img src="Z:/picture/004/save_picture_243846.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ HellBones - Crossing Borders (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243771.jpg" />
+  <img src="Z:/picture/004/save_picture_243771.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Grima - Will of the Primordial (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243754.jpg" />
+  <img src="Z:/picture/004/save_picture_243754.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Amthrya - Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243743.jpg" />
+  <img src="Z:/picture/004/save_picture_243743.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Ashtoreth - Bruxolico (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243735.jpg" />
+  <img src="Z:/picture/004/save_picture_243735.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Jeremy - The 2nd Advent (2005) 2CD [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243729.jpg" />
+  <img src="Z:/picture/004/save_picture_243729.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Atomwinter - Sakrileg (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243728.jpg" />
+  <img src="Z:/picture/004/save_picture_243728.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Lansdowne - Medicine (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243719.jpg" />
+  <img src="Z:/picture/004/save_picture_243719.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Jeremy - Trivial Life (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243710.jpg" />
+  <img src="Z:/picture/004/save_picture_243710.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Fearer - Backfire (2005) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243703.jpg" />
+  <img src="Z:/picture/004/save_picture_243703.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Ecollapse - Dying With The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243693.jpg" />
+  <img src="Z:/picture/004/save_picture_243693.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Last Legion - Metall, Blod & Aska (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243682.jpg" />
+  <img src="Z:/picture/004/save_picture_243682.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Ashrain - Requiem Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243678.jpg" />
+  <img src="Z:/picture/004/save_picture_243678.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Age Of Ruin - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243669.jpg" />
+  <img src="Z:/picture/004/save_picture_243669.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Somniae Status - Cassandra (2003) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243665.jpg" />
+  <img src="Z:/picture/004/save_picture_243665.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Somniae Status - Echoes (2007) [FLAC|Lossless|image + .cue] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243657.jpg" />
+  <img src="Z:/picture/004/save_picture_243657.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Organectomy - Existential Disconnect (2019) [WavPack|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243646.jpg" />
+  <img src="Z:/picture/004/save_picture_243646.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Dimension Zero - Silent Night Fever (2002) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243630.jpg" />
+  <img src="Z:/picture/004/save_picture_243630.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ The Abbey - Word of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243616.jpg" />
+  <img src="Z:/picture/004/save_picture_243616.jpg" />
 </div>
 
 
@@ -659,94 +746,6 @@ The Abbey - Word of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8F28AAE65A8D45F3D285B45612E3BBB9549B147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333834   (243613) от 26.10.2019
-
-Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Game
-03. Dream To Fly
-04. Again(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD239DD29EA10C3212F364BEB78A138418B9CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455671   (243612) от 20.03.2021
-
-Enforcer - Live by Fire II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die for the Devil (Live)
-02. Searching for You (Live)
-03. Undying Evil (Live)
-04. From Beyond (Live)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D9FC7E2C80AFC51AC443A9F4EA5AA2A47A5172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538075   (243596) от 19.03.2022
-
-Funeral - Praesentialis In Aeternum (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежские первопроходцы дум-метала FUNERAL выпустили новый альбом “Praesentialis in Aeternum” 10 декабря 2021 года на лейбле Season of Mist.
-Его обложку нарисовал Christopher Rådlund.1. And
-2. Materie
-3. Erindring I - Hovmod
-4. Erindring II - Fall(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A07A4D4FB34620147CAA01153F4CBD27408CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Bartender 3 v3.1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791223.jpg" />
+  <img src="Z:/picture/008/save_picture_791223.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ReviverSoft Driver Reviver 5.34.0.36 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791222.jpg" />
+  <img src="Z:/picture/008/save_picture_791222.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ OCCT 6.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791221.jpg" />
+  <img src="Z:/picture/008/save_picture_791221.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ LDPlayer 4.0.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791218.jpg" />
+  <img src="Z:/picture/008/save_picture_791218.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIMP 4.70 build 2217 RC 2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791206.jpg" />
+  <img src="Z:/picture/008/save_picture_791206.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ R-Drive Image 6.3 Build 6303 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791197.jpg" />
+  <img src="Z:/picture/008/save_picture_791197.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Brackets 1.14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791192.jpg" />
+  <img src="Z:/picture/008/save_picture_791192.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BELOFF [dp] 2020.05.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791191.jpg" />
+  <img src="Z:/picture/008/save_picture_791191.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Google Earth Pro 7.3.3.7721 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791188.jpg" />
+  <img src="Z:/picture/008/save_picture_791188.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Macrium Reflect v 7.2.4952 x64 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791187.jpg" />
+  <img src="Z:/picture/008/save_picture_791187.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WinRAR 5.91 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791180.jpg" />
+  <img src="Z:/picture/008/save_picture_791180.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ IconTo Pro 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791177.jpg" />
+  <img src="Z:/picture/008/save_picture_791177.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Advego Plagiatus 3.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791176.jpg" />
+  <img src="Z:/picture/008/save_picture_791176.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mailbird Pro 2.8.12.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791141.jpg" />
+  <img src="Z:/picture/008/save_picture_791141.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Adobe Acrobat Pro DC 2020.009.20067 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791136.jpg" />
+  <img src="Z:/picture/008/save_picture_791136.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Wise Program Uninstaller 2.3.1.132 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791128.jpg" />
+  <img src="Z:/picture/008/save_picture_791128.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791065.jpg" />
+  <img src="Z:/picture/008/save_picture_791065.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Asphodela - Tribal (2017) [FLAC|Lossless|WEB-DL|tracks] <Tribal, Industrial, IDM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791064.jpg" />
+  <img src="Z:/picture/008/save_picture_791064.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ iTubeDownloader 6.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791062.jpg" />
+  <img src="Z:/picture/008/save_picture_791062.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Forrest Fang - Scenes From a Ghost Train (2018) Projekt [FLAC|Lossless|tracks+.c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791052.jpg" />
+  <img src="Z:/picture/008/save_picture_791052.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Opera 57.0.3098.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791041.jpg" />
+  <img src="Z:/picture/008/save_picture_791041.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Soft Organizer Pro 7.42 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791033.jpg" />
+  <img src="Z:/picture/008/save_picture_791033.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ty Segall - Freedom’s Goblin (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791026.jpg" />
+  <img src="Z:/picture/008/save_picture_791026.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Slimjet 17.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791016.jpg" />
+  <img src="Z:/picture/008/save_picture_791016.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Soft4Boost Document Converter 5.2.1.711 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791015.jpg" />
+  <img src="Z:/picture/008/save_picture_791015.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791009.jpg" />
+  <img src="Z:/picture/008/save_picture_791009.jpg" />
 </div>
 
 

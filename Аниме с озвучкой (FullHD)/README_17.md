@@ -1,3 +1,30 @@
+###  Публикация: 1303264   (424979) от 09.09.2019
+
+Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 1080p rus + raw
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424979.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования (если это можно так назвать) три школьницы: Юа, Рен и Хоми, каждая из которых любит носить колготки разной толщины, от совсем прозрачных до весьма плотных.
+@kino-govno.comПроизводство: Япония, студия Yokohama Animation LabЖанр: комедия, романтикаРежиссер: Огава ЮкиЯзык озвучки: Русский Профессиональный (закадровый) | студия AmberСубтитры: русские (Zero), русские (LookerA), английские, французскиеПродолжительность: 13 эпизодов по 5 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA8CA14410704EDAE16AB66B44A6BF02005AE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411714   (424626) от 26.09.2020
 
 Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседневная жизнь старшеклассников [2012, TV, 12 эп. + 6 SP] BDRip 1080p 10-bit raw+rus
@@ -6,7 +33,7 @@ Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424626.jpg" />
+  <img src="Z:/picture/008/save_picture_424626.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424625.jpg" />
+  <img src="Z:/picture/008/save_picture_424625.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424624.jpg" />
+  <img src="Z:/picture/008/save_picture_424624.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424622.jpg" />
+  <img src="Z:/picture/008/save_picture_424622.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Kurenai no Buta / Porco Rosso / The Scarlet Pig / Crimson Pig / Порко Ро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423033.jpg" />
+  <img src="Z:/picture/008/save_picture_423033.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422279.jpg" />
+  <img src="Z:/picture/008/save_picture_422279.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ The God of High School / Бог старшей школы [2020, TV, 13 ep] WEB-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417637.jpg" />
+  <img src="Z:/picture/008/save_picture_417637.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Boku no Hero Academia the Movie 2: Heroes Rising | My Hero Academia the Movie 2:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411011.jpg" />
+  <img src="Z:/picture/008/save_picture_411011.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409701.jpg" />
+  <img src="Z:/picture/008/save_picture_409701.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406963.jpg" />
+  <img src="Z:/picture/008/save_picture_406963.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406601.jpg" />
+  <img src="Z:/picture/008/save_picture_406601.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406253.jpg" />
+  <img src="Z:/picture/008/save_picture_406253.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405125.jpg" />
+  <img src="Z:/picture/008/save_picture_405125.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385186.jpg" />
+  <img src="Z:/picture/008/save_picture_385186.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382496.jpg" />
+  <img src="Z:/picture/008/save_picture_382496.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Ei
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380958.jpg" />
+  <img src="Z:/picture/008/save_picture_380958.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379682.jpg" />
+  <img src="Z:/picture/008/save_picture_379682.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374684.jpg" />
+  <img src="Z:/picture/008/save_picture_374684.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишьс�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371727.jpg" />
+  <img src="Z:/picture/008/save_picture_371727.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367971.jpg" />
+  <img src="Z:/picture/008/save_picture_367971.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364515.jpg" />
+  <img src="Z:/picture/008/save_picture_364515.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364514.jpg" />
+  <img src="Z:/picture/008/save_picture_364514.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364513.jpg" />
+  <img src="Z:/picture/008/save_picture_364513.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360681.jpg" />
+  <img src="Z:/picture/008/save_picture_360681.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ Cop Craft | Мастерство копа | Детективные будни: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360437.jpg" />
+  <img src="Z:/picture/008/save_picture_360437.jpg" />
 </div>
 
 
@@ -657,32 +684,6 @@ Cop Craft | Мастерство копа | Детективные будни: �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C1A999CBA8FD81F59A6181DF4A6CC0D32795A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578559   (351946) от 21.11.2012
-
-Macross: Do You Remember Love? / Макросс: Помнишь ли ты любовь? [1984, MOVIE, 1 из 1] BDrip 1080i raw + rus + eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351946.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2009 году н.э. человечество оказалось втянуто в трехсторонний военный конфликт с расой гигантских пришельцев-гуманоидов Зентради. Генетически эта раса представляет из себя единое целое, однако, женские особи называют себя Мелтранди и сражаются независимо за собственное военное превосходство. Потерпев поражение в первой битве против инопланетян, гиперпространственная крепость Макросс была отброшена на край солнечной системы и теперь держит путь назад к Земле. Во время короткого столкновения с силами Зентради, молодой пилот Хикару Ичидзе спасает поп-диву Линн Минмэй. По стечению обстоятельств, они проводят неделю вместе, запертые в отсеке корабля, и в конечном итоге влюбляются друг в друга. По возвращении в Макросс Сити Хикару за самодеятельность на поле боя получает выговор от офицера Мисы Хаясе, однако, за спасение известной певицы на этот раз он освобожден от наказания. Случайно обнаруживается, что голос Минмэй способен воздействовать на вражескую армию и может помочь отражать атаки пришельцев. Вскоре Зентради (   Читать дальше...   )Жанр: фантастика, меха, романтика, драмаРежиссер: Кавамори СёдзиПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7299467ED4562AF312805714741AF5B141935401
 ```
 
 https://mybot314.ru/tekegram_catalog/

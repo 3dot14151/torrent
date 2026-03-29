@@ -1,3 +1,137 @@
+###  Публикация: 1365845   (927033) от 09.03.2020
+
+Василий Цветков | Белое дело в России. 1917-1919, 1920–1922 гг. [2 книги] (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927033.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эта книга – самое фундаментальное, информативное и подробное исследование, написанное крупнейшим специалистом по истории Белого движения и Гражданской войны в России. Всё о формировании и развитии политических структур Белого движения – от падения монархии к установлению власти Верховного правителя России адмирала А.В. Колчака и до непоправимых ошибок белых в (   Читать дальше...   )Жанр: История России, МонографииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBF70B6C11029DFC26FD714B21E97A0BA82976E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366052   (925829) от 10.03.2020
+
+Г. Стародубский | Основы мирной политики СССР [Договоры о нейтралитете и ненападении] (1927) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминание об ужасах последней империалистической войны еще свежо в памяти широких масс трудящихся всех стран. Одна мысль о возможности повторения этих ужасов, мысль о том, что империалистические правительства вновь бросят массы трудящихся в бойню во имя чуждых им целей, — вызывает в них негодование и возмущение.
+
+В то же время почти каждый день приносит нам подтверждения (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D558D02B2D1C4A43C1D2498A63A66246664D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366044   (925822) от 10.03.2020
+
+Процесс контрреволюционной организации меньшевиков [1 марта - 9 марта 1931 г.] (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меньшевики оказались в едином блоке с наиболее откровенными сторонниками контрреволюционной фашистской диктатуры буржуазии — оказались агентами махрово-черносотенной буржуазии, продавшими ей за деньги свое социалистическое имя.
+
+Историческое крупнейшее политическое содержание процесса заключается как раз в том, что он вскрыл в наглядной форме судебного процесса историческую (   Читать дальше...   )Жанр: История, политология, публицистика, правоведение, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AAA5D268F499B6C432857166FF47DD451210FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987844   (924607) от 18.02.2016
+
+З. Лозинский | Экономическая политика Временного правительства (1929) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача настоящей работы - выяснить характер и социальные корни экономической политики Временного правительства. Выдвигая на первый план вопросы экономической политики, мы считаем необходимым, для лучшего уяснения проблемы, уделить известное место и данным, дающим представление об общем состоянии народного хозяйства в интересующий нас период.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63E7093D148CEEB52B1C4B2EF114BAAEA454782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987835   (924593) от 18.02.2016
+
+В. П. Антонов-Саратовский (ред.) | Советы в эпоху военного коммунизма (1918-1921) [2 книги] (1929) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга посвящена документам по организации и строительству советов в 1917 г., вторая — документам эпохи Октябрьского переворота.Жанр: История, политология, экономика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B792642E0D28A654B9CE04BB90324225A10244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987842   (924586) от 18.02.2016
 
 В. П. Милютин | История экономического развития СССР [1917— 1927] (1929) [DJVU]
@@ -6,7 +140,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924586.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924199.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922806.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922617.jpg" />
 </div>
 
 
@@ -110,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922358.jpg" />
 </div>
 
 
@@ -136,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921151.jpg" />
 </div>
 
 
@@ -162,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920935.jpg" />
 </div>
 
 
@@ -189,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920762.jpg" />
 </div>
 
 
@@ -217,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920431.jpg" />
 </div>
 
 
@@ -243,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919212.jpg" />
 </div>
 
 
@@ -269,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_918948.jpg" />
+  <img src="Z:/picture/008/save_picture_918948.jpg" />
 </div>
 
 
@@ -295,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918891.jpg" />
 </div>
 
 
@@ -322,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917544.jpg" />
 </div>
 
 
@@ -348,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917234.jpg" />
 </div>
 
 
@@ -376,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917025.jpg" />
 </div>
 
 
@@ -402,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915652.jpg" />
 </div>
 
 
@@ -429,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914204.jpg" />
 </div>
 
 
@@ -455,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913539.jpg" />
 </div>
 
 
@@ -481,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912317.jpg" />
 </div>
 
 
@@ -509,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912080.jpg" />
 </div>
 
 
@@ -535,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910432.jpg" />
 </div>
 
 
@@ -548,136 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD38C8DF471BEF485BCF26C383A801FB5BD06C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368151   (910370) от 19.03.2020
-
-Валерия Черепенчук | История флагов. От рыцарских знамен до государственных штандартов (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знамена, штандарты, флаги... За каждым стоит своя история и порой самые невероятные политические, экономические и социальные события. Флаги делают гораздо больше, чем просто идентифицируют страны и группы людей. В каждом цвете, символе и дизайне граждане и правительства стран заявляют о своей верности, патриотизме и возносят свою историю. Благодаря этой книге вы (   Читать дальше...   )Жанр: Всемирная история, ВексиллологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385F6F0F4629124E1EE1C514C1291744F0886A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098351   (910363) от 29.01.2017
-
-Э.Э. Ухтомский | Путешествие на Восток Его Императорского Высочества государя Наследника Цесаревича 1890—1891 [3 книги] (1893 - 1897) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено трехсотдневному (с 23 октября 1890 года по 4 августа 1891 года ) путешествию великого князя Николая Александровича (будущего императора Николая II) по Греции, Египту, Индии, Китаю, Японии и Сибири. Это путешествие задумывалось как заключительный этап образования наследника российского императора, одновременно являясь важнейшим дипломатическим шагом (   Читать дальше...   )Жанр: историографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD46A8F911D1EC2316D04920330A712FA1459C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990661   (910072) от 26.02.2016
-
-Б. И. Марушкин | Против буржуазной фальсификации истории советского общества [Критика американской буржуазной историографии] (1973) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910072.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре дается краткий анализ буржуазной историографии истории советского общества, вскрывается фальсификаторский характер «исторических» теорий и концепций, имеющих наибольшее распространению в империалистической пропаганде, показан крах расчетов антикоммунизма на «эрозию» советского общества.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6551EA3A5086D4A2E1436539A9DBF7BA83C5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990695   (909927) от 26.02.2016
-
-В. Л. Секистов (ред.) | Большая ложь о войне. Критика новейшей буржуазной историографии второй мировой войны (1971) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909927.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются «новые» школы и направления современной буржуазной историографии. На большом фактическом материале авторы убедительно разоблачают реакционные взгляды американских, английских, французских и западногерманских буржуазных историков и мемуаристов, их фальсификацию главных проблем второй мировой войны.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA275CD8EE326744368BC6A4BD9AE7130DFB0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990455   (909870) от 26.02.2016
-
-В. Аристов-Литвак, А. Штейн | Выстрел на "Скороходе". Быковщина и ее уроки (1929) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темой взят случай, имевший место в конце прошлого года на одном из круп­нейших заводов Ленинграда. Из низмен­ных побуждений, уволенный за злостные прогулы и недобросовестное отношение к производству рабочий Быков выстрелил в мастера Степанкова, которого он считал виновником увольнения с завода. Это происшествие произвело громаднейшее впечат­ление на рабочих как „Скорохода", (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1EFAF3C31D7F80483B3A6C4548130D2B083C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

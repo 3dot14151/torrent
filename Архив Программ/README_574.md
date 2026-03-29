@@ -6,7 +6,7 @@ Telegram Desktop 3.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763436.jpg" />
+  <img src="Z:/picture/008/save_picture_763436.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Chromium 74.0.3689.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763429.jpg" />
+  <img src="Z:/picture/008/save_picture_763429.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skype 8.38.0.138 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763425.jpg" />
+  <img src="Z:/picture/008/save_picture_763425.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cent Browser 3.8.5.69 + Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763421.jpg" />
+  <img src="Z:/picture/008/save_picture_763421.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MusicBee 3.4.8033 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763331.jpg" />
+  <img src="Z:/picture/008/save_picture_763331.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CPU-Z 1.99.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763330.jpg" />
+  <img src="Z:/picture/008/save_picture_763330.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Windows and Office ISO Download Tool 8.01 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763208.jpg" />
+  <img src="Z:/picture/008/save_picture_763208.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ KMS Tools Portable 01.02.2019 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763190.jpg" />
+  <img src="Z:/picture/008/save_picture_763190.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ MediaInfo 18.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763176.jpg" />
+  <img src="Z:/picture/008/save_picture_763176.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SMPlayer 18.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763174.jpg" />
+  <img src="Z:/picture/008/save_picture_763174.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Open Server 5.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763115.jpg" />
+  <img src="Z:/picture/008/save_picture_763115.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Auslogics Disk Defrag Free 8.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763073.jpg" />
+  <img src="Z:/picture/008/save_picture_763073.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Soft Organizer 7.10 RePacK by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763062.jpg" />
+  <img src="Z:/picture/008/save_picture_763062.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ NetLimiter 4.0.34.0 Enterprise Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763059.jpg" />
+  <img src="Z:/picture/008/save_picture_763059.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ FlashBoot 2.1c + Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763054.jpg" />
+  <img src="Z:/picture/008/save_picture_763054.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Privacy Eraser Free 4.12.3 Build 1978 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763033.jpg" />
+  <img src="Z:/picture/008/save_picture_763033.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ IObit Driver Booster Pro 5.3.0.752 Portable by SamDel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762982.jpg" />
+  <img src="Z:/picture/008/save_picture_762982.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ SoftPerfect RAM Disk 4.0.5 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762884.jpg" />
+  <img src="Z:/picture/008/save_picture_762884.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CrystalDiskInfo 7.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762878.jpg" />
+  <img src="Z:/picture/008/save_picture_762878.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Download Master 6.16.1.1595 RePack (&Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762875.jpg" />
+  <img src="Z:/picture/008/save_picture_762875.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Hard Disk Sentinel Pro 5.20 Build 9372 Final RePack (& Portable) by KpoJIuK  [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762768.jpg" />
+  <img src="Z:/picture/008/save_picture_762768.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ IObit Driver Booster Pro 5.3.0.752 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762750.jpg" />
+  <img src="Z:/picture/008/save_picture_762750.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ The Bat! Professional 8.3.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762746.jpg" />
+  <img src="Z:/picture/008/save_picture_762746.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762740.jpg" />
+  <img src="Z:/picture/008/save_picture_762740.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Air Explorer Pro 1.8.3 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762713.jpg" />
+  <img src="Z:/picture/008/save_picture_762713.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Platinum software v 1.0 (24.05.2010) v 1.0 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762699.jpg" />
+  <img src="Z:/picture/008/save_picture_762699.jpg" />
 </div>
 
 

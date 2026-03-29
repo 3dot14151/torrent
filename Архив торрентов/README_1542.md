@@ -6,7 +6,7 @@ Aiseesoft Data Recovery 1.2.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701730.jpg" />
+  <img src="Z:/picture/008/save_picture_701730.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Glyphs 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701725.jpg" />
+  <img src="Z:/picture/008/save_picture_701725.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Flash Player 22.0.0.192 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701718.jpg" />
+  <img src="Z:/picture/008/save_picture_701718.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ YouTube By Click Premium 2.2.137 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701717.jpg" />
+  <img src="Z:/picture/008/save_picture_701717.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ YouTube By Click Premium 2.2.137 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701713.jpg" />
+  <img src="Z:/picture/008/save_picture_701713.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Viber 6.1.0.1623 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701712.jpg" />
+  <img src="Z:/picture/008/save_picture_701712.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Focus Professional 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701691.jpg" />
+  <img src="Z:/picture/008/save_picture_701691.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Boxy SVG 3  v3.78.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701690.jpg" />
+  <img src="Z:/picture/008/save_picture_701690.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ xSearch for Safari 1.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701689.jpg" />
+  <img src="Z:/picture/008/save_picture_701689.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701682.jpg" />
+  <img src="Z:/picture/005/save_picture_701682.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ GPU-Z + ASUS_ROG v 2.17.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701646.jpg" />
+  <img src="Z:/picture/008/save_picture_701646.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701644.jpg" />
+  <img src="Z:/picture/008/save_picture_701644.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Battletoads Double Dragon - The T.Bird Mission 3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701607.jpg" />
+  <img src="Z:/picture/008/save_picture_701607.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701600.jpg" />
+  <img src="Z:/picture/008/save_picture_701600.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ MechaGore (2016) [Ru/Multi] (1.1) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701594.jpg" />
+  <img src="Z:/picture/008/save_picture_701594.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Autorun Organizer 4.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701590.jpg" />
+  <img src="Z:/picture/008/save_picture_701590.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ DCommander 3 Premium v3.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701588.jpg" />
+  <img src="Z:/picture/008/save_picture_701588.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Autodesk AutoCAD Electrical 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701587.jpg" />
+  <img src="Z:/picture/008/save_picture_701587.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ WhatsApp 2.2033.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701577.jpg" />
+  <img src="Z:/picture/008/save_picture_701577.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Visual Studio Code 1.48.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701576.jpg" />
+  <img src="Z:/picture/008/save_picture_701576.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MiniTool Power Data Recovery 9.0 Technician RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701575.jpg" />
+  <img src="Z:/picture/008/save_picture_701575.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kerish Doctor 2020 4.80 [DC 06.08.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701573.jpg" />
+  <img src="Z:/picture/008/save_picture_701573.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WhatsApp 2.2033.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701572.jpg" />
+  <img src="Z:/picture/008/save_picture_701572.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Omni Toolbox 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701568.jpg" />
+  <img src="Z:/picture/008/save_picture_701568.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Noir – Dark Mode for Safari 2022.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701564.jpg" />
+  <img src="Z:/picture/008/save_picture_701564.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ PhoneRescue for iOS 3.7.2.1019.03.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701472.jpg" />
+  <img src="Z:/picture/008/save_picture_701472.jpg" />
 </div>
 
 

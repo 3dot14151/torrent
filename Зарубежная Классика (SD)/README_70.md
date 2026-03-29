@@ -1,3 +1,82 @@
+###  Публикация: 607588   (496193) от 05.08.2019
+
+Окно напротив / La Finestra di fronte (2003) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496193.jpg" />
+</div>
+
+
+###  Подробнее
+
+День Джованны с утра до вечера заполнен трудом: она работает на птицефабрике, воспитывает двоих детей, стряпает и убирает в доме, а по вечерам выпекает пирожные для соседнего кафе.
+Однажды муж Джованны Филиппо приводит в дом пожилого мужчину, потерявшего память. Теперь молодой женщине приходится ухаживать и за новым постояльцем. Поначалу он ее раздражает, но чем (   Читать дальше...   )Производство: Италия, Турция, Португалия, Великобритания / R&C Produzioni, AFS Film, Clap FilmesЖанр: Драма, МелодрамаРежиссер: Ферзан ОзпетекАктеры: Джованна Меццоджорно, Массимо Джиротти, Рауль Бова, Филиппо Нигро, Серра Йильмаз, Мария Грация Бон, Массимо Поджо, Иван Бакки, Кьяра Андреис, Вероника БруниПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF4B737E64B81220D20789C42464136C4A29A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933700   (495776) от 11.09.2015
+
+Возвращение Сабаты / Е tornato Sabata... hai chiuso un'altra volta (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495776.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Сабата оказывается в городке Хобсонвилль, жители которого обложены непомерными налогами. Сабата отказывается платить обнаглевшим бандитам и решает освободить город от тирании.Производство: Италия, Франция, Германия (ФРГ) / Artemis Film, Jadran Film, Les Productions Artistes Associs, Produzioni Europee Associati (PEA)Жанр: ВестернРежиссер: Джанфранко ПаролиниАктеры: Ли Ван Клиф, Райнер Шёне, Джампьеро Альбертини, Игнацио Спалла, Аннабелла Инконтрера, Жаклин Александр, Альдо Канти, Вассили Керис, Стеффен Захариас, Пиа ДжанкароПеревод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A1A8237A966901D7BBD610DAA6444077F74295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242807   (495726) от 25.08.2018
+
+Венсан, Франсуа, Поль и другие / Vincent, Franсois, Paul... et les autres (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье старые приятели собираются вместе. Они очень разные люди, у каждого свои проблемы. Винсент разорен и должен кучу денег, Франсуа вынужден наблюдать, как его жена меняет мужчин, Поль — писатель без собственных книг. Проблемы приходят и уходят. С годами меняется все — счет в банке, любовь, карьера… Только не меняется старая мужская дружба.Производство: Франция, Италия / Lira Films, President ProduzioniЖанр: ДрамаРежиссер: Клод СотеАктеры: Ив Монтан, Мишель Пикколи, Серж Реджани, Жерар Депардье, Стефан Одран, Мари Дюбуа, Умберто Орсини, Людмила Микаэль, Антонелла Луальди, Катрин АллегреПеревод: Двухголосый закадровый (ОРТ Видео)Субтитры: ОтсутствуютПродолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486BE3AB506E937473B67E8E068C42CBB053FE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542309   (495228) от 05.09.2012
 
 Сквозь строй / The Gauntlet (1977) [H.264] BDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495228.jpg" />
+  <img src="Z:/picture/008/save_picture_495228.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494993.jpg" />
+  <img src="Z:/picture/008/save_picture_494993.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494087.jpg" />
+  <img src="Z:/picture/008/save_picture_494087.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493959.jpg" />
+  <img src="Z:/picture/008/save_picture_493959.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493865.jpg" />
+  <img src="Z:/picture/008/save_picture_493865.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493849.jpg" />
+  <img src="Z:/picture/008/save_picture_493849.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493401.jpg" />
+  <img src="Z:/picture/008/save_picture_493401.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491846.jpg" />
+  <img src="Z:/picture/008/save_picture_491846.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491685.jpg" />
+  <img src="Z:/picture/008/save_picture_491685.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491640.jpg" />
+  <img src="Z:/picture/008/save_picture_491640.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491227.jpg" />
+  <img src="Z:/picture/008/save_picture_491227.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490909.jpg" />
+  <img src="Z:/picture/008/save_picture_490909.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490399.jpg" />
+  <img src="Z:/picture/008/save_picture_490399.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490062.jpg" />
+  <img src="Z:/picture/008/save_picture_490062.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489715.jpg" />
+  <img src="Z:/picture/008/save_picture_489715.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488635.jpg" />
+  <img src="Z:/picture/008/save_picture_488635.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487790.jpg" />
+  <img src="Z:/picture/008/save_picture_487790.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487747.jpg" />
+  <img src="Z:/picture/008/save_picture_487747.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487627.jpg" />
+  <img src="Z:/picture/008/save_picture_487627.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486909.jpg" />
+  <img src="Z:/picture/008/save_picture_486909.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486841.jpg" />
+  <img src="Z:/picture/008/save_picture_486841.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486780.jpg" />
+  <img src="Z:/picture/008/save_picture_486780.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486442.jpg" />
+  <img src="Z:/picture/008/save_picture_486442.jpg" />
 </div>
 
 
@@ -596,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:602C6FE6F590F51CF473350D1D4E945DB46D97DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934757   (485830) от 16.09.2015
-
-Королева скота из Монтаны / Cattle Queen of Montana (1954) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485830.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIX век, Дикий Запад. Молодая привлекательная девушка Сьерра-Невада Джонс и её отец перегоняют стадо из Техаса в свои новые владения в штате Монтана. Об этом они мечтали очень долго и сейчас наслаждаются спокойствием и красотой новых мест. Внезапно они подвергаются нападению разбойника-индейца Начакоа и его людей из племени черноногих.Производство: США / Benedict Bogeaus Production, RKO Radio Pictures Inc.Жанр: ВестернРежиссер: Аллан ДуонАктеры: Барбара Стэнвик, Рональд Рейган, Джин Эванс, Лэнс Фуллер, Энтони Карузо, Джек Элам, Ивет Дугай, Моррис Анкрум, Чабби Джонсон, Майрон ХилиПеревод: Одноголосый закадровый (minyaev)Язык субтитров: РусскийПродолжительность: 01:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6876FFB848064AE9712724B7F4DEBD46F5757196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155431   (485793) от 19.08.2017
-
-Пария / Le paria (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неподалеку от испанской границы был ограблен экспресс, везущий из Роттердама в Мадрид партию бриллиантов. В перестрелке с охранником несколько лихих парней погибли, а Маню получил пулю в руку, но ушел с добычей к морю. В отделении Интерпола и в банде налетчиков озабочены исчезновением Маню и бриллиантов…Производство: Франция, Испания / Carlton Continental, Ceres Films, Santos Alcocer P.C.Жанр: Боевик, Криминал, ТриллерРежиссер: Клод КарльезАктеры: Жан Маре, Мари-Жозе Нат, Хорст Франк, Жак Стани, Жан Лара, Беатрис Дельф , Эрик Донат, Ниевес Наварро, Энрике Сан ФрансискоПеревод: Многоголосый закадровый (студия "Инис" по заказу "Союз-Видео")Субтитры: ОтсутствуютПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C30F13B1CC6CD5DB299975BAFB748BF0E824B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055652   (485354) от 23.09.2016
-
-Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure / Mr. Robinson (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робинзон Крузо проходит через множество комичных ситуаций, пока ему не удается хоть как-то освоиться на острове. У него появляется даже Пятница — только на этот раз это темнокожая красавица, с которой Робинзон поначалу тщетно пытается найти общий язык.
-Современный Робинзон не хочет отказываться от благ цивилизации и придумывает, как заменить телевизор, радио и все (   Читать дальше...   )Производство: Италия / Vides CinematograficaЖанр: Мелодрама, Комедия, ПриключенияРежиссер: Серджио КорбуччиАктеры: Паоло Вилладжо, Зеуди Арая Кристальди, Перси Хоган, Анна НогараПеревод: Дублированный (Киностудия "Союзмультфильм", с вставками MVO)Продолжительность: 01:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6799E5B1E74DF78B7F820C24717F2AC75FF855D
 ```
 
 https://mybot314.ru/tekegram_catalog/

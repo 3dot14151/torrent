@@ -1,3 +1,32 @@
+###  Публикация: 1316854   (503971) от 28.07.2019
+
+Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - The Key To Perfection
+2017 - Frautonium (The Andrew Weatherall Remixes)
+2017 - Limbo (The Remixes)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565210   (496648) от 22.07.2022
 
 Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
@@ -6,7 +35,7 @@ Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496648.jpg" />
+  <img src="Z:/picture/008/save_picture_496648.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop R
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493859.jpg" />
+  <img src="Z:/picture/008/save_picture_493859.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Denner (FR) - Shades & Parasols (2022) [MP3|320 Kbps] <French Coldwave, New Wave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492461.jpg" />
+  <img src="Z:/picture/008/save_picture_492461.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Planets - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, New Wave, Pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488726.jpg" />
+  <img src="Z:/picture/008/save_picture_488726.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Buggles - 2 Albums (1980, 1981) Reissue CD [MP3|320 Kbps] <Electronic, Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484091.jpg" />
+  <img src="Z:/picture/008/save_picture_484091.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Yello - Point (2020) [MP3|320 Kbps] <Synthpop, Electronic>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482865.jpg" />
+  <img src="Z:/picture/008/save_picture_482865.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ New Order - Music Complete (2015) [MP3|320 кб/с]<Synthpop, Electronic, New-Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473221.jpg" />
+  <img src="Z:/picture/008/save_picture_473221.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Hurts - Faith (2020) [MP3|320 Kbps] <Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472645.jpg" />
+  <img src="Z:/picture/008/save_picture_472645.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ ScAnDroid Experiment's - We Will Make You Happy (2022) авторская раз
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470188.jpg" />
+  <img src="Z:/picture/008/save_picture_470188.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Moebius - Moebius (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469118.jpg" />
+  <img src="Z:/picture/008/save_picture_469118.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Cosmic Armchair - Contact (2017) [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463379.jpg" />
+  <img src="Z:/picture/008/save_picture_463379.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Laserdance - Ambiente (1991) [OGG|480 Kbps] <Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459933.jpg" />
+  <img src="Z:/picture/008/save_picture_459933.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Laserdance - Changing Times (1990) [OGG|485 Kbps] <Synthpop, Electronic>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459925.jpg" />
+  <img src="Z:/picture/008/save_picture_459925.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ A-Ha - Minor Earth, Major Sky (2000) [OGG|485 Kbps] <Synth-pop, Pop Rock, Soft R
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453669.jpg" />
+  <img src="Z:/picture/008/save_picture_453669.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Erasure - Day-Glo (Based on a True Story) (2022) [MP3|320 Kbps] <Synthpop, New W
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451658.jpg" />
+  <img src="Z:/picture/008/save_picture_451658.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Proxyon - Proxyon (1989) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447204.jpg" />
+  <img src="Z:/picture/008/save_picture_447204.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447200.jpg" />
+  <img src="Z:/picture/008/save_picture_447200.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Pet Shop Boys - Actually (1987) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447199.jpg" />
+  <img src="Z:/picture/008/save_picture_447199.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446564.jpg" />
+  <img src="Z:/picture/008/save_picture_446564.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443028.jpg" />
+  <img src="Z:/picture/008/save_picture_443028.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Eurythmics - We Too Are One (1989) Remastered ,2018, RCA [OGG|485 Kbps] <Synthpo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438369.jpg" />
+  <img src="Z:/picture/008/save_picture_438369.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438362.jpg" />
+  <img src="Z:/picture/008/save_picture_438362.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438301.jpg" />
+  <img src="Z:/picture/008/save_picture_438301.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437578.jpg" />
+  <img src="Z:/picture/008/save_picture_437578.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425505.jpg" />
+  <img src="Z:/picture/008/save_picture_425505.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572212   (423517) от 26.08.2022
-
-A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move To Memphis
-02. I've Been Losing You
-03. The Living Daylights
-04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

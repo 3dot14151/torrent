@@ -1,3 +1,55 @@
+###  Публикация: 1494771   (884120) от 10.09.2021
+
+Катури / Katuri (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-52 из 52) Первый Канал. Всемирная сеть
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в удивительное лесное царство! Вас ждут яркие краски лета, чарующие звуки природы и дружелюбные местные обитатели. Это общий дом для сотен больших и маленьких животных, а в их числе – и наш пернатый квартет героев. Три разных по характеру братика-птенца и их сестренка приглашают маленьких зрителей вместе с собой в захватывающее путешествие по лесу. (   Читать дальше...   )Производство: Южная Корея | Funny FluxЖанр: Детский, приключения, познвательныйРежиссер: Су Кён Ха, Су Мён УПеревод: Дублированный (Первый Канал. Всемирная сеть)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:07:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF73A6BF932CACB0C943BE139448E0BD7B4ECA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103788   (882889) от 13.02.2017
+
+Лего Рыцари Нексо / Lego Nexo Knights (2016) HDTVRip [H.264/720p-LQ] (Сезон: 2, серии: 10 из 10) [UKR, EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы окунетесь в параллельный мир Средневековья, мир передовых технологий, роботов и рыцарей будущего. В Найтонии царил лад и покой, подданные любили короля и восславляли его. Но в один миг тучи над королевством сгустились – королевский шут тро нашел Книгу Монстров и обратился на темную сторону зла. Эта книга несла в себе страшную силу, в ней от первой странички до (   Читать дальше...   )Производство: Дания, M2 EntertainmentЖанр: Мультсериал, детский, приключения, фэнтезиРежиссер: Питер ГриффитсПеревод: ДублированныйОзвучка: ТК Плюс ПлюсЯзык субтитров: английскийЯзык: украинский, английскийПродолжительность: 00:21:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93D6E0EAFF8D671E95F36A4A44773EA70C8369F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495438   (880472) от 12.09.2021
 
 Мой питомец — псих / HouseBroken (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-11 из 11)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880472.jpg" />
+  <img src="Z:/picture/008/save_picture_880472.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878877.jpg" />
+  <img src="Z:/picture/005/save_picture_878877.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878702.jpg" />
+  <img src="Z:/picture/005/save_picture_878702.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878060.jpg" />
+  <img src="Z:/picture/005/save_picture_878060.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877327.jpg" />
+  <img src="Z:/picture/005/save_picture_877327.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_877102.jpg" />
+  <img src="Z:/picture/008/save_picture_877102.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_877100.jpg" />
+  <img src="Z:/picture/008/save_picture_877100.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877096.jpg" />
+  <img src="Z:/picture/005/save_picture_877096.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876973.jpg" />
+  <img src="Z:/picture/008/save_picture_876973.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875641.jpg" />
+  <img src="Z:/picture/005/save_picture_875641.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874381.jpg" />
+  <img src="Z:/picture/005/save_picture_874381.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874199.jpg" />
+  <img src="Z:/picture/005/save_picture_874199.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872791.jpg" />
+  <img src="Z:/picture/008/save_picture_872791.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872248.jpg" />
+  <img src="Z:/picture/008/save_picture_872248.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870673.jpg" />
+  <img src="Z:/picture/008/save_picture_870673.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870668.jpg" />
+  <img src="Z:/picture/008/save_picture_870668.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869787.jpg" />
+  <img src="Z:/picture/008/save_picture_869787.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868693.jpg" />
+  <img src="Z:/picture/008/save_picture_868693.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867656.jpg" />
+  <img src="Z:/picture/008/save_picture_867656.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867008.jpg" />
+  <img src="Z:/picture/008/save_picture_867008.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866919.jpg" />
+  <img src="Z:/picture/008/save_picture_866919.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861575.jpg" />
+  <img src="Z:/picture/008/save_picture_861575.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859681.jpg" />
+  <img src="Z:/picture/008/save_picture_859681.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859251.jpg" />
+  <img src="Z:/picture/008/save_picture_859251.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A14A52B845A6970FDD4F8DFDBF02AC1C5EEA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999830   (858743) от 25.03.2016
-
-Приключения Тайо / Tayo: The Little Bus (2010-2014) WEB-DLRip (сезон 1-2, серии 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайо - маленький синий автобус, который только начинает свою жизнь в большом городе. Он уже выучил ПДД, а теперь предстоит успешно сдать тест, прежде чем выехать на оживленные улицы и взять на себя ответственность за пассажиров. В автошколе он знакомится с желтым такси Нури, грузовичком Вруми, гоночной машинкой Спиди и другими участниками движения, которые также (   Читать дальше...   )Производство: Южная КореяЖанр: Компьютерная анимацияРежиссер: Мин-сунг КимПеревод: Дублированный(без рекламы)Продолжительность: 52 серии ~ 00:14:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE01F55357FAE5B227CC13D458BB825648DB3268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623457   (857946) от 22.04.2013
-
-Трон: Восстание / Tron: Uprising (2012-2013) [H.264/1080p] WEB-DLRip (1 сезон: эпизодов 19 из 19) (Disney)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой сериала - молодая компьютерная программа Бек возглавляет восстание против Клу, захватившего власть в системе и его подручного генерала Теслера. Бека тренирует Трон - величайший герой системы всех времён. Возмужавший под наставничеством Трона, Бек становится новым защитником системы и главным врагом Теслера и его войск.Жанр: Компьютерная анимация, ФантастикаРежиссер: Чарли БинПеревод: ДублированныйОзвучка / Автор перевода: • Профессиональный (дублированный) -Продолжительность: 19 х ~ 00:30:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

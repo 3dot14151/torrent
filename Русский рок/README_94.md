@@ -1,3 +1,113 @@
+###  Публикация: 1596893   (168416) от 12.12.2022
+
+The Sphinx - Пески Времени (2022) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Апокалипсис сегодня [00:04:31]
+02 - Пески времени [00:06:06]
+03 - Срываясь в пустоту [00:04:16]
+04 - Река забвения [00:04:28](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3745843EB1E9FE7DDF2A3F201E0C534C08815D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515848   (168303) от 08.12.2021
+
+Ленинград feat. Зоя - Сюрприз (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СюрпризЖанр: RockПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0967F2C18B7438FF0244947509E4122CF6CAED0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345104   (168164) от 13.12.2019
+
+Ночные Снайперы - рим (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168164.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. римЖанр: RockПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD490DB1E77ED822265E1FE5627993AB2E9901B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345164   (168138) от 13.12.2019
+
+Дом Кукол - Космонавтика (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Часть тебя
+2. Космонавтская (feat. Торба-на-Круче)
+3. Дуняша
+4. Мотоциклисты(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF88E47FA00C879FF323E2BDC291CBBFAF3D8E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345107   (168050) от 13.12.2019
 
 Евгений Гришковец & Бигуди - Кто здесь вспомнит нас?... (2019) EP [MP3|320 Kbps] <Rock>
@@ -6,7 +116,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168050.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167870.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167772.jpg" />
 </div>
 
 
@@ -93,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166967.jpg" />
 </div>
 
 
@@ -122,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166949.jpg" />
 </div>
 
 
@@ -151,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166877.jpg" />
 </div>
 
 
@@ -180,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166864.jpg" />
 </div>
 
 
@@ -209,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166836.jpg" />
 </div>
 
 
@@ -238,7 +348,7 @@ Buffy 85 - Машина смерти (2022) [MP3|320 Kbps] <Hard Rock, Punk Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166824.jpg" />
 </div>
 
 
@@ -267,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166723.jpg" />
 </div>
 
 
@@ -296,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166694.jpg" />
 </div>
 
 
@@ -325,7 +435,7 @@ Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166244.jpg" />
 </div>
 
 
@@ -354,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166213.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166016.jpg" />
 </div>
 
 
@@ -412,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165002.jpg" />
 </div>
 
 
@@ -441,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164521.jpg" />
 </div>
 
 
@@ -470,7 +580,7 @@ Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164438.jpg" />
 </div>
 
 
@@ -499,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164434.jpg" />
 </div>
 
 
@@ -528,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164422.jpg" />
 </div>
 
 
@@ -557,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164247.jpg" />
 </div>
 
 
@@ -586,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164234.jpg" />
 </div>
 
 
@@ -615,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164042.jpg" />
 </div>
 
 
@@ -629,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87BB9F652C3668042BEC0BDF254BB2CDD9E9B872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346551   (163758) от 19.12.2019
-
-Леонид Фёдоров feat. Игорь Крутоголов (Фёдоров и Крузенштерн) - Из неба и воды (2019) [MP3|320 Kbps] <Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163758.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я
-2. Из неба и воды
-3. Италия
-4. Попугай(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0104FE1AD1A75F08EC4DCE8D76C157194D59CB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346469   (163505) от 19.12.2019
-
-Сплин - Тайком (2019) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воздушный шар
-02. Тайком
-03. Атом
-04. Гимн(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13611BEEC196ACD6DD7F07AECE746DB0FBD52DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598228   (163379) от 18.12.2022
-
-The Zapoy! - 5 Albums (2015-2022) [MP3|320 Kbps] <Street Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007-2015 - Compilation
-2019 - Bring It On!
-2019 - Skinhead Power(   Читать дальше...   )Жанр: Street PunkПродолжительность: 5 CD, 02:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ADAFED247DA1C059D9D7CCDEC75BA6E00A409C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598385   (163337) от 18.12.2022
-
-Sonic Death - 4 Albums (2020-2022) [MP3|320 Kbps] <Garage Rock, Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Russian Gothic
-2020 - После нас тишина
-2021 - Ночь Длинных Баллад(   Читать дальше...   )Жанр: Garage Rock, Hardcore PunkПродолжительность: 4 CD, 02:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6691D1251B3F7D409BB4F73A264BE5D2E97A4FD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

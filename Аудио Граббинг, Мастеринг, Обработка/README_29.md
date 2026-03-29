@@ -1,3 +1,108 @@
+###  Публикация: 1520492   (141696) от 28.12.2021
+
+SINEE - Chop Suey 1.1 VSTi [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chop Suey - это сэмплер ударных барабанов с уникальным рабочим процессом наложения слоев, который позволяет вам создавать свои собственные ударные барабаны с 3 компонентами в линейной временной последовательности: переходный, тело и хвост. Обладая огромной библиотекой сэмплов этих трех компонентов, Chop Suey обеспечивает практически бесконечное количество возможных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01F41A813C88533F6438FC5BB7FEBAF3B8A8C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435783   (140741) от 29.12.2020
+
+Roland - ZENOLOGY Pro 1.5.2 VSTi, AAX (x64) RePack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспользуйтесь огромной мощью ядра системы синтеза ZEN и погрузитесь в мир индивидуального звукового дизайна с ZENOLOGY Pro. Вы получаете потрясающее качество звука и эффективность ZENOLOGY, а также обширный интерфейс для создания совершенно новых звуков, которые вдохновят вашу музыку.
+Система синтеза ZEN-Core содержит множество подробных параметров с анимированными (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AD8953989F8001D275D702BDE9436201F845BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525195   (130082) от 19.01.2022
+
+Sonic Charge - Microtonic 3.20 VSTi  [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonic Charge Microtonic - уникальный культовый барабанный/перкуссионный синтезатор, объединенный с движком драм-машины, основанной на паттернах. Используйте Microtonic, как звуковой модуль для воспроизведения ударных звуков с MIDI-клавиатуры или секвенсора. Можно использовать встроенный механизм паттернов, для проигрывания ударных образцов в синхронизации с секвенсором. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0383668B089D2B0BD9399BFB9BEB6513D0F92383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525247   (130026) от 19.01.2022
+
+Raising Jake Studios - Cans 2 Cones 4.0.0 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы микшируете в наушниках в домашней студии, комнате в общежитии или в дороге, вы знаете, что бывает сложно оценить, как ваш микс будет звучать при воспроизведении через динамики. Cans2Cones может помочь!Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372ECDF1302B15433C65A31D4D06EE7369A75625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824326   (128933) от 14.10.2025
 
 Reaper 7.48 RePack (& Portable) by elchupacabra [En/Ru]
@@ -6,7 +111,7 @@ Reaper 7.48 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128933.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ Kazrog Plugins 10.2025 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125861.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Metric Halo - CGII 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124416.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Metric Halo - Make Believe MixHead 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124414.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ Woodstock Audio - Open Compressor 1.0.2 VST 3 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124411.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ PSPaudioware - PSP preQursor3 3.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124410.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ Nuro Audio - Xrider 1.0.1 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122579.jpg" />
 </div>
 
 
@@ -197,7 +302,7 @@ Nuro Audio - Xvox Pro 1.0.3 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122564.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ iZotope - RX 10 Audio Editor Advanced 10.5.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120727.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ Spectrasonics Omnisphere Software 2.8.6c, Patch 2.8.2c, Soundsource 2.6.2c Libra
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120549.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ Sonic Academy Plugins Bundle 2023.12 VST/VSTi, VST 3/VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119982.jpg" />
 </div>
 
 
@@ -303,7 +408,7 @@ PSPaudioware - PSP Plugins Bundle 01.2024 VST, VST3, AAX (x64) RePack by R2R [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119849.jpg" />
 </div>
 
 
@@ -329,7 +434,7 @@ JMG Sound Plugins Bundle 2024.01 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119824.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ Sound Particles - 6FX Bundle 02.2024 VST3, AAX (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119381.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ Eventide - Blackhole Immersive 1.1.3 VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119351.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118896.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ Newfangled Audio - Recirculate 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118811.jpg" />
 </div>
 
 
@@ -464,7 +569,7 @@ UJAM - BEATMAKER 3 3.0.2 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117540.jpg" />
 </div>
 
 
@@ -491,7 +596,7 @@ Cherry Audio - Trident 1.0.10 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117539.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ mp3Tag Pro 12.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114565.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ Sugar Bytes - Effectrix 2 v2.0.3 Standalone, VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114219.jpg" />
 </div>
 
 
@@ -569,7 +674,7 @@ BABY Audio - BA-1 1.5.0 STANDALONE, VSTi, VSTi3, AAX (x86/x64) + Expansion Packs
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112985.jpg" />
 </div>
 
 
@@ -581,113 +686,6 @@ BA-1 - это синтезатор аналогового моделирован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711339   (112537) от 29.03.2024
-
-TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свои проекты звукового дизайна на новый уровень с помощью Doppler Pro - благодаря значительно улучшенному доплеровскому движку, тщательно переосмысленному и спроектированному для обеспечения непревзойденной точности и естественного звучания. DopplerPRO революционизирует ваш рабочий процесс благодаря мощному пространственному движку.
-Предлагая точное масштабирование (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32807789A93C1AC98A9F8B0D2A84AF796323C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711341   (112525) от 29.03.2024
-
-Togu Audio Line - TAL-Pha 1.1.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112525.jpg" />
-</div>
-
-
-###  Подробнее
-
-TAL-Pha — инструментальный плагин, имитирующий звучание аналогового синтезатора 80-х Alpha Juno II (MKS-50 — рэковая версия).
-Плагин воспроизводит классический аналоговый звук в сочетании с современной гибкостью и множеством дополнительных функций. Плагин может считывать и преобразовывать системную информацию с оборудования, а также может использоваться в качестве (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD92F70798E3BBA9225C13B250DB74775C6FFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714279   (111763) от 08.04.2024
-
-W.A. Production - Instachord 2 2.0.6.240204 VSTi, VSTi 3, AAX (x86/x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы считаем, что творческое самовыражение должно быть простым, интуитивно понятным и вдохновляющим. Когда вы создаете музыку, вам нужны правильные аккорды, чтобы задавать тон, и Instachord 2 обеспечивает именно то, что вам нужно... и быстро!
-Мы были настолько поражены приемом оригинального Instachord, что не могли устоять перед тем, чтобы превратить эту концепцию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AFA4A1116D319B20EC23D9661BC511B8E143B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719631   (110529) от 30.04.2024
-
-PSPaudioware - PSP stompDelay 1.1.4 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110529.jpg" />
-</div>
-
-
-###  Подробнее
-
-PSP stompDelay — это креативный дилей плагин, разработанный для обеспечения широкого спектра звуков: от сочных аналоговых ленточных задержек до классических задержек в стиле пинг-понг и резких сдвигов высоты тона. Он имеет как традиционные эффекты задержки, так и лупер в «режиме бесконечной работы» (режим Infinity). PSP stompDelay обеспечивает непрерывный темп, а (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE393BF2173A0B6D03CE8D78B4EA6C70674DA05
 ```
 
 https://mybot314.ru/tekegram_catalog/

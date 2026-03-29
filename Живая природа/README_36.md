@@ -1,3 +1,55 @@
+###  Публикация: 1424523   (227578) от 17.11.2020
+
+Самые чудесные места / Семь чудес природы / The Greatest Places (1998) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камера покажет Вам гораздо больше, чем может увидеть турист. Вы удивитесь роскоши дворцов, соприкоснетесь с древними тайнами, восхититесь творениями природы. Нет на земле такого места, куда нельзя добраться на Вашем ковре-самолете. Вас ждут фантастические виды, неожиданные ракурсы, незабываемое путешествие и подлинные Чудеса - величайшие создания цивилизации. Когда (   Читать дальше...   )Производство: США, Science Museum of Minnesota, Fort Worth Museum of Science & History, St. Louis Science Centre, Cincinnati Museum Center, Goto Optical MFG. CO., Lobo & Associates Inc.Жанр: Документальный, природа, флора, фаунаРежиссер: Мэл ВульфПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6E6D35AD9C9E4D413BD8D8ADBAC664F0A7877B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850002   (227435) от 19.12.2014
+
+Дикая Франция / Wild France / La France sauvage (2012) BDRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот она... скрытая, но вездесущая... Ее основной закон – приспособиться, чтобы выжить. Во Франции, дикая жизнь заполняет каждый клочок территории. Она подчиняется световым циклам и живет в своем собственном ритме, задаваемом испокон веков великими курантами природы. Для животных и растений Франция – страна исключительная и уникальная. Ее контрастные климатические (   Читать дальше...   )Телекомпания: Arte G.E.I.E.Жанр: Документальный, путешествия, природаРежиссер: Огюстен ВиаттэАктеры: Софи Марсо, Наталья РоманькоПеревод: Одноголосый закадровый (профессиональный)Субтитры: вшитыеЯзык субтитров: русскийПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F393C71DCF76FBBA0B87751E7B72DF1022CE7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424768   (225777) от 18.11.2020
 
 Тайны Арктики / Arctic Secrets (2017) UHDTVRip [H.264/1080p] (сезон 2, серии 1-3 из 3)
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225777.jpg" />
+  <img src="Z:/picture/005/save_picture_225777.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225341.jpg" />
+  <img src="Z:/picture/005/save_picture_225341.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224631.jpg" />
+  <img src="Z:/picture/005/save_picture_224631.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224628.jpg" />
+  <img src="Z:/picture/005/save_picture_224628.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224213.jpg" />
+  <img src="Z:/picture/005/save_picture_224213.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224041.jpg" />
+  <img src="Z:/picture/005/save_picture_224041.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223213.jpg" />
+  <img src="Z:/picture/005/save_picture_223213.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222530.jpg" />
+  <img src="Z:/picture/005/save_picture_222530.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222520.jpg" />
+  <img src="Z:/picture/005/save_picture_222520.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221838.jpg" />
+  <img src="Z:/picture/005/save_picture_221838.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220891.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_220779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220779.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220680.jpg" />
+  <img src="Z:/picture/005/save_picture_220680.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219540.jpg" />
+  <img src="Z:/picture/005/save_picture_219540.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217173.jpg" />
+  <img src="Z:/picture/005/save_picture_217173.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216544.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216323.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213925.jpg" />
+  <img src="Z:/picture/005/save_picture_213925.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213731.jpg" />
+  <img src="Z:/picture/005/save_picture_213731.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213647.jpg" />
+  <img src="Z:/picture/005/save_picture_213647.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213597.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213582.jpg" />
+  <img src="Z:/picture/005/save_picture_213582.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212851.jpg" />
+  <img src="Z:/picture/005/save_picture_212851.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212095.jpg" />
+  <img src="Z:/picture/004/save_picture_212095.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ED646808E3C4DF3382B0A2227B0F3A8098BC972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638258   (212067) от 07.06.2023
-
-Змеи. Тайны самых смертоносных созданий на земле / Snakes, Secrets of Nature’s Deadliest Creatures (2014) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ об удивительных созданиях — змеях. О том, как они приспособились к разным средам обитания и могут жить на суше, в море и даже летать.Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальныйРежиссер: Ли Ён-гюПеревод: Одноголосый профессиональный (по заказу SLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7651F132430C5B05998AB4E0DEE73C3E2109193C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638265   (212040) от 07.06.2023
-
-Зов дикой природы / Our Nature (2019) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212040.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Земле обитает более чем 1,6 миллиона известных видов животных, каждый из которых играет свою роль в природе. Потрясающие пейзажи, многообразие видов птиц, диких кошек, рыб, слонов, китов и многих других, обитающих на семи континентах. Всё это — чудеса голубой планеты, которую мы называем домом.Производство: Германия / Little Brother FilmsЖанр: документальныйРежиссер: Экрем Энгизек, Тимо Дж. МэйерПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876B0D5A2C8D13923BB800A90B830F5F0BCB034A
 ```
 
 https://mybot314.ru/tekegram_catalog/

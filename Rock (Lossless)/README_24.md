@@ -1,3 +1,148 @@
+###  Публикация: 1093670   (934014) от 15.01.2017
+
+Resistor - Underground (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (7:45)
+02. Cathedral (4:02)
+03. Wire (3:30)
+04. Killers and Activists (4:12)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2187183363EDCCD1DC22DEA1E963F6200EDFA246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985806   (933839) от 12.02.2016
+
+U2 - U218 Singles (2007) Compilation [FLAC|Lossless|image + .cue] <Rock,Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	– Beautiful Day 	04:05
+02. 	– I Still Haven't Found What I'm Looking For 	04:38
+03. 	– Pride (In The Name Of Love) 	03:48
+04. 	– With Or Without You 	04:56(   Читать дальше...   )Жанр: Rock,Pop RockПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02446F9063016B1BFF0EAD37613C15426125F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093968   (932432) от 16.01.2017
+
+Simon Kinny-Lewis - Country Fried Chicken (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock, Guitar Jazzy Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Blue Pellet Shuffle 05:01
+02 Conan The Barbarihen 05:08
+03 Fire Fox 02:34
+04 Ocean Call 04:54(   Читать дальше...   )Жанр: Blues, Blues-Rock, Guitar Jazzy BluesПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5344A9E3D84F7C139B48854BE1BB86E321938E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094290   (930955) от 17.01.2017
+
+The Winyls - Honey And Lime (2008) [FLAC|Lossless|tracks] <Pop Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See Me Alive 03:10
+02. I Know 03:26
+03. Keep Rock 'N' Roll Alive 03:06
+04. Would You Believe 02:44(   Читать дальше...   )Жанр: Pop Rock, Garage RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D23C48B3EAFE5A277FBB59CF3C459FBF778AF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094120   (930287) от 17.01.2017
+
+The XX - I See You (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Dangerous (4:11)
+ 02/10. Say Something Loving (3:58)
+ 03/10. Lips (3:21)
+ 04/10. A Violent Noise (3:47)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848C00ACBF28CC226C0C3F52CCE0F1B4C953D945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986432   (930122) от 14.02.2016
 
 Pink Floyd - A Momentary Lapse Of Reason (1987) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +151,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Japanese Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930122.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Indica - Shine (2014) Limeted Digipack [FLAC|Lossless]<Symphonic Rock, Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929782.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Eagles - Their Greatest Hits 1971-1975 (1976) Compilation, Reissue, 1990, Asylum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928929.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Marty Walsh - The Total Plan (2014) [FLAC|Lossless|tracks] <Rock, Instrumental>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927968.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Doobie Brothers - Siblings Rivalry (2000) [FLAC|Lossless|tracks] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927914.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Link Wray - Apache (1990) [FLAC|Lossless|tracks] <Rock, Rock & Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927889.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Nautilus - 2 Albums (2004, 2009) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927794.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Fatal Fusion - Total Absence (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Crosso
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927769.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Paul Gilbert - I Can Destroy (2015) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927723.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Magnum - The Valley Of Tears: The Ballads (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927706.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Peter Cetera - One More Story (1988) [FLAC|Lossless|image + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927700.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927533.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Chicago - 121 Albums (1969-2016) Discography [FLAC, APE, WavPack|Lossless]<Jazz 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927209.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Big Hogg - Pageant Of Beasts (2021) [FLAC|Lossless|image + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927160.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Andy Timmons Band - Resolution (2006) Digipak [FLAC|Lossless|tracks] <Rock, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926053.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Andy Timmons - 2 альбома (1999, 2002) [FLAC|Lossless|tracks] <Rock, Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925908.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Caravan - The World Is Yours: The Antology 1968-1976 (2010) 4CD Box Set, remaste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925864.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Solstice Coil - Commute (2015) [FLAC|Lossless|tracks + .cue] <Prog Related, Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925541.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Mike Oldfield - Return to Ommadawn (2017) [FLAC|Lossless|tracks + .cue] <Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924241.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ Mike Oldfield - Return To Ommadawn (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924188.jpg" />
 </div>
 
 
@@ -582,7 +727,7 @@ Perticone - Underdog (2021) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924026.jpg" />
 </div>
 
 
@@ -596,151 +741,6 @@ Perticone - Underdog (2021) [FLAC|Lossless|image + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0316D7755435DC8EDEBC1AB7FDF9426CAE807FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489672   (923982) от 17.08.2021
-
-Seventh Crystal - Delirium (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say What You Need To Say
-02. When We Were Young
-03. Broken Mirror
-04. Delirium(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275757DF4891F1E8DED31E77B515ACADBF338460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145068   (922586) от 13.02.2014
-
-Sam Brown - Stop! (1988) [FLAC|Lossless|image+cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sam Brown (Сэм Браун, настоящее имя — Саманта Браун, 7 октября 1964, Лондон, Великобритания) — английская певица, автор текстов песен. Она — дочь известного британского исполнителя рок-н-ролла Джо Брауна и певицы Вики Браун (Vicki Brown). Браун известна своей экспрессивной манерой исполнения и способностью легко смешивать различные музыкальные стили. Наиболее известна (   Читать дальше...   )01. Walking Back To Me (3:44)
-02. Your Love Is All (4:10)
-03. Stop (4:56)
-04. It Makes Me Wonder (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB7F2B8F6A1F8968FCBD8627DBF9DB261ADC3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987941   (922569) от 19.02.2016
-
-Joe Stump - 5 альбомов (1993 - 2009) [FLAC|Lossless|tracks] <Rock, Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasinae The Dragon  05:11
-02. Pistol Whipped  06:27
-03. The Dance of Kashani  07:49
-04. Fire and Brimstone  05:45(   Читать дальше...   )Жанр: Rock, Heavy Metal, Speed MetalПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4682F7AC230B35AA159F9AC7FFBFD75C4CF9FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490048   (920784) от 19.08.2021
-
-Viriditas - Red Mars (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Mars (03:23)
-02. The Killing (06:44)
-03. Ares (06:26)
-04. Khalia (08:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EC3E6A2D64ECF5778E50C4114996B4087AFA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490129   (920782) от 19.08.2021
-
-Lacrimarum - My Never Fading Star (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mess (03:53)
-02. Blood (05:00)
-03. Demon in Me (03:36)
-04. My Never Fading Star (06:39)(   Читать дальше...   )Жанр: Gothic Symphonic RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19AE9D92A70954128F0BD6312DA365D84EC05B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

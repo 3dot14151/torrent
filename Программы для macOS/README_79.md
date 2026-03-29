@@ -1,3 +1,143 @@
+###  Публикация: 918378   (586832) от 15.07.2015
+
+Things 2.5.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things - популярный органайзер заданий, который помогает структурировать то, что вам нужно сделать, в интуитивно понятной форме. Things mac сочетает мощный функционал с простотой, используйте теги и интуитивный набор фильтров. Things mac os призван решить казалось бы невыполнимую задачу - сделать работу с вашими заданиями веселой и простой.
+
+"Things - это настоящий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июля 2015Разработчик: Cultured Code GmbH & Co. KGПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A51A99259F9B82CDD4E4787C042F94AA0E3911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301785   (583339) от 13.05.2019
+
+Bookends 13.2.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.05.2019Разработчик: Sonny SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E7D7A32123DA4CA7E67F27D98FE948FCDFE8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301907   (582975) от 13.05.2019
+
+Winclone Pro 7 v7.3.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Winclone. Или как проще всего клонировать Windows на Mac..
+По непонятным причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.05.2019Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88FAE2BEBB5BE8161B55E859DD96F8ADCDA6FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041538   (582353) от 09.08.2016
+
+Super Refocus 1.5.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Refocus – линзовые эффекты фотографий
+
+Super Refocus – это программное обеспечение для фокусировки изображений с профессиональными линзовыми эффектами. Просто применив размытый фон и увеличив глубину поля резкости, можно создать ощущение глубины и привлечь внимание зрителя к изображению в фокусе. Не требуются дорогие объективы или профессиональное ПО для обработки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: effectmatriПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E66C0800D22FF082ACFE5F18A04F6D640B9850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920000   (581695) от 20.07.2015
+
+Acronis True Image 2015 v1.0.6725 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image 2015 for Mac
+Надежное резервное копирование и восстановление всей системы - электронной почты, музыки, фотографий, видеозаписей, документов, личных настроек, закладок и всех приложений.
+
+Теперь вы решаете, где, когда и как сохранять свои данные. Используйте внешние диски, облачное хранилище данных, Time Capsule или любое NAS-устройство. Выбирайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 июля 2015Разработчик: Acronis International GmbHПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F98B67BE3D99A95199B0C56BCDB0B4150F3AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042143   (580584) от 11.08.2016
 
 Chatty for Facebook 2.0.1 [Multi]
@@ -6,7 +146,7 @@ Chatty for Facebook 2.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580584.jpg" />
+  <img src="Z:/picture/008/save_picture_580584.jpg" />
 </div>
 
 
@@ -35,7 +175,7 @@ Disk Sensei 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580340.jpg" />
+  <img src="Z:/picture/008/save_picture_580340.jpg" />
 </div>
 
 
@@ -63,7 +203,7 @@ Printworks 2 v2.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580313.jpg" />
+  <img src="Z:/picture/008/save_picture_580313.jpg" />
 </div>
 
 
@@ -91,7 +231,7 @@ Movavi Video Converter 6.2.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580203.jpg" />
+  <img src="Z:/picture/008/save_picture_580203.jpg" />
 </div>
 
 
@@ -120,7 +260,7 @@ Cocktail 9.3.4 (El Capitan Edition) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579409.jpg" />
+  <img src="Z:/picture/008/save_picture_579409.jpg" />
 </div>
 
 
@@ -146,7 +286,7 @@ FXhome PhotoKey 6 Pro 6.0.0027 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578687.jpg" />
+  <img src="Z:/picture/008/save_picture_578687.jpg" />
 </div>
 
 
@@ -172,7 +312,7 @@ Everimaging HDR Darkroom 3 v1.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578326.jpg" />
+  <img src="Z:/picture/008/save_picture_578326.jpg" />
 </div>
 
 
@@ -199,7 +339,7 @@ Webcam Settings 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577991.jpg" />
+  <img src="Z:/picture/008/save_picture_577991.jpg" />
 </div>
 
 
@@ -228,7 +368,7 @@ FILTERiT 4.6.5 for Adobe Illustrator CS6-CC2015 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577836.jpg" />
+  <img src="Z:/picture/008/save_picture_577836.jpg" />
 </div>
 
 
@@ -256,7 +396,7 @@ Parallels Desktop for Mac Business Edition 12.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577275.jpg" />
+  <img src="Z:/picture/008/save_picture_577275.jpg" />
 </div>
 
 
@@ -282,7 +422,7 @@ Paste 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576997.jpg" />
+  <img src="Z:/picture/008/save_picture_576997.jpg" />
 </div>
 
 
@@ -310,7 +450,7 @@ Hazel 4.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575780.jpg" />
+  <img src="Z:/picture/008/save_picture_575780.jpg" />
 </div>
 
 
@@ -336,7 +476,7 @@ FontAgent 7.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574347.jpg" />
+  <img src="Z:/picture/008/save_picture_574347.jpg" />
 </div>
 
 
@@ -365,7 +505,7 @@ PaintCode 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574342.jpg" />
+  <img src="Z:/picture/008/save_picture_574342.jpg" />
 </div>
 
 
@@ -391,7 +531,7 @@ MacDroid Pro 1.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573916.jpg" />
+  <img src="Z:/picture/008/save_picture_573916.jpg" />
 </div>
 
 
@@ -417,7 +557,7 @@ Exposure X7 v7.1.5.197  [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573766.jpg" />
+  <img src="Z:/picture/008/save_picture_573766.jpg" />
 </div>
 
 
@@ -443,7 +583,7 @@ WindowMizer 5 v5.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573078.jpg" />
+  <img src="Z:/picture/008/save_picture_573078.jpg" />
 </div>
 
 
@@ -472,7 +612,7 @@ Live Home 3D: Standard Edition 3.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572551.jpg" />
+  <img src="Z:/picture/008/save_picture_572551.jpg" />
 </div>
 
 
@@ -500,7 +640,7 @@ Color Finale 1.5.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572209.jpg" />
+  <img src="Z:/picture/008/save_picture_572209.jpg" />
 </div>
 
 
@@ -526,7 +666,7 @@ Logic Pro X 10.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571830.jpg" />
+  <img src="Z:/picture/008/save_picture_571830.jpg" />
 </div>
 
 
@@ -552,7 +692,7 @@ TextExpander 5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571679.jpg" />
+  <img src="Z:/picture/008/save_picture_571679.jpg" />
 </div>
 
 
@@ -565,143 +705,6 @@ TextExpander – боец невидимого фронта …. Функция 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2BF0326437C873DC650DACCFBE7344DF627FC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892100   (571330) от 27.07.2015
-
-Sketch 3.3.3 AppStore [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под Mac OS X!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июля 2015Разработчик: Bohemian CodingЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD1E7C43AD588B27CFE957FAE42F3C73823BB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840494   (571231) от 27.07.2015
-
-Mac Media Player 2.16.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macgo Mac Media Player совершенно бесплатный медиаплеер для Mac OS X, поддерживает высокое разрешение до 1080P и DTS5.1 аудиосистемы. Поддержка почти всех видов медиа-форматов, как DVD, видео, аудио и фотография. Кроме того, он может играть на iPhone / iPad (mini / Air) / iPod touch с доступностью AirX функции.
-
-Лучший и универсальный медиа плеер, который поддерживает (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 24 июля 2015Разработчик: Macgo INTERNATIONAL LTD.Поддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Русский, Чешский, Немецкий, Английский, Французский  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9554284937176649C7F8491A008B3621ADA4E22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043723   (570932) от 17.08.2016
-
-FileSumo 1.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570932.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileSumo это удивительное приложение , чтобы помочь вам обнаружить и очистить огромные файлы, которые загромождают дисковое пространство на вашем Mac. FileSumo предоставляет список топ-100 больших файлов и их размеров вместе с параметрами для просмотра каждого файла в Finder, вы можете добавить файл в список исключений или удалить файл непосредственно из приложения. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 августа 2016Разработчик: George Sargunaraj CПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C685722524C6E08FFDC54A7F0097D2491D5780CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043657   (570929) от 17.08.2016
-
-Together 3.5.15 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Together - Программа для хранения и организации файлов.
-Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
-
-Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 августа 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59003884788B4BDC9390C0AC700E3812C11B7642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043717   (570811) от 17.08.2016
-
-Clearview 1.9.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clearview - Программа для удобного чтения электронных книг на вашем Mac.
-Приложение работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 июля 2016Разработчик: Canoe SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8917E9AB200FF8B2A3D5E712CA9D20FC94E3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

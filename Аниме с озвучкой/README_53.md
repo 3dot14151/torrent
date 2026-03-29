@@ -1,3 +1,29 @@
+###  Публикация: 1701889   (116040) от 23.02.2024
+
+Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мадокс-01 - новейшая разработка японского ВПК, боевой универсальный доспех, способный единолично противостоять слаженным действиям танкового взвода или небольшого объединённого формирования в городских условиях, а в перспективе, быть может, и заменить их. Но по стечению обстоятельств - в суматохе случайной аварии при транспортировке из военного полигона - Мадокс (   Читать дальше...   )Производство: AIC, Artmic / アートミックЖанр: приключения, фантастика, мехаРежиссер: Арамаки СиндзиПеревод: Костин ТимофейЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E416065C9FE394582F4C574C869DDB8D70D1049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702774   (115564) от 26.02.2024
 
 Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie] BDRip HDR 2160p/4K HEVC 10-bit raw+eng+rus
@@ -6,7 +32,7 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115564.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115547.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115208.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115206.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая к�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115203.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115090.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114866.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114714.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114688.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114374.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Суд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114246.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114170.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114044.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112759.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109859.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107356.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105089.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105061.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105008.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104978.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104977.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:614F5345B897DF8C82A19057815CE3650DBE8ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747869   (104673) от 07.09.2024
-
-Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, девы и загадочные исчезновения [2024, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слухи о загадочных происшествиях оживляют в Сумирэко Огаве мечту стать писательницей. Будучи сотрудницей книжного, она заручается поддержкой юного коллеги, Рэна Адасино, и берётся расследовать городские легенды. Сумирэко притягивает волшебные инциденты, а Рэн скрывает мрачный секрет. Смогут ли они закончить свои расследования целыми и невредимыми?Производство: Zero-GЖанр: детектив, мистикаРежиссер: Мотидзуки ТомомиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB2F9FAE52924D82ED58B87264D1A6CDAC09A31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Piano Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122922.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tra
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122619.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121916.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121726.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121176.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120134.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Intense Piano Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118792.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Best of Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118623.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bright & Black - The Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117795.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115560.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tyler Hay - Field: 18 Nocturnes (2024) 2 x CD [FLAC|Lossless|image + .cue] <Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115355.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Thibaudet, Feinstein - Gershwin Rhapsody (2024) [FLAC|Lossless|image + .cue] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114022.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Relaxing Classical Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113447.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Classical Music Piano Solo (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113444.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Calm Piano Study Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113290.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113200.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Calming Piano Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113101.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Arvo Part - Alina (1999) [MP3|320 Kbps] <Classical, Contemporary>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112966.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112845.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Ukrainian Masters: Bortkiewicz, Kosenko, Skoryk - Violin Sonatas (2024) [FLAC|Lo
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112680.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Soothing Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112215.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - The Most Famous Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112131.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Paola Erdas - Antonio Valente, Intavolatura de Cimbalo, Napoli 1576 (2021) [FLAC
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112046.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112039.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Piano Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111835.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111801.jpg" />
 </div>
 
 

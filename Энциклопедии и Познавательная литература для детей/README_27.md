@@ -1,3 +1,55 @@
+###  Публикация: 958932   (321627) от 22.11.2015
+
+Святослав Владимирович Сахарнов | По морям вокруг Земли. Детская морская энциклопедия. Части I - III [3 книги] (1976) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги о морях и океанах, об истории их открытия, о замечательных мореходах и флотоводцах, о том, как море служит человеку.Жанр: ЭнциклопедииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DE98CD4DC55BD8E80E4F7F6A1DD8BCE9770EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421470   (319697) от 04.11.2020
+
+Татьяна Степанова | Детская энциклопедия РОСМЭН. География (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга открывает перед юными читателями удивительный мир очень древней и вечно молодой науки географии. Широте интересов современной географии, включающей и недра земли, и сушу, и Мировой океан, и процессы, проистекающие в атмосфере, животный и растительный мир, страны и народы, может позавидовать любая другая наука. И мало найдется областей знаний, где не пригодились (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937F7FA5BF328B64E7356A36B14B6BA20A8178B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075726   (318222) от 23.11.2016
 
 В.М. Мокиенко | Давайте говорить правильно. Пословицы в современном русском языке (2012) [PDF]
@@ -6,7 +58,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318222.jpg" />
+  <img src="Z:/picture/008/save_picture_318222.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317276.jpg" />
+  <img src="Z:/picture/008/save_picture_317276.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317137.jpg" />
+  <img src="Z:/picture/008/save_picture_317137.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317136.jpg" />
+  <img src="Z:/picture/008/save_picture_317136.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317034.jpg" />
+  <img src="Z:/picture/008/save_picture_317034.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313385.jpg" />
+  <img src="Z:/picture/008/save_picture_313385.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308681.jpg" />
+  <img src="Z:/picture/008/save_picture_308681.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302212.jpg" />
+  <img src="Z:/picture/008/save_picture_302212.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302095.jpg" />
+  <img src="Z:/picture/008/save_picture_302095.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297957.jpg" />
+  <img src="Z:/picture/008/save_picture_297957.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295450.jpg" />
+  <img src="Z:/picture/008/save_picture_295450.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295295.jpg" />
+  <img src="Z:/picture/008/save_picture_295295.jpg" />
 </div>
 
 
@@ -337,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279874.jpg" />
+  <img src="Z:/picture/008/save_picture_279874.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276922.jpg" />
+  <img src="Z:/picture/008/save_picture_276922.jpg" />
 </div>
 
 
@@ -391,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274251.jpg" />
+  <img src="Z:/picture/008/save_picture_274251.jpg" />
 </div>
 
 
@@ -417,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267584.jpg" />
+  <img src="Z:/picture/008/save_picture_267584.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263037.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249870.jpg" />
+  <img src="Z:/picture/004/save_picture_249870.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249514.jpg" />
+  <img src="Z:/picture/004/save_picture_249514.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246729.jpg" />
+  <img src="Z:/picture/004/save_picture_246729.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246058.jpg" />
+  <img src="Z:/picture/004/save_picture_246058.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245999.jpg" />
+  <img src="Z:/picture/004/save_picture_245999.jpg" />
 </div>
 
 
@@ -603,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245578.jpg" />
+  <img src="Z:/picture/004/save_picture_245578.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245174.jpg" />
+  <img src="Z:/picture/004/save_picture_245174.jpg" />
 </div>
 
 
@@ -642,60 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF36DC02C09779CCE5BD933E55DA4E1FB314DEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450803   (245091) от 27.02.2021
-
-Сергей Истомин | Энциклопедия живописи для детей. Батальная картина (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает об истории возникновения и развития русской батальной живописи, которая запечатлела для потомков военные походы и легендарные сражения, образы знаменитых полководцев и лица простых русских солдат, ковавших славу русского оружия. Исторический и батальный жанры в русском изобразительном искусстве имеют особое значение. Рассказывая о событиях отечественной (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36CFC5A3F66D8AEB89E2D18069C0BE4235918D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451136   (244941) от 28.02.2021
-
-Анна Богуминская | Детям о великих людях. Писатели (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли интересные биографические материалы о знаменитых русских и зарубежных писателях, авторах произведений для детей — А. Пушкине, Л. Толстом, В. Бианки, А. Чехове, И. Крылове, Н. Носове, С. Маршаке, К. Чуковском, В. Маяковском, В. Драгунском, К. Паустовском, Г.-Х. Андерсене, Р. Киплинге, Д. Родари и М. Твене.
-
-На каждом развороте можно увидеть портрет писателя (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E970546B2002CA7F347BFC93CA0E94501DCC835F
 ```
 
 https://mybot314.ru/tekegram_catalog/

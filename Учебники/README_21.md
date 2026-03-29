@@ -1,3 +1,56 @@
+###  Публикация: 1107772   (866099) от 23.02.2017
+
+В.В. Величко и др. | Основы инфокоммуникационных технологий (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866099.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии с единых позиций рассмотрен комплекс вопросов, относящихся к инфокоммуникационным технологиям. представлены основы построения телекоммуникационных систем и сетей, дано представление о современных беспроводных средствах связи, включая подвижные средства связи, рассмотрены принципы построения сетей следующего поколения и технологии, применяемые при (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A3220CED1F2AB9D05F6B5A2FA04B50159BBD37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107762   (866095) от 23.02.2017
+
+А.В. Росляков | Сети доступа (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы построения современных сетей доступа и модернизации существующих сетей, а также приведена классификация необходимых для этого современных проводных и беспроводных технологий. Наибольшее внимание в пособии уделено самым востребованным в настоящее время широкополосным технологиям цифровых абонентских линий xDSL.
+Для студентов высших учебных заведений, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB6172DD8C19875378931A20DF2CE5F6F96C7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107727   (865923) от 23.02.2017
 
 В.П. Шевченко | Вычислительные системы, сети и телекоммуникации (2012) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865923.jpg" />
+  <img src="Z:/picture/008/save_picture_865923.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865908.jpg" />
+  <img src="Z:/picture/008/save_picture_865908.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864726.jpg" />
+  <img src="Z:/picture/008/save_picture_864726.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864718.jpg" />
+  <img src="Z:/picture/008/save_picture_864718.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864512.jpg" />
+  <img src="Z:/picture/008/save_picture_864512.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864403.jpg" />
+  <img src="Z:/picture/008/save_picture_864403.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864339.jpg" />
+  <img src="Z:/picture/008/save_picture_864339.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864273.jpg" />
+  <img src="Z:/picture/008/save_picture_864273.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864267.jpg" />
+  <img src="Z:/picture/008/save_picture_864267.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863922.jpg" />
+  <img src="Z:/picture/008/save_picture_863922.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863001.jpg" />
+  <img src="Z:/picture/008/save_picture_863001.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862908.jpg" />
+  <img src="Z:/picture/008/save_picture_862908.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862905.jpg" />
+  <img src="Z:/picture/008/save_picture_862905.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862808.jpg" />
+  <img src="Z:/picture/008/save_picture_862808.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859192.jpg" />
+  <img src="Z:/picture/008/save_picture_859192.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858556.jpg" />
+  <img src="Z:/picture/008/save_picture_858556.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857800.jpg" />
+  <img src="Z:/picture/008/save_picture_857800.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857790.jpg" />
+  <img src="Z:/picture/008/save_picture_857790.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857674.jpg" />
+  <img src="Z:/picture/008/save_picture_857674.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857583.jpg" />
+  <img src="Z:/picture/008/save_picture_857583.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857581.jpg" />
+  <img src="Z:/picture/008/save_picture_857581.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857577.jpg" />
+  <img src="Z:/picture/008/save_picture_857577.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856931.jpg" />
+  <img src="Z:/picture/008/save_picture_856931.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856035.jpg" />
+  <img src="Z:/picture/008/save_picture_856035.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90AFF65B0546341E88E49F56C567542B48F681FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000982   (855606) от 27.03.2016
-
-А.В. Булычев, А.А. Наволочный | Релейная защита в распределительных электрических сетях (2011) [FB2, RTF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кратко изложены основы теории защит, используемых в электрических сетях напряжением 6—35 кВ. Рассмотрены токовые и дифференциальные защиты, устанавливаемые на линиях электропередачи и трансформаторах. Представлены подробно комментированные примеры расчета характеристик релейной защиты и выбора параметров срабатывания отдельных защит. Приведена методика решения комплексной (   Читать дальше...   )Жанр: ЭлектротехникаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C87E3FC9B4000818944C87D92503AAE9DE9C141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109708   (855221) от 01.03.2017
-
-Ф.В. Бабкин, О.П. Аванесьян | История и техника гравюры на металле (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855221.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены вопросы истории и техники западноевропейской гравюры на металле XV–XVIII веков: возникновение этого вида искусства, стилистические особенности техники резцовой гравюры на примерах из творчества таких выдающихся мастеров эпохи Возрождения, как Дюрер, Лука Лейденский, Раймонди, Мантенья; стилистические особенности техники офорта и индивидуальные (   Читать дальше...   )Жанр: Учебное пособие, обработка металла, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3147E1E3C4B186F6122F87827D9C8274DDB15FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

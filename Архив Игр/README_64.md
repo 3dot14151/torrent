@@ -6,7 +6,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u2) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320818.jpg" />
+  <img src="Z:/picture/008/save_picture_320818.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319787.jpg" />
+  <img src="Z:/picture/005/save_picture_319787.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318630.jpg" />
+  <img src="Z:/picture/008/save_picture_318630.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Spider-Man: Shattered Dimensions (Р) [Ru]  2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317710.jpg" />
+  <img src="Z:/picture/008/save_picture_317710.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Metroid Prime 3: Corruption [Wii] [PAL] [ENG, DE] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315925.jpg" />
+  <img src="Z:/picture/008/save_picture_315925.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ The Banner Saga (2014) [Ru/Multi] (2.58.17) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315765.jpg" />
+  <img src="Z:/picture/008/save_picture_315765.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315403.jpg" />
+  <img src="Z:/picture/008/save_picture_315403.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315212.jpg" />
+  <img src="Z:/picture/008/save_picture_315212.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Mass Effect 3 [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314614.jpg" />
+  <img src="Z:/picture/008/save_picture_314614.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Assassin's Creed III [Ru] (Rip/1.01 /4 DLC) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_314598.jpg" />
+  <img src="Z:/picture/005/save_picture_314598.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ FIVE: Guardians of David (2015) [En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313830.jpg" />
+  <img src="Z:/picture/008/save_picture_313830.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Dreamcast Collection (2011-2012) [Multi] License TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313014.jpg" />
+  <img src="Z:/picture/008/save_picture_313014.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Marvel Super Heroes 3D: Grandmaster's Challenge [Wii] [PAL] [Multi 9] [2010]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312914.jpg" />
+  <img src="Z:/picture/008/save_picture_312914.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ ARAYA (2016) [En/Thai] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312908.jpg" />
+  <img src="Z:/picture/008/save_picture_312908.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Torchlight II [Ru/En/Pl] [Steam-Rip/1.19.5.7] 2012 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_312454.jpg" />
+  <img src="Z:/picture/005/save_picture_312454.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Road to Fame / Двойной фор$аж [Ru] (L) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311948.jpg" />
+  <img src="Z:/picture/008/save_picture_311948.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Baldur's Gate: Enhanced Edition [En] (RePack/1.0) 2012 | Rick Deckard
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311775.jpg" />
+  <img src="Z:/picture/008/save_picture_311775.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.5) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311584.jpg" />
+  <img src="Z:/picture/008/save_picture_311584.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ FTL: Faster Than Light [Ru] (RePack/1.0.2.8) 2012 l Dark@ssassin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311581.jpg" />
+  <img src="Z:/picture/008/save_picture_311581.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309060.jpg" />
+  <img src="Z:/picture/008/save_picture_309060.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repa
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309013.jpg" />
+  <img src="Z:/picture/008/save_picture_309013.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Satellite Reign (2015) [Ru/Multi] (1.06) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309006.jpg" />
+  <img src="Z:/picture/008/save_picture_309006.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ All Star Cheerleader 2 [Wii] [PAL] [En] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308909.jpg" />
+  <img src="Z:/picture/008/save_picture_308909.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308622.jpg" />
+  <img src="Z:/picture/008/save_picture_308622.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308322.jpg" />
+  <img src="Z:/picture/008/save_picture_308322.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Multi6\-] (RePack)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308101.jpg" />
+  <img src="Z:/picture/008/save_picture_308101.jpg" />
 </div>
 
 

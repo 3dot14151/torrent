@@ -6,7 +6,7 @@ amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107084.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107083.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Roberto Ottaviano, Danilo Gallo & Ferdinando Farao - Lacy in the Sky With Diamon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107082.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nothing More - Carnal (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107081.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107080.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107079.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kasabian - Happenings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107072.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107057.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tommy Vext - Antarctica (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107020.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Enter Shikari - Dancing On The Frontline (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106998.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Buddha Chill House & Dj. Juliano BGM - Buddha Open Bar: Summer in Hotel, Party o
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106974.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fink - Beauty In Your Wake (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106961.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Faber - Addio (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106950.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Yellow House - Psalms of Yellow House (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106948.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Dreaded Laramie - Princess Feedback (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106946.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Madison Galloway - Madison Galloway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106926.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Scarlet Bandit - Lose Your Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106908.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Louis Hayes - Artform Revisited (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106907.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Goodbye June - Deep in the Trouble (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106902.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DS Caw - Nothing To Fight For (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106897.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Commoners - Restless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106893.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kissin Dynamite - Back With A Bang (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106891.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106888.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106885.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106882.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106849.jpg" />
 </div>
 
 

@@ -1,3 +1,89 @@
+###  Публикация: 1693148   (121989) от 19.01.2024
+
+Валерий Медведев, Евгений Агранович | Баранкин, будь человеком! Наш друг Пишичитай (Союзмультфильм) (2000) [MP3, Александр Пожаров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звуковые дорожки из любимых мультфильмов киностудии «Союзмультфильм».
+«Баранкин, будь человеком!» – по одноименному мультфильму студии «Союзмультфильм» по повести Валерия Медведева. Ленивый и непослушный ученик Баранкин в наказание превратился в крохотного человечка и пережил много опасностей и приключений среди насекомых. И только тогда, когда мальчик научился преодолевать (   Читать дальше...   )Жанр: Литература для детей, приключения, повесть-сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм», Мастер ВидеоПродолжительность: 00:20:27
+
+Звуковая дорожка из мультфильма 1978-1980 годов.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EF25C75453C345E115CBF025AD65A3FE9D564A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693158   (121986) от 19.01.2024
+
+Самуил Маршак | Двенадцать месяцев (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союзмультфильм.
+В канун Нового года взбалмошной принцессе вдруг захотелось подснежников. Злая мачеха посылает холодной новогодней ночью свою падчерицу в лес исполнять этот каприз. Бедная девочка случайно знакомится в лесу с двенадцатью братьями-месяцами, которые помогают ей проучить капризную принцессу.
+Авторы сценария Самуил Маршак и Николай Эрдман. (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказка, пьесаИздательство: ТВИК-ЛИРЕК, ФГУП Киностудия «Союзмультфильм»Продолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF51C12C0ADC495524B7193EF331286EDC812BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693160   (121984) от 19.01.2024
+
+Григорий Остер | 38 попугаев (Союзмультфильм) (2005) [MP3, Александр Пожаров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союзмультфильм.
+Любимые герои кукольного мультфильма «38 попугаев» придумывают удивительную физкультминутку для тех, у кого нет ни рук, ни ног. Образованный удав с удовольствием воспользуется советом друзей. Что вышло из затеи наших героев? – слушайте сказку...
+Звуковые дорожки из одноименных мультфильмов киностудии «Союзмультфильм»: 1979 г., 1985 г., (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: ФГУП Киностудия «Союзмультфильм», ТВИК-ЛИРЕКПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710D785E5BFE314E39FC6FAEFF0CE7D02F5DAF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 346602   (121924) от 20.01.2024
 
 Лучшие сказки народов мира | Восточные сказки (2007) [MP3, Валентин Гафт и др.]
@@ -6,7 +92,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121924.jpg" />
 </div>
 
 
@@ -33,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121922.jpg" />
 </div>
 
 
@@ -60,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121846.jpg" />
 </div>
 
 
@@ -87,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121822.jpg" />
 </div>
 
 
@@ -114,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121818.jpg" />
 </div>
 
 
@@ -141,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121790.jpg" />
 </div>
 
 
@@ -169,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121709.jpg" />
 </div>
 
 
@@ -197,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121686.jpg" />
 </div>
 
 
@@ -225,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121679.jpg" />
 </div>
 
 
@@ -252,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121678.jpg" />
 </div>
 
 
@@ -279,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121665.jpg" />
 </div>
 
 
@@ -306,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121633.jpg" />
 </div>
 
 
@@ -332,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121612.jpg" />
 </div>
 
 
@@ -360,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121485.jpg" />
 </div>
 
 
@@ -386,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121476.jpg" />
 </div>
 
 
@@ -413,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121459.jpg" />
 </div>
 
 
@@ -441,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121262.jpg" />
 </div>
 
 
@@ -469,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121249.jpg" />
 </div>
 
 
@@ -495,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121239.jpg" />
 </div>
 
 
@@ -523,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121220.jpg" />
 </div>
 
 
@@ -551,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121215.jpg" />
 </div>
 
 
@@ -579,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121213.jpg" />
 </div>
 
 
@@ -606,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121212.jpg" />
 </div>
 
 
@@ -618,89 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A4F6C6985A54E9E0574364362F03220F2DEA898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384931   (121207) от 24.01.2024
-
-Сергей Аксаков, Лев Толстой и др. | Сказки русских писателей. Золотой ключик (2003) [MP3, Татьяна Телегина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Школьная библиотека».
-Все мы в детстве любили сказки, да и, повзрослев, не утратили то ощущение волшебства, что они нам дарили. Из поколения в поколения сказки передавались из уст в уста, дополнялись подробностями, деталями, но при этом не утратили своей мудрости и простоты. В аудиокниге собраны самые интересные сказки русских писателей. Ведь сказка (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 11:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23407767CE5ACA5FFF965B748684AACBA47ED937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391407   (121205) от 24.01.2024
-
-Лев Толстой | «Филипок» и другие рассказы (2008) [MP3, Лев Дуров, Андрей Гусев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121205.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Филиппок», «Лев и собачка», «Птичка», «Акула», «Прыжок» и другие рассказы Льва Толстого, без которых невозможно представить себе детскую литературу, прозвучат в замечательном исполнении народного артиста Льва Дурова.
-Повесть «Кавказский пленник» исполняет артист театра Маяковского Андрей Гусев.Жанр: Русская литература, классика, рассказ, повестьПродолжительность: 03:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565D6F43FAD476310D7BCF9B2130DC12BCA212F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391398   (121191) от 24.01.2024
-
-Лев Толстой | Корней Васильев. Набег. Сила детства (2007) [MP3, Илья Бобылев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиобиблиотека школьника.
-Произведения Л.Н. Толстого для детей – подлинная классика, они не только прививают любовь к родному языку, они еще просвещают и воспитывают, способствуя гармоничному развитию личности.
-Аудиокнига содержит рассказы «Корней Васильев», «Набег» и «Сила детства» великого русского писателя Льва Николаевича Толстого.
-Произведения включены (   Читать дальше...   )Жанр: Русская литература, классика, рассказПродолжительность: 02:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B314174713B7B21B69C249E5A4DCFC59F51325
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1113991   (835103) от 13.03.2017
+
+VA - Radio Top Music FM - February (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_835103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) (4:11)
+02. Егор Крид - Мало так мало (3:06)
+03. Steve Aoki & Louis Tomlinson - Just Hold On (Original Mix) (3:19)
+04. Matthew Koma - Kisses Back (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC721A91C125028006425997CB04F74F3BC067CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501155   (835035) от 10.10.2021
+
+VA - Top 100: Deluxe Disco Party (2021) [MP3|320 Kbps] <Disco, Dance, Remastering>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835035.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ltg Long Travel Groove - Lost My Funk
+002. Flamingo Pier - Last Call
+003. Jackie Stoudemire - Flying High
+004. Rudy's Midnight Machine - La Cadenza(   Читать дальше...   )Жанр: Disco, Dance, RemasteringПродолжительность: 09:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C921131B5D32A77FB81098100C10E5D51E0D1CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114129   (834996) от 13.03.2017
 
 VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +64,7 @@ VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834996.jpg" />
+  <img src="Z:/picture/008/save_picture_834996.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - NEW от Виталия72  (1) (2020) [MP3|256-320 Kbps] <Поп, Данс�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834978.jpg" />
+  <img src="Z:/picture/008/save_picture_834978.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kandis - Liebesgrusse aus Danemark (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834836.jpg" />
+  <img src="Z:/picture/008/save_picture_834836.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Вспомним 90-2000 от Виталия 72 (2016) [MP3|320 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_834254.jpg" />
+  <img src="Z:/picture/009/save_picture_834254.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Русский суперсборник поп музыки (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834163.jpg" />
+  <img src="Z:/picture/008/save_picture_834163.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Вспомним 90-2000 от Виталия 72 - 2 (2016) [MP3|320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834006.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834004.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833922.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Музыка Нас Связала: Дискотека 90-х (2016) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833856.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Музыкальный презент на Europa Plus. Версия № 4 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833800.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - На волне позитива. Версия № 5 (2017) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833798.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Музыкальное ассорти хитов (50/50) (2016) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833797.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Весенняя танцевальная вечеринка выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833730.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Лучшая дискотека на Europa Plus выпуск № 3 (2017) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833600.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Музыкальный подарок на радио Europa Plus (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833496.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Клубные новинки специально для авто в кл�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_833481.jpg" />
+  <img src="Z:/picture/009/save_picture_833481.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Acoustic Pop (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833318.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833044.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Музыка хорошего настроения 7 (2016) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832388.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831750.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Popular Folk Sound (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831570.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - NEW от Виталия72  (2) (2020) [MP3|256 Kbps] <Поп, Дансе>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830767.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Музыкальный кекс по Русски (2015) [MP3|192-256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828976.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827237.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43A61EEFCC3B3F553D6CF879A791C222F850F4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006587   (826897) от 12.04.2016
-
-VA - 100 Пудовый Auto hit №2 (2016) [MP3|128-320 кб/с] <Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Неангелы - Ревную
-002 Faydee - Legendary
-003 Ozzy Osbourne - I Just Want You
-004 Toris-Badic-Breathe-Baby-Original-Mix(   Читать дальше...   )Жанр: РорПродолжительность: 05:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BE4FD6BEDAFDAAD17720733DE525FE2F2F7420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115540   (826661) от 18.03.2017
-
-VA - Положительный заряд отличного настроения. Сборник №3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Стрелки - Любить Меня Поздно 3:10
-002. Любовь Попова - А Я Хотела 3:38
-003. Александр Побединский - Было Лишь Игрой 3:39
-004. Маша Кольцова - Ярче Помаду 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B0033A5472EE26178597ECD3D1FD4998D20EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

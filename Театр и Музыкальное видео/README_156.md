@@ -1,3 +1,159 @@
+###  Публикация: 1766578   (33685) от 19.12.2024
+
+Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33685.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Me Enamoré» (в переводе - „Я влюбилась“) - песня колумбийской певицы и автора-исполнителя Шакиры. Песня была выпущена в качестве второго сингла в качестве предваряющего одиннадцатый студийный альбом Шакиры. Музыкальный клип был снят режиссером Хауме де ла Игуана в Барселоне и вышел 12 мая 2017 года.Жанр: Реггетон, рокПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DE3CDDCB3BE0223FA86788EE841F50796E38BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766577   (33684) от 19.12.2024
+
+Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33684.jpg" />
+</div>
+
+
+###  Подробнее
+
+«California Gurls» — песня в стиле электропоп, написанная и исполненная американской певицей и автором Кэти Перри. Она стала главным синглом с 3-го её альбома Teenage Dream. Соисполнителем песни стал рэпер Snoop Dogg. Съемки клипа начались 14 мая 2010 года. Премьера состоялась 14 июня 2010 года.Жанр: Диско-поп, фанк-попПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA6E22E50D750086250577FE842F15586754707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766579   (33670) от 19.12.2024
+
+Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33670.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Empire» (с англ. — «Империя») — второй сингл колумбийской певицы Шакиры из её десятого студийного альбома Shakira (2014). Официальный клип был выпущен 25 марта 2014 года.Жанр: рокПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E98413038B456FDB6527EDD406207F290CE39B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766573   (33669) от 19.12.2024
+
+Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33669.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Uptown Funk» (UpTown Funk!) — песня британского автора-исполнителя и продюсера Марка Ронсона при участии американского певца Бруно Марса, изданная 10 ноября 2014 года в качестве первого сингла с его четвёртого студийного альбома Uptown Special на лейбле Sony Music Entertainment. Видеоклип вышел 17 ноября 2014 года, а 19 ноября появился на каналах Vevo и YouTube.Жанр: Фанк, Буги, Minneapolis soundПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5BFF7A3D51C18FFF21C822FD9ED3DDBF995292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766572   (33664) от 19.12.2024
+
+Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33664.jpg" />
+</div>
+
+
+###  Подробнее
+
+«24K Magic» («twenty-four karat magic») — песня американского певца Бруно Марса с его третьего одноимённого студийного альбома 24K Magic (2016). Музыкальное видео вышло 7 октября 2016.Жанр: Синтипоп, фанк, диско, R&BПродолжительность: 00:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2DDCD390F84FC9C0EFDDD4BC444F740A817F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766575   (33660) от 19.12.2024
+
+Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33660.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girl on Fire» - песня, записанная американской певицей-песенницей Алишей Киз для ее пятого одноименного студийного альбома. В версию Inferno была включена Ники Минаж, которая написала и исполнила два новых куплета. Видео на версию Inferno было загружено на VEVO 2 ноября 2012 года.Жанр: R&BПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4375468AD041D7CFA987313F10E74FFF226A4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766576   (33654) от 19.12.2024
 
 The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +162,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33654.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33650.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Depeche mode - Devotional Tour. Live In Barcelona (1993) WEBRip [H.264/1080p] [h
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33487.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33344.jpg" />
 </div>
 
 
@@ -116,7 +272,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32746.jpg" />
 </div>
 
 
@@ -142,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32721.jpg" />
 </div>
 
 
@@ -168,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32547.jpg" />
 </div>
 
 
@@ -196,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32538.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32237.jpg" />
 </div>
 
 
@@ -252,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31739.jpg" />
 </div>
 
 
@@ -278,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31644.jpg" />
 </div>
 
 
@@ -305,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31430.jpg" />
 </div>
 
 
@@ -332,7 +488,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30669.jpg" />
 </div>
 
 
@@ -358,7 +514,7 @@ Def Leppard: One Night Only. Live at the Leadmill (2023) BDRip [H.265/1080p] [10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30406.jpg" />
 </div>
 
 
@@ -384,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30390.jpg" />
 </div>
 
 
@@ -411,7 +567,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29259.jpg" />
 </div>
 
 
@@ -437,7 +593,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29258.jpg" />
 </div>
 
 
@@ -463,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29202.jpg" />
 </div>
 
 
@@ -492,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29161.jpg" />
 </div>
 
 
@@ -521,7 +677,7 @@ NEMOPHILA. Oshikura Manju OSARETE WARAOU TOUR at SENDAI (2024) BDRip [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29148.jpg" />
 </div>
 
 
@@ -536,172 +692,6 @@ NEMOPHILA - японская женская метал/рок группа, ос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA6925135D5254884C9F19FF7D0DFB8496BBE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769768   (29119) от 31.01.2025
-
-РОМ – "Лишние рты" (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монолог зарубежной работницы
-
-Отца все нет, а скоро ночь…
-Гудит метель в трубе холодной.(   Читать дальше...   )Жанр: РокПродолжительность: 00:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6930E68398B3AA17529D297AF2F849CF371B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776408   (28975) от 01.02.2025
-
-Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.265/2160p] [50 fps, Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записанный в марте 2004 года в MGM Grand в Лас-Вегасе во время мирового турне поддержки альбома Harem Сары Брайтман, этот концерт демонстрирует склонность музыкальной соблазнительницы к слиянию музыкальных жанров — музыкального театра, классики, рока и мировой музыки — и звучит как сборник лучших хитов, исполненных вживую. DVD представляет собой двойной диск, содержащий (   Читать дальше...   )01. Kama Sutra
-02. Harem (Cancao do Mar)
-03. Beautiful
-04. It's a Beautiful Day(   Читать дальше...   )Производство: США / Angel RecordsЖанр: Classical CrossoverРежиссер: Bruce Gowers, David MalletУчастники: Sarah Brightman, Violet Brightman, Shweta ShettyПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7398C72F9DCF0309AD06910F7C69723EE8CED020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776600   (28906) от 02.02.2025
-
-Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264/1080p] [50 fps, Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записанный в марте 2004 года в MGM Grand в Лас-Вегасе во время мирового турне поддержки альбома Harem Сары Брайтман, этот концерт демонстрирует склонность музыкальной соблазнительницы к слиянию музыкальных жанров — музыкального театра, классики, рока и мировой музыки — и звучит как сборник лучших хитов, исполненных вживую. DVD представляет собой двойной диск, содержащий (   Читать дальше...   )01. Kama Sutra
-02. Harem (Cancao do Mar)
-03. Beautiful
-04. It's a Beautiful Day(   Читать дальше...   )Производство: США / Angel RecordsЖанр: Classical CrossoverРежиссер: Bruce Gowers, David MalletУчастники: Sarah Brightman, Violet Brightman, Shweta ShettyПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CB4D294999C0EC39C0B7B22471A286D9EA6D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776329   (28904) от 02.02.2025
-
-Михаил Шуфутинский – И снова 3 сентября (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия концерта приуроченного к юбилею легендарной песни «3 сентября» – шлягеру народного артиста России исполняется 30 лет! За время творческой карьеры Михаил Шуфутинский написал, исполнил и спродюсировал немало знаменитых хитов, выпустил 30 сольных альбомов и массу сборников. Сегодня он — один из самых знаменитых исполнителей шансона, который на протяжении (   Читать дальше...   )Производство: Россия | «М. З. Шуфутинский»Жанр: ШансонУчастники: Михаил Шуфутинский, Игорь Крутой, Игорь Николаев, Егор Крид, MIA BOYKA, LERA.VLAD и др.Субтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F60E9DDD30F1D7722EABDBFD0F376E14711C7ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776649   (28879) от 02.02.2025
-
-МузЛофт-подкаст / МузLoft. Настя Макаревич (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настя Макаревич. Всё про Лицей, гастроли у «братков» и немного про Анну Плетнёву.
-Осень-осень долгожданный гость в нашей программе. Настя Макаревич расскажет про легендарную группу Лицей, как создавалась, кто был в коллективе и что с ним в настоящее время. Ну и конечно же вас ждут хиты группы Лицей и не только.Производство: Россия | Y-GenerationУчастники: Настя МакаревичПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850A19DAF9A1B52A071A2943ABAE39520B3679B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776867   (28781) от 03.02.2025
-
-Дима Билан – Невозможное возможно (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28781.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ — телеверсия нового шоу Димы Билана «Невозможное возможно». Зрители смогут насладиться абсолютно новым высокотехнологичным шоу, живым звуком, хитами любимого артиста в новой интерпретации, а также яркими танцевальными постановками. В этот вечер Дима Билан исполнит «Это была любовь», «Я твой номер один», «Я просто люблю тебя», «Невозможное возможно», «Мечтатели», (   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: PopСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A363D246CF4AE96A043E0CB13D54C28C32946B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1173155   (390348) от 11.10.2017
+
+Рэй Лонг | Ключевые мышцы в Хатха-йоге. Том 1 (2010) [DJVU] [En]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390348.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью полноцветных трехмерных иллюстраций костей, мышц, сухожилий и связок доктор Рэй Лонг преподносит всем интересующимся научную подоплеку йоги. Хирург-ортопед, более 20 лет посвятивший изучению йоги, он знакомит читателей с анатомическими аспектами, которые играют ключевую роль в занятиях йогой. Великолепные иллюстрации позволяют наглядно увидеть функцию каждой (   Читать дальше...   )Жанр: Анатомия, йогаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83094815AC789D08DB3649D071C0B0FE66DC7B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173159   (390344) от 11.10.2017
 
 Рэй Лонг | Ключевые мышцы в Хатха-йоге. Том 2 (2010) [PDF] [En]
@@ -6,7 +32,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390344.jpg" />
+  <img src="Z:/picture/008/save_picture_390344.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385344.jpg" />
+  <img src="Z:/picture/008/save_picture_385344.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384821.jpg" />
+  <img src="Z:/picture/008/save_picture_384821.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384164.jpg" />
+  <img src="Z:/picture/008/save_picture_384164.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380885.jpg" />
+  <img src="Z:/picture/008/save_picture_380885.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380824.jpg" />
+  <img src="Z:/picture/008/save_picture_380824.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380764.jpg" />
+  <img src="Z:/picture/008/save_picture_380764.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380627.jpg" />
+  <img src="Z:/picture/008/save_picture_380627.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380614.jpg" />
+  <img src="Z:/picture/008/save_picture_380614.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379590.jpg" />
+  <img src="Z:/picture/008/save_picture_379590.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376121.jpg" />
+  <img src="Z:/picture/008/save_picture_376121.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374615.jpg" />
+  <img src="Z:/picture/008/save_picture_374615.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373124.jpg" />
+  <img src="Z:/picture/008/save_picture_373124.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372414.jpg" />
+  <img src="Z:/picture/008/save_picture_372414.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372147.jpg" />
+  <img src="Z:/picture/008/save_picture_372147.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371798.jpg" />
+  <img src="Z:/picture/008/save_picture_371798.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371640.jpg" />
+  <img src="Z:/picture/008/save_picture_371640.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371624.jpg" />
+  <img src="Z:/picture/008/save_picture_371624.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371623.jpg" />
+  <img src="Z:/picture/008/save_picture_371623.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371619.jpg" />
+  <img src="Z:/picture/008/save_picture_371619.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371501.jpg" />
+  <img src="Z:/picture/008/save_picture_371501.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371473.jpg" />
+  <img src="Z:/picture/008/save_picture_371473.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371457.jpg" />
+  <img src="Z:/picture/008/save_picture_371457.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370153.jpg" />
+  <img src="Z:/picture/008/save_picture_370153.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370151.jpg" />
+  <img src="Z:/picture/008/save_picture_370151.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6464ACE52CDBFFDC311F24E99DA327D57F95EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254769   (370137) от 15.10.2018
-
-Лао Минь | 222 китайских исцеляющих упражнения для здоровья позвоночника и суставов (2012) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если болен один сустав – значит, энергетический обмен нарушен во всем теле, значит, еще до болезни суставов, пострадали другие органы и системы организма: бронхи и легкие, эндокринная система, кровь и сосуды.Как устранить закупорку энергии, восстановить энергетический баланс в организме, улучшить и оздоровить кровоток? Как, воздействуя на опорно – двигательную систему, (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB3160713B1D9FDAE33062B9CFA0C4442C1FD96
 ```
 
 https://mybot314.ru/tekegram_catalog/

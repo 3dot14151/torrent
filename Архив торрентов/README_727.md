@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888372.jpg" />
+  <img src="Z:/picture/005/save_picture_888372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viber 12.7.0.54 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888357.jpg" />
+  <img src="Z:/picture/005/save_picture_888357.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerRun v1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888346.jpg" />
+  <img src="Z:/picture/005/save_picture_888346.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MAGIX Sound Forge Pro 14.0 Build 43 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888308.jpg" />
+  <img src="Z:/picture/005/save_picture_888308.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nightwish - Human. :||: Nature. (2020) 2 CD, Scene [FLAC|Lossless|tracks] <Symph
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888304.jpg" />
+  <img src="Z:/picture/005/save_picture_888304.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Skype 8.58.0.98 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888291.jpg" />
+  <img src="Z:/picture/005/save_picture_888291.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888274.jpg" />
+  <img src="Z:/picture/005/save_picture_888274.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888263.jpg" />
+  <img src="Z:/picture/005/save_picture_888263.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888257.jpg" />
+  <img src="Z:/picture/005/save_picture_888257.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888256.jpg" />
+  <img src="Z:/picture/005/save_picture_888256.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Boku wa Tomodachi ga Sukunai Next / У меня мало друзей [ТВ-2] [
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888251.jpg" />
+  <img src="Z:/picture/005/save_picture_888251.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888244.jpg" />
+  <img src="Z:/picture/005/save_picture_888244.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Furney - Mercurial EP (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888240.jpg" />
+  <img src="Z:/picture/005/save_picture_888240.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Greekboy - Drop the Bass (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888232.jpg" />
+  <img src="Z:/picture/005/save_picture_888232.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888229.jpg" />
+  <img src="Z:/picture/005/save_picture_888229.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Xotox - Die Unruhe 2.0 (2010) [MP3|128 - 320 (~196) kbps]<Industrial / Power Rhy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888215.jpg" />
+  <img src="Z:/picture/005/save_picture_888215.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Skype 8.58.0.98 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888195.jpg" />
+  <img src="Z:/picture/005/save_picture_888195.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Neo PsyTrance (2016) [MP3|320 кб/с] <Psychedelia, Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888180.jpg" />
+  <img src="Z:/picture/005/save_picture_888180.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888177.jpg" />
+  <img src="Z:/picture/005/save_picture_888177.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888170.jpg" />
+  <img src="Z:/picture/005/save_picture_888170.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888169.jpg" />
+  <img src="Z:/picture/005/save_picture_888169.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ ReNamer Pro 7.2 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888160.jpg" />
+  <img src="Z:/picture/005/save_picture_888160.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888144.jpg" />
+  <img src="Z:/picture/005/save_picture_888144.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Microsoft Windows and Office ISO Download Tool 8.34.0.140 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888140.jpg" />
+  <img src="Z:/picture/005/save_picture_888140.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Andrew Rayel - Find Your Harmony Radioshow 001-042 (2014-2016) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888139.jpg" />
+  <img src="Z:/picture/005/save_picture_888139.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888129.jpg" />
+  <img src="Z:/picture/005/save_picture_888129.jpg" />
 </div>
 
 

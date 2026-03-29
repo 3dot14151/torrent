@@ -6,7 +6,7 @@ Skype 8.62.0.83 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753549.jpg" />
+  <img src="Z:/picture/008/save_picture_753549.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753544.jpg" />
+  <img src="Z:/picture/008/save_picture_753544.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753534.jpg" />
+  <img src="Z:/picture/008/save_picture_753534.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Meta 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753533.jpg" />
+  <img src="Z:/picture/008/save_picture_753533.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Aiseesoft Mac FoneLab for Android 3.1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753532.jpg" />
+  <img src="Z:/picture/008/save_picture_753532.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753530.jpg" />
+  <img src="Z:/picture/008/save_picture_753530.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Stats 2.6.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753527.jpg" />
+  <img src="Z:/picture/008/save_picture_753527.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mellel 5 v5.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753524.jpg" />
+  <img src="Z:/picture/008/save_picture_753524.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Navicat Premium 16.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753523.jpg" />
+  <img src="Z:/picture/008/save_picture_753523.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PhotoMill X 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753520.jpg" />
+  <img src="Z:/picture/008/save_picture_753520.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Project Office Pro 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753517.jpg" />
+  <img src="Z:/picture/008/save_picture_753517.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ TaskPaper 3.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753493.jpg" />
+  <img src="Z:/picture/008/save_picture_753493.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753490.jpg" />
+  <img src="Z:/picture/008/save_picture_753490.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ GraphicConverter 10 v10.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753489.jpg" />
+  <img src="Z:/picture/008/save_picture_753489.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Wondershare Recoverit 7.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753488.jpg" />
+  <img src="Z:/picture/008/save_picture_753488.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Money Pro 2.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753487.jpg" />
+  <img src="Z:/picture/008/save_picture_753487.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Registry Life 4.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753481.jpg" />
+  <img src="Z:/picture/008/save_picture_753481.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ WiFi Explorer Pro 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753478.jpg" />
+  <img src="Z:/picture/005/save_picture_753478.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Allavsoft Video Downloader Converter 3.16.9.6974 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753476.jpg" />
+  <img src="Z:/picture/008/save_picture_753476.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Comodo Dragon 72.0.3626.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753475.jpg" />
+  <img src="Z:/picture/008/save_picture_753475.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ WinSnap 5.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753474.jpg" />
+  <img src="Z:/picture/008/save_picture_753474.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Techsmith Snagit 12.3.2 Build 2909 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753462.jpg" />
+  <img src="Z:/picture/008/save_picture_753462.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Microsoft Malicious Software Removal Tool 5.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753457.jpg" />
+  <img src="Z:/picture/008/save_picture_753457.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Java SE Runtime Environment 8.0 Update 45 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753455.jpg" />
+  <img src="Z:/picture/008/save_picture_753455.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Mp3tag 3.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753452.jpg" />
+  <img src="Z:/picture/008/save_picture_753452.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ LosslessCut 3.23.8 Portable (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753450.jpg" />
+  <img src="Z:/picture/008/save_picture_753450.jpg" />
 </div>
 
 

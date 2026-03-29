@@ -1,3 +1,84 @@
+###  Публикация: 1153136   (559848) от 26.07.2017
+
+Робин Норвуд | Почему это произошло? Почему именно со мной? Почему именно сейчас? (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга-бестселлер Робин Норвуд «Женщины, которые любят слишком сильно» перевернула наши представления о любви и помогла нескольким поколениям женщин во всем мире избавиться от созависимости и выйти из неблагополучных отношений. Став всемирно известным специалистом по терапии зависимостей, Робин Норвуд неожиданно столкнулась с тяжелым личностным кризисом, оставила (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368206E457DE78F35D4B2E4FC228D4C23B061688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153357   (559714) от 26.07.2017
+
+Макс Лисс | Флирт. Секреты легких побед (2011) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите почувствовать себя уверенно в отношениях с противоположным полом? Хотите заставлять мужские сердца учащенно биться? Хотите с помощью ни к чему не обязывающего флирта продвигаться по карьерной лестнице?
+Флирт - это набор техник и уловок, которые оказывают на людей влияние на подсознательном уровне.
+Овладейте ими, и мужчины будут пропускать вас вперед, уступать (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F696276D0658D8F305DA8982C87196B2AAB426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153216   (559711) от 26.07.2017
+
+Бретт Кар | Правила жизни от Зигмунда Фрейда (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеи Фрейда актуальны для всех, кто хочет лучше понять свою жизнь. В человеческих отношениях Фрейд ставил на первое место приватность, честность, сочувствие, терпимость, отказ от ярлыков и истинную близость, чем заслужил право войти в историю как великий гуманист.
+Разработав психологию бессознательного, ученый помог нам понять сложнейший механизм – собственный мозг. (   Читать дальше...   )Жанр: Психология, ФилософияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2DDDF0D49808DEFA98F08785A1344A6C018529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153140   (559442) от 26.07.2017
 
 Сатья Дас | Женщина и ее божественная природа (2016) [FB2, EPUB]
@@ -6,7 +87,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559442.jpg" />
+  <img src="Z:/picture/008/save_picture_559442.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559117.jpg" />
+  <img src="Z:/picture/008/save_picture_559117.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558903.jpg" />
+  <img src="Z:/picture/008/save_picture_558903.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558807.jpg" />
+  <img src="Z:/picture/008/save_picture_558807.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558180.jpg" />
+  <img src="Z:/picture/008/save_picture_558180.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557649.jpg" />
+  <img src="Z:/picture/008/save_picture_557649.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557248.jpg" />
+  <img src="Z:/picture/008/save_picture_557248.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557211.jpg" />
+  <img src="Z:/picture/008/save_picture_557211.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556637.jpg" />
+  <img src="Z:/picture/008/save_picture_556637.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556250.jpg" />
+  <img src="Z:/picture/008/save_picture_556250.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556112.jpg" />
+  <img src="Z:/picture/008/save_picture_556112.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555779.jpg" />
+  <img src="Z:/picture/008/save_picture_555779.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555656.jpg" />
+  <img src="Z:/picture/008/save_picture_555656.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555438.jpg" />
+  <img src="Z:/picture/008/save_picture_555438.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555408.jpg" />
+  <img src="Z:/picture/008/save_picture_555408.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555297.jpg" />
+  <img src="Z:/picture/008/save_picture_555297.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555186.jpg" />
+  <img src="Z:/picture/008/save_picture_555186.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555181.jpg" />
+  <img src="Z:/picture/008/save_picture_555181.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555015.jpg" />
+  <img src="Z:/picture/008/save_picture_555015.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554831.jpg" />
+  <img src="Z:/picture/008/save_picture_554831.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554608.jpg" />
+  <img src="Z:/picture/008/save_picture_554608.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554383.jpg" />
+  <img src="Z:/picture/008/save_picture_554383.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554348.jpg" />
+  <img src="Z:/picture/008/save_picture_554348.jpg" />
 </div>
 
 
@@ -602,89 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E20D15437CC9B7E43E868D16789BF605737E5BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308251   (554145) от 13.06.2019
-
-Аркадий Панц | Беседы о счастье (2019) [EPUB, PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрая и содержательная беседа с читателем о психологии, счастье, выборе пути в жизни, любви, работе и творчестве. Психиатр, психотерапевт и психоаналитик Аркадий Панц делится своим опытом, наблюдениями, мыслями и чувствами, которые накопились у него за 35 лет профессиональной деятельности.
-Эту книгу можно сравнить с мудрой и внимательной беседой о важных вопросах (   Читать дальше...   )Жанр: Самосовершенствование, СаморазвитиеФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE71E1141569C754F2887C49D10A67633D37F7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236526   (553998) от 19.07.2018
-
-Натаниэль Бранден | Шесть столпов самооценки (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Натаниэля Брандена - кульминация его многолетней клинической практики и исследований, уже ставшая классикой и самой важной работой по теме самооценки.
-
-Это обязательная книга для всех, кто заинтересован в здоровой самооценке, - лично или профессионально. Книга показывает, почему представление человека о себе - основа психологического здоровья, успеха, счастья (   Читать дальше...   )Жанр: Самосовершенствование, достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD8A94D2E1DEB9D4D5EBFB0427FDF1E9FBE181F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236929   (553809) от 20.07.2018
-
-Джин М. Твендж | Поколение селфи. Кто такие миллениалы и как найти с ними общий язык (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как руководить теми, кто не признает ваш авторитет? Или находить общий язык с носителями совершенно иных ценностей? Сегодня на рынке труда активную роль играют миллениалы – двадцатилетние и тридцатилетние сотрудники. Они независимы и чересчур самоуверенны, эгоистичны и своенравны. По крайней мере, именно такими они кажутся старшему поколению управленцев.
-
-Эта книга (   Читать дальше...   )Жанр: Возрастная психология, Зарубежная психология, О психологии популярно, Практическая психология, Социальная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC6A6670F98D4DBC06AA6A398F956381399A6B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

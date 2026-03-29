@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689094.jpg" />
+  <img src="Z:/picture/008/save_picture_689094.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688520.jpg" />
+  <img src="Z:/picture/008/save_picture_688520.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adrenaline Racing: Hypercars 1.0.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687544.jpg" />
+  <img src="Z:/picture/008/save_picture_687544.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687425.jpg" />
+  <img src="Z:/picture/008/save_picture_687425.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687154.jpg" />
+  <img src="Z:/picture/008/save_picture_687154.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686384.jpg" />
+  <img src="Z:/picture/008/save_picture_686384.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CPU X: System & Hardware Info 1.93 (AdFree) [En] - Информация о си�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684354.jpg" />
+  <img src="Z:/picture/008/save_picture_684354.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Drawing for Kids & Toddler / Рисовалка для детей  v1.0.1.7 Full
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683898.jpg" />
+  <img src="Z:/picture/008/save_picture_683898.jpg" />
 </div>
 
 
@@ -209,6 +209,39 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 212345   (682639) от 26.06.2010
+
+[iPhone 4][iPhone 3GS][iPhone 3G][iPod touch 3G][iPod touch 2G] Apple iOS 4.0
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_682639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная прошивка от Apple
+21 июня в 21.00 (мск) Apple официально выложила прошивку iOS 4, сделав её доступной для скачивания в программе iTunes. По старой традиции именно Golden Master приобрёл статус финального релиза. Если ранее вы уже установили так называемый GM, и iTunes не требует обновления прошивки для вашего iPhone/iPod, то можете не волноваться: у вас уже установлена iOS 4.0.
+
+В раздаче прошивки для iPhone 4, а также iPhone и iPod touch вторых и третих поколений.
+Прошивка ставится с нуля (функция Restore), что влечёт за собой потерю всей информации на iPhone/iPod touch! Поэтому перед процессом прошивки создайте резервную копию (backup), с которой после инсталляции новой прошивки на устройство вы сможете восстановить все данные.
+Регистрации UDID/UUID вашего iPhone/iPod touch в аккаунте разработчиков Apple не требуется!
+
+До установки прошивки обязательно установите последнюю версию iTunesЯзык интерфейса: 33 языка, включая русский, английский, немецкий и т.д.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135530   (680643) от 19.05.2017
 
 Telegram for Android 4.0 [Multi]
@@ -217,7 +250,7 @@ Telegram for Android 4.0 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680643.jpg" />
+  <img src="Z:/picture/008/save_picture_680643.jpg" />
 </div>
 
 
@@ -243,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679982.jpg" />
+  <img src="Z:/picture/008/save_picture_679982.jpg" />
 </div>
 
 
@@ -269,7 +302,7 @@ KP.RU - Комсомольская правда v1.25 AdFree [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678995.jpg" />
+  <img src="Z:/picture/008/save_picture_678995.jpg" />
 </div>
 
 
@@ -296,7 +329,7 @@ Contract Killer 1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678132.jpg" />
+  <img src="Z:/picture/005/save_picture_678132.jpg" />
 </div>
 
 
@@ -322,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678119.jpg" />
+  <img src="Z:/picture/005/save_picture_678119.jpg" />
 </div>
 
 
@@ -348,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677994.jpg" />
+  <img src="Z:/picture/008/save_picture_677994.jpg" />
 </div>
 
 
@@ -374,7 +407,7 @@ KIM KARDASHIAN: HOLLYWOOD 2.10.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677735.jpg" />
+  <img src="Z:/picture/008/save_picture_677735.jpg" />
 </div>
 
 
@@ -401,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677444.jpg" />
+  <img src="Z:/picture/008/save_picture_677444.jpg" />
 </div>
 
 
@@ -428,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676942.jpg" />
+  <img src="Z:/picture/008/save_picture_676942.jpg" />
 </div>
 
 
@@ -454,7 +487,7 @@ Coloring Book ColorCure v1.3.3 [En/Ru] - раскраска
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676616.jpg" />
+  <img src="Z:/picture/008/save_picture_676616.jpg" />
 </div>
 
 
@@ -482,7 +515,7 @@ KineScope v1.2.3 [Ru] - Более 5 000 фильмов и сериалов в �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676168.jpg" />
+  <img src="Z:/picture/008/save_picture_676168.jpg" />
 </div>
 
 
@@ -508,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675828.jpg" />
 </div>
 
 
@@ -534,7 +567,7 @@ SAS: Zombie Assault 4 1.3.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675338.jpg" />
 </div>
 
 
@@ -561,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675230.jpg" />
 </div>
 
 
@@ -588,7 +621,7 @@ Minecraft - Pocket Edition 0.11.0+ [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674670.jpg" />
 </div>
 
 
@@ -615,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674593.jpg" />
 </div>
 
 
@@ -649,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674587.jpg" />
 </div>
 
 
@@ -658,41 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 В игре FastBall вы управляете катящимся шариком. У него на пути встречается много различных препятствий, а он умеет только прыгать. Именно поэтому Вы нужны ему, ведь шарик прыгает тогда, когда кто-то нажимает на экран.
 С таким легким управлением вам предстоит пройти 105 уровней в 3 различных локациях. В прохождении вам пригодятся верный расчет и предельное внимание. Так же вам придется выбирать путь, по которому шарик достигнет конца уровня.
 В эту игру легко играть, ею легко наслаждаться...Тип издания: лицензияЖанр: АркадаЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509058   (674124) от 12.06.2012
-
-[Игра] (Android 2.2+) NBA Jam 01.00.38 \01.00.17
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_674124.jpg" />
-</div>
-
-
-###  Подробнее
-
-БУМШАКАЛАКА!!!
-
-Играйте со своими любимыми звездами из всех 30 команд NBA в непревзойденной баскетбольной аркаде "2 на 2"! Игра, которую вы помните, обрела новый облик!
-
-** NBA JAM - игра довольно крупных размеров (больше 260 Мб), поэтому рекомендуем подключиться через WiFi перед скачиванием. Поверьте, ожидание того стоит.**
-
-ИГРАЙТЕ СЕЙЧАС! ИГРАЙТЕ В КЛАССИЧЕСКОМ РЕЖИМЕ! ИГРАЙТЕ ПРОТИВ ДРУЗЕЙ!
-3 режима позволяют играть так, как вам хочется:
-
-• Play Now – выбирайте команду и выходите на площадку.(   Читать дальше...   )Жанр: 3D, Спорт
 
 ## Скачать торент
 ```bash

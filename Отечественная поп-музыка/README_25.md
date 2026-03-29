@@ -1,3 +1,125 @@
+###  Публикация: 965563   (225126) от 14.12.2015
+
+ВИА Веселые ребята - Перекресток судьбы (2015) [MP3|256 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выше неба (А. Добронравов – В. Пеленягрэ) 3.47
+02. Ты летела ко мне (А. Добронравов – Н. Пляцковская) 3.56
+03. Одинокая птица(П. Слободкин – Н. Пляцковская) 4.48
+04. Светлая ночь (Музыка и слова А. Висты) 4.11(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD8AA1C01F5689A4E71AC84F6366E69E6690DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586336   (224277) от 10.12.2012
+
+Ksenona - Далеко-далеко (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSENONA - Далеко-далеко (3:45)
+02. KSENONA - Unstoppable Sensation (3:19)
+03. KSENONA - Будет все хорошо (3:24)
+04. KSENONA - Close My Eyes (3:16)
+05. KSENONA - Это мой тайный мир (4:01)
+06. KSENONA - Hear My Voice (4:12)
+07. KSENONA - Песня ангелу (3:52)
+08. KSENONA - I Love Your Soul (3:30)
+09. KSENONA - Нелюбимый, нелюбимый (3:30)
+10. KSENONA - Горе не беда (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCD6B13246147123735AB6B4D2B2A39930DBBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268925   (224244) от 12.12.2018
+
+Николай Басков - Christmas Songs (2018) [MP3|320 Kbps] <Pop>
+
+>>След.
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adeste Fideles
+2. Ave Maria
+3. Away In A Manger
+4. The First Noel(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237FB6E4B3B9B57AF06D38E927919E554CFAF02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342993   (220970) от 04.12.2019
+
+Алиса Вокс - Упругий поп концерт (2019) Live [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выстрелы (Live)
+2. Мой (Live)
+3. Фейерверк (Live)
+4. Вечер (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514149   (219143) от 02.12.2021
 
 Марина Хлебникова - Лучшие Песни (2021) [MP3|320 Kbps] <Pop>
@@ -6,7 +128,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219143.jpg" />
+  <img src="Z:/picture/005/save_picture_219143.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218573.jpg" />
+  <img src="Z:/picture/005/save_picture_218573.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218494.jpg" />
+  <img src="Z:/picture/005/save_picture_218494.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ Siberian Heat & Elen Cora - Number One (2011) [MP3|160 Kbps] <Disco, Synth-pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218359.jpg" />
+  <img src="Z:/picture/005/save_picture_218359.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218178.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ Grivina - Танцую одна (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217580.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217428.jpg" />
+  <img src="Z:/picture/005/save_picture_217428.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213826.jpg" />
+  <img src="Z:/picture/005/save_picture_213826.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ ANNA ASTI - Феникс (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212961.jpg" />
+  <img src="Z:/picture/005/save_picture_212961.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ GSPD - СПОРТ РЕЖИМ: ЗЕЛЁНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211260.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209518.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208326.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ VA - Лучшие песни русских сериалов (2003) [MP3|320 Kbp
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208227.jpg" />
+  <img src="Z:/picture/005/save_picture_208227.jpg" />
 </div>
 
 
@@ -383,7 +505,7 @@ VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207704.jpg" />
 </div>
 
 
@@ -412,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207080.jpg" />
+  <img src="Z:/picture/005/save_picture_207080.jpg" />
 </div>
 
 
@@ -441,7 +563,7 @@ VA - Romantic Collection. Ретро (1999) [OGG Vorbis|480 Kbps] <Pop, Stage & 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206338.jpg" />
+  <img src="Z:/picture/005/save_picture_206338.jpg" />
 </div>
 
 
@@ -470,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203662.jpg" />
 </div>
 
 
@@ -497,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201660.jpg" />
+  <img src="Z:/picture/005/save_picture_201660.jpg" />
 </div>
 
 
@@ -526,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201523.jpg" />
+  <img src="Z:/picture/005/save_picture_201523.jpg" />
 </div>
 
 
@@ -555,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201172.jpg" />
+  <img src="Z:/picture/005/save_picture_201172.jpg" />
 </div>
 
 
@@ -584,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200586.jpg" />
+  <img src="Z:/picture/005/save_picture_200586.jpg" />
 </div>
 
 
@@ -610,7 +732,7 @@ VA - Лучшие песни русского радио 21 Альбом (2000 -
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197963.jpg" />
+  <img src="Z:/picture/004/save_picture_197963.jpg" />
 </div>
 
 
@@ -624,122 +746,6 @@ VA - Лучшие песни русского радио 21 Альбом (2000 -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E5AE8DF3A67942B81BACC880C2D8EE810B69F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641590   (196719) от 23.06.2023
-
-Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лететь высоко
-2. Солнце моё
-3. Лелею
-4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641592   (196699) от 23.06.2023
-
-VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дмитрий Маликов - Бумажный змей
-2. Лариса Долина/Алексей Чумаков - Дельтаплан
-3. ХАБИБ - Домовой
-4. Александр Розенбаум - Дворик(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB03EA920E96BC36779878466554CED422DEFC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588173   (191795) от 03.11.2022
-
-Маленький Принц - Мы Встретимся Снова (1994) Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbps] <Disco, Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не знаю, зачем мне ты
-02. Голос в ночи
-03. Прощай
-04. Не знаю я тебя(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590073   (189326) от 12.11.2022
-
-Юлия Савичева - Стихия (2022) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189326.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скажи мне
-2. Жёлтое такси
-3. От его голоса
-4. Незнакомец(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
 ```
 
 https://mybot314.ru/tekegram_catalog/

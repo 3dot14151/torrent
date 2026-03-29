@@ -1,3 +1,235 @@
+###  Публикация: 1533936   (699559) от 27.02.2022
+
+James Pepper - Songs of the far horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raven (1:18)
+02. Try to survive (4:54)
+03. My old friend (4:40)
+04. Get up to get down (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460E462579F34A4B3FCE2D01CF2D5ED14040A944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533947   (699426) от 27.02.2022
+
+Dan Patlansky - Shelter Of Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Parasite (3:31)
+02. Snake Oil City (4:26)
+03. Selfish Lover (3:14)
+04. Lost (4:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4BD9D1854BD1D2FD8EAAEFDA4D9D7527D38502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132798   (698695) от 10.05.2017
+
+Taj Mahal & Keb Mo - TajMo (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me Here (5:01)
+02. She Knows How To Rock Me (2:40)
+03. All Around The World (3:22)
+04. Om Sweet Om (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6286A355B80FC5E44565D10453980F571015E744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402818   (698025) от 16.08.2020
+
+Big Jack Johnson With The Cornlickers - Katrina (2009) [FLAC|Lossless|image + .cue] <Chicago Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fourth of July (06:02)
+02. Stop Pushing on Me (03:46)
+03. Katrina (06:23)
+04. Miss Statue of Liberty (06:18)(   Читать дальше...   )Жанр: Chicago Blues, Modern Electric BluesПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5F50FAACDE9520CBDA94B741F3BE4B37D6A3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133193   (696878) от 11.05.2017
+
+Leela James - Did It For Love (2017) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard for Me (3:21)
+02. Don't Mean a Thang (3:10)
+03. Don't Want You Back (3:38)
+04. Real Talk - Relationships (Interlude) (0:28)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EAD9C9FEEA70CC514D158C049566150E1491EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403008   (695693) от 17.08.2020
+
+Rob Tognoni - Catfish Cake (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Set Of Rays - 02:47
+02. Dealin' At The Crossroads - 04:04
+03. Captain Magic - 03:52
+04. Fat Orange Man - 03:50(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27342F8ADE0505CE681B47B1BAFBB0D19F0C1405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133711   (693251) от 13.05.2017
+
+Gary Cain Band - Twangadelic Bluesophunk (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Funky, Virtuoso>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Wire 03:46
+02. Pipes and Spoons 04:18
+03. Thought I Heard You Say 02:44
+04. No Foolin' 03:27(   Читать дальше...   )Жанр: Blues Rock, Funky, VirtuosoПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F095E4B481531362CE31E071CFA57D0ED6E087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133487   (693246) от 13.05.2017
+
+Micki Free - Tattoo Burn-Redux (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock, Native American>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Is On The Phone (Feat. Howard Hewett) (3:59)
+02. Tattoo Burn (4:04)
+03. Greens & Barbeque (3:53)
+04. Six Feet Down In The Blues (4:43)(   Читать дальше...   )Жанр: Blues, Blues-Rock, Native AmericanПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036EF0189F86D9FD974BF6ABA7E93AF5840C18AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221493   (691464) от 26.04.2018
 
 Solomon Burke - Soul My Heart Away (1989) Compilation [FLAC|Lossless|image + .cue] <Funk, Soul>
@@ -6,7 +238,7 @@ Solomon Burke - Soul My Heart Away (1989) Compilation [FLAC|Lossless|image + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691464.jpg" />
+  <img src="Z:/picture/008/save_picture_691464.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Solomon Burke - The Collection 2004 (2004) Compilation [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691459.jpg" />
+  <img src="Z:/picture/008/save_picture_691459.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Solomon Burke ‎ - The Chess Collection (2006) Compilation [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691376.jpg" />
+  <img src="Z:/picture/008/save_picture_691376.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Linda Kvam - Between a Rock and a Hard Place (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690392.jpg" />
+  <img src="Z:/picture/008/save_picture_690392.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Tony Holiday - Porch Sessions (2019) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690390.jpg" />
+  <img src="Z:/picture/008/save_picture_690390.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Koch Marshall Trio - Toby Arrives (2018) [FLAC|Lossless|tracks + .cue] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690387.jpg" />
+  <img src="Z:/picture/008/save_picture_690387.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Diana Ross - Voice Of Love (1996) [FLAC|Lossless|image + .cue] <Soul, R'n'B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690221.jpg" />
+  <img src="Z:/picture/008/save_picture_690221.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Scotty Bratcher - Put My Mind At Ease (2010) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689448.jpg" />
+  <img src="Z:/picture/008/save_picture_689448.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Michael Cooper - Love Is Such A Funny Game (1987) [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688569.jpg" />
+  <img src="Z:/picture/008/save_picture_688569.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Drew Sterchi - Left Here With The Blues (2012) [FLAC|Lossless]<Blues, Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688049.jpg" />
+  <img src="Z:/picture/008/save_picture_688049.jpg" />
 </div>
 
 
@@ -302,7 +534,7 @@ Jeff Golub - The Vault (2015) [FLAC|Lossless]<Blues, Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687750.jpg" />
+  <img src="Z:/picture/008/save_picture_687750.jpg" />
 </div>
 
 
@@ -331,7 +563,7 @@ VA - Memory Motel: Inside the World of Keith Richards (2019) [FLAC|Lossless|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686636.jpg" />
+  <img src="Z:/picture/008/save_picture_686636.jpg" />
 </div>
 
 
@@ -360,7 +592,7 @@ Neal Black And The Healers - A Little Boom Boom Boom (2020) [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686580.jpg" />
+  <img src="Z:/picture/008/save_picture_686580.jpg" />
 </div>
 
 
@@ -389,7 +621,7 @@ VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686474.jpg" />
+  <img src="Z:/picture/008/save_picture_686474.jpg" />
 </div>
 
 
@@ -418,7 +650,7 @@ CeeBee - Hopes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686420.jpg" />
+  <img src="Z:/picture/008/save_picture_686420.jpg" />
 </div>
 
 
@@ -447,7 +679,7 @@ Dedicated Men of Zion - The Devil Don't Like It (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686165.jpg" />
+  <img src="Z:/picture/008/save_picture_686165.jpg" />
 </div>
 
 
@@ -476,7 +708,7 @@ Kenny 'Blues Boss' Wayne - Blues From Chicago To Paris (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686150.jpg" />
+  <img src="Z:/picture/008/save_picture_686150.jpg" />
 </div>
 
 
@@ -505,7 +737,7 @@ Wolfpin - Remember (2009) [FLAC|Lossless|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682773.jpg" />
+  <img src="Z:/picture/008/save_picture_682773.jpg" />
 </div>
 
 
@@ -519,239 +751,6 @@ Wolfpin - Remember (2009) [FLAC|Lossless|tracks] <Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB7BB3BEC720DB5C3FAC9D968BF41952A4AEFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029446   (682362) от 26.06.2016
-
-VA - Blues 2000 (2000) Unofficial Release [APE|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Moore - Still Got The Blues
-02. Tony Joe White -  Good In Blues
-03. Dana Gilespie - Where Blue Begins
-04. Blues Company - Silent Nite(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923641D637E447AA46E6C87E9046EB6635925118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289677   (682088) от 18.03.2019
-
-Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snippet 1
-02. If I Could Ever
-03. What Good Is Your Love
-04. Snippet 2(   Читать дальше...   )Жанр: SoulПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0778CE02BA1611F0F5F55E563CCF1410505F9BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289760   (682084) от 18.03.2019
-
-Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Not Surrender  4:58
-02. So Near To Nowhere  3:57
-03. One Night Only  2:50
-04. I Want My Dog To Live Longer  2:47(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEFD0364DC11914C821D6CBD0D3EFF37ED0B2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289764   (681985) от 18.03.2019
-
-Curtis Mayfield - Keep On Keeping On: Curtis Mayfield Studio Albums 1970-1974 (2019) 4 CD, Remastered Box Set [FLAC|Lossless|tracks + .cue] <Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681985.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. (Don't Worry) If There's Hell Below We're All Going to Go (07:51)
-2. The Other Side of Town (04:02)
-3. The Makings of You (03:43)Жанр: Soul, Funk |Продолжительность: 02:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FCC498A6C3E9D54696A2FF8C266CDCA71A9318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289754   (681880) от 18.03.2019
-
-Joe Louis Walker, Bruce Katz, Giles Robson - Journeys To The Heart Of The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Old Train (03:03)
-02. It's You, Baby (03:31)
-03. I'm A Lonely Man (06:22)
-04. You Got To Run Me Down (03:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A564A70564CA5FC709A027C1704064BE0ACCA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212016   (681249) от 27.06.2010
-
-The Hoochie Coochie Men & Jon Lord - Danger White Men Dancing (2007) [FLAC|Lossless]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blues Just Got Sadder (3:34)
-02. Gotta Find Me Some Fire (3:57)
-03. Twisted System (4:15)
-04. Over & Over (8:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029474   (680343) от 27.06.2016
-
-Lara Price - Faces of the Blues (2002) [FLAC|Lossless|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Faces Of The Blues    04:22
-02.  Woman Down    02:45
-03.  If You Love Me    04:47
-04.  Cut You Loose    05:15(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E17523A725FA2F59F97B4A321F34C822C2CF72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898447   (679643) от 16.05.2015
-
-B.B. King - Do The Boogie! B.B. King's Early 50s Classics (1988) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король - умер! И вокруг королей такого уровня пока больше нет. Ведь в свои 89 он действительно был королем блюза.
-Би Би Кинг (настоящее имя Riley B. King, а его В-В подразумевает Blues Boy) — один из самых известных авторов и исполнителей блюза, обладатель нескольких премий «Грэмми». После его гастролей в 1979 году по СССР, он со сцены сказал:"После этого (гастролей) (   Читать дальше...   )01. Boogie Woogie Woman  (2:48)
-02. Past Day  (3:16)
-03. I Gotta Find My Baby  (2:47)
-04. Bye Bye Baby  (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F96F9B78D1B156A8F3B6B48F287C667CA3A74A
 ```
 
 https://mybot314.ru/tekegram_catalog/

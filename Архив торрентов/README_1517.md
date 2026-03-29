@@ -6,7 +6,7 @@ Studies 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707340.jpg" />
+  <img src="Z:/picture/008/save_picture_707340.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707307.jpg" />
+  <img src="Z:/picture/008/save_picture_707307.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707300.jpg" />
+  <img src="Z:/picture/008/save_picture_707300.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Affinity Designer Beta 1.7.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707297.jpg" />
+  <img src="Z:/picture/008/save_picture_707297.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707295.jpg" />
+  <img src="Z:/picture/008/save_picture_707295.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707294.jpg" />
+  <img src="Z:/picture/008/save_picture_707294.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707220.jpg" />
+  <img src="Z:/picture/008/save_picture_707220.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.06) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707218.jpg" />
+  <img src="Z:/picture/008/save_picture_707218.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707179.jpg" />
+  <img src="Z:/picture/008/save_picture_707179.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707172.jpg" />
+  <img src="Z:/picture/008/save_picture_707172.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ DVDFab 9.1.9.9 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707170.jpg" />
+  <img src="Z:/picture/008/save_picture_707170.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707168.jpg" />
+  <img src="Z:/picture/008/save_picture_707168.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Core Temp 1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707167.jpg" />
+  <img src="Z:/picture/008/save_picture_707167.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Tenorshare iCareFone for WhatsApp Transfer 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707166.jpg" />
+  <img src="Z:/picture/008/save_picture_707166.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Permute 2.4.4 [Muli/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707152.jpg" />
+  <img src="Z:/picture/008/save_picture_707152.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ File Cabinet Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707147.jpg" />
+  <img src="Z:/picture/008/save_picture_707147.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707145.jpg" />
+  <img src="Z:/picture/008/save_picture_707145.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Hekasoft Backup & Restore 0.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707134.jpg" />
+  <img src="Z:/picture/008/save_picture_707134.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Dima Ustinov - Remixed Mistakes (2017) [MP3|320 Kbps] <Breaks, Downtempo, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707123.jpg" />
+  <img src="Z:/picture/008/save_picture_707123.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NoteBurner M4V Converter Plus 4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707115.jpg" />
+  <img src="Z:/picture/008/save_picture_707115.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Vivaldi 2.3.1440.60 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707111.jpg" />
+  <img src="Z:/picture/008/save_picture_707111.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Mountain Goats - Goths (2017)[FLAC|Lossless|tracks + .cue] <Indie-Rock, Folk
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707103.jpg" />
+  <img src="Z:/picture/008/save_picture_707103.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707099.jpg" />
+  <img src="Z:/picture/008/save_picture_707099.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ DiskDigger 1.20.10.2731 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707097.jpg" />
+  <img src="Z:/picture/008/save_picture_707097.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Parkitect v1.3 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707083.jpg" />
+  <img src="Z:/picture/008/save_picture_707083.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Text Editor Pro 20.0.1 + Portable + bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707056.jpg" />
+  <img src="Z:/picture/008/save_picture_707056.jpg" />
 </div>
 
 

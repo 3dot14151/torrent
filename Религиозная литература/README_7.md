@@ -1,3 +1,81 @@
+###  Публикация: 1470535   (1015646) от 17.05.2021
+
+Епископ Аммон | О житии преподобных Пахомия Великого и Феодора Освященного (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочинение епископа Аммона (IV в.) «Послание об образе жития и отчасти о жизни Пахомия и Феодора» — уникальный памятник святоотеческой литературы древнеегипетского монашества. По жанру он представляет собой нечто среднее между житием, похвальным словом и монашеской историей, сближаясь в этом отношении с такими известными произведениями, как «Житие св. Антония» свт. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13E5854FC63E3F732D7E84260F311870403F023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471935   (1014830) от 22.05.2021
+
+Ростов-на-Дону (изд.) | Служба с Акафистом Святителю Николаю, Мирликийскому Чудотворцу (1991) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит службу с акафистом святителю Николаю, Мирликийскому Чудотворцу с приложением молитв.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57171225529BE74C8F1A412DFCE5F67782C628A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471957   (1014694) от 23.05.2021
+
+Свято-Троицкая Сергиева Лавра (изд.) | В помощь кающимся. По творениям святых отцов (2016) [PDF, DJVU, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга, составленная по творениям святых отцов, подробно рассказывает о добродетелях, главных страстях с их подразделениями и отраслями, о мытарствах, об исповеди с приложением молитв.Жанр: ПравославиеФормат: PDF, DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774A7303AC87161E22974A93A6AFCA5B222A2B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472405   (1014386) от 25.05.2021
 
 Валерий Жердев | Она видела Святую Русь. Дневник паломницы (2007) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014386.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013863.jpg" />
 </div>
 
 
@@ -63,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013859.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013551.jpg" />
 </div>
 
 
@@ -117,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013480.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012911.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012274.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012128.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011840.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011703.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011160.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010981.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010974.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010486.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010179.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009717.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009326.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008287.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008176.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008156.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007909.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007764.jpg" />
 </div>
 
 
@@ -606,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007626.jpg" />
 </div>
 
 
@@ -617,86 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D44419DA3A7A84A7423DE66C4A477560FFBCEE2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482561   (1007469) от 09.07.2021
-
-Митрополит Иоанн (Снычёв) | Мир со злом недопустим (2017) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разумение своей нравственной немощи побуждает человека стремиться к исправлению. Когда это стремление к чистоте и святости овладевает целым народом, он становится носителем и хранителем идеи столь высокой, столь сильной, что это неизбежно сказывается на всём мироустройстве. Такова судьба русского народа. В этом положении народ и его государство неизбежно подвергаются (   Читать дальше...   )Жанр: Православие. История. ПолитикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564AA1E80E2D425D76595AF63D1C375EA4891E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482949   (1007196) от 11.07.2021
-
-Интербук (изд.) | О благоговейном совершении молитвы и чинном поведении в Храме Божием [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молиться, — говорит блаженный Симеон, архиепископ Фессалоникийский — значит быть в союзе с Богом, постоянно пребывать с Ним, прилепляться, как говорит Давид, к Богу душою, не отступая от Него и имея ум, неотступно устремлённый к Нему.
-
-По благословению Святейшего Патриарха Московского и всея Руси Алексия II.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1A413378E6C19F509F2289336CB3F7D58457CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483345   (1006898) от 13.07.2021
-
-Святитель Николай (Могилевский) | Не поклонимся греху. Святоотеческое учение о борьбе со страстями (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор предлагаемой книги, митрополит Николай (Могилевский; 1874†1955), — блестящий интеллектуал и в то же время человек святой жизни, подвижник и молитвенник. Ему суждено было пройти лагеря, тюрьмы и ссылки. В 1945 году его назначили на Алма-Атинскую и Казахстанскую кафедру, которой он управлял в течение последних десяти лет своей жизни. В 2000 году священноисповедник (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FC6C8A8B345B7F9B26F9F26C2B5F8FEFF12842
 ```
 
 https://mybot314.ru/tekegram_catalog/

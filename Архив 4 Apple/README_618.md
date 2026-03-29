@@ -1,3 +1,109 @@
+###  Публикация: 1598046   (164338) от 17.12.2022
+
+Apeaksoft Android Toolkit 1.2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Android ToolKit - предоставляет вам полное решение для восстановления данных Android, позволяющее эффективно решать все проблемы потери файлов Android за три простых шага: подключить Android к Mac, сканировать устройство Android, просматривать и восстанавливать данные Android.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: © 2022 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1069984E323A53992E9729F46A47366DEF0DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432353   (164335) от 17.12.2020
+
+DCommander 3 Premium v3.8.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164335.jpg" />
+</div>
+
+
+###  Подробнее
+
+DCommander для Mac - двухпанельный файловый менеджер, который дает вам полный контроль над файловой системой компьютера.
+
+Оптимизирован для быстрого доступа и удобства, DCommander ваш компаньон и обеспечивает идеальное управление файлами для новых пользователей Mac, которые переходят с других операционных систем, а также продвинутых пользователей, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: DevStorm AppsПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED01ECC980E5D36EECFFA1F8F406D67ADAF0A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597971   (164333) от 17.12.2022
+
+iStatistica Pro 5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164333.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStatistica Pro - подробный монитор системных ресурсов для macOS.  Подробная статистика по загрузке памяти, процессора, диска, возможность посмотреть карту сети и скорость входящего/исходящего трафика, здоровье батарее и количество циклов, скорость входящего/исходящего трафика сети, состояние датчиков системы (плагин скачивается отдельно), визуальное представление (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2015-2022 Andrey TsarkovПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DB77EAA3AFEB2CA5E3798BB2013D62FE61D84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516942   (164324) от 13.12.2021
+
+Artlantis 2021.2 v9.5.2.29009 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artlantis  – профессиональный набор инструментов, предназначенный для создания изображений и видеороликов высокого качества на основе 3D-моделей. В процессе работы пользователь может применять различные текстуры, изменять цвета проекта и параметры источников света. Программа также включает в себя инструменты, позволяющие редактировать свойства существующих материалов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: AbventПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC6DA591B8F35AECE09154A97BD96BD2B82F8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517007   (164310) от 13.12.2021
 
 SwitchResX 4.11.3 [En]
@@ -6,7 +112,7 @@ SwitchResX 4.11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164310.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ Mac FoneLab Android Data Recovery 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164308.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Task Office 8.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164305.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Wondershare UniConverter for Mac 15.0.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164265.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ ON1 Photo RAW 2024 v.18.0.3.14689  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164263.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164255.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ SiteSucker Pro 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164235.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Final Draft 12 v.12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164214.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ FileMaker Pro 19 v19.2.1.14  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164212.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ Easy Data Transform 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164189.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ TechSmith Camtasia 2020 Studio v2020.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164131.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Mountain Duck 4.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164126.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ Apple Remote Desktop 3.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164038.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ Red Giant Magic Bullet Suite 13.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163986.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ Qbserve 1.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163936.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ DupeZap 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163924.jpg" />
 </div>
 
 
@@ -438,7 +544,7 @@ Parallels Desktop Business Edition 17.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163867.jpg" />
 </div>
 
 
@@ -465,7 +571,7 @@ DoYourData File Eraser Pro 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163826.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ Calendar 366 II v2.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163825.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ File List Export 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163824.jpg" />
 </div>
 
 
@@ -545,7 +651,7 @@ DoYourData AppUninser Pro 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163816.jpg" />
 </div>
 
 
@@ -571,7 +677,7 @@ UctoX 2 v2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163814.jpg" />
 </div>
 
 
@@ -584,116 +690,6 @@ UctoX - это мощное приложение для выставления �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F280109487D57591DE4985E1D4F525DC12280AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517218   (163807) от 14.12.2021
-
-FileAssistant 3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко и быстро находить, копировать, вырезать, удалять файлы на Mac
-Вы не хотите тратить свое время, чтобы искать нужный файл на вашем Mac, не так ли? Вы не хотите , чтобы хранились дубликаты файлов на вашем Mac, не так ли? Просто скачайте FileAssistant, это поможет вм легко управлять файлами на Mac.
-
-Вы можете свободно перетаскивать или добавлять файлы / папки из (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 DoYourDataПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A464BC74478E460A38A0DDD0BB25E1BA210704A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517237   (163804) от 14.12.2021
-
-URL Manager Pro 5.8.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163804.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BFE5782420286470B353C2E266DB98B3C983EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517224   (163800) от 14.12.2021
-
-NeoOffice 2017.31 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163800.jpg" />
-</div>
-
-
-###  Подробнее
-
-NeoOffice это полнофункциональный набор офисных приложений (в том числе для обработки текстов, создания электронных таблиц, презентаций и программ для работы) для macOS.
-NeoOffice создан на основе офисного пакета OpenOffice.org и включает в себя десятки родных для Mac функций, подходит для импортирования, редактирования и обмена файлами с другими популярными офисными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: © 2021 Planamesa Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA66D6BAF0E226961650F4C636C74F07FFF1D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517164   (163796) от 14.12.2021
-
-Sublime Merge Dev Build 2065 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 Sublime HQПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C710E15F237FC10BC5B01DD7FC2BE0138A8487
 ```
 
 https://mybot314.ru/tekegram_catalog/

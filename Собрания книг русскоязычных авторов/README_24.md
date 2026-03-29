@@ -1,3 +1,83 @@
+###  Публикация: 1811201   (8916) от 08.08.2025
+
+Василий Горъ | Собрание произведений [64 книги] (2002-2025) [FB2, RTF]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Горъ - популярный писатель-фантаст, настоящее имя Гозалишвили Василий Тамазович. Автор предпочитает оставаться инкогнито и не дает биографических комментариев. В круг интересов Василия Гора входит музыка, спорт, в том числе и экстремальный, искусство, история, техника, новые технологии, медицина, эзотерикаЖанр: Фантастика, фэнтези, приключения, боевикИздательство: РазличныеФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114AD6D4703485FD84FBCDDC1E68424BC609BABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811253   (8911) от 08.08.2025
+
+Валерий Большаков | Собрание произведений [67 книг] (2005-2025) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валерий Большаков - популярный писатель-фантаст. Первый роман напечатан в 2005 году (Другие правила). По словам самого автора, его интересует или будущее, или прошлое - отсюда и поджанры фантастики, в которых работает Валерий Большаков.
+Автор о себе:  Писака по жизни. Расист, гомофоб, сексист и так далее. Журналист и писатель - вышло 45 или 46 моих романов. Больше (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, Героическая фантастика, ПопаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D728602E9B9C7BC99BC0CBB370087F0EA1D73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811182   (8899) от 08.08.2025
+
+Анна Сешт | Собрание произведений [11 книг] (2020-2025) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Сешт — писатель, переводчик, музыкант.
+По первому образованию — аудитор (St. John's University, Нью-Йорк), по второму — египтолог (University of Manchester). Активно занимается популяризацией культуры Древнего Египта. Писала в разных жанрах, от олдскульного фэнтези «меча и магии» до киберпанка. Предпочитает романы, хотя первой книгой, изданной ещё в США, был (   Читать дальше...   )Жанр: Фэнтези, детектив, приключения, мистикаИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928C8A0B86C5DBA819BACE72BAA64F3648FFFD1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811180   (8884) от 08.08.2025
 
 Кирилл Довыдовский | Собрание произведений [33 книги] (2007-2025) [FB2]
@@ -6,7 +86,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8884.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8832.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8818.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8807.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8787.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8717.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8692.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8691.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8684.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8676.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8129.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8127.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8100.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7908.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7904.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7902.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7898.jpg" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7893.jpg" />
 </div>
 
 
@@ -488,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7510.jpg" />
 </div>
 
 
@@ -516,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7507.jpg" />
 </div>
 
 
@@ -544,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7502.jpg" />
 </div>
 
 
@@ -572,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7314.jpg" />
 </div>
 
 
@@ -600,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7308.jpg" />
 </div>
 
 
@@ -613,91 +693,6 @@ LitRPG и RealRPG: Миры, где герои развиваются (   Чи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49B0E683C5CDEC2290874D003B486E4E31B38015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812872   (7306) от 17.08.2025
-
-Дмитрий Найденов | Собрание произведений [50 книг] (2020-2025) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Александрович Найденов — российский писатель, работающий в жанрах фантастики, альтернативной истории, LitRPG, фэнтези и постапокалипсиса. Его книги часто объединяют элементы магии, технологий, глобальных конфликтов и моральных дилемм. Вот основные направления его творчества:
- Космическая фантастика и постапокалипсис
- Фэнтези и LitRPG
- Альтернативная историяЖанр: Попаданство, Космическая фантастика, Альтернативная историяИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24692DB29BC24302961E2056313B09FC090E82AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813040   (7275) от 17.08.2025
-
-Инди Видум | Собрание произведений [20 книг] (2022-2025) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инди Видум пишет в жанрах фэнтези, Бояръ-Аниме, ЛитРПГ и альтернативной магической реальности, часто с элементами иронии, алхимии и социальной сатиры. Его произведения — это не просто приключения, а целые миры, где магия сталкивается с бюрократией, а герои — с внутренними и внешними вызовами.
- Основные темы и особенности его творчества:
-Попаданцы с twist'ом: герои (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED862E52E0A3B97A4EB6A0FBFA940F6A1CC092A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813042   (7272) от 17.08.2025
-
-Михаил Тихонов | Собрание произведений [29 книг] (2018-2025) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Тихонов — автор, работающий преимущественно в жанрах фантастики, боевой космооперы, ЛитРПГ и попаданческой прозы. Его книги — это динамичные, насыщенные действием истории, где герои сталкиваются с войной, предательством, моральным выбором и загадками иных миров.
- Основные темы его творчества:
-Попаданцы в космосе: персонажи оказываются в других мирах или вселенных, (   Читать дальше...   )Жанр: Космическая фантастика, Боевая фантастика, Приключения, Фэнтези, ПопаданствоИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B52D96ECF08993803F0025DE8AF5C011480DEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

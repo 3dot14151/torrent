@@ -1,3 +1,162 @@
+###  Публикация: 1802120   (14538) от 15.06.2025
+
+Новое достижение: 2000 релизов от Beijing65!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое достижение: 2000 релизов от Beijing65!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 2000-м релизом!
+Невероятное количество релизов, огромный труд!!!
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788647   (14270) от 18.06.2025
+
+Гангстерленд / MobLand (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-10 из 10) RHS, HDRezka, LostFilm, TVShows, NewComers, КвК, WStudio, LE-Production (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две враждующие семьи — Харриганы и Стивенсоны — вступают в открытое противостояние. Их столкновение превращает Лондон в поле битвы, где «власть идет на уступки, а союзы рушатся за считанные часы». В эпицентре оказывается Гарри да Соуза (Том Харди) — «уличный решальщик», чья опасность соперничает с его внешней харизмой. Он годами закрывал глаза на преступления Харриганов, (   Читать дальше...   )Производство: США / 101 Studios, MTV Entertainment Studios, MTV Studios, Showtime NetworksЖанр: криминал, драмаРежиссер: Энтони Бирн, Гай Ричи, Даниэль СыркинАктеры: Том Харди, Хелен Миррен, Пирс Броснан, Джемма Найт Джонс, Люк Мэбли, Брэдли Тернер, Джоэнн Фрогатт, Пэдди Консидайн, Лара ПулверПеревод: Дублированный (Red Head Sound), Многоголосый (HDRezka, LostFilm, TVShows, NewComers, WStudio, LE-Production), двухголосый (Кубик в Кубе)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F5816D802CD93F7193F00610332580E7017AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685371   (14168) от 19.06.2025
+
+Игра престолов / Game of Thrones (2011-2019) BDRip [H.265/1080p] [10-bit] (сезон 1-8, серии 1-73 из 73) Кравец, AlexFilm, LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14168.jpg" />
+</div>
+
+
+###  Подробнее
+
+К концу подходит время благоденствия, и лето, длившееся почти десятилетие, угасает. Вокруг средоточия власти Семи королевств, Железного трона, зреет заговор, и в это непростое время король решает искать поддержки у друга юности Эддарда Старка. В мире, где все — от короля до наёмника — рвутся к власти, плетут интриги и готовы вонзить нож в спину, есть место и благородству, (   Читать дальше...   )Производство: США, Великобритания / Bighead Littlehead, Created By, Generator Entertainment, Home Box Office (HBO), Television 360Жанр: фэнтези, драма, боевик, мелодрама, приключенияРежиссер: Дэвид Наттер, Алан Тейлор, Алекс ГрейвзАктеры: Питер Динклэйдж, Лина Хиди, Эмилия Кларк, Кит Харингтон, Софи Тёрнер, Мэйси Уильямс, Николай Костер-Вальдау, Иэн Глен, Алфи Аллен, Джон БрэдлиПеревод: дублированный (Kravec), многоголосый профессиональный (AlexFilm, LostFilm)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, forced)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C4655F4FC35A3D1338F60F90C51C01A6B12A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802824   (14072) от 20.06.2025
+
+Подтверждена самая крупная утечка данных в истории: в Сеть утекли 16 млрд паролей от аккаунтов Apple и Google
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи из компании Cybernews обнаружили беспрецедентную утечку данных, в результате которой в открытом доступе оказались почти 16 млрд логинов и паролей от аккаунтов в различных популярных сервисах. Некоторыми экспертами данная утечка называется крупнейшей в истории. Предполагается, что база данных собиралась при помощи многочисленных программ-инфостилеров.Слитый (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495415   (14060) от 20.06.2025
+
+Подшивка журналов | Искатель (1961-1969) [PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14060.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Искатель" - советский, затем российский журнал, публикующий преимущественно фантастические и приключенческие произведения, а также научно-популярные очерки.
+Основан в 1961 году, в год столетнего юбилея журнала «Вокруг света», как литературное приложение к нему. До 1997 года выходил шесть раз в год, затем стал ежемесячным, в советское время распространялся (   Читать дальше...   )Жанр: Фантастика, приключения, детективы, публицистикаИздательство: ЦК ВЛКСМ "Молодая гвардия"Формат: PDFКачество: Хороший скан, OCR с ошибками (600dpi)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802836   (14041) от 20.06.2025
+
+В США подняли в воздух «самолет Судного дня». Что это такое. Boeing E-4B совершил необычный полет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вслед за «Радиостанцией Судного дня» широкой общественности стало известно еще об одном техническом средстве с пугающим апокалиптическим названием. В СМИ распространилась информация об американском Boeing E-4B Nightwatch, или «самолете Судного дня». Недавно он совершил очень странный полет. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802972   (13970) от 21.06.2025
 
 Фотонные чипы Китая
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13970.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13857.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13852.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ Superjet совершил первый длительный полет на ро
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13814.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13810.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13745.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13631.jpg" />
 </div>
 
 
@@ -189,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13421.jpg" />
 </div>
 
 
@@ -215,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13337.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13224.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13223.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13123.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13031.jpg" />
 </div>
 
 
@@ -345,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12933.jpg" />
 </div>
 
 
@@ -372,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12920.jpg" />
 </div>
 
 
@@ -398,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12815.jpg" />
 </div>
 
 
@@ -424,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12795.jpg" />
 </div>
 
 
@@ -450,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12670.jpg" />
 </div>
 
 
@@ -476,7 +635,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12604.jpg" />
 </div>
 
 
@@ -502,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12572.jpg" />
 </div>
 
 
@@ -513,166 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804362   (12305) от 07.07.2025
-
-Чем советские киносказки 1970-х годов отличаются от фильмов 1960-х?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12305.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Если совсем кратко, то от советских фильмов для детей 1960-х годов киносказки 1970-х отличают две основные вещи: непременная философская идея и слегка печальная атмосфера.
-В 1960-х годах главным советским киносказочником был Александр Роу. В 1970-е годы его место занял Борис Рыцарев. Смену эпохи легко заметить, анализируя их фильмы, но мы поговорим и о других сказках.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805087   (12174) от 08.07.2025
-
-Ветераны советской ракетной отрасли и ИИ создадут многоразовую ракету — конкурента SpaceX Falcon 9
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зарегистрированная в 2023 году в Люксембурге ракетная компания Aspire Space объявила о переносе операций в Дубай, ОАЭ. Компания была основана Станиславом Руденко, получившим образование в Санкт-Петербурге. Техническим директором Aspire Space стал ветеран космической отрасли СССР Сергей Сопов, ранее возглавлявший космодром «Морской старт». Вместе с командой инженеров, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805111   (12095) от 09.07.2025
-
-MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 03 Июля 2025 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805731   (12039) от 09.07.2025
-
-Очередное достижение: 9000 релизов от b_igor1-1
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12039.jpg" />
-</div>
-
-
-###  Подробнее
-
- Очередное достижение: 9000 релизов от b_igor1-1 Уважаемые одноклубники, буквально недавно мы поздравляли нашего товарища с преодолением очередного рубежа и, спустя совсем немного времени, мы спешим поздравить его вновь! От всей души поздравляем b_igor1-1 с преодолением отметки в 9000 релизов! Спасибо за вклад в развитие трекера! :friend:
-От всей души поздравляем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784364   (11888) от 11.07.2025
-
-Бригада (2002) HDRip [H.265/720p] (сезон 1, серии 1-15 из 15) [Hand made Enhanced Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история четырех друзей детства, обычных московских парней, Саши Белого, Космоса, Пчелы и Фила, выросших в одном дворе. Друзья решили немного подзаработать, но незапланированное убийство вмиг перемешало все задуманное, поставив на кон их жизни. Ставка слишком высока, но отступать некуда. Теперь парни прокладывают себе дорогу в криминальном мире и волею судеб превращаются (   Читать дальше...   )Производство: Россия / Аватар фильмЖанр: криминал, боевикРежиссер: Алексей СидоровАктеры: Сергей Безруков, Дмитрий Дюжев, Павел Майков, Владимир Вдовиченков, Екатерина Гусева, Андрей Панин, Валентина Теличкина, Алексей Кравченко, Александр Высоковский, Николай Ерёменко мл. и др.Субтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804941   (11882) от 11.07.2025
-
-Главы государств / Heads of State (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11882.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире зреет глобальный заговор, цель которого — уничтожить глав ведущих государств. Мишенями для противника становятся премьер-министр Великобритании Сэм Кларк и президент США Уилл Дерринджер, которые ведут публичное соперничество. Но чтобы остаться в живых, им приходится объединить силы и вместе противостоять масштабной угрозе. В этом им помогает опытная разведчица (   Читать дальше...   )Производство: США / Amazon MGM Studios, Big Indie Pictures, Safran Company, TheЖанр: боевик, комедияРежиссер: Илья НайшуллерАктеры: Джон Сина, Идрис Эльба, Приянка Чопра Джонас, Джек Куэйд, Пэдди Консидайн, Карла Гуджино, Стивен Рут, Сара Нилс, Ричард Койл, Александр КузнецовПеревод: Дублированный (HATE Studio), Многоголосый (HDRezka, TVShows, Red Head Sound, WStudio, заКАДРЫ, LE-Production), Одноголосый (Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5588A62971D3ED2D99ECEF0BA5060CC5EC0A68
 ```
 
 https://mybot314.ru/tekegram_catalog/

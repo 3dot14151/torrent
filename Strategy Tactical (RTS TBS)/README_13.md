@@ -6,7 +6,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.002.003.77876/dlc) Repack DjDI [Premium Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254519.jpg" />
+  <img src="Z:/picture/005/save_picture_254519.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Warhammer 40 000: Dawn Of War 2: Retribution + 18 DLC [Ru] (RePack/3.19.1.6123) 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253571.jpg" />
+  <img src="Z:/picture/005/save_picture_253571.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Warhammer 40 000: Dawn of War 2: Retribution + DLC [Ru/En] (Steam-Rip/3.19.1.612
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253545.jpg" />
+  <img src="Z:/picture/005/save_picture_253545.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Myths and Legends (2024) [Ru/Multi] (20121460/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249056.jpg" />
+  <img src="Z:/picture/004/save_picture_249056.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Showgunners (2023) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247678.jpg" />
+  <img src="Z:/picture/004/save_picture_247678.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247007.jpg" />
+  <img src="Z:/picture/004/save_picture_247007.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Warpips (2022) [Ru/Multi] (2.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237839.jpg" />
+  <img src="Z:/picture/004/save_picture_237839.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (23289/dlc) License GOG [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229463.jpg" />
+  <img src="Z:/picture/004/save_picture_229463.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224809.jpg" />
+  <img src="Z:/picture/005/save_picture_224809.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Star Renegades (2020) [Ru/Multi] (1.4.2) License GOG [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221850.jpg" />
+  <img src="Z:/picture/005/save_picture_221850.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216453.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Combat Mission Cold War (2021) [Multi] (1.02.00) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216240.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Banner Saga (2014) [Ru/Multi] (2.60.02) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212762.jpg" />
+  <img src="Z:/picture/005/save_picture_212762.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ The Riftbreaker (2021) [Ru/Multi] (SVN_31432/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212308.jpg" />
+  <img src="Z:/picture/005/save_picture_212308.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Showgunners (2023) [Ru/Multi] (1.1.0_53480/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208245.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Tahira: Echoes of the Astral Empire (2016) [En] (1.1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202820.jpg" />
+  <img src="Z:/picture/004/save_picture_202820.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 88888888/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202298.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197906.jpg" />
+  <img src="Z:/picture/004/save_picture_197906.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195890.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188636.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188293.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188119.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177042.jpg" />
+  <img src="Z:/picture/005/save_picture_177042.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173105.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Valor & Victory (2021) [Ru/Multi] (1.07.06/dlc) Scene Skidrow
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172724.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171816.jpg" />
 </div>
 
 

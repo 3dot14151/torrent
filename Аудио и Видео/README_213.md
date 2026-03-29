@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314457.jpg" />
+  <img src="Z:/picture/008/save_picture_314457.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314186.jpg" />
+  <img src="Z:/picture/008/save_picture_314186.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313966.jpg" />
+  <img src="Z:/picture/008/save_picture_313966.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313614.jpg" />
+  <img src="Z:/picture/008/save_picture_313614.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313405.jpg" />
+  <img src="Z:/picture/008/save_picture_313405.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313149.jpg" />
+  <img src="Z:/picture/008/save_picture_313149.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312339.jpg" />
+  <img src="Z:/picture/008/save_picture_312339.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312133.jpg" />
+  <img src="Z:/picture/008/save_picture_312133.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312080.jpg" />
+  <img src="Z:/picture/008/save_picture_312080.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311932.jpg" />
+  <img src="Z:/picture/008/save_picture_311932.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311858.jpg" />
+  <img src="Z:/picture/008/save_picture_311858.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311830.jpg" />
+  <img src="Z:/picture/008/save_picture_311830.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311743.jpg" />
+  <img src="Z:/picture/008/save_picture_311743.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311642.jpg" />
+  <img src="Z:/picture/008/save_picture_311642.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311185.jpg" />
+  <img src="Z:/picture/008/save_picture_311185.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310921.jpg" />
+  <img src="Z:/picture/008/save_picture_310921.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Afternoon Chillout Lounge: Chillout Your Mind (2020) [AAC|~319 Kbps] <Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310916.jpg" />
+  <img src="Z:/picture/008/save_picture_310916.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Es Vedra Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtempo, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310915.jpg" />
+  <img src="Z:/picture/008/save_picture_310915.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Priest - Cyberhead (2020) [AAC|~294 Kbps] <Electro, EBM, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310913.jpg" />
+  <img src="Z:/picture/008/save_picture_310913.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Coffee Jazz (2020) [AAC|~327 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310911.jpg" />
+  <img src="Z:/picture/008/save_picture_310911.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Morning Coffee Lounge: Chillout Your Mind (2020) [AAC|~329 Kbps] <Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310906.jpg" />
+  <img src="Z:/picture/008/save_picture_310906.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310829.jpg" />
+  <img src="Z:/picture/008/save_picture_310829.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310818.jpg" />
+  <img src="Z:/picture/008/save_picture_310818.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Whitesnake - Love Songs (2020 Remix) (2020) [AAC|~338 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310709.jpg" />
+  <img src="Z:/picture/008/save_picture_310709.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Whitesnake - The ROCK Album (2020 Remix) (2020) [AAC|~339 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310618.jpg" />
+  <img src="Z:/picture/008/save_picture_310618.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310537.jpg" />
+  <img src="Z:/picture/008/save_picture_310537.jpg" />
 </div>
 
 

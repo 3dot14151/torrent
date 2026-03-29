@@ -1,3 +1,162 @@
+###  Публикация: 969019   (149813) от 25.12.2015
+
+TeamViewer 11.0.53254 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149813.jpg" />
+</div>
+
+
+###  Подробнее
+
+TeamViewer устанавливает подключение к любому компьютеру или серверу в любой точке мира в течение нескольких секунд. Вы можете удалённо управлять компьютером вашего партнёра, как будто сидите прямо перед ним. Программа позволяет получить доступ к компьютеру из любой точки интернета (IP-адрес удаленной машины можно не знать, но на втором компьютере тоже должна быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2B685D941148071F4946133380DBC43BE21658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968656   (149781) от 25.12.2015
+
+Adobe Photoshop Lightroom 6.3 RePack by D!akov (24.12.2015) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15AC666644B839E144D4A841FF4B7B21C6ADFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968778   (149758) от 25.12.2015
+
+PROMT Professional 11 Build 9.0.556 DC 20.11.2015 + Dictionaries Collection [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149758.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT Professional 11 – переводчик и словарь для малого и среднего бизнеса. Программа позволяет быстро и качественно перевести деловой документ, сайт, письмо или сообщение от партнера. При этом гарантируется сохранение конфиденциальности переводимой информации.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC3D1FAF9750B6F6338FAE623C654999F72870F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968233   (149733) от 25.12.2015
+
+W.D.I | Веб-дизайн Интенсив (2015) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149733.jpg" />
+</div>
+
+
+###  Подробнее
+
+35-дневная образовательная программа;
+Состоит из 9 образовательных секций с видеоуроками (44 урока)
+Домашние задания после каждой сессии
+10 вебинаров с разбором домашних заданий(   Читать дальше...   )Производство: РоссияЖанр: Веб-дизайнПродолжительность: 40:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7642402BE5682C28554F0D5F286757739DA892D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657725   (149003) от 23.12.2018
+
+Добро пожаловать, или Посторонним вход воспрещен (1964) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пионер Костя Иночкин, будучи в пионерском лагере, переплыл реку и оказался на запретной для посещений территории, за что и был изгнан его начальником товарищем Дыниным. Не желая доводить бабушку до инфаркта своим досрочным прибытием, мальчик тайно возвращается в лагерь, где пионеры так же тайно содержат его и предпринимают все меры, чтобы не состоялся родительский (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Комедия, семейныйРежиссер: Элем КлимовАктеры: Виктор Косых, Евгений Евстигнеев, Арина Алейникова, Илья Рутберг, Лидия Смирнова, Алексей Смирнов, Нина Шацкая, Лидия Волкова, Татьяна Барышева, Александр БайковСубтитры: ОтсутствуютПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3778B00268477C6E6657201AEED183B4B375C6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230921   (148991) от 23.12.2018
+
+Wreckfest (2018) [Ru/Multi] (1.233553/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте о правилах! Wreckfest - это полный контакт и никакой пощады! Эпические столкновения, нешуточная борьба до самого финиша и миллион способов гнуть и корежить металл - вот что ждет вас в Wreckfest, новой гоночной игре со сверхреалистичной симуляциейТип издания: RepackРазработчик: BugbearЖанр: Action, Indie, Racing, Simulator, SportsЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7C9108DA42D6F7740EC871993755B3DC0E4E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271491   (148966) от 23.12.2018
 
 WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.12.23 [Ru]
@@ -6,7 +165,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.12.23 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148966.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ ACDSee Ultimate 10.2 Build 878 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148930.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148923.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148908.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ Next Car Game (2013) [En] (alpha 0.167610) Repack Cat-a-Cat
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148901.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148899.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148875.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148870.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Kpoxa Tweaker 1.4 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148679.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148671.jpg" />
 </div>
 
 
@@ -273,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148352.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148211.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ MultiBootHDD 2018 23.12.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147951.jpg" />
 </div>
 
 
@@ -351,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147916.jpg" />
 </div>
 
 
@@ -378,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147909.jpg" />
 </div>
 
 
@@ -407,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147888.jpg" />
 </div>
 
 
@@ -433,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147721.jpg" />
 </div>
 
 
@@ -459,7 +618,7 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147279.jpg" />
 </div>
 
 
@@ -485,7 +644,7 @@ George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, So
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147278.jpg" />
 </div>
 
 
@@ -514,7 +673,7 @@ Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147250.jpg" />
 </div>
 
 
@@ -525,164 +684,6 @@ Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0172522302261D4479D7B812049CFA7502CB6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086922   (147198) от 26.12.2016
-
-Иван (2016) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван живет в маленьком городе, работает водителем на скорой помощи. Его жизнь протекает по привычной колее, без надежд и планов. Однажды на пороге его дома появляется маленькая девочка, которая меняет и жизнь Ивана и его самого.Производство: Россия, Кинокомпания "Север"Жанр: ДрамаРежиссер: Алена ДавыдоваАктеры: Кирилл Полухин, Полина Гухман, Анастасия Мельникова, Людмила Бояринова, Сергей Яценюк, Анна ЕкатерининскаяПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3D2817480243A4C8EFE96F87A3B9816949BF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083532   (147190) от 26.12.2016
-
-Space Hulk: Deathwing (2016) [Ru/En] (1.06) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Hulk: Deathwing — игра в жанре шутер от первого лица (FPS), основанная на классической настольной игре Space Hulk от Games Workshop. Действие игры происходит во вселенной Warhammer 40000. Проект Space Hulk: Deathwing разработан на технологии Unreal Engine 4 и дает вам шанс вступить в яростную схватку с Генокрадами в тесных коридорах Космического скитальца в (   Читать дальше...   )Тип издания: RepackРазработчик: Streum On StudioЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2615036207514DA39621F74AE215F058B72043C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588831   (147034) от 15.12.2012
-
-uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Графический редактор для Nintendo Wii. Совместим с оригинальным контроллером uDraw GAMETABLET - простеньким планшетом с маркером, который можно использовать как для рисования, так и для управления в играх.Жанр: графический редакторЯзык интерфейса: EngФормат: Образ в формате WBFS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434810   (146950) от 26.12.2020
-
-Deworker Pro, Дмитрий Елисеев | Разработка аукциона на SlimPHP и ReactJS (2020) PCRe
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия скринкастов по разработке интерактивного аукциона с API на микрофреймворке Slim PHP и фронтендом на ReactJS по практикам DDD и DevOps.
-
-Рассмотрим всё от установки до деплоя с использованием Docker для каждой стадии процесса. С WebSocket-интерактивом и очередями на RabbitMQ. С проектированием удобной слабосвязанной доменной модели. С интеграцией сторонних сервисов (   Читать дальше...   )Производство: Deworker ProЖанр: ПрограммированиеПродолжительность: 48:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B060F29CD998BBD70C08241DEB26ADCEF9E7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434554   (146897) от 26.12.2020
-
-Доктор Лиза (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один день из жизни Елизаветы Петровны Глинки. История начинается с праздничного события: Елизавета и её муж Глеб готовятся отметить 30-ю годовщину свадьбы. На домашний ужин приглашены близкие друзья, приезжают сыновья. Конечно, Лиза освободила этот день, чтобы провести его с семьёй. По плану у неё только одно дело – заехать на Павелецкий вокзал, ведь там сегодня (   Читать дальше...   )Производство: Россия, Киностудия КИТ, Продюсерский центр ИВАНЖанр: Драма, БиографияРежиссер: Оксана КарасАктеры: Чулпан Хаматова, Анджей Хыра, Константин Хабенский, Андрей Бурковский, Евгений Писарев, Алексей Агранович, Сергей Сосновский, Татьяна Догилева, Елена Коренева, Тимофей ТрибунцевПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61E608CAA56E502243388B070C6400F63D5D4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677571   (146453) от 20.11.2023
-
-Меню с «Титаника» ушло с молотка за $102 000: вот что ели самые богатые пассажиры накануне своей гибели
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экземпляр меню легендарного корабля выставил на торги аукционный дом Henry Aldridge & Son. Как пояснили аукционисты, это меню было составлено 11 апреля, за три дня до того как «Титаник» столкнулся с айсбергом и затонул.Предыдущие несколько лет меню хранилось у историка Лена Стивенсона, который изучал трагедию лайнера. А еще раньше обладателем редкости, вероятно, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

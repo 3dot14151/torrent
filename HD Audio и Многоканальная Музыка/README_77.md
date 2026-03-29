@@ -1,3 +1,235 @@
+###  Публикация: 1348746   (140982) от 29.12.2019
+
+Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happens to the Heart (4:34)
+ 02. Moving On (3:12)
+ 03. The Night of Santiago (4:15)
+ 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679139   (140599) от 24.11.2023
+
+Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140599.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. The Leper Affinity (10:23)
+A2. Bleak (09:17)
+B1. Harvest (06:01)
+B2. The Drapery Falls (10:52)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679247   (140591) от 24.11.2023
+
+Final Strike - Finding Pieces (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archers (3:44)
+02. Finding Pieces (4:17)
+03. Fly (4:27)
+04. Freedom (5:36)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6375584D82F30A947C3F2662B07BE92F425D583C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272661   (140587) от 29.12.2018
+
+VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Балаган LTD & Филипп Киркоров - Наивная
+02. Таня Буланова - Пела Я Тебе
+03. Кай Метов - Снегурочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679234   (140580) от 24.11.2023
+
+Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To Passion (1:24)
+02. While Passion Lasts (3:35)
+03. Blood From A Stone (4:36)
+04. Mr. Know It All (3:30)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BBDD37C8F5D6C4465FCE1D3B9DA71EE93BC5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679170   (140561) от 24.11.2023
+
+Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have the Power [00:02:05]
+02. Xenon Gods [00:04:23]
+03. A Silent Symphony [00:06:23]
+04. Bridge of Death [00:04:48](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AFC78EC9D4878BE2CB496D3B3CB72F57F12C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679249   (140521) от 24.11.2023
+
+Silent Tiger - Twist Of Fate (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows Of Life (3:31)
+02. Twist Of Fate (4:44)
+03. Face The Night (3:34)
+04. Last Of The True Believers (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974AA8874AE4116D56B69061CCB1AF2F77D6A178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679188   (140479) от 24.11.2023
+
+Big Something - Headspace (2023) [FLAC 24/44.1, 24/96|Lossless|WEB-DL|tracks] <Alternative,  Funk,  Jam, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – The Mountain
+02 – Bob and Weave
+03 – Chemistry
+04 – Algorithm(   Читать дальше...   )Жанр: Alternative,  Funk,  Jam, RockПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2138B91BAF94971AE504C7E0C3B8072AA3145AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272890   (140396) от 29.12.2018
 
 Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
@@ -6,7 +238,7 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140396.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Nektar - Remember The Future (1973) 50th Anniversary Edition, 2023, Esoteric [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140314.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Absurd Minds - Gravitas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140245.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139951.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139726.jpg" />
 </div>
 
 
@@ -150,7 +382,7 @@ Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139716.jpg" />
 </div>
 
 
@@ -179,7 +411,7 @@ Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139412.jpg" />
 </div>
 
 
@@ -208,7 +440,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138945.jpg" />
 </div>
 
 
@@ -237,7 +469,7 @@ VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138880.jpg" />
 </div>
 
 
@@ -266,7 +498,7 @@ Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138537.jpg" />
 </div>
 
 
@@ -295,7 +527,7 @@ Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138415.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138112.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138108.jpg" />
 </div>
 
 
@@ -381,7 +613,7 @@ John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138074.jpg" />
 </div>
 
 
@@ -410,7 +642,7 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137949.jpg" />
 </div>
 
 
@@ -439,7 +671,7 @@ Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Speci
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137815.jpg" />
 </div>
 
 
@@ -468,7 +700,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137786.jpg" />
 </div>
 
 
@@ -497,7 +729,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137699.jpg" />
 </div>
 
 
@@ -511,237 +743,6 @@ A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679553   (137695) от 25.11.2023
-
-Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock, Synth-pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jammin' (Bob Marley) (3:18)
-02. Walk On The Wild Side (Lou Reed) (6:20)
-03. On The Road Again (Floyd Jones - Alan Wilson) (5:06)
-04. Piccola Katy (Roby Facchinetti - Valerio Negrini) (3:29)(   Читать дальше...   )Жанр: Space Rock, Synth-pop, Pop RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE35F6F5CCB4DFC90BB0B4C2773A9886A2CCF7E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195922   (137613) от 31.12.2017
-
-Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Party (2:24)
-A2. Khashoggi's Ship (2:48)
-A3. The Miracle (5:02)
-A4. I Want It All (4:41)(   Читать дальше...   )Производство: EMI / Virgin - 00602547202802Жанр: RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68374BE5617866AF4E17D78AC06517CB54C4A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520992   (137592) от 31.12.2021
-
-Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take it Easy
-02. Witchy Woman
-03. Chug All Night
-04. Most Of Us Are Sad(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6717DFD27773E9C9843C0B6F7522EF647B2778CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015340   (137173) от 31.12.2022
-
-Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137173.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Shoo Be Da Dabba Doobee
-A2	Wrong In Love
-A3	Looking At Midnight
-A4	The Need To Be Free(   Читать дальше...   )Жанр: Synth-Pop, DiscoПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824988   (136850) от 16.10.2025
-
-Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Weaponry — новозеландская метал-группа из Вайпу, образованная в Окленде в 2010 году.2018 - Tū
-2021 - Tangaroa
-2025 - Te RāЖанр: Groove/Thrash MetalПродолжительность: 02:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825420   (136750) от 17.10.2025
-
-Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arcturus — норвежская группа, играющая авангардный метал, созданная в 1987 году.1996 - Aspera Hiems Symfonia
-1997 - La Masquerade infernale
-1999 - Disguised Masters
-2002 - The Sham MirrorsЖанр: Avant-garde Progressive MetalПродолжительность: 05:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679568   (135329) от 26.11.2023
-
-Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135329.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Heritage (02:04)
-A2. The Devil's Orchard (06:39)
-A3. I Feel the Dark (06:37)
-B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679554   (135309) от 26.11.2023
-
-Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power, Symphonic-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lambda [00:01:15]
-02. Take a Look From The Lock [00:03:57]
-03. Desire Of The Doomed [00:03:41]
-04. Healing [00:05:03](   Читать дальше...   )Жанр: Heavy, Power, Symphonic-MetalПродолжительность: 00:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DEF111B8ADC848BB4274CD2654D9AF5D4FFFE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

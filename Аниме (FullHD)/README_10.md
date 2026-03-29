@@ -1,3 +1,159 @@
+###  Публикация: 1366912   (920578) от 13.03.2020
+
+Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920578.jpg" />
+</div>
+
+
+###  Подробнее
+
+15-летний Арата Хинохара, жертва школьных хулиганов, в расстроенных чувствах блуждал по городу, мечтая провалиться сквозь землю – и вдруг очутился в сказочном мире Амавакуни, а его тамошний тезка перенесся в современную Японию. Арата «оттуда» от обмена только выиграл – ведь дома его обвинили в самозванстве и убийстве владычицы, теперь же вместо крайне неприятных (   Читать дальше...   )Производство: Satelight / サテライト, JM AnimationЖанр: приключения, фэнтезиРежиссер: Ясуда КэндзиПеревод: YakuSub Studio (Aero, Helge, Nika_Elrik)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA8067F826090A30D5E4A639C98755275A664BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366916   (920570) от 13.03.2020
+
+Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир [2017, TV, 24 из 24] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тогрул Махмуд - юный паша, преданно служащий своей стране, над которой начинают сгущаться тучи войны из-за угрозы нападения со стороны агрессивно настроенной Империи. Да и внутри государства не все гладко, население разделилось на пацифистов и тех, кто жаждет войны. Махмуд отправляется в поход, чтобы сохранить мир любой ценой. Всё глубже и глубже погружаясь в политические (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Фурухаси КадзухироПеревод: AniPlay (lanalynx)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5CF14B3951B96D8D85972ECCC612F9D1E95313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490074   (920525) от 19.08.2021
+
+Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покинув Землю, люди построили межзвездную цивилизацию, найдя потерянных родичей – таких же детей Протокультуры. Конфликты и войны остались в прошлом – а проблемы не кончаются. Неизвестная болезнь превращает людей и Зентради в кровожадных маньяков, при этом сохраняющих боевые навыки. Но в мире «Макросса» там, где медицина бессильна, в дело вступает песня! Век гениальных (   Читать дальше...   )Производство: Satelight / サテライトЖанр: фантастика, меха, музыкальныйРежиссер: Кавамори СёдзиПеревод: ZeroЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 1 эп. на 27 мин. + 25 эп. по 24 мин. + 9 спешиалов по 5-9 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3196C91259C45A1BFBDEB5BCBEE3BBC65403FC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490071   (920523) от 19.08.2021
+
+Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: Фильм [1995, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк одноименного OVA-сериала. При создании фильма уже отснятый материал редактировался - некоторые сцены вырезали, заменяя новыми.Производство: Triangle Staff / トライアングルスタッフЖанр: приключения, фантастика, меха, драмаРежиссер: Ватанабэ СинъитироПеревод: КапитанЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1EB982DCDFB3FD9778998EB0104002DD102EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011469   (918773) от 20.08.2021
+
+Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражки о приключениях школьницы Усаги и её подруг в городе Урава префектуры Сайтама.Производство: Студия Hangar-18Жанр: повседневностьРежиссер: Исибаси МицуюкиЯзык субтитров: Русский (отключаемый)Продолжительность: 13 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EC5DBAC1D08835023AEF6BB3A8F7EC26C4871A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876524   (916614) от 22.02.2016
+
+Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как здорово, когда можно реализовать детские мечты! Пять девчонок из клуба анимации школы Каминояма не мыслили иной судьбы, кроме аниме-индустрии – и у них получилось! Сидзука стала сэйю, Миса – оператором компьютерной графики, студентка Мидори – сценаристом-фрилансером, а еще двое пробились на знаменитую студию Мусасино. Эма, как талантливая рисовальщица, получила (   Читать дальше...   )Жанр: комедияРежиссер: Мидзусима Цутому / Mizushima Tsutomu / 水島努Язык озвучки: ЯпонскийПродолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0C346ABFFB0D15BAC65A8461B6E3FCD675CBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367527   (915686) от 16.03.2020
 
 Mugen no Ryvius | Infinite Ryvius | Бесконечное путешествие корабля Ривиас [1999, TV, 26 из 26] BDRip 1080p raw
@@ -6,7 +162,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915686.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915504.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915161.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913907.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913741.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Dr. Stone: Stone Wars | Доктор Стоун [ТВ-2] [2021, TV, 11 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913727.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913726.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912983.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ Altered Carbon: Resleeved | Видоизмененный углерод [2020, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910150.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907520.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906730.jpg" />
 </div>
 
 
@@ -300,7 +456,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905577.jpg" />
 </div>
 
 
@@ -326,7 +482,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905557.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905375.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905246.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903817.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903660.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903377.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903373.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901922.jpg" />
 </div>
 
 
@@ -520,162 +676,6 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:183E270B6CA288CA9C14A086BFA76F059A804436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685111   (901204) от 25.02.2014
-
-Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы на подработке! [2013, TV, 13 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901204.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной далекой-далекой галактике местный Князь Тьмы, он же Сатана, потерпел сокрушительное поражение. Когда все было кончено, и лучшие бойцы человечества, возглавляемые героем Эмилией, ворвались в его замок, темный повелитель, собрав остатки сил, открыл магический портал, куда и прыгнул вместе с генералом Алсиэлем. Астральная буря забросила двух могучих демонов (   Читать дальше...   )Жанр: комедия, повседневность, романтика, пародияРежиссер: Хосода НаотоСубтитры: русские отПродолжительность: 13 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F845A989D7C6D5173A34D863AFA4449821501A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760082   (900772) от 09.02.2015
-
-Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёму – древние демоны и обитатели духовного мира. Кое-кто из «высших» вообще неотличим от человека, большинству же до нас нет дела. Встречаются и агрессивные особи, с которыми издавна разбираются защитники человечества. Охотники живут кланами, причем у каждого рода свои способности и боевые стили, собственные власть и влияние. При этом Охотники, Чистильщики и Оценщики, все, кто действует за гранью реальности, стараются скрыть свое существование от обычных людей, для которых отзвуки магических битв – что далекая (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Исидатэ ТайтиПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5B2697EA981FB50017534B6AE6190E27FC3326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968423   (898802) от 04.02.2017
-
-Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 1080p hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир RPG с мечами и волшебством, где авантюристы решили бросить вызов праву короля демона управлять. У всех красивая грудь, огромная грудь и броня бикини!Производство: FeelЖанр: приключения, эттиРежиссер: Кудзуя НаоюкиЯзык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 13 серий по 5 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AD7C4A5F2C00941F7D9DE4F52C6F0302A770A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992743   (898752) от 03.03.2016
-
-Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка Альп [1974, TV, 52] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка Хайди после смерти родителей попадает на воспитание к своей тёте Дет, которая заботилась о ней до пятилетнего возраста. Но сейчас тётя Дет нашла работу во Франкфурте и девочка начинает мешать ей обустраивать собственную жизнь. Тётя отвозит Хайди жить на Альпийские горы к дедушке, внешне суровому и сварливому, но в душе неплохому старику. Своей добротой, непосредственностью (   Читать дальше...   )Производство: Zuiyo EizoЖанр: Приключения, Повседневность, ДрамаРежиссер: Такахата ИсаоПеревод: trisem & antoxapСубтитры: ASSФормат: MKVПродолжительность: 52 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFEEFDD84419539ED99692E6B568D183F4719E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993072   (896872) от 04.03.2016
-
-To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: Тьма 2 [ТВ-4] [2015, TV, 14] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось бы, повышенное женское внимание будет приятно любому здоровому подростку, который, разумеется, питает хоть какой-то интерес к противоположному полу. Увы, не зря говорят, мол, «хорошенького понемножку» – некогда совсем обычный школьник Рито Юуки на собственном опыте убедился, что девушки приносят с собой проблемы. И что знакомство с инопланетянкой Лалой, (   Читать дальше...   )Производство: XebecЖанр: Комедия, Эччи, Фантастика, ГаремРежиссер: Оцуки АцусиПеревод: Gerale & Komugi-chanСубтитры: ASSФормат: MKVПродолжительность: 14 серий по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FFBF8706BBEDA6E78F11BFB91B5DDE64708542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370158   (896373) от 27.03.2020
-
-Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Этот замечательный мир! Алая Легенда [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадзума Сато — банальный хикикомори, который жить не может без игр, аниме и манги. Однажды он таки выползает на улицу — и попадает в ДТП с летальным исходом. Однако вместо того чтобы скопытиться, герой видит прекрасную деву, которая называет себя богиней и предлагает ему отправиться в другой мир, но при этом с собой он может взять только одну абсолютно любую вещь. (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Канасаки ТакаомиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D0E256D02B6602722AE03FB7E1CCBED34EE793
 ```
 
 https://mybot314.ru/tekegram_catalog/

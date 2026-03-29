@@ -1,3 +1,110 @@
+###  Публикация: 1600510   (156706) от 27.12.2022
+
+Бременские музыканты (1969-1973) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная фантазия, любимая не одним поколением зрителей, о необыкновенных, очень опасных и веселых приключениях бременских музыкантов: Трубадура, кота, собаки, петуха и осла. Музыканты путешествуют по Германии времен братьев Гримм и поют вполне современные песни. Время от времени совершают подвиги. Все было хорошо, но во время одного циркового представления приглянулась (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, мюзикл, фэнтезиРежиссер: Инесса Ковалевская, Василий ЛивановАктеры: Эльмира Жерздева, Олег Анофриев, Анатолий Горохов, Геннадий Гладков, Муслим МагомаевСубтитры: ОтсутствуютПродолжительность: 00:20:32 + 00:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C82193FDDC5EE6D8891EC51F26C4042A421210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 44702   (153704) от 22.12.2020
+
+Сборник: все серии про попугая Кешу (1988-2007) DVDRip
+
+>>След.
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние две части мультфильма про попугая Кешу.Жанр: Мультфильм, АнимационныйРежиссер: В.Караваев, А.ДавыдовФормат: AVIПродолжительность: 26МИН
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E450344E053CF4370E9C3B80CAB88A9D5483021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588942   (141427) от 17.12.2012
+
+Бабушкины сказки (1953-1975) 2хDVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рисованная анимация, Детский, СказкаРежиссер: Позднеев, Давыдов и дрПерсонажи: Лиса, медведь, волк и дрПродолжительность: 04:55:20 + 04:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3912C607F5262FBE907E18ED1D177F747737C752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970180   (140729) от 30.12.2015
+
+Разноцветный Новый год. Сборник мультфильмов (1946-1952) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140729.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли мультфильмы:
+1. Когда зажигаются елки
+2. Новогодняя ночь
+3. Сармико(   Читать дальше...   )Производство: сссрЖанр: Рисованная анимация, Детский, Сказка, КороткометражныйРежиссер: Мстислав Пащенко, Ольга Ходатаева, Петр Носов, Евгений РайковскийПерсонажи: Дед Мороз и другиеПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A681FE340283D01B14BD90270B4462A1CFD98C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351120   (139651) от 29.12.2021
 
 Три богатыря: Полная коллекция (2004-2018) BDRip [H.264/1080p]
@@ -6,7 +113,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139651.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137023.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130748.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130705.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130678.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130637.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130600.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125916.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121733.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119881.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115590.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106614.jpg" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104426.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102820.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102727.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102726.jpg" />
 </div>
 
 
@@ -431,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102715.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101611.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101463.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101176.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100628.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100622.jpg" />
 </div>
 
 
@@ -572,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9416A20591C5767E1BE2B42BA0F476F4C8BE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821674   (91299) от 03.10.2025
-
-Сборник мультфильмов: В гостях у сказки. Выпуск  3 (1971-1990) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: В зоопарке ремонт; Пугало; Когда растаял снег; Крошка Енот; Последний заяц; Шиворот-навыворот; Самолетик; Слоно-дило-сенок; Соломенный бычок.Производство: СССР / ТО Экран, СоюзтелефильмЖанр: Мультфильм, короткометражка, детский, русская сказка, экранизацияРежиссер: Натан Лернер, Розалия Зельма, Анатолий Солин, Олег Чуркин, Борис Бутаков, Владимир Самсонов, Борис Ардов, Анатолий РезниковАктеры: Клара Румянова, Мария Виноградова, Зоя Зелинская, Владимир Басов, Светлана Харлап, Станислав Чекан, Зинаида Нарышкина, Борис Ардов, Алексей Баталов, Екатерина Райкина и другиеСубтитры: отсутствуютПродолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6977EEC6EFD2F273BEE2DA40446D19999B23B964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485954   (89873) от 21.04.2012
-
-Сказочки для малявочки. Сборник мультфильмов (1971-1982) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Мультфильмы рисованные и кукольныеРежиссер: Марианна Новогрудская, Анатолий Солин, Анатолий Резников, Юрий Елисеев, Фаина Епифанова, Лидия СуриковаПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B8D4145801CCE107EEC51FA98DDB6C529D98BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484075   (88932) от 16.04.2012
-
-Легенды и мифы древней Греции (1969-1995) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник мультфильмов, производства киностудии «Союзмультфильм», снятые по мотивам легенд и мифов Древней Греции.Жанр: Детский, Для взрослых, Рисованная анимацияРежиссер: Анатолий ПетровПродолжительность: 00:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CFF68DE5B49818B62D62AD615986B3204CC226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481605   (87829) от 11.04.2012
-
-Сказки Бажова (1973-1982) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник мультфильмов по сказкам Павла Петровича Бажова о чудо-мастерах на Урале.Жанр: Детский, Кукольный, Рисованная анимацияРежиссер: Валерий ФоминПродолжительность: 00:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEAA1122C14FC60BF7F84EE0DE28D2A6E333543
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1599799   (159544) от 24.12.2022
+
+КВН-2022. Высшая лига. Вторая 1/2 финала (24.12.2022) HDTV [H.264/1080i]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - знают, без сомнения, все. В КВН играют во всём мире, это прежде всего молодёжная игра. Постоянные конкурсные задания - "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри - люди, у которых с чувством юмора всё (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4698A4EECDFEF08841BA8DB964CEB7C0CA7CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086811   (149386) от 25.12.2016
+
+КВН-2016. Высшая лига. Финал (2016.12.24) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B51303A306DB93B929B502C3003181BB68DA9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086626   (148863) от 25.12.2016
+
+КВН-2016. Высшая лига (2016.12.24) HDTVRip (Весь сезон!!!)
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 01:50:00 игра
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBB26C7BAC2928F8F4BADA26EB87B33A669C83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990054   (147153) от 26.12.2016
+
+КВН-2016. Высшая лига (2016) HDTVRip [H.264/720p] [Игра: 1-15 из 15]
+
+>>След.
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147153.jpg" />
+</div>
+
+
+###  Подробнее
+
+КВН — телевизионные юмористические игры, в которых команды различных коллективов соревнуются в юмористических ответах на заданные вопросы, импровизациях на заданные темы, разыгрывании заранее заготовленных сцен и т. д.Телекомпания: Первый каналЖанр: Тв-шоу, юморПродолжительность: Каждая игра х 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E5886B2C189FF521752A18325331C06ABA645E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435282   (145377) от 27.12.2020
+
+КВН-2020. «Кубок мэра Москвы» (27.12.2020) HDTV [H.264/1080i-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145377.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кубке принимали участие:
+Блок «Кубок Тавриды»: «Юра» (Университет «Синергия», Москва); «Северяне» (Нягань); Сборная Магаданцев (Магадан); «Зелёный чемодан» (Кемерово).
+Блок Премьер-лиги: «Имени меня» (Королев); «Улица Плеханова» (РЭУ им. Плеханова, Москва); Сборная бывших (Тула); Сборная молодых учёных «Росатома» (Москва).
+Блок Высшей лиги: «Полуостров» (КФУ, Симферополь); (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217C8C40BCD5873265379C778A5D4406CA3DF037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970746   (137779) от 31.12.2015
+
+КВН-2015. Высшая лига. Финал  (2015.12.30) WEB-DL [H.264/720p-LQ]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 02:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB249343A9398913A307CE74A0936A4104D94969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349235   (137280) от 31.12.2019
 
 КВН-2019. Высшая лига. Финал (2019.12.30) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +165,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137280.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131737.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128776.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128718.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127737.jpg" />
 </div>
 
 
@@ -140,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127724.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127486.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127423.jpg" />
 </div>
 
 
@@ -222,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126554.jpg" />
 </div>
 
 
@@ -248,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126352.jpg" />
 </div>
 
 
@@ -276,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126284.jpg" />
 </div>
 
 
@@ -304,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124968.jpg" />
 </div>
 
 
@@ -330,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124964.jpg" />
 </div>
 
 
@@ -358,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124895.jpg" />
 </div>
 
 
@@ -386,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114760.jpg" />
 </div>
 
 
@@ -412,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114527.jpg" />
 </div>
 
 
@@ -438,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84169.jpg" />
 </div>
 
 
@@ -465,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66094.jpg" />
 </div>
 
 
@@ -493,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60504.jpg" />
 </div>
 
 
@@ -519,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60486.jpg" />
 </div>
 
 
@@ -530,168 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3474991906FF2A29E8F5EFF217802D81E2286149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717337   (59146) от 20.04.2024
-
-КВН-2024. Высшая лига. 1/8 финала, игра 3 (2024.04.20) SATRip
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769268A016EB37E07B4D60FB0A266C2B3FAFCF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717656   (59022) от 21.04.2024
-
-КВН-2024. Высшая лига. 1/8 финала, игра третья (2024) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья игра 1/8 финала, сезона 2024 года Высшей лиги КВН.
-Играют команды: «ВВ — Вопрос времени» (Омск); «Оборович» (Университет «Синергия», Москва); «Мастер Муси» (РЭУ имени Плеханова, Москва); «Джентльмены удачи» (Курганская область); «Флэш-Рояль» (Ростов-на-Дону).
-Конкурсы:  «Приветствие», «Импровизация», «Музыкальное домашнее задание».Телекомпания: "Первый канал"Жанр: ЮморСубтитры: РусскиеПродолжительность: 01:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC13BE91D764213D9FF65536E48C428846F9777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722476   (56835) от 12.05.2024
-
-КВН-2024. Высшая лига. 1/8 финала, игра 4 (2024.05.11) SATRip
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070937747F51F422D1E9B2A09F96A8820B651445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722571   (56802) от 12.05.2024
-
-КВН-2024. Высшая лига. 1/8 финала, игра четвертая (2024) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертая игра 1/8 финала, сезона 2024 года Высшей лиги КВН.
-Играют команды: «Без грани» (Чита), «Евразия» (Челябинск), «Иван Иванов, РЭУ им. Плеханова» (Москва), «Ровеньки» (Орёл), «Секция» (Москва)
-Конкурсы:  «Приветствие», «Импровизация», «Музыкальное домашнее задание».Производство: Россия | "АМиК", "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DF2E6C9AE99CB1043FA63DA41862A81309AC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725695   (55469) от 25.05.2024
-
-КВН-2024. Высшая лига. 1/4 финала, игра 1 (2024.05.25) SATRip
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D311ECB40E8ADB9275093FE5054FFE76EECA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725806   (55361) от 26.05.2024
-
-КВН-2024. Высшая лига. 1/4 финала, игра первая (2024) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая игра 1/4 финала, сезона 2024 года Высшей лиги КВН.
-Играют команды: «Юрикен» (Владикавказ), «Евразия» (Челябинск), «Каракуз» (Альметьевск), «Оборович» (Москва)
-Конкурсы:  «Приветствие», «Разминка», «СТЭМ», «Музыкальный номер».Производство: Россия | "АМиК", "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CDAAE787B5D4121DE3ACA0800D26B9C51765AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

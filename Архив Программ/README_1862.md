@@ -1,3 +1,294 @@
+###  Публикация: 1430455   (170364) от 10.12.2020
+
+Topaz Sharpen AI 2.2.2 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB944E919587B262D664EEC37B952BADC63BCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344329   (170349) от 10.12.2019
+
+Adobe Flash Player 32.0.0.303 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DA5DD8B077D95140E7223A6C92F3B6C20AA5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430666   (170343) от 10.12.2020
+
+SanDisk SSD Dashboard 3.2.2.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170343.jpg" />
+</div>
+
+
+###  Подробнее
+
+SanDisk SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
+Программа SanDisk SSD Dashboard отображает подробную (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC67EB4D598573F51DF9D30B9F2D7F2862F755C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344471   (170340) от 10.12.2019
+
+CPU-Z 1.91.0 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170340.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D510AF188420CD506F876183690257962B1C951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430494   (170336) от 10.12.2020
+
+Avast Free Antivirus 20.10.2442 (build 20.10.5824.618) Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avast Free Antivirus - ультралегкая и современная защита с минимальной нагрузкой на системные ресурсы со всеми необходимыми функциями для надежной защиты компьютера, домашней сети и данных. Поведенческий анализ, облачная технология CyberCapture и проверка Wi-Fi. Avast Free Antivirus сканирует ваш ПК на наличие проблем безопасности и производительности и помогает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65534B082948C30A294D9DC3CA35D28B5C5C61B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672245   (170326) от 27.10.2023
+
+Photo Supreme 2023.2.0.5078 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE076D48E3BC1EE655CC1E2BC5C946AAF5BA273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596392   (170320) от 09.12.2022
+
+Macrorit Partition Expert 7.1.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru] 
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EF40CD49B0E11FEBBD2B5FB080ACD4F37F65E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672252   (170307) от 27.10.2023
+
+Radiant Photo 1.1.2.324 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFE9622365FA516738809647943E1EF0D0871F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596353   (170302) от 09.12.2022
+
+Wireshark 4.0.2 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wireshark - бесплатный сниффер, предназначенный для анализа трафика компьютерных сетей (Ethernet, FDDI, PPP, Token-Ring и других) в режиме реального времени, используя широковещательный режим сетевой карты.
+Программа поддерживает различные сетевые протоколы, как например DNS, FDDI, ftp, HTTP, ICQ, IPV6, IPX, IRC, MAPI, MOUNT, NETBIOS, NFS, NNTP, POP, PPP, TCP, TELNET, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AA1EE8D4457E600FE447305DD06511B589BA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596342   (170300) от 09.12.2022
+
+Emsisoft Emergency Kit 2022.12.0.11730 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.
+Состав Emsisoft Emergency Kit:
+- Emergency Kit Scanner (сканер)
+- Commandline Scanner (сканер, работающий из командной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DD45997AE4A3AB0F0013986B2BAB27A4A08C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344409   (170296) от 10.12.2019
+
+Auslogics Windows Slimmer 2.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9455D724D5733FB89B756DCEA69887C1405F6595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596265   (170286) от 09.12.2022
 
 LibreOffice 7.4.3.2 Stable Portable by PortableApps [Multi/Ru]
@@ -6,7 +297,7 @@ LibreOffice 7.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170286.jpg" />
 </div>
 
 
@@ -32,7 +323,7 @@ Extreme Picture Finder 3.65.10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170285.jpg" />
 </div>
 
 
@@ -58,7 +349,7 @@ Avast Premium Security 20.10.2442 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170282.jpg" />
 </div>
 
 
@@ -84,7 +375,7 @@ QuickTextPaste 8.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170272.jpg" />
 </div>
 
 
@@ -110,7 +401,7 @@ Brave Browser 1.46.140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170268.jpg" />
 </div>
 
 
@@ -136,7 +427,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170263.jpg" />
 </div>
 
 
@@ -163,7 +454,7 @@ Adobe Flash Player 32.0.0.303 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170250.jpg" />
 </div>
 
 
@@ -189,7 +480,7 @@ TechSmith Camtasia 21.0.14 (Build 34324) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170249.jpg" />
 </div>
 
 
@@ -215,7 +506,7 @@ Adobe Bridge 2020 10.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170233.jpg" />
 </div>
 
 
@@ -241,7 +532,7 @@ Firefox Browser 95.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170230.jpg" />
 </div>
 
 
@@ -267,7 +558,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.107 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170228.jpg" />
 </div>
 
 
@@ -293,7 +584,7 @@ IrfanView 4.62 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170214.jpg" />
 </div>
 
 
@@ -319,7 +610,7 @@ CCleaner 5.75.8238 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170199.jpg" />
 </div>
 
 
@@ -345,7 +636,7 @@ Nvidia DriverPack v.460.79 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170195.jpg" />
 </div>
 
 
@@ -372,7 +663,7 @@ Auslogics BoostSpeed 13.0.0.6 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170194.jpg" />
 </div>
 
 
@@ -383,296 +674,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39DC2CBCA58035C5F503B3950DDD250DB03F2FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596283   (170187) от 09.12.2022
-
-Foxit PDF Editor Pro 12.1.0.15250 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
-Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
-Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC43F18450E2F694B0F5BB3A519C5D67AD24918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430559   (170181) от 10.12.2020
-
-Auslogics BoostSpeed 12.0.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD819FCFA8B4E37E85242644A7F6923DC503B543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672043   (170174) от 27.10.2023
-
-Auslogics File Recovery 11.0.0.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics File Recovery — простая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за атак вирусов или системных сбоев. С помощью данной программы можно вытащить файлы с неисправного флеш носителя.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79374876B82A7778C64714F2A46A7C75894D75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515346   (170172) от 06.12.2021
-
-MAGIX Video Pro X13 19.0.1.129 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Pro X – это прежде всего профессиональное создание видеороликов. Благодаря понятному интерфейсу и интуитивно понятной функциональности начать работу с Video Pro X гораздо проще, чем с другими профессиональными программами для редактирования. При этом к вашим услугам самое современное редактирование видео: благодаря новому движку INFUSION Engine 3 воспроизведение (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский, нидерландский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D6B442D6621DE50A83F7DE4B475E23960A0EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672243   (170168) от 27.10.2023
-
-Auslogics BoostSpeed 13.0.0.6 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71775C9A0BE2AAA92CA2DAE4AA47B6DC6DF37346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596384   (170167) от 09.12.2022
-
-Reg Organizer 9.01 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8AF29455259291BEB1F905EA4B38B9EF4553A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344387   (170165) от 10.12.2019
-
-Adobe Acrobat Reader DC 2019.021.20058 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader DC — совершенно новое приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901959576EFEA6FDD4A5F6229956A8E54EAB469A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515102   (170152) от 06.12.2021
-
-SamDrivers 21.11 LAN [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561449080D0885A816488AC138DE30CC06BD0D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515295   (170144) от 06.12.2021
-
-Firefox Browser ESR 91.4.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4177D111EE6D86CD840A37B7C376056751EB88DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596387   (170135) от 09.12.2022
-
-O&O Defrag Professional 26.1 Build 7709 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170135.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2045724276C4E3CFAB730CBAD1346BB1F6F07B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344308   (170134) от 10.12.2019
-
-Auslogics BoostSpeed 11.2.0.4 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8147D28801E06CF48BF2E932CDA0D48BC47C76
 ```
 
 https://mybot314.ru/tekegram_catalog/

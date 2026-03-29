@@ -1,3 +1,170 @@
+###  Публикация: 524528   (610635) от 19.07.2012
+
+[PS3] Hard Corps: Uprising [PAL/Eng] (2011)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Corps: Uprising - это приквел игры Contra: Hard Corps, и первая игра серии Contra без соответствующего слова в названии. Игроку отводится роль полковника Багамута, который в рядах Сопротивления борется с Империей Содружества.Тип издания: лицензияЖанр: Run and gunЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E6B3B49EF161FD7B8EF4CD0751BB0AA0A918AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523616   (610631) от 19.07.2012
+
+Дополнительные языки для Adobe Photoshop CS6 (x86-x64) [EN, DE, FR, ES, PT, IT, RU, UK]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_610631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не секрет, что программа Adobe Photoshop CS6 поддерживает смену языка интерфейса. Только вот не всегда в установочном пакете представлены именно те языки интерфейса, которые нужны именно Вам! Но даже, если они и есть в дистрибутиве, то для того, чтобы установить два языка интерфейса, которые впоследствии можно было бы переключать (например, Вы предпочитаете работать с русской версией, но вам нужно разобраться с обучающим курсом, написанным для английской), приходится дважды устанавливать программу наложением одной локализации на другую. Это крайне неудобно.
+
+Вашему вниманию предлагается компактный и удобный инсталлер, с помощью которого легко можно установить дополнительные языки интерфейса для Adobe Photoshop CS6.
+
+Языковые пакеты, которые можно установить с помощью данного инсталлера:
+
+- Английский (en_US)
+- Немецкий (de_DE)
+- Французский (fr_FR)
+- Испанский (es_ES)(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912530   (610548) от 26.06.2015
+
+Мединский поддержал введение налога на прокат зарубежных фильмов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_610548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министр культуры Владимир Мединский высказался за введение налога на прокат зарубежных фильмов. По его мнению, такая мера поможет привлечь дополнительные средства для поддержки отечественного кинематографаМинистр культуры России Владимир Мединский поддержал идею введения налога на прокат зарубежных фильмов. По мнению чиновника, такая мера положительно сказаться на (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023109   (610215) от 15.06.2018
+
+Ворошиловский стрелок (1999) WEB-DLRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пенсионер, железнодорожник в отставке, скромно живёт со своей внучкой Катей. В соседнем доме постоянно собираются трое молодых бездельников, чувствующие себя безнаказанными хозяевами жизни. Однажды они хитростью заманили Катю к себе, где изнасиловали.
+Поначалу насильников арестовывают, однако отец одного из них — большой милицейский начальник — освобождает их. Не (   Читать дальше...   )Производство: Россия / НТВ-ПрофитЖанр: Криминал, ДрамаРежиссер: Станислав ГоворухинАктеры: Михаил Ульянов, Анна Синякина, Александр Пороховщиков, Сергей Гармаш, Владислав Галкин, Алексей Макаров, Марат Башаров, Илья Древнев, Ирина Розанова, Георгий Мартиросян, Владимир СемагоЯзык субтитров: Польский, английскийПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693CDE8B4343E52B641FFB2FF8582B2E1F9FB91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230891   (610204) от 15.06.2018
+
+State of Decay 2 (2018) [Ru/Multi] (1.3160.34.2/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда восстали мертвые, цивилизации пришел конец. Даже армия не смогла остановить толпы зомби. Теперь вам предстоит собрать выживших и построить общество в постапокалиптическом мире. Здесь вы решаете, как именно будете выживать, и каждый ваш поступок влияет на это решение.Тип издания: RepackРазработчик: Undead LabsЖанр: Action, Survival, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B2E403C789E035ABA1BED3D4C1DA3DEF1B682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231025   (610189) от 15.06.2018
+
+CrossOver Linux 17.5.0 [x86-x64] (deb, rpm, bin)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коммерческая версия программы wine. Позволяет запускать приложения и игры Windows под Linux и Mac OS X.
+В отличие от обычной версии wine имеет более удобный интерфейс, протестирован с кучей приложений и игр. Легко интегрируется в систему, позволяет изолировать устанавливаемые приложения друг от друга. Codeweavers вносит много исправлений в код wine, но не очень быстро (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A038B6B44F5A304E28923260CC21E68EE835F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 885298   (610181) от 26.06.2015
 
 APUS Launcher 1.8.9 [Ru]
@@ -6,7 +173,7 @@ APUS Launcher 1.8.9 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610181.jpg" />
+  <img src="Z:/picture/008/save_picture_610181.jpg" />
 </div>
 
 
@@ -34,7 +201,7 @@ CCleaner 5.07.5261 Free | Professional | Business | Technician Edition RePack (&
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610173.jpg" />
+  <img src="Z:/picture/008/save_picture_610173.jpg" />
 </div>
 
 
@@ -60,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610169.jpg" />
+  <img src="Z:/picture/008/save_picture_610169.jpg" />
 </div>
 
 
@@ -86,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610165.jpg" />
+  <img src="Z:/picture/008/save_picture_610165.jpg" />
 </div>
 
 
@@ -112,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610162.jpg" />
+  <img src="Z:/picture/008/save_picture_610162.jpg" />
 </div>
 
 
@@ -138,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610003.jpg" />
+  <img src="Z:/picture/008/save_picture_610003.jpg" />
 </div>
 
 
@@ -166,7 +333,7 @@ Alpha Polaris / Alpha Polaris: Ужас во льдах [Ru] (L) 2011 | R.G. Ori
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610001.jpg" />
+  <img src="Z:/picture/008/save_picture_610001.jpg" />
 </div>
 
 
@@ -192,7 +359,7 @@ CorelDRAW Graphics Suite 2019 21.1.0.628 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609793.jpg" />
+  <img src="Z:/picture/008/save_picture_609793.jpg" />
 </div>
 
 
@@ -218,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609763.jpg" />
+  <img src="Z:/picture/005/save_picture_609763.jpg" />
 </div>
 
 
@@ -244,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609553.jpg" />
+  <img src="Z:/picture/008/save_picture_609553.jpg" />
 </div>
 
 
@@ -270,7 +437,7 @@ Avira Phantom VPN Pro 2.8.4.30090 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608972.jpg" />
+  <img src="Z:/picture/008/save_picture_608972.jpg" />
 </div>
 
 
@@ -296,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_608858.jpg" />
+  <img src="Z:/picture/005/save_picture_608858.jpg" />
 </div>
 
 
@@ -322,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_608577.jpg" />
+  <img src="Z:/picture/005/save_picture_608577.jpg" />
 </div>
 
 
@@ -348,7 +515,7 @@ Linux Deepin 15.6 [x64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608311.jpg" />
+  <img src="Z:/picture/008/save_picture_608311.jpg" />
 </div>
 
 
@@ -374,7 +541,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.06.18 [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608299.jpg" />
+  <img src="Z:/picture/008/save_picture_608299.jpg" />
 </div>
 
 
@@ -401,7 +568,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 15.06.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608295.jpg" />
+  <img src="Z:/picture/008/save_picture_608295.jpg" />
 </div>
 
 
@@ -429,7 +596,7 @@ Adobe Muse CC 2015 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608179.jpg" />
+  <img src="Z:/picture/008/save_picture_608179.jpg" />
 </div>
 
 
@@ -455,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608175.jpg" />
+  <img src="Z:/picture/008/save_picture_608175.jpg" />
 </div>
 
 
@@ -481,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_608057.jpg" />
+  <img src="Z:/picture/005/save_picture_608057.jpg" />
 </div>
 
 
@@ -507,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607890.jpg" />
+  <img src="Z:/picture/008/save_picture_607890.jpg" />
 </div>
 
 
@@ -518,165 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BAD1ADE26FC5675D8E1DC99E0F720FA6C063DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098178   (607887) от 19.04.2019
-
-Heroes of Might and Magic V: Bundle (2006) [Ru/Multi] (2.1v2/3.1v2) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте свидетелем поразительной эволюции направляющей жанр стратегической игры, ставшей феноменом нового поколения игр, объединяющей классическое глубокое фэнтези с графикой и игровым процессом нового поколения. В известной вселенной Might & Magic толпы демонов распространяют хаос по всем землям в безжалостных нападениях. На кону судьба мира и Герои из различных (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C0392EAA1524ACB356429C2BCB4A7F973AF6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034972   (607776) от 27.07.2016
-
-Карты iGO HERE 2016.Q1 Europe [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карты и контент для iGO 8.3-9 (fbl, fda, fpa, fsp, ftr, fjw, hnr, poi, 3dl, 3dc). Очередное обновление карт от HERE (NAVTEQ) по конец апреля 2016 года. Самой программы навигации в раздаче нет. В раздаче только карты, слои карт, пои, ландшафты и т.п.. Карт отдельных городов / областей/ островов НЕ СУЩЕСТВУЕТ. Компания-разработчик выпускает ТОЛЬКО карты стран.Релиз состоялся: 1.07.2016Поддерживаемая ОС: Android, WinCE, WM, iOSЯзык интерфейса: Русский / МультиФормат: fbl, fda, fpa, fsp, ftr, fjw, hnr, poi, 3dl, 3dc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78876D0355812AD348FE1D0086C82844B34F8991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038206   (607772) от 27.07.2016
-
-Kaspersky Anti-Virus 2017 17.0.0.611 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антивирус Касперского (Kaspersky Anti-Virus) обеспечивает базовую защиту в режиме реального времени от всех типов вредоносных программ. Как основа обороны вашего ПК, антивирус защищает вас от вирусов, шпионских программ, троянов, интернет-червей и многих других угроз. Это решение легко в использовании, а технологии безопасности, отмеченные многочисленными наградами (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1C74F6B16C3373DCF8B43112E5940C8251E93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805290   (607630) от 16.07.2014
-
-InSSIDer 4.0.0.20 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607630.jpg" />
-</div>
-
-
-###  Подробнее
-
-InSSIDer - бесплатная утилита, которая сканирует доступные Wi-Fi сети и предоставляет массу полезной информации о них, как например мощность сигнала, MAC-адрес роутера, его производителя, использующийся канал, идентификатор SSID или публичное название сети, тип безопасности, скорость сети и многое другое. Кроме того мощность сигнала можно отслеживать с помощью наглядных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E626E544C82BFCB31373430A0A2E03177583BE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546155   (607315) от 23.04.2022
-
-У ютубера отобрали лицензию пилота за видео крушения самолета
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607315.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода ролика на YouTube «I Crashed My Plane» от видеоблогера Тревора Джейкоба, Федеральное авиационное управление США (FAA) решило лишить его лицензии и наложить штраф.В видео, которое набрало с декабря 2021 года почти 2 млн просмотров, Джейкоб выпрыгивает с парашютом из учебного самолета.В письме регулятор написал, что блогер «продемонстрировал отсутствие (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545982   (607302) от 23.04.2022
-
-Outline Client VPN 1.7.1 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите доступ к многочисленным бесплатным VPN серверами из 20 стран мира.
-Outline VPN – бесплатный VPN с неограниченным трафиком.
-VPN-проект, предлагающий как серверное, так и клиентское решение.
-В качестве VPN-протокола используется протокол с открытым исходным кодом – Shadowsocks, который обеспечивает доступ к открытому интернету, в то время как традиционные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D334DF672B0B560A1F47565E3C0D1BC81913A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

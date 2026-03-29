@@ -1,3 +1,139 @@
+###  Публикация: 1655491   (204270) от 26.08.2023
+
+Image Resizer – Resize Photos 2.4 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Resizer – Resize Photos  полезный и эффективный инструмент для изменения размера одного или нескольких изображений без ущерба для разрешения и качества изображения. Используя этот инструмент, вы можете выбрать фотографии из библиотеки фотографий или из любой папки на вашем компьютере.
+Получите это приложение, Image Resizer и будьте уверены, что у вас есть лучший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2022Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E337ACE72DA6A62F39B3FCC5FB405B1D71115D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655440   (204241) от 26.08.2023
+
+Lyn 2.3.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2023Разработчик: © 2023 Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BECA21C22FC8528DF31B80743B1BEDCCA35ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655484   (204215) от 26.08.2023
+
+Batch Photo Resizer 3.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Batch Photo Resizer делает гораздо больше, чем следует из названия. Приложение позволяет выполнять бесшовное преобразование между несколькими форматами изображений, изменять размер изображений с максимально возможным качеством и переименовывать.
+ПО предлагает простой и удобный пользовательский интерфейс и обеспечивает чрезвычайно быструю работу. Этот инструмент поможет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2023Разработчик: © 2023 CluBees TechПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA273BDC70BF08EAE658A715A51C1A455A921301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655488   (204202) от 26.08.2023
+
+Ftp-Serv 8.3.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это простое программное обеспечение ftp-сервера для загрузки файлов на ваш Mac или обмена файлами с другими.
+Приложение выполняет три операции:
+1. Вы можете загружать файлы с машины, в которую встроен принтер-сканер, на ваш Mac, если ваш Mac находится в той же локальной сети, что и ваша машина, в которую встроен принтер-сканер
+2. Вы можете обмениваться файлами с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2022Разработчик: © 2021 Renjie. ZhangПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E11BCCB6AF21359A8BA5C79C223F0C8ABCF6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604217   (204134) от 12.01.2023
+
+Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © DxOПоддерживаемая ОС: macOS 10.15.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55DC41E19810EDC4E70CAC40477CE28232C2938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655667   (204042) от 27.08.2023
 
 ExactScan Enterprise 23.5 [Multi/Ru]
@@ -6,7 +142,7 @@ ExactScan Enterprise 23.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204042.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ Topaz Video Enhance AI for Mac 3.0.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203978.jpg" />
+  <img src="Z:/picture/004/save_picture_203978.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ PlainPad 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203732.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ Mix Up Studio 3.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203701.jpg" />
 </div>
 
 
@@ -110,7 +246,7 @@ Beamer 4 v.4.1.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203569.jpg" />
 </div>
 
 
@@ -138,7 +274,7 @@ Downcast 2.11.25 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203539.jpg" />
 </div>
 
 
@@ -165,7 +301,7 @@ Adguard for Mac 2.9.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203455.jpg" />
+  <img src="Z:/picture/004/save_picture_203455.jpg" />
 </div>
 
 
@@ -191,7 +327,7 @@ MacX DVD Ripper Pro 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203413.jpg" />
 </div>
 
 
@@ -217,7 +353,7 @@ Export for iTunes 3.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203226.jpg" />
+  <img src="Z:/picture/004/save_picture_203226.jpg" />
 </div>
 
 
@@ -243,7 +379,7 @@ Influx for Mac (Plugin) 1.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203122.jpg" />
 </div>
 
 
@@ -269,7 +405,7 @@ DRMare Audio Music Converter for Mac 2.8.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203071.jpg" />
 </div>
 
 
@@ -296,7 +432,7 @@ RapidWeaver 9 v.9.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203068.jpg" />
 </div>
 
 
@@ -323,7 +459,7 @@ FontLab 8 v.8.2.1.8638 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203059.jpg" />
 </div>
 
 
@@ -350,7 +486,7 @@ DxO PhotoLab 5 ELITE Edition 5.14.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202987.jpg" />
 </div>
 
 
@@ -377,7 +513,7 @@ Luminar Neo 1.13.0 Intel/ARM [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202928.jpg" />
 </div>
 
 
@@ -403,7 +539,7 @@ DxO PureRAW 3 for Mac v.3.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202867.jpg" />
 </div>
 
 
@@ -430,7 +566,7 @@ Focusplan Pro - Mind Map 1.6.17 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202839.jpg" />
 </div>
 
 
@@ -456,7 +592,7 @@ ImageRanger Pro Edition 1.9.4.1875 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202797.jpg" />
 </div>
 
 
@@ -482,7 +618,7 @@ EaseUS Todo Backup for Mac 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200905.jpg" />
+  <img src="Z:/picture/005/save_picture_200905.jpg" />
 </div>
 
 
@@ -508,7 +644,7 @@ Nitro PDF Pro 13.3.1 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200738.jpg" />
+  <img src="Z:/picture/005/save_picture_200738.jpg" />
 </div>
 
 
@@ -534,7 +670,7 @@ Planner 5D Premium 4.14 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200715.jpg" />
+  <img src="Z:/picture/005/save_picture_200715.jpg" />
 </div>
 
 
@@ -545,137 +681,6 @@ Planner 5D Premium 4.14 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8291C4EB04CD96D7AE0095FB9370E1D5D2CFC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622899   (200516) от 30.03.2023
-
-NTFS Disk by Omi NTFS 1.1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200516.jpg" />
-</div>
-
-
-###  Подробнее
-
-NTFS Disk от Omi - это менеджер дисков NTFS в Mac App Store. Вы можете легко читать и записывать файлы на диск Windows NTFS на Mac с помощью NTFS Disk от Omi. Поддержка исправления и форматирования диска NTFS на Mac.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2023Разработчик: © 2022 Omi Software Studio IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA6255069DDCE5F42A09A4D8441E6BA83391893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623188   (200489) от 31.03.2023
-
-Adobe Substance 3D Painter 8.3.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200489.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Substance 3D Painter есть инструменты, необходимые для удобного текстурирования 3D-ресурсов по вашим естественным жестам рук, от расширенных кистей до умных материалов, которые автоматически адаптируются к вашей модели. Painter широко используется в производстве игр и фильмов, а также в индустрии дизайна, одежды и в архитектуре. Это приложение для 3D-текстурирования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2023Разработчик: © 2014-2023 AdobeПоддерживаемая ОС: macOS 11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E1AB13E357F82062E3A9B60776AE16F67F2A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623731   (200404) от 02.04.2023
-
-MathWorks MATLAB R2023a 9.14.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200404.jpg" />
-</div>
-
-
-###  Подробнее
-
-MATLAB – это интерактивная среда программирования, широко используемая инженерами и учеными для осуществления численных расчетов, разработки алгоритмов, создания моделей, а также для анализа и визуализации разного рода данных. По совместительству MATLAB – это высокоуровневый язык программирования, который выгодно отличается от традиционных C/C++, Pascal, Java и прочих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2023Разработчик: The MathWorks, Inc.Поддерживаемая ОС: macOS Big Sur 11.6 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CD2E55E31CE41E9B76CC3D477FC07BA5F4B70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623580   (200383) от 02.04.2023
-
-iZotope RX 10 Audio Editor Advanced AU, VST3, AAX, STANDALONE 10.4.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нам доверяют лучшие инженеры по постпродакшну для быстрого и надежного воспроизведения чистого звука.
-В версии 10 мы добавили новые функции и функции для решения некоторых наиболее распространенных проблем с восстановлением, которые существуют в современных проектах постобработки, что делает его окончательным выбором для постпродакшна аудио. Несмотря на то, что включено (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2023Разработчик: © 2001–2023 iZotope, IncПоддерживаемая ОС: macOS 10.15.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FFC5427A9B92AEBA94658BAF09206CCD4AAAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624138   (200382) от 04.04.2023
-
-McAfee Endpoint Security for Mac 10.7.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Защитите себя и всю вашу семью от новейших программ-вымогателей, шпионских и вредоносных программ, обеспечивая безопасность вашей конфиденциальности и личных данных.Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 2023 McAfee, IncorporatedПоддерживаемая ОС: macOS 10.15.6+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F4323F9806E47348366D62DE1AF735ACCBF3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

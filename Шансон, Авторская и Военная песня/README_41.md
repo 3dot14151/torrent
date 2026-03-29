@@ -1,3 +1,69 @@
+###  Публикация: 497844   (253778) от 17.05.2012
+
+Сергей Трофимов - Аты-Баты (2012) [FLAC|Lossless]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая работа одного из самых востребованных исполнителей на современной российской сцене, Сергея Трофимова, посвящёна всем, кто служил и служит, день за днём выполняя такую трудную, но почётную обязанность - защищать Отечество.
+ Этот сборник для тех, кто чтит память погибших, для кого слова «Родина» и «офицерская честь» - это не пустой звук.
+ Этот диск – настоящим мужчинам, для которых слова этих песен - как эхо прошлого, бьющего по струнам натянутых нервов.01. Аты-Баты
+02. Моему другу
+03. Непогода
+04. Блюз-спецназ
+05. Вне закона
+06. Голубь мира  NEW
+07. Кем мы были для Отчизны
+08. Мой дикий ангел  (ранее не издавалась)
+09. Война (ранее не издавалась)
+10. Джомолунгма  NEW(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617776   (250239) от 08.03.2023
+
+VA - Лучшие песни радио русский шансон 8 (2008) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Шапиро - Женщина любимая
+02. М. Гулько - Почему ты замужем
+03. гр. Бутырка - Два полюса
+04. Е. Амирамов - Только не ты(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873FA7599AE904B226DF9960929942732FA10B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617075   (250210) от 08.03.2023
 
 Алмас Багратиони - Спешите жить (2023) [MP3|320 Kbps] <Поп, шансон>
@@ -6,7 +72,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250210.jpg" />
+  <img src="Z:/picture/004/save_picture_250210.jpg" />
 </div>
 
 
@@ -35,7 +101,7 @@ VA - Лучшие песни радио русский шансон 9 (2009) [MP
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249921.jpg" />
+  <img src="Z:/picture/004/save_picture_249921.jpg" />
 </div>
 
 
@@ -64,7 +130,7 @@ VA - Шансон 2022 года (Музыкальный хит-парад) [MP3|
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249482.jpg" />
+  <img src="Z:/picture/004/save_picture_249482.jpg" />
 </div>
 
 
@@ -93,7 +159,7 @@ VA - 9 мая День Победы - 65 лет 1945-2010 (2010) [MP3|320 kbps]<
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248964.jpg" />
+  <img src="Z:/picture/004/save_picture_248964.jpg" />
 </div>
 
 
@@ -128,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248949.jpg" />
+  <img src="Z:/picture/004/save_picture_248949.jpg" />
 </div>
 
 
@@ -163,7 +229,7 @@ VA - 9 Мая: Лучшая 150-ка с праздником Победы! (2012
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248942.jpg" />
+  <img src="Z:/picture/004/save_picture_248942.jpg" />
 </div>
 
 
@@ -198,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248340.jpg" />
+  <img src="Z:/picture/004/save_picture_248340.jpg" />
 </div>
 
 
@@ -233,7 +299,7 @@ SK-AI project - Последнее лето (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246725.jpg" />
+  <img src="Z:/picture/004/save_picture_246725.jpg" />
 </div>
 
 
@@ -262,7 +328,7 @@ VA – Русский шансон часть 4 (1997) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245992.jpg" />
+  <img src="Z:/picture/004/save_picture_245992.jpg" />
 </div>
 
 
@@ -291,7 +357,7 @@ VA - Застольные от Петровича 40% - 96% (2004) 3 Альбо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245858.jpg" />
+  <img src="Z:/picture/004/save_picture_245858.jpg" />
 </div>
 
 
@@ -320,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245571.jpg" />
+  <img src="Z:/picture/004/save_picture_245571.jpg" />
 </div>
 
 
@@ -349,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245016.jpg" />
+  <img src="Z:/picture/004/save_picture_245016.jpg" />
 </div>
 
 
@@ -378,7 +444,7 @@ VA - Памяти Аркадия Северного (1995) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244949.jpg" />
+  <img src="Z:/picture/004/save_picture_244949.jpg" />
 </div>
 
 
@@ -407,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244682.jpg" />
+  <img src="Z:/picture/004/save_picture_244682.jpg" />
 </div>
 
 
@@ -436,7 +502,7 @@ VA - Самые сливки шансона (2001) [FLAC|Lossless|tracks + .cue]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244517.jpg" />
+  <img src="Z:/picture/004/save_picture_244517.jpg" />
 </div>
 
 
@@ -465,7 +531,7 @@ VA - Калина красная 3-Песни, спетые сердцем (1999
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244386.jpg" />
+  <img src="Z:/picture/004/save_picture_244386.jpg" />
 </div>
 
 
@@ -494,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244079.jpg" />
+  <img src="Z:/picture/004/save_picture_244079.jpg" />
 </div>
 
 
@@ -523,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242873.jpg" />
+  <img src="Z:/picture/005/save_picture_242873.jpg" />
 </div>
 
 
@@ -552,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242855.jpg" />
+  <img src="Z:/picture/005/save_picture_242855.jpg" />
 </div>
 
 
@@ -578,7 +644,7 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242346.jpg" />
+  <img src="Z:/picture/004/save_picture_242346.jpg" />
 </div>
 
 
@@ -607,7 +673,7 @@ VA - Русский шансон часть 6 (1999) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242326.jpg" />
+  <img src="Z:/picture/004/save_picture_242326.jpg" />
 </div>
 
 
@@ -636,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242278.jpg" />
+  <img src="Z:/picture/004/save_picture_242278.jpg" />
 </div>
 
 
@@ -665,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242058.jpg" />
+  <img src="Z:/picture/004/save_picture_242058.jpg" />
 </div>
 
 
@@ -694,7 +760,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241993.jpg" />
+  <img src="Z:/picture/004/save_picture_241993.jpg" />
 </div>
 
 
@@ -708,64 +774,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A502FDCF733E02D02F6F192599384BAD1BD510A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624766   (241840) от 07.04.2023
-
-VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Иващенко и Г. Васильев - Одуванчиков дым
-02. А. Колмыков, В.Мищук, Н. Дудкина - Мы с тобой...( Мы с тобой давно уже не  те )
-03. А. Иващенко - Пора, мой друг, пора
-04. О. Митяев - Западная сибирь(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378098   (241525) от 25.04.2020
-
-Владимир Базыкин - Когда освобожусь (2004) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кореша
-02. Когда освобожусь
-03. Долюшка
-04. Друг(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

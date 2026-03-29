@@ -1,3 +1,89 @@
+###  Публикация: 1397549   (229625) от 25.11.2021
+
+Георгий Смородинский | Собрание сочинений [19 книг] (2015-2021) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Георгий Георгиевич Смородинский – современный российский писатель, специализирующийся на жанре ЛитРПГ, историях о попаданцах, боевом и героическом фэнтези.
+
+Георгий появился на свет 8 июня 1971 года в Москве. Детство и юность провел в родном городе, где живет и сегодня. Смородинский много времени проводил за компьютерными играми и добился на этом поприще определенных (   Читать дальше...   )Жанр: Героическое фэнтези, Боевое фэнтези, Юмористическое фэнтези, ЛитРПГ, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F98444DD8974373AF197E9D4EF8B6A6B4359F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378805   (226424) от 17.11.2020
+
+Анна Ахматова | Собрание сочинений [1912-1965] [FB2,TXT]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ахматова (псевдоним; настоящая фамилия — Горенко) Анна Андреевна [11(23).6.1889, Одесса, — 5.3.1966, Домодедово Московской области; похоронена в Ленинграде], русская советская поэтесса.
+Родилась в семье офицера флота. Училась на Высших женских курсах в Киеве и на юридическом факультете Киевского университета.
+С 1910 жила преимущественно в Петербурге.
+В 1912 вышла (   Читать дальше...   )Жанр: Классическая проза, поэзия, публицистикаФормат: FB2, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713BDF771F233F91558C248C075AD0AB7471C30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424860   (225438) от 18.11.2020
+
+Андрей Абабков | Собрание сочинений [13 книг] (2017-2020) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор не предоставляет информацию о себе.
+Самый злой вид:
+Большая группа самых обычных людей, попадает в другой мир и становится вампирами. Их существование в новых для себя условиях показано в цикле книг - Самый злой вид.
+Геракл и его приключения:(   Читать дальше...   )Жанр: Эпическое фэнтези, Боевое фэнтези, Городское фэнтези, Космическая фантастика, Попаданцы в магические миры, ЛитРПГ, ФанфикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4615D76CECFF85A2C173B6B3D3E01FF7D132D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587280   (222552) от 10.12.2012
 
 Дмитрий Липскеров | Сборник произведений [1989-2011] [FB2]
@@ -6,7 +92,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222552.jpg" />
+  <img src="Z:/picture/005/save_picture_222552.jpg" />
 </div>
 
 
@@ -33,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221941.jpg" />
+  <img src="Z:/picture/005/save_picture_221941.jpg" />
 </div>
 
 
@@ -59,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216878.jpg" />
 </div>
 
 
@@ -85,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216160.jpg" />
 </div>
 
 
@@ -113,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215995.jpg" />
 </div>
 
 
@@ -141,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215368.jpg" />
+  <img src="Z:/picture/005/save_picture_215368.jpg" />
 </div>
 
 
@@ -169,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214007.jpg" />
+  <img src="Z:/picture/005/save_picture_214007.jpg" />
 </div>
 
 
@@ -198,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213233.jpg" />
+  <img src="Z:/picture/005/save_picture_213233.jpg" />
 </div>
 
 
@@ -224,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213028.jpg" />
+  <img src="Z:/picture/005/save_picture_213028.jpg" />
 </div>
 
 
@@ -253,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212999.jpg" />
+  <img src="Z:/picture/005/save_picture_212999.jpg" />
 </div>
 
 
@@ -280,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212826.jpg" />
+  <img src="Z:/picture/005/save_picture_212826.jpg" />
 </div>
 
 
@@ -306,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212307.jpg" />
+  <img src="Z:/picture/005/save_picture_212307.jpg" />
 </div>
 
 
@@ -334,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211083.jpg" />
+  <img src="Z:/picture/005/save_picture_211083.jpg" />
 </div>
 
 
@@ -363,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208152.jpg" />
+  <img src="Z:/picture/005/save_picture_208152.jpg" />
 </div>
 
 
@@ -389,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202491.jpg" />
+  <img src="Z:/picture/004/save_picture_202491.jpg" />
 </div>
 
 
@@ -415,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201199.jpg" />
+  <img src="Z:/picture/005/save_picture_201199.jpg" />
 </div>
 
 
@@ -441,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200077.jpg" />
+  <img src="Z:/picture/005/save_picture_200077.jpg" />
 </div>
 
 
@@ -467,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198375.jpg" />
 </div>
 
 
@@ -493,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196318.jpg" />
 </div>
 
 
@@ -519,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186685.jpg" />
 </div>
 
 
@@ -546,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185757.jpg" />
 </div>
 
 
@@ -574,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181686.jpg" />
+  <img src="Z:/picture/005/save_picture_181686.jpg" />
 </div>
 
 
@@ -602,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177254.jpg" />
 </div>
 
 
@@ -613,84 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:870C9758EF7CA958EA1BDE90C19EF1432C52192C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428971   (177150) от 05.12.2020
-
-Александр Кронос | Сборник произведений [14 книг] (2020) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Машинный разум счёл человечество обречённым и начал проект «Эволюция». Старая социальная структура сломана. Системы связи отключены, власти не контролируют ситуацию. Армия и полиция канули в лету. Каждый волен делать то, что он хочет и неограниченно модернизировать своё тело.Жанр: Боевая фантастика, ЛитРПГ, КиберпанкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273A8F79048B51A1DCAA6E407F69BE20486D582B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430052   (174205) от 09.12.2020
-
-Андрей Архипов | Сборник произведений [12 книг] (2011-2020) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь ведутся войны за ресурсы, здесь столкнулись в жестком противостоянии империи русских и англосаксов. И на самом острие этой битвы скользит по гребню событий бывший курсант вместе со своими друзьями. Именно они несут рай на Землю. Вот только примет ли их подарок человечество? Не покажется ли он ему разверзнувшимся адом?Жанр: Боевая фантастика, Альтернативная история, ПопаданствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7F8E08FD6DDF8694164F1688B0124FA66D6BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827084   (173722) от 20.10.2025
-
-Виктор Пелевин | Сборник произведений [91 книга] (1989-2025) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Пелевин пишет о природе реальности, сознании, власти, буддизме, цифровом мире и абсурде современной жизни. Его стиль сочетает постмодернизм, фантастику и сатиру.Жанр: постмодерн, современная русская литератураИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640CB884260BA536FB0AB8B2BA1C2883CCCDECD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

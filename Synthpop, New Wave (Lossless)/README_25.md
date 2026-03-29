@@ -1,3 +1,32 @@
+###  Публикация: 1087877   (142558) от 29.12.2016
+
+Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fade To Grey (Michael Gray Remix 2009) (7:45)
+ 02. Mind Of A Toy (Dance Mix) (5:16)
+ 03. We Move (Remix) (3:46)
+ 04. Tar (3:33)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C99266D31C72FAB9C1D7BFCDAA0BDAB44DEA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520342   (142041) от 28.12.2021
 
 VA - Space Holidays Vol. 13 (2021) 4CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
@@ -6,7 +35,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142041.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sparks - Past Tense: The Best Of (2019) 3CD [FLAC|Lossless|tracks + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141511.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pet Shop Boys - Disco Four (Remixed By Pet Shop Boys) (2007) [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141026.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Depeche Mode - Playing The Angel (2005) SACD [FLAC|Lossless|tracks + .cue] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140876.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Depeche Mode - 101 (1989) 2 SACD, Remastered, 2004 Mute [FLAC|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140663.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Kennelklubben - Kennelklubben (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139670.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Space Holidays Vol. 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137102.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ BELLATRIX - Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137083.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136711.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134921.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Unive
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134865.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Soft Cell - Non-Stop Erotic Cabaret (1981) Remaster, Deluxe Edition, 2023, UMC [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132683.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132061.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131111.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129810.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Meteora - Gradients III Lights In The Sky (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129618.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129558.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Meteora - Gradients II Westerlies (2016) [FLAC|Lossless|WEB-DL|tracks] <Traditio
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129543.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129541.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Alison Goldfrapp - The Love Reinvention (2023) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128700.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Starcadian - Sunset Blood  (2013) Special Edition, Remastered, 2023 , Starcadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128240.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126599.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126239.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126236.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Alexey Teplykh - The City at Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125584.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Alexey Teplykh - The City at Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AC206B742273D964971CEC1E42E2DF479D10AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689357   (124774) от 01.01.2024
-
-Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts [00:04:26]
-02. Götter in Weiss [00:03:52]
-03. Lost My Mind [00:03:48]
-04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1293982   (633740) от 05.04.2019
+
+Михаил Михайлович Дунаев | Православие и русская литература [В 6-ти томах] (2001-2004) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в литературоведении предлагается систематизированное религиозное осмысление особенностей развития отечественной словесности, начиная с XVII в. и кончая второй половиной XX в. Издание выпускается в 6-ти частях. Представляет интерес для всех не равнодушных к русской литературе. В основу книги положен курс лекций, прочитанный автором в Московской Духовной Академии.Жанр: Литературоведение, христиннствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F740EB264924168EDDD6E137E00F3FB3D23B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293801   (633620) от 05.04.2019
+
+Л.В. Вовчук (сост.) | О поклонах во время богослужения (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существуют различные Уставы о поклонах, разные традиции. Всё это надо учитывать. Мало разбираться в Уставе, необходимо изучить местную традицию, которая отличает службу в этом храме от буквы Типикона.
+
+В Типиконе говорится, что единообразия в совершении поклонов мы придерживаемся «смущения ради», то есть для порядка, чтобы никого не смущать в общем церковном собрании. (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311F061C2D6D4CF561613619A1776AE8A0B75450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294000   (633502) от 05.04.2019
+
+Д. А. Заварицкий | 100 фраз на русском жестовом языке. Разговорник для священнослужителей (2015) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие создано в помощь священнослужителям, изучающим русский жестовый язык (РЖЯ)
+для общения с глухими людьми. Фразы разговорника охватывают темы: «Знакомство, семья, работа», «Беседы о крещении», «Беседы об исповеди», «Беседы о причастии» и помогают установить контакт с неслышащим прихожанином, доступно и понятно объяснить ему начала христианской веры (   Читать дальше...   )Жанр: Язык жестовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9569D00D4017F2ECA4468D2207A37F8A0318C1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 901879   (633225) от 05.04.2019
 
 Иоанн Павел II | Теология тела [Катехезы I - XL] (2017 - 2019) [PDF, DJVU, DOC]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633225.jpg" />
+  <img src="Z:/picture/008/save_picture_633225.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633175.jpg" />
+  <img src="Z:/picture/008/save_picture_633175.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633085.jpg" />
+  <img src="Z:/picture/008/save_picture_633085.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632598.jpg" />
+  <img src="Z:/picture/008/save_picture_632598.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632516.jpg" />
+  <img src="Z:/picture/008/save_picture_632516.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632418.jpg" />
+  <img src="Z:/picture/008/save_picture_632418.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632321.jpg" />
+  <img src="Z:/picture/008/save_picture_632321.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632207.jpg" />
+  <img src="Z:/picture/008/save_picture_632207.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632201.jpg" />
+  <img src="Z:/picture/008/save_picture_632201.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632145.jpg" />
+  <img src="Z:/picture/008/save_picture_632145.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632123.jpg" />
+  <img src="Z:/picture/008/save_picture_632123.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631988.jpg" />
+  <img src="Z:/picture/008/save_picture_631988.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631797.jpg" />
+  <img src="Z:/picture/008/save_picture_631797.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631626.jpg" />
+  <img src="Z:/picture/008/save_picture_631626.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630243.jpg" />
+  <img src="Z:/picture/008/save_picture_630243.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630215.jpg" />
+  <img src="Z:/picture/008/save_picture_630215.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629365.jpg" />
+  <img src="Z:/picture/008/save_picture_629365.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628575.jpg" />
+  <img src="Z:/picture/008/save_picture_628575.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628471.jpg" />
+  <img src="Z:/picture/008/save_picture_628471.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628457.jpg" />
+  <img src="Z:/picture/008/save_picture_628457.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628341.jpg" />
+  <img src="Z:/picture/008/save_picture_628341.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628226.jpg" />
+  <img src="Z:/picture/008/save_picture_628226.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628225.jpg" />
+  <img src="Z:/picture/008/save_picture_628225.jpg" />
 </div>
 
 
@@ -601,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49577939FF53787F7441B3A044DB6BE978D24206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229351   (628223) от 05.06.2018
-
-Ксения Козлова | Святая Екатерина Сиенская – Лилия Христа Воскресшего (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святая Екатерина Сиенская (1347 — 1380 гг.) — выдающаяся деятельница Церкви в позднесредневековой Италии, мистик, визионерка, духовная наставница и писательница, оказывавшая сильнейшее влияние на современников. Одна из четырех женщин, удостоенных высокого звания «Учителя Церкви».Жанр: ЖитиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F90A6B79F8374B2A88B8AE8BE9C333208014D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229204   (628221) от 05.06.2018
-
-Монастырь св. равноапостольной Марии Магдалины (изд.) | Рассказ о ковчеге со святыми мощами преподобномучениц великой княгини Елисаветы и инокини Варвары, прибывшем в Россию со Святой Земли [PDF, D ...
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о ковчеге со святыми мощами преподобномучениц великой княгини Елисаветы и инокини Варвары, прибывшем в Россию со Святой Земли - это простое изложение более или менее известных событий и комментарий к графике и живописи, нанесённых на серебряном и эмалевом украшении ковчега. Мы сочли уместным привести некоторые документы в их подлинном историческом виде - (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77387D1364F7E9D0BE5CC2C1E46AC6C1CE99E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229354   (628219) от 05.06.2018
-
-Преподобный Ефрем Сирин | Отречение от мира (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628219.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Столп Церкви, великий отец и вселенский учитель, пророк сирийский, солнце сирийское, духовный философ и глубокий учёный, витийственные уста и цитра Святого Духа» — так возвышенно отзывается о святом преподобном Ефреме Сирине его современник, святитель Григорий Нисский. В чтении его творений с древности и до наших дней православные люди, стремящиеся к духовному преуспеянию, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BA67FE7DB26DD7017BF9164CB3A006C9ED28D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

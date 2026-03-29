@@ -1,3 +1,81 @@
+###  Публикация: 1806467   (11664) от 13.07.2025
+
+ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [The Scenic Builders Pack]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открыта новая глава любимой минималистичной градостроительной франшизы. ISLANDERS: New Shores приглашает вас в мир творчества с обновленным геймплеем, потрясающими визуальными эффектами и множеством новых возможностей в сочетании с очарованием оригинала. Не важно, являетесь ли вы давним поклонником или только начинаете свой путь, исследовать, строить и разрабатывать (   Читать дальше...   )Тип издания: RepackРазработчик: The StationЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7108BA331252E2F179D57F5E82ED27632B726C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807004   (11342) от 16.07.2025
+
+Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11342.jpg" />
+</div>
+
+
+###  Подробнее
+
+За окном - 1986 год. Вы - Дэвид Сугимото, родившийся и выросший в городе Саут-Бенд, штат Индиана (США). Но в один прекрасный день вам предлагают перебраться в Японию и попасть на свою самую первую работу, в компанию «Мацудзава». Япония переживает невиданный ранее экономический подъём. Стране нужны умные, молодые и целеустремлённые специалисты.Тип издания: RepackРазработчик: CoincidenceЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C11A21732D3C5C440DC9620F9F0068B62F18D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729647   (10992) от 19.07.2025
+
+Reus 2 (2024) [Ru/Multi] (1.8.0/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reus 2 выделяется своей уникальностью и увлекательностью. В этой игре вы обладаете силой богов, управляя могучими гигантами, которые формируют мир для процветания или гибели человеческих цивилизаций. С самого начала все предельно ясно: в Reus 2 вам предстоит решать судьбу человечества, делая свой выбор и совершая поступки. Вы получите возможность выбрать себе гигантов, (   Читать дальше...   )Тип издания: RepackРазработчик: Abbey GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E192082B1A982638F9D782020A6A6D1D2D2EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765108   (10987) от 19.07.2025
 
 Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
@@ -6,7 +84,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10987.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10727.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9336.24144/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10181.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Ratopia (2023) [Ru/Multi] (1.0.0510) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9908.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9825.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.4R/dlc) Repack FitGirl [Complete]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9574.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9448.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ dotAGE (2023) [Ru/Multi] (1.7.2/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9163.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Mars Base (2022) [Multi] (1.107) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9121.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8931.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.2_92.3d163d7) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8816.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8718.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8693.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8460.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8188.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132/dlc) Repack Let'sРlay [Supporter Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8185.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8133.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.5) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8115.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7783.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Odd Realm (2019) [En] (1.0.37.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7574.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7566.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Black Forest (2016) [Multi] (2.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7564.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7119.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C142AF1A5AF0644C867D798F0D23EBF6643E0A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414862   (7006) от 19.08.2025
-
-Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | Pilotus
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой он, идеальный парк развлечений? Один скажет, что там не должно быть очередей, другой пожелает бесплатного мороженного, а для третьего главное - зелёные насаждения. Словом, сколько людей, столько мнений. И только с одним утверждением едва ли кто поспорит: парк аттракционов без американских горок - не парк аттракционов вовсе! Попробуйте свои силы в качестве дизайнера, (   Читать дальше...   )Тип издания: RePackРазработчик: Chris Sawyer ProductionsЖанр: Экономический симуляторЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796499   (6571) от 22.08.2025
-
-Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10837) Repack Let'sРlay
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yes, Your Grace 2: Snowfall - кинематографичная игра про управление королевством. Примерьте на себя роль Короля! Распоряжайтесь ресурсами, поддерживайте близких и принимайте трудные решения, чтобы ваше королевство процветало - или потерпело крах. Окунитесь в мир, вдохновленный славянским фольклором, и разберитесь с чередой подданных, которые принесут в ваш тронный (   Читать дальше...   )Тип издания: RepackРазработчик: Brave At NightЖанр: Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655658   (6569) от 22.08.2025
-
-Dust Fleet (2023) [Multi] (6.4.5) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6569.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем, где господствует космическая эпоха, вы окажетесь в центре великолепных звездных битв, где каждый решающий момент может определить исход войны. В этом мире игра Dust Fleet приглашает вас на роль командира, который должен строить, улучшать и вести свою флотилию кораблей к победе. Стратегическое планирование, правильный выбор оборудования, изучение (   Читать дальше...   )Тип издания: LicenseРазработчик: Orbiting DiscoЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Китайский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Китайский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC6686A577A1796659DD06F377607E8956ABAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

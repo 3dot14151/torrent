@@ -1,3 +1,90 @@
+###  Публикация: 1063454   (432856) от 17.10.2016
+
+Stigmhate - Zodacare Od Zodameranu (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aetherion [1:09]
+02. The Third Obsidian [4:08]
+03. Ave Averno In Genesi Nema [4:24]
+04. Mistress Of Bone's Mounds [4:12](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF6FC7A16B2C955A8C2269541E696E31136F891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063648   (432701) от 17.10.2016
+
+Gaia Prelude - Promised Land (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Neoclassical Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Prologue
+02.Grand Cross
+03.Material
+04.Lost in the Darkness(   Читать дальше...   )Жанр: Instrumental Neoclassical Power MetalПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CB3218B7A5E10BD322689A68CE73727C316DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165343   (432464) от 13.09.2017
+
+Running Wild - Black Hand Inn (1994) Deluxe Expanded Edition, 2017, Noise [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Curse (3:14)
+ 02. Black Hand Inn (4:34)
+ 03. Mr. Deadhead (4:03)
+ 04. Soulless (4:56)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7EE3CC4C8F86F523E594DDF75DE982C0B0D04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063795   (432257) от 17.10.2016
 
 Rob Zombie - Music Box - The Best Of (2004) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
@@ -6,7 +93,7 @@ Rob Zombie - Music Box - The Best Of (2004) [FLAC|Lossless|tracks + .cue] <Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432257.jpg" />
+  <img src="Z:/picture/008/save_picture_432257.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Make Way for Man - Rites (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431993.jpg" />
+  <img src="Z:/picture/008/save_picture_431993.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Carillon - Love Mirage (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431991.jpg" />
+  <img src="Z:/picture/008/save_picture_431991.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ As Darkness Fell - Below the Fog (2015) [FLAC|Lossless|image + .cue] <Melodic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431988.jpg" />
+  <img src="Z:/picture/008/save_picture_431988.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Bleak Revelation - Collapse (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431987.jpg" />
+  <img src="Z:/picture/008/save_picture_431987.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Mysthicon - Silva - Oculis - Corvi (2020) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431985.jpg" />
+  <img src="Z:/picture/008/save_picture_431985.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Aten - Horns Of Evil (2014) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431927.jpg" />
+  <img src="Z:/picture/008/save_picture_431927.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Ayreon - Transitus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431924.jpg" />
+  <img src="Z:/picture/008/save_picture_431924.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Wendy O. Williams - Kommander of Kaos (1986) [FLAC|image +.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431860.jpg" />
+  <img src="Z:/picture/008/save_picture_431860.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Rotting Christ - Lucifer Over Athens (2015) Limited Digipak 2CD [FLAC|image+.cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431663.jpg" />
+  <img src="Z:/picture/008/save_picture_431663.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ U.D.O. - The Wrong Side Of Midnight (2007) EP [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431257.jpg" />
+  <img src="Z:/picture/008/save_picture_431257.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Gaia Prelude - Another (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Ins
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430367.jpg" />
+  <img src="Z:/picture/008/save_picture_430367.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Monument - Rock The Night! (2012) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430362.jpg" />
+  <img src="Z:/picture/008/save_picture_430362.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Monument - Renegades (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430355.jpg" />
+  <img src="Z:/picture/008/save_picture_430355.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - A Light In The Black - A Tribute To Ronnie James Dio (2015) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430235.jpg" />
+  <img src="Z:/picture/008/save_picture_430235.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Metal Allegiance - Fallen Heroes EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430122.jpg" />
+  <img src="Z:/picture/008/save_picture_430122.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Conxuro - La Rueda de la Fortuna (2012) [FLAC|Lossless|image + .cue] <Folk Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430097.jpg" />
+  <img src="Z:/picture/008/save_picture_430097.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Deus X Machina - X (2014) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430094.jpg" />
+  <img src="Z:/picture/008/save_picture_430094.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Lingerbliss - A False Premise (2013) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430089.jpg" />
+  <img src="Z:/picture/008/save_picture_430089.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Darklight - Bleeding For Metal (2011) [FLAC|Lossless|image + .cue] <Power Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430084.jpg" />
+  <img src="Z:/picture/008/save_picture_430084.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Geoda - Firebreak (2014) [FLAC|Lossless|image + .cue] <Technical Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430081.jpg" />
+  <img src="Z:/picture/008/save_picture_430081.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Lepergod - Impvro (2019) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430078.jpg" />
+  <img src="Z:/picture/008/save_picture_430078.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Sinfonica - Bosque Eterno (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430075.jpg" />
+  <img src="Z:/picture/008/save_picture_430075.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Sinfonica - Bosque Eterno (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B85F0D84C4839E4A31BF9CF627F0AB7F25C9E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411042   (430072) от 24.09.2020
-
-Lazarvs - Lazarvs (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IV. Rebirth [00:01:38]
-02. The Order [00:04:36]
-03. Reaping [00:01:55]
-04. Pit. [00:03:18](   Читать дальше...   )Жанр: Sludge Metal, Groove MetalПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA92860816149E24B34A59E88073867503719C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411106   (430069) от 24.09.2020
-
-Lepergod - Siniestro Éxtasis (2018) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     Fuego Salvaje
-02.     Litvrgia
-03.     Diatriba Infernal
-04.     Vi la Muerte(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E25928C57DF17879C8F5A65DDACE23E6660776A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411118   (429993) от 24.09.2020
-
-Secret Sphere - Heart And Anger (2005) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless (1:53)
-02. Where the Sea Ends (5:03)
-03. First Snake (6:28)
-04. Loud & Raw (4:57)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B97D519CED8F9C058C4795A89AC35EA536060D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

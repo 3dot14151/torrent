@@ -1,3 +1,32 @@
+###  Публикация: 1389265   (784496) от 10.06.2020
+
+Think Floyd - 2 альбома (1997-2013) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. Brain Rape
+03. The Circle
+04. If I Had Power(   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 01:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0144440A12825379A9D4B3201B2F8E550239FFE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389170   (784492) от 10.06.2020
 
 Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute to Pink Floyd (2014) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute t
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784492.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Revolving Door - City of Darkness (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784283.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deep Purple - Under The Gun (1999) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784200.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ David Duchovny - Every Third Thought (2018) [MP3|320 Kbps] <Rock, Singer-Songwri
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784048.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Creepy John Thomas - 2 Albums (1969, 1970) Reissue, Soundvision, 2011 [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783683.jpg" />
+  <img src="Z:/picture/008/save_picture_783683.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Colosseum - Colosseum Live (1971) Remastered, 1998, Castle Communications [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783504.jpg" />
+  <img src="Z:/picture/008/save_picture_783504.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Greatest Ever Indie Disco: The Definitive Collection (2016) 3CD [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783495.jpg" />
+  <img src="Z:/picture/008/save_picture_783495.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Arena  Re - Visited Live! (2019) 2xCD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783423.jpg" />
+  <img src="Z:/picture/008/save_picture_783423.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Built to Spill - Built to Spill Plays The Songs of Daniel Johnston (2020) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783421.jpg" />
+  <img src="Z:/picture/008/save_picture_783421.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783172.jpg" />
+  <img src="Z:/picture/008/save_picture_783172.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Disheveled Cuss - Disheveled Cuss (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783107.jpg" />
+  <img src="Z:/picture/008/save_picture_783107.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Shocking Blue - 2 Compilations & 1 Remastered (Japan Album) (1973-2008) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782776.jpg" />
+  <img src="Z:/picture/008/save_picture_782776.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782143.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782114.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ We Versus The Shark - Goodbye Guitar (2020) [MP3|320 Kbps] <Math Rock, Indie Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781487.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ The Spitfires - Life Worth Living (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781462.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Jessica Wolff - Para Dice (2020) [MP3|320 Kbps] <Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781452.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Neil Young - Homegrown (2020) [MP3|320 Kbps] <Folk Rock, Singer-Songwriter>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781436.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ VA - Top Musicians Play Pink Floyd (2009) [MP3|320 Kbps] <Progressive rock, Art 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781392.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <G
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781336.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781331.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781329.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781325.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781318.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not O
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781314.jpg" />
 </div>
 
 
@@ -722,41 +751,6 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200572   (781173) от 14.05.2010
-
-Shocking Blue - 6 Japan Remastered Albums (1968-1984) [MP3|320 kbps]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1968-1984Жанр: Classic RockПродолжительность: 00:59:48
-
-01 | Introduction | 00:28
-02 | Send Me A Postcard | 03:11
-03 | Long And Lonesome Road | 03:31
-04 | Somebody To Love | 03:39
-05 | Never Marry A Railroadman | 04:43
-06 | White Rabbit | 02:38
-07 | Venus | 03:45
-08 | Hot Sand | 04:02(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

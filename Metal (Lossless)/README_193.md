@@ -1,3 +1,90 @@
+###  Публикация: 1188677   (272295) от 04.12.2017
+
+Almanac - Kingslayer (2017) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regicide
+02. Children of the Sacred Path
+03. Guilty as Charged
+04. Hail to the King(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05127C14F5D9A081519A230EBC9448EC39818AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188543   (272118) от 04.12.2017
+
+FireForce - Annihilate the Evil (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boys from Down Under
+02. Revenge in Flames
+03. Fake Hero
+04. Dog Soldiers(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E088D6D0F07F44AABB09EAFFCA69803D2A2E480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266082   (272111) от 30.11.2018
+
+APG - This Brutal Addiction (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:32)
+ 02. The Symptom (3:44)
+ 03. Colorblind (4:01)
+ 04. Radio Silence (2:53)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9188EAB245F8187E4C96050CF841B3E89CE160A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265966   (272059) от 30.11.2018
 
 Green Carnation - 5 Albums, 1 Live, 1 EP (2000-2006) 10 CD [FLAC|Lossless|image + .cue] <Doom Metal, Progressive Metal, Progressive Rock>
@@ -6,7 +93,7 @@ Green Carnation - 5 Albums, 1 Live, 1 EP (2000-2006) 10 CD [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272059.jpg" />
+  <img src="Z:/picture/008/save_picture_272059.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Emigrate - A Million Degrees (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272048.jpg" />
+  <img src="Z:/picture/008/save_picture_272048.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Aziola Cry - Ellipsis (2005) [FLAC|Lossless|image + .cue] <Instrumental Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271356.jpg" />
+  <img src="Z:/picture/008/save_picture_271356.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Loudness - Re-Masterpieces (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271289.jpg" />
+  <img src="Z:/picture/008/save_picture_271289.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ King Diamond - 12 Albums (1986 - 2007) Discography, Full-lenght albums [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271068.jpg" />
+  <img src="Z:/picture/008/save_picture_271068.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Brothers of Metal - Prophecy Of Ragnarok (2017) 2018, Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271038.jpg" />
+  <img src="Z:/picture/008/save_picture_271038.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Aosoth - V: The Inside Scriptures (2017) [FLAC|Lossless|tracks + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270440.jpg" />
+  <img src="Z:/picture/008/save_picture_270440.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270081.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Wisdom - 2 Albums (2006 - 2011) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269619.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Loudness - Golden Best (2009) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269577.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Cavalera Conspiracy - Psychosis (2017) [FLAC|Lossless|tracks + .cue] <Groove Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269561.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Dreamtone & Iris Mavraki's Neverland - Ophidia (2010) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269223.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Dreamtone & Iris Mavraki's Neverland - Reversing Time (2008) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269203.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268925.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Wolfheart - 4 Albums (2013-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268414.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Bob Katsionis - 4 альбома Collection (2002-2012) [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268191.jpg" />
+  <img src="Z:/picture/008/save_picture_268191.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Mind Key - Pulse For A Graveheart (2009) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267906.jpg" />
+  <img src="Z:/picture/008/save_picture_267906.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Tool - 7 Альбомов (1991 - 2006) [FLAC|Lossless|tracks] <Alternative meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267393.jpg" />
+  <img src="Z:/picture/008/save_picture_267393.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Iron Hunter - Mankind Resistance (2018) [FLAC|Lossless|tracks + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266732.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266664.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Lindemann - F&M: Frau Und Mann (2019) [FLAC|Lossless|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265304.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Morbid Angel - Kingdoms Disdained (2017) Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265231.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264519.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4F06499D23ED7C6A32B1F3E00633CC06D06FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339980   (264305) от 22.11.2019
-
-Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath
-02. Blue Eyed Fiend
-03. Psychic Suicide
-04. Double Agent 616(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339904   (264281) от 22.11.2019
-
-The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитарист и композитор Магнус Карлссон (Kiske/ Somerville, Magnus Karlsson's Free Fall, Primal Fear, The Codex, Planet Alliance, Last Tribe, Midnight Sun, Starbreaker, Allen/ Lande, Bob Catley, Scheepers) и вокалист Ронни Ромеро (Rainbow, Walter Giardino Temple, Eridan, Aria Inferno, Lords of Black, Jose Rubio's Nova Era, Santelmo, Voces del Rock) объединились в новом (   Читать дальше...   )--------------------------
-
-01. Don't Stand In My Way (5:02)
-02. Bring Me Home (6:24)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:55:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340172   (263977) от 23.11.2019
-
-Pretty Maids - Undress Your Madness (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Intro [0:34]
-2 - Serpentine [4:17]
-3 - Firesoul Fly [4:17]
-4 - Undress Your Madness [4:20](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF41086EE97FC95E506E35A3F4CD4428967AC7FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

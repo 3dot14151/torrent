@@ -1,3 +1,29 @@
+###  Публикация: 1747869   (104673) от 07.09.2024
+
+Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, девы и загадочные исчезновения [2024, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слухи о загадочных происшествиях оживляют в Сумирэко Огаве мечту стать писательницей. Будучи сотрудницей книжного, она заручается поддержкой юного коллеги, Рэна Адасино, и берётся расследовать городские легенды. Сумирэко притягивает волшебные инциденты, а Рэн скрывает мрачный секрет. Смогут ли они закончить свои расследования целыми и невредимыми?Производство: Zero-GЖанр: детектив, мистикаРежиссер: Мотидзуки ТомомиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB2F9FAE52924D82ED58B87264D1A6CDAC09A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822847   (104514) от 08.10.2025
 
 Вечность Югурэ | Towa no Yuugure | Dusk Beyond the End of the World [2025, TV, 1 из 13 + 1 SP] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104514.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104488.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103862.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102697.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Naruto Shippuuden: Movie 8. Blood Prison / Наруто Ураганные хр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102552.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100964.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100890.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100618.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Gokusen / Гокусэн [2004, TV, 13 из 13] DVDrip 544p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82985.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79703.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Kanokon - The Girl Who Cried Fox / Kanokon / Канокон [2008, TV, 12+12+2] 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77036.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68608.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67417.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67388.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67333.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AB6C2890EB4EEE87F002F9C0309F082DFF6E10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807659   (65144) от 20.07.2025
-
-Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation | Альтернативная игра богов | Игровое гиперпространство Нептунии [2013, TV, 12 + 1] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бескрайний мир Игромании поделен на четыре державы, каждой из которых управляет могущественная богиня. До недавнего времени они вели отчаянную борьбу за Шару – долю популярности на игровом рынке, но стараниями хозяйки Планептуна, богини Пурпурное Сердце, был заключен мир. Лидеры воюющих сторон договорились не отбирать Шару друг у друга, а множить ее общими усилиями, (   Читать дальше...   )Производство: David Production / デイヴィッドプロダクションЖанр: приключения, фэнтези, комедия, фантастика, махо-сёдзёРежиссер: Мукай МасахироПеревод: Koushin & Shifroval (эп. 01-08), Shegann (эп. 09-12), Endil & Flusszerfall (спешиал)Язык озвучки: японский, русскийСубтитры: русские (полные, надписи)Продолжительность: 12 эп. по 25 мин. + 1 спешиал на 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9615B56BB27A6AC0943DD811CB644C8466C70F
 ```
 
 https://mybot314.ru/tekegram_catalog/

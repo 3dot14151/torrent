@@ -1,3 +1,61 @@
+###  Публикация: 1129949   (718836) от 30.04.2017
+
+VA - Electro House Party (2017) [MP3|320 Kbps] <Electro House , Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axwell О  Ingrosso & Kid Ink - I Love You 3:11
+002. Lost Frequencies fet.Axel - All Or Nothing 2:38
+003. Eff That - Got The Bass Bumpin (Original Mix) 3:38
+004. Boehm feat. Brandyn Burnette - Let's Give It A Shot feat. Brandyn Burnette (Original Mix) 3:07(   Читать дальше...   )Жанр: Electro House , Club HouseПродолжительность: 07:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE27EC9841D3F4C50914011D84888C4EDDB86087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129953   (718824) от 30.04.2017
+
+VA - Forgotten Memories: Dubstep Trap Bass (2017) [MP3|244-320 Kbps] <Dubstep, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Keywave - Baby Come Back 2:57
+002. Clang Of Beats - Sleepless Night (First Mix) 6:24
+003. Dj Emho - New World 4:07
+004. Gijs De Mik Feat. Lucy Bosman - Our Love Is Dead (D-Force Mix) 4:57(   Читать дальше...   )Жанр: Dubstep, ElectronicПродолжительность: 08:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928CC9EC85E5094FAFB8A98172EF7697E32C99D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285567   (718818) от 27.02.2019
 
 VA - Vocal The Air Trance (2019) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Vocal The Air Trance (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718818.jpg" />
+  <img src="Z:/picture/008/save_picture_718818.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Melodic Therapy (2019) [MP3|320 Kbps] <Melodic Techno, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718815.jpg" />
+  <img src="Z:/picture/008/save_picture_718815.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Digital Infinity - Digital Infinity (2022) by Gertrudda [MP3|320 Kbps] <Synthwav
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718714.jpg" />
+  <img src="Z:/picture/008/save_picture_718714.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Deluxe Drum And Bass (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718702.jpg" />
+  <img src="Z:/picture/008/save_picture_718702.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart #484 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718612.jpg" />
+  <img src="Z:/picture/008/save_picture_718612.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Neuro House Version Driver (2016) [MP3|264-320 кб/с] <Electronic, House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718259.jpg" />
+  <img src="Z:/picture/008/save_picture_718259.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Lounge - The Art of Relaxation (2016) [MP3|320 кб/с] <Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718162.jpg" />
+  <img src="Z:/picture/008/save_picture_718162.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Trance  Pack (01.05.) (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716889.jpg" />
+  <img src="Z:/picture/008/save_picture_716889.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Endless Melodies Lights (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Me
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716802.jpg" />
+  <img src="Z:/picture/008/save_picture_716802.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Empire  Records: Chill Trance 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716788.jpg" />
+  <img src="Z:/picture/008/save_picture_716788.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - LUXEmusic - Dance Super Chart Vol.116 (2017) [MP3|320 Kbps] <Club House, De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716654.jpg" />
+  <img src="Z:/picture/008/save_picture_716654.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Tech House: Sound Pack #407 (2022) [MP3|320 Kbps] <Techno, Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716626.jpg" />
+  <img src="Z:/picture/008/save_picture_716626.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Synth Electronic: Sound Pack #406 (2022) [MP3|320 Kbps] <Electroni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716503.jpg" />
+  <img src="Z:/picture/008/save_picture_716503.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Beatport Chill Electronic: Sound Pack #405 (2022) [MP3|320 Kbps] <Electroni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716396.jpg" />
+  <img src="Z:/picture/008/save_picture_716396.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Surfer's Disco Waves (2016) [MP3|320 кб/с] <House, Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716141.jpg" />
+  <img src="Z:/picture/008/save_picture_716141.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Sky Air Trance: Progressive Session (2016) [MP3|320 кб/с] <Progressive T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716140.jpg" />
+  <img src="Z:/picture/008/save_picture_716140.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Ultimate Summer Trance: SunLight Project (2016) [MP3|320 кб/с] <Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716133.jpg" />
+  <img src="Z:/picture/008/save_picture_716133.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Chill Vibes (2016) [MP3|320 кб/с] <Deep House, Electro pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716131.jpg" />
+  <img src="Z:/picture/008/save_picture_716131.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Vision Of The Future (Compiled by Breeeze) (2016) [MP3|320 кб/с] <House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716037.jpg" />
+  <img src="Z:/picture/008/save_picture_716037.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Spencer Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715950.jpg" />
+  <img src="Z:/picture/008/save_picture_715950.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715843.jpg" />
+  <img src="Z:/picture/008/save_picture_715843.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ DJ Vlad Kardash - The best (2013) [MP3|320 кб/с]<Dubstep, House, Club.Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715790.jpg" />
+  <img src="Z:/picture/008/save_picture_715790.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ VA - Сочный Басс [Sound Clinic - Bass Edition] (2018) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715628.jpg" />
+  <img src="Z:/picture/008/save_picture_715628.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ VA - Без Тормозов vol.1 (2015) [MP3|320 кб/с]<Hardstyle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715208.jpg" />
+  <img src="Z:/picture/008/save_picture_715208.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ VA - Без Тормозов vol.1 (2015) [MP3|320 кб/с]<Hardstyle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B157FA02F47CC6CDB67E340A0EB45F3F223DA3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532248   (714743) от 19.02.2022
-
-VA - Urban Night: Electro House Session (2022) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконы танцевальной музыки и выдающиеся музыкальные продюсеры объединили свои усилия для создания насыщенной энергией танцевальной сессии под названием "Urban Night". Массивный набор лонгплея включает в себя готовые к фестивалю 120 треков, охватывающие пульсирующие синтезаторы, мощные барабаны, бесстрашные басы и многое другое!001. Satoshi Fumi - Monday Trip
-002. Sam Thomas - How It Used To Feel
-003. Juah - Leaving Berlin
-004. Emuser - Save You(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961C8E93FD5D024F7F30591271BEEC0F07E54BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532424   (714741) от 19.02.2022
-
-VA - Funky House Bass Winter (2022) [MP3|320 Kbps] <House, Funky, Groove>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Crown - Feel Alive (Dub Mix)
-02. Phill Steiner - Disco Stab (Original Mix)
-03. House Shifters - Twerk It (Dub Mix)
-04. David Fuldner - I Like It (Original Mix)(   Читать дальше...   )Жанр: House, Funky, GrooveПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218C390668F68640709EABDEC5ECDA39B36BB0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

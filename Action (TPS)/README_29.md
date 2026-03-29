@@ -1,3 +1,159 @@
+###  Публикация: 1326349   (386561) от 19.09.2019
+
+Devil's Hunt (2019) [Ru/Milti] (1.0) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_386561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот боевик от третьего лица, созданный по роману Павла Лесняка "Эквилибриум", посвящен вечной борьбе между силами добра и зла. Ангелы и демоны готовятся к эпической битве, полем которой станет наш мир. Вы - Десмонд, единственный человек, способный изменить расстановку сил в пользу одной из сторону. От вас зависит судьба человечества и мироздания в целом. (   Читать дальше...   )Тип издания: RepackРазработчик: Layopi GamesЖанр: Экшн, От третьего лица, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D5669CA49A0C107246D75768F75F08E5FC5061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253169   (385233) от 08.10.2018
+
+Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие в Red Faction: Guerrilla разворачивается спустя 50 лет после событий первой части игры. На этот раз игроку предстоит оказаться в роли повстанца из воссозданной вновь Красной бригады, сражающегося за свободу с Силами Обороны Земли (СОЗ).Тип издания: RepackРазработчик: Volition, KAIKOЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B3EDF1A89FCC99BC59CFA58C924A202DA222BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182150   (385116) от 08.10.2018
+
+Absolver (2017) [Ru/Multi] (1.25/dlc) Repack R.G. Catalyst [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absolver — сетевые многопользовательские сражения, где игроки скрываются под масками Претендентов по воле вездесущих Проводников, новых правителей падшей империи Адал, которые решают, достойны ли вы пополнить ряды их элитного корпуса силовиков.Тип издания: RepackРазработчик: SloclapЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77D64A21500F41455E93D06061CD66723DBB270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174549   (384542) от 15.10.2017
+
+The Evil Within 2 (2017) [Ru/En] (1.0/dlc) Repack R.G. Revenants
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_384542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Себастьян Кастелланос потерял все. В том числе дочь Лили. Чтобы спасти ее, он соглашается войти в мир кошмаров и выполнить задание «Мебиуса», тайной организации, которая до основания разрушила его прошлую жизнь.Тип издания: RepackРазработчик: Tango GameworksЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B4E3954AE222220B8E00CEB8649A0F34411338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171023   (384497) от 20.09.2019
+
+Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_384497.jpg" />
+</div>
+
+
+###  Подробнее
+
+В качестве командира заново сформированного элитного подразделения «Четвертый эшелон», подчиненного напрямую президенту США, Сэму предстоит уничтожить террористов и остановить их смертоносные планы.Тип издания: RipРазработчик: Ubisoft Toronto, Ubisoft Montreal, Ubisoft ShanghaiЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EF7B3BCA769EDD7C2064F5893A358F1ED2B3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174976   (382365) от 16.10.2017
+
+ECHO (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_382365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя столетие, проведённое в стазисе, девушка Эн (озвучена Лесли Роуз, Игритт из сериала "Игра престолов") наконец достигла своего назначения: Дворец из легенд – чудо, оставленное древними цивилизациями, жившими эоны назад, где до сего момента не ступала нога человека. Здесь, используя давно забытые технологии, она надеется возродить жизнь, которая не (   Читать дальше...   )Тип издания: RepackРазработчик: ULTRA ULTRAЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Французский, НемецкийЯзык интерфейса: Русский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3086D163A257E7A6157F0A26BB0C8A525034B62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572533   (382310) от 09.11.2012
 
 James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
@@ -6,7 +162,7 @@ James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382310.jpg" />
+  <img src="Z:/picture/008/save_picture_382310.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Advent Rising (2005) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381952.jpg" />
+  <img src="Z:/picture/008/save_picture_381952.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381938.jpg" />
+  <img src="Z:/picture/008/save_picture_381938.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Through the Woods (2016) [Ru/Multi] (1.0/u1) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381823.jpg" />
+  <img src="Z:/picture/008/save_picture_381823.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.3/dlc) License PLAZA [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381242.jpg" />
+  <img src="Z:/picture/008/save_picture_381242.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ The Amazing Spider Man 2 / Новый Человек-паук (2014) [Ru/Multi] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381128.jpg" />
+  <img src="Z:/picture/008/save_picture_381128.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Resident Evil 3 (2020) [Ru/Multi] (5269288/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380294.jpg" />
+  <img src="Z:/picture/008/save_picture_380294.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Rogue Trooper Redux (2017) [Multi] (5560) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378048.jpg" />
+  <img src="Z:/picture/008/save_picture_378048.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab [Episodes 1-4]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377990.jpg" />
+  <img src="Z:/picture/008/save_picture_377990.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Bayonetta (2017) [Ru/En/Jp] (1.01) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375707.jpg" />
+  <img src="Z:/picture/008/save_picture_375707.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Resident Evil HD Remaster (2015) [Ru] (1.0) Rip xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375705.jpg" />
+  <img src="Z:/picture/008/save_picture_375705.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru/En] (RePack/1.04) 2010 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374770.jpg" />
+  <img src="Z:/picture/008/save_picture_374770.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Resident Evil 4: Ultimate HD Edition (2014) [Ru] (1.06) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373573.jpg" />
+  <img src="Z:/picture/008/save_picture_373573.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ Hitman (2016) [Ru/Multi] (1.12.2/dlc) Repack R.G. Catalyst [The Complete First S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371348.jpg" />
+  <img src="Z:/picture/008/save_picture_371348.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ Tom Clancy's Splinter Cell: Double Agent [Ru/En] (Rip/1.02a) 2006 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369712.jpg" />
+  <img src="Z:/picture/008/save_picture_369712.jpg" />
 </div>
 
 
@@ -406,7 +562,7 @@ Assassin's Creed (2008) [Ru] (1.02) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369278.jpg" />
+  <img src="Z:/picture/008/save_picture_369278.jpg" />
 </div>
 
 
@@ -432,7 +588,7 @@ WARRIORS OROCHI 4 (2018) [Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367605.jpg" />
+  <img src="Z:/picture/008/save_picture_367605.jpg" />
 </div>
 
 
@@ -458,7 +614,7 @@ Resident Evil 2 Seamless HD Project (1998) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365096.jpg" />
+  <img src="Z:/picture/008/save_picture_365096.jpg" />
 </div>
 
 
@@ -484,7 +640,7 @@ Tom Clancy's Splinter Cell: Chaos Theory [Ru/En] (Rip/1.05) 2005 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364865.jpg" />
+  <img src="Z:/picture/008/save_picture_364865.jpg" />
 </div>
 
 
@@ -511,7 +667,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129/dlc) Repack xatab [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364708.jpg" />
+  <img src="Z:/picture/008/save_picture_364708.jpg" />
 </div>
 
 
@@ -522,164 +678,6 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129/dlc) Repack xatab [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23BCDD4D859019E028AE5EB669040232235FAF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328388   (362646) от 30.09.2019
-
-Resident Evil 3 Seamless HD Project (2000) [En] (1.0) Repack/Mod Andriel
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362646.jpg" />
-</div>
-
-
-###  Подробнее
-
-События Resident Evil 3 разворачиваются спустя некоторое время после инцидента в Арклейском лесу (Resident Evil 1) и параллельно происходящему в Resident Evil 2. Одни из немногочисленных выживших в кошмаре в арклейских горах Джилл Валентайн и ее товарищи вернулись в город Раккун-Сити, чтобы предупредить городские власти об опасности и рассказать правду о нелегальных (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Capcom EntertainmentЖанр: Survival Horror, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFD471FB15903DE8346EB47A8C47B4D365453D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177439   (362436) от 25.10.2017
-
-Alan Wake's American Nightmare (2012) [Ru/En] (1.03.17.1893) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот раз Алан Уэйк сразится с мистером Скрэтчем, вестником тьмы! Новый захватывающий сюжет, орды ужасающих врагов, серьезное оружие и прекрасные пейзажи Аризоны, а также увлекательный новый режим станут настоящим подарком для фанатов Алана Уэйка, а для всех остальных — отличной возможностью познакомиться с историей писателя.Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB890AA14BF63057400678EDBA45AB991F0F2133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177434   (362302) от 25.10.2017
-
-Alan Wake (2012) [Ru/En] (1.06.18.1326) Repack xatab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры — писатель Алан Уэйк, признанный мастер триллеров, переживает творческий кризис. В поисках вдохновения он отправляется вместе с невестой в тихий городок Брайт Фоллз. Однако там возлюбленная Алана таинственным образом исчезает, и начинается череда леденящих кровь кошмаров.Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F31610910D471C8C6B808699A9FDBC2FCD9AF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836560   (360533) от 01.11.2014
-
-American McGee's Alice Dilogy (2000-2011) [Ru/En] Repack R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice - это необычный 3D-шутер от 3-го лица, основанный на всемирно известных произведениях Льюиса Кэрролла. Съехавшая с катушек Алиса вернулась в мир сказок и совершенно не узнала его - вокруг смерть, страх и разруха. Взяв в руки необычное оружие, Алиса с помощью неуловимого Чеширского Кота и чокнутого Белого Кролика начинает освобождение этого странного мира от владычества злобной Червонной Королевы. На ее пути станут стражнки-карты, шахматные фигуры, детеныши Бармаглота, а также перверсийные двойники персонажей кэрроловской "Алисы": Шляпник, близнецы Труляля и Траляля, Герцогиня и многие другие. Прекрасные ландшафты Страны Чудес чередуются с психоделическими уровнями в сюрреалистическом пространстве. Это самая необычная трактовка классической сказки для взрослых!(   Читать дальше...   )Тип издания: RepackРазработчик: Spicy HorseЖанр: Third-person Action / Adventure / PlatformerЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E3CB5345CD00EC9E440FD459B31B17B4ABB0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576418   (359587) от 18.11.2012
-
-Bionic Commando [Ru/En/Multi] (RePack) 1988 - 2009 | R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное военное подразделение, в котором состоял Натан Спенсер, после успешного выполнения последней миссии было признано правительством слишком опасным. Легендарного бойца арестовали и приговорили к смертной казни…
-
-  Однако в роковой день некая террористическая группа привела в действие мощное экспериментальное оружие, вызвав в городе страшное землетрясение, которое превратило здания в руины и уничтожило большую часть населения. Министры в панике: цель террористов неизвестна, разрушенный город под их контролем. Правительство вынуждено сменить гнев на милость и, принеся герою извинения, дать ему задание исправить сложившуюся ситуацию.(   Читать дальше...   )Тип издания: RePackЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Японский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3289C34F47834A9DFE6B16376FBA00A320535FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234622   (358169) от 20.10.2018
-
-Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие в Red Faction: Guerrilla разворачивается спустя 50 лет после событий первой части игры. На этот раз игроку предстоит оказаться в роли повстанца из воссозданной вновь Красной бригады, сражающегося за свободу с Силами Обороны Земли (СОЗ).Тип издания: RepackРазработчик: Volition, KAIKOЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B8D9A794698D2556E262028BDF27DB5674D33E
 ```
 
 https://mybot314.ru/tekegram_catalog/

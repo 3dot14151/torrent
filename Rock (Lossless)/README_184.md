@@ -1,3 +1,148 @@
+###  Публикация: 1792215   (67677) от 19.04.2025
+
+Legacy Pilots - Night Flight (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days (Live) [00:05:05]
+02. Nemesis (Live) [00:04:24]
+03. Ghosts of the Ocean (Live) [00:05:00]
+04. True Spirit (Live) [00:05:29](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794CA643B7964006A4A206DB8097E193ADA08B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792550   (67667) от 19.04.2025
+
+Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitch (4:13)
+02. Bad Bad One (4:46)
+03. Shatter (4:00)
+04. Queen Latifah - Lay Down (Candles In The Rain) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB47C5D484FE67266D0AFFEBAB187A76F23123FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792771   (67635) от 20.04.2025
+
+T. Rex - Bolan B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cadilac [03:53]
+02. Baby Strange [03:06]
+03. Lady [02:15]
+04. Thunderwing [03:46](   Читать дальше...   )Жанр: RockПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2B3FC64293E713EEA25F9CA013395AF866A71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792990   (67568) от 22.04.2025
+
+Digital Life Project (DLP) - Digital Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Ashes [00:05:06]
+02. The Invention [00:03:44]
+03. Fight the Good Fight [00:06:40]
+04. Simple Complexity/Overture [00:05:26](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41AF7E7779C9D375A0835DC23C30A5830049A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793222   (67551) от 23.04.2025
+
+Brave Hearts Factory - Love Never Dies (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overture Among The Stars (04:37)
+ 02 - Don't Run Away (04:43)
+ 03 - Dreams Always Die At Dawn (04:57)
+ 04 - Emanuel (04:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDAC069CF576EB2B361098949B0ECD9C3495FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793394   (67471) от 25.04.2025
 
 Marco Maurizi - A Book of Prog Prayers (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +151,7 @@ Marco Maurizi - A Book of Prog Prayers (2025) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67471.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Cult - Electric Peace (2013) 2xCD, Reissue, Compilation [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67206.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -199
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67202.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Mittelalter Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67163.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Finch - Galleons Of Passion (1977) Japanese Edition, Reissue, Remastered, 2007, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67062.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Rei
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66916.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Elleven - 8030 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66845.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Twink - Think Pink (1970) Japanese Edition, Reissue, 2000, Akarma [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66778.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66616.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66614.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66576.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Jon Allen - Seven Dials (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66536.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Oresund Space Collective - Alotta Hella Down in Estrela (2025) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66493.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Clockwise - Healthy Manipulation (2002) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66336.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ IQ - Dominion (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66308.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Big Head Todd And The Monsters - Midnight Radio (1990) CD, Album, Reissue 1994 [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66296.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Alien Ant Farm - ANThology (2001) CD, Album [FLAC|Lossless|tracks + .cue] <Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66289.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Gemma Hayes - Night on My Side (2003) CD, Club Edition, Enhanced [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66286.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ The Kinks - Come Dancing With The Kinks: The Best of The Kinks 1977–1986 (1986
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66075.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Toad the Wet Sprocket - Fear (1991) [FLAC|Lossless|tracks + .cue] <Rock, Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66067.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66046.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85403B78138F74A53085B046C7DAF5DE16BA81C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802680   (66032) от 18.06.2025
-
-The Guildmaster - GATHERING OF SOULS (2025) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock, Celtic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crusade Of Earl Birger 5:50
-02. Where Are You? 10:30
-03. Omnis Saltat Ad Solem 5:56
-04. Blood And Oblivion 12:39(   Читать дальше...   )Жанр: Prog Rock, Symphonic Rock, CelticПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BCBB9A9A953D02BEC47621AC9E1196D015AC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802830   (65962) от 20.06.2025
-
-Gotham - Pictures (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [00:02:04]
-02. Dirty Love [00:03:31]
-03. Let It Go (Extended Mix) [00:04:46]
-04. Pictures [00:04:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AB3D41484B8EBBE0D8A5569A564E2C5A844B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803209   (65842) от 22.06.2025
-
-VA - Drum Nation (Volume 3) (2006) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Prog Rock, Progressive Metal, Experimental, Death Metal,>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jordan Mancino / Ahh - The Fade Out    [0:03:46.00]
-02. Chris Adler / The Near Dominance of 4 Against 5    [0:03:28.05]
-03. Jeremy Colson / Fluoxetine    [0:06:33.49]
-04. Justin Foley / Up and Atom    [0:05:42.13](   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Experimental, Death Metal,Продолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D2921BD7AB82AD367B3D7F9201F3B44A5296C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803189   (65839) от 22.06.2025
-
-Spanish Gold - South Of Nowhere (2014) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Track Mind    [0:04:32.40]
-02. South Of Nowhere    [0:03:32.19]
-03. Out On The Street    [0:03:08.37]
-04. Movin On    [0:02:58.39](   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB9C8026EE19F4995253C84D42B2826FE9BF223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803191   (65837) от 22.06.2025
-
-Russell Morris - The Very Best of Russell Morris (2013) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hide and Seek    [0:02:00.18]
-02. The Real Thing    [0:06:22.26]
-03. Part 3: Into Paper Walls    [0:07:02.16]
-04. Only a Matter of Time    [0:03:01.54](   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49D821DB73CF381A2CB492C60D930A3FBE33624
 ```
 
 https://mybot314.ru/tekegram_catalog/

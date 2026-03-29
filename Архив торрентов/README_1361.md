@@ -6,7 +6,7 @@ Ultra Mood - Artifacts of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745509.jpg" />
+  <img src="Z:/picture/008/save_picture_745509.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Registry Life 5.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745504.jpg" />
+  <img src="Z:/picture/008/save_picture_745504.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.70 Build 2222 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745502.jpg" />
+  <img src="Z:/picture/008/save_picture_745502.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1804 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745498.jpg" />
+  <img src="Z:/picture/008/save_picture_745498.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Deckset: Turn your notes into beautiful presentations 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745473.jpg" />
+  <img src="Z:/picture/008/save_picture_745473.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ BusinessTasks - Tasks, Notes & Todos Manager 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745469.jpg" />
+  <img src="Z:/picture/008/save_picture_745469.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ JumpShare 2.0.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745465.jpg" />
+  <img src="Z:/picture/008/save_picture_745465.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Interactive Noise - The Nine Stories (2016) [MP3|320 кб/с] <Progressive Psy-T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745459.jpg" />
+  <img src="Z:/picture/008/save_picture_745459.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Metal For The Masses VIII (2 CD) (2016) [FLAC|Lossless|image + .cue] <Hardc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745458.jpg" />
+  <img src="Z:/picture/008/save_picture_745458.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Opera 69.0.3686.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745447.jpg" />
+  <img src="Z:/picture/008/save_picture_745447.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Athentech Perfectly Clear Complete 3.10.0.1804 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745444.jpg" />
+  <img src="Z:/picture/008/save_picture_745444.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745412.jpg" />
+  <img src="Z:/picture/008/save_picture_745412.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Say Anything - Oliver Appropriate (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745410.jpg" />
+  <img src="Z:/picture/008/save_picture_745410.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745402.jpg" />
+  <img src="Z:/picture/008/save_picture_745402.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745397.jpg" />
+  <img src="Z:/picture/008/save_picture_745397.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745391.jpg" />
+  <img src="Z:/picture/008/save_picture_745391.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ iFlicks 2 v2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745389.jpg" />
+  <img src="Z:/picture/008/save_picture_745389.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Adobe AIR 21.0.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745387.jpg" />
+  <img src="Z:/picture/008/save_picture_745387.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VueScan Pro 9.5.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745386.jpg" />
+  <img src="Z:/picture/008/save_picture_745386.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ CocCoc 55.2.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745385.jpg" />
+  <img src="Z:/picture/008/save_picture_745385.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ RapidWeaver 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745383.jpg" />
+  <img src="Z:/picture/008/save_picture_745383.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Pixelmator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745381.jpg" />
+  <img src="Z:/picture/008/save_picture_745381.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ QQ Browser 9.4.8030.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745380.jpg" />
+  <img src="Z:/picture/008/save_picture_745380.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ AnyMP4 Video Converter Ultimate 7.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745379.jpg" />
+  <img src="Z:/picture/008/save_picture_745379.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ SQL Dynamite 1.9.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745377.jpg" />
+  <img src="Z:/picture/008/save_picture_745377.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745376.jpg" />
+  <img src="Z:/picture/008/save_picture_745376.jpg" />
 </div>
 
 

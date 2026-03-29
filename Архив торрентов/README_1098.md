@@ -6,7 +6,7 @@ CCleaner 5.17.5590 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797596.jpg" />
+  <img src="Z:/picture/008/save_picture_797596.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797595.jpg" />
+  <img src="Z:/picture/008/save_picture_797595.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ YouTube Video Downloader PRO 5.5 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797594.jpg" />
+  <img src="Z:/picture/008/save_picture_797594.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WinToUSB Enterprise 2.9 Release 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797592.jpg" />
+  <img src="Z:/picture/008/save_picture_797592.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Multitouch 1.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797590.jpg" />
+  <img src="Z:/picture/008/save_picture_797590.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PhotosCollage 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797587.jpg" />
+  <img src="Z:/picture/008/save_picture_797587.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla Firefox 46.0 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797578.jpg" />
+  <img src="Z:/picture/008/save_picture_797578.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797577.jpg" />
+  <img src="Z:/picture/008/save_picture_797577.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Vivaldi 1.1.453.47 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797570.jpg" />
+  <img src="Z:/picture/008/save_picture_797570.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Windows 10 Manager 1.1.2 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797568.jpg" />
+  <img src="Z:/picture/008/save_picture_797568.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ eBookBinder 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797563.jpg" />
+  <img src="Z:/picture/008/save_picture_797563.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dato 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797558.jpg" />
+  <img src="Z:/picture/008/save_picture_797558.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DVD-Cloner 2021 v8.40.726 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797557.jpg" />
+  <img src="Z:/picture/008/save_picture_797557.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HOSH - Live @ Avala Tower Plateau, Serbia (2021-08-14) [MP3|320 Kbps] <Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797555.jpg" />
+  <img src="Z:/picture/008/save_picture_797555.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ CCleaner 5.17.5590 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797545.jpg" />
+  <img src="Z:/picture/008/save_picture_797545.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Format Factory 3.9.0 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797543.jpg" />
+  <img src="Z:/picture/008/save_picture_797543.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797542.jpg" />
+  <img src="Z:/picture/008/save_picture_797542.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797538.jpg" />
+  <img src="Z:/picture/008/save_picture_797538.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Dash 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797529.jpg" />
+  <img src="Z:/picture/008/save_picture_797529.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797528.jpg" />
+  <img src="Z:/picture/008/save_picture_797528.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Default Folder X 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797521.jpg" />
+  <img src="Z:/picture/008/save_picture_797521.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dark Reader for Safari 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797513.jpg" />
+  <img src="Z:/picture/008/save_picture_797513.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ ON1 Photo RAW 2022 v16.0.1.11212 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797511.jpg" />
+  <img src="Z:/picture/008/save_picture_797511.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ zGallery – Image Viewer 4.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797507.jpg" />
+  <img src="Z:/picture/008/save_picture_797507.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ AIMP 5.00.2342 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797504.jpg" />
+  <img src="Z:/picture/008/save_picture_797504.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Conarium (Compiled by DJ Rezuk) (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797498.jpg" />
+  <img src="Z:/picture/008/save_picture_797498.jpg" />
 </div>
 
 

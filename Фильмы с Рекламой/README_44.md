@@ -1,3 +1,29 @@
+###  Публикация: 1233063   (593594) от 28.06.2018
+
+Дарк / Darc (2018) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы разнести международную сеть работорговцев, Интерполу нужен новый герой. Шеф одного из отделов Интерпола вербует брутального разбойника, дабы проникнуть в самое сердце Якудзы и уничтожить ее.Производство: США / Hollywood Media Bridge, Julius R. Nasso ProductionsЖанр: ТриллерРежиссер: Джулиус Р. НассоАктеры: Тони Шина, Арманд Ассанте, Киппэй Сина, Тэцу Ватанабэ, Виенна Хехир, Сё Икусима, Доун Оливери, Кеван Охтци, Каси Райн МазакПеревод: Многоголосый закадровый, любительский (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:36:49Реклама: Присутствуют вставки аудио и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52B7B801264027271FA086E66AAA5CB4487F590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300526   (593084) от 06.05.2019
 
 Я просто прикалываюсь / I'm Just F*cking With You (2019) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593084.jpg" />
+  <img src="Z:/picture/008/save_picture_593084.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593065.jpg" />
+  <img src="Z:/picture/008/save_picture_593065.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592860.jpg" />
+  <img src="Z:/picture/008/save_picture_592860.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592699.jpg" />
+  <img src="Z:/picture/008/save_picture_592699.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592682.jpg" />
+  <img src="Z:/picture/008/save_picture_592682.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592580.jpg" />
+  <img src="Z:/picture/008/save_picture_592580.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592414.jpg" />
+  <img src="Z:/picture/008/save_picture_592414.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592403.jpg" />
+  <img src="Z:/picture/008/save_picture_592403.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592035.jpg" />
+  <img src="Z:/picture/008/save_picture_592035.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591503.jpg" />
+  <img src="Z:/picture/008/save_picture_591503.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587891.jpg" />
+  <img src="Z:/picture/008/save_picture_587891.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585991.jpg" />
+  <img src="Z:/picture/008/save_picture_585991.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585931.jpg" />
+  <img src="Z:/picture/008/save_picture_585931.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584989.jpg" />
+  <img src="Z:/picture/008/save_picture_584989.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584985.jpg" />
+  <img src="Z:/picture/008/save_picture_584985.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584912.jpg" />
+  <img src="Z:/picture/008/save_picture_584912.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584905.jpg" />
+  <img src="Z:/picture/008/save_picture_584905.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584512.jpg" />
+  <img src="Z:/picture/008/save_picture_584512.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582749.jpg" />
+  <img src="Z:/picture/008/save_picture_582749.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582023.jpg" />
+  <img src="Z:/picture/008/save_picture_582023.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582022.jpg" />
+  <img src="Z:/picture/008/save_picture_582022.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582013.jpg" />
+  <img src="Z:/picture/008/save_picture_582013.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581080.jpg" />
+  <img src="Z:/picture/008/save_picture_581080.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581070.jpg" />
+  <img src="Z:/picture/008/save_picture_581070.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581069.jpg" />
+  <img src="Z:/picture/008/save_picture_581069.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F070CD28CFB41066F8EE47060DB10331B5921C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302350   (581067) от 15.05.2019
-
-Фуга / Fuga (2018) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алисия потеряла память и даже не знает, как именно. Два года она тщательно выстраивала для себя новую жизнь вдали от всех. Она явно не торопится вспоминать прошлое. Но, когда Алисию все-таки находит ее семья, она вынуждена вновь стать матерью, дочерью, женой, только вот окружают ее, такое ощущение, сплошные незнакомцы.Производство: Польша, Чехия, Швеция / MD4, Axman Productions, Common Ground PicturesЖанр: Триллер, драма, детективРежиссер: Агнешка СмочиньскаАктеры: Габриэла Мускала, Лукаш Симлат, Малгожата Бучковска, Петр Скиба, Галина Расяковна, Збигнев Валерысь, Дариуш Хойнацкий, Иво Райски, Клара Бьелавка, Эва БлащикПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:37:14Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BE73A4531E43C58EB33E385CD108438EA3B02F
 ```
 
 https://mybot314.ru/tekegram_catalog/

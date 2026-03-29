@@ -1,3 +1,90 @@
+###  Публикация: 1580329   (330888) от 01.10.2022
+
+Autopsy - Morbidity Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stab the Brain [00:03:15]
+02. Final Frost [00:04:09]
+03. The Voracious One [00:04:26]
+04. Born in Blood [00:03:47](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A503A485D429795388D84612435AAE079C67AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580345   (330885) от 01.10.2022
+
+Lord of Confusion - Evil Mystery (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Mystery [00:08:16]
+02. Howling Void [00:08:01]
+03. Interlude [00:01:38]
+04. Evil Blood [00:06:37](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CC2586C351FF4A51F4C892D44F63AC1919B8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580358   (330881) от 01.10.2022
+
+Quantum Twilight - Hypersonic Demolition (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Surrender [00:04:38]
+02. Champions [00:05:11]
+03. Intergalactic Onslaught [00:06:53]
+04. Beyond The Walls [00:07:14](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BA73F4437887EFF61ABCB980AC39AFE186B693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580236   (330879) от 01.10.2022
 
 Infidel Rising - A Complex Divinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressive Metal>
@@ -6,7 +93,7 @@ Infidel Rising - A Complex Divinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Power,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330879.jpg" />
+  <img src="Z:/picture/008/save_picture_330879.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Swallow The Sun - Songs From The North I, II & III (2015) Special Box Set Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330208.jpg" />
+  <img src="Z:/picture/008/save_picture_330208.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Allen/Olzon - Army Of Dreamers (2022) [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329982.jpg" />
+  <img src="Z:/picture/008/save_picture_329982.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Moonspell - From Down Below - Live 80 Meters Deep (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329762.jpg" />
+  <img src="Z:/picture/008/save_picture_329762.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Butchery - Ferocious Rampage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329062.jpg" />
+  <img src="Z:/picture/008/save_picture_329062.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Runelord - The Battle For Greatness (2018) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329061.jpg" />
+  <img src="Z:/picture/008/save_picture_329061.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Acausal Intrusion - Seeping Evocation (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329060.jpg" />
+  <img src="Z:/picture/008/save_picture_329060.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Tankard - Pavlov's Dawgs (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329058.jpg" />
+  <img src="Z:/picture/008/save_picture_329058.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Dark Divine - Halloweentown (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329054.jpg" />
+  <img src="Z:/picture/008/save_picture_329054.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Rain Of Acid - Ghost Town (2014) [FLAC|Lossless|image + .cue] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328985.jpg" />
+  <img src="Z:/picture/008/save_picture_328985.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ice Howl - Darkness From Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328893.jpg" />
+  <img src="Z:/picture/008/save_picture_328893.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Condra - Aeonic Tempest from the Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328886.jpg" />
+  <img src="Z:/picture/008/save_picture_328886.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ The Halo Effect - Days Of The Lost (2022) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328796.jpg" />
+  <img src="Z:/picture/008/save_picture_328796.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Hexis - Aeternum (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore, Sl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328131.jpg" />
+  <img src="Z:/picture/008/save_picture_328131.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Preterist - Blood Moon Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328063.jpg" />
+  <img src="Z:/picture/008/save_picture_328063.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Cruz - Culto Abismal (2016) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327296.jpg" />
+  <img src="Z:/picture/008/save_picture_327296.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Cruz - Confines de la cordura (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327295.jpg" />
+  <img src="Z:/picture/008/save_picture_327295.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Archgoat - All Christianity Ends (2022) EP [FLAC|Lossless|tracks + .cue] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327292.jpg" />
+  <img src="Z:/picture/008/save_picture_327292.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Five Finger Death Punch - AfterLife (2022) [FLAC|Lossless|image + .cue] <Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327125.jpg" />
+  <img src="Z:/picture/008/save_picture_327125.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ Les Enfants de DAGON - De Profundis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326490.jpg" />
+  <img src="Z:/picture/008/save_picture_326490.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Korrosive - Toxic Apokalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326489.jpg" />
+  <img src="Z:/picture/008/save_picture_326489.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Desolate - Sanity Obliterated (2012) Compilation [FLAC|Lossless|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326488.jpg" />
+  <img src="Z:/picture/008/save_picture_326488.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Creepy Willie - The Creepy Willie Show (2022) [FLAC|Lossless|WEB-DL|tracks] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326487.jpg" />
+  <img src="Z:/picture/008/save_picture_326487.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Creepy Willie - The Creepy Willie Show (2022) [FLAC|Lossless|WEB-DL|tracks] <Exp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B84D52B5E51B5FB83F083E6ADD31F1214FCF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581281   (326486) от 06.10.2022
-
-Tomb Of Finland - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting for the End [00:04:53]
-02. Coffin Bound [00:05:39]
-03. Perpetual Entombment [00:04:14]
-04. Cursed Be the One [00:05:22](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA51A8B1482EB6F23152244CE7681F0B4F08794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581434   (326485) от 06.10.2022
-
-Krankheit - Gargantua (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gargantua [00:03:14]
-02. Kommunikation [00:03:08]
-03. Bett des Prokrustes [00:02:56]
-04. Des Kaisers neue Kleider [00:03:59](   Читать дальше...   )Жанр: Gothic Industrial MetalПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD94512C3A7932A50B3332404E73193E1840DFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581300   (326482) от 06.10.2022
-
-Rage - Spreading The Plague (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Live and to Die 04:07
-2. Spreading the Plague 04:27
-3. The King Has Lost His Crown 04:29
-4. A New Land (acoustic version) 03:29(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1101472088928D4FE188DC861F21EB7F3EF473E
 ```
 
 https://mybot314.ru/tekegram_catalog/

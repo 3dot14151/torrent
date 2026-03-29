@@ -1,3 +1,109 @@
+###  Публикация: 1673831   (163108) от 03.11.2023
+
+Audio Hijack 4.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 11.0 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8160420A4C9B2F6D7C4A4407B6EA35941E8D5F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673861   (163078) от 03.11.2023
+
+Steinberg Cubase Pro for Mac 13 v.13.0.10 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase 13 поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 Steinberg Media Technologies GmbH.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EA9CD3C8C59AF2F79D2CEA2ECA42D54A1F8612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432816   (163075) от 18.12.2020
+
+Adobe XD 35.2.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3897988A40349AAC08A9541318DF6389AA8980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432664   (163074) от 18.12.2020
+
+Cisdem PDF Password Remover 4 v4.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem PDF Password Remover - позволяет удалить пароль из PDF-документа и получить доступ к наиболее важным данным.
+Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет запрет на печать, копирование и редактирование. Тем не менее, это не будет проблемой, если у вас есть Cisdem PDF Password (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C40D3DB2ECDBD6DD873BAB266E1C87E32A31EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517374   (163070) от 15.12.2021
 
 Artstudio Pro 3.2.18 [En]
@@ -6,7 +112,7 @@ Artstudio Pro 3.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163070.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Adobe Animate 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163069.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Omni Recover 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163061.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Omni Toolbox 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163043.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ WonderPen 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163040.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ SyncBird Pro 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163035.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Pixelmator Pro 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163027.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Audirvana 3.5.43 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163017.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ Sketch 81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163016.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ Adobe Premiere Rush v1.5.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163014.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ PullTube 1.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163013.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ Network Kit 9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163009.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ PDF Search + PDF Converter 11.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163003.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ A Better Finder Rename 11 v11.41 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162998.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ Sketch 70.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162983.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162968.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ KCNcrew Pack 12-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162935.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ Monterey Cache Cleaner 17.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162928.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ Audiobook Builder 2 v2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162925.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ Adobe Substance 3D Sampler 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162920.jpg" />
 </div>
 
 
@@ -531,7 +637,7 @@ Adobe Media Encoder 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162910.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ Adobe Substance 3D Designer 11.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162895.jpg" />
 </div>
 
 
@@ -568,113 +674,6 @@ Adobe Substance 3D Designer 11.3.1 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:321358D5784D35480A70622222E63A8F07379B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517461   (162882) от 15.12.2021
-
-zCommander - File Manager for Mac 6.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162882.jpg" />
-</div>
-
-
-###  Подробнее
-
-zCommander - мощный, быстрый, функциональный, с удобным и симпатичным интерфейсом, менеджер файлов, который сделает процедуру управления файлами на вашем Mac простой и удобной, особенно для тех пользователей, какие совсем недавно перешли на платформу macOS.Тип издания: macOS SoftwareРелиз состоялся: 06.10.2021Разработчик: © 2021 woojooinПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский и Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C97E3224935A9F463FAC4702DC555C7569D677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517319   (162879) от 15.12.2021
-
-BusyContacts 1.6.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162879.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA35B2FAD1B34460E24FC76B5D45FF358B362BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517323   (162845) от 15.12.2021
-
-Do Your Data Recovery Pro 8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Do Your Data Recovery Professional – инструмент для быстрого восстановления удаленных или недоступных файлов.
-Do Your Data Recovery Professional – это простой в управлении и мощный инструмент для быстрого восстановления удаленных или недоступных файлов. Программа вернет утерянную информацию с ПК, ноутбука, жесткого диска, цифрового устройства, накопителя и т.д
-Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 DoYourDataПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BACEEF185B813AC34DCDD305B1A7135D7B04036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598535   (162752) от 19.12.2022
-
-iShot Pro-ScreenShot Recording 2.2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение iShot — отличное ПО для  скриншота области, окна, многооконный скриншота, скриншота оболочки, скриншот с интервальной съемкой, быстрая аннотация, текстура, выбор цвета, запись экрана, аудиозапись, оптическое распознавание символов, инструмент перевода скриншота на Мак.Тип издания: macOS SoftwareРелиз состоялся: 13.08.2022Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749B40E108B37B5D097AA691A5AD97B592F2D688
 ```
 
 https://mybot314.ru/tekegram_catalog/

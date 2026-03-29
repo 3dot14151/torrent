@@ -1,3 +1,110 @@
+###  Публикация: 1670913   (171726) от 22.10.2023
+
+Александр Островский | Бесприданница. Гроза. Без вины виноватые (2006) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, волнующие людей во все времена… (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, драмаИздательство: Студия «АРДИС»Продолжительность: 08:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BE98B1FA2685A0E1E9C5BF97D75AE606414ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 303720   (171667) от 22.10.2023
+
+Александр Островский | Правда - хорошо, а счастье лучше [2007] [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Литературные чтения.
+Комедия Александра Николаевича Островского «Правда – хорошо, а счастье лучше» – весёлая и мудрая история о том, что в жизни каждого человека есть место для счастья...ъЖанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 02:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887B9E5D6D3B841D5B31C1AA63E6975DFEAD0D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 303485   (171664) от 22.10.2023
+
+Александр Островский | Последняя жертва (2007) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Литературные чтения.
+Героиня пьесы Александра Николаевича Островского «Последняя жертва» - молодая вдова Юлия Тугина - полюбила негодяя, игрока и повесу Вадима Дульчина. Она потратила на него все свое состояние и теперь готова на «последнюю жертву» - отчаянный и унизительный шаг - идти к богатому купцу Прибыткову и просить у него деньги, чтобы спасти возлюбленного (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 03:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47573FCD270EA24C8A70A0C5B6F241398B191330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306531   (171663) от 22.10.2023
+
+Александр Островский | Бешеные деньги (2007) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Литературные чтения.
+Аудиокнига «Бешеные деньги», о нравах русского дворянства XIX века, удивительным образом перекликается с нравственными устоями и условиями жизни современной действительности. Красавица Лидия Чебоксарова привыкла тратить деньги без оглядки, и теперь, когда семья ее разорилась, остается только искать богатого жениха. Ухажеры девушки решают (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Студия «АРДИС»Продолжительность: 03:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073C1F1A99CE8C7ED34E087412687849DBB214CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 303319   (171660) от 22.10.2023
 
 Александр Островский | Волки и овцы (2007) [MP3, Станислав Федосов]
@@ -6,7 +113,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171660.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171654.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171652.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171643.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171641.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171636.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171549.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171465.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171400.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171312.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171208.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171136.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171133.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171124.jpg" />
 </div>
 
 
@@ -387,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171048.jpg" />
 </div>
 
 
@@ -414,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171045.jpg" />
 </div>
 
 
@@ -441,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171043.jpg" />
 </div>
 
 
@@ -469,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171036.jpg" />
 </div>
 
 
@@ -495,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170724.jpg" />
 </div>
 
 
@@ -522,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170715.jpg" />
 </div>
 
 
@@ -549,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170710.jpg" />
 </div>
 
 
@@ -575,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170696.jpg" />
 </div>
 
 
@@ -587,117 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EBE98BCCCFE907D695DFD34809446847C392102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358984   (170653) от 26.10.2023
-
-Антон Чехов | Рассказы (2006) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Библиотека школьника.
-«Рассказы» – самые веселые и трагичные, самые любимые с детства рассказы Антона Павловича Чехова – тонкого психолога и мастера подтекста, своеобразно сочетающего в своих произведениях воедино юмор, лиризм и драму…Жанр: Классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CB81818CB793328FE830F3ED2287D69C96E7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358970   (170645) от 26.10.2023
-
-Антон Чехов | Анна на шее. Избранные рассказы (2008) [MP3, Роман Стабуров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Аудиокнига. XIX век. Русская проза
-Антон Павлович Чехов (1860–1904) – непревзойденный мастер короткого рассказа, «драматург человеческих душ».
-Рассказы А.П. Чехова, вошедшие в эту книгу, лучшие образцы малой и средней прозы. При этом значительную часть их можно с полным основанием назвать маленькими романами. В этом уникальность чеховского таланта с его тонким (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: МедиаКнигаПродолжительность: 10:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30AF01B7BD70D272CB7977750E99DB6025EFAE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372825   (170617) от 26.10.2023
-
-Антон Чехов | Повести и рассказы (2002) [MP3, Владимир Самойлов и Валентина Кузнецова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: XIX век. Русская проза.
-Рассказы и повести А.П. Чехова, вошедшие в эту аудиокнигу – лучшие образцы малой и средней прозы. При этом значительную часть их можно с полным основанием назвать маленькими романами. В этом уникальность чеховского таланта с его тонким психологизмом, интонационным богатством, ненавязчивой иронией, яркой деталью.Жанр: Классика, поветь, рассказИздательство: Студия «АРДИС»Продолжительность: 13:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818F085F0DE9CD946581C8B579382605EB980D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354973   (170603) от 26.10.2023
-
-Денис Фонвизин, Александр Грибоедов, Николай Гоголь | Недоросль. Горе от ума. Ревизор (2003) [MP3, В. Герасимов, В. Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика. Литературные чтения.
-В аудиокнигу вошли произведения Д.И. Фонвизина «Недоросль», А.С. Грибоедова «Горе от ума» в исполнении Вячеслава Павловича Герасимова и комедия Н.В. Гоголя «Ревизор» в исполнении Владимира Ивановича Самойлова.
-
-Денис Иванович Фонвизин (1745–1792) – русский писатель.(   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 09:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14907FA91110C09498AC30E9BDC85BEC55BC48F
 ```
 
 https://mybot314.ru/tekegram_catalog/

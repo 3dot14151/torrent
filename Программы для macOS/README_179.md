@@ -1,3 +1,136 @@
+###  Публикация: 1701385   (116511) от 20.02.2024
+
+JixiPix Artista Impresso Pro 1.8.26 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте Импрессионистом и превратите свой снимок в написанное мазками произведение искусства.
+Импрессионизм - направление в искусстве последней трети девятнадцатого — начала двадцатого века, мастера которого, фиксируя свои мимолетные впечатления, стремились наиболее естественно и непредвзято запечатлеть реальный мир в его подвижности и изменчивости. Импрессионизм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54114DA702447F822278E4A0F8B4D78793E8687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701313   (116503) от 20.02.2024
+
+Markdown + 3.3.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактируйте, оформляйте, просматривайте и экспортируйте Markdown в macOS.Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2023 ENSILI.CO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F73139DDFFFEFA393105F1CFC8D7FB32177BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701349   (116488) от 20.02.2024
+
+Sound Siphon 3.6.7 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Siphon делает аудиовыход вашего Mac доступным в качестве устройства ввода звука. Приложение позволяет отправлять аудио из одного приложения в другое, где его можно обрабатывать, транслировать или записывать. Это так же просто, как выбрать микрофон в вашем любимом приложении. Sound Siphon работает с Core Audio, чтобы предоставить эту возможность всем вашим аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2022 Static Z SoftwareПоддерживаемая ОС: macOS 11.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5868AA128AB42F2D8574D6FFED5FC32EE3E93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701343   (116476) от 20.02.2024
+
+Iris 1.6.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iris — это высокопроизводительный экранный рекордер, который записывает в формате h.264. Iris использует ускорение встроенного графического процессора, если оно доступно. Дополнительно может включать видео с камеры и до двух микрофонов. Iris может бесплатно попробовать водяной знак, встроенный в записи.Тип издания: macOS SoftwareРелиз состоялся: 19.02.2024Разработчик: © 2023 Static Z SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0F77CA735BC1C2B7A0C8B9A77AA186F7DCEC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701563   (116385) от 21.02.2024
+
+Music Tag Editor Pro 7.5.3 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2013-2024 yumysoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F33C277BD0C76CBF2565FD6E482CB7A78F5A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701567   (116376) от 21.02.2024
 
 Path Finder 2168 [Multi/Ru]
@@ -6,7 +139,7 @@ Path Finder 2168 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116376.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ PhotoSweeper X 4.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116353.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116329.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ DirEqual 5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116328.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ Aiseesoft AnyCoord for Mac 1.0.36 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116193.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Final Draft 13 v.13.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116188.jpg" />
 </div>
 
 
@@ -166,7 +299,7 @@ Acorn 7 v.7.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116179.jpg" />
 </div>
 
 
@@ -193,7 +326,7 @@ AnyTrans for iOS 8.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116072.jpg" />
 </div>
 
 
@@ -220,7 +353,7 @@ Master of Typing 3 - Practice 15.14.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116010.jpg" />
 </div>
 
 
@@ -246,7 +379,7 @@ Iridient Developer for Mac 4.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115989.jpg" />
 </div>
 
 
@@ -272,7 +405,7 @@ TinkerTool System 7 v.7.98 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115988.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115986.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ Aiseesoft FoneEraser 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115977.jpg" />
 </div>
 
 
@@ -350,7 +483,7 @@ DRmare Tidal Music Converter 2.14.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114518.jpg" />
 </div>
 
 
@@ -376,7 +509,7 @@ Ulysses 33.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114512.jpg" />
 </div>
 
 
@@ -403,7 +536,7 @@ ProPresenter 7.16.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114489.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ GrandTotal 8.2.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114483.jpg" />
 </div>
 
 
@@ -459,7 +592,7 @@ CopyQ for Mac 7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114474.jpg" />
 </div>
 
 
@@ -485,7 +618,7 @@ iShowU Instant (Advanced) 1.4.19 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114473.jpg" />
 </div>
 
 
@@ -512,7 +645,7 @@ ServerCat for Mac 1.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114471.jpg" />
 </div>
 
 
@@ -540,7 +673,7 @@ iShowU Studio 2 v.2.3.14 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114469.jpg" />
 </div>
 
 
@@ -552,136 +685,6 @@ iShowU Studio предоставляет эффективные инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0F1818516272527F2B6EA253A3103C246FAC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704446   (114428) от 04.03.2024
-
-Tenorshare 4uKey - Password Manager 1.6.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114428.jpg" />
-</div>
-
-
-###  Подробнее
-
-4uKey -Password Manager упрощает поиск, восстановление, просмотр, экспорт и управление всеми вашими паролями на iPhone и iPad. Восстанавливает сохраненные пароли для входа на веб-сайт (например, недавно сбросили пароль для Twitter и забыли) или приложение Skype, WhatsApp, Youtube и т.д. Программа автоматически обнаружит ваше устройство и отобразит информацию об устройстве. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.18Разработчик: TenorshareПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E71B9FBF0B00AF0D512DD8F89DFDDA69BB57C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704415   (114421) от 04.03.2024
-
-Paste 4 for Mac 4.2.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2024Разработчик: © 2015-2024 Paste TeamПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150956839ADCD42AAE4098F981A446FF61026EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704475   (114349) от 04.03.2024
-
-Aiseesoft Audio Converter for Mac 9.2.22 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Audio Converter for Mac Конвертер аудио файлов, поддерживающий практически все распространенные форматы файлов, включая AAC, AC3, AIFF, AU, FLAC, MP3, M4A, OGG, WAV, WMA и т.д. Так же эта программа позволяет извлекать аудио-дорожки из видео-файлов в формате MPEG, MOV, MP4, M4V, RM, WMV, ASF, MKV, TS, MPV, AVI, 3GP, FLV и т.д. Помимо конвертирования аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF21D13DA1C0345E2BF0286E9CA817D3758268A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704419   (114341) от 04.03.2024
-
-Dropover Pro for Mac 4.13.2 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropover - это утилита, облегчающая управление и перемещение содержимого между папками, приложениями, окнами и рабочими пространствами с помощью Drag and Drop. Подвигайте курсор, чтобы загрузить утилиту и перетащите все, что перетаскиваете в полку. Эта полка плавает поверх всех остальных окон, что позволяет без труда перейти к целевой папке или программе. Это работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2024Разработчик: © 2024 Damir TursunovicПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12349F7E9DA96013485A814811270FA16E9F1875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704470   (114337) от 04.03.2024
-
-djay - DJ App & AI Mixer 5.1.3 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114337.jpg" />
-</div>
-
-
-###  Подробнее
-
-djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F01E11ADC81229E1627DC373C425EFBD764E51B
 ```
 
 https://mybot314.ru/tekegram_catalog/

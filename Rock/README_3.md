@@ -1,3 +1,32 @@
+###  Публикация: 1442833   (1036338) от 26.01.2021
+
+Be Cause - New Knights (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Me (04:32)
+ 02. Lilith (04:18)
+ 03. The Water's Gift (05:21)
+ 04. Once In A While (05:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02B376364FBAD38F0DACC5E83D02B9DFA74AD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443044   (1036040) от 27.01.2021
 
 Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
@@ -6,7 +35,7 @@ Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036040.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035779.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035469.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 70's Rock Classics (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034617.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Raven Sad - The Leaf And The Wing (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034456.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Besnard Lakes - The Besnard Lakes Are The Last of the Great Thunderstorm (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034235.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Phantom Scimitar - Electric Nemeton (2021) [MP3|320 Kbps] <Psychedelic Rock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034234.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Transatlantic - The Absolute Universe: Forevermore (2021) Extended Version, 2xCD
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033754.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Topas - Topas (1980) LP [MP3|320 Kbps] <Electronic, Krautrock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033683.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Michael Wynn Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Rock, Funk / So
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033205.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ RPWL - Crime Scene (2023) [MP3|320 Kbps] <Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033009.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Rolling Stones - Love (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032988.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Cros
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032752.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032588.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032566.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ God Is an Astronaut - Ghost Tapes #10 (2021) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032256.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032117.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Preview - Preview (1983) Reissue, 2006, Rock Candy [MP3|320 Kbps] <AOR, Melodic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031675.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ David Knopfler - Songs Of Loss And Love (2020) [MP3|320 Kbps] <Pop Rock, Country
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031656.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Bryan Hughes Group - Break the Rules (1990) [MP3|320 Kbps] <AOR, Melodic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031649.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030711.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The New Madness - After Hours (2020) [MP3|320 Kbps] <Classic Rock, Garage Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030444.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Amrakus - A Space Rock Opera (1982) LP [MP3|320 Kbps] <Electronic, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030244.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Whitesnake & Chris Collier - The BLUES Album (2020 Remix) (2021) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030144.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ M-Opus - At The Mercy Of Manannan (2023) [MP3|320 Kbps] <Progressive Rock, Symph
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030041.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ M-Opus - At The Mercy Of Manannan (2023) [MP3|320 Kbps] <Progressive Rock, Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:436A74C64F8B0E19764753213EEC3B647020A023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622910   (1029809) от 30.03.2023
-
-The Who & Isobel Griffiths Orchestra - Live At Wembley (2023) 2CD [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ball And Chain [04:37]
-02. The Real Me [04:12]
-03. I'm One [02:56]
-04. The Punk And The Godfather [05:12](   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F45C563D847CDF709D0E688AE2B8BC5C8063902
 ```
 
 https://mybot314.ru/tekegram_catalog/

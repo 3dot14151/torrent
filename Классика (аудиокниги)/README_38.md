@@ -1,3 +1,110 @@
+###  Публикация: 1833297   (246201) от 01.11.2025
+
+Михаил Булгаков | Самоцветный быт (2023) [MP3, Георгий Арсеньев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Эксклюзив: Русская классика.
+Михаил Афанасьевич Булгаков (1891–1940) – одна из самых ярких личностей в истории русской литературы. В своих ранних рассказах он дерзко и остроумно раскрывает тёмные стороны новой советской реальности.
+И всё это через призму ироничного юмора, драмы и абсурда!
+В сборник вошли ранние рассказы и фельетоны, написанные Михаилом (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ООО «Издательство АСТ»Продолжительность: 07:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E7B228A3FA76EDD94CDA4206AE55E3DA8CDABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623614   (245840) от 02.04.2023
+
+Константин Станюкович | Женитьба Пинегина. Американская дуэль. Пари (2013) [MP3, Александр Лазарев мл. и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245840.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Женитьба Пинегина" - Александр Иванович Пинегин, статный, высокий молодой человек лет тридцати, не торопился в это утро на службу. Погруженный в думы, он ходил взад и вперед по своей комнате в четвертом этаже большого дома, убранной по обычному шаблону меблированных комнат средней руки. Подбор книг в большом шкафу, два журнала на письменном столе и фотографии (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 04:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F202EFF22F3F33D2C3027C54BD6B30891CBDDD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566041   (245632) от 26.07.2022
+
+Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 663-713 (2022) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более позднего происхождения группа сказок сборника «Тысяча и одна ночь» – отражающих жизнь и быт средневекового арабского торгового города. Как это видно из некоторых топографических подробностей, действие в них разыгрывается главным образом в столице Египта – Каире. В основе эти новелл лежит обычно какая-нибудь трогательная любовная история, осложненная различными (   Читать дальше...   )Жанр: Зарубежная классика, Сказки, НовеллыПродолжительность: 04:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45DE00C619DB84C03D8F65E277D1468B31C8B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566447   (245050) от 29.07.2022
+
+Михаил Погодин | Сборник - Классика русского рассказа. (Выпуск 10) (2015) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию очередной сборник серии Классика русского рассказа. Как всегда, вас ждут аудиоверсии произведений лучших русских писателей в исполнении актеров театра и киноЖанр: Классика русского рассказаПродолжительность: 04:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAF6BE6826F015D499BA28A03AFAA506C3D59C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625108   (241488) от 09.04.2023
 
 Федор Достоевский | Братья Карамазовы (2023) [MP3, Всеволод Кузнецов]
@@ -6,7 +113,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241488.jpg" />
+  <img src="Z:/picture/004/save_picture_241488.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239838.jpg" />
+  <img src="Z:/picture/004/save_picture_239838.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238819.jpg" />
+  <img src="Z:/picture/005/save_picture_238819.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238143.jpg" />
+  <img src="Z:/picture/004/save_picture_238143.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238027.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237270.jpg" />
+  <img src="Z:/picture/005/save_picture_237270.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237244.jpg" />
+  <img src="Z:/picture/005/save_picture_237244.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236432.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235709.jpg" />
+  <img src="Z:/picture/004/save_picture_235709.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235137.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234597.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234581.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234532.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234508.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234492.jpg" />
 </div>
 
 
@@ -411,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234390.jpg" />
 </div>
 
 
@@ -437,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233309.jpg" />
+  <img src="Z:/picture/005/save_picture_233309.jpg" />
 </div>
 
 
@@ -463,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233090.jpg" />
+  <img src="Z:/picture/004/save_picture_233090.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233083.jpg" />
+  <img src="Z:/picture/004/save_picture_233083.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232463.jpg" />
+  <img src="Z:/picture/004/save_picture_232463.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232069.jpg" />
+  <img src="Z:/picture/005/save_picture_232069.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231865.jpg" />
 </div>
 
 
@@ -579,114 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6BB1AB5CB52582D7AA46B84CC6CBEA7423E2CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647437   (231623) от 18.07.2023
-
-Владимир Набоков | Камера Обскура (2013) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камера обскура" (1931, опубл. 1932-1933) - пятый русский роман Владимира Набокова и второй из трех его романов на "немецкую" тему. Берлинский искусствовед Бруно Кречмар, увлекшись бездарной шестнадцатилетней актриской Магдой Петерс, тайной любовницей художника Роберта Горна, бросает семью и вовлекается в глумливый околоартистический круг, не подозревая, (   Читать дальше...   )Жанр: Классическая проза, РоманИздательство: Нигде не купишьПродолжительность: 08:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE8C9D2F3B75521C4F71336D3CFE559861E0246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636454   (231611) от 30.05.2023
-
-Юкио Мисима | Золотой храм (2023) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231611.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1950 году в приступе безумия, молодой буддийский послушник поджигает знаменитый Золотой храм в Киото. Юкио Мисима был настолько потрясен случившимся, что позже превратил эту историю в роман, который не только считается вершиной творчества Мисимы, но и входит в число самых читаемых в мире произведений японской литературы.
-
-Молодой Мидзогути – сын бедного провинциального (   Читать дальше...   )Жанр: классическая прозаПеревод: Григорий ЧхартишвилиПродолжительность: 09:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AA6EB7C029FFB2045F30B0F5B103D709B39B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648267   (230974) от 22.07.2023
-
-Александр  Куприн | Суламифь (2007) [MP3, Алексей Россошанский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230974.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Были царства и цари, и от них не осталось и следа, как от ветра, пробежавшего над пустыней. Были длинные, беспощадные войны, после которых имена полководцев сияли в веках, точно кровавые звёзды; но время стёрло даже старую память о них».
-
-«Любовь же бедной девушки из виноградника и великого царя никогда не пройдёт и не забудется, потому что крепка, как смерть, любовь, (   Читать дальше...   )Жанр: литература 19 века, русская классикаИздательство: Литрес ПаблишингПродолжительность: 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C4A0E9A5CB13E7E4A444ED5629CDEB56F9FA4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637754   (230637) от 05.06.2023
-
-Пелам Гренвилл Вудхаус | Дела и приключения мистера Акриджа (2023) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позвольте представить – Стенли Федерстонхау Акридж. Великий интриган и отчаянно безалаберный тип, у которого никогда нет денег, зато полно уверенности в том, что вселенная обязательно позаботится о нем. Он никогда не унывает и всегда полон свежих идей: как завоевать мир или заработать миллион фунтов стерлингов. Уверены, с мистером Акриджем и захватывающими историями (   Читать дальше...   )Жанр: зарубежная классикаПродолжительность: 06:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19ECF98E406134547F5DCCF7AB38F7404509E88F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1822221   (100870) от 05.10.2025
+
+Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя геройская академия [ТВ-8] [2025, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если большинство людей владеет суперспособностями, то и воинов правосудия надо много. Школы для одаренных есть везде – а вот Идзуку Мидории, истовому фанату геройских дел, способностей не досталось, о чем он очень жалеет. Но ничего, судьба и храброе сердце однажды свели Мидорию с Всемогущим, сильнейшим героем на свете. Ветерану парень понравился – настолько, что (   Читать дальше...   )Производство: Bones FilmЖанр: приключения, фэнтезиРежиссер: Nagasaki KenjiПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F77FC3088A419B0E3EBE0498590F62576C20E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822222   (100866) от 05.10.2025
+
+Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In for Me! / Младшая сестра друга меня так раздражает! [2025, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если девушка дразнит тебя, значит, ты ей нравишься!
+К сожалению, Акитеру по собственному опыту известно, что это не так. Потому что все девушки, с которыми он общается, относятся к нему с презрением, и ни одна из них не согласилась пойти с ним на свидание! К счастью, он больше озабочен тем, чтобы обеспечить себе и своим друзьям-разработчикам игр место в компании (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CE0BF26B535EC29908EBE2A3F5C10A2AD2C82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822228   (100863) от 05.10.2025
+
+Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бессмертный [ТВ-3] [2025, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100863.jpg" />
+</div>
+
+
+###  Подробнее
+
+После сражений в Ренриле Фуши, подобно дереву, пускает корни по всему миру, сражаясь за уничтожение Ноккеров. Сотни лет спустя, выполнив свою миссию, он пробуждается в современной эпохе. Он наслаждается мирной жизнью, свободной от вражеских угроз, в окружении дорогих друзей, как старых, так и новых. Но зловещие тени снова нависают над ним. Враги, проникающие в глубины (   Читать дальше...   )Производство: Studio Massket, DriveЖанр: приключения, фэнтезиРежиссер: Sayama KiyokoПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822237   (100856) от 05.10.2025
 
 Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Sarete Saikyou o Mezasu / Придворный маг, пользовавшийся магией поддержки, решил стать сильнейшим после изгнания [2025, TV ...
@@ -6,7 +85,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100856.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100852.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100849.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100846.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100844.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма х
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100841.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100838.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100836.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100835.jpg" />
 </div>
 
 
@@ -248,7 +327,7 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100834.jpg" />
 </div>
 
 
@@ -276,7 +355,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100735.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94704.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91314.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91313.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91290.jpg" />
 </div>
 
 
@@ -406,7 +485,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91289.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91162.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91153.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52138.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_41000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41000.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32311.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8615.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8479.jpg" />
 </div>
 
 
@@ -599,87 +678,6 @@ Food Court de, Mata Ashita. / See You Tomorrow at the Food Court / Увидим�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEAFFD50AEDC6FF9F0B85D5520C130B12F90096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790197   (2892) от 14.09.2025
-
-Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24 эп.] WEBRip 720 raw
-
->>След.
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героями не рождаются, героями становятся! Эти слова вдвойне справедливы для альтернативного мира, в котором героем может стать каждый, а, точнее, любой человек, заслуживший достаточное количество людского доверия. Как узнать, что ты способен на подвиги и заработал достаточное количество уважения? Очень просто. Разнообразные данные, касающиеся общественного мнения, (   Читать дальше...   )Производство: Pb Animation Co., Ltd.LANPaper, Plane AnimationЖанр: Пpиключения, фaнтастикаРежиссер: Хаолин ЛиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456F06B69E64C81B9B901F68B6A4D7ECA9A862EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806093   (2551) от 16.09.2025
-
-Necronomico no Cosmic Horror Show | Necronomico and the Cosmic Horror Show | Космическое шоу ужасов Некрономико [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нам всем нужен шанс изменить свою жизнь!
-История рассказывает о Мико Куроно, которая после окончания средней школы начала свою мечту о карьере стримера под псевдонимом «Necronomico».
-Проводя дни с детской подругой Маю Маюсака и соперницей Канной Кагуразака, она знакомится с новым проектом VR-игры!
-Столкнувшись с игрой, девушки начинают стремиться к «незаменимому (   Читать дальше...   )Производство: Studio GokumiЖанр: приключенияРежиссер: Мацунэ МасатоПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1819B9A9ADC86ED8B1AF04A3A0C59047279FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804764   (2540) от 16.09.2025
-
-Mattaku Saikin no Tantei to Kitara | Detectives These Days Are Crazy! | С нынешними детективами ничего не поделаешь [2025, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нагумо Кэйитиро был гениальным школьным детективом. Для него не было слишком сложных дел. Но что происходит с гениальными детективами, когда они становятся старше? Сейчас ему 35 лет, у него болят бедра, он управляет провальной детективной агентством, у которого нет дел, и с трудом платит за аренду, он находится в тупике. В его офис приходит школьница, которая говорит, (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: комедияРежиссер: Кудзё РионПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5FEA1FC9313FA8514C7616E3ED796186EBAF4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1081049   (265488) от 07.12.2018
+
+Rocket League (2015) [Ru/Multi] (1.56/dlc) License PLAZA [Game of the Year Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rocket League - это аркадный проект, который сочетает в себе элементы футбола и боевых гонок на мощных автомобилях. Приятная физика автомобилей, отличная картинка, ураганный геймплей, кооперативный локальный режим вплоть до четырех игроков, онлайн для 8 игроков, множество арен и автомобилей, возможность за просмотром повторов создавать свои неповторимые видеоролики. (   Читать дальше...   )Тип издания: LicenseРазработчик: PsyonixЖанр: Arcade, Racing (Cars, Soccer), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8427E8ED4817EDEDC41233EBA123BC3B87B63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120901   (263639) от 15.12.2017
 
 Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
@@ -6,7 +32,7 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263639.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Masters of Anima (2018) [Ru/Multi] (1.0.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263475.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Okami HD (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263321.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262971.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262367.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262031.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0.0.13948/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262006.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261545.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260890.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ OlliOlli (2022) [Ru/Multi] (1.0/dlc) License GOG [World Rad Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260851.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Rampart [En] (RePack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259099.jpg" />
+  <img src="Z:/picture/005/save_picture_259099.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Fire and Ice [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259097.jpg" />
+  <img src="Z:/picture/005/save_picture_259097.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259074.jpg" />
+  <img src="Z:/picture/005/save_picture_259074.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257928.jpg" />
+  <img src="Z:/picture/005/save_picture_257928.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Police Stories (2019) [Ru/Multi] (1.4.7/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256776.jpg" />
+  <img src="Z:/picture/005/save_picture_256776.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ An Arcade Full of Cats, A Park Full of Cats, A Building Full of Cats 2 (2023-202
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256738.jpg" />
+  <img src="Z:/picture/005/save_picture_256738.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255901.jpg" />
+  <img src="Z:/picture/005/save_picture_255901.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255719.jpg" />
+  <img src="Z:/picture/005/save_picture_255719.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Beyond Contact (2023) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255359.jpg" />
+  <img src="Z:/picture/005/save_picture_255359.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254867.jpg" />
+  <img src="Z:/picture/005/save_picture_254867.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254828.jpg" />
+  <img src="Z:/picture/005/save_picture_254828.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254794.jpg" />
+  <img src="Z:/picture/005/save_picture_254794.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Arto (2023) [En] (1.0.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254492.jpg" />
+  <img src="Z:/picture/005/save_picture_254492.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ City of Beats (2023) [Multi] (20230427) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254486.jpg" />
+  <img src="Z:/picture/005/save_picture_254486.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254480.jpg" />
+  <img src="Z:/picture/005/save_picture_254480.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9209032A009F88E56622747771BA8E51AAEF96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498109   (254055) от 18.05.2012
-
-Smurfs (RePack) [En] 1996 | Pilotus
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smurfs - это классический приставочный платформер, и этим всё сказано - играть в меру сложно, короткие уровни компенсируются большим количеством врагов и ловушек и малым количеством здоровья главного героя, простой сюжет, который можно описать одним предложением "Плохой смурф захватил некоторых жителей деревни, и теперь вашему герою нужно их освободить", и, конечно же, отличная графика!Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

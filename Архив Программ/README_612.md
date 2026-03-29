@@ -6,7 +6,7 @@ Adobe components: Flash Player 17.0.0.169 + AIR 17.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743060.jpg" />
+  <img src="Z:/picture/008/save_picture_743060.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Media Encoder CC 2018 12.1.0.171 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743059.jpg" />
+  <img src="Z:/picture/008/save_picture_743059.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Avast Premier 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743049.jpg" />
+  <img src="Z:/picture/008/save_picture_743049.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Audition CC 2018 11.1.0.184 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743048.jpg" />
+  <img src="Z:/picture/008/save_picture_743048.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avira Phantom VPN Free / Pro 2.12.8.21350 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743045.jpg" />
+  <img src="Z:/picture/008/save_picture_743045.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avast! Free Antivirus 2015 10.2.2218 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742990.jpg" />
+  <img src="Z:/picture/008/save_picture_742990.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Alcohol 120% 2.0.3 Build 7612 Free Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742988.jpg" />
+  <img src="Z:/picture/008/save_picture_742988.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Firefox 37.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742985.jpg" />
+  <img src="Z:/picture/008/save_picture_742985.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Maxthon Cloud Browser 4.4.5.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742984.jpg" />
+  <img src="Z:/picture/008/save_picture_742984.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe After Effects CC 2018 15.1.0.166 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742970.jpg" />
+  <img src="Z:/picture/008/save_picture_742970.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Photoshop CC 2018 19.1.3.49649 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742959.jpg" />
+  <img src="Z:/picture/008/save_picture_742959.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Photoshop CC 2018 v19.1.3.49649  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742956.jpg" />
+  <img src="Z:/picture/008/save_picture_742956.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742925.jpg" />
+  <img src="Z:/picture/008/save_picture_742925.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Alcohol 120% 2.0.3 Build 7612 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742907.jpg" />
+  <img src="Z:/picture/008/save_picture_742907.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Alcohol 120% 2.0.3 Build 7612 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742905.jpg" />
+  <img src="Z:/picture/008/save_picture_742905.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daz Studio 4.9.2.70 Pro Edition + Extra Addons [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742860.jpg" />
+  <img src="Z:/picture/008/save_picture_742860.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Free DWG Viewer 7.3.0.37 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742776.jpg" />
+  <img src="Z:/picture/008/save_picture_742776.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Adobe Acrobat Pro DC 2015.007.20033 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742775.jpg" />
+  <img src="Z:/picture/008/save_picture_742775.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 (g) [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742673.jpg" />
+  <img src="Z:/picture/008/save_picture_742673.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ digiKam 7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742601.jpg" />
+  <img src="Z:/picture/008/save_picture_742601.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ashampoo WinOptimizer 18.00.16 DC 14.07.2020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742593.jpg" />
+  <img src="Z:/picture/008/save_picture_742593.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BELOFF [dp] 2020.07.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742562.jpg" />
+  <img src="Z:/picture/008/save_picture_742562.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ O&O Defrag Professional 23.5 Build 5022 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742551.jpg" />
+  <img src="Z:/picture/008/save_picture_742551.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wise Program Uninstaller 2.3.4.138 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742536.jpg" />
+  <img src="Z:/picture/008/save_picture_742536.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Vivaldi 2.3.1440.45 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742534.jpg" />
+  <img src="Z:/picture/008/save_picture_742534.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ CoolUtils Total Audio Converter 5.3.0.196 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742465.jpg" />
+  <img src="Z:/picture/008/save_picture_742465.jpg" />
 </div>
 
 

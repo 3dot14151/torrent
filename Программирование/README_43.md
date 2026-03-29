@@ -6,7 +6,7 @@ Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200940.jpg" />
+  <img src="Z:/picture/005/save_picture_200940.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200894.jpg" />
+  <img src="Z:/picture/005/save_picture_200894.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200819.jpg" />
+  <img src="Z:/picture/005/save_picture_200819.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Michele Riva | Real-World Next.js (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200705.jpg" />
+  <img src="Z:/picture/005/save_picture_200705.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200704.jpg" />
+  <img src="Z:/picture/005/save_picture_200704.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200522.jpg" />
+  <img src="Z:/picture/005/save_picture_200522.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Maya Shavin | Frontend Development Projects with Vue.js 3 (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200330.jpg" />
+  <img src="Z:/picture/005/save_picture_200330.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200176.jpg" />
+  <img src="Z:/picture/005/save_picture_200176.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200170.jpg" />
+  <img src="Z:/picture/005/save_picture_200170.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular App
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200144.jpg" />
+  <img src="Z:/picture/005/save_picture_200144.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200138.jpg" />
+  <img src="Z:/picture/005/save_picture_200138.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200129.jpg" />
+  <img src="Z:/picture/005/save_picture_200129.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200127.jpg" />
+  <img src="Z:/picture/005/save_picture_200127.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200058.jpg" />
+  <img src="Z:/picture/005/save_picture_200058.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199960.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199897.jpg" />
+  <img src="Z:/picture/005/save_picture_199897.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199773.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199742.jpg" />
+  <img src="Z:/picture/005/save_picture_199742.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199687.jpg" />
+  <img src="Z:/picture/005/save_picture_199687.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199623.jpg" />
+  <img src="Z:/picture/005/save_picture_199623.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199576.jpg" />
+  <img src="Z:/picture/005/save_picture_199576.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Jimmy Engström | Web Development with Blazor: A practical guide to build intera
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199569.jpg" />
+  <img src="Z:/picture/005/save_picture_199569.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199499.jpg" />
+  <img src="Z:/picture/005/save_picture_199499.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199400.jpg" />
+  <img src="Z:/picture/005/save_picture_199400.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Carl-Hugo Marcotte | An Atypical ASP.NET Core 6 Design Patterns Guide: A SOLID a
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199398.jpg" />
+  <img src="Z:/picture/005/save_picture_199398.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199386.jpg" />
+  <img src="Z:/picture/005/save_picture_199386.jpg" />
 </div>
 
 

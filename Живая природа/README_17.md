@@ -1,3 +1,55 @@
+###  Публикация: 215394   (671366) от 02.07.2010
+
+Страсти по насекомым 2. Жизнь на одном дереве / Insectia 2. Life in a Single Tree (2000) HDTVRip (серия 8 из 13)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_671366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136692   (670772) от 24.05.2017
+
+Невидимая природа: Растения под микроскопом/ Invisible Nature (2012) HDTVRip [H.264/1080p-LQ] (Серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует огромное количество снимков растений, сделанных при помощи электронного микроскопа, но еще ни разу их не снимали на камеру с таким мощным увеличением. При помощи этих уникальных съемок мы узнаем о том, как выживают, адаптируются и эволюционируют различные растения. Со стороны они кажутся пассивными, однако мы даже не подозреваем о многочисленных процессах, (   Читать дальше...   )Производство: Франция, Mona Lisa ProductionЖанр: Документальный, научно-познавательныйРежиссер: Тьерри БерродПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: АнглийскиеПродолжительность: 00:50:45+00:51:31+00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1A7BAC9B12B0743632EC88261B1AC624C6D5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 342577   (659176) от 27.05.2011
 
 Птицы / Winged Migration / Le peuple migrateur (2001) [H.264] BDRip
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659176.jpg" />
+  <img src="Z:/picture/008/save_picture_659176.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659149.jpg" />
+  <img src="Z:/picture/008/save_picture_659149.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658604.jpg" />
+  <img src="Z:/picture/008/save_picture_658604.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/108
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658051.jpg" />
+  <img src="Z:/picture/008/save_picture_658051.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/720
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657971.jpg" />
+  <img src="Z:/picture/008/save_picture_657971.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ NGW: Дикие Гавайи. Тайны морских глубин / Wildes Ha
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657929.jpg" />
+  <img src="Z:/picture/008/save_picture_657929.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Nat Geo Wild: Хищники Африки [3 из 3] / Africa’s Deadliest (201
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656630.jpg" />
+  <img src="Z:/picture/008/save_picture_656630.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ BBC. Львы пустыни / Desert Lions (2007) BDRip [H.264/720p]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656457.jpg" />
+  <img src="Z:/picture/008/save_picture_656457.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655961.jpg" />
+  <img src="Z:/picture/008/save_picture_655961.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Nat Geo Wild: Explorer (Исследование). Столкновение с �
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655822.jpg" />
+  <img src="Z:/picture/008/save_picture_655822.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ NG: История великих озер / Drain the great lakes (2011) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655821.jpg" />
+  <img src="Z:/picture/008/save_picture_655821.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC. Зачарованное Королевство / Enchanted Kingdom (2013) 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655293.jpg" />
+  <img src="Z:/picture/008/save_picture_655293.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ NG. Прикасаясь к дракону (Приручить дракона) /
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655246.jpg" />
+  <img src="Z:/picture/008/save_picture_655246.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655131.jpg" />
+  <img src="Z:/picture/008/save_picture_655131.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654683.jpg" />
+  <img src="Z:/picture/008/save_picture_654683.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653718.jpg" />
+  <img src="Z:/picture/008/save_picture_653718.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652538.jpg" />
+  <img src="Z:/picture/008/save_picture_652538.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652021.jpg" />
+  <img src="Z:/picture/008/save_picture_652021.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650473.jpg" />
+  <img src="Z:/picture/008/save_picture_650473.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649481.jpg" />
+  <img src="Z:/picture/008/save_picture_649481.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649467.jpg" />
+  <img src="Z:/picture/008/save_picture_649467.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649451.jpg" />
+  <img src="Z:/picture/008/save_picture_649451.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649388.jpg" />
+  <img src="Z:/picture/005/save_picture_649388.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649294.jpg" />
+  <img src="Z:/picture/008/save_picture_649294.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1196DE5318D213008EC19D38D55010C96E973E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517812   (647793) от 01.07.2012
-
-В лосином краю / In the Land of the Moose (2010) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно лосиху постигло несчастье – ее маленького лосенка загрыз медведь. Уже весной ей предстоит произвести на свет новое потомство, если, конечно, она выдержит тяготы и лишения холодной зимы. Как молодая мать она будет яростно защищать своего беззащитного детеныша от хищников и обучит его навыкам выживания. Этот документальный фильм рассказывает незабываемую историю путешествия матери-лосихи, которой пришлось столкнуться с немалыми трудностями на пути создания семьи.Жанр: Документальный, Научно-ПознавательныйПеревод: ДублированныйПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B2CA74149DA88A36F42785758AA46A7591FBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701169   (647618) от 06.07.2016
-
-Происхождение океана / Ocean origins (2001) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в мир обитателей морей: от самых мизерных – простейших микроорганизмов до сложнейших форм жизни. В фильме представлена эволюция обитателей подводного мира, которая протекала в течение последних четырех миллиардов лет.Жанр: Документальный, научно-познавательный, природаПеревод: Одноголосый закадровый (профессиональный, Владимир Курдов)Субтитры: вшитые отключаемыеЯзык субтитров: русский, английскийПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10D2BD780DBEE7A157031C2D4DC82F157E1BB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

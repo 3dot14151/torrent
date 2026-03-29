@@ -1,3 +1,33 @@
+###  Публикация: 1562065   (212770) от 07.07.2022
+
+Дневник слизи | Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I Got Reincarnated as a Slime [2021, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогой дневник… Я переродился в слизь. Даже в другом мире жизнь не всегда на кону. Есть много работы, которой надо заниматься: кормление сообщества, ковка предметов, необходимых сообществу. Много разных игр и шуток вокруг! Присоединяйтесь к Римуру и его друзьям, наслаждающимся своим отдыхом и повседневной жизнью!
+
+Это аниме раскроет Римуру и его спутников с совершенно (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: Комедия, повседневность, сёнен, фэнтезиРежиссер: Хайбара ЮдзиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (SHIZA Project), Японский
+- Ados, Hekomi, Sharon, Silv (AniLibria.TV)
+- Лизавета, Daelit, Wozwald (SHIZA Project)Субтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562877   (212675) от 11.07.2022
 
 Избранный богами [ТВ-1] | Человек, выбранный богами [ТВ-1] | Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods [2020, TV, 12 из 12] BDRip 1080p Raw+Rus
@@ -6,7 +36,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212675.jpg" />
+  <img src="Z:/picture/005/save_picture_212675.jpg" />
 </div>
 
 
@@ -36,7 +66,7 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212543.jpg" />
 </div>
 
 
@@ -62,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212542.jpg" />
+  <img src="Z:/picture/005/save_picture_212542.jpg" />
 </div>
 
 
@@ -88,7 +118,7 @@ Goku Midnight Eye | Гоку: Полуночный глаз [1989, OVA] DVDRip 5
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212532.jpg" />
+  <img src="Z:/picture/005/save_picture_212532.jpg" />
 </div>
 
 
@@ -114,7 +144,7 @@ Goku II: Midnight Eye | Гоку 2: Полуночный глаз [1989, OVA] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212450.jpg" />
+  <img src="Z:/picture/005/save_picture_212450.jpg" />
 </div>
 
 
@@ -140,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212381.jpg" />
+  <img src="Z:/picture/005/save_picture_212381.jpg" />
 </div>
 
 
@@ -166,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212370.jpg" />
+  <img src="Z:/picture/005/save_picture_212370.jpg" />
 </div>
 
 
@@ -193,7 +223,7 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212368.jpg" />
+  <img src="Z:/picture/005/save_picture_212368.jpg" />
 </div>
 
 
@@ -219,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212366.jpg" />
+  <img src="Z:/picture/005/save_picture_212366.jpg" />
 </div>
 
 
@@ -245,7 +275,7 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211914.jpg" />
 </div>
 
 
@@ -271,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211758.jpg" />
+  <img src="Z:/picture/005/save_picture_211758.jpg" />
 </div>
 
 
@@ -298,7 +328,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210968.jpg" />
+  <img src="Z:/picture/005/save_picture_210968.jpg" />
 </div>
 
 
@@ -324,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210836.jpg" />
+  <img src="Z:/picture/005/save_picture_210836.jpg" />
 </div>
 
 
@@ -352,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210825.jpg" />
+  <img src="Z:/picture/005/save_picture_210825.jpg" />
 </div>
 
 
@@ -383,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210745.jpg" />
+  <img src="Z:/picture/005/save_picture_210745.jpg" />
 </div>
 
 
@@ -411,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210739.jpg" />
+  <img src="Z:/picture/005/save_picture_210739.jpg" />
 </div>
 
 
@@ -439,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210652.jpg" />
+  <img src="Z:/picture/005/save_picture_210652.jpg" />
 </div>
 
 
@@ -466,7 +496,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210232.jpg" />
+  <img src="Z:/picture/005/save_picture_210232.jpg" />
 </div>
 
 
@@ -492,7 +522,7 @@ High School Agent | Агент Старшеклассник [1988, OVA, 2 эп.]
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210136.jpg" />
+  <img src="Z:/picture/005/save_picture_210136.jpg" />
 </div>
 
 
@@ -518,7 +548,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210123.jpg" />
+  <img src="Z:/picture/005/save_picture_210123.jpg" />
 </div>
 
 
@@ -544,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210117.jpg" />
+  <img src="Z:/picture/005/save_picture_210117.jpg" />
 </div>
 
 
@@ -573,7 +603,7 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210017.jpg" />
+  <img src="Z:/picture/005/save_picture_210017.jpg" />
 </div>
 
 
@@ -599,7 +629,7 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210004.jpg" />
+  <img src="Z:/picture/005/save_picture_210004.jpg" />
 </div>
 
 
@@ -625,7 +655,7 @@ Bokura no Yoake | Break of Dawn | Наш рассвет [2022, Movie] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209910.jpg" />
 </div>
 
 
@@ -651,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209703.jpg" />
+  <img src="Z:/picture/005/save_picture_209703.jpg" />
 </div>
 
 
@@ -666,35 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8EDF5D92C6350BEBC8BECC1779F531CF83C8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572760   (209561) от 28.08.2022
-
-Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похожа на коктейль [2017, TV, 13 из 13 + 1 SP] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Усталый муж возвращается с работы домой, где его уже встречает любящая жена, а на
-столе приготовлен ужин... Стоп-стоп-стоп, в этом аниме все наоборот! Итак, усталая жена
-Тисато возвращается с работы домой, где ее встречает любящий муж Сора, а на столе
-приготовлен... Да, и ужин тоже, но в первую очередь – коктейль! Чаще он бывает(   Читать дальше...   )Производство: Creators in Pack / クリエイターズインパックЖанр: комедия, повседневностьРежиссер: Хирасава ХисаёсиЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Встроенные, Надписи+Полные |Продолжительность: 14 эп. по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

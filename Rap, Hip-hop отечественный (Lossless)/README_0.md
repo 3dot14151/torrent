@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665396.jpg" />
+  <img src="Z:/picture/008/save_picture_665396.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663877.jpg" />
+  <img src="Z:/picture/008/save_picture_663877.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633487.jpg" />
+  <img src="Z:/picture/008/save_picture_633487.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633349.jpg" />
+  <img src="Z:/picture/008/save_picture_633349.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Guf - О’пять (2022) [FLAC|Lossless|WEB|tracks] <Rap>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591188.jpg" />
+  <img src="Z:/picture/008/save_picture_591188.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Guf, Slim, Птаха aka Зануда и др - 22 альбома (2003-2014) �
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572233.jpg" />
+  <img src="Z:/picture/008/save_picture_572233.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562713.jpg" />
+  <img src="Z:/picture/008/save_picture_562713.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Miyagi - Buster Keaton (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545926.jpg" />
+  <img src="Z:/picture/008/save_picture_545926.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489379.jpg" />
+  <img src="Z:/picture/008/save_picture_489379.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485566.jpg" />
+  <img src="Z:/picture/008/save_picture_485566.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478168.jpg" />
+  <img src="Z:/picture/008/save_picture_478168.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Jahmal TGK - Superda (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463314.jpg" />
+  <img src="Z:/picture/008/save_picture_463314.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455443.jpg" />
+  <img src="Z:/picture/008/save_picture_455443.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ram & Kommo - Starscream (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383766.jpg" />
+  <img src="Z:/picture/008/save_picture_383766.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Billy Milligan - 6 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-ho
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379242.jpg" />
+  <img src="Z:/picture/008/save_picture_379242.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367874.jpg" />
+  <img src="Z:/picture/008/save_picture_367874.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344105.jpg" />
+  <img src="Z:/picture/008/save_picture_344105.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Noize MC - Voyager-2 (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Ro
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330654.jpg" />
+  <img src="Z:/picture/008/save_picture_330654.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [FLAC|Lossless|Web-DL|tracks] <Jazzy
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285849.jpg" />
+  <img src="Z:/picture/008/save_picture_285849.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Guf (Гуф) - Ещё (2015) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283292.jpg" />
+  <img src="Z:/picture/008/save_picture_283292.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Anacondaz - Ночь с астраханцем (2025) [FLAC 24/48|Lossless|WEB-D
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258032.jpg" />
+  <img src="Z:/picture/005/save_picture_258032.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Feduk - Весёлая музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250424.jpg" />
+  <img src="Z:/picture/004/save_picture_250424.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Yopt - 404 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250141.jpg" />
+  <img src="Z:/picture/004/save_picture_250141.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233522.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231463.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227694.jpg" />
 </div>
 
 

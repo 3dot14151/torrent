@@ -1,3 +1,111 @@
+###  Публикация: 1248272   (444930) от 19.09.2018
+
+Temp Monitor 1.1.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Temp Monitor - это незаметный инструмент, который будет предупреждать вас о перегреве вашего Mac. В комплекте идет отличная утилита, чтобы помочь вам записывать все показания, когда процессор выходит за пределы температуры, которая может быть опасна для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: VIMI StudiosПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Французский, Вьетнамский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97C2D351939E98457C9DBB3B8C05C96C6965A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248255   (444928) от 19.09.2018
+
+aText 2.28.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444928.jpg" />
+</div>
+
+
+###  Подробнее
+
+AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795194FCFC08D9F6FBADFEE42D76C88B592E1983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062107   (444766) от 12.10.2016
+
+CalcPad - Notepad and Calculator. Reinvented 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444766.jpg" />
+</div>
+
+
+###  Подробнее
+
+CalcPad - приложение для ведения заметок с встроенным  мощным калькулятором.
+ Он может выполнять основные вычисления, а также конверсии комплекс единиц, преобразования валют в режиме реального времени и проценты. Он даже может обрабатывать переменные и пользовательские функции, если вы в них нуждаетесь.
+
+С помощью удобной иконки в  Menubar, глобального ярлыка доступа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 октября 2016Разработчик: Kovan LTDПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1731DD0B73DD6018BF1625F6B0E9995F77698665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062086   (444765) от 12.10.2016
+
+Permute 2.2.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute: Универсальный конвертер видео, аудио и изображений
+Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 октября 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3CF3FE26F9DBBB28CAABAD43DE1BDE947EADCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248318   (444666) от 19.09.2018
 
 BetterSnapTool 1.9 [En]
@@ -6,7 +114,7 @@ BetterSnapTool 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444666.jpg" />
+  <img src="Z:/picture/008/save_picture_444666.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Red Giant Universe 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444646.jpg" />
+  <img src="Z:/picture/008/save_picture_444646.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Monodraw 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444634.jpg" />
+  <img src="Z:/picture/008/save_picture_444634.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ Leaf 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444448.jpg" />
+  <img src="Z:/picture/008/save_picture_444448.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ Camtasia 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444440.jpg" />
+  <img src="Z:/picture/008/save_picture_444440.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ Winclone Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444430.jpg" />
+  <img src="Z:/picture/008/save_picture_444430.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ Keka 1.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444307.jpg" />
+  <img src="Z:/picture/008/save_picture_444307.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Watermark Sense - Flexible batch watermarking 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444260.jpg" />
+  <img src="Z:/picture/008/save_picture_444260.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ FxFactory Pro 5.0.6 (4702) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444241.jpg" />
+  <img src="Z:/picture/008/save_picture_444241.jpg" />
 </div>
 
 
@@ -252,7 +360,7 @@ OmniGraffle Pro 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444076.jpg" />
+  <img src="Z:/picture/008/save_picture_444076.jpg" />
 </div>
 
 
@@ -278,7 +386,7 @@ MindNode 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444074.jpg" />
+  <img src="Z:/picture/008/save_picture_444074.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ InternetSpeedTest (Internet Speed Test Meter Net) 2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443924.jpg" />
+  <img src="Z:/picture/008/save_picture_443924.jpg" />
 </div>
 
 
@@ -336,7 +444,7 @@ Glyphs 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443650.jpg" />
+  <img src="Z:/picture/008/save_picture_443650.jpg" />
 </div>
 
 
@@ -363,7 +471,7 @@ Path Finder 7.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443627.jpg" />
+  <img src="Z:/picture/008/save_picture_443627.jpg" />
 </div>
 
 
@@ -389,7 +497,7 @@ Wondershare Filmora 8.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443497.jpg" />
+  <img src="Z:/picture/008/save_picture_443497.jpg" />
 </div>
 
 
@@ -415,7 +523,7 @@ AirServer 4.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443416.jpg" />
+  <img src="Z:/picture/005/save_picture_443416.jpg" />
 </div>
 
 
@@ -442,7 +550,7 @@ Permute 3 v3.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443340.jpg" />
+  <img src="Z:/picture/008/save_picture_443340.jpg" />
 </div>
 
 
@@ -468,7 +576,7 @@ OmniGraffle Pro 7 v7.17.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443136.jpg" />
+  <img src="Z:/picture/008/save_picture_443136.jpg" />
 </div>
 
 
@@ -494,7 +602,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443020.jpg" />
+  <img src="Z:/picture/008/save_picture_443020.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ Things 3 v3.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442848.jpg" />
+  <img src="Z:/picture/008/save_picture_442848.jpg" />
 </div>
 
 
@@ -548,7 +656,7 @@ Dejal Simon 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442678.jpg" />
+  <img src="Z:/picture/008/save_picture_442678.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ File Cabinet Pro 6.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442674.jpg" />
+  <img src="Z:/picture/008/save_picture_442674.jpg" />
 </div>
 
 
@@ -585,117 +693,6 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0287D569155C26440CA13593A398E772B845AB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248522   (442673) от 20.09.2018
-
-Calendar 366 II 2.3.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
-
-Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: n.spektorПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F20C30894D12C16CEB21793CDD3EEB699948967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944221   (442658) от 06.10.2015
-
-Mail Designer Pro 2 (2.5.1) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mail Designer Pro позволяет создавать информационные бюллетени с гибкой конструкцией для настольных и мобильных устройств. Мобильный просмотр делает его легче и позволит оптимизировать ваш дизайн бюллетеня для целого ряда различных мобильных устройств.
-
-С Mail Designer Pro Вы сможете оптимизировать ваш контент для мобильных телефонов и просмотреть все изменения на (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 октября 2015Разработчик: equinux AGПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50137252F5DC0F2D9FB35B8F521AD225F5B15964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248517   (442561) от 20.09.2018
-
-PopChar X 8.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE09209E66803CC3131069E46489FDEA396D423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409812   (442543) от 18.09.2020
-
-DaVinci Resolve Studio 16 v16.2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2020Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDC2B28FC467450AD1886E2C93D069D8A5842BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

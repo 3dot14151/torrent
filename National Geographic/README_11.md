@@ -1,3 +1,81 @@
+###  Публикация: 1128378   (727436) от 25.04.2017
+
+NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта тайна существует уже 3000 лет. Фигура Тутанхамона привлекает всеобщее внимание с тех пор, как о ней впервые написали в газетах. Но немногие знают подлинную историю. Британский египтолог Крис Нонтон заново изучает исторические свидетельства в поисках новых важных данных. Его цель - раскрыть тайны фараона-мальчика. Он хочет отделить миф от реальной истории и добраться (   Читать дальше...   )Производство: Великобритания, Канада, Blink Films and Handel ProductionsЖанр: Документальный, научно-популярный, история, исследованияРежиссер: Шон СмитПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47960210F09C47CCF5BC5E26348F1085DAE5B9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273541   (727420) от 22.02.2019
+
+NG: Марс и SpaceX / Mars: Inside SpaceX (2018) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727420.jpg" />
+</div>
+
+
+###  Подробнее
+
+MARS: Inside SpaceX - новый документальный фильм от National Geographic. В фильме мы перенесемся за кулисы с Илоном Маском и инженерами SpaceX и понаблюдаем за подготовкой к первому полету Falcon Heavy.Производство: США, RadicalMedia, National GeographicЖанр: Документальный, научно-популярныйРежиссер: Юлия РейганПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CA5C1E8DFBB1FF9F62A649F59C3D51D528C58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128591   (727323) от 25.04.2017
+
+National Geographic. Больше чем фокусы с Ди Эм Си / Beyond Magic With DMC (2014) HDTVRip (7 серий из 7)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте призрачное царство магии - от экстрасенсорного восприятия до левитации - в передаче «Больше чем фокусы с Ди Эм Си». Ведущий-маг Драммонд Мани-Каутс своими захватывающими фокусамипокоряет умы зрителей на улицах Лондона, Парижа, Барселоны, Мехико и Сингапура. Вдохновлённый блестящими умами таких великих мастеров как Гудини, прославленного своими сенсационными (   Читать дальше...   )Телекомпания: США, Windfall Films. LTD & National Geographic ChannelsЖанр: Документальный, познавательныйПеревод: ДублированныйПродолжительность: 7 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128595   (727205) от 25.04.2017
 
 National Geographic. Больше чем фокусы с Ди Эм Си / Beyond Magic With DMC (2014) HDTVRip [H.264/720p-LQ] (7 серий из 7)
@@ -6,7 +84,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727205.jpg" />
+  <img src="Z:/picture/008/save_picture_727205.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG. Реальность или фантастика? Корабли-призр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726168.jpg" />
+  <img src="Z:/picture/008/save_picture_726168.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Nat Geo Wild: Амазонская электрическая рыба / Amazon'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726013.jpg" />
+  <img src="Z:/picture/008/save_picture_726013.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ NG. Научные глупости / Science of stupid (2019) HDTVRip (сезо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724509.jpg" />
+  <img src="Z:/picture/008/save_picture_724509.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ NG: Пчелы-Убийцы / Killer Bees (200?) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723989.jpg" />
+  <img src="Z:/picture/008/save_picture_723989.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ NG. Взгляд изнутри: Секреты зоны 51 / Area 51 Declassifi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723736.jpg" />
+  <img src="Z:/picture/008/save_picture_723736.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ NGW: Ягуары против крокодилов / Jaguar vs. Croc (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723122.jpg" />
+  <img src="Z:/picture/008/save_picture_723122.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722648.jpg" />
+  <img src="Z:/picture/008/save_picture_722648.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722637.jpg" />
+  <img src="Z:/picture/008/save_picture_722637.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ NGW: Смертоносная Африка. Рифы / Africa's Deadly Kingdom (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722582.jpg" />
+  <img src="Z:/picture/008/save_picture_722582.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721623.jpg" />
+  <img src="Z:/picture/008/save_picture_721623.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ NGW: Неукротимая Южная Америка / South America Untamed (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721542.jpg" />
+  <img src="Z:/picture/008/save_picture_721542.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721524.jpg" />
+  <img src="Z:/picture/008/save_picture_721524.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721403.jpg" />
+  <img src="Z:/picture/008/save_picture_721403.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ NGW: Десять смертельно опасных змей / Ten deadliest s
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721397.jpg" />
+  <img src="Z:/picture/008/save_picture_721397.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ NGW: Апокалипсис животных / World's deadliest. Animal Apocaly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721271.jpg" />
+  <img src="Z:/picture/008/save_picture_721271.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721265.jpg" />
+  <img src="Z:/picture/008/save_picture_721265.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720823.jpg" />
+  <img src="Z:/picture/008/save_picture_720823.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720052.jpg" />
+  <img src="Z:/picture/008/save_picture_720052.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ NGW: Африканская кровавая река / Africa's blood river (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719525.jpg" />
+  <img src="Z:/picture/008/save_picture_719525.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719523.jpg" />
+  <img src="Z:/picture/008/save_picture_719523.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719522.jpg" />
+  <img src="Z:/picture/008/save_picture_719522.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718936.jpg" />
+  <img src="Z:/picture/008/save_picture_718936.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12444079820FCDB86F47C62E76529A6BD336E86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285832   (718821) от 27.02.2019
-
-NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выборка наших самых популярных историй из жизни больших кошек, чтобы глубже погрузиться в мир кошачьего материнства.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Рейнхард РадкеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC89040DB0F0DADC0FA4C5CB1CD5FEA7895443B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285784   (718813) от 27.02.2019
-
-Дикая река Конго. Логово Кинг-Конга / Wild Congo. King Kong's Lair (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718813.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубине густых джунглей в бассейне Конго обитают ближайшие родственники человека - три из четырех известных видов человекообразных обезьян.Производство: Германия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Томас БерендПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2006FD4FF9C912C200FB902143E1C68904CB7C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285850   (718685) от 27.02.2019
-
-NG. Вдоль Великой Китайской стены / Trekking The Great Wall (2011) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Китайская стена - одно из величайших архитектурных чудес света. Говорят, что её можно увидеть даже из космоса. Этот древний шедевр фортификации был свидетелем сотен сражений и, тем не менее, хранит множество загадок... Английский писатель и историк Уильям Линси прожил в Китае 20 лет. Изучение Великой Китайской стены стало страстью всей его жизни. Линси провел (   Читать дальше...   )Производство: Германия, Ggruppe 5 Filmproduktion GMBHЖанр: Документальный, архитектура, историяРежиссер: Кристиан ТвентеПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0283BDAE028944A7F7184351C9C6EAEC028E822
 ```
 
 https://mybot314.ru/tekegram_catalog/

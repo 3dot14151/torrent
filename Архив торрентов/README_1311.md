@@ -6,7 +6,7 @@ Cisdem PDFPasswordRemover 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759276.jpg" />
+  <img src="Z:/picture/008/save_picture_759276.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759268.jpg" />
+  <img src="Z:/picture/008/save_picture_759268.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759264.jpg" />
+  <img src="Z:/picture/008/save_picture_759264.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759257.jpg" />
+  <img src="Z:/picture/005/save_picture_759257.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Adobe Photoshop CS5 Extended Lite v12.0.0 (RU|EN) [х86/х64] Unattended
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759255.jpg" />
+  <img src="Z:/picture/005/save_picture_759255.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Heroes Chronicles: Conquest of the Underworld / Хроники героев: П�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759250.jpg" />
+  <img src="Z:/picture/005/save_picture_759250.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759202.jpg" />
+  <img src="Z:/picture/008/save_picture_759202.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759199.jpg" />
+  <img src="Z:/picture/008/save_picture_759199.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759195.jpg" />
+  <img src="Z:/picture/008/save_picture_759195.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759194.jpg" />
+  <img src="Z:/picture/008/save_picture_759194.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Chromodo Browser  49.13.20.402 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759189.jpg" />
+  <img src="Z:/picture/008/save_picture_759189.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wise Disk Cleaner 9.24.643 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759187.jpg" />
+  <img src="Z:/picture/008/save_picture_759187.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759153.jpg" />
+  <img src="Z:/picture/005/save_picture_759153.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Converter - Exit Ritual (2003) [FLAC|Lossless]<Rhythmic Noise, Tribal, Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759108.jpg" />
+  <img src="Z:/picture/008/save_picture_759108.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Tag&Rename 3.8.7 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759106.jpg" />
+  <img src="Z:/picture/008/save_picture_759106.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ PicturesToExe Deluxe 8.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759102.jpg" />
+  <img src="Z:/picture/008/save_picture_759102.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ K-Lite Codec Pack Update 12.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759092.jpg" />
+  <img src="Z:/picture/008/save_picture_759092.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759087.jpg" />
+  <img src="Z:/picture/008/save_picture_759087.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759086.jpg" />
+  <img src="Z:/picture/008/save_picture_759086.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ DVDFab 9.2.4.2 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759085.jpg" />
+  <img src="Z:/picture/008/save_picture_759085.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759081.jpg" />
+  <img src="Z:/picture/008/save_picture_759081.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Image Uploader 1.3.1 Build 4313 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759043.jpg" />
+  <img src="Z:/picture/008/save_picture_759043.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Windows 10 Manager 1.1.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759030.jpg" />
+  <img src="Z:/picture/008/save_picture_759030.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ GridinSoft Anti-Malware 3.0.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759028.jpg" />
+  <img src="Z:/picture/008/save_picture_759028.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759027.jpg" />
+  <img src="Z:/picture/008/save_picture_759027.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759020.jpg" />
+  <img src="Z:/picture/008/save_picture_759020.jpg" />
 </div>
 
 

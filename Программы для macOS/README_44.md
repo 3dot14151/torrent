@@ -1,3 +1,137 @@
+###  Публикация: 1011622   (795894) от 28.04.2016
+
+Xtream Path 1.6.3.2 plug-in for Adobe Illustrator [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795894.jpg" />
+</div>
+
+
+###  Подробнее
+
+CValley Xtream Path  - Данный плагин включает в себя 36 инструментов, фильтров и эффектов, дающих вам гибкость и четкость при редактировании траекторий, которые вам необходимы при использовании Adobe Illustrator.
+Если вы используете изо дня в день Adobe Illustrator, то наверняка делаете по-меньшей мере несколько редактирований траекторий. Редактирование траекторий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: CValley, Inc.Поддерживаемая ОС: OS XЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEE20E7052B4CB430C8B39A39FB4720CBD83B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385862   (795877) от 27.05.2020
+
+Aegisub 3.2.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кроссплатформенный редактор субтитров с открытым исходным кодом. Популярен среди фансаберов. Имеет расширенные возможности по созданию караоке. Включает в себя проверку орфографии и редактор переводов. Поддерживает в качестве субтитров SRT, ASS, SSA, SUB, XSS, PSB и форматированный TXT. Для тайминга в неё можно загрузить аудиофайлы в форматах WAV, MP3, OGG Vorbis, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 7.12.2014Разработчик: Rodrigo Braz Monteiro, Niels Martin Hansen, Thomas Goyne et al.Поддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4ADD5B3F076DDD71F93BFA6864D4AB7F2D80BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385983   (795839) от 27.05.2020
+
+Smart Shooter 4 v4.16 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Shooter - приложение для работы с цифровыми фотографиями для привязанной съемки, удаленного захвата и расширенного управления камерой.
+
+Smart Shooter позволяет вам полностью контролировать свою камеру с вашего Mac, предоставляя вам свободу исследовать и экспериментировать, чтобы помочь получить идеальную картину. Автоматическая загрузка и отображение означает, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2020Разработчик: Kuvacode OyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E6320EC49F41489ABA494B1530AA7D459CAE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509269   (795618) от 11.11.2021
+
+Faxbot 2.6.2 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795618.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Faxbot вы можете удобно отправлять факсы на Mac через FRITZ!Box.
+Faxbot предлагает вам широкие возможности для интеграции факсимильной связи в ваш лучший рабочий процесс. Вы можете открывать файлы PDF, PNG или JPEG в Faxbot и отправлять их, создавать факсимильные документы из любого приложения, которое предлагает вам диалоговое окно печати, писать и форматировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2021Разработчик: HOsy - intelligent softwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AAC2B11889EC03DCD55F0B268C6F9FDF460EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509267   (795616) от 11.11.2021
+
+CDpedia 6.2.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это эпоха цифровых загрузок, но это не значит, что компакт-диски исчезли из нашей жизни. Позвольте CDpedia помочь вам организовать их, приложение ищет информацию о ваших альбомах в «Интернете» и интегрируется с iTunes, чтобы вы могли получить лучшее из обоих миров.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 BrujiПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A12CC3C08EE4E01CE7DA35A93768F5D411B092F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509263   (795611) от 11.11.2021
 
 DVDpedia 6.2.1 [Multi]
@@ -6,7 +140,7 @@ DVDpedia 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795611.jpg" />
+  <img src="Z:/picture/008/save_picture_795611.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Bookpedia 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795604.jpg" />
+  <img src="Z:/picture/008/save_picture_795604.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ Neural Mix Pro 1.1.1 fix [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795498.jpg" />
+  <img src="Z:/picture/008/save_picture_795498.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ ReaditNews 2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795355.jpg" />
+  <img src="Z:/picture/008/save_picture_795355.jpg" />
 </div>
 
 
@@ -110,7 +244,7 @@ Flinto 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795348.jpg" />
+  <img src="Z:/picture/008/save_picture_795348.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ EJ Technologies JProfiler 11.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795270.jpg" />
+  <img src="Z:/picture/008/save_picture_795270.jpg" />
 </div>
 
 
@@ -163,7 +297,7 @@ Classic Weather Premium 4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795031.jpg" />
+  <img src="Z:/picture/008/save_picture_795031.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ OCRKit Pro 21.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795001.jpg" />
+  <img src="Z:/picture/008/save_picture_795001.jpg" />
 </div>
 
 
@@ -218,7 +352,7 @@ ConceptDraw PROJECT 12 v12.0.0.167 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794947.jpg" />
+  <img src="Z:/picture/008/save_picture_794947.jpg" />
 </div>
 
 
@@ -244,7 +378,7 @@ CrossOver 18.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794701.jpg" />
+  <img src="Z:/picture/008/save_picture_794701.jpg" />
 </div>
 
 
@@ -272,7 +406,7 @@ Adguard 2.4.8 (797) Release [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794324.jpg" />
+  <img src="Z:/picture/008/save_picture_794324.jpg" />
 </div>
 
 
@@ -298,7 +432,7 @@ Enfocus PitStop Pro 2020 Build 1122552 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794265.jpg" />
+  <img src="Z:/picture/008/save_picture_794265.jpg" />
 </div>
 
 
@@ -324,7 +458,7 @@ Recordings Pro 7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793642.jpg" />
+  <img src="Z:/picture/008/save_picture_793642.jpg" />
 </div>
 
 
@@ -353,7 +487,7 @@ Calendarique 4.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793575.jpg" />
+  <img src="Z:/picture/008/save_picture_793575.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ AnyMP4 MTS Converter 8.2.18 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793554.jpg" />
+  <img src="Z:/picture/008/save_picture_793554.jpg" />
 </div>
 
 
@@ -406,7 +540,7 @@ Cleaner for Xcode 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793550.jpg" />
+  <img src="Z:/picture/008/save_picture_793550.jpg" />
 </div>
 
 
@@ -432,7 +566,7 @@ Finch for Inbox 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793423.jpg" />
+  <img src="Z:/picture/008/save_picture_793423.jpg" />
 </div>
 
 
@@ -460,7 +594,7 @@ Softorino YouTube Converter 2 v2.1.16 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793411.jpg" />
+  <img src="Z:/picture/008/save_picture_793411.jpg" />
 </div>
 
 
@@ -489,7 +623,7 @@ Flume - A beautiful Instagram experience 1.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793382.jpg" />
+  <img src="Z:/picture/008/save_picture_793382.jpg" />
 </div>
 
 
@@ -516,7 +650,7 @@ Xilisoft Video Converter Ultimate 7.8.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793374.jpg" />
+  <img src="Z:/picture/008/save_picture_793374.jpg" />
 </div>
 
 
@@ -542,7 +676,7 @@ Blink Pro 4.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793358.jpg" />
+  <img src="Z:/picture/008/save_picture_793358.jpg" />
 </div>
 
 
@@ -553,142 +687,6 @@ Blink - это произведение искусства, простой в р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D62E65CAC147B7F7A351EB6652CDA419110DD0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012674   (793319) от 01.05.2016
-
-CrossOver 15.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793319.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх.
-Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
-
-CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 марта 2016Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F3ADF71DAECD5DCADD9DAA9A9896DE3C554185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123045   (793082) от 06.04.2017
-
-Hear 1.3.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hear значительно улучшает качество звука в фильмах и музыке во всех приложениях! Имеет большое количество настроек, за счет чего позволяет добиться отличного звучания. С Hear музыка звучит роскошней, звук и диалоги в фильмах – чище, а в играх звук будет взрывать ваш мозг!
-
-Программа рассчитана для улучшенного воспроизведения мультимедиа. Фильмы звучат по-новому, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2016Разработчик: Prosoft Engineering, Inc.Поддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B313F78E35FBA39FAB196D7CF731FEAFC7AB88C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274361   (793051) от 07.01.2019
-
-Canary Mail 2.18 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 30.12.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636BEA222BD8CD6E2B60BF2A26F1D35F9FE20FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509924   (793044) от 14.11.2021
-
-BookmarkTiles 1.7.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793044.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookmarkTiles - это надстройка закладок для вашего браузера, она разработана в основном для Safari.
-BookmarkTiles имитирует ранее известные TopSites функций Safari и возвращает его во все новые версии Safari вместе с некоторыми другими функциями, которые никогда не появлялись и не упали много лет назад.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: © 2021 Serge SanderПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB18000CBF1CE45CB25E37D05F0842D1EC37355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509948   (793032) от 14.11.2021
-
-IconShop - Making Icons Easily 1.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразуйте символы SF или пользовательскую строку в значок, экспортируйте набор изображений или значок приложения для Xcode.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: © 2021 Wenzhi HuПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AE2B67F4D475AE84D251EF4C49A3CC9660E802
 ```
 
 https://mybot314.ru/tekegram_catalog/

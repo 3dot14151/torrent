@@ -1,3 +1,29 @@
+###  Публикация: 1436787   (1042764) от 02.01.2021
+
+Steven Knipping | Applied Houdini Rigids VI (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего).Производство: CGcircuitЖанр: Создание видеоПродолжительность: 04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBC6473EA4337B14AD39E497D46AFB6F6576172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436782   (1042746) от 02.01.2021
 
 Steven Knipping | Applied Houdini Rigids V (2017) PCRec
@@ -6,7 +32,7 @@ Steven Knipping | Applied Houdini Rigids V (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042746.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 05. Creation Techniques. Details (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042738.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 03. Exploration (2018) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042736.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Ioannis Karathomas | Military Mech Design (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042719.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 06. Creation Techniques. Surface (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042717.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Michael Pavlovich | Zbrush for Ideation Unit 07 Presentation (2018) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042710.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042640.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Photofox, Ростислав Литвицкий | Illustrator Beginner (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042579.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Skillshare, Jake Bartlett | Texturing in Adobe After Effects (2022) WEB-DL [EN /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042574.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Photofox, Ростислав Литвицкий | Illustrator PRO (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042322.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ Udemy, CG Masters, Chris Plush, Lee Salvemini | The Blender 2.8 Encyclopedia [Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042318.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ Carlo Sansonetti | Character Rigging Production Techniques (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042225.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Simon Fuchs | Military Radio Tutorial Part 1-3 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042145.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042142.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Madeleine Scott-Spencer | Introduction to Zbrush 2020 (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042127.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | The Hard Surface Handbook for Blender (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042065.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Jonathan Rush | Photogrammetry for Games (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041951.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Udemy, Rocket Kids Tech education | 3D моделирование в Autodesk Ma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041830.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Stephen Wells | Polypainting in ZBrush Volume 1-3 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041669.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ Tim Bergholz | MACE Tutorial – COMPLETE EDITION (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041625.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ Brain Recktenwald | Environment Art Lookdev Using Unreal & Photogrammetry (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041611.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ Michael Pavlovich | Photogrammetry Basics (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041608.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ Ben Tate | An Introduction To UVMapping In 3d Studio Max Using The Unwrap UVW Mo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041459.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ Joel Bradley | 3ds Max 2018: Mastering UVW Mapping (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041402.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041349.jpg" />
 </div>
 
 
@@ -661,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:351723861DF72B383D342BDF3562A9A215C705EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438127   (1041340) от 07.01.2021
-
-Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы получите твердые знания всех новых инструментов скульптинга твердотельной поверхности, которые появились в Zbrush 4r8s. В качестве примера мы создадим модель фантастического шлема по всем производственным стандартам СG индустрии.
-Вы увидите как быстро создаются сложные элементы детализации, при этом будет использован режим Live Booleans. В результате (   Читать дальше...   )Производство: UdemyЖанр: СкульптингПродолжительность: 10:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1781AF9610550934780DFBF81A61B4D74E21FE69
 ```
 
 https://mybot314.ru/tekegram_catalog/

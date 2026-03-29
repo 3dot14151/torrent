@@ -1,3 +1,206 @@
+###  Публикация: 962580   (293345) от 05.12.2015
+
+VA - Лолипопс по Русски (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_293345.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ChipaChip & AlexKoch - Нет Счёта 03:51
+002. Quest Pistols - Санта Лючия (DJ Solovey Remix) (edit) 03:49
+003. Artik pres. Asti - Половина (Ser Twister Radio Remix) 03:15
+004. Даша Суворова - Чайки 04:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF433F1E86F851E3E6BABF723E0C56E827740105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962305   (293343) от 05.12.2015
+
+VA - Nova Italo Disco: Edition 11 (2015) [MP3|320 кб/с]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_293343.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chito - Memories (Extended Version) (04:45)
+002. Adya - Ouverture (03:37)
+003. Lian Ross - Fantasy (7'' Version) (05:36)
+004. Radiorama - Vampires (Bonus Version) (04:22)(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 08:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927886F9E685767F704C77647F248433D901D844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262656   (293324) от 16.11.2018
+
+VA - Disco Dancing: November Party (2018) [MP3|320 Kbps] <Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_293324.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jonse/Bengt Van Steegen - I Know It Baby
+002. Khidja - Plot
+003. Yunus Durali - Alone With You (Original Mix)
+004. Sirs - Dc 10 Disco Dancing(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 10:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE44E262431829A334751E884A5AEEB26A5CCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334625   (292900) от 30.10.2019
+
+VA - Осень БЕГ (2019) [MP3|320 Kbps] <Dance, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292900.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.AJR - Weak (3:20)
+2.AlunaGeorge feat. Leikeli47 &, Dreezy - Mean What I Mean (3:51)
+3.Apocalyptica - Reflections (3:34)
+4.Apollo 440 - Stop the rock Cavonius K1rby Bootleg (3:50)(   Читать дальше...   )Жанр: Dance, House, OtherПродолжительность: 04:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E98F5B8C717C8721FCA1FE5C887AF7603727E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962551   (292637) от 05.12.2015
+
+VA - Top 100 Зайцев Нет Ноябрь 2015 (2015) [MP3|191 - 320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Воробьев - Сумасшедшая (02:57)
+002. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
+003. Fifth Harmony - Worth It (feat. Kid Ink) (03:45)
+004. Юлианна Караулова - Ты не такой (03:17)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 05:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA22ADBA9AE188054D015F2529FD4929CC42D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079691   (291988) от 05.12.2016
+
+Alex Neo - №16 (2016) [MP3|320 Kbps] <Italo Disco, Eurodance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Neo & DJ Prezident - Intro (Theme Adamski - Killer) (04:16)
+02. Alex Neo & Antony Ganion - Последний поезд (Сover Bad boys blue - A Train To Nowhere) (04:27)
+03. Alex Neo & Antony Ganion - Дай мне (Bad Boys Blue - Gimme gimme your loving) (04:08)
+04. Alex Neo & Letichev Sky feat. Great George - Ты чувиха (Cover Bad Boys Blue - You're A Woman (   Читать дальше...   )Жанр: Italo Disco, Eurodance, RemixПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B34FD6C4BD74595CC8BD145A285564C59AB398F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262897   (291543) от 17.11.2018
+
+VA - The Official UK Top 40 Singles Chart 16.11.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Thank U, Next
+02. Lady Gaga & Bradley Cooper - Shallow
+03. Little Mix - Woman Like Me (feat. Nicki Minaj)
+04. Rita Ora - Let You Love Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5E86D9D494D73928CB8425EED5919B6DB219BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 732780   (290919) от 10.12.2013
 
 VA - Навстречу Судьбе (4CD) (2013) [MP3|320 кб/с]<Поп-рок, поп, шансон>
@@ -6,7 +209,7 @@ VA - Навстречу Судьбе (4CD) (2013) [MP3|320 кб/с]<Поп-ро�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290919.jpg" />
+  <img src="Z:/picture/008/save_picture_290919.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - DFM тусовка №1 Сводный чарт лучших треков (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290866.jpg" />
+  <img src="Z:/picture/008/save_picture_290866.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - In the Club 2016.1 (2015) [MP3|256 кб/с]<Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290424.jpg" />
+  <img src="Z:/picture/008/save_picture_290424.jpg" />
 </div>
 
 
@@ -92,7 +295,7 @@ VA - Ultimate Songs Pop Essentials (2016) [MP3|195-320 Kbps] <Hip-Hop, Ethnic, S
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290418.jpg" />
+  <img src="Z:/picture/008/save_picture_290418.jpg" />
 </div>
 
 
@@ -121,7 +324,7 @@ VA - ЕвроХит Топ 40 Europa Plus 16.11.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289769.jpg" />
+  <img src="Z:/picture/008/save_picture_289769.jpg" />
 </div>
 
 
@@ -150,7 +353,7 @@ VA - ЕвроХит Топ 40 Europa Plus 01.11.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289582.jpg" />
+  <img src="Z:/picture/008/save_picture_289582.jpg" />
 </div>
 
 
@@ -179,7 +382,7 @@ VA - По волне моей памяти 2: Том2 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289497.jpg" />
+  <img src="Z:/picture/008/save_picture_289497.jpg" />
 </div>
 
 
@@ -208,7 +411,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов ver.89
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289429.jpg" />
+  <img src="Z:/picture/008/save_picture_289429.jpg" />
 </div>
 
 
@@ -237,7 +440,7 @@ VA - По волне моей памяти 2 (Compiled by Виктор31RUS) (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289133.jpg" />
+  <img src="Z:/picture/008/save_picture_289133.jpg" />
 </div>
 
 
@@ -266,7 +469,7 @@ VA - Hits Disco and Pop Dance - Part VIII (2016) [MP3|256 Kbps] <Pop, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288469.jpg" />
+  <img src="Z:/picture/008/save_picture_288469.jpg" />
 </div>
 
 
@@ -295,7 +498,7 @@ VA - По волне моей памяти 2: Том4 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288103.jpg" />
+  <img src="Z:/picture/008/save_picture_288103.jpg" />
 </div>
 
 
@@ -324,7 +527,7 @@ VA - По волне моей памяти 2: Том3 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288100.jpg" />
+  <img src="Z:/picture/008/save_picture_288100.jpg" />
 </div>
 
 
@@ -353,7 +556,7 @@ VA - По волне моей памяти 2: Том6 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287976.jpg" />
+  <img src="Z:/picture/008/save_picture_287976.jpg" />
 </div>
 
 
@@ -382,7 +585,7 @@ VA - По волне моей памяти 2: Том7 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287961.jpg" />
+  <img src="Z:/picture/008/save_picture_287961.jpg" />
 </div>
 
 
@@ -411,7 +614,7 @@ VA - По волне моей памяти 2: Том5 (Compiled by Виктор3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287959.jpg" />
+  <img src="Z:/picture/008/save_picture_287959.jpg" />
 </div>
 
 
@@ -440,7 +643,7 @@ VA - Sex у нашому селі (2006) [MP3|224-256 кб/с]<Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287273.jpg" />
+  <img src="Z:/picture/008/save_picture_287273.jpg" />
 </div>
 
 
@@ -469,7 +672,7 @@ DJ Snake ft Selena Gomez, Ozuna & Cardi B - Taki Taki (2018) Remix [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287100.jpg" />
+  <img src="Z:/picture/008/save_picture_287100.jpg" />
 </div>
 
 
@@ -495,7 +698,7 @@ VA - Дискотека 2018 Synthwave Dance Music от NNNB [MP3|320 Kbps] <Syn
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287099.jpg" />
+  <img src="Z:/picture/008/save_picture_287099.jpg" />
 </div>
 
 
@@ -524,7 +727,7 @@ VA - Самые лучшие треки интернета Осень 2019 [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286909.jpg" />
+  <img src="Z:/picture/008/save_picture_286909.jpg" />
 </div>
 
 
@@ -538,209 +741,6 @@ VA - Самые лучшие треки интернета Осень 2019 [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C70C57141D4916CAEF2AEFEFF99463A9495B5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263644   (286467) от 20.11.2018
-
-VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michelle feat. Matthias Reim - Nicht Verdient
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Andrea Berg - Ja Ich Will
-04. De Lancaster - Rosenzeit (feat. Kay Dörfel)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335481   (286340) от 03.11.2019
-
-VA - The Official UK Top 40 Singles Chart 01.11.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones And I - Dance Monkey 3:30
-02. Regard - Ride It 2:38
-03. Selena Gomez - Lose You To Love Me 3:27
-04. Post Malone;Frank Dukes;Louis Bell;Austin Post;Kaan Gunesberk - Circles 3:35(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60F5E158F50397C1BDB75E2DFE88D0B65942C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186496   (286208) от 25.11.2017
-
-VA - По волне моей памяти 2: Том8 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Старый Примус  -  Ты и я 4:47
-02.  Электроклуб  -  Старое зеркало 5:15
-03.  Добры Молодцы  -  Первый дождь 3:16
-04.  Мираж  -  Я жду тебя 4:49(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CA5F9B6B212821C0CCB7B08D62F777232AFA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263671   (286091) от 20.11.2018
-
-VA - Громкие новинки месяца Vol.17 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Макс Барских - Берега 3:48
-02. EIGHTEEN - Вода 3:17
-03. ИСАЙЯ - Верните миру любовь 3:22
-04. Комсомольск - Оркестр 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698DFA29A47696B4065F049EEB4B937C697E700D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186671   (286011) от 25.11.2017
-
-VA - По волне моей памяти 2: Том11 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Воскресенье  -  До Свиданья, мой друг 4:10
-02.  Наутилус Помпилиус  -  Скованные одной цепью 4:27
-03.  Синяя птица  -  Так вот какая ты 3:32
-04.  Машина времени  -  Уходя -уходи 2:49(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9016296350948193FC1ADE4F5FA52EA58EB72273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186530   (285858) от 25.11.2017
-
-VA - По волне моей памяти 2: Том10 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Машина Времени  -  Наш Дом 3:37
-02.  Воскресение  -  Я сам из тех 3:13
-03.  Цветы  -  Честно 3:49
-04.  Форум  -  Встречайте новый год (дуэт с М.Капуро) 3:50(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D64218D28E9B8C95CC017135AE088D10982FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963857   (285781) от 09.12.2015
-
-VA - Sweet Soul Music (2015) [MP3|320 кб/с]<Soul, Rnb, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285781.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BobWomack - How Could You Break My Heart
-002. Jacksoul - Still Believe in Love
-003. The Jacksons - Can You Feel It (Single Version)
-004. John Legend - She Don't Have to Know(   Читать дальше...   )Жанр: Soul, Rnb, FunkПродолжительность: 09:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5C5860C338C0EFA57A2C7846676879A7AC5A34
 ```
 
 https://mybot314.ru/tekegram_catalog/

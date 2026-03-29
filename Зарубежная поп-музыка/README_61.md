@@ -1,3 +1,32 @@
+###  Публикация: 594863   (313847) от 25.11.2015
+
+V/A - Bravo Hits Сollection (Bravo Hits, Bravo Black Hits, Bravo The Hits, Bravo Hits Special) (1991-2015) [MP3|192, 320 кб/с]<Pop, Dance, R&B, Rock, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_313847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, R&B, Rock, Hip-HopПродолжительность: 02:26:22
+
+CD 1
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486A21C06777C6AF17C0FFE8D86654438274573D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583255   (312674) от 02.12.2012
 
 Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
@@ -6,7 +35,7 @@ Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312674.jpg" />
+  <img src="Z:/picture/008/save_picture_312674.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Bad Boys Blue - 25 Best Hits (2012) [MP3|320 кб/с]<Pop,Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312579.jpg" />
+  <img src="Z:/picture/008/save_picture_312579.jpg" />
 </div>
 
 
@@ -67,7 +96,7 @@ Demis Roussos - 14 Best Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312570.jpg" />
+  <img src="Z:/picture/008/save_picture_312570.jpg" />
 </div>
 
 
@@ -102,7 +131,7 @@ Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312185.jpg" />
+  <img src="Z:/picture/008/save_picture_312185.jpg" />
 </div>
 
 
@@ -131,7 +160,7 @@ Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311955.jpg" />
+  <img src="Z:/picture/008/save_picture_311955.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311892.jpg" />
+  <img src="Z:/picture/008/save_picture_311892.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ The Hardkiss - 2 альбома, 1ЕР, 21 сингл (2011-2017) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311648.jpg" />
+  <img src="Z:/picture/008/save_picture_311648.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ PUPO - 1996 (1996) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310414.jpg" />
+  <img src="Z:/picture/008/save_picture_310414.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ VA - A Playlist of Love Songs (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310115.jpg" />
+  <img src="Z:/picture/008/save_picture_310115.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ VA - Die Deutschen Disco Charts - Die Hits Des Jahres (2018) 3CD [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310110.jpg" />
+  <img src="Z:/picture/008/save_picture_310110.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ Danny Fervent - Beautiful Life (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309873.jpg" />
+  <img src="Z:/picture/008/save_picture_309873.jpg" />
 </div>
 
 
@@ -345,7 +374,7 @@ Workout Music Tv - Best Happy Pop Hits 2020 For Jogging [MP3|320 Kbps] <Pop, Dan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308565.jpg" />
+  <img src="Z:/picture/008/save_picture_308565.jpg" />
 </div>
 
 
@@ -374,7 +403,7 @@ Workout Music Tv - 40 Happy Aerobic & Cardio Hits 2020 [MP3|320 Kbps] <Pop, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308561.jpg" />
+  <img src="Z:/picture/008/save_picture_308561.jpg" />
 </div>
 
 
@@ -403,7 +432,7 @@ Workout Music Tv - Running Fall Hits 2020 Session [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308560.jpg" />
+  <img src="Z:/picture/008/save_picture_308560.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ Roxi Drive - Girl on the TV (2017) [MP3|320 Kbps] <Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307861.jpg" />
+  <img src="Z:/picture/008/save_picture_307861.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ Adriano Celentano - Il Migliore (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307596.jpg" />
+  <img src="Z:/picture/008/save_picture_307596.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Britney Spears - 7 альбомов + Singles Collection Deluxe + 4 Compilations
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307216.jpg" />
+  <img src="Z:/picture/005/save_picture_307216.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Magazine 60 - Costa Del Sol (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306585.jpg" />
+  <img src="Z:/picture/008/save_picture_306585.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305448.jpg" />
+  <img src="Z:/picture/008/save_picture_305448.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Sarah Brightman - Hymn (2018) [MP3|320 Kbps] <Pop, Classical Crossover>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305336.jpg" />
+  <img src="Z:/picture/008/save_picture_305336.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Workout Music Tv - Best Of 128 Bpm Songs 2020 For Fitness & Workout [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304171.jpg" />
+  <img src="Z:/picture/008/save_picture_304171.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303602.jpg" />
+  <img src="Z:/picture/008/save_picture_303602.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303488.jpg" />
+  <img src="Z:/picture/008/save_picture_303488.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303479.jpg" />
+  <img src="Z:/picture/008/save_picture_303479.jpg" />
 </div>
 
 
@@ -734,7 +763,7 @@ Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303417.jpg" />
+  <img src="Z:/picture/008/save_picture_303417.jpg" />
 </div>
 
 
@@ -748,35 +777,6 @@ Nick Kamen - 4 Albums (1987-1992) Collection [MP3|320 Kbps] <Electronic, Pop, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5893C300577F18F1A19D1A6D541DA40C8E0144CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183690   (303210) от 16.11.2017
-
-Boney M. - Worldmusic for Christmas (2017) 2CD [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что в Америке у них не было большого успеха, группа Euro-disco Boney M. была европейским феноменом в 70-е годы. После немецкого продюсера Фрэнка Фариана записал сингл «Baby Do You Wanna Bump?» (который был успешным в Голландии и Бельгии), он создал Boney M., чтобы поддержать песню, введя четырех вокалистов из Западной Индии, которые работали в качестве (   Читать дальше...   )01. Oh Christmas Tree
-02. Hark the Herald Angel Sing
-03. Zion's Daughter
-04. Oh Come All Ye Faithful(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5D830192EAE49C924E3F0CB42F6792B38CDBAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

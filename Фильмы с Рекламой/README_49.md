@@ -1,3 +1,29 @@
+###  Публикация: 1312115   (536083) от 02.07.2019
+
+В полном расцвете / In Full Bloom (2018) BDRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит вскоре после окончания Второй Мировой войны - два боксера из противоположных миров, США и Японии, сходятся в боксёрском поединке, где на кону не только спортивный титул, но и честь страны. Однако, нечистые на руку боссы якудза пытаются повлиять на исход поединка, наплевав из эгоистичных побуждений на код чести своих предков.Производство: Япония, США / Winery Productions, Bleiberg Entertainment, Cinesia PicturesЖанр: Боевик, драма, криминалРежиссер: Реза Гассеми, Адам ВилласенорАктеры: Tyler Wood, Yusuke Ogasawara, Хироюки Ватанабэ, Тимоти В. Мерфи, Стефани Эстес, Хидетоши Имура, Сю Сакимото, Френсис Поло, Хазуки Като, Син СимидзуПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:26:53Реклама: Присутствует баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652396A4E2EAB80A7F091355BB1742D7C392CA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311921   (536067) от 02.07.2019
 
 Мы – легенды / We Are Legends (Jap tit lung) (2019) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536067.jpg" />
+  <img src="Z:/picture/008/save_picture_536067.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535986.jpg" />
+  <img src="Z:/picture/008/save_picture_535986.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535977.jpg" />
+  <img src="Z:/picture/008/save_picture_535977.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535810.jpg" />
+  <img src="Z:/picture/008/save_picture_535810.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535006.jpg" />
+  <img src="Z:/picture/008/save_picture_535006.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533950.jpg" />
+  <img src="Z:/picture/008/save_picture_533950.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531046.jpg" />
+  <img src="Z:/picture/008/save_picture_531046.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531036.jpg" />
+  <img src="Z:/picture/008/save_picture_531036.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530972.jpg" />
+  <img src="Z:/picture/008/save_picture_530972.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529337.jpg" />
+  <img src="Z:/picture/008/save_picture_529337.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529153.jpg" />
+  <img src="Z:/picture/008/save_picture_529153.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528881.jpg" />
+  <img src="Z:/picture/008/save_picture_528881.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528880.jpg" />
+  <img src="Z:/picture/008/save_picture_528880.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528879.jpg" />
+  <img src="Z:/picture/008/save_picture_528879.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528367.jpg" />
+  <img src="Z:/picture/008/save_picture_528367.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528039.jpg" />
+  <img src="Z:/picture/008/save_picture_528039.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527985.jpg" />
+  <img src="Z:/picture/008/save_picture_527985.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527983.jpg" />
+  <img src="Z:/picture/008/save_picture_527983.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525173.jpg" />
+  <img src="Z:/picture/008/save_picture_525173.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524397.jpg" />
+  <img src="Z:/picture/008/save_picture_524397.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519923.jpg" />
+  <img src="Z:/picture/008/save_picture_519923.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519884.jpg" />
+  <img src="Z:/picture/008/save_picture_519884.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518910.jpg" />
+  <img src="Z:/picture/008/save_picture_518910.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518862.jpg" />
+  <img src="Z:/picture/008/save_picture_518862.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518851.jpg" />
+  <img src="Z:/picture/008/save_picture_518851.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59BCFA10760685AD3DE25EEF6686B031E8629000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314339   (518846) от 14.07.2019
-
-Все, что осталось от революции / Tout ce quil me reste de la revolution (2018) WEBRip [H.264/720p-LQ] [MVO, AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анжель было восемь лет, когда в восточном Берлине открылся первый МакДональдс. С тех пор она борется с заклятием своего поколения - в мире политики затишье. Она из семьи коммунистов, но ее сестра выбрала мир бизнеса, а мать резко поменяла взгляды и переехала жить в деревню.Производство: Франция / Agat Films & Cie, Apsara Films, Acme ProductionsЖанр: КомедияРежиссер: Джудит ДэвисАктеры: Джудит Дэвис, Малик Зиди, Клер Дюма, Симон Бакуше, Мелани Бэстель, Надир Легран, Мирей Перье, Ясин Уиша, Pat Belland, Самира СедираПеревод: Многоголосый любительский - AlphaProjectСубтитры: ОтсутствуютПродолжительность: 01:29:15Реклама: Присутствуют вставки видео голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF35EBB9E7B977A1CED2A3B461006971865996D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

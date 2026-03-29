@@ -6,7 +6,7 @@ SideFx Houdini FX 18.0.499 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746526.jpg" />
+  <img src="Z:/picture/008/save_picture_746526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GridinSoft Anti-Malware 4.1.53.4986 RePack & Portable by 9649 (14.07.2020) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746524.jpg" />
+  <img src="Z:/picture/008/save_picture_746524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Total Commander 9.51 64bit 32bit VIM 40 Portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746523.jpg" />
+  <img src="Z:/picture/008/save_picture_746523.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mozilla FireFox 96.0.1.8048 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746514.jpg" />
+  <img src="Z:/picture/008/save_picture_746514.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Acoustica Premium Edition 7.3.24 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746508.jpg" />
+  <img src="Z:/picture/008/save_picture_746508.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Files Inspector Pro 3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746504.jpg" />
+  <img src="Z:/picture/008/save_picture_746504.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AdwCleaner 5.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746502.jpg" />
+  <img src="Z:/picture/008/save_picture_746502.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Calibre 3.39.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746422.jpg" />
+  <img src="Z:/picture/008/save_picture_746422.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Q-Dir 7.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746419.jpg" />
+  <img src="Z:/picture/008/save_picture_746419.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Adobe Bridge 2020 10.1.1.166 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746418.jpg" />
+  <img src="Z:/picture/008/save_picture_746418.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Basilisk 2019.02.11 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746414.jpg" />
+  <img src="Z:/picture/008/save_picture_746414.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ IDPhotoStudio + Portable 2.15.3.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746410.jpg" />
+  <img src="Z:/picture/008/save_picture_746410.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CorelDRAW Graphics Suite 2020 22.1.0.517 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746402.jpg" />
+  <img src="Z:/picture/008/save_picture_746402.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ EZ CD Audio Converter 9.5.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746379.jpg" />
+  <img src="Z:/picture/008/save_picture_746379.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746376.jpg" />
+  <img src="Z:/picture/008/save_picture_746376.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ FXSound Pro 1.1.13.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746371.jpg" />
+  <img src="Z:/picture/008/save_picture_746371.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ TweakPower 2.006 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746370.jpg" />
+  <img src="Z:/picture/008/save_picture_746370.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PotPlayer 220106 (1.7.21590) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746367.jpg" />
+  <img src="Z:/picture/008/save_picture_746367.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Firefox Browser 96.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746364.jpg" />
+  <img src="Z:/picture/008/save_picture_746364.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Glary Utilities Pro 5.180.0.209 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746362.jpg" />
+  <img src="Z:/picture/008/save_picture_746362.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Slimjet 10.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746359.jpg" />
+  <img src="Z:/picture/008/save_picture_746359.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WinX HD Video Converter Deluxe 5.9.4 Build on Apr 1 2016 RePack by FoXtrot [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746340.jpg" />
+  <img src="Z:/picture/008/save_picture_746340.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Display Driver Uninstaller 15.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746324.jpg" />
+  <img src="Z:/picture/008/save_picture_746324.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Sticky Password Premium 8.2.1.228 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746317.jpg" />
+  <img src="Z:/picture/008/save_picture_746317.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Zero + portable 0.18.0.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746306.jpg" />
+  <img src="Z:/picture/008/save_picture_746306.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ PortExpert +  Portable 1.7.5.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746303.jpg" />
+  <img src="Z:/picture/008/save_picture_746303.jpg" />
 </div>
 
 

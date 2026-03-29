@@ -1,3 +1,90 @@
+###  Публикация: 1569827   (447322) от 15.08.2022
+
+Axioma - Sepsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blood Ruminations (00:06:44)
+02 - Contortions of Passage (00:06:56)
+03 - Septic (00:03:06)
+04 - God Extraction (00:04:52)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E75530515CCEA668990EC6778188DE3E55C581B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569898   (447299) от 15.08.2022
+
+Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Funeral March -6ft Under (00:02:47)
+02 - Black Knight (00:02:43)
+03 - Madness (Explicit Version) (00:04:25)
+04 - Age of Darkness (00:03:57)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50DB401159C09910AE4ECFFC72134CA1485B882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569972   (447197) от 15.08.2022
+
+Amon Amarth - The Great Heathen Army (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Get in the Ring (00:04:24)
+02 - The Great Heathen Army (00:04:04)
+03 - Heidrun (00:04:42)
+04 - Oden Owns You All (00:04:17)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591276C6B8D24644728762B1F3691CEB465163F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943274   (447125) от 04.10.2015
 
 Trivium - Silence In The Snow (2015) Special Edition [FLAC|tracks|WEB-DL]<New Wave Of American Heavy Metal>
@@ -6,7 +93,7 @@ Trivium - Silence In The Snow (2015) Special Edition [FLAC|tracks|WEB-DL]<New Wa
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447125.jpg" />
+  <img src="Z:/picture/008/save_picture_447125.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Stam1na - 6 альбомов (2005 - 2014) Дискография [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447120.jpg" />
+  <img src="Z:/picture/008/save_picture_447120.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [FLAC|image+.cue]<Neo-Classical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447110.jpg" />
+  <img src="Z:/picture/008/save_picture_447110.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Accept - Heavy Ballads (2015) 2CD|bootleg [FLAC|tracks]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446804.jpg" />
+  <img src="Z:/picture/008/save_picture_446804.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Aposento - Aposento (2014) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446760.jpg" />
+  <img src="Z:/picture/008/save_picture_446760.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Alberto Rionda Alquimia - Alquimia (2013) Japanese Ed.  2016 Reissue [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446755.jpg" />
+  <img src="Z:/picture/008/save_picture_446755.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Zuriaake - Gu Yan (2015) Digipak [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446610.jpg" />
+  <img src="Z:/picture/008/save_picture_446610.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Toundra - IV (2015) [FLAC|Lossless|image + .cue] <Instrumental Post-Rock, Post-M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446609.jpg" />
+  <img src="Z:/picture/008/save_picture_446609.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Serious Black - Mirrorworld (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446607.jpg" />
+  <img src="Z:/picture/008/save_picture_446607.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Saor - Forgotten Paths (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Caledo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446577.jpg" />
+  <img src="Z:/picture/008/save_picture_446577.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Meshuggah - The Violent Sleep Of Reason (2016) [FLAC|Lossless|image + .cue] <Mat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446241.jpg" />
+  <img src="Z:/picture/008/save_picture_446241.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Insomnium - Winter's Gate (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446149.jpg" />
+  <img src="Z:/picture/008/save_picture_446149.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Leaves' Eyes - Black Butterfly (2019) EP, Special Edition, 2020, AFM Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445363.jpg" />
+  <img src="Z:/picture/008/save_picture_445363.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Behemoth - And the Forests Dream Eternally (1995) Remastered, 2020, 2CD, Metal B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445248.jpg" />
+  <img src="Z:/picture/008/save_picture_445248.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Myrath - 6 Albums, 9CD (2007-2019) [FLAC|Lossless|image + .cue | tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445233.jpg" />
+  <img src="Z:/picture/008/save_picture_445233.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Dodsfall (Dødsfall) - Djevelens evangelie (2013) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445220.jpg" />
+  <img src="Z:/picture/008/save_picture_445220.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Acid Blade - Power Dive (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445216.jpg" />
+  <img src="Z:/picture/008/save_picture_445216.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Deathdefier - Transformator (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Technoge
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445210.jpg" />
+  <img src="Z:/picture/008/save_picture_445210.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Stallion - Slaves Of Time (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445131.jpg" />
+  <img src="Z:/picture/008/save_picture_445131.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Children Of Bodom - I Worship Chaos (2015) Limited Edition [FLAC|image+.cue]<Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445069.jpg" />
+  <img src="Z:/picture/008/save_picture_445069.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ U.D.O. - Steelhammer (2013) Standart Edition [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444870.jpg" />
+  <img src="Z:/picture/008/save_picture_444870.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ VA - Voyager: 10 Years Nuclear Blast (1997) 3CD [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444801.jpg" />
+  <img src="Z:/picture/008/save_picture_444801.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ VA - Tribute to Lake Of Tears - Twenty Years In Tears 2 (2014) 2CD [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444508.jpg" />
+  <img src="Z:/picture/008/save_picture_444508.jpg" />
 </div>
 
 
@@ -653,92 +740,6 @@ VA - Tribute to Lake Of Tears - Twenty Years In Tears 2 (2014) 2CD [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0924D79AEC6CDD3A7AC0B050416E021BEAF9D5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052929   (444249) от 12.10.2016
-
-Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [FLAC|tracks]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абсолютно новый альбом одного из самых важных представителей немецкого металкора, коллектива Heaven Shall Burn. Предыдущий альбом группы - "VETO" (2013), занял вторую сточку в германском альбомном чарте. Продюсерами нового альбома выступили гитаристы Alexander Dietz и Maik Weichert. Смикшировал альбом популярный датский продюсер и звукоинженер Tue Madsen, (   Читать дальше...   )CD1 - Original Album
-CD2 - Too Good To Steal From
-CD3 - Dark Purity MixЖанр: MetalcoreПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DFC90471ECA617FC6C1AFF019943195362AA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409637   (443278) от 18.09.2020
-
-Panzerballett - Planet Z (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Metal, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prime Time (5:23)
-02. Who The Jack Is Migger (6:37)
-03. Mind Your Head (3:34)
-04. No One Is Flying The Plane (7:08)(   Читать дальше...   )Жанр: Jazz Rock, Metal, FusionПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DF1B669877EC89AA4C5A3E8BA7DBE90F9A1112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409758   (443263) от 18.09.2020
-
-Zakk Sabbath - Vertigo (2020) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath (6:18)
-02. The Wizard (4:22)
-03. Wasp/Behind The Wall Of Sleep/Bassically/NIB (10:35)
-04. Wicked World (5:12)(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CFF23AEB7689A932289DBE7F844126A5FD5F98
 ```
 
 https://mybot314.ru/tekegram_catalog/

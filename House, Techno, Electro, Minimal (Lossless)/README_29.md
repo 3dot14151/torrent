@@ -1,3 +1,90 @@
+###  Публикация: 1028123   (692965) от 21.06.2016
+
+VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) (01:02:42)
+02. VA - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) (01:05:46)
+03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) (05:47)
+04. Flume - Never Be Like You (Disclosure Remix) (03:46)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540BF753214A1C83070C06D66B32C1131784CDD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288809   (692219) от 13.03.2019
+
+VC-118A - Inside (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tide (06:27)
+ 02. PCB (04:36)
+ 03. Metric Spaces (00:56)
+ 04. Dither (04:44)(   Читать дальше...   )Жанр: Techno, Electro, AmbientПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B59645370E1B5BAD5B8B94769554D905D6C013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288833   (692184) от 13.03.2019
+
+Modd - Swallow's Nest (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/06. Swallow's Nest (5:28)
+ 02/06. Ruskeala (5:23)
+ 03/06. Paper Moon (5:58)
+ 04/06. Swallow's Nest (Extended Mix) (8:01)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0649718BFE4A3CCB003F96AFB84D1B389E1FEFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221792   (691533) от 26.04.2018
 
 Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -6,7 +93,7 @@ Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691533.jpg" />
+  <img src="Z:/picture/008/save_picture_691533.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691532.jpg" />
+  <img src="Z:/picture/008/save_picture_691532.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691266.jpg" />
+  <img src="Z:/picture/008/save_picture_691266.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Balkan Connection Summer 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690783.jpg" />
+  <img src="Z:/picture/008/save_picture_690783.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690654.jpg" />
+  <img src="Z:/picture/008/save_picture_690654.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690530.jpg" />
+  <img src="Z:/picture/008/save_picture_690530.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690514.jpg" />
+  <img src="Z:/picture/008/save_picture_690514.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688762.jpg" />
+  <img src="Z:/picture/008/save_picture_688762.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688568.jpg" />
+  <img src="Z:/picture/008/save_picture_688568.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688567.jpg" />
+  <img src="Z:/picture/008/save_picture_688567.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688563.jpg" />
+  <img src="Z:/picture/008/save_picture_688563.jpg" />
 </div>
 
 
@@ -315,6 +402,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222230   (687579) от 28.04.2018
+
+NX1, Stephanie Sykes, Jay Quentin - ://About Blank 004 (2018) ://about blank [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NX1 - AB1 (07:10)
+ 02. Stephanie Sykes - Blur (05:08)
+ 03. Jay Quentin - Information Superhighway (07:40)Жанр: TechnoПродолжительность: 00:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613572E020C514ED75DADE2880C1C0C39CB9082D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222225   (687494) от 28.04.2018
 
 Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -323,7 +438,7 @@ Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687494.jpg" />
+  <img src="Z:/picture/008/save_picture_687494.jpg" />
 </div>
 
 
@@ -352,7 +467,7 @@ Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687445.jpg" />
+  <img src="Z:/picture/008/save_picture_687445.jpg" />
 </div>
 
 
@@ -381,7 +496,7 @@ Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686759.jpg" />
+  <img src="Z:/picture/008/save_picture_686759.jpg" />
 </div>
 
 
@@ -410,7 +525,7 @@ Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686647.jpg" />
+  <img src="Z:/picture/008/save_picture_686647.jpg" />
 </div>
 
 
@@ -439,7 +554,7 @@ VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685306.jpg" />
+  <img src="Z:/picture/008/save_picture_685306.jpg" />
 </div>
 
 
@@ -468,7 +583,7 @@ Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684540.jpg" />
+  <img src="Z:/picture/008/save_picture_684540.jpg" />
 </div>
 
 
@@ -496,7 +611,7 @@ VA - Ibiza Underground 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684410.jpg" />
+  <img src="Z:/picture/008/save_picture_684410.jpg" />
 </div>
 
 
@@ -525,7 +640,7 @@ VA - Arabian Nights (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Deep-house, Do
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684132.jpg" />
+  <img src="Z:/picture/008/save_picture_684132.jpg" />
 </div>
 
 
@@ -554,7 +669,7 @@ Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683124.jpg" />
+  <img src="Z:/picture/008/save_picture_683124.jpg" />
 </div>
 
 
@@ -583,7 +698,7 @@ Definition - Progression LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682754.jpg" />
+  <img src="Z:/picture/008/save_picture_682754.jpg" />
 </div>
 
 
@@ -612,7 +727,7 @@ Dahu - Desolate EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682750.jpg" />
+  <img src="Z:/picture/008/save_picture_682750.jpg" />
 </div>
 
 
@@ -625,120 +740,6 @@ Dahu - Desolate EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F838BC8AFD542920FE89B7F5CC09A394377B4225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029306   (682569) от 26.06.2016
-
-Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comet (Original Mix) (06:18)
-02. Moon (Original Mix) (08:29)
-03. Sun (Original Mix) (09:34)Жанр: Deep House, Tech HouseПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFD03D8DB87BC57D452F923F72087F74A769C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535856   (682507) от 08.03.2022
-
-VA - Storm'99 Progressive Dance (1999) [FLAC|Lossless|tracks + .cue] <Progressive House, House, Speed Garage>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vengaboys - Boom, Boom, Boom, Boom! (Brooklyn Bounce Boombastic Remix) (4:11)
-02. Blackout - Gotta Have Hope (Spring Mix) (3:19)
-03. Boys'R'Us - Singin' In My Mind (Greenfield S.G. Dub/Scklon Edit) (5:41)
-04. D.O.N.S. - Jack To The Sound Of The Underground (D.O.N.S. Single Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Speed GarageПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5417316A7412858F367B5F3A49C1DC59DFD435A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290085   (682158) от 18.03.2019
-
-Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dyscamupia (Forward) (12:41)
- 02. Dyscamupia (Paused) (05:44)
- 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290173   (680435) от 19.03.2019
-
-Twin Peetz | The Difference Engine - Discography 11 Releases (1998-2018) ODrex Music, Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 00001 (02:56)
- 02. 00100 (01:54)
- 03. 00010 (01:55)
- 04. 01000 (02:13)(   Читать дальше...   )Тип издания: WebЖанр: Techno/MinimalПродолжительность: 00:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFCA3C13F952D29418B77BA5B579CC3DB3524B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

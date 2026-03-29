@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713785.jpg" />
+  <img src="Z:/picture/008/save_picture_713785.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Maxthon Browser 5.2.1.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713782.jpg" />
+  <img src="Z:/picture/008/save_picture_713782.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Insofta Cover Commander 5.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713778.jpg" />
+  <img src="Z:/picture/008/save_picture_713778.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - TheBeats 12 (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713775.jpg" />
+  <img src="Z:/picture/008/save_picture_713775.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ DVDFab 9.1.9.8 Final RePack (& Portable) by elchupacabra [Ru/En] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713764.jpg" />
+  <img src="Z:/picture/008/save_picture_713764.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713716.jpg" />
+  <img src="Z:/picture/005/save_picture_713716.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713707.jpg" />
+  <img src="Z:/picture/008/save_picture_713707.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713689.jpg" />
+  <img src="Z:/picture/008/save_picture_713689.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Waltr 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713684.jpg" />
+  <img src="Z:/picture/008/save_picture_713684.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Andre Previn & His Pals - Pal Joey (1957) Remastered, 1991, Contemporary Rec [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713683.jpg" />
+  <img src="Z:/picture/005/save_picture_713683.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713669.jpg" />
+  <img src="Z:/picture/008/save_picture_713669.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2903) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713637.jpg" />
+  <img src="Z:/picture/008/save_picture_713637.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Mozilla Firefox 38.0 beta 8-2 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713626.jpg" />
+  <img src="Z:/picture/008/save_picture_713626.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713606.jpg" />
+  <img src="Z:/picture/008/save_picture_713606.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Internet Download Manager 6.25 Build 21 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713583.jpg" />
+  <img src="Z:/picture/008/save_picture_713583.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ QTranslate 6.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713556.jpg" />
+  <img src="Z:/picture/008/save_picture_713556.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ DiskDigger 1.18.17.2417 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713540.jpg" />
+  <img src="Z:/picture/008/save_picture_713540.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713539.jpg" />
+  <img src="Z:/picture/008/save_picture_713539.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ SIV (System Information Viewer) 5.29 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713528.jpg" />
+  <img src="Z:/picture/008/save_picture_713528.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ iCollections 6 v6.5.3 (build 65304) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713522.jpg" />
+  <img src="Z:/picture/008/save_picture_713522.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713512.jpg" />
+  <img src="Z:/picture/008/save_picture_713512.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713510.jpg" />
+  <img src="Z:/picture/008/save_picture_713510.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ RadioBOSS Advanced 5.7.1.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713503.jpg" />
+  <img src="Z:/picture/008/save_picture_713503.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Net Radar 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713501.jpg" />
+  <img src="Z:/picture/008/save_picture_713501.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713500.jpg" />
+  <img src="Z:/picture/008/save_picture_713500.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Cover Desk 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713491.jpg" />
+  <img src="Z:/picture/008/save_picture_713491.jpg" />
 </div>
 
 

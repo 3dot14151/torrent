@@ -1,3 +1,115 @@
+###  Публикация: 1162302   (459146) от 01.09.2017
+
+Carbon Copy Cloner 5.0 (5061) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: август 2017Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A89E613F7295B1BEE95410C5B9084C91A46C9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162431   (459049) от 01.09.2017
+
+Чудо-женщина / Wonder Woman (2017) WEB-DLRip [480p] iPod
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед тем как стать Чудо-Женщиной, она была Дианой — принцессой амазонок, обученной быть непобедимой воительницей. И когда на берегах ограждённого от внешнего мира райского острова, который служил ей родиной, терпит крушение американский пилот и рассказывает о серьёзном конфликте, бушующем во внешнем мире, Диана покидает свой дом, чтобы справиться с этой угрозой. (   Читать дальше...   )Производство: США, Китай, Гонконг, Великобритания, Италия, КанадаЖанр: Фантастика, фэнтези, боевик, приключения, военныйРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Конни Нильсен, Робин Райт, Дэнни Хьюстон, Дэвид Тьюлис, Саид Тагмауи, Юэн Бремнер, Юджин «Храбрый камень», Люси ДэвисПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 02:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CB6341D20647A0A857EEAF7E14822C12A94701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107344   (458890) от 01.09.2017
+
+Blocs 2.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02  августа 2017Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3274A0A66349FE7A2C9B49B24A09EAD97CED2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162275   (458887) от 01.09.2017
+
+SecuritySpy 4.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458887.jpg" />
+</div>
+
+
+###  Подробнее
+
+SecuritySpy позволит Вам быстро настроить эффективное домашнее (или для небольшого офиса) видеонаблюдение (CCTV). Причем SecuritySpy обеспечивает достаточно надежное решение.
+
+SecuritySpy работает с широким спектром камер чтобы удовлетворить все потребности, от традиционных аналоговых камер до последней сетевой камеры HD разрешения, предлагая высокое качество видео. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2017Разработчик: BensoftwareПоддерживаемая ОС: OS X 10.5 или более поздняя версияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE926AD9991E917936C03148E9CDB1DDEFDEF5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162201   (458879) от 01.09.2017
 
 Wondershare Video Converter Ultimate 10.0.4.6 [Multi]
@@ -6,7 +118,7 @@ Wondershare Video Converter Ultimate 10.0.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458879.jpg" />
+  <img src="Z:/picture/008/save_picture_458879.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ Yate 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457821.jpg" />
+  <img src="Z:/picture/008/save_picture_457821.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ Swinsian 1.12.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457728.jpg" />
+  <img src="Z:/picture/008/save_picture_457728.jpg" />
 </div>
 
 
@@ -88,7 +200,7 @@ Boinx FotoMagico 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457725.jpg" />
+  <img src="Z:/picture/008/save_picture_457725.jpg" />
 </div>
 
 
@@ -115,7 +227,7 @@ Bartender 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457645.jpg" />
+  <img src="Z:/picture/008/save_picture_457645.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ iShowU Instant (Advanced) 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457571.jpg" />
+  <img src="Z:/picture/008/save_picture_457571.jpg" />
 </div>
 
 
@@ -171,7 +283,7 @@ Together 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457560.jpg" />
+  <img src="Z:/picture/008/save_picture_457560.jpg" />
 </div>
 
 
@@ -200,7 +312,7 @@ Path Finder 7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457465.jpg" />
+  <img src="Z:/picture/008/save_picture_457465.jpg" />
 </div>
 
 
@@ -226,7 +338,7 @@ Vertus Fluid Mask 3.3.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457458.jpg" />
+  <img src="Z:/picture/008/save_picture_457458.jpg" />
 </div>
 
 
@@ -254,7 +366,7 @@ Lyn 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457398.jpg" />
+  <img src="Z:/picture/008/save_picture_457398.jpg" />
 </div>
 
 
@@ -282,7 +394,7 @@ TinkerTool System 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457388.jpg" />
+  <img src="Z:/picture/008/save_picture_457388.jpg" />
 </div>
 
 
@@ -309,7 +421,7 @@ Beyond Compare 4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457240.jpg" />
+  <img src="Z:/picture/008/save_picture_457240.jpg" />
 </div>
 
 
@@ -336,7 +448,7 @@ Disk Drill Enterprise 3.6.906 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456835.jpg" />
+  <img src="Z:/picture/008/save_picture_456835.jpg" />
 </div>
 
 
@@ -363,7 +475,7 @@ OptimUSB 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456717.jpg" />
+  <img src="Z:/picture/008/save_picture_456717.jpg" />
 </div>
 
 
@@ -389,7 +501,7 @@ Apple MainStage 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456501.jpg" />
+  <img src="Z:/picture/008/save_picture_456501.jpg" />
 </div>
 
 
@@ -418,7 +530,7 @@ UninstallPKG 1.1.8  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455911.jpg" />
+  <img src="Z:/picture/008/save_picture_455911.jpg" />
 </div>
 
 
@@ -446,7 +558,7 @@ DropDMG 3.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455875.jpg" />
+  <img src="Z:/picture/008/save_picture_455875.jpg" />
 </div>
 
 
@@ -473,7 +585,7 @@ Pacifist 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455874.jpg" />
+  <img src="Z:/picture/008/save_picture_455874.jpg" />
 </div>
 
 
@@ -502,7 +614,7 @@ Swinsian 1.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455868.jpg" />
+  <img src="Z:/picture/008/save_picture_455868.jpg" />
 </div>
 
 
@@ -529,7 +641,7 @@ SMART Utility 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455747.jpg" />
+  <img src="Z:/picture/008/save_picture_455747.jpg" />
 </div>
 
 
@@ -556,7 +668,7 @@ Framer Studio v72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455463.jpg" />
+  <img src="Z:/picture/008/save_picture_455463.jpg" />
 </div>
 
 
@@ -585,7 +697,7 @@ Affinity Designer 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455313.jpg" />
+  <img src="Z:/picture/008/save_picture_455313.jpg" />
 </div>
 
 
@@ -599,116 +711,6 @@ Affinity Designer  в (   Читать дальше...   )Тип издания
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B95BF914C81B413D659803EA669BD4C18B954A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408572   (455292) от 12.09.2020
-
-CleanMyMac X 4.6.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте CleanMyMac X!
-В программе все, что вы знали об уходе за Mac, но в X раз лучше!
-CleanMyMac сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии. CleanMyMac имеет красивый интерфейс, который не оставит равнодушным никого. Все выполнено в стандартном виде Mac OS: красиво, удобно и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2020Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34713E7423E8EB9C230CAB24855248107A6DD21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942320   (455266) от 30.09.2015
-
-VMware Fusion Professional 8.0.1 (3094680) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455266.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
-
-VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2015Разработчик: VMware, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A38BB4FB9BF30C6BFF83350AABC0DB56DAD13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942391   (455261) от 30.09.2015
-
-TotalFinder 1.7.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455261.jpg" />
-</div>
-
-
-###  Подробнее
-
-TotalFinder – это набор полезных утилит, расширяющих исходную функциональность файлового менеджера Mac OS X Finder. Главной особенностью предлагаемого продукта является поддержка вкладок, в которых могут открываться отдельные окна «проводника».
-
-Приложение TotalFinder обладает исключительной производительностью, удобным пользовательским интерфейсом, компактными размерами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2015Разработчик: BinaryageПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Французский, Итальянский, Финский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C27D90A82A06E0CC384969E8CF20850A4E3B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060533   (454906) от 07.10.2016
-
-WinX DVD Ripper for Mac 4.9.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454906.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinX DVD Ripper for Mac - конвертер DVD дисков, в том числе с защитой от копирования, в следующие форматы: MP4, MOV, MPEG, AVI, FLV, MP3, для iPhone, iPod, iPad, Apple TV, PSP и другие. Mac DVD Ripper способен разблокировать все технологии защиты от копирования, например, CSS, региональный код, Sony ARccOS, UOPs, Disney X-проект DRM, и т.д.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2016Разработчик: Digiarty Software, IncПоддерживаемая ОС: macOS 10.6 - 10.12Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F98E4DDBB8804823708E2395F08D57B56DBCD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

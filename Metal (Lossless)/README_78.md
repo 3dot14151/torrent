@@ -1,3 +1,90 @@
+###  Публикация: 1199947   (797001) от 19.01.2018
+
+Exact Division - Be Fair If You Can (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taking The Black (3:59)
+ 02. Live Online (3:47)
+ 03. The Deep (4:16)
+ 04. War (3:32)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90628EBA129CF7D151A04FB6E7FF4654884475E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508613   (796871) от 09.11.2021
+
+Existance - Wolf Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highgate Vampire
+02. Deathbringer
+03. Power Of The Gods
+04. Rock'N Roll(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C236591A903271E1149046DFD3C5D9993F4F44A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508618   (796858) от 09.11.2021
+
+The Dark Horde - The Calling (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. Mask
+03. Childhood
+04. Victim(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08094090B2DDAF8176F75AF50EDA484ED8360A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508639   (796761) от 09.11.2021
 
 Diamond Head - Lightning To The Nations (1980) 2xCD [FLAC|Lossless|image + .cue] <NWOBHM>
@@ -6,7 +93,7 @@ Diamond Head - Lightning To The Nations (1980) 2xCD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796761.jpg" />
+  <img src="Z:/picture/008/save_picture_796761.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ War - Ex Tenebris Nasceris Ut Deleas (2004) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796685.jpg" />
+  <img src="Z:/picture/008/save_picture_796685.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ SIG:AR:TYR - Northen (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796405.jpg" />
+  <img src="Z:/picture/008/save_picture_796405.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ October Tide - Winged Waltz (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796396.jpg" />
+  <img src="Z:/picture/008/save_picture_796396.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Bombus - Repeat Until Death (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796394.jpg" />
+  <img src="Z:/picture/008/save_picture_796394.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Kick Axe - Welcome To The Club (1985) 2001, Rewind Records [APE|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796389.jpg" />
+  <img src="Z:/picture/008/save_picture_796389.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Burning Dead - Fear & Devastation (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796326.jpg" />
+  <img src="Z:/picture/008/save_picture_796326.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Naughty Dog - Dogs Like No Clowns (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796289.jpg" />
+  <img src="Z:/picture/008/save_picture_796289.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Count Raven - The Sixth Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796287.jpg" />
+  <img src="Z:/picture/008/save_picture_796287.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Edge Of Paradise - Universe (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796284.jpg" />
+  <img src="Z:/picture/008/save_picture_796284.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Night Hearth - El rincon del tiempo y el alma (2021) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796283.jpg" />
+  <img src="Z:/picture/008/save_picture_796283.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Illumishade - Eclyptic: Wake Of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796275.jpg" />
+  <img src="Z:/picture/008/save_picture_796275.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Edge Of Paradise - The Unknown (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796239.jpg" />
+  <img src="Z:/picture/008/save_picture_796239.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Edenbridge - A Livetime in Eden [CD+DVD] (2004) [FLAC|Lossless]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796154.jpg" />
+  <img src="Z:/picture/008/save_picture_796154.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Mortes Saltantes - Yomi Kafeli (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795734.jpg" />
+  <img src="Z:/picture/008/save_picture_795734.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Magnesium - Buried 'N' Live (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795731.jpg" />
+  <img src="Z:/picture/008/save_picture_795731.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Maradando Karasodas - Husdaralo (2015) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795730.jpg" />
+  <img src="Z:/picture/008/save_picture_795730.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Deserted Fear - Dead Shores Rising (2017) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795729.jpg" />
+  <img src="Z:/picture/008/save_picture_795729.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Masacre - Metal Medallo Attack (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795728.jpg" />
+  <img src="Z:/picture/008/save_picture_795728.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Khaos Order - Hate - Blasphemy - Destruction (2014) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795725.jpg" />
+  <img src="Z:/picture/008/save_picture_795725.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Drunken Bastards - Posercrusher (2007) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795724.jpg" />
+  <img src="Z:/picture/008/save_picture_795724.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795711.jpg" />
+  <img src="Z:/picture/008/save_picture_795711.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795705.jpg" />
+  <img src="Z:/picture/008/save_picture_795705.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D88B855BFDE04C81D61A40EB7A09D35EDA2110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200445   (795656) от 21.01.2018
-
-Iron Savior - Reforged - Riding on Fire (2017) 2CD (Japanese Edition) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warrior
-02. Iron Savior
-03. Tales of the Bold
-04. No Heroes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8334583DFC17437AD54D6D4BDD418D1A2BF0A4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200405   (795644) от 21.01.2018
-
-Gamma Ray - Land of the Free (1995) 2CD (Japanese Anniversary Edition, 2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Metal Mania (Holocaust Cover)
-02. As Time Goes By (Pre-production Version)
-03. The Silence ’95
-04. Dream Healer (Instrumental) (Live at Chameleon Studios 2017)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBABB58CD0736AF30428A09A7B347038196F275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509080   (795617) от 11.11.2021
-
-Planet Fatale - The Cycle Repeats (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking To Myself (04:24)
-02. 86 (03:36)
-03. Break For You (05:18)
-04. Shotgun Riders (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC94C5F7A9B840F99AAFB820A2CAC8010C05FB7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

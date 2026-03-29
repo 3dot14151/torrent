@@ -6,7 +6,7 @@ Glary Disk Cleaner 5.0.1.209 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782724.jpg" />
+  <img src="Z:/picture/008/save_picture_782724.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ForkLift 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782693.jpg" />
+  <img src="Z:/picture/008/save_picture_782693.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782692.jpg" />
+  <img src="Z:/picture/008/save_picture_782692.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782691.jpg" />
+  <img src="Z:/picture/008/save_picture_782691.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782687.jpg" />
+  <img src="Z:/picture/008/save_picture_782687.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Auslogics File Recovery 9.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782670.jpg" />
+  <img src="Z:/picture/008/save_picture_782670.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Trojan Killer 2.1.29 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782667.jpg" />
+  <img src="Z:/picture/008/save_picture_782667.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Process Lasso 9.8.1.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782660.jpg" />
+  <img src="Z:/picture/008/save_picture_782660.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Google Chrome 83.0.4103.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782648.jpg" />
+  <img src="Z:/picture/008/save_picture_782648.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SIV (System Information Viewer) 5.49 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782640.jpg" />
+  <img src="Z:/picture/008/save_picture_782640.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BlueStacks App Player 4.210.10.1005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782638.jpg" />
+  <img src="Z:/picture/008/save_picture_782638.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Mindjet MindManager 13 v13.0.181 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782637.jpg" />
+  <img src="Z:/picture/008/save_picture_782637.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Avidemux 2.7.5 200611 Nightly + Portable (x64)[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782634.jpg" />
+  <img src="Z:/picture/008/save_picture_782634.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Auslogics Disk Defrag Pro 9.5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782633.jpg" />
+  <img src="Z:/picture/008/save_picture_782633.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ PotPlayer 200616 (1.7.21233) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782631.jpg" />
+  <img src="Z:/picture/008/save_picture_782631.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ inPixio Photo Eraser 10.3.7447 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782629.jpg" />
+  <img src="Z:/picture/008/save_picture_782629.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Psiphon 3 build 156 DC 15.06.2020 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782622.jpg" />
+  <img src="Z:/picture/008/save_picture_782622.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Logic Pro X 10.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782614.jpg" />
+  <img src="Z:/picture/008/save_picture_782614.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Auslogics BoostSpeed 11.5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782608.jpg" />
+  <img src="Z:/picture/008/save_picture_782608.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ O&O ShutUp10 1.8.1413.250 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782604.jpg" />
+  <img src="Z:/picture/008/save_picture_782604.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SamDrivers 20.5 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782598.jpg" />
+  <img src="Z:/picture/008/save_picture_782598.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ CleanMyMac X 4.6.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782597.jpg" />
+  <img src="Z:/picture/008/save_picture_782597.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VLC Media Player 3.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782580.jpg" />
+  <img src="Z:/picture/008/save_picture_782580.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ M-tronic - Undiscovered Mysteries (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782567.jpg" />
+  <img src="Z:/picture/008/save_picture_782567.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Spirit Realm (Mindfulness Music For Relaxation & Healing) (2018) [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782545.jpg" />
+  <img src="Z:/picture/008/save_picture_782545.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Laurent Colson - Emptiness (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782544.jpg" />
+  <img src="Z:/picture/008/save_picture_782544.jpg" />
 </div>
 
 

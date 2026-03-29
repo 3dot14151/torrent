@@ -6,7 +6,7 @@ VA - 25 Years Of Hands (2015) 4CD, Compilation, Limited Edition [FLAC|Lossless|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720564.jpg" />
+  <img src="Z:/picture/008/save_picture_720564.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720563.jpg" />
+  <img src="Z:/picture/008/save_picture_720563.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Four By Fate - Relentless (2016) [FLAC|Lossless|tracks] <Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720550.jpg" />
+  <img src="Z:/picture/008/save_picture_720550.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Kazrog - True Dynamics 1.1.1 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720543.jpg" />
+  <img src="Z:/picture/008/save_picture_720543.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ DesktopOK 9.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720537.jpg" />
+  <img src="Z:/picture/008/save_picture_720537.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Task Manager DeLuxe 4.0.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720532.jpg" />
+  <img src="Z:/picture/008/save_picture_720532.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Notepad++ 8.3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720528.jpg" />
+  <img src="Z:/picture/008/save_picture_720528.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Capture One 22 Pro v15.1.2.1[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720524.jpg" />
+  <img src="Z:/picture/008/save_picture_720524.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ JetBrains PhpStorm 2018.3.4 Build #PS-183.5429.47 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720516.jpg" />
+  <img src="Z:/picture/008/save_picture_720516.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ OBS Studio 23.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720511.jpg" />
+  <img src="Z:/picture/008/save_picture_720511.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Wounds of the Earth Compilation III (part 1/2) (2011) [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720483.jpg" />
+  <img src="Z:/picture/008/save_picture_720483.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Angelica S & Science Deal - Nocturne (2014) [FLAC|Lossless|WEB-DL|tracks] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720456.jpg" />
+  <img src="Z:/picture/008/save_picture_720456.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720455.jpg" />
+  <img src="Z:/picture/008/save_picture_720455.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720444.jpg" />
+  <img src="Z:/picture/008/save_picture_720444.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Vivaldi Browser 1.10.829.3 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720443.jpg" />
+  <img src="Z:/picture/008/save_picture_720443.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ DJ Feel - Top 30 Of May (30-05-2016) [MP3|320 кб/с] <Trance, Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720438.jpg" />
+  <img src="Z:/picture/008/save_picture_720438.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Shankra Music Festival (Ambassadors Of Psychedelic Trance Music) (2016) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720431.jpg" />
+  <img src="Z:/picture/008/save_picture_720431.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Milchbar - Seaside Season 8 (Compiled By Blank & Jones) (2016) [FLAC|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720428.jpg" />
+  <img src="Z:/picture/008/save_picture_720428.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Viber 17.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720421.jpg" />
+  <img src="Z:/picture/008/save_picture_720421.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Adobe Audition 2022 v22.2.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720408.jpg" />
+  <img src="Z:/picture/008/save_picture_720408.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720397.jpg" />
+  <img src="Z:/picture/008/save_picture_720397.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720394.jpg" />
+  <img src="Z:/picture/008/save_picture_720394.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mindjet MindManager 12 v12.0.161 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720391.jpg" />
+  <img src="Z:/picture/008/save_picture_720391.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Cashmere Cat - 9 (2017) [MP3|320 Kbps] <Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720335.jpg" />
+  <img src="Z:/picture/008/save_picture_720335.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Display Driver Uninstaller 17.0.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720334.jpg" />
+  <img src="Z:/picture/008/save_picture_720334.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ ReviverSoft Driver Reviver 5.18.0.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720328.jpg" />
+  <img src="Z:/picture/008/save_picture_720328.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1539370   (658118) от 25.03.2022
+
+Вторжение динозавра / Gwoemul / The Host (2006) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время утилизации формальдегида с американской военной базы в реку Хан выливается огромное количество токсичных веществ. Спустя некоторое время в реке заводится страшное чудище. Есть много желающих посидеть в Сеуле летом на берегу реки, и торговля там идёт бойко. У владельца ларька с пивом и закусками Хи-бона двое балбесов-сыновей и умница-дочка, известная на всю (   Читать дальше...   )Производство: Южная Корея, Chungeorahm Film, Boston Investments, CJ E&M Film Financing & Investment Entertainment & ComicsЖанр: ужасы, драма, фантастика, боевикРежиссер: Чжун Хо ПонВ ролях: Кан Хо Сон, Ду На Пэ, Хи Бон Бён, Хэ Иль Пак, А Сон Ко, До Бин Пэк, Даль Су О, Дэвид Джозеф Ансельмо, Филип Херш, Пол Лэзар, Рве Ха Ким, Ми Ран Ра, Чжэ Мун Юн, Су Хи Го, Сын Мок ЮПеревод: профессиональный многоголосый (Киномания), профессиональный двухголосый (Пётр Гланц и Инна Королёва), авторский (Юрий Сербин)Субтитры: русскиеПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE047D49869EEB144458036200E693C2DB63C94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 342962   (658093) от 28.05.2011
 
 Палач 1-2/ Chokugeki Jigoku-ken 1-2 (1974) DVDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658093.jpg" />
+  <img src="Z:/picture/008/save_picture_658093.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657615.jpg" />
+  <img src="Z:/picture/008/save_picture_657615.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656086.jpg" />
+  <img src="Z:/picture/008/save_picture_656086.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654556.jpg" />
+  <img src="Z:/picture/008/save_picture_654556.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649862.jpg" />
+  <img src="Z:/picture/008/save_picture_649862.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649750.jpg" />
+  <img src="Z:/picture/005/save_picture_649750.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647122.jpg" />
+  <img src="Z:/picture/008/save_picture_647122.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646878.jpg" />
+  <img src="Z:/picture/008/save_picture_646878.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646481.jpg" />
+  <img src="Z:/picture/008/save_picture_646481.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646425.jpg" />
+  <img src="Z:/picture/008/save_picture_646425.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646347.jpg" />
+  <img src="Z:/picture/008/save_picture_646347.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645295.jpg" />
+  <img src="Z:/picture/008/save_picture_645295.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643562.jpg" />
+  <img src="Z:/picture/008/save_picture_643562.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640647.jpg" />
+  <img src="Z:/picture/008/save_picture_640647.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640528.jpg" />
+  <img src="Z:/picture/008/save_picture_640528.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638713.jpg" />
+  <img src="Z:/picture/008/save_picture_638713.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637652.jpg" />
+  <img src="Z:/picture/008/save_picture_637652.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633324.jpg" />
+  <img src="Z:/picture/008/save_picture_633324.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633282.jpg" />
+  <img src="Z:/picture/008/save_picture_633282.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632779.jpg" />
+  <img src="Z:/picture/008/save_picture_632779.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630040.jpg" />
+  <img src="Z:/picture/008/save_picture_630040.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629268.jpg" />
+  <img src="Z:/picture/008/save_picture_629268.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628451.jpg" />
+  <img src="Z:/picture/008/save_picture_628451.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627728.jpg" />
+  <img src="Z:/picture/008/save_picture_627728.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip [H.264] [DVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627243.jpg" />
+  <img src="Z:/picture/008/save_picture_627243.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip [H.264] [DVO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B800BDDEC811C2FC077F47B47158D4B6AAB5864E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144494   (627231) от 22.06.2017
-
-S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крутой гонконгский полицейский по имени Кит загоняет в угол крупного гангстера, но тот поворачивает все в свою сторону — главный свидетель Кита исчез. Более того, Кита отправляют в тайскую тюрьму, снабдив фальшивым списком преступлений. Тюремный охранник Чай следит за тем, чтобы Кит не сбежал — дочь Чая страдает от редкой формы лейкемии, и только Кит может стать (   Читать дальше...   )Производство: Китай, Гонконг / 1618 Action Limited, Abba Movies Co. Ltd.Жанр: боевик, драма, криминалРежиссер: Чин Поу-соиАктеры: Тони Джа, Энди Он, Ву Джин, Саймон Ям, Луис Ку, Кики Енг, Кен Ло, Френсис Нг, Эндрю Ын, Чжан ДжинПеревод: Авторский (одноголосый, закадровый) (Ю. Живов)Субтитры: ОтсутствуютФормат: AVIПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5220F857B32EE11A1C0BD93EC43CFB2E77574EC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

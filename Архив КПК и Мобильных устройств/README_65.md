@@ -1,3 +1,33 @@
+###  Публикация: 542833   (490713) от 07.09.2012
+
+Правосудие Декстера (Dexter) / (Весь 1-й сезон) (2006) [MP4|640x352] <DVDRip>
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я — Декстер. Декстер Морган. Я работаю судмедэкспертом в полиции Майами. Я не понимаю любви, мне безразличен секс, и у меня нет чувств. А еще я серийный убийца.
+
+Мой отец был полицейским и прекрасно обучил меня прятать улики. Обычным гражданам не стоит меня бояться, я убиваю только преступников, подонков, до которых почему-либо не смогла или не захотела добраться полиция. Я убиваю их, аккуратно распиливаю на части и избавляюсь от трупов. Убийство для меня — творческий акт, искусство.
+
+Но однажды… В Майами появляется некто, равный мне. Даже превзошедший меня. Сумевший меня заинтересовать. Предложивший мне своего рода товарищеское состязание. Кто этот загадочный и неуловимый «икс»?..Жанр: Триллер, Драма, КриминалРежиссер: Джон Дал, Роберт Либерман, Ник ГомезАктеры: Майкл С. Холл, Дженнифер Карпентер, Лорен Велес, Дэвид Зайас, Джеймс Римар, К.С. Ли, Джули Бенц, Десмонд Харрингтон, Кристина Робинсон, Престон БэйлиПеревод: Многоголосый закадровый (Продолжительность: 12 x ~00:55:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544196   (490635) от 07.09.2012
 
 [Программа] (Android 2.3+) Фото на документы (ID Photo) 1.0
@@ -6,7 +36,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490635.jpg" />
+  <img src="Z:/picture/008/save_picture_490635.jpg" />
 </div>
 
 
@@ -32,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489745.jpg" />
+  <img src="Z:/picture/008/save_picture_489745.jpg" />
 </div>
 
 
@@ -58,7 +88,7 @@ Image Blender Instafusion v4.0.0 [En/Ru] - смешивание двух фот�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489404.jpg" />
+  <img src="Z:/picture/008/save_picture_489404.jpg" />
 </div>
 
 
@@ -84,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486304.jpg" />
+  <img src="Z:/picture/008/save_picture_486304.jpg" />
 </div>
 
 
@@ -112,7 +142,7 @@ Bliss - Icon Pack 1.0.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485581.jpg" />
+  <img src="Z:/picture/008/save_picture_485581.jpg" />
 </div>
 
 
@@ -138,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485352.jpg" />
+  <img src="Z:/picture/008/save_picture_485352.jpg" />
 </div>
 
 
@@ -164,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484660.jpg" />
+  <img src="Z:/picture/008/save_picture_484660.jpg" />
 </div>
 
 
@@ -190,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484572.jpg" />
+  <img src="Z:/picture/008/save_picture_484572.jpg" />
 </div>
 
 
@@ -216,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484562.jpg" />
+  <img src="Z:/picture/008/save_picture_484562.jpg" />
 </div>
 
 
@@ -242,7 +272,7 @@ Avito автопоиск с оповещениями 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483305.jpg" />
+  <img src="Z:/picture/008/save_picture_483305.jpg" />
 </div>
 
 
@@ -268,7 +298,7 @@ RadixCalc+ 2.0 [Ru/Multi] - Калькулятор Систем Счислени
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483105.jpg" />
+  <img src="Z:/picture/008/save_picture_483105.jpg" />
 </div>
 
 
@@ -294,7 +324,7 @@ LINE 5.5.1 [Rus]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479251.jpg" />
+  <img src="Z:/picture/008/save_picture_479251.jpg" />
 </div>
 
 
@@ -320,7 +350,7 @@ Xperia™ Home v10.2.A.1.0 [Ru/Multi] - фирменный лаунчер ком
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478784.jpg" />
+  <img src="Z:/picture/008/save_picture_478784.jpg" />
 </div>
 
 
@@ -346,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478600.jpg" />
+  <img src="Z:/picture/008/save_picture_478600.jpg" />
 </div>
 
 
@@ -373,7 +403,7 @@ YouTube ReVanced (ROOT + VFM) 17.29.34 Mod by Blays` [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478324.jpg" />
+  <img src="Z:/picture/008/save_picture_478324.jpg" />
 </div>
 
 
@@ -399,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478126.jpg" />
+  <img src="Z:/picture/008/save_picture_478126.jpg" />
 </div>
 
 
@@ -425,7 +455,7 @@ SUV Desert Road Racing 4x4 3D v1.0.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477654.jpg" />
+  <img src="Z:/picture/008/save_picture_477654.jpg" />
 </div>
 
 
@@ -452,7 +482,7 @@ Xenowerk 1.3.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477414.jpg" />
+  <img src="Z:/picture/008/save_picture_477414.jpg" />
 </div>
 
 
@@ -478,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476174.jpg" />
+  <img src="Z:/picture/008/save_picture_476174.jpg" />
 </div>
 
 
@@ -504,7 +534,7 @@ Slay 1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475855.jpg" />
+  <img src="Z:/picture/008/save_picture_475855.jpg" />
 </div>
 
 
@@ -530,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475674.jpg" />
+  <img src="Z:/picture/008/save_picture_475674.jpg" />
 </div>
 
 
@@ -556,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475249.jpg" />
+  <img src="Z:/picture/008/save_picture_475249.jpg" />
 </div>
 
 
@@ -582,7 +612,7 @@ Red Bull Air Race The Game v1.15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475118.jpg" />
+  <img src="Z:/picture/008/save_picture_475118.jpg" />
 </div>
 
 
@@ -609,7 +639,7 @@ Overdrop - Weather & Widgets 1.8.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474327.jpg" />
+  <img src="Z:/picture/008/save_picture_474327.jpg" />
 </div>
 
 
@@ -635,39 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474177.jpg" />
+  <img src="Z:/picture/008/save_picture_474177.jpg" />
 </div>
 
 
 ###  Подробнее
 
 У Генри Барта настоящий талант ладить с учениками. Чтобы избежать каких-либо эмоциональных привязанностей к подопечным, он решил нигде не задерживаться на длительное время. Когда он прибывает на новое место в государственную школу, где учителя абсолютно безразличны к судьбе учеников, то быстро становится образцом для подражания и самым популярным педагогом.Жанр: ДрамаРежиссер: Тони КэйАктеры: Эдриан Броуди, Кристина Хендрикс, Марша Гэй Харден, Джеймс Каан, Люси Лью, Блайт Даннер, Тим Блейк Нельсон, Уильям Л. Питерсен, Брайан Крэнстон, Сами Гэйл ...Перевод: Многоголосый закадровый, профессиональныйПродолжительность: 01:37:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546563   (473966) от 15.09.2012
-
-[mp4 640x360] Контакт / Связь / Touch (Весь 1-й сезон) (2012) WEB-DLRip (LostFilm)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он потерял любимую жену, и остался один воспитывать своего сына - аутиста. Все свое время он тратит на то, чтобы понять особое мышление своего сына и наладить с ним контакт, но до сих пор его попытки не приносили должного успеха, его ребенок оставался таким же молчаливым и замкнутым. Но в один момент Мартин понимает что его сын обладает особым даром гения - он предвидит события будущего, точки в которых действия одного человека могут подействовать на жизни других. Но выражает он свои видения в цифрах, расшифровать которые и предстоит его отцу, помешав тем самым случиться трагедии.Жанр: Детектив, ДрамаРежиссер: Стивен Уильямс, Френсис ЛоуренсАктеры: Кифер Сазерленд, Гугу Мбата-Роу, Дэвид Мазоуз, Дэнни Гловер, Роксана Бруссо, Мэй Мията, Сатоми Окуно, Дейдри Генри, Титус Уэлливер, Девид де Латур, Карен Шенас-Дэвид и др.Перевод: Многоголосый закадровый (Продолжительность: 12 X~45 мин.
 
 ## Скачать торент
 ```bash

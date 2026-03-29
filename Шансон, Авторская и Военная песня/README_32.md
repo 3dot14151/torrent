@@ -1,3 +1,67 @@
+###  Публикация: 546498   (471859) от 16.09.2012
+
+Александр Вестов - Свобода (2012) [MP3|320 кб/с]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сука, стреляй
+02. Глаза воли
+03. Закрыты закаты
+04. Суди, судья
+05. Памяти друзей
+06. Солнце севера
+07. Дождь
+08. Судьба
+09. Украдут свободу
+10. Поплывём(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37326ADCF74FEC118F6DF6E8934335EC031355E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406824   (470711) от 05.09.2020
+
+ЛЁША ЗАКОН - ''Песни Михаила Круга'' (2020) [FLAC|Lossless|tracks] <Shansone>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фраер (караоке-версия) [00:02:58]
+02. Электричка (караоке-версия) [00:03:05]
+03. Роза (караоке-версия) [00:04:47]
+04. В Лазурном (караоке-версия) [00:02:46](   Читать дальше...   )Жанр: ShansoneПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B812C17AC5EA722D3E02E1AC84E17AD3A01DD608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058478   (468717) от 01.10.2016
 
 Сергей Любавин - Оставь последний танец для меня (2015) [FLAC|Lossless|image + .cue] <Сhanson>
@@ -6,7 +70,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468717.jpg" />
+  <img src="Z:/picture/008/save_picture_468717.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466798.jpg" />
+  <img src="Z:/picture/008/save_picture_466798.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465665.jpg" />
+  <img src="Z:/picture/008/save_picture_465665.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465461.jpg" />
+  <img src="Z:/picture/008/save_picture_465461.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - Сигналы и марши Всесоюзной пионерской ор
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461612.jpg" />
+  <img src="Z:/picture/008/save_picture_461612.jpg" />
 </div>
 
 
@@ -151,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459854.jpg" />
+  <img src="Z:/picture/008/save_picture_459854.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457003.jpg" />
+  <img src="Z:/picture/008/save_picture_457003.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456983.jpg" />
+  <img src="Z:/picture/008/save_picture_456983.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456898.jpg" />
+  <img src="Z:/picture/008/save_picture_456898.jpg" />
 </div>
 
 
@@ -273,7 +337,7 @@ VA - Шансон блатной (2001) [FLAC|Lossless|tracks + .cue]<Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456796.jpg" />
+  <img src="Z:/picture/008/save_picture_456796.jpg" />
 </div>
 
 
@@ -302,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456380.jpg" />
+  <img src="Z:/picture/008/save_picture_456380.jpg" />
 </div>
 
 
@@ -331,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455575.jpg" />
+  <img src="Z:/picture/008/save_picture_455575.jpg" />
 </div>
 
 
@@ -360,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454516.jpg" />
+  <img src="Z:/picture/008/save_picture_454516.jpg" />
 </div>
 
 
@@ -395,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452725.jpg" />
+  <img src="Z:/picture/008/save_picture_452725.jpg" />
 </div>
 
 
@@ -424,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449560.jpg" />
+  <img src="Z:/picture/008/save_picture_449560.jpg" />
 </div>
 
 
@@ -453,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448351.jpg" />
+  <img src="Z:/picture/008/save_picture_448351.jpg" />
 </div>
 
 
@@ -482,7 +546,7 @@ VA - Золотые Баллады Шансона (2003)(5CD)[FLAC|Lossless|imag
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448198.jpg" />
+  <img src="Z:/picture/008/save_picture_448198.jpg" />
 </div>
 
 
@@ -511,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447035.jpg" />
+  <img src="Z:/picture/008/save_picture_447035.jpg" />
 </div>
 
 
@@ -540,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446428.jpg" />
+  <img src="Z:/picture/008/save_picture_446428.jpg" />
 </div>
 
 
@@ -569,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446418.jpg" />
+  <img src="Z:/picture/008/save_picture_446418.jpg" />
 </div>
 
 
@@ -598,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446370.jpg" />
+  <img src="Z:/picture/008/save_picture_446370.jpg" />
 </div>
 
 
@@ -627,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446000.jpg" />
+  <img src="Z:/picture/008/save_picture_446000.jpg" />
 </div>
 
 
@@ -656,7 +720,7 @@ Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLA
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445523.jpg" />
+  <img src="Z:/picture/005/save_picture_445523.jpg" />
 </div>
 
 
@@ -691,7 +755,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444989.jpg" />
+  <img src="Z:/picture/008/save_picture_444989.jpg" />
 </div>
 
 
@@ -705,70 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79B97AB32E719A5F15D224ACAA2A0992C2357FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553185   (443175) от 28.09.2012
-
-Владимир Высоцкий - Я спою... Золотая коллекция (2005) 6 CD [WavPack|Lossless]<Pop, Chanson, Ballad, CCCP>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Очи чёрные. Погоня [03:06]
-02. Очи чёрные. Старый дом [03:03]
-03. Райские яблоки [05:52]
-04. Штормит весь вечер и пока... [03:09]
-05. Белый вальс [05:59]
-06. О фатальных датах и цифрах [02:13]
-07. Письмо к другу или Зарисовка о Париже [01:31]
-08. Одна научная загадка или Почему аборигены съели Кука [02:11]
-09. Песенка ни про что или что случилось в Африке [01:52]
-10. Товарищи учёные [02:36](   Читать дальше...   )Жанр: Pop, Chanson, Ballad, CCCPПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409922   (440737) от 19.09.2020
-
-VA - Балаганчик 2 (2000) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Черный - Балаганчик 2
-02. Д. Персин - Космонавт Иван Коровин
-03. А. Большеохтинский - Мне надоело бедным быть
-04. С. Бурмистров - А пахарям до фонаря(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E95F234BE1634CC625F179DBBB5740179028801
 ```
 
 https://mybot314.ru/tekegram_catalog/

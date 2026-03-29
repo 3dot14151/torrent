@@ -1,3 +1,147 @@
+###  Публикация: 920163   (580054) от 22.07.2015
+
+Shocking Blue - 20 Greatest Hits (1990) Compilation /1991, Repertoire/ [FLAC|image + .cue]<Rock, Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus [3:03]
+02. Mighty Joe [3:10]
+03. Never Marry A Railroad Man [3:04]
+04. Hello Darkness [2:55](   Читать дальше...   )Жанр: Rock, Blues Rock, Classic RocкПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA90B59F06DFE2E71B2809CCFDDD096E670F02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553652   (580017) от 28.05.2022
+
+The Beatles - Live At Shea Stadium 1965 (2005) [FLAC|Lossless|image + .cue] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Band Members Introduction 2:08
+02. Twist And Shout 1:25
+03. I Feel Fine 2:27
+04. Dizzy Miss Lizzy 3:14(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523F64B2F26B7A21890CA68493DC86C9172454A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042337   (579486) от 12.08.2016
+
+Dave Stewart & Barbara Gaskin - Up From the Dark (1986) [WavPack|Lossless|image + .cue] <Prog Rock, Art Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Ллойд Стюарт - британский клавишник и композитор, известный по выступлениям в составе групп Кентерберийской сцены Uriel, Egg, Khan, Hatfield and the North и National Health. В 80-х Стюарт резко изменил направление своей деятельности и занялся поп-музыкой, "совратив и растлив"  :redface:  по ходу дела, бывшую бэк-вокалистку из Hatfield and the North (   Читать дальше...   )01. I'm In A Different World (4:16)
+02. Leipzig (4:21)
+03. It's My Party (3:50)
+04. Lenina Crowe (4:54)(   Читать дальше...   )Жанр: Prog Rock, Art Rock, Pop-RockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777BFDF99AF640D69B3E24F589619EF1E2A511C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554087   (579108) от 29.05.2022
+
+Crypt Monarch - The Necronaut (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Morning Star Through Skull (00:15:41)
+02 - Rex Meridionalis (00:10:12)
+03 - Aglaophotis (00:10:08)Жанр: Stoner Rock, Doom MetalПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C8E628EA20773978493EB95B82D7F431842D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554042   (579106) от 29.05.2022
+
+Besvarjelsen (Besvärjelsen) - Atlas (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cardinal Ride
+02. Acheron
+03. Clouds
+04. House of the Burning Light(   Читать дальше...   )Жанр: Stoner Rock, DoomПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7438DFCCE63CA199AFD05BC5FF10998744891C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554043   (579102) от 29.05.2022
 
 Gramma Vedetta - The Hum of the Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progressive, Stoner Rock>
@@ -6,7 +150,7 @@ Gramma Vedetta - The Hum of the Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579102.jpg" />
+  <img src="Z:/picture/008/save_picture_579102.jpg" />
 </div>
 
 
@@ -35,7 +179,7 @@ Rammstein - Rammstein (2019) Special Edition [FLAC|Lossless|image + .cue] <Neue 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578985.jpg" />
+  <img src="Z:/picture/008/save_picture_578985.jpg" />
 </div>
 
 
@@ -64,7 +208,7 @@ Little America - Anthology (2022) 2xCD [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578867.jpg" />
+  <img src="Z:/picture/008/save_picture_578867.jpg" />
 </div>
 
 
@@ -93,7 +237,7 @@ Amadeu Casas - The King Is Gone (2016) [FLAC|Lossless|tracks + .cue] <Blues, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578503.jpg" />
+  <img src="Z:/picture/008/save_picture_578503.jpg" />
 </div>
 
 
@@ -122,7 +266,7 @@ Dustin Douglas & The Electric Gentlemen - Dustin Douglas & The Electric Gentleme
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578502.jpg" />
+  <img src="Z:/picture/008/save_picture_578502.jpg" />
 </div>
 
 
@@ -151,7 +295,7 @@ VA - Slade Remade - A Tribute to Slade (2001) [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578395.jpg" />
+  <img src="Z:/picture/008/save_picture_578395.jpg" />
 </div>
 
 
@@ -180,7 +324,7 @@ Chase Walker Band - Not Quite Legal (2016) [FLAC|Lossless|tracks + .cue] <Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578322.jpg" />
+  <img src="Z:/picture/008/save_picture_578322.jpg" />
 </div>
 
 
@@ -209,7 +353,7 @@ Rush - Roll The Bones (1991) remaster, 2011, Audio Fidelity [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578082.jpg" />
+  <img src="Z:/picture/008/save_picture_578082.jpg" />
 </div>
 
 
@@ -238,7 +382,7 @@ Bryan Adams - Cuts Like a Knife (1983) remaster, 2012, Audio Fidelity [WavPack|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578079.jpg" />
+  <img src="Z:/picture/008/save_picture_578079.jpg" />
 </div>
 
 
@@ -267,7 +411,7 @@ Rodrigo y Gabriela - Mettavolution (2019) [FLAC|Lossless|tracks + .cue] <Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578008.jpg" />
+  <img src="Z:/picture/008/save_picture_578008.jpg" />
 </div>
 
 
@@ -296,7 +440,7 @@ Joe Walsh - The Smoker You Drink, The Player You Get (1973) remaster, 2009, Audi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577982.jpg" />
+  <img src="Z:/picture/008/save_picture_577982.jpg" />
 </div>
 
 
@@ -325,7 +469,7 @@ Roger Waters - Is This The Life We Really Want? (2017) Japan 1st press [WavPack|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577731.jpg" />
+  <img src="Z:/picture/008/save_picture_577731.jpg" />
 </div>
 
 
@@ -354,7 +498,7 @@ Sun Silo - Trillium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577613.jpg" />
+  <img src="Z:/picture/008/save_picture_577613.jpg" />
 </div>
 
 
@@ -383,7 +527,7 @@ Anglagard - Viljans Oga (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576774.jpg" />
+  <img src="Z:/picture/005/save_picture_576774.jpg" />
 </div>
 
 
@@ -412,7 +556,7 @@ Downlouders - Arca (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576655.jpg" />
+  <img src="Z:/picture/008/save_picture_576655.jpg" />
 </div>
 
 
@@ -441,7 +585,7 @@ VA - British Mod Sounds Of the 1960s (2022) 4 x CD, Compilation, Limited Edition
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575569.jpg" />
+  <img src="Z:/picture/008/save_picture_575569.jpg" />
 </div>
 
 
@@ -470,7 +614,7 @@ Def Leppard - Diamond Star Halos (2022) Limited Edition [FLAC|Lossless|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575455.jpg" />
+  <img src="Z:/picture/008/save_picture_575455.jpg" />
 </div>
 
 
@@ -499,7 +643,7 @@ Roger Waters - Amused To Death (1992) /Remastered 2015/ [FLAC|tracks+.cue]<Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575193.jpg" />
+  <img src="Z:/picture/008/save_picture_575193.jpg" />
 </div>
 
 
@@ -528,7 +672,7 @@ Jake Chisholm - No More Sorrow (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574923.jpg" />
+  <img src="Z:/picture/008/save_picture_574923.jpg" />
 </div>
 
 
@@ -557,7 +701,7 @@ Satisfied Drive - Live (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574802.jpg" />
+  <img src="Z:/picture/008/save_picture_574802.jpg" />
 </div>
 
 
@@ -586,7 +730,7 @@ Christina Skjolberg - Come And Get It (2014) [FLAC|Lossless|image + .cue] <Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574792.jpg" />
+  <img src="Z:/picture/008/save_picture_574792.jpg" />
 </div>
 
 
@@ -600,157 +744,6 @@ Christina Skjolberg - Come And Get It (2014) [FLAC|Lossless|image + .cue] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15931FD1F7F89E8EB5CE648BBBF404D6798A55BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151139   (574352) от 18.07.2017
-
-Universal Hippies - Mother Nature Blues (2017) [FLAC|Lossless|image + .cue] <Instrumental, Heavy Blues, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Redemption Day  (05:17) 
-02.  Homo Sapiens  (07:20) 
-03.  Mariner's Dream  (04:45) 
-04.  Sacred Land  (04:20) (   Читать дальше...   )Жанр: Instrumental, Heavy Blues, Psychedelic RockПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08D39A8DD2D4449E62107B50AEB5176A402C484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554767   (574017) от 01.06.2022
-
-Cross - Opus Eleven (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574017.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Light's Out (6:04)
-2. Million Billions (5:02)
-3. Looking for Silver (10:04)
-4. Towards the New (4:31)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8060BD2CC6C49E3005E9A2CE3A300E248EDE6B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921889   (573520) от 26.07.2015
-
-Eagles - Greatest Hits (2011)2CD Compilation/2011,Warner Music Group[FLAC|image + .cue]<Country Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel California
-02. The Best Of My Love
-03. Lyin' Eyes
-04. New Kid In Town(   Читать дальше...   )Жанр: Country Rock, Folk RockПродолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D424EF00CA6420AB23FC554AFE1726EE843D69B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528323   (573396) от 28.07.2012
-
-Panic Room - Skin (2012) [FLAC|Lossless]<Progressive Rock, Crossover Prog, Female Vocalists>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_573396.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Song For Tomorrow (06:16)
-2. Chameleon (06:52)
-3. Screens (04:43)
-4. Chances (05:54)
-5. Tightrope Walking (07:09)
-6. Promises (05:24)
-7. Velvet & Stars (03:15)
-8. Freefalling (06:12)
-9. Skin (05:19)
-10.Hiding The World (05:19)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303110   (573097) от 21.05.2019
-
-Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Dakota Sky (04:51)
-02. Mystery Lady (05:07)
-03. Everytime (05:15)
-04. Kentucky Heartbreak (03:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
 ```
 
 https://mybot314.ru/tekegram_catalog/

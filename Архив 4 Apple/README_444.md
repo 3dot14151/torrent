@@ -1,3 +1,112 @@
+###  Публикация: 1182060   (319206) от 09.11.2017
+
+Winclone Pro 6.1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Winclone. Или как проще всего клонировать Windows на Mac.
+По непонятным причинам стандартная Дисковая утилита не работает с Windows разделами на macOS: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования разделов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2017Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7B8EA16A94B249784571FC1C96580F97CF78FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959060   (319120) от 23.11.2015
+
+SmartAlbums 2.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы: теперь легко
+SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
+
+Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2015Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C4665A3395081884CA8C0F1011ED07BB2CA04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959055   (318999) от 23.11.2015
+
+Aurora HDR Pro 1.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aurora HDR Pro, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey  Ratcliff, одного из выдающихся в мире в области  HDR фотографии с более чем 14 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 ноября 2015Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC0A66A19D3F2F8FC107FD400DB64762E16635E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259664   (318939) от 04.11.2018
+
+TG Pro (Temperature Gauge Pro) 2.33 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318939.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2018Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71ECED1A596954D429092582C6EB779F2284C5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959071   (318861) от 23.11.2015
 
 Cinemagraph Pro 1.7.2 [Multi]
@@ -6,7 +115,7 @@ Cinemagraph Pro 1.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318861.jpg" />
+  <img src="Z:/picture/008/save_picture_318861.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ iSubtitle 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318828.jpg" />
+  <img src="Z:/picture/008/save_picture_318828.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Forecast Bar 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318819.jpg" />
+  <img src="Z:/picture/008/save_picture_318819.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ Smultron 9.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318817.jpg" />
+  <img src="Z:/picture/008/save_picture_318817.jpg" />
 </div>
 
 
@@ -118,7 +227,7 @@ iTrash 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318670.jpg" />
+  <img src="Z:/picture/008/save_picture_318670.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ RapidWeaver 8 v 8.4.0 (build 20812) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318669.jpg" />
+  <img src="Z:/picture/008/save_picture_318669.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ Disk Xray 2.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318668.jpg" />
+  <img src="Z:/picture/008/save_picture_318668.jpg" />
 </div>
 
 
@@ -201,7 +310,7 @@ Mate Translate 6.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318666.jpg" />
+  <img src="Z:/picture/008/save_picture_318666.jpg" />
 </div>
 
 
@@ -229,7 +338,7 @@ Alfred 4 Powerpack 4.0.5 (1118) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318665.jpg" />
+  <img src="Z:/picture/008/save_picture_318665.jpg" />
 </div>
 
 
@@ -258,7 +367,7 @@ Athentech Perfectly Clear Complete 3.8.0.1682 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318664.jpg" />
+  <img src="Z:/picture/008/save_picture_318664.jpg" />
 </div>
 
 
@@ -286,7 +395,7 @@ Translatium 9 v9.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318663.jpg" />
+  <img src="Z:/picture/008/save_picture_318663.jpg" />
 </div>
 
 
@@ -312,7 +421,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.32[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318662.jpg" />
+  <img src="Z:/picture/008/save_picture_318662.jpg" />
 </div>
 
 
@@ -338,7 +447,7 @@ Cinch 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318661.jpg" />
+  <img src="Z:/picture/008/save_picture_318661.jpg" />
 </div>
 
 
@@ -366,7 +475,7 @@ InstaBro | Instagram Browser 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318660.jpg" />
+  <img src="Z:/picture/008/save_picture_318660.jpg" />
 </div>
 
 
@@ -394,7 +503,7 @@ BetterSnapTool 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318658.jpg" />
+  <img src="Z:/picture/008/save_picture_318658.jpg" />
 </div>
 
 
@@ -421,7 +530,7 @@ KCNcrew Pack 10-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318510.jpg" />
+  <img src="Z:/picture/008/save_picture_318510.jpg" />
 </div>
 
 
@@ -447,7 +556,7 @@ TG Pro (Temperature Gauge Pro) 2.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318507.jpg" />
+  <img src="Z:/picture/008/save_picture_318507.jpg" />
 </div>
 
 
@@ -474,7 +583,7 @@ PullTube 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317875.jpg" />
+  <img src="Z:/picture/008/save_picture_317875.jpg" />
 </div>
 
 
@@ -500,7 +609,7 @@ Hookshot 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317768.jpg" />
+  <img src="Z:/picture/008/save_picture_317768.jpg" />
 </div>
 
 
@@ -526,7 +635,7 @@ EagleFiler 1.9.1 [Multi/Ri]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317767.jpg" />
+  <img src="Z:/picture/008/save_picture_317767.jpg" />
 </div>
 
 
@@ -554,7 +663,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317766.jpg" />
+  <img src="Z:/picture/008/save_picture_317766.jpg" />
 </div>
 
 
@@ -582,7 +691,7 @@ PDF Search 10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317765.jpg" />
+  <img src="Z:/picture/008/save_picture_317765.jpg" />
 </div>
 
 
@@ -593,114 +702,6 @@ PDF Search - это утилита, которая имеет революцио
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91C6DE97655FBBD732333855C4ABADF3BFEB869F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421653   (317758) от 05.11.2020
-
-File List Export 2.4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317758.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B0DF21888F81606E1D71B70F561E0C9E522398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421629   (317757) от 05.11.2020
-
-Reeder 5 v5.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа чтения новостей для Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: Silvio RizziПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59DBD3414DCA47F9E4A2777D779CB0607B1CFC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421631   (317756) от 05.11.2020
-
-SiteSucker 3.2.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317756.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker. Альтернативный менеджер загрузки сайтов
-SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-
-SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2020Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29526778C83426D5B68A9104683C6D4BB235DD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421636   (317755) от 05.11.2020
-
-Tower 6 v6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: fournova Software GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F97F0D9D8C37674EFB7EDA492B0B99817D1A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

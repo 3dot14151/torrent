@@ -1,3 +1,111 @@
+###  Публикация: 1082791   (277373) от 13.12.2016
+
+DockShelf 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277373.jpg" />
+</div>
+
+
+###  Подробнее
+
+DockShelf: функциональная замена док-панели (Mac)
+Док-панель является одной из главных особенностей настольной операционной системы от компании Apple. В ней пользователи могут разместить не только ярлыки часто используемых приложений, но и ссылки на отдельные папки, файлы или интернет-страницы. Однако некоторые разработчики считают, что стандартная док-панель не (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12.12.2016Разработчик: The Alchemist Guild LLCПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327D6EFB3152EE493306BD4C84337E00F49550E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082723   (277371) от 13.12.2016
+
+Dash 3.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash  - браузер документации и примеров кода
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9486046EE6DDC51488CB65A4797E1BC2E97B531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336972   (277341) от 08.11.2019
+
+Memory Clean 3 v1.0.13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memory Clean - приложение для оптимизации памяти вашего Mac и лучше всего использовать утилиту после того как вы закончили интенсивное использование памяти (RAM) в приложении или игре.
+
+У каждого пользователя найдутся «тяжелые» приложения для работы которых не помешает небольшая уборка оперативной памяти. Даже работа с браузером порой может отнять приличное количество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320D837B1C5FA1325CDF2203587275776E4DE0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336969   (277327) от 08.11.2019
+
+Lyn 1.13 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2019Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D80FD6CA9FF3B70A3EFB3A8154851793063821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187795   (277294) от 30.11.2017
 
 Dash 4.1.1 [En]
@@ -6,7 +114,7 @@ Dash 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277294.jpg" />
+  <img src="Z:/picture/008/save_picture_277294.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ A Better Finder Attributes 6 v6.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277293.jpg" />
+  <img src="Z:/picture/008/save_picture_277293.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Luminar 2018 v1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277057.jpg" />
+  <img src="Z:/picture/008/save_picture_277057.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Pixelmator Pro 1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276964.jpg" />
+  <img src="Z:/picture/008/save_picture_276964.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Mocha Pro 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276936.jpg" />
+  <img src="Z:/picture/008/save_picture_276936.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ Capture One Pro 11 v11.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276763.jpg" />
+  <img src="Z:/picture/008/save_picture_276763.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ Multitouch 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276602.jpg" />
+  <img src="Z:/picture/008/save_picture_276602.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ MacPilot 10 v10.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276592.jpg" />
+  <img src="Z:/picture/008/save_picture_276592.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ AnyMP4 Mac Video Converter Ultimate 8.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276496.jpg" />
+  <img src="Z:/picture/008/save_picture_276496.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276422.jpg" />
+  <img src="Z:/picture/008/save_picture_276422.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ WiFi Explorer Pro 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276414.jpg" />
+  <img src="Z:/picture/008/save_picture_276414.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ Find Any File (FAF) 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276382.jpg" />
+  <img src="Z:/picture/008/save_picture_276382.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ PatterNodes 2 v2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276379.jpg" />
+  <img src="Z:/picture/008/save_picture_276379.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ EazyDraw 9 v9.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276378.jpg" />
+  <img src="Z:/picture/008/save_picture_276378.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ Folder-Factory 5.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276377.jpg" />
+  <img src="Z:/picture/008/save_picture_276377.jpg" />
 </div>
 
 
@@ -413,7 +521,7 @@ Disk Graph 2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276375.jpg" />
+  <img src="Z:/picture/008/save_picture_276375.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ Exposure Software Blow Up 3 v3.1.3.272 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276372.jpg" />
+  <img src="Z:/picture/008/save_picture_276372.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276369.jpg" />
+  <img src="Z:/picture/008/save_picture_276369.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ AirRadar 5 v5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276336.jpg" />
+  <img src="Z:/picture/008/save_picture_276336.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ Tweak Photos 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276335.jpg" />
+  <img src="Z:/picture/008/save_picture_276335.jpg" />
 </div>
 
 
@@ -548,7 +656,7 @@ Exposure Software Snap Art 4 v4.1.3.268 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276325.jpg" />
+  <img src="Z:/picture/008/save_picture_276325.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ IP Scanner Pro 3.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276315.jpg" />
+  <img src="Z:/picture/008/save_picture_276315.jpg" />
 </div>
 
 
@@ -586,115 +694,6 @@ IP Scanner - приложение сканирует локальную сеть
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C9D3912518E7775584A4F984503AE37169ACA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337084   (276312) от 09.11.2019
-
-Tipard Mac Video Enhancer 9.1.22 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard Mac Video Enhancer - видеоредактор для пост обработки видео, который применяет передовую технологию, позволяющую улучшить качество исходного материала, например, улучшить качество видео, убрать различные артефакты, повысить качество видео до более высокого (от 80p до 720p, 720p до 1080p и от 1080p до 4K), удалить фоновый шум и многое другое.
-
-Отлично устраняет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tipard Studio.Поддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC24D7691C79FE500BADA035E30A923791BAD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337230   (276309) от 09.11.2019
-
-Exposure Software Eye Candy 7 v7.2.3.85 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Skin Eye Candy 7 — новая версия набора из 30 фильтров и более 1500 пресетов со множеством настроек для Adobe Photoshop, которые позволят выполнить с легкостью множество дизайнерских задач, начиная от веб-интерфейсов и заканчивая впечатляющими логотипами. Плагин создает реалистичные эффекты природных явлений, предоставляя красивый детальный результат. Простой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1690C135DF57898C012495CCF7574CCDF30A800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337144   (276242) от 09.11.2019
-
-Wifi Signal Strength 1.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wifi Signal Strength - отображение состояния уровня Wifi сигнала в строке меню.
-Программа также позволяет узнать мощность сигнала и другие параметры, такие как: Ваш IP-адрес, MAC-адрес, другие доступные сети, открытые или защищенные, BSSID, RSSI, Noise, Transmit Rate, PHY, Interface mode, Security type и тд.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2019Разработчик: Appyogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAB9EE929CE4F343B069AEFB4422034233CE6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083013   (276113) от 14.12.2016
-
-Feeder 3.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes.  Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 декабря 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D419FCF893661A4665090B87D01C824863D752
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1212480   (772601) от 15.03.2018
+
+Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed™, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью. Ваша цель - разрушить Дом, известный в криминальных кругах картель, управляющий игорными заведениями, преступниками и полицейскими этого города. (   Читать дальше...   )Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33EC5187E76114F24EAC417020396E26FB790AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066290   (772597) от 15.03.2018
+
+Farming Simulator 17 (2016) [Ru/Multi] (1.5.3.0/dlc) License RELOADED [Platinum Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Farming Simulator 17 разработанный компанией Giants Software, приглашает вас попробовать себя в роли современного фермера. Решайте задачи, которые встают перед вами, занимайтесь животноводством, выращиванием зерновых, продажами и лесозаготовкой.Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FB7C6C8E1F00C7A11636157B94E6BAA2C11D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389916   (772432) от 21.06.2020
+
+Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (06.2020) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 SP1, включающая в себя 11 русских редакций и 11 английских редакций x86/x64, с обновлениями по 06.2020, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C772CF20A35214679E025B3FE35507F244D644A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015570   (772413) от 12.05.2016
+
+Обнаружен витамин, останавливающий процесс старения клеток некоторых типов тканей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_772413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа исследователей из Швейцарского федерального политехнического университета Лозанны (Swiss Ecole Polytechnique Federale de Lausanne, EPFL) провела ряд экспериментов над подопытными животными. Эти эксперименты показали, что введение животным вещества-витамина под названием nicotinamide riboside, NR, подстегивает процесс регенерации тканей некоторых органов и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015799   (772218) от 12.05.2016
 
 Бешеные / Enrages (2015) HDRip
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772218.jpg" />
+  <img src="Z:/picture/008/save_picture_772218.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772215.jpg" />
+  <img src="Z:/picture/008/save_picture_772215.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771481.jpg" />
+  <img src="Z:/picture/005/save_picture_771481.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771388.jpg" />
+  <img src="Z:/picture/008/save_picture_771388.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ CleanMyMac 4.2.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771195.jpg" />
+  <img src="Z:/picture/008/save_picture_771195.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771193.jpg" />
+  <img src="Z:/picture/008/save_picture_771193.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771173.jpg" />
+  <img src="Z:/picture/008/save_picture_771173.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771172.jpg" />
+  <img src="Z:/picture/008/save_picture_771172.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771161.jpg" />
+  <img src="Z:/picture/005/save_picture_771161.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770939.jpg" />
+  <img src="Z:/picture/008/save_picture_770939.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Garmin: City Navigator Europe NT 2017.10 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770878.jpg" />
+  <img src="Z:/picture/008/save_picture_770878.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ March of the Living (2016) [En] (1.1.1) Repack ARMENIAC
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770876.jpg" />
+  <img src="Z:/picture/008/save_picture_770876.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770867.jpg" />
+  <img src="Z:/picture/008/save_picture_770867.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ ESET Smart Security 8.0.312.3 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770373.jpg" />
+  <img src="Z:/picture/008/save_picture_770373.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_770116.jpg" />
+  <img src="Z:/picture/005/save_picture_770116.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG. Взгляд изнутри: Вторая мировая война / Inside
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770047.jpg" />
+  <img src="Z:/picture/008/save_picture_770047.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769999.jpg" />
+  <img src="Z:/picture/008/save_picture_769999.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769992.jpg" />
+  <img src="Z:/picture/008/save_picture_769992.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ ABBYY FineReader 12.0.101.483 Corporate Full | Lite RePack (& Portable) by D!ako
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769988.jpg" />
+  <img src="Z:/picture/008/save_picture_769988.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ VA - Melodic Metal Anthems vol.01-34 (2014-2016) [MP3|128-320 кб/с]<Melodic M
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769987.jpg" />
+  <img src="Z:/picture/008/save_picture_769987.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ CyberLink PowerDVD Ultra 15.0.1510.58 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769667.jpg" />
+  <img src="Z:/picture/008/save_picture_769667.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769661.jpg" />
+  <img src="Z:/picture/008/save_picture_769661.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C288B769690CFC9BF8199905220C747B4408C10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017019   (769410) от 15.05.2016
-
-КОМПАС-3D 16.1.0 MCAD 16.2.0 (x86) Portable [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769410.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Компас-3D» - система трёхмерного моделирования, ставшая стандартом для тысяч предприятий благодаря удачному сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования. Главной особенностью продукта можно назвать использование собственного математического ядра и параметрических технологий, разработанных (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD495098F5E0AE040854116DFDCADE7945F364D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016973   (769409) от 15.05.2016
-
-Sea Dogs: To Each His Own / Корсары: Каждому свое (2012) [Ru/En] (1.4/dlc) License PROPHET
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sea Dogs: To Each His Own - самая последняя игра легендарной «пиратской» серии, рассказывающая о судьбе морского волка Шарля де Мора. Всё, что было любимо игроками осталось и было не только улучшено, но и приумножено!Тип издания: LicenseРазработчик: BlackMark StudioЖанр: Action, Add-on (Standalone, Naval), RPG, 3D, 3rd Person, Privateer, TraderЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8E575477213B1B1BF02F2F0C4DD822566C34D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392237   (769271) от 25.06.2020
-
-Adobe Premiere Pro 2020 14.3.0.38 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2020 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D6977DAB3F46BF07C2DDA4757488832086672A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298151   (769123) от 26.06.2020
-
-Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.29) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769123.jpg" />
-</div>
-
-
-###  Подробнее
-
-После разрушительной войны древних магов разрозненные осколки планеты под названием Дрифтленд удерживает лишь одно мощное заклинание. Когда враждующие фракции поняли, что их цивилизация и вся жизнь на планете — на грани разрушения, они заключили перемирие и попытались восстановить ущерб. Но было слишком поздно. Использовав всю оставшуюся магию, чтобы наложить мощное (   Читать дальше...   )Тип издания: RepackРазработчик: Star DriftersЖанр: Strategy (Real-time), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159D80C609F07F3F2D984F4C0911889CD47FD351
 ```
 
 https://mybot314.ru/tekegram_catalog/

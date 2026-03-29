@@ -6,7 +6,7 @@ Freemake Video Converter 4.1.9.10 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802065.jpg" />
+  <img src="Z:/picture/008/save_picture_802065.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gilisoft Movie DVD Creator 5.9.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802036.jpg" />
+  <img src="Z:/picture/008/save_picture_802036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mindjet MindManager 16.1.193 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802023.jpg" />
+  <img src="Z:/picture/008/save_picture_802023.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802021.jpg" />
+  <img src="Z:/picture/008/save_picture_802021.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801987.jpg" />
+  <img src="Z:/picture/008/save_picture_801987.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ K-Lite Codec Pack Update 13.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801972.jpg" />
+  <img src="Z:/picture/008/save_picture_801972.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CPU-Z 1.76.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801958.jpg" />
+  <img src="Z:/picture/008/save_picture_801958.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VMware Workstation 12 Pro 12.1.1 build 3770994 Lite RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801952.jpg" />
+  <img src="Z:/picture/008/save_picture_801952.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Leawo Prof. Media 7.4.4.0 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801917.jpg" />
+  <img src="Z:/picture/008/save_picture_801917.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ KMS Tools Portable 25.04.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801916.jpg" />
+  <img src="Z:/picture/008/save_picture_801916.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Waves Complete V9.6.47 [En] (Offline Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801911.jpg" />
+  <img src="Z:/picture/008/save_picture_801911.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VMware Workstation 12.1.1 Pro build 3770994 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801910.jpg" />
+  <img src="Z:/picture/008/save_picture_801910.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Mindjet MindManager 16.0.180 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801906.jpg" />
+  <img src="Z:/picture/008/save_picture_801906.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tanida Demo Builder 11.0.20.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801893.jpg" />
+  <img src="Z:/picture/008/save_picture_801893.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ashampoo Snap 10.0.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801889.jpg" />
+  <img src="Z:/picture/008/save_picture_801889.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ReNamer Pro 6.7 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801884.jpg" />
+  <img src="Z:/picture/008/save_picture_801884.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Cent Browser 2.5.4.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801879.jpg" />
+  <img src="Z:/picture/008/save_picture_801879.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ReNamer Pro 6.7  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801872.jpg" />
+  <img src="Z:/picture/008/save_picture_801872.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Wise Folder Hider Free 4.14.151 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801870.jpg" />
+  <img src="Z:/picture/008/save_picture_801870.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Process Lasso Pro 8.9.8.102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801866.jpg" />
+  <img src="Z:/picture/008/save_picture_801866.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Chromium 57.0.2987.133 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801854.jpg" />
+  <img src="Z:/picture/008/save_picture_801854.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Maxthon Browser MX5 5.0.3.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801804.jpg" />
+  <img src="Z:/picture/008/save_picture_801804.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wise Game Booster 1.3.9.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801799.jpg" />
+  <img src="Z:/picture/008/save_picture_801799.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Softany WinCHM Pro 5.2 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801780.jpg" />
+  <img src="Z:/picture/008/save_picture_801780.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Autodesk AutoCAD LT 2018.0.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801724.jpg" />
+  <img src="Z:/picture/008/save_picture_801724.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Opera GX 68.0.3618.129 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801683.jpg" />
+  <img src="Z:/picture/008/save_picture_801683.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1088414   (140509) от 30.12.2016
+
+Владислав Крапивин | Хронометр (Остров Святой Елены) (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сороковые годы. Живет в сибирском городе Арсений Викторович Курганов, одинокий и нелюдимый человек. Пишет книгу о кругосветном плаванье Крузенштерна и Лисянского. Судьба сводит его с четверокласником Толиком Нечаевым, им интересно друг с другом. А еще у Курганова есть старый, корабельный хронометр, который надо заводить осторожно и бережно. И всегда в одно время, (   Читать дальше...   )Жанр: Детская прозаПродолжительность: 11:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6DBFBB368888972273DDCC8EABAACB84BD6929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854780   (140302) от 30.12.2014
+
+Андрей Некрасов | Приключения капитана Врунгеля (1995) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная сказка по мотивам повести А. Некрасова. «Приключения капитана Врунгеля», это юмористическая повесть о фантастическом кругосветном походе бесстрашного капитана и его спутников Лома и Фукса. Маленькая яхта «Беда» и ее команда не раз попадают в безнадежное положение, но благодаря находчивости отважного капитана, путешествие заканчивается благополучно.Жанр: Музыкальная сказкаПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B356B625E2349F20FC190EA128D51BFA2A49E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443015   (138895) от 24.11.2023
+
+Иоганн Вольфганг Гёте | Фауст (2006) [MP3, Игорь Добряков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138895.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Школьная библиотека предлагает послушать грандиозную философскую поэму «Фауст» классика немецкой литературы Иоганна Вольфганга Гёте. Изданная в Германии двести лет назад, она до сих пор находит отклик в сердцах читателей.
+«Фауст» Гёте занимает особое место в истории человечества. Герой трагедии – личность историческая, он жил в XVI веке, слыл магом и чернокнижником (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: АудиокнигаПродолжительность: 12:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFF35E6EE0FFA8F05858D53D26C143DD369083D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349139   (138278) от 31.12.2019
 
 Юрий Нагибин | Эхо (1961) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138278.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137676.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136447.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135367.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135359.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135355.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135347.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135315.jpg" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135102.jpg" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135101.jpg" />
 </div>
 
 
@@ -276,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135069.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135063.jpg" />
 </div>
 
 
@@ -329,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134991.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134985.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134983.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134609.jpg" />
 </div>
 
 
@@ -438,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134585.jpg" />
 </div>
 
 
@@ -465,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134569.jpg" />
 </div>
 
 
@@ -493,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134502.jpg" />
 </div>
 
 
@@ -520,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134410.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ VA - Вийди, вийди, сонечко. Українські народні
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134400.jpg" />
 </div>
 
 
@@ -575,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134335.jpg" />
 </div>
 
 
@@ -604,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134287.jpg" />
 </div>
 
 
@@ -617,97 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67BEE93CE0B63DC5BD7FEFBDBC11A10F1BA8F3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594389   (134152) от 25.12.2012
-
-Chamras Saewataporn - Mother Care Fairly Child (2004) [MP3|320 кб/с]<New age, Piano>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134152.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:34) 01. Mama and Papa
-(2:41) 02. Love Is All Around
-(2:04) 03. Daddy Comes Home
-(2:53) 04. When You Grow Up
-(2:47) 05. Fairy Tales In My Loneliness
-(2:50) 06. Love Can Make A Home
-(3:04) 07. Please Don't Cry, Mom Is Coming
-(2:57) 08. Heaven Under the Roof
-(2:39) 09. Mother Care Fairly Child
-(2:14) 10. Your First Day in SchoolЖанр: New age, PianoПродолжительность: 00:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34716414E2B45A3516C8D5D2E06941D4D3DE8C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418455   (134064) от 29.11.2023
-
-Юрий Сотник | Эликсир Купрума Эса (Радиоспектакль) (2011) [MP3, Лев Дуров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Коллекция радиоспектаклей из архива Гостелерадиофонда»
-В одной обычной школе, где учились самые обыкновенные ученики и ученицы, был один очень необычный и подозрительный учитель химии – Куприян Семенович (по прозвищу Купрум Эс). Именно из-за него, а точнее изобретенного им эликсира, в школе стали происходить странные случаи: обыкновенную девочку Зою Ладошину (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51A56390ADFA627829247CCA6E7F696555B8196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352777   (134043) от 29.11.2023
-
-Юрий Олеша | Три толстяка (Аудиоспектакль) (2009) [MP3, Михаил Ефремов, Вячеслав Шалевич и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Волшебный мир приключений.
-Юрий Карлович Олеша (1899–1960) – писатель, поэт, драматург, сатирик. Его первое произведение – сказочный роман «Три Толстяка».
-Вашему вниманию предлагается аудиокнига с записью музыкальной сказки для детей «Три толстяка», в исполнении артистов театра и кино.
-События разворачиваются стремительно. Продавец шаров попадает в торт, приготовленный (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаВ ролях: Михаил Ефремов, Вячеслав Шалевич, Ирина Пономарева и др.Издательство: Вимбо, 1С-ПаблишингПродолжительность: 02:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C99B7F3FA64BB5C6A166A70807CA6156C9E8719
 ```
 
 https://mybot314.ru/tekegram_catalog/

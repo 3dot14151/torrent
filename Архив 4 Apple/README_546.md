@@ -1,3 +1,107 @@
+###  Публикация: 1650175   (226835) от 31.07.2023
+
+2Do for Mac 2.7.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226835.jpg" />
+</div>
+
+
+###  Подробнее
+
+2Do делает реальным совершенно иной подход к управлению задачами. Благодаря чрезвычайно простому интерфейсу, и универсальному и гибкому набору мощных функций, программа позволяет сосредоточиться на том, что наиболее важно для вас: вашей жизни. 2Do невозможно использовать неправильным образом и, в отличие от других программ, он не заставляет вас придерживаться определенной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2023Разработчик: © 2009 - 2023 Beehive InnovationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1586651FF3F6FC6E732E24F6746711C54C42AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650238   (226827) от 31.07.2023
+
+AI Transcription 1.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразовать аудио в текст. Превратите звук в текст. AI Transcription использует расширенное распознавание речи для мгновенной расшифровки ваших аудио- и видеофайлов, полностью автоматически, в автономном режиме и с очень точными результатами.Тип издания: macOS SoftwareРелиз состоялся: 29.07.2023Разработчик: © 2023 IXEAUПоддерживаемая ОС: macOS 13.1+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0D27D7D0A18809FA3B1AFCA7F26B7EDD4F988C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650288   (226810) от 31.07.2023
+
+System Dashboard Pro 1.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226810.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2023 Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAEF32590CD54898A2C8249AE43D492CEF20274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650287   (226793) от 31.07.2023
+
+Ghost Buster Pro 2.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Buster Pro находит и удаляет файлы из приложений, которые вы уже удалили. Приложение работает молниеносно и мгновенно освобождает память. Многие приложения устанавливаются на компьютер, но обычно они остаются на вашем компьютере только в течение короткого времени. Каждое приложение создает файлы, но удаление приложения не приводит к их удалению. Это приводит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D31535BC9FA054657889AA9417FA62CD9C38E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650229   (226759) от 31.07.2023
 
 Stats 2.9.3 [Multi/Ru]
@@ -6,7 +110,7 @@ Stats 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226759.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SketchUp Pro 2015 (15.2.686) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226670.jpg" />
+  <img src="Z:/picture/005/save_picture_226670.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Permute 3 v3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226572.jpg" />
+  <img src="Z:/picture/005/save_picture_226572.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Adobe Media Encoder 2020 14.0.0.556 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226570.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Topaz Plugins Bundle (upd 19.2014) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226547.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ SnapMotion Unlimited 5.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226500.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Permute 3 v.3.10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226491.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Downie 4 v.4.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226453.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ Magic Disk Cleaner 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226428.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ Wondershare Filmora 9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226409.jpg" />
+  <img src="Z:/picture/005/save_picture_226409.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ MacCleanse 9.0.2 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226252.jpg" />
+  <img src="Z:/picture/005/save_picture_226252.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Kiwi for Gmail 2.0.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226235.jpg" />
+  <img src="Z:/picture/005/save_picture_226235.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Magic Number 2.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226233.jpg" />
+  <img src="Z:/picture/005/save_picture_226233.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ DiskCatalogMaker 6.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226222.jpg" />
+  <img src="Z:/picture/005/save_picture_226222.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Clipboard Manager 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226221.jpg" />
+  <img src="Z:/picture/005/save_picture_226221.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ Soulver 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226184.jpg" />
+  <img src="Z:/picture/005/save_picture_226184.jpg" />
 </div>
 
 
@@ -435,7 +539,7 @@ Elmedia Player Pro v7.0 (1618) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226181.jpg" />
+  <img src="Z:/picture/005/save_picture_226181.jpg" />
 </div>
 
 
@@ -463,7 +567,7 @@ mirethMusic 4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226178.jpg" />
+  <img src="Z:/picture/005/save_picture_226178.jpg" />
 </div>
 
 
@@ -489,7 +593,7 @@ GlueMotion 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226175.jpg" />
+  <img src="Z:/picture/005/save_picture_226175.jpg" />
 </div>
 
 
@@ -516,7 +620,7 @@ MacPilot 12.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226169.jpg" />
+  <img src="Z:/picture/005/save_picture_226169.jpg" />
 </div>
 
 
@@ -543,7 +647,7 @@ Find Any File (FAF) 2.3.2 b10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226167.jpg" />
+  <img src="Z:/picture/005/save_picture_226167.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ Valentina Studio Pro 9.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226165.jpg" />
+  <img src="Z:/picture/005/save_picture_226165.jpg" />
 </div>
 
 
@@ -581,112 +685,6 @@ Valentina Studio - это идеальный инструмент управле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1178ECDB4D68718D8B86A7B131C18CEC97BAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650623   (226155) от 02.08.2023
-
-GarageSale 9.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006BA195CC3377FE1834046B0481B3338F5DD099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513311   (226152) от 28.11.2021
-
-eMail Address Extractor 3.5.8 fix [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226152.jpg" />
-</div>
-
-
-###  Подробнее
-
-eMail Address Extractor - ищем и извлекаем email адреса. eMail Address Extractor - приложение помогает извлекать корректные email адреса электронной почты, практически из любого текстового файла, при этом не требуется никаких настроек.
-Просто перетащите файл на главное окно приложения, выберите формат выходного файла и быстро получите список всех email адресов без (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2021Разработчик: SweetPProductionsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF64237C3F8DC953FA2974CC13012695F83DB62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650528   (226132) от 02.08.2023
-
-RAW Power 3.4.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F794D51BC136D5034A03DF744BEFE2E176F3BA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513319   (226127) от 28.11.2021
-
-GarageSale 8 v8.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF6411346C06B6F724F5417E9DE804163880D94
 ```
 
 https://mybot314.ru/tekegram_catalog/

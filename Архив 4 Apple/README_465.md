@@ -1,3 +1,108 @@
+###  Публикация: 1335196   (289599) от 01.11.2019
+
+Comic Life 3 v.3.5.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comic Life - великолепное приложение, с помощью которого можно создавать комиксы и сюжеты, используя личные фотографии или рисунки.
+Взгляните по-новому на свои фотографии из различных путешествий - приложение Comic Life поможет вам создать и красиво оформить собственную историю с эффектами из комиксов. Удивите своих друзей нестандартным оформлением. Стоит отметить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2019Разработчик: plasq LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68939ABD7C83647B7A0002E3D2EC18B93C7D0626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263182   (289598) от 18.11.2018
+
+Alien Skin Exposure X4 Bundle 4.0.2.43 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3EF1276E8FBABFE2D091E6F14D4C19841FD5DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335188   (289591) от 01.11.2019
+
+Worksheet Crafter Premium Edition 2019.1.8.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте свой собственный Worksheet быстро и легко. Сделайте идеальные обучающие шаблоны, рабочие листы и классные тесты для ваших  учеников всего за несколько кликов. Создайте свои Worksheet, это весело использовать и так же просто, как пользоваться Microsoft Word.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Worksheet Crafter.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33A82FBE76D0CCAF8BC51DC90AFF4DF2AF0196A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335083   (289587) от 01.11.2019
+
+iReal Pro 2019.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение предлагает простой в использовании инструмент, чтобы помочь музыкантам всех уровней освоить свое искусство, а также - предоставит вам имитацию реально звучащего бэнда так, как вы этого ожидаете.Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: Technimo LLC.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DCED59C947471942764B1B8419538CFAA2A710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335063   (289583) от 01.11.2019
 
 ACD Systems Canvas Draw 6.0.1 (build 6054) [En]
@@ -6,7 +111,7 @@ ACD Systems Canvas Draw 6.0.1 (build 6054) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289583.jpg" />
+  <img src="Z:/picture/008/save_picture_289583.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ iTranslate 1.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289494.jpg" />
+  <img src="Z:/picture/008/save_picture_289494.jpg" />
 </div>
 
 
@@ -63,7 +168,7 @@ Adobe Premiere Pro CC 2017 (11.0.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289483.jpg" />
+  <img src="Z:/picture/008/save_picture_289483.jpg" />
 </div>
 
 
@@ -90,7 +195,7 @@ Imagenomic Plug-in for Photoshop (update 23.11.2017) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289307.jpg" />
+  <img src="Z:/picture/008/save_picture_289307.jpg" />
 </div>
 
 
@@ -117,7 +222,7 @@ WinZip Mac Pro 7 v7.0.4565 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289214.jpg" />
+  <img src="Z:/picture/008/save_picture_289214.jpg" />
 </div>
 
 
@@ -144,7 +249,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289189.jpg" />
+  <img src="Z:/picture/008/save_picture_289189.jpg" />
 </div>
 
 
@@ -172,7 +277,7 @@ VMware Fusion Pro 11.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289049.jpg" />
+  <img src="Z:/picture/008/save_picture_289049.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ DaVinci Resolve Studio 16 v16.1.1.005 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289025.jpg" />
+  <img src="Z:/picture/008/save_picture_289025.jpg" />
 </div>
 
 
@@ -227,7 +332,7 @@ AirFoil 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288964.jpg" />
+  <img src="Z:/picture/008/save_picture_288964.jpg" />
 </div>
 
 
@@ -253,7 +358,7 @@ Elmedia Player Pro 7.7  (1843) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288922.jpg" />
+  <img src="Z:/picture/008/save_picture_288922.jpg" />
 </div>
 
 
@@ -281,7 +386,7 @@ WiFi Explorer Pro 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288735.jpg" />
+  <img src="Z:/picture/008/save_picture_288735.jpg" />
 </div>
 
 
@@ -309,7 +414,7 @@ LilyView 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288684.jpg" />
+  <img src="Z:/picture/008/save_picture_288684.jpg" />
 </div>
 
 
@@ -336,7 +441,7 @@ File Juicer 4.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288544.jpg" />
+  <img src="Z:/picture/008/save_picture_288544.jpg" />
 </div>
 
 
@@ -364,7 +469,7 @@ UninstallPKG 1.1.0 (1161 ) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288457.jpg" />
+  <img src="Z:/picture/008/save_picture_288457.jpg" />
 </div>
 
 
@@ -392,7 +497,7 @@ KeyCue 8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288388.jpg" />
+  <img src="Z:/picture/008/save_picture_288388.jpg" />
 </div>
 
 
@@ -419,7 +524,7 @@ FruitJuice 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288278.jpg" />
+  <img src="Z:/picture/008/save_picture_288278.jpg" />
 </div>
 
 
@@ -446,7 +551,7 @@ KCNcrew Pack 11.15.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288152.jpg" />
+  <img src="Z:/picture/008/save_picture_288152.jpg" />
 </div>
 
 
@@ -472,7 +577,7 @@ Path Finder 8.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288146.jpg" />
+  <img src="Z:/picture/008/save_picture_288146.jpg" />
 </div>
 
 
@@ -498,7 +603,7 @@ TaskPaper 3.8.2 (336) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288139.jpg" />
+  <img src="Z:/picture/008/save_picture_288139.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ File Cabinet Pro 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288137.jpg" />
+  <img src="Z:/picture/008/save_picture_288137.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ RapidWeaver 8 8.1 (20462b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288135.jpg" />
+  <img src="Z:/picture/008/save_picture_288135.jpg" />
 </div>
 
 
@@ -580,7 +685,7 @@ Sip Pro 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288133.jpg" />
+  <img src="Z:/picture/008/save_picture_288133.jpg" />
 </div>
 
 
@@ -592,117 +697,6 @@ Sip Pro 1.1.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE075B5A6FEF4D452AF5CF953CDF8F6B35AFF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263534   (288123) от 19.11.2018
-
-NXPowerLite Desktop 8 v8.0.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с NXPowerLite Desktop - программой для дополнительного сжатия файлов PDF, Microsoft Office, JPEG-картинок , с целью уменьшения размера для последующей их пересылки по электронной почте в виде вложений. Особенно эффективна программа при сжатии pdf-документов, офисных файлов и картинок.
-
-Оптимизированные файлы сохраняют исходный формат и остаются полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2018Разработчик: Neuxpower Solutions LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский, Японский и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527DADB10E613B72EA212BF39DF44B513F90C99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186152   (288109) от 24.11.2017
-
-iMazing 2.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288109.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2017Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D31B693EB5DBF2A3377C30E65FDA4372574EC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263522   (288017) от 19.11.2018
-
-Submerge 3 v3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
-
-Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2018Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C91EDF331047D1F932A3E35CAC8D0D1A298134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263529   (288014) от 19.11.2018
-
-Athentech Perfectly Clear Complete 3.6.3.1345 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2018Разработчик: AthentechПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1BC4312D69292AA08F3AFB67C6B2BBFC3D53D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

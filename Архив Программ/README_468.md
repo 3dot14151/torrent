@@ -6,7 +6,7 @@ SamDrivers 18.0 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800064.jpg" />
+  <img src="Z:/picture/008/save_picture_800064.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800045.jpg" />
+  <img src="Z:/picture/008/save_picture_800045.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Topaz DeNoise AI 2.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800044.jpg" />
+  <img src="Z:/picture/008/save_picture_800044.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Etcher 1.5.91 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800041.jpg" />
+  <img src="Z:/picture/008/save_picture_800041.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RAM Saver Professional 20.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800034.jpg" />
+  <img src="Z:/picture/008/save_picture_800034.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VMware Workstation 12 Pro 12.5.5 build 5234757 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800012.jpg" />
+  <img src="Z:/picture/008/save_picture_800012.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Audiority - Deleight 1.2.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800010.jpg" />
+  <img src="Z:/picture/008/save_picture_800010.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cockos REAPER 6.40 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800009.jpg" />
+  <img src="Z:/picture/008/save_picture_800009.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ GoodSync Enterprise 10.11.9.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799975.jpg" />
+  <img src="Z:/picture/008/save_picture_799975.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799971.jpg" />
+  <img src="Z:/picture/008/save_picture_799971.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Autodesk Inventor (Pro) 2018 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799968.jpg" />
+  <img src="Z:/picture/008/save_picture_799968.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VMware Workstation 12 Pro 12.5.5 build 5234757 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799967.jpg" />
+  <img src="Z:/picture/008/save_picture_799967.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799944.jpg" />
+  <img src="Z:/picture/008/save_picture_799944.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Telegram Desktop 3.1.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799942.jpg" />
+  <img src="Z:/picture/008/save_picture_799942.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SMPlayer 21.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799940.jpg" />
+  <img src="Z:/picture/008/save_picture_799940.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ AOMEI Partition Assistant Standard Edition 9.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799930.jpg" />
+  <img src="Z:/picture/008/save_picture_799930.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799909.jpg" />
+  <img src="Z:/picture/008/save_picture_799909.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AOMEI Backupper Pro 6.7.0 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799890.jpg" />
+  <img src="Z:/picture/008/save_picture_799890.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799865.jpg" />
+  <img src="Z:/picture/008/save_picture_799865.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ GoodSync Enterprise 11.9.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799824.jpg" />
+  <img src="Z:/picture/008/save_picture_799824.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ qBittorrent 4.3.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799819.jpg" />
+  <img src="Z:/picture/008/save_picture_799819.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4993.1002 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799794.jpg" />
+  <img src="Z:/picture/008/save_picture_799794.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Privacy Eraser Free 4.46.0 Build 2744 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799782.jpg" />
+  <img src="Z:/picture/008/save_picture_799782.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Photo Supreme 4.3.2.1834 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799774.jpg" />
+  <img src="Z:/picture/008/save_picture_799774.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Aiseesoft Data Recovery 1.1.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799773.jpg" />
+  <img src="Z:/picture/008/save_picture_799773.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Athentech Perfectly Clear + Essentials v3.6.3.1398 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799770.jpg" />
+  <img src="Z:/picture/008/save_picture_799770.jpg" />
 </div>
 
 

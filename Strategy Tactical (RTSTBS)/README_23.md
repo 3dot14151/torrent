@@ -6,7 +6,7 @@ Forgotten but Unbroken (2024) [Multi] (1.2.2) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Let'sРlay [Pre
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5910.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.5/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5767.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5473.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.9.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5455.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.16.03/dlc) License GOG [Field Marshal Editio
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5300.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Old World (2022) [Ru/Multi] (79513/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5299.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.2/dlc) Repack FitGirl [
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5241.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4254.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.3 HF1/dlc) Repack Let's
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3099.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2883.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Shadow Empire (2020) [En] (1.27.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2274.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2272.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2123.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1402.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1261.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1248.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1117.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1114.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.01.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_723.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.2/dlc) Repack Let'sРlay [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_700.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_587.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125.jpg" />
 </div>
 
 

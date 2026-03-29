@@ -6,7 +6,7 @@ Tower 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881824.jpg" />
+  <img src="Z:/picture/005/save_picture_881824.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MacBooster 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881823.jpg" />
+  <img src="Z:/picture/005/save_picture_881823.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Cinch 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881747.jpg" />
+  <img src="Z:/picture/008/save_picture_881747.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Ableton Live 10 Suite v10.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881733.jpg" />
+  <img src="Z:/picture/005/save_picture_881733.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881597.jpg" />
+  <img src="Z:/picture/005/save_picture_881597.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Adobe Premiere Pro 2020 14.0.4 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881586.jpg" />
+  <img src="Z:/picture/005/save_picture_881586.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Native Instruments Traktor Pro 3 v3.3.0.108 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881567.jpg" />
+  <img src="Z:/picture/005/save_picture_881567.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Wondershare Filmora 8.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881561.jpg" />
+  <img src="Z:/picture/005/save_picture_881561.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ON1 Photo RAW 2017 v11.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881536.jpg" />
+  <img src="Z:/picture/005/save_picture_881536.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ BBEdit 11.5.1 (3874) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881273.jpg" />
+  <img src="Z:/picture/005/save_picture_881273.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881207.jpg" />
+  <img src="Z:/picture/005/save_picture_881207.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Red Giant Magic Bullet Suite 13.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880941.jpg" />
+  <img src="Z:/picture/005/save_picture_880941.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ AnyMP4 iPhone Transfer Pro for Mac 8.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880839.jpg" />
+  <img src="Z:/picture/005/save_picture_880839.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Cisdem ContactsMate 5 v5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880488.jpg" />
+  <img src="Z:/picture/005/save_picture_880488.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Tagr 5 v5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880477.jpg" />
+  <img src="Z:/picture/005/save_picture_880477.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mini Metro gamma5 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880448.jpg" />
+  <img src="Z:/picture/005/save_picture_880448.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mirror for Hisense TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880433.jpg" />
+  <img src="Z:/picture/005/save_picture_880433.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Soulver 3 v3.3.0[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880430.jpg" />
+  <img src="Z:/picture/005/save_picture_880430.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Librarian Pro 5 v5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880429.jpg" />
+  <img src="Z:/picture/005/save_picture_880429.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Renamer 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880426.jpg" />
+  <img src="Z:/picture/005/save_picture_880426.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ WinX HD Video Converter for Mac 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880423.jpg" />
+  <img src="Z:/picture/005/save_picture_880423.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Touch Blur 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880419.jpg" />
+  <img src="Z:/picture/005/save_picture_880419.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Elmedia Player Pro 7.9  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880415.jpg" />
+  <img src="Z:/picture/005/save_picture_880415.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ FoneDog Toolkit for Android 2.0.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880414.jpg" />
+  <img src="Z:/picture/005/save_picture_880414.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ DxO PhotoLab 3 ELITE Edition 3.2.1 (build 51) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880333.jpg" />
+  <img src="Z:/picture/005/save_picture_880333.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ iSkysoft iTube Studio 7.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880331.jpg" />
+  <img src="Z:/picture/005/save_picture_880331.jpg" />
 </div>
 
 

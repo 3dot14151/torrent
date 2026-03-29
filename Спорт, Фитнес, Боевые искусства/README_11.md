@@ -1,3 +1,57 @@
+###  Публикация: 1159124   (485806) от 19.08.2017
+
+Миямото Мусаси, Такуан Сохо | Книга самурая (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга знакомит вас с трактатами о боевых искусствах, которые были написаны двумя легендарными японцами XVII века, Такуаном Сохо и Миямото Мусаси.
+Такуан Сохо был дзэнским монахом, каллиграфом, художником, поэтом, садовником, мастером чайной церемонии и изобретателем рецепта квашения редиски, который носит его имя и популярен в Японии вплоть до настоящего времени. (   Читать дальше...   )Жанр: Боевые искусстваФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC2F068F22992C53F1E5D11A00B7478D7DC671B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159118   (485689) от 19.08.2017
+
+А.А. Кадочников | Русский рукопашный бой по системе выживания (2004) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое рукопашный бой? В каких условиях обстановки он необходим, а при каких обстоятельствах он неизбежен? На каких дистанциях ведется? Каково психическое состояние человека в таком бою? Какие требования следует предъявлять к психологической подготовке воина? Наконец, кто же он — настоящий рукопашник?
+Ответы на поставленные вопросы читатель найдет в этой книге.Жанр: Спорт. СамооборонаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60AF4567F119E95957BFF43F8D1A37A97AB2404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159122   (485682) от 19.08.2017
 
 М.В. Куропаткина | Уличный бой без правил (2006) [FB2, EPUB]
@@ -6,7 +60,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485682.jpg" />
+  <img src="Z:/picture/008/save_picture_485682.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483825.jpg" />
+  <img src="Z:/picture/008/save_picture_483825.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483817.jpg" />
+  <img src="Z:/picture/008/save_picture_483817.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483582.jpg" />
+  <img src="Z:/picture/008/save_picture_483582.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481741.jpg" />
+  <img src="Z:/picture/008/save_picture_481741.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480787.jpg" />
+  <img src="Z:/picture/008/save_picture_480787.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477204.jpg" />
+  <img src="Z:/picture/008/save_picture_477204.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476122.jpg" />
+  <img src="Z:/picture/008/save_picture_476122.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473768.jpg" />
+  <img src="Z:/picture/008/save_picture_473768.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473356.jpg" />
+  <img src="Z:/picture/008/save_picture_473356.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471637.jpg" />
+  <img src="Z:/picture/008/save_picture_471637.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467220.jpg" />
+  <img src="Z:/picture/008/save_picture_467220.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467054.jpg" />
+  <img src="Z:/picture/008/save_picture_467054.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461187.jpg" />
+  <img src="Z:/picture/008/save_picture_461187.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453399.jpg" />
+  <img src="Z:/picture/008/save_picture_453399.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453391.jpg" />
+  <img src="Z:/picture/008/save_picture_453391.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453251.jpg" />
+  <img src="Z:/picture/008/save_picture_453251.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453245.jpg" />
+  <img src="Z:/picture/008/save_picture_453245.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453106.jpg" />
+  <img src="Z:/picture/008/save_picture_453106.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452285.jpg" />
+  <img src="Z:/picture/008/save_picture_452285.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449986.jpg" />
+  <img src="Z:/picture/008/save_picture_449986.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446184.jpg" />
+  <img src="Z:/picture/008/save_picture_446184.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446179.jpg" />
+  <img src="Z:/picture/008/save_picture_446179.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446076.jpg" />
+  <img src="Z:/picture/008/save_picture_446076.jpg" />
 </div>
 
 
@@ -629,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC252A61C01D53CDDCC8E154DB82A859ECD5CD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163779   (445931) от 07.09.2017
-
-Франческо Альфиери | Искусство превосходного владения мечом (2017) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франческо Альфиери в своем трактате «Искусство превосходного владения мечом» изложил свою мысль о Фехтовании, привел множество способов и методов, преимуществ от изучения Искусства Оружия. Рассказал, как сделать искусство фехтования полезным и стать лучшим в этом деле. Этот рассказ написан таким способом, который через века передал всю мудрость использования оружия. (   Читать дальше...   )Жанр: Боевые искусства, ФехтованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D622915E2F863DDD5E3218D2FF7237AF8F21873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943966   (444424) от 05.10.2015
-
-Терри Лафлин, Джон Делвз | Полное погружение. Как плавать лучше, быстрее и легче (2014) [FB2]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умеете ли вы плавать? Не просто держаться на воде, а плыть как рыбы, не тратя лишних усилий и при этом быстро? Если нет, то самое время научиться! Терри Лафлин много лет тренирует спортсменов по собственной методике, которая называется Total Immersion. Люди, освоившие ее, поражают сочетанием медленных, плавных, экономичных, бесшумных движений и быстрого перемещения (   Читать дальше...   )Жанр: Хобби, спорт, плаваниеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4193CFA4E611C2C045BE4DC0779DE1410B0A0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

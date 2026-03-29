@@ -1,3 +1,168 @@
+###  Публикация: 532324   (538411) от 07.08.2012
+
+Путешествия по Москве (1981) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильмы-путешествия рассказывают об исторических и архитектурных памятниках, знакомят с достопримечательностями и памятными местами Москвы.Жанр: Документальный, ТелепередачаПродолжительность: 10 x ~ 00:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAD7B553F9D11495AA160CC7326F2157868E847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311801   (538025) от 01.07.2019
+
+Футбол. Кубок Америки 2019. 1/4 Финала. Уругвай — Перу (2019) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_538025.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 июня 2019, суббота. 22:00 МСК
+Кубок Америки по футболу 2019. Салвадор (Бразилия)
+1/4 Финала.
+Уругвай — Перу(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B5ADFD1C2EF1C62DFB4974ED5397A010FBD468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311936   (537923) от 01.07.2019
+
+Плавание. Champions Swim Series 2019. Индианаполис (США). 3-й Этап. День 2 (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 июня 2019 года
+Champions Swim Series 2019 – новый Международный турнир по плаванию. Индианаполис (США)
+"Champions Swim Series" включает призеров Олимпийских игр 2016 года, призеров чемпионата мира 2017 года, обладателей рекордов мира и лидеров мирового рейтинга FINA 2018 года.
+3-й Этап. День 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E812782FF36092F7C91F6093F3F8499ED6C5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696977   (537892) от 04.09.2013
+
+Рестлинг / WWE Monday Night RAW 02.09.13 + Русская версия от IWN (2013) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной выпуск шоу WWE Monday Night RAWЖанр: ТелепередачаПеревод: Двуголосый закадровый, любительский ( Русская версия от IWN)Продолжительность: 2:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA04D3F1F294E308CBB95E5EC7518CF011E522D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366890   (537431) от 23.07.2011
+
+Формула 1 Гран-При Германии 3 свободная практика (2011) HDTV
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несжатый HD со спутника, канал Спорт 1, ошибки в потоке отсутствуют (лог ниже). Рекламы нет, запись с первой до последней секунды трансляции.Жанр: СпортПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DBB63AE6767DD5F2DC2944281A6FEBADA84C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155015   (537304) от 01.08.2017
+
+Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 3-го тура (31.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537304.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 июля 2017 года
+РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 3-го тура
+29.07.2017, 15:00 МСК	Урал – Уфа
+29.07.2017, 15:00 МСК	ЦСКА – СКА-Хабаровск(   Читать дальше...   )Телекомпания: Матч! Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF97D83B8458FFCC6F925E23D6B48468F32BF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154993   (537303) от 01.08.2017
 
 Футбол. РФПЛ. Чемпионат России 2017-2018. 3-й тур. Тосно (Тосно) — Зенит (Санкт-Петербург) (30.07.2017) WEB-DL [H.264/720p-LQ]
@@ -6,7 +171,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537303.jpg" />
+  <img src="Z:/picture/008/save_picture_537303.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537296.jpg" />
+  <img src="Z:/picture/008/save_picture_537296.jpg" />
 </div>
 
 
@@ -61,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537244.jpg" />
+  <img src="Z:/picture/008/save_picture_537244.jpg" />
 </div>
 
 
@@ -90,7 +255,7 @@ Monster Energy NASCAR Cup Series 2017. 19-й Этап. Overton's 301 (16.07.2017
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537238.jpg" />
+  <img src="Z:/picture/008/save_picture_537238.jpg" />
 </div>
 
 
@@ -119,7 +284,7 @@ Monster Energy Nascar Cup Series-2017, Этап 21 - Pocono Raceway (2017) WEB-D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537227.jpg" />
+  <img src="Z:/picture/008/save_picture_537227.jpg" />
 </div>
 
 
@@ -145,7 +310,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Coates Hire Ipswich Su
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537127.jpg" />
+  <img src="Z:/picture/008/save_picture_537127.jpg" />
 </div>
 
 
@@ -171,7 +336,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537087.jpg" />
+  <img src="Z:/picture/008/save_picture_537087.jpg" />
 </div>
 
 
@@ -197,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536874.jpg" />
+  <img src="Z:/picture/008/save_picture_536874.jpg" />
 </div>
 
 
@@ -226,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536873.jpg" />
+  <img src="Z:/picture/008/save_picture_536873.jpg" />
 </div>
 
 
@@ -255,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536872.jpg" />
+  <img src="Z:/picture/008/save_picture_536872.jpg" />
 </div>
 
 
@@ -284,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536871.jpg" />
+  <img src="Z:/picture/008/save_picture_536871.jpg" />
 </div>
 
 
@@ -311,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536565.jpg" />
+  <img src="Z:/picture/008/save_picture_536565.jpg" />
 </div>
 
 
@@ -337,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536459.jpg" />
+  <img src="Z:/picture/008/save_picture_536459.jpg" />
 </div>
 
 
@@ -363,7 +528,7 @@ History Channel: Остров пиратов / Pirate Island (2011) TVRip [En]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536272.jpg" />
+  <img src="Z:/picture/008/save_picture_536272.jpg" />
 </div>
 
 
@@ -389,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536216.jpg" />
+  <img src="Z:/picture/008/save_picture_536216.jpg" />
 </div>
 
 
@@ -416,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536156.jpg" />
+  <img src="Z:/picture/008/save_picture_536156.jpg" />
 </div>
 
 
@@ -442,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535261.jpg" />
+  <img src="Z:/picture/008/save_picture_535261.jpg" />
 </div>
 
 
@@ -469,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535260.jpg" />
+  <img src="Z:/picture/008/save_picture_535260.jpg" />
 </div>
 
 
@@ -498,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535259.jpg" />
+  <img src="Z:/picture/008/save_picture_535259.jpg" />
 </div>
 
 
@@ -525,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535257.jpg" />
+  <img src="Z:/picture/008/save_picture_535257.jpg" />
 </div>
 
 
@@ -539,168 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB113984A3909E1AFCE2E2B947CEFD8EAA14FE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050823   (535256) от 10.09.2016
-
-Пляжный футбол. Кубок мира-2017. Европейский квалификационный турнир. Езоло (Италия). 2-ой групповой этап. Россия - Украина (09.09.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535256.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 сентября 2016, пятница. 16:20 МСК
-Кубок мира-2017. Квалификационный турнир. Европа. 2-ой групповой этап.
-Матч № 60. Группа 3. 3 Тур
-Стадион: Стадио Езоло, Езоло (Италия)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин, Станислав Минин)Продолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C64D5023F33F9A3627E86D50C3C08C3F15628B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051182   (535255) от 10.09.2016
-
-Хоккей. Кубок Мира-2016. Выставочный матч. США - Канада (09.09.2016) HDTVRip [H.264/576p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535255.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 сентября 2016, суббота. 02:00 МСК
-Кубок Мира-2016. Выставочный матч
-Стадион: Nationwide Arena (Columbus, Ohio, USA), 17795 зрителей
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Фомичёв и Олег Мосалев)Продолжительность: 02:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111FDBAA75BB0FB0D81E2C3068AEF07054A0B231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925760   (535151) от 09.08.2015
-
-Тайсон / Tyson (2008) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк Тайсон (англ. Michael Tyson; 30 июня 1966, Бруклин, Нью-Йорк, США)— американский боксёр-профессионал, выступавший в супертяжелой весовой категории. Чемпион мира в супертяжёлой (версия WBC, 1986—1990 и 1996; версия WBA, 1987—1990; версия IBF, 1987—1990) весовой категории. В 20-летнем возрасте стал самым молодым чемпионом мира в истории тяжёлого веса. Прозвище (   Читать дальше...   )Производство: США, Франция / Fyodor ProductionsЖанр: Документальный / БиографическийРежиссер: Джеймс ТобэкАктеры: Майк ТайсонПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютФормат: MKVПродолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB5DFF4EB05B11273444AEA2EA737E0E0FCD0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051095   (535144) от 10.09.2016
-
-Открытая студия.  «Украина: горячая осень» (08.09.2016) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535144.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Украине начался новый политический сезон, а с ним и новый виток борьбы за власть. На открытии сессии в Раде Петр Порошенко заявил депутатам, что курс страны остается прежним, а приоритеты незыблемыми: сотрудничество с Западом, вступление в ЕС и НАТО, укрепление армии и противостояние с Россией. И к достижению всех этих грандиозных целей страна идет якобы семимильными (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2861644BAC114E60FD6F59195272A9A204790A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049192   (534913) от 10.09.2016
-
-NG: Смертельная Любовь. Кровопийцы / Spiders Deadly Love (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уже 400 млн.лет пауки сохраняют за собой звание самых свирепых хищников на планете. Их арсенал смертельных орудий впечатляет: молниеносная скорость, крепкая паутина, острые конечности и быстродействующий яд. И в опасности может оказываются не только неосторожная жертва, но зачастую и представитель собственного вида. Даже когда у пауков приходит время брачных (   Читать дальше...   )Телекомпания: США, National Geographic Television and Film ProductionЖанр: Документальный, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A59E09224BF2272CA1F6B2A1074FCEEC644902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532813   (534883) от 09.08.2012
-
-Академик Петров (1983) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен крупнейшему советскому ученому в области управления. Научные труды Петрова проложили путь к качественным новым об.темам управления в авиации и космонавтикеЖанр: ДокументальныйРежиссер: В. ТомбергПродолжительность: 00:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04D989BBEF5966E0A53E4EB8B0EE6A77ABAFC34
 ```
 
 https://mybot314.ru/tekegram_catalog/

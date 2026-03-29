@@ -6,7 +6,7 @@ Blitzkrieg: Mission Kursk [Ru] (L) 2006
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_311767.jpg" />
+  <img src="Z:/picture/005/save_picture_311767.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Templar Battleforce (2015) [En] (2.6.65) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311193.jpg" />
+  <img src="Z:/picture/008/save_picture_311193.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rebel Cops (2019) [Ru/Multi] (1.1.1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308811.jpg" />
+  <img src="Z:/picture/008/save_picture_308811.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Age of Empires III: Complete Collection (Age of Empires III/The WarChiefs/The As
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306574.jpg" />
+  <img src="Z:/picture/008/save_picture_306574.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Abandon Ship (2019) [Ru/Milti] (1.0.13298) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304589.jpg" />
+  <img src="Z:/picture/008/save_picture_304589.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Breach & Clear: Deadline Rebirth (2015) [Ru/Multi] (1.23) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301758.jpg" />
+  <img src="Z:/picture/008/save_picture_301758.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Order of Battle: World War II  (2016) [Ru/Multi] (13112018/dlc) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298322.jpg" />
+  <img src="Z:/picture/008/save_picture_298322.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Battlefleet Gothic: Armada (2016) [Ru/Multi] (2.0.26100/dlc) License GOG [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295000.jpg" />
+  <img src="Z:/picture/008/save_picture_295000.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294461.jpg" />
+  <img src="Z:/picture/008/save_picture_294461.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wargame: Red Dragon - Double Nation Pack REDS (2014) [Ru/Multi] (510057270/dlc) 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291171.jpg" />
+  <img src="Z:/picture/008/save_picture_291171.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Strategic Mind: The Pacific (2019) [Ru/Multi] (2.02) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286914.jpg" />
+  <img src="Z:/picture/008/save_picture_286914.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Banner Saga (2014) [Ru/Multi] (2.36.03/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279888.jpg" />
+  <img src="Z:/picture/008/save_picture_279888.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ UFO: Afterlight / UFO: Прозрение (2007) [Ru/En] (1.7) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278164.jpg" />
+  <img src="Z:/picture/008/save_picture_278164.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Warhammer 40,000: Dawn of War II: Retribution (2011) [Ru/Multi] (3.19.1.10320/dl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276623.jpg" />
+  <img src="Z:/picture/008/save_picture_276623.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0.6/dlc) Repack Covfefe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275072.jpg" />
+  <img src="Z:/picture/008/save_picture_275072.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Warlock. Master Of The Arcane (2012) [Ru] (1.4.1.56/dlc) Repack Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274961.jpg" />
+  <img src="Z:/picture/008/save_picture_274961.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Super Dungeon Tactics (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274230.jpg" />
+  <img src="Z:/picture/008/save_picture_274230.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0/dlc) Repack R.G. Revenants [Anniversar
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270936.jpg" />
+  <img src="Z:/picture/008/save_picture_270936.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Formata (2017) [Ru/Multi] (1.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268441.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265191.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Narcos: Rise of the Cartels (2019) [Ru/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264495.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Renowned Explorers: International Society (2015) [En] (1.0.483/dlc) License GOG 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263327.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Grotesque Tactics 2: Dungeons & Donuts [Ru/En] (RePack) 2011 | Martin
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259252.jpg" />
+  <img src="Z:/picture/005/save_picture_259252.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.6HF2/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257752.jpg" />
+  <img src="Z:/picture/005/save_picture_257752.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Songs of Conquest (2024) [Ru/Multi] (1.7.3/dlc) Repack Necros [Complete]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256757.jpg" />
+  <img src="Z:/picture/005/save_picture_256757.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Assault Squad 2: Men of War Origins / Штурм 2: В тылу врага. На
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255346.jpg" />
+  <img src="Z:/picture/005/save_picture_255346.jpg" />
 </div>
 
 

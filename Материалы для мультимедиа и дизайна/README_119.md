@@ -1,3 +1,415 @@
+###  Публикация: 1280580   (760048) от 03.02.2019
+
+Фоны и наложения - Creative Market - 100 Fireworks Overlays - 1608202 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760048.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 Fireworks Overlays - 100 потрясающих реалистичных наложений фейерверков для добавления к вашим изображениям. Придайте своим творениям настроение праздника и торжества.Формат: JPGРазрешение файлов: 2048x3072 - 6016x4016
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA552190E83DCC49FC9432249B112FE3B05F35DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394810   (759986) от 07.07.2020
+
+3D модели - ArtStation - Mega Pack KITBASH 320 DETAILS [FBX, MAX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мега пак 3D-элементов для ZBrush 320шт.Формат: FBX, MAX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D422ECA86C70C1E0148441EFEDA7623C677ED499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215429   (759963) от 25.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #13 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48648019BC579312DB627405D7871AB46B23B27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215430   (759957) от 25.03.2018
+
+Векторный клипарт - Happy Easter holiday with eggs and bunny #8 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С праздником Пасхи
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4232DA8BDD0913EA2778F8086EF61CB37B8257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215427   (759721) от 25.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #57 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD05891B5C44D01B6A9A852BF3C3F413ABAA67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215426   (759714) от 25.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #56 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+10 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7F4D59349222E4FE9E993AD5A92ADADE8A433C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215360   (759534) от 25.03.2018
+
+3D модели - Daz 3D - Sci-fi #2 [DUF, EXE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - научная фантастика из категории Robots.Формат: DUF, EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17972042D7BD207999451BB24AE0E8392EABF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106209   (759450) от 25.03.2018
+
+Шрифты NNM-Club - Astakhov First One Stripe - 1106209 [OTF, TTF, EOT, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное семейство шрифтов (в т.ч. OFL)
+Количество / Штук: 6
+Разработчик: D. Astakhov
+(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C5641974C318B3D383CD2757D68FD035C2BEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017956   (759021) от 18.05.2016
+
+Экшены - GraphicRiver - Artisto - Photoshop Action - 12390526 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4941E46E554095D3E15E81B8967FC63AA3410DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017901   (758829) от 18.05.2016
+
+Шаблоны - Обложка и задувка на DVD диск - Baby kit My Little Angel [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обложка и задувка на DVD диск, на рождение ребёнка.
+Два варианта исполнения.... мальчик и девочка.
+Автор:Формат: PSDРазрешение файлов: 3248x2177 / 2500х3750 / 1431х1432 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA795DE8212B96E4F6D6083FC134C3F44AFE3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215457   (757875) от 26.03.2018
+
+Текстуры - Design Bundles - Rainbow Glitter Digital Paper Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор радужных блестящих текстур с официальной документациейФормат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A97939E6D498C7E5AE5716FB5A021CF1C415658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215517   (757859) от 26.03.2018
+
+Векторный клипарт - Isometric and Infographics vector concept [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор иконок в бизнес-стиле
+18 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C48C96D7707D47CA3D9D66F592FB51E6C98BF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215516   (757858) от 26.03.2018
+
+Векторный клипарт - Isometric and Infographics vector concept #2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор иконок в бизнес-стиле
+18 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6F675810839172C52C95513768CA13A18B4655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215515   (757854) от 26.03.2018
+
+Векторный клипарт - Isometric and Infographics vector concept #5 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор иконок в бизнес-стиле
+18 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C96F356396FA425D12F5E421FBA7737C5351479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129419   (757781) от 26.03.2018
+
+Шрифты - NNM-Club - Astakhov First Two Stripes - 1129419 [OTF, TTF, EOT, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное семейство шрифтов (в т.ч. OFL)
+Количество / Штук: 6
+Разработчик: D. Astakhov
+(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF08FA706577A54E662AA227B9FFC441A4B70CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 781090   (757751) от 27.04.2014
 
 Стили - Меховые стили / Fur styles [PSD,ASL]
@@ -6,7 +418,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757751.jpg" />
+  <img src="Z:/picture/008/save_picture_757751.jpg" />
 </div>
 
 
@@ -34,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756954.jpg" />
+  <img src="Z:/picture/008/save_picture_756954.jpg" />
 </div>
 
 
@@ -62,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756863.jpg" />
+  <img src="Z:/picture/008/save_picture_756863.jpg" />
 </div>
 
 
@@ -88,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756857.jpg" />
+  <img src="Z:/picture/008/save_picture_756857.jpg" />
 </div>
 
 
@@ -114,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756593.jpg" />
+  <img src="Z:/picture/008/save_picture_756593.jpg" />
 </div>
 
 
@@ -142,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756451.jpg" />
+  <img src="Z:/picture/008/save_picture_756451.jpg" />
 </div>
 
 
@@ -170,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756336.jpg" />
+  <img src="Z:/picture/005/save_picture_756336.jpg" />
 </div>
 
 
@@ -198,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756225.jpg" />
+  <img src="Z:/picture/008/save_picture_756225.jpg" />
 </div>
 
 
@@ -226,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756222.jpg" />
+  <img src="Z:/picture/008/save_picture_756222.jpg" />
 </div>
 
 
@@ -252,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756221.jpg" />
+  <img src="Z:/picture/008/save_picture_756221.jpg" />
 </div>
 
 
@@ -280,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756218.jpg" />
+  <img src="Z:/picture/008/save_picture_756218.jpg" />
 </div>
 
 
@@ -293,406 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D82795FC8EC771BF84CC343B4A14F385F201492C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215825   (756211) от 27.03.2018
-
-Векторный клипарт - Isometric and Infographics vector concept #3 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Набор иконок в бизнес-стиле
-18 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE08409DA5EDAF3B79E08E579D66B3D872715F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662438   (756132) от 30.05.2013
-
-Футажи - RGrain Complete Pack [PNG, MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник футажей с эффектом реальной зернистости кинопленки и ТВ шторок.Формат: PNG, MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1B1E11E79F3E61C77476A25D56DEEC8BB8465E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215655   (756103) от 27.03.2018
-
-Векторный клипарт - Isometric and Infographics vector concept #4 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Набор иконок в бизнес-стиле
-18 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB36E1F653A84F8293B342E1A0771AAAB7A86AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215795   (756012) от 27.03.2018
-
-3D модели - TurboSquid - Oshkosh JLTV 2014 - 920951 [Mental Ray|*.max, 3DS, C4D, FBX, LWO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756012.jpg" />
-</div>
-
-
-###  Подробнее
-
-3д модель Oshkosh JLTV 2014
-(Max) 2012, 2013, 2014, 2015.Формат: Mental Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8439404A8E3D5F9A57567B6D04ABB59E303CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215805   (755998) от 27.03.2018
-
-Футажи - Lost in Space - fractal animation [MP4, MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моя коллекция.. Космос... футажи фракталы.. мне лично пригодилось, вдруг кому ещё сгодится..Формат: MP4, MOVРазрешение файлов: 1280х720, 1366х682, 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B539178EF25AFA552DC96CB69F58FCCE5D2E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215772   (755912) от 27.03.2018
-
-3D модели - CGTrader - Ukrainian Military Forces Hand Made Battle Car - Pick UP 3D model [V-Ray|*.max, 3DS, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концепция боевой машины украинских военных ручной работы - использование в 2014-2015 годахФормат: V-Ray|*.max, 3DS, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E52DA0BCE069EC452208F5EE5FB9FBE2789BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018679   (755603) от 20.05.2016
-
-Экшены - GraphicRiver - Mix Art Photoshop Action - 15995287 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063A4FF35E3E08B977A1401E24AB50A216973428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018689   (755590) от 20.05.2016
-
-Экшены - GraphicRiver - Cartoon Oil Paint - 10962900 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cartoon Oil Paint - мультяшная картина маслом, экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42246E312437A456979CD7E37CA0BBFA4C0F799C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018666   (755589) от 20.05.2016
-
-Экшены - GraphicRiver - Super Art Photoshop Action - 16081495 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF62C7A5905A4F3DA8ACC23E29CB17A3BDBEDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018419   (755323) от 20.05.2016
-
-Звуковые библиотеки - Bluezone Corporation - Sky Observer Cinematic Samples 02 [WAV, AIFF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bluezone представляет Bluezone Corporation - Sky Observer Cinematic Samples 02, представляет новую кинематографическую библиотеку сэмплов с участием более 304 петель и образцов для  Ambient / Cinematic music producers (киноматографических музыкальных продюсеров).Формат: WAV, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDD30D7F8BED881A439A3E066426ED7B5AA8D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018424   (755219) от 20.05.2016
-
-Звуковые библиотеки - Bluezone Corporation - Cinematic Tension Sound Effects [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755219.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Cinematic Tension Sound Effects" от Bluezone Corporation содержит 213 темных soundscapes, впечатляющих последствий, прекрасно записанные тревожные звуковые эффекты, аналоговые синтезаторы последовательностей и текстур , которые вы никогда не слышали ранее. Эта звуковая библиотека обеспечивает идеальный выбор кинематографических и прицеп образцов готовых (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2243E884B0CD2967CD58776C98A4B02B3B5D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281221   (754951) от 06.02.2019
-
-3D модели - Daz 3D - Tasha 8 Pro Bundle - 57187 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Tasha 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C3DEC08AF74CA29D83FA1FC43BBEB5DEDFBCA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281211   (754843) от 06.02.2019
-
-Кисти - Poliigon - Fabric Brushes [ZBP, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из 78 кистей ZBrush для создания одеждыФормат: ZBP, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD60E0F2DC343DAA26F5E9401C801CC50713E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215988   (754777) от 28.03.2018
-
-Векторный клипарт - Vector Drinks Collection #3 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Напитки
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A728A64B08948FD5FB9EF3C2626B04C1424AA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215986   (754771) от 28.03.2018
-
-Векторный клипарт - Shiny Colorful Balloons 9 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Блестящие красочные шары
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A7F2BE333B7ECD61F757B2D9CEDFC8BF26A341
 ```
 
 https://mybot314.ru/tekegram_catalog/

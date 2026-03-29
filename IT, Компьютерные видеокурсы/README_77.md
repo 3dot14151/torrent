@@ -1,3 +1,139 @@
+###  Публикация: 1551462   (234842) от 16.05.2022
+
+Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширенный курс JavaScript для всех! Scope, closures, prototypes, 'this', построение собственного фреймворка и многое другое.
+Javascript - это язык, который современные разработчики должны знать хорошо. Поистине зная Javascript, вы получите работу и сможете создавать качественные веб-и серверные приложения.
+В этом курсе вы получите глубокое понимание Javascript, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576887   (234781) от 16.09.2022
+
+Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собственного веб приложения (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальный коммерческий проекта на Ruby on Rails 6.0.2.1. Вы вместе со мной разработаете реальный коммерческий проект. Он будет состоять из API приложения, написанном на фреймворке Ruby on Rails последней версии на 2020 год 6.0.2.1 И часть фронтэнд на Java Script. Который будет отвечать за работу вашей веб камеры. Это будет немаленький кусок который дает понять как (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E54954790A1B80F3C3041AEB0BDBDAB0A769CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551848   (234605) от 17.05.2022
+
+Аналитика плюс, Вячеслав Ерин | Видео-курс «Основы теории создания хранилищ данных (DWH)» (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234605.jpg" />
+</div>
+
+
+###  Подробнее
+
+В навыки, требующиеся от эксперта по управлению данными, входит умение смоделировать и организовать хранилище данных. С точки зрения теории существуют правила построения, упрощающие дальнейшую работу (развитие и эксплуатацию) хранилища, — это так называемые нормальные формы.
+Начало практикума будет посвящено разбору всех известных в настоящее время нормальных форм, (   Читать дальше...   )Производство: Аналитика плюсЖанр: Базы данныхЯзык озвучки: РусскийПродолжительность: 04:27:08Реклама: Присутствуют сторонние наложения и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BFF29F156325C8206047AA51B6F5D2BEDE078A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577591   (234191) от 19.09.2022
+
+Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте высококачественные и готовые к игре функциональные транспортные средства в Unreal Engine 5 с помощью этого курса!
+В этом курсе я научу вас создавать транспортные средства, используя 100% Blueprints и готовые к использованию ассеты Unreal Engine 5. Конечно, в этом видео я также объясню, как вы можете импортировать свои собственные ресурсы из Blender, Maya (   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, Разработка игрЯзык озвучки: АнглийскийПродолжительность: 03:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA503C3B4AA8DCE7BC7A4A26BAF81488CC0BA851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577590   (234184) от 19.09.2022
+
+Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создать прототип игры Zombie Survival FPS с нуля, используя Unreal Engine 5.
+Мы будем шаг за шагом создавать нашего персонажа от первого лица, оружие, анимацию, эффекты и многое другое с нуля.
+После того, как мы это сделаем, мы перейдем к созданию искусственного интеллекта зомби и игровой механики.Производство: UdemyЖанр: Unreal Engine, Разработка игрЯзык озвучки: АнглийскийПродолжительность: 06:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFE12FF3166CE2223BD5A7164346AF40ADF9B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578057   (233867) от 21.09.2022
 
 Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN Sub]
@@ -6,7 +142,7 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233867.jpg" />
+  <img src="Z:/picture/005/save_picture_233867.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233798.jpg" />
+  <img src="Z:/picture/005/save_picture_233798.jpg" />
 </div>
 
 
@@ -59,7 +195,7 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233698.jpg" />
+  <img src="Z:/picture/005/save_picture_233698.jpg" />
 </div>
 
 
@@ -85,7 +221,7 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233465.jpg" />
+  <img src="Z:/picture/005/save_picture_233465.jpg" />
 </div>
 
 
@@ -114,7 +250,7 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233438.jpg" />
+  <img src="Z:/picture/005/save_picture_233438.jpg" />
 </div>
 
 
@@ -140,7 +276,7 @@ O’Reilly, LiveLessons, Omar Santos | The Complete Cybersecurity Bootcamp (2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232969.jpg" />
+  <img src="Z:/picture/005/save_picture_232969.jpg" />
 </div>
 
 
@@ -166,7 +302,7 @@ Thinknetica Pro, Евгений Фатеев | Подготовка к собе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232705.jpg" />
+  <img src="Z:/picture/005/save_picture_232705.jpg" />
 </div>
 
 
@@ -193,7 +329,7 @@ Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232648.jpg" />
+  <img src="Z:/picture/005/save_picture_232648.jpg" />
 </div>
 
 
@@ -219,7 +355,7 @@ Thinknetica Pro, Артем Кривоножко | Объектно-ориент
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232633.jpg" />
+  <img src="Z:/picture/005/save_picture_232633.jpg" />
 </div>
 
 
@@ -248,7 +384,7 @@ Udemy, Dr. Angela Yu | The Complete 2021 Web Development Bootcamp (2021) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231972.jpg" />
+  <img src="Z:/picture/005/save_picture_231972.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ Techworld with Nana, Nana Janashia | GitLab CI/CD - From Zero To Hero (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231487.jpg" />
+  <img src="Z:/picture/005/save_picture_231487.jpg" />
 </div>
 
 
@@ -301,7 +437,7 @@ Udemy, Denis Astahov | Terraform с Нуля до Профессионала (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231343.jpg" />
+  <img src="Z:/picture/005/save_picture_231343.jpg" />
 </div>
 
 
@@ -330,7 +466,7 @@ Udemy, Rahul Arora | Selenium WebDriver Training with Java and Many Live Project
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231335.jpg" />
+  <img src="Z:/picture/005/save_picture_231335.jpg" />
 </div>
 
 
@@ -357,7 +493,7 @@ Udemy, Dzianis Matveyenka | Gradle (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231333.jpg" />
+  <img src="Z:/picture/005/save_picture_231333.jpg" />
 </div>
 
 
@@ -383,7 +519,7 @@ Profit, Степанцев Альберт | Вебинар «Асинхронн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230920.jpg" />
+  <img src="Z:/picture/005/save_picture_230920.jpg" />
 </div>
 
 
@@ -412,7 +548,7 @@ Udemy, Pikuma.com, Gustavo Pezzi | Learn Assembly Language by Making Games for t
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230914.jpg" />
+  <img src="Z:/picture/005/save_picture_230914.jpg" />
 </div>
 
 
@@ -441,7 +577,7 @@ ituroki.info, Jamalov Elchin | IP телефония 3CX (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230836.jpg" />
+  <img src="Z:/picture/005/save_picture_230836.jpg" />
 </div>
 
 
@@ -470,7 +606,7 @@ Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your Firs
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230390.jpg" />
+  <img src="Z:/picture/005/save_picture_230390.jpg" />
 </div>
 
 
@@ -496,7 +632,7 @@ Udemy, Stephen Grider | The Complete React Native + Hooks Course (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229896.jpg" />
+  <img src="Z:/picture/005/save_picture_229896.jpg" />
 </div>
 
 
@@ -525,7 +661,7 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | SQL - The Complete Developer's
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229862.jpg" />
+  <img src="Z:/picture/005/save_picture_229862.jpg" />
 </div>
 
 
@@ -553,7 +689,7 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229849.jpg" />
+  <img src="Z:/picture/005/save_picture_229849.jpg" />
 </div>
 
 
@@ -567,141 +703,6 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41C7E860F9A0A8E8E4A3ABED9E444D157E01878F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583331   (229530) от 14.10.2022
-
-ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите React Query с помощью официального курса. Не хотите читать документацию? Есть более простой способ освоить React Query. Наш линейный курс подобен умному, опытному другу, который сядет рядом с вами, расскажет вам о каждой концепции и применит то, чему вы научились. Это наш секретный соус.
-
-React Query помогает избежать технического долга. Мы поможем вам освоить (   Читать дальше...   )Производство: ui.dev (ex. Tyler McGinnis)Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 07:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964838   (229257) от 12.12.2015
-
-Дмитрий Родин | AutoCAD в Формате Видео (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятилетний опыт вложеный в бесплатный авторский видеокурс «AutoCAD в Формате Видео». «AutoCAD в Формате Видео» - это эксклюзивный авторский ВИДЕО самоучитель по программе AutoCAD. Общая длительность видео уроков 3 часа 6 минут. Просмотрев все видео уроки, Вы научитесь создавать сложные чертежи в любой версии программы AutoCAD.Производство: РоссияЖанр: AutoCADПродолжительность: 3:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B4154EE1F18B06657027FFECF4EBE8CE7BFCB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964538   (229011) от 12.12.2015
-
-Александр Миловский | Секреты идеальной топологии полигональных моделей в Autodesk 3ds Max и Autodesk Maya (2013) HDRip [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В полигональном моделировании качество модели определяется не только используемыми инструментами, но и правильным подходом к организации полигональной сети будущей модели, т.е. топологии.  Речь пойдет о том, как обеспечить требуемый уровень качества для низко- и высокополигональных моделей. Правила топологии универсальны и независят от пакета моделирования, а профессионализм (   Читать дальше...   )Производство: 3D Master, Autodesk University RussiaЖанр: 3D моделированиеПродолжительность: 00:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964075   (228907) от 12.12.2015
-
-Convert Monster | Идеальный Landing Page, Яндекс.Директ, Google AdWords + Бонусы [VIP] (2014) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Идеальный Landing Page: Пошаговый курс по созданию посадочных страниц с конверсией от 5%
-
-2. Идеальный Яндекс.Директ: Пошаговый курс по настройке Яндекс.Директ с гарантией результата
-(   Читать дальше...   )Производство: РоссияЖанр: SEOПродолжительность: 26:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C40135DC470D444240F6B8905CA727ADCE3C812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964716   (226730) от 13.12.2015
-
-Специалист | CEH часть 1. Этичный хакинг и тестирование на проникновение (2013) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы получите знания и навыки, необходимые для успешного выявления и устранения проблем безопасности в смешанных компьютерных сетях. Курс посвящен уникальным хакерским техникам и методам взлома в контексте применения оборонительных практик и рекомендаций, изложенных настоящими хакерами. Курс одобрен министерством обороны США и является официальной библией для сотрудников (   Читать дальше...   )Жанр: БезопасностьПродолжительность: 22:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241C97225722589D2740751955F4CF353E0E9F36
 ```
 
 https://mybot314.ru/tekegram_catalog/

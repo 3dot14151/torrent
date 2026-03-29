@@ -1,3 +1,82 @@
+###  Публикация: 1405429   (485182) от 29.08.2020
+
+Алексей Рыков | Тесла против Эйнштейна. Битва великих «оружейников» (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исход Второй Мировой решался не только на полях сражений, но и в секретных лабораториях и на оружейных полигонах – всю войну и гитлеровцы, и Союзники бились над созданием Wunder-Waffe («чудо-оружия»), гарантирующего быструю победу над любым противником. Самое активное участие в этих сверхсекретных экспериментах приняли два величайших ученых эпохи – Альберт Эйнштейн (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело, Спецслужбы, История, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652359A3F5BA4FA9E965DD96BB311184FF0CA86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405454   (485002) от 29.08.2020
+
+Валентин Катасонов | Центробанки на службе «хозяев денег» (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485002.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге раскрывается тема деятельности центральных банков с позиций, отличных от традиционных трактовок либеральной экономической науки. Автор показывает, что центральный банк – не только институт, осуществляющий выпуск денег; он также контролирует банковский сектор экономики, а со временем начинает активно командовать всей экономикой. Показано, что центральный банк (   Читать дальше...   )Жанр: Мировая экономика, Экономическая политика, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49AA9B254BB997FC95537DA099F331FF864B99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405346   (484910) от 29.08.2020
+
+Кэролайн Криадо Перес | Невидимые женщины. Почему мы живем в мире, удобном только для мужчин. Неравноправие, основанное на данных (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе мир, где врач, сам того не ведая, выписывает препарат, который вам вреден; где вероятность получения вами серьезных увечий в случае автомобильной аварии на 47 % выше, чем у другой половины человечества; где ваш домашний труд после напряженного рабочего дня мало кто замечает и ценит. Знакомая картина? Значит, вы, скорее всего, женщина.
+Кэролайн Криадо (   Читать дальше...   )Жанр: Социология, ПублицистикаПеревод: Валерия БашкироваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79279C8B0D93A31A9339839CF173E20D0A2D5898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405457   (484902) от 29.08.2020
 
 Эрик Форд | Ротшильды против Путина. Удушающий прием (2020) [EPUB]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484902.jpg" />
+  <img src="Z:/picture/008/save_picture_484902.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484361.jpg" />
+  <img src="Z:/picture/008/save_picture_484361.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484031.jpg" />
+  <img src="Z:/picture/008/save_picture_484031.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483732.jpg" />
+  <img src="Z:/picture/008/save_picture_483732.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482985.jpg" />
+  <img src="Z:/picture/008/save_picture_482985.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482110.jpg" />
+  <img src="Z:/picture/008/save_picture_482110.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481974.jpg" />
+  <img src="Z:/picture/008/save_picture_481974.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481921.jpg" />
+  <img src="Z:/picture/008/save_picture_481921.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481259.jpg" />
+  <img src="Z:/picture/008/save_picture_481259.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481043.jpg" />
+  <img src="Z:/picture/008/save_picture_481043.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480922.jpg" />
+  <img src="Z:/picture/008/save_picture_480922.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480781.jpg" />
+  <img src="Z:/picture/008/save_picture_480781.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480031.jpg" />
+  <img src="Z:/picture/008/save_picture_480031.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477802.jpg" />
+  <img src="Z:/picture/008/save_picture_477802.jpg" />
 </div>
 
 
@@ -381,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477475.jpg" />
+  <img src="Z:/picture/008/save_picture_477475.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475594.jpg" />
+  <img src="Z:/picture/008/save_picture_475594.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474006.jpg" />
+  <img src="Z:/picture/008/save_picture_474006.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473335.jpg" />
+  <img src="Z:/picture/008/save_picture_473335.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472753.jpg" />
+  <img src="Z:/picture/008/save_picture_472753.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471910.jpg" />
+  <img src="Z:/picture/008/save_picture_471910.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471500.jpg" />
+  <img src="Z:/picture/008/save_picture_471500.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471395.jpg" />
+  <img src="Z:/picture/008/save_picture_471395.jpg" />
 </div>
 
 
@@ -595,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470671.jpg" />
+  <img src="Z:/picture/008/save_picture_470671.jpg" />
 </div>
 
 
@@ -606,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DD8AE88DFAB35BFC7B0A86B2430372BAB60332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245623   (469889) от 07.09.2018
-
-Сергей Медведев | Парк Крымского периода. Хроники третьего срока (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469889.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Парк Крымского периода" - это сборник эссе историка и политолога Сергея Медведева, написанных им в 2014-2017 гг. по мотивам главных политических, социальных и исторических тем, волнующих российское общество. Чекисты и журналисты, Донбасс и Сирия, танки на параде и "мигалки" на лимузинах, Сталин и Ельцин, собаки Шувалова и песни Шнурова сплетаются (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4CF35AF58E8696DC8F451A6FEF4155351C068E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161028   (469675) от 27.08.2017
-
-Станислав Говорухин | Страна воров на дороге в светлое будущее (1994) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режиссер, писатель, публицист, автор многих известных фильмов, в том числе «Место встречи изменить нельзя», «Россия, которую мы потеряли», «Так жить нельзя». Последний фильм «Великая криминальная революция», из которого по ТВ «Останкино» были показаны только лишь фрагменты с необъективными, предвзятыми комментариями. В предлагаемой читателю книге им затронуты многие (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B8AB8F83AB3C99F740FB54921FA3FDE266DD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245574   (469590) от 07.09.2018
-
-Николай Стариков | Ненависть. Хроники русофобии (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему Запад нас не любит? Были мы имперцами, были мы коммунистами, были мы демократами – но во все времена Запад нас ненавидел. Откуда же взялась эта ненависть? Откройте для себя малоизвестные страницы взаимоотношений России и Запада: – Как Британская королева флиртовала с советским моряком. – Почему поляки резали спящих русских солдат, а теперь разрушают памятники (   Читать дальше...   )Жанр: ПолитикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FFB7170D6C2907C8D9637A6B5743BD7AD5C93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

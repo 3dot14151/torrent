@@ -1,3 +1,135 @@
+###  Публикация: 1564967   (497787) от 21.07.2022
+
+ColorWell 7.3.5.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497787.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9838E0732E9DFBFA7CF07606A5919FDD60F67532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564895   (497782) от 21.07.2022
+
+PCalc 4.10.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497782.jpg" />
+</div>
+
+
+###  Подробнее
+
+PCalc  - мощный калькулятор. PCalc - представляет собой полнофункциональный научный калькулятор для Mac с поддержкой шестнадцатеричных, восьмеричных и двоичных расчетов, а также режим программируемых функций и обширный набор модулей преобразования. Очень наглядна «лента печати» выполняемых операций и получаемых значений (наподобие ленты кассового аппарата).
+PCalc (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 1992 - 2022 James ThomsonПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5DFE30E75779EFB87B14468889AC53A15741FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564985   (497737) от 21.07.2022
+
+Invisible 2.5.7.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Invisible - надежная и ориентированная на пользователя утилита, которая позволяет защитить паролем ваши данные и скрыть свои личные данные с помощью нескольких щелчков мыши
+Invisible является простым в использовании и очень интуитивным инструментом, который предоставляет своим пользователям самый простой способ, чтобы скрыть и защитить свои личные данные от посторонних (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506666EE91A220570254257339FF0FD6356949EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564899   (497735) от 21.07.2022
+
+WebToLayers 1.3.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497735.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2012-2021 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DB77FC4D6BF24692B738327BAFE75E0EDADBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565018   (497723) от 21.07.2022
+
+SSH Config Editor Pro 2.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2016-2022 HejkiПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1594D2AE6DF9047F0FDDB60280B276EC11941961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564950   (497721) от 21.07.2022
 
 MP3 Gain - Audio Normalization 5.3.0 [En]
@@ -6,7 +138,7 @@ MP3 Gain - Audio Normalization 5.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497721.jpg" />
+  <img src="Z:/picture/008/save_picture_497721.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ USBclean 3.6.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497720.jpg" />
+  <img src="Z:/picture/008/save_picture_497720.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ eMail Address Extractor 3.5.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497655.jpg" />
+  <img src="Z:/picture/008/save_picture_497655.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ Wondershare PDFelement Pro 9.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497647.jpg" />
+  <img src="Z:/picture/008/save_picture_497647.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ DrawOutX 2.3 U2B  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496805.jpg" />
+  <img src="Z:/picture/008/save_picture_496805.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ Image Optimizer - Compression 2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496740.jpg" />
+  <img src="Z:/picture/008/save_picture_496740.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ AVAide Blu-ray Player for Mac 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496717.jpg" />
+  <img src="Z:/picture/008/save_picture_496717.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ FileMaker Pro 17 Advanced 7.0.2.205 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495890.jpg" />
+  <img src="Z:/picture/008/save_picture_495890.jpg" />
 </div>
 
 
@@ -220,7 +352,7 @@ Complete Anatomy Full Version (3D4Medical) 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495855.jpg" />
+  <img src="Z:/picture/008/save_picture_495855.jpg" />
 </div>
 
 
@@ -249,7 +381,7 @@ Cisdem PDFConverterOCR 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494227.jpg" />
+  <img src="Z:/picture/008/save_picture_494227.jpg" />
 </div>
 
 
@@ -277,7 +409,7 @@ Weather Guru 2.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494208.jpg" />
+  <img src="Z:/picture/008/save_picture_494208.jpg" />
 </div>
 
 
@@ -306,7 +438,7 @@ Money (with sync) 6.6.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494115.jpg" />
+  <img src="Z:/picture/008/save_picture_494115.jpg" />
 </div>
 
 
@@ -333,7 +465,7 @@ NoFlashTube - A player for YouTube 2.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493429.jpg" />
+  <img src="Z:/picture/008/save_picture_493429.jpg" />
 </div>
 
 
@@ -362,7 +494,7 @@ Easy Audio Mixer 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492592.jpg" />
+  <img src="Z:/picture/008/save_picture_492592.jpg" />
 </div>
 
 
@@ -388,7 +520,7 @@ xSearch for Safari 1.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492580.jpg" />
+  <img src="Z:/picture/008/save_picture_492580.jpg" />
 </div>
 
 
@@ -415,7 +547,7 @@ Faronics Deep Freeze 7 v7.40.220.0004 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492433.jpg" />
+  <img src="Z:/picture/008/save_picture_492433.jpg" />
 </div>
 
 
@@ -441,7 +573,7 @@ Downie 2.9.9 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491849.jpg" />
+  <img src="Z:/picture/008/save_picture_491849.jpg" />
 </div>
 
 
@@ -470,7 +602,7 @@ Tagr 5 v5.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490507.jpg" />
+  <img src="Z:/picture/008/save_picture_490507.jpg" />
 </div>
 
 
@@ -497,7 +629,7 @@ NCH Debut Professional 8.42 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490432.jpg" />
+  <img src="Z:/picture/008/save_picture_490432.jpg" />
 </div>
 
 
@@ -523,7 +655,7 @@ Mission Control Plus 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490431.jpg" />
+  <img src="Z:/picture/008/save_picture_490431.jpg" />
 </div>
 
 
@@ -551,7 +683,7 @@ Recordee 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490360.jpg" />
+  <img src="Z:/picture/008/save_picture_490360.jpg" />
 </div>
 
 
@@ -565,140 +697,6 @@ Recordee маленькое и легкое приложение для запи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:587A4A440EEB93F09D68B331B337809763318FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243469   (490121) от 28.08.2018
-
-OmniOutliner Pro 5.3.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490121.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniOutliner - это программа, предназначенная для систематизации идей. Она позволяет создавать списки и конспекты в Mac OS X. Возможно, вы создаёте себе план на некий период времени, вам нужно зафиксировать результаты совещания в виде структурированного документа, а может быть, вы просто хотите красиво оформить интересную текстовую информацию.
-
-OmniOutliner Pro, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2018Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5ACBC117EAB667AABF0C751140AF9928F6152C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565940   (488457) от 26.07.2022
-
-BusyContacts 2022.3.1 U2B  [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488457.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2022Разработчик: © 2007-2022 Busy AppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D222B8F99216CE6D7436F75CAA0F36EEAB949C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566000   (488409) от 26.07.2022
-
-18 Strings 2022.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ненавидите «делать» локализацию для своего проекта? Теперь вы можете ненавидеть это немного меньше:
-экономьте кучу денег, делая автоматический перевод, используя строки из других ваших проектов, за которые вы уже заплатили. Просматривайте все строки из всех ваших файлов в вашем проекте в одном простом и интуитивно понятном приложении.Тип издания: macOS SoftwareРелиз состоялся: 14.07.2022Разработчик: © 2022 Evgeny CherpakПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09464934D71450F41703605D11FCF8675E3BA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566025   (488365) от 26.07.2022
-
-NCH Express Animate 7.34 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Express Animate - это приложение для анимации, ПО дает вам возможность анимировать формы, текст и импортированные изображения. Вы также можете улучшить свои кинопроекты на этапе пост-обработки, используя анимацию движения по ключевым кадрам , маскирование, фиктивные объекты и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2021 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85354653C69C2D558DF7FCFBB42A38A2870612C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055325   (488160) от 22.09.2016
-
-OmniPlan Pro 3.5.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Group славится своими качественными программами для Mac. OmniPlan  не стало исключением. Это приложение позволяет пользователям подробно планировать отдельные задания какого-то проекта или мероприятия. Некоторые люди предпочитают иметь визуальное представление своих идей, и именно для них разработано это приложение. Оно поможет набросать весь проект в виде схем, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 сентября 2016Разработчик: The Omni GroupПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39186EEF08472DFC8E85437777354FD4AEF8D2B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

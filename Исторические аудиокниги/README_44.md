@@ -1,3 +1,84 @@
+###  Публикация: 457663   (61426) от 29.03.2024
+
+Брэд Гигли | День лжецаря (2012) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1150 год до нашей эры. Заговор по свержению живого воплощения бога Ра – всемогущего фараона Рамзеса III – удалось предотвратить. Однако фараон пал жертвой ненависти своей супруги, царицы Тии. На престол взошел его наследник, легендарный Рамзес IV, но он тяжело болен. На окраинах царства по-прежнему неспокойно, а вечный соперник Египта – Вавилон – плетет дипломатические (   Читать дальше...   )Жанр: Зарубежная литература, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 08:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729CC11412F2F6A13DE5A04FE230800AD54B7DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298323   (60908) от 03.04.2024
+
+Казимир Валишевский | Роман императрицы (2005) [MP3, Лидия Леликова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Историческая библиотека.
+Казимир Феликсович Валишевский (1849–1935) – польский писатель, историк, экономист, социолог. Большую известность ему принесла серия произведений, посвященных истории России 17–19 веков – о русских царях и императорах, об их окружении.
+Казимир Валишевский оказался одним из первых, кто решился нарушить запреты и рассказать о личной (   Читать дальше...   )Жанр: Зарубежная литература, исторический романИздательство: МедиаКнигаПродолжительность: 25:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59041F83643B62FB6D3D16076C940F7323A7D761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298321   (60895) от 03.04.2024
+
+Казимир Валишевский | Дочь Петра Великого (2005) [MP3, Лидия Леликова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Историческая библиотека.
+Казимир Феликсович Валишевский (1849–1935) – польский писатель, историк, экономист, социолог. Большую известность ему принесла серия произведений, посвященных истории России 17–19 веков – о русских царях и императорах, об их окружении. Казимир Валишевский оказался одним из первых, кто решился нарушить запреты и рассказать о личной (   Читать дальше...   )Жанр: Зарубежная литература, исторический романИздательство: МедиаКнигаПродолжительность: 25:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E1CEDE3B43C040B0CFC48779429322A45C5788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714828   (60134) от 10.04.2024
 
 Рафаэль Сабатини | Капитан Блад (Книга 2). Хроника капитана Блада (2021) [MP3, Александр Клюквин]
@@ -6,7 +87,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60134.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60132.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60126.jpg" />
 </div>
 
 
@@ -90,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58470.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56628.jpg" />
 </div>
 
 
@@ -144,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56275.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54528.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54523.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54518.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54239.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52061.jpg" />
 </div>
 
 
@@ -304,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50541.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49187.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48935.jpg" />
 </div>
 
 
@@ -385,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48620.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48400.jpg" />
 </div>
 
 
@@ -439,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47261.jpg" />
 </div>
 
 
@@ -467,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47244.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46975.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46973.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46969.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46966.jpg" />
 </div>
 
 
@@ -603,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46943.jpg" />
 </div>
 
 
@@ -615,88 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10261443E6B602A773CD79A511056046EA1158D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746488   (45034) от 31.08.2024
-
-Бертольт Брехт | Дела господина Юлия Цезаря (2015) [MP3, Олег Исаев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бертольт Брехт (1898–1956) – немецкий драматург, поэт и прозаик, театральный деятель.
-Издание содержит фрагмент романа «Дела господина Юлия Цезаря», оставшегося незаконченным. Бертольт Брехт начал писать роман в годы гитлеровской диктатуры. В процессе работы над книгой история римского политического деятеля, жившего две тысячи лет назад, нередко ассоциировалась в (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Нигде не купишьПродолжительность: 08:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9678F95819891182B8868FE8ADEC1BDF918A003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378675   (43229) от 18.09.2024
-
-Пётр Полежаев | Престол и монастырь (2009) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Тайны и истории. Век XVIII.
-Петр Васильевич Полежаев (1827–1894) прославился как автор цикла романов «Интриги и казни» из истории XVIII столетия, в котором рассказывается о трагической борьбе за трон Российской империи. Увлекательный исторический роман «Престол и монастырь» повествует о подавлении стрелецкого бунта, о борьбе за власть после смерти царя (   Читать дальше...   )Жанр: Русская литература, исторический романИздательство: Вира-М (аудио)Продолжительность: 12:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6E9E996C930A5225C93ED27E3220B15C0C0D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378679   (43194) от 18.09.2024
-
-Пётр Полежаев | Фавор и опала (2009) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Тайны истории в романах, повестях и документах.
-Пётр Васильевич Полежаев (1827–1894) прославился как автор цикла романов «Интриги и казни» из истории XVIII столетия, в котором рассказывается о трагической борьбе за трон Российской империи.
-Роман «Фавор и опала» знакомит слушателя с творчеством одного из самых добросовестных и интересных исторических писателей (   Читать дальше...   )Жанр: Русская литература, исторический романИздательство: Вира-М (аудио)Продолжительность: 08:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E912E24240608B0D20BCD40FFC671417F0AE4B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

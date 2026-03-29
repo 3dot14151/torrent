@@ -1,3 +1,119 @@
+###  Публикация: 1670275   (172128) от 20.10.2023
+
+VA - 30 Sophisticated, Elegant, Inviting and Harmonious Tunes to Relax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Touch (4:03)
+02. Chillaxonic - Aurora (5:13)
+03. Kool&Klean - I Smile (5:08)
+04. Chillaxing Jazz Kollektion - Evening Sun (5:24)(   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, LoungeПродолжительность: 02:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE95AC64B417F14A08F8A8B288994ABE7F644D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670303   (172124) от 20.10.2023
+
+Bill Evans Trio - How My Heart Sings! (1962) 1999, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How My Heart Sings [5:00]
+02. I Should Care [4:58]
+03. In Your Own Sweet Way (take 1) [7:00]
+04. Walking Up [4:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57831353B5A1E1EDB74AB679BCB3D1B775D62639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670574   (171961) от 21.10.2023
+
+Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Time Goes By [5:04]
+02. Stardust [5:36]
+03. I Didn't Know What Time It Was [4:14]
+04. The Very Thought of You [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670558   (171958) от 21.10.2023
+
+Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song One (Seven-Four) [9:33]
+02. Song Two (Ballad) [5:38]
+03. Song Three (Nine-Eight Blues) [7:52]
+04. Song Four (Waltz In Four-Four) [7:24](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF336EB2E233B4F7C71FE481CE34836D7DADB721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670576   (171956) от 21.10.2023
 
 Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171956.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171955.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171954.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171953.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171951.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Julius Hemphill - Big Band (1988) Elektra Musician [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171782.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ George Van Eps & Howard Alden - Keepin' Time (1994) 1996, Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171781.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Anita O'Day - In a Mellow Tone (1989) DRG Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171780.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Anita O'Day - My Ship (1975) 2003, Kayo Stereophonic [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171779.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Grant Green - Sunday Mornin' (1961) 1996, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171777.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171776.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171774.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171770.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171769.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Howard Alden + George Van Eps - 13 Strings (1991) Concord [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171761.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Incognito - Into You (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171662.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Clare Fischer - Memento (1992) Discovery Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171601.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sir Roland Hanna & George Mraz - Ancestral Light (1995) 2CD, 1999, Red Earth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171599.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Robert Conti - The Jazz Quintet (1981) 2000, Pinnacle Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171595.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Grant Green - Live At The Lighthouse (1972) 2012, EMI Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171584.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Elvin Jones - Dear John C. (1965) MCA [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171566.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Don Friedman - Hot House (2004) Chiaroscuro Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171447.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Don Friedman - Hot House (2004) Chiaroscuro Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCAF2398D01C05F16B88D5F889BF510E6E1416E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671370   (171446) от 24.10.2023
-
-Elvin Jones And Richard Davis - Heavy Sounds (1968) 1987, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raunchy Rita [11:36]
-02. Shiny Stockings [5:13]
-03. M.E. [2:41]
-04. Summertime [11:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F061E57E5742EE854DDDF26C6A37111E7310E2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671372   (171440) от 24.10.2023
-
-Mike Richmond - Blue In Green (1992) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On a Misty Night [7:33]
-02. The Lamp Is Low [8:36]
-03. Remember [5:55]
-04. Oriental Folk Song [6:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D803F4CCEFE9E6AEB7D966F8229A090988E9103E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671294   (171429) от 24.10.2023
-
-VA - 30 Midnight Love Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Kiss & Dance (4:44)
-02. eJazz Artistry - I Can't Stop Loving You (4:22)
-03. Love Suggestions - Clarity (4:36)
-04. Chillaxonic - Serenity (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950C8C2CEF30C7E7304E3EDAF464AC31B98D4E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671296   (171418) от 24.10.2023
-
-VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
-02. Kool&Klean - I Can Only Imagine (4:55)
-03. Chillaxonic - Oasis (4:58)
-04. Chillaxing Jazz Kollektion - Home (5:42)(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662024F67F2EE26F9F27B89A231715D5ABEA991E
 ```
 
 https://mybot314.ru/tekegram_catalog/

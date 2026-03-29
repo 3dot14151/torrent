@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861126   (1062321) от 
+
+Kotama and Academy Citadel (2026) [Multi] (1.00.02.01) Scene Rune
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kotama and Academy Citadel - это трехмерная метроидвания, действие которой разворачивается в стенах футуристической академии Кармел. В этом изолированном мире, готовящемся отметить свое 100-летие, главенствует единственный непреложный закон: выживание сильнейшего. Главным призом в ожесточенной борьбе за превосходство выступает почетный титул Звезда Кармела, заполучить (   Читать дальше...   )Тип издания: SceneРазработчик: Atomstring GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D13CA34F07A6DC4A10B9D70CF042436A0A68898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860629   (1061864) от 
+
+Bullet Noir (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061864.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Bullet Noir, месть - это не просто выполнение задания. Это смысл всей жизни. Готовы ли вы погрузиться в мир теней и раскрыть правду? Когда речь идет о мести, дело нужно доводить до конца. Четыре героя рыщут по городу в поисках убийцы своего наставника в жестокой симфонии пуль. Стильный неонуарный шутер с видом сверху, в котором одного попадания достаточно, (   Читать дальше...   )Тип издания: RepackРазработчик: WOLCEN StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8229ADB636D811B17DDBC0798B09D76DC413409D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859270   (1060794) от 
 
 Cryogear (2020) [Multi] (1.2.0.1) License GOG
@@ -7,7 +59,7 @@ Cryogear (2020) [Multi] (1.2.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060794.jpg" />
+  <img src="Z:/picture/005/save_picture_1060794.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Atomic Owl (2025) [En] (1.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060129.jpg" />
+  <img src="Z:/picture/009/save_picture_1060129.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.1.4) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059878.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ VonGarland Castle: Beyond Blood (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059877.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Gunslugs 3: Rogue Tactics (2019) [En] (1.0.10b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059754.jpg" />
+  <img src="Z:/picture/005/save_picture_1059754.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Gunslugs 2 (2015) [En] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059753.jpg" />
+  <img src="Z:/picture/005/save_picture_1059753.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Gunslugs (2015) [En] (3.3.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059752.jpg" />
+  <img src="Z:/picture/005/save_picture_1059752.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Scott Pilgrim vs The World: The Game (2023) [Ru/En] (Build 10135169/dlc) Repack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059008.jpg" />
+  <img src="Z:/picture/005/save_picture_1059008.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Dark Light (2020) [Ru/Multi] (1.1.0.13) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058961.jpg" />
+  <img src="Z:/picture/005/save_picture_1058961.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Warfare Legacy Collection (2025) [Ru/Multi] (9570e04c+) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058338.jpg" />
+  <img src="Z:/picture/005/save_picture_1058338.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Soda Crisis (2022) [Ru/Multi] (20230301) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056957.jpg" />
+  <img src="Z:/picture/005/save_picture_1056957.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Guns of Fury (2025) [Ru/Multi] (1.2.7.6) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056519.jpg" />
+  <img src="Z:/picture/005/save_picture_1056519.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.3) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055831.jpg" />
+  <img src="Z:/picture/005/save_picture_1055831.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Illuminaria (2022) [Ru/Multi] (1.301) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055739.jpg" />
+  <img src="Z:/picture/005/save_picture_1055739.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.4) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055735.jpg" />
+  <img src="Z:/picture/005/save_picture_1055735.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.12459) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055669.jpg" />
+  <img src="Z:/picture/005/save_picture_1055669.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Saviorless (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055645.jpg" />
+  <img src="Z:/picture/005/save_picture_1055645.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054512.jpg" />
+  <img src="Z:/picture/005/save_picture_1054512.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Terraria (2011) [Ru/Multi] (1.4.5.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054464.jpg" />
+  <img src="Z:/picture/005/save_picture_1054464.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Sigi - A Fart for Melusina (2017) [Multi] (3.41) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054235.jpg" />
+  <img src="Z:/picture/005/save_picture_1054235.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053401.jpg" />
+  <img src="Z:/picture/005/save_picture_1053401.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053098.jpg" />
+  <img src="Z:/picture/005/save_picture_1053098.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.2.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051457.jpg" />
+  <img src="Z:/picture/005/save_picture_1051457.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050388.jpg" />
+  <img src="Z:/picture/005/save_picture_1050388.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B94898B2418BFD6B1D30D9BBC67A64526D5853F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844854   (1050174) от 28.12.2025
-
-Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050174.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ржавые" бродят по мертвым землям этого мира, их революция провалилась, но мир в руинах, помогите человечеству выбраться. Beacon of Neyda - это стратегическая игра, в которой вам нужно строить и защищать свою базу от волн врагов. Отремонтируйте главную башню в каждой базе, чтобы победить. Каждая база создает безопасное пространство, но будьте осторожны, (   Читать дальше...   )Тип издания: LicenseРазработчик: Ghost Creative StudioЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык субтитров: Английский, Испанский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE162E70CE696038D29B6D6FB68246F1E53B41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844416   (1049971) от 26.12.2025
-
-SANABI (2023) [Ru/Multi] (1.3.51/dlc) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049971.jpg" />
-</div>
-
-
-###  Подробнее
-
-SANABI – это пиксельный экшн с ретро стилистикой и уникальными локациями. Действия игры происходят в далеком будущем, где кибернетические протезы стали нормой, даже в случае, если человек не терял конечности. Ведь они могут оснащаться различными полезными техническими приспособления и превозмогать человеческие способности. Но это также стало удобной возможностью (   Читать дальше...   )Тип издания: RepackРазработчик: Wonder PotionЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Корейский, Китайский и другиеЯзык интерфейса: Русский, Английский, Корейский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D34019200E5DB2A21E7C1BFFFBC8E5C82AC56C
 ```
 
 https://mybot314.ru/tekegram_catalog/

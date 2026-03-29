@@ -1,3 +1,185 @@
+###  Публикация: 1350222   (1003492) от 05.01.2020
+
+Monster Jam: Wales, Cardiff (18.05.2019) WEB-DL [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 0:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167990641258A5A02196BF0370FF4BAD6E1D3675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487889   (1002805) от 08.08.2021
+
+Смешанные единоборства. UFC 265: Деррик Льюис - Сирил Ган / UFC 265: Lewis vs. Gane. Prelims & Main Card (08.08.2021) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002805.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 августа в Хьюстоне (штат Техас, США) на арене «Toyota Center» состоялся номерной турнир UFC 265. Главным событием которого стал бой за титул временного чемпиона в тяжелом весе: Деррик Льюис против Сирила Гана. Льюису очень сильно везет в UFC – не обладая какими-либо выдающимися навыками, американец во второй раз становится участником чемпионского боя. Первая попытка (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E74D35A2D6D2938B25A62E07310F2E02EA5DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488021   (1002591) от 09.08.2021
+
+Чемпионат по дрэг-рейсингу NHRA 2021. 10 этап. Помона / NHRA Drag Racing Championship 2021. Round 10. Pomona (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра (1/4 мили). Реже проводятся заезды на 1/2 мили (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути драг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF616E81BBD26C44A2CC1E6681D8476AE4FA665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488022   (1002587) от 09.08.2021
+
+Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2021. Зольдер, Гонка 1-2 / DTM 2021. Zolder, Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:27:35 + 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D31AC9543F6300B639445D4B1D4C2EC5814BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488082   (1002580) от 09.08.2021
+
+MotoGP. Этап 10. Гран-при Штирии. Гонка (08.08.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002580.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 августа 2021, воскресенье. 15:40 МСК. Этап 10, Гран-при Штирии. Австрия, Гонка (28 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B97CCD547E338AFEE3F112C344C8E4748E8602D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488023   (1002577) от 09.08.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Штирии / MotoGP 2021. Styrian GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира в классе MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 02:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E12CCF422AEF950969712513249B6FEB8A4F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488533   (1002045) от 11.08.2021
+
+Серия Кубков NASCAR 2021. Этап 23. Уоткинс Глен. Гонка / NASCAR Cup Series 2021. Go Bowling at The Glen. Watkins Glen International (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Никита Дмитриев)Субтитры: ОтсутствуютПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB3AFA453F53001B360260776E14056EA067F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488536   (1002044) от 11.08.2021
 
 Серия Индикар. Сезон 2021. Этап 11. Нэшвилл. Гонка / NTT Indycar Series 2021. Round 11. Big Machine Music City Grand Prix. Race (09.08.2021) (2021) WEB-DL [H.264/720p-LQ]
@@ -6,7 +188,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002044.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001730.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001309.jpg" />
 </div>
 
 
@@ -87,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999900.jpg" />
 </div>
 
 
@@ -118,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999264.jpg" />
 </div>
 
 
@@ -144,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992555.jpg" />
 </div>
 
 
@@ -176,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992393.jpg" />
 </div>
 
 
@@ -202,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991917.jpg" />
 </div>
 
 
@@ -231,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991626.jpg" />
 </div>
 
 
@@ -257,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991568.jpg" />
 </div>
 
 
@@ -284,7 +466,7 @@ Formula-E: Santiago E-Prix. Гонка [МАТЧ! Арена HD] (18.01.2020) DV
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990730.jpg" />
 </div>
 
 
@@ -310,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990492.jpg" />
 </div>
 
 
@@ -336,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989762.jpg" />
 </div>
 
 
@@ -365,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989757.jpg" />
 </div>
 
 
@@ -394,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987026.jpg" />
 </div>
 
 
@@ -423,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987024.jpg" />
 </div>
 
 
@@ -452,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985284.jpg" />
 </div>
 
 
@@ -479,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984972.jpg" />
 </div>
 
 
@@ -508,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984931.jpg" />
 </div>
 
 
@@ -522,209 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:055308776E4029FFAF7760421AEF8EA7B81408F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355226   (984929) от 25.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Мужчины. Короткая программа (2020) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-22 января 2020, среда. 13:30 МСК
-Мужчины. Короткая программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Беларусь 5 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDF323A586F74CD8F60EDE6F5321A144D654D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355246   (984928) от 25.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Мужчины. Произвольная программа (2020) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-23 января 2020 года, 20:30 МСК
-Мужчины. Произвольная программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Беларусь 5 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0E3C5CAB810443ECA66DA63AEAC6E10A1CE7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355241   (984927) от 25.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Танцы на льду. Ритм-танец (2020) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-23 января 2020 года, 14:00 МСК
-Танцы на льду. Ритм-танец
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Беларусь 5 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B040EA45460D8DC0EE31919BF6509B06979F827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355262   (984924) от 25.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Танцы на льду. Ритм-танец (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-23 января 2020 года, 14:00 МСК
-Танцы на льду. Ритм-танец
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB40ADBDC7F72DB9896AC27F9DE03A910CD0F673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355468   (983616) от 26.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Женщины. Короткая программа (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-24 января 2020 года, 13:30 МСК
-Женщины. Короткая программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A2A1E0835167E81CA46F6E876A52C5D08227D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355515   (983542) от 26.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Женщины. Произвольная программа (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-25 января 2020 года, 20:30 МСК
-Женщины. Произвольная программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854BDBDDBA06DBD52452B9783E4AE6E3B2D14051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355475   (983540) от 26.01.2020
-
-Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Спортивные пары. Произвольная программа (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
-24 января 2020 года, 21:00 МСК
-Спортивные пары. Произвольная программа
-Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF31366DDF326942A07A682B86B99EAB7DA6F850
 ```
 
 https://mybot314.ru/tekegram_catalog/

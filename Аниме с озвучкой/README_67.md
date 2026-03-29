@@ -1,3 +1,30 @@
+###  Публикация: 1805582   (1382) от 23.09.2025
+
+Эта фарфоровая кукла влюбилась [ТВ-2] | Sono Bisque Doll wa Koi o Suru 2 | My Dress-Up Darling 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1382.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом сезоне Вакана и Марин продолжат свою совместную работу над костюмами. Их будут ждать ещё больше интересных проектов, на которых они попытаются закрепить свой успех, а их отношениям предстоит пройти несколько испытаний на прочность. В конце концов, это ведь Япония, так что работа у косплееров всегда найдётся.
+Новые вызовы, необычные костюмы, захватывающие (   Читать дальше...   )Производство: Япония / Студия CloverWorks, BoundaryЖанр: Комедия, романтика, повседневностьРежиссер: Синохара КэйсукэЯзык озвучки: Русский (AniLiberty, Dream Cast, AniBaza, SHIZA Project, Ушастая озвучка, OnWave); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90D424D9E268B64158599BBC796CB383599CED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805579   (1377) от 23.09.2025
 
 Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принцессы-убийцы | The Shy Hero and the Assassin Princesses [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +33,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1377.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1336.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1299.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1229.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1098.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1084.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1071.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1061.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_888.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126.jpg" />
 </div>
 
 

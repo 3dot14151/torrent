@@ -1,3 +1,232 @@
+###  Публикация: 1747622   (1995) от 19.09.2025
+
+Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Novembers Doom - американская дум/дэт-метал группа из Чикаго, Иллинойс.1995 - Amid It's Hallowed Mirth
+1999 - Of Sculptured Ivy And Stony Flowers
+2000 - The Knowing
+2002 - To Welcome The FadeЖанр: Melodic Doom/Death MetalПродолжительность: 11:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95159EB1D1E266E841D465BC78BFE2EAF3565E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783456   (1988) от 19.09.2025
+
+Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ravager - метал-группа из Германии, г. Вальсроде, Нижняя Саксония2017 - Eradicate... Annihilate... Exterminate...
+2019 - Thrashletics
+2021 - The Third AttackЖанр: Thrash MetalПродолжительность: 02:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1C5C4D5782ED6180D0FEFF0B2DA2B289BFC3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818885   (1950) от 19.09.2025
+
+Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sins Of Omission - рок-группа из Стокгольма, Швеция. Образовалась в 1996 году1999 - The Creation
+2001 - Flesh On Your BonesЖанр: Melodic Death MetalПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819303   (1586) от 21.09.2025
+
+Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (1961) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1586.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sailor (Your Home Is The Sea)
+A2 La Luna (The Moon)
+A3 Lieber Jonny, Komm' Doch Wieder (Paper Roses)
+A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750516   (1469) от 22.09.2025
+
+Imminence - Studio Albums (8 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imminence — шведская металкор-группа из Мальмё и Треллеборга, основанная в 2009 году.2013 - Return to Helios (EP)
+2014 - I
+2017 - This Is Goodbye
+2019 - Turn the Light OnЖанр: MetalcoreПродолжительность: 07:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819440   (1412) от 22.09.2025
+
+Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Metalcore, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malevolence — английская металкор-группа, образованная в Шеффилде, Южный Йоркшир, в 2010 году.2013 - Reign Of Suffering
+2017 - Self Supremacy
+2022 - Malicious Inten
+2025 - Where Only The Truth Is SpokenЖанр: Groove Metal, Metalcore, HardcoreПродолжительность: 03:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819434   (1410) от 22.09.2025
+
+The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1410.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Crown - метал-группа из Тролльхеттана, Швеция, действует с 1990 года.1995 - The Burning
+1997 - Eternal Death
+1998 - Hell Is Here
+2000 - Deathrace KingЖанр: Melodic Death/Thrash MetalПродолжительность: 11:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819583   (1284) от 23.09.2025
+
+Elkie Brooks - Pearls (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1284.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Superstar
+A2 Fool If You Think It's Over
+A3 Givin' It Up For Your Love
+A4 Sunshine After The Rain(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC71F4018CF52BD899E1A139848C763DECBB3B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819751   (1123) от 24.09.2025
 
 Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore>
@@ -6,7 +235,7 @@ Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1123.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1120.jpg" />
 </div>
 
 
@@ -62,7 +291,7 @@ Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_864.jpg" />
 </div>
 
 
@@ -91,7 +320,7 @@ Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_858.jpg" />
 </div>
 
 
@@ -120,7 +349,7 @@ Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_763.jpg" />
 </div>
 
 
@@ -149,7 +378,7 @@ Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_615.jpg" />
 </div>
 
 
@@ -178,7 +407,7 @@ Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_591.jpg" />
 </div>
 
 
@@ -207,7 +436,7 @@ Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155.jpg" />
 </div>
 
 
@@ -237,7 +466,7 @@ Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140.jpg" />
 </div>
 
 
@@ -266,7 +495,7 @@ Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102.jpg" />
 </div>
 
 
@@ -295,7 +524,7 @@ Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18.jpg" />
 </div>
 
 
@@ -324,7 +553,7 @@ Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12.jpg" />
 </div>
 
 
@@ -353,7 +582,7 @@ Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4.jpg" />
 </div>
 
 

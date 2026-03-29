@@ -1,3 +1,81 @@
+###  Публикация: 1376031   (860388) от 17.04.2020
+
+Эндрю Уилсон | Искусство убивать. Расследует миссис Кристи (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая писательница, автор детективов Агата Кристи переживает сложный период: она потеряла мать – близкого ей человека, а муж тем временем увлекся другой женщиной и хочет оставить семью. Новая книга не пишется, одолевают горькие мысли, и в этой ситуации видится только один выход. Миссис Кристи в отчаянии, ей кажется, что она теряет связь с окружающим миром. Ее (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективыПеревод: Лев ВысоцкийФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BAAD90880315CB778717F43933792194B7CC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376167   (860365) от 17.04.2020
+
+Николай Леонов, Алексей Макеев | Не говори об этом мужу (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник МВД Гуров участвует в задержании преступника, пытавшегося ограбить на улице женщину. У задержанного – особая примета: татуировка в виде крылатого змея, кусающего себя за хвост. Точно такая же, со слов потерпевшей, была у брачного афериста, который сначала завел с ней роман, а потом снял с ее счета все деньги и скрылся. Но это не он напал на нее на улице… (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6721B9ED062320DF0BF92FFD35B8600AD9D8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376166   (860277) от 17.04.2020
+
+Николай Леонов, Алексей Макеев | Клейма ставить негде (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковники МВД Гуров и Крячко расследуют дело о ДТП, в котором погиб генерал МВД в отставке Давишин. Бывшие сослуживцы генерала в один голос характеризуют его как редкостного мерзавца, использовавшего служебное положение для личной наживы. Сыщики вылетают в Иркутск, где погибший начинал свою служебную карьеру. То, что удается узнать от тамошних старожилов, приводит (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB4475DCCAB8F4FAA5262583AEAEFDDF4BA3ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376305   (860267) от 17.04.2020
 
 Лина Бенгтсдоттер | Аннабель (2020) [FB2]
@@ -6,7 +84,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860267.jpg" />
+  <img src="Z:/picture/008/save_picture_860267.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860251.jpg" />
+  <img src="Z:/picture/008/save_picture_860251.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859520.jpg" />
+  <img src="Z:/picture/008/save_picture_859520.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859119.jpg" />
+  <img src="Z:/picture/008/save_picture_859119.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857548.jpg" />
+  <img src="Z:/picture/008/save_picture_857548.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857295.jpg" />
+  <img src="Z:/picture/008/save_picture_857295.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857168.jpg" />
+  <img src="Z:/picture/008/save_picture_857168.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856891.jpg" />
+  <img src="Z:/picture/008/save_picture_856891.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856779.jpg" />
+  <img src="Z:/picture/008/save_picture_856779.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856671.jpg" />
+  <img src="Z:/picture/008/save_picture_856671.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855720.jpg" />
+  <img src="Z:/picture/008/save_picture_855720.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855557.jpg" />
+  <img src="Z:/picture/008/save_picture_855557.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855549.jpg" />
+  <img src="Z:/picture/008/save_picture_855549.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855388.jpg" />
+  <img src="Z:/picture/008/save_picture_855388.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855386.jpg" />
+  <img src="Z:/picture/008/save_picture_855386.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855329.jpg" />
+  <img src="Z:/picture/008/save_picture_855329.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855098.jpg" />
+  <img src="Z:/picture/008/save_picture_855098.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855058.jpg" />
+  <img src="Z:/picture/008/save_picture_855058.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854913.jpg" />
+  <img src="Z:/picture/008/save_picture_854913.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854791.jpg" />
+  <img src="Z:/picture/008/save_picture_854791.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854697.jpg" />
+  <img src="Z:/picture/008/save_picture_854697.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853645.jpg" />
+  <img src="Z:/picture/008/save_picture_853645.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853640.jpg" />
+  <img src="Z:/picture/008/save_picture_853640.jpg" />
 </div>
 
 
@@ -608,86 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE66A8E4EF5EBBD5202B3C283959D18233D66DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377359   (853555) от 21.04.2020
-
-Ирина Грин | Чужая лебединая песня (2019) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программист Федор Лебедев привык жить один, но однажды ночью на его пороге возникла прекрасная незнакомка. Девушка ранена и не может рассказать, что с ней случилось…
-Ася Субботина сильно встревожена – Федор, ее друг и коллега по работе в детективно-консалтинговом агентстве «Кайрос», попал в большую беду. Федора подозревают в убийстве, он пустился в бега, но перед (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9F95D504F22D17B35A6ECD5BD017FBCAA20FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377360   (853550) от 21.04.2020
-
-Ирина Грин | Сети кружевницы (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детективное агентство «Кайрос» обратился Петр Бородин с просьбой найти мать Инги, внучки его старой знакомой. У него есть собственные соображения по поводу тайны происхождения девушки, но он не спешил ими делиться…
-У Инги сохранились смутные воспоминания о матери, ведь ее вырастила бабушка. Вся жизнь девушки сосредоточена в коклюшках, на которых она плетет удивительной (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65431354994EDE4105EE35F25DC65B16AD7EA900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377436   (853415) от 21.04.2020
-
-Валерия Вербинина | На службе Его Величества (2019) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под силу ли одной девушке, даже очень красивой, помешать войне между двумя могущественными державами? Да, если это Амалия, секретный агент русского императора. Для этого ей придется отправиться в Лондон, где она совершенно неожиданно для себя окажется… замужем. Местный аристократ так торопился обвенчаться, что не удосужился рассмотреть лицо невесты за плотной вуалью. (   Читать дальше...   )Жанр: Исторические детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0A55BF37111F5ACC9D42F1F0EE112B1AFFA3C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

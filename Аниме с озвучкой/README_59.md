@@ -1,3 +1,29 @@
+###  Публикация: 1719803   (42698) от 23.09.2024
+
+Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в одиночку [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говорят, что тебя не убивает, то делает сильнее. К сожалению, для слабейшего охотника Кореи, Сон Джину, дело обстоит совершенно иначе. Однажды вместе с товарищами он попадает в опасное высокоранговое подземелье, а покидает его совершенно другим человеком — теперь у него есть Система, программа, которую может видеть только он и которая каким-то образом поднимает его (   Читать дальше...   )Производство: A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Накасигэ СюнсукэЯзык озвучки: Японский, русский (AniLibria, Amber, Dream Cast, Jam Club, Studio Band, TVShows)Субтитры: Русские (Crunchyroll, AniLibria)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E342A357A709E0E3F5EB082AAAF341AA4C76ED98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735323   (42674) от 23.09.2024
 
 Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeнницa Дaлия нe yнывaeт! [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@ Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeн
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42674.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42672.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42551.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnat
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42425.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42041.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42039.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42028.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 из 12] WEBRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41944.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Grendizer U | Грендайзер U [2024, TV, 13 из 13] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41754.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41739.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41730.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41718.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41532.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Hyakkano | Сто
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41350.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41308.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41256.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41182.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40608.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40087.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39846.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39774.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39586.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39170.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38819.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38809.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB5F9DA9DD407275AC667BC0D19645B6D97911E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749108   (38708) от 31.10.2024
-
-Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Как Князю тьмы полюбить жену-эльфийку? [2024, TV, 12 из 12] BDRip HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заган - колдун, вселяющий ужас в окружающих, но совершенно не умеющий общаться. Влюбившись в прекрасную эльфийку Нефи и выкупив её на аукционе, он понимает, что не способен выразить свои чувства словами. Так неуклюжий колдун и робкая эльфийка начинают неловко знакомиться друг с другом.Производство: Brains BaseЖанр: приключения, фэнтези, романтикаРежиссер: Исиодори ХиросиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494E715EDD712B5B2461EA43A805964BD5A85537
 ```
 
 https://mybot314.ru/tekegram_catalog/

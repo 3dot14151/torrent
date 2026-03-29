@@ -1,3 +1,87 @@
+###  Публикация: 457357   (62611) от 18.03.2024
+
+Джонатан Свифт | Путешествия Гулливера (2005) [MP3, Александр Хорлин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонатан Свифт (1667–1745) – английский писатель-сатирик, публицист, философ, поэт и общественный деятель.
+Классика детской литературы, на которой выросли поколения и поколения юных читателей. Вашему вниманию предлагаются три захватывающих истории о самом знаменитом путешественнике всех времен и народов, в которых Лемюэль Гулливер отправляется к лилипутам, великанам (   Читать дальше...   )Жанр: Зарубежная литература для детей, приключения, романИздательство: ЭлитайлПродолжительность: 07:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4896F0D6C9A60E2CCE28BB625F91E3C3224344BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453090   (62597) от 18.03.2024
+
+Джонатан Свифт | Гулливер в стране лилипутов (Аудиоспектакль) (2011) [MP3, Валентин Гафт и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям.
+Джонатан Свифт (1667–1745) – английский писатель-сатирик, публицист, философ, поэт и общественный деятель.
+Судьба гениальной книги Джонатана Свифта, которую от мала до велика с увлечением читают во всех концах света, очень интересна и поучительна. Как захватывающе интересна и сама эта великая из великих книга.
+А для малышей – это книга, (   Читать дальше...   )Жанр: Зарубежная литература для детей, приключения, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8830F4C0E5BAEEDE0D620DAD79D0A9DA7C583DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453059   (62576) от 18.03.2024
+
+Джонатан Свифт | Путешествия Гулливера (2007) [MP3, Александр Клюквин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Джонатан Свифт (1667–1745) – английский писатель-сатирик, публицист, философ, поэт и общественный деятель.
+Роман Джонатана Свифта «Путешествия в некоторые отдаленные страны света Лемюэля Гулливера, сначала хирурга, а потом капитана нескольких кораблей» увидел свет в 1726 году. Увлекательное произведение стало классикой не только взрослой, (   Читать дальше...   )Жанр: Зарубежная литература для детей, приключения, романИздательство: Издательский дом «Союз»Продолжительность: 04:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F2E8AA090FBD9CCE012BE590FB139D06966A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453093   (62575) от 18.03.2024
 
 Джонатан Свифт | Путешествие Гулливера в Бробдингнег (Аудиоспектакль) (2011) [MP3, Валентин Гафт и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62575.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62524.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62499.jpg" />
 </div>
 
 
@@ -90,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62496.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62470.jpg" />
 </div>
 
 
@@ -144,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62392.jpg" />
 </div>
 
 
@@ -172,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62391.jpg" />
 </div>
 
 
@@ -200,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61977.jpg" />
 </div>
 
 
@@ -226,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61870.jpg" />
 </div>
 
 
@@ -252,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61766.jpg" />
 </div>
 
 
@@ -279,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61688.jpg" />
 </div>
 
 
@@ -306,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61642.jpg" />
 </div>
 
 
@@ -332,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61550.jpg" />
 </div>
 
 
@@ -361,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61528.jpg" />
 </div>
 
 
@@ -388,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61373.jpg" />
 </div>
 
 
@@ -416,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61351.jpg" />
 </div>
 
 
@@ -443,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61348.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61329.jpg" />
 </div>
 
 
@@ -498,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61294.jpg" />
 </div>
 
 
@@ -526,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61262.jpg" />
 </div>
 
 
@@ -555,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61143.jpg" />
 </div>
 
 
@@ -583,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61141.jpg" />
 </div>
 
 
@@ -612,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61135.jpg" />
 </div>
 
 
@@ -625,88 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D55F40DF3D3FF995471473E06ED5F9C9B3B4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329166   (61113) от 01.04.2024
-
-Марк Твен | Принц и нищий (2011) [MP3, Сергей Чонишвили]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская литература.
-Марк Твен (1835–1910) – американский писатель.
-В книге Марка Твена рассказывается о приключениях английского принца Эдуарда Тюдора и маленького оборвыша Тома Кенти, на время поменявшихся местами. Кого из них коронуют на английский престол?Жанр: Зарубежная литература, классика, роман-сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 06:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CA696BACEBAA7EE3C4B41DD1BE194A93BA4580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395774   (61108) от 01.04.2024
-
-Марк Твен | Принц и нищий (2004) [MP3, Андрей Зарецкий]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Искатели приключений.
-Марк Твен (1835–1910) – американский писатель.
-Маленький оборванец Том Кенти никогда и не подумал бы, что есть на земле мальчик, похожий на него, как зеркальное отражение. Волею судьбы он знакомится с таким мальчиком - английским принцем Эдуардом Тюдоре и по забавной случайности они меняются местами. Каким образом разрешится эта (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, роман-сказкаИздательство: СиДиКомПродолжительность: 09:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3194D8E47E605B31E178909350706146B93472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395743   (61105) от 01.04.2024
-
-Марк Твен | Принц и нищий (Радиоспектакль) (2007) [MP3, Сергей Чонишвили и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по знаменитому роману Марка Твена. Принц и бродяга волею судьбы поменялись местами. Оба мальчика так похожи друг на друга, что никто не замечает подмены. Их ждут удивительные приключения: порою забавные, порою опасные, невероятные и захватывающе интересные!Жанр: Зарубежная литература для детей, классика, приключения, роман-сказкаВ ролях: Сергей Чонишвили, Данила Якубовский, Михаил Гульдан, Олег Щербинин, Артем Карапетян, Александр Коврижных, Ирина Якубовская, Елена Якубовская и другиеПродолжительность: 02:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6542F9CE8A728D7E4968C13043B75F3CD5E9238
 ```
 
 https://mybot314.ru/tekegram_catalog/

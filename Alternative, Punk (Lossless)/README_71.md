@@ -1,3 +1,32 @@
+###  Публикация: 1747640   (44393) от 06.09.2024
+
+blink-182 - One More Time... Part-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk, Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anthem Part 3 [3:34]
+02 - Dance With Me [3:09]
+03 - Fell In Love [2:19]
+04 - Terrified [2:49](   Читать дальше...   )Жанр: Pop Punk, Rock, Alternative RockПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B21A74F39CB1BAE3BD6B934FD984CF31C06191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749817   (43350) от 16.09.2024
 
 Seether - Seether Workout (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post Grunge, Nu Metal>
@@ -6,7 +35,7 @@ Seether - Seether Workout (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43350.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Star Anna - Love and Sex and Fear of Death (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42407.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42402.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Marilyn Manson - Sacrilegious (2024) EP [FLAC 16/44.1|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41974.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Coldplay - Moon Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41368.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Coldplay - 15 альбомов, 2 EP (2000 - 2024) 18 CD [FLAC|Lossless|image+.c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40755.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Muse - 12 Albums, 1 Box Set (1999 - 2022) [26 CD] [FLAC|Lossless|image + .cue|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40746.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Offspring - Supercharged (2024) Deluxe Edition [FLAC|Lossless|tracks] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39990.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Klokwise - Klok in. (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38493.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Powerflo - Gorilla Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37871.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Billy Idol - Rebel Yell 2.0 - The Remixes (1983) Remixes, 2024, UME [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37308.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Bunuel - Mansuetude (2024) [FLAC|Lossless|WEB-DL|tracks] <Noise-Rock, Punk-Blues
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37184.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37166.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Linkin Park - From Zero (2024) Brazil, 0093624839842, AB1000 Pressing [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36266.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) E.U., PRO17226, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36258.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Linkin Park - Hybrid Theory (Special Edition) (2000) China, JCD-4598, 2002, 2xCD
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36256.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2000) 2020, Brazil, 0093
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36253.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Linkin Park - A Thousand Suns (2010) Brazil, 9362496333, AA0021000 Pressing, Pro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36246.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Linkin Park - Meteora (2003) China, 7-88018-748-0 [FLAC|Lossless|image + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36150.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Linkin Park - Meteora (2003) Brazil, 936248462-2 [FLAC|Lossless|image + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36147.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Linkin Park - A Thousand Suns (2010) U.S., 525480-2, Best Buy Exclusive [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36140.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Japan, WPZR-30320
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35436.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Linkin Park - Meteora (20th Anniversary Edition) (2003) Brazil, 0093624880974, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35435.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35409.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Linkin Park - Hybrid Theory (2000) Brazil, 936247755-2 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35404.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Linkin Park - Hybrid Theory (2000) Brazil, 936247755-2 [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0136941AEE43816A7391D2BE53445FE634ADA791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774248   (30005) от 23.01.2025
-
-Bloodhound Gang - Hooray For Boobies (1999) Expanded Edition, 2024, Geffen [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hope You Die [00:03:39]
-02. The Inevitable Return Of The Great White Dope [00:04:02]
-03. Mama's Boy [00:00:34]
-04. Three Point One Four [00:03:55](   Читать дальше...   )Жанр: Alternative, Punk-RockПродолжительность: 01:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02BC0B0CD465A5CA83D73D3B8E288B1D9AB8C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

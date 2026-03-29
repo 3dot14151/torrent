@@ -1,3 +1,90 @@
+###  Публикация: 1703894   (114608) от 02.03.2024
+
+Suicidal Angels - Profane Prayer (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114608.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 When The Lions Die 5:46
+2 Crypts Of Madness 4:22
+3 Purified By Fire 4:45
+4 Deathstalker 4:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5C79DB10B740FD1CB7B0DBE5EDE72C9EACC15F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703824   (114607) от 02.03.2024
+
+Believer - Extraction from Mortality (1989) Reissue, 2001, Millenium Eight Records [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unite
+02. Vile Hypocrisy
+03. D.O.S. (Desolation Of Sodom)
+04. Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E57E5E8BE18A98CF7CEB1DFA51CE8654790FB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704192   (114502) от 03.03.2024
+
+Onslaught - Skullcrusher (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions of Our Future [00:02:11]
+02. The Black Horse Of Famine [00:01:24]
+03. Thermonuclear Devastation [00:01:30]
+04. Skullcrusher II [00:03:45](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD3502FF81B5CC0A13F415DC2B3461D20ABEF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704159   (114490) от 03.03.2024
 
 Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk, Black Metal>
@@ -6,7 +93,7 @@ Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114490.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Believer - Sanity Obscure (1990) [FLAC|Lossless|image + .cue] <Progressive, Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114482.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114479.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Coltre - To Watch with Hands... To Touch with Eyes (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114476.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Absolon - A Portrait of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114475.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Believer - Transhuman (2011) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114291.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Believer - Gabriel (2009) [FLAC|Lossless|image + .cue] <Progressive, Technical T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114287.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Cycleam - Dream Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114115.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Believer - Dimensions (1993) [FLAC|Lossless|image + .cue] <Progressive, Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114111.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Farsot - Life Promised Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114107.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Heretical - Ars Infera: Resvrrectionis Domini Positvm (2001) Remaster, 2024, Car
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113900.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113897.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Madder Mortem - Mercury (1999) [FLAC|Lossless|image + .cue] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113835.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113798.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113779.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113778.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113776.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113775.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113772.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113770.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113768.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113744.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113694.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37D5327FE9CA86C2BEAAF6861FA5EDD563CC8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706997   (113397) от 15.03.2024
-
-After Infinity - After Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calm Before the Storm [00:01:18]
-02. I Surrender to You [00:04:29]
-03. A Game of Chess [00:06:28]
-04. Do What You've Got to Do [00:04:14](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED153EF92AEA97A0C70ABF2C12EEEA97D1C6079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706995   (113396) от 15.03.2024
-
-Devastator - Conjurers of Cruelty (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Beyond the Gate [1:06]
-02 - Conjurers of Cruelty [5:01]
-03 - Black Witchery [5:03]
-04 - Ritual Abuse (Evil Never Dies) [4:52](   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DCE828DF47ABB9205690DD089F336D42D4DCCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707010   (113329) от 16.03.2024
-
-Algebra - Feed The Ego (2014) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Survival Nowadays [4:05]
-02 - Prisoner Outdoors [4:54]
-03 - Necessary Evil [4:09]
-04 - My Shelf [4:34](   Читать дальше...   )Жанр: Thrash Metal, MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F096B82A1AEB7C279262D5F492B090BC25EC2C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

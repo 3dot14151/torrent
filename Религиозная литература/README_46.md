@@ -1,3 +1,81 @@
+###  Публикация: 1291229   (672467) от 23.03.2019
+
+В.М. Тюленев | Рождение латинской христианской историографии. С приложением "Церковной истории" Руфина Аквилейского (2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в отечественной медиевистике проводится комплексное изучение латинской христианской историографии IV — начала V в. и включаются в исследовательский оборот малоизученные авторы — Лактанций, Иероним Стридонский, Руфин Аквилейский, Сульпиций Север и Павел Орозий. Христианская историография рассматривается в книге как целостное историографическое явление, прошедшее (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCF8F0FD3E8E8024F1E356458EE20A06E07EFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291224   (672462) от 23.03.2019
+
+о. Станислав Гнедзейко | Евхаристическое событие в Сокулке. История и плоды (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день на всех алтарях мира совершается величайшее из всех возможных чудес - чудо Пресуществления хлеба и вина в истинное Тело и Кровь Иисуса Христа. Однако, принимая Святое Причастие, мы можем прикасаться к Нему только верой, потому что доступными для наших чувств остаются лишь не изменённые освящением виды хлеба и вина. Так что же привносит в нашу веру евхаристическое (   Читать дальше...   )Жанр: ТаинстваФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69D838ADB213D43E3B5FD1CF233631A9020A11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030802   (672400) от 01.07.2016
+
+Франсуа Эве | Экуменика (1995) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена изучению вопросов, связанных с воссоединением христианских церквей. В ней приведен как краткий очерк истории современного экуменического движения, так и анализ экуменической деятельности в настоящее время. Подробно разобраны католические принципы экуменизма и отношения с протестантами и Восточными Церквами.Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90ADA98B2BAA286ECCF4D5B0FA37D537B395389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 751743   (672322) от 23.03.2019
 
 Жан Карминьяк | Рождение синоптических Евангелий (2005) [PDF, DJVU, RTF]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672322.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671400.jpg" />
+  <img src="Z:/picture/008/save_picture_671400.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669894.jpg" />
+  <img src="Z:/picture/008/save_picture_669894.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669887.jpg" />
+  <img src="Z:/picture/008/save_picture_669887.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669883.jpg" />
+  <img src="Z:/picture/008/save_picture_669883.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669881.jpg" />
+  <img src="Z:/picture/008/save_picture_669881.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669781.jpg" />
+  <img src="Z:/picture/008/save_picture_669781.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669409.jpg" />
+  <img src="Z:/picture/008/save_picture_669409.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669311.jpg" />
+  <img src="Z:/picture/008/save_picture_669311.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668787.jpg" />
+  <img src="Z:/picture/008/save_picture_668787.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668785.jpg" />
+  <img src="Z:/picture/008/save_picture_668785.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667936.jpg" />
+  <img src="Z:/picture/008/save_picture_667936.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667235.jpg" />
+  <img src="Z:/picture/008/save_picture_667235.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667190.jpg" />
+  <img src="Z:/picture/008/save_picture_667190.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667187.jpg" />
+  <img src="Z:/picture/008/save_picture_667187.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667117.jpg" />
+  <img src="Z:/picture/008/save_picture_667117.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666786.jpg" />
+  <img src="Z:/picture/008/save_picture_666786.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666785.jpg" />
+  <img src="Z:/picture/008/save_picture_666785.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666783.jpg" />
+  <img src="Z:/picture/008/save_picture_666783.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666726.jpg" />
+  <img src="Z:/picture/008/save_picture_666726.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666694.jpg" />
+  <img src="Z:/picture/008/save_picture_666694.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666067.jpg" />
+  <img src="Z:/picture/008/save_picture_666067.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665710.jpg" />
+  <img src="Z:/picture/008/save_picture_665710.jpg" />
 </div>
 
 
@@ -601,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6A3DF78C3F19B32EB2EA60799BCA0FD75A7A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138126   (665652) от 28.05.2017
-
-Е. А. Дорошенко | Шиитское духовенство в современном Иране [2-е изд.] (1985) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе, дополненное и исправленное издание книги, вышедшей в 1975 г. В монографии освещается роль шиитского духовенства в общественно-политической жизни Ирана, исследуются различные концепции идеологов шиизма.Жанр: История, политология, религиоведение, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD59909C8A3DE4719811CB9C6338CB3139C6BA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224570   (664869) от 11.05.2018
-
-Клайв Стейплз Льюис, дон Джованни Калабриа | Соединенные духом и любовью. Латинские письма (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный английский писатель Клайв С. Льюис много лет переписывался с итальянским монахом Джованни Калабриа, ныне святым Католической церкви. Переписка велась на латыни.
-Это издание содержит все сохранившиеся письма, причем опубликованы они параллельно на двух языках - латинский оригинал и русский перевод. Это поразительный пример общения двух наследников языковой (   Читать дальше...   )Жанр: Эссе, письма, очеркиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7595F000E17CEEF35A61F1467D8FFEE0115D202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138418   (664484) от 29.05.2017
-
-Д. С. Чунтонов (Сост.) | преп. Амвросий Оптинский - Змеи и голуби (2012) [DJVU, FB2, DOC, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Амвросий (в миру Александр Михайлович Гренков), самый известный и прославленный из Оптинских старцев, родился 23 ноября 1812 года в Тамбовской губернии в благочестивой семье, тесно связанной с Церковью: дед его был священником, отец - псаломщиком (церковным чтецом).
-
-Александр был шестым из восьмерых детей в семье. Двенадцати лет он поступил в Тамбовское (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, FB2, DOC, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16ED2B6C0D11A31E22E3629AB30BD0F99795F711
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Windows Server [10.0.25398.763], version 23H2 (Updated March 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62505.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows Server 2022 LTSC [10.0.20348.2402], Version 21H2 (Updated April 2024) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59587.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows Server [10.0.25398.830], version 23H2 (Updated April 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59555.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows Server 2022 LTSC [10.0.20348.2461], Version 21H2 (Updated May 2024) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55886.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Server [10.0.25398.887], version 23H2 (Updated May 2024) - Оригин�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55863.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows Server 2022 LTSC [10.0.20348.2527], Version 21H2 (Updated June 2024) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52966.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows Server [10.0.25398.950], version 23H2 (Updated June 2024) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52942.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows Server 2022 LTSC [10.0.20348.2582], Version 21H2 (Updated July 2024) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49895.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows Server [10.0.25398.1009], version 23H2 (Updated July 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49874.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows Server 2022 LTSC [10.0.20348.2655], Version 21H2 (Updated August 2024) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46259.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Windows Server [10.0.25398.1085], version 23H2 (Updated August 2024) - Ориг�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46233.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Windows Server 2022 LTSC [10.0.20348.2700], Version 21H2 (Updated September 2024
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43331.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Windows Server [10.0.25398.1128], version 23H2 (Updated September 2024) - Ори
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43300.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Windows Server 2022 LTSC [10.0.20348.2762], Version 21H2 (Updated October 2024) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40344.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Windows Server [10.0.25398.1189], version 23H2 (Updated October 2024) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40321.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows Server 2025 LTSC [10.0.26100.1742], Version 24H2 - Оригинальн�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38670.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Windows Server 2025 LTSC [10.0.26100.2314], Version 24H2 (Updated November 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36838.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Windows Server [10.0.25398.1251], version 23H2 (Updated November 2024) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36805.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows Server 2022 LTSC [10.0.20348.2849], Version 21H2 (Updated November 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36736.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windows Server 2025 LTSC [10.0.26100.2605], Version 24H2 (Updated December 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33636.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Windows Server 2022 LTSC [10.0.20348.2966], Version 21H2 (Updated December 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33621.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Windows Server [10.0.25398.1308], version 23H2 (Updated December 2024) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33571.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Windows Server 2022 LTSC [10.0.20348.3091], Version 21H2 (Updated January 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30297.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Windows Server 2025 LTSC [10.0.26100.2894], Version 24H2 (Updated January 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30296.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Windows Server [10.0.25398.1369], version 23H2 (Updated January 2025) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30258.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Windows Server 2025 LTSC [10.0.26100.3194], Version 24H2 (Updated February 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27251.jpg" />
 </div>
 
 

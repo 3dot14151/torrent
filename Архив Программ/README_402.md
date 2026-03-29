@@ -6,7 +6,7 @@ ActivePresenter Pro Edition 8.0.6 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839334.jpg" />
+  <img src="Z:/picture/008/save_picture_839334.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CPU-Z 1.92.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839330.jpg" />
+  <img src="Z:/picture/008/save_picture_839330.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Movavi Photo Editor 6.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839321.jpg" />
+  <img src="Z:/picture/008/save_picture_839321.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NVIDIA GeForce Desktop 378.78 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839307.jpg" />
+  <img src="Z:/picture/008/save_picture_839307.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Focus Magic 4.02a Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839296.jpg" />
+  <img src="Z:/picture/008/save_picture_839296.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SpyHunter 4.21.18.4608 Portable by wood [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839291.jpg" />
+  <img src="Z:/picture/008/save_picture_839291.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MusicBee 1.2.4037 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839257.jpg" />
+  <img src="Z:/picture/008/save_picture_839257.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VidCoder 0.8.2.0 [Англиский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839249.jpg" />
+  <img src="Z:/picture/008/save_picture_839249.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Hornil StylePix v 1.7.0.2430 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_839248.jpg" />
+  <img src="Z:/picture/009/save_picture_839248.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Opera 11.10 Beta Build 2048 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839243.jpg" />
+  <img src="Z:/picture/008/save_picture_839243.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839241.jpg" />
+  <img src="Z:/picture/008/save_picture_839241.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Skylum Luminar AI 1.5.0.8588 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839221.jpg" />
+  <img src="Z:/picture/008/save_picture_839221.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AAct Network 1.2.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839217.jpg" />
+  <img src="Z:/picture/008/save_picture_839217.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AAct 4.2.4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839208.jpg" />
+  <img src="Z:/picture/008/save_picture_839208.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BELOFF [dp] 2020.04.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839197.jpg" />
+  <img src="Z:/picture/008/save_picture_839197.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Cyberduck 7.3.1 Build 32784 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839193.jpg" />
+  <img src="Z:/picture/008/save_picture_839193.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Windows 7 AIO x86 x64 Plus MInstALL StartSoft 15-16 2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839176.jpg" />
+  <img src="Z:/picture/008/save_picture_839176.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ JetBrains WebStorm 2016.1.1 Build #WS-145.597 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839174.jpg" />
+  <img src="Z:/picture/008/save_picture_839174.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839161.jpg" />
+  <img src="Z:/picture/008/save_picture_839161.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839150.jpg" />
+  <img src="Z:/picture/008/save_picture_839150.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839145.jpg" />
+  <img src="Z:/picture/008/save_picture_839145.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Visual Studio 2017 Community RTM 15.0.26228.4 (Offline Cache, Unoffici
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839142.jpg" />
+  <img src="Z:/picture/008/save_picture_839142.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Photo Art Studio 2.95 [Eng] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839116.jpg" />
+  <img src="Z:/picture/008/save_picture_839116.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Saola Animate Pro 2.7.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839071.jpg" />
+  <img src="Z:/picture/008/save_picture_839071.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CCleaner 5.66.7705 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839062.jpg" />
+  <img src="Z:/picture/008/save_picture_839062.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ SMath Studio 0.89 Build 3856 +Portable [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839026.jpg" />
+  <img src="Z:/picture/008/save_picture_839026.jpg" />
 </div>
 
 

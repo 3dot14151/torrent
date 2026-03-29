@@ -1,3 +1,108 @@
+###  Публикация: 496043   (252393) от 13.05.2012
+
+Discovery: Путешествие в Долину Царей / Journey Through the Valley of the Kings (2002) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странствуя по виртуальной долине, раскрываем тайны одного из самых знаменитых кладбищ мира, которым является Долина Царей... Долина Царей — долина в Египте, где за период примерно в 500 лет с 16 по 11 век до н. э. были построены гробницы для захоронения фараонов — царей Древнего Египта. Долина расположена на западном берегу Нила, напротив городка Фивы (современный Луксор). Состоит из 2-ух долин, Восточная долина, где находится большая часть гробниц, и Западная долина. Эта территория с конца XVIII века стала центром археологических и египтологических исследований, и до сих пор её гробницы и захоронения продолжают притягивать внимание исследователей. В наше время долина стала известной благодаря открытию гробницы Тутанхамона (после слухов о проклятии фараонов) и одним из самых знаменитых археологических мест в мире. В 1979 году, вместе с остатками Фивского некрополя, долина была признана ЮНЕСКО Всемирным наследием. В начале 2006 года учёные нашли в Долине Царей новую нетронутую однокамерную гробницу (ей присвоили (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F611C84ED6EE732A775802D2025C46AC1E1CA51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465174   (252043) от 25.05.2023
+
+NG: Расследования авиакатастроф / Air Crash Investigation (2021) HDTV [H.264/1080i] (сезон 21, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_252043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Двуголосый профессиональныйПродолжительность: серии по ~ 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4801252B94830178A8BEA8FB051BCECF4E0FE210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634808   (252018) от 26.05.2023
+
+Доисторическая планета / Prehistoric Planet (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 5) Невафильм
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_252018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая серия документальных фильмов от Джона Фавро и продюсеров сериала «Планета Земля» познакомит вас с прежде невиданными чудесами нашего мира. Вы вернётесь на 66 миллионов лет назад, когда землю, океаны и небо населяли величественные динозавры и множество других необычайных существ.Производство: США, Великобритания / Apple TV, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Энди Джонс, Адам ВалдезПеревод: Профессиональный многоголосый (Невафильм)Язык озвучки: русский, английскийСубтитры: русские (forced, full, SDH), английские (full, SDH), иврит, украинскиеПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92E844D50C4F850CC982539BB0A992BC67F8362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495571   (251547) от 12.05.2012
+
+Печать богов - Кайлас / Printing of Gods is Kailash (2003) WEBRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кайлас сбрасывает любого, кто посмеет взобраться на него, а у тех, кто прикоснулся к горе возникают язвы, не заживающие несколько недель. «Никто из смертных не смеет взойти на гору, где обитают боги, тот, кто увидит лики богов, должен умереть» - так говоится в манускриптах.
+Эта гора считается священной многие тысячелетия у всех народностей, проживающих в близлежащих странах. В Индии каждый индуист почитает за огромное счастье увидеть ее раз в жизни. В древних книгах - ведах - написано, что все Гималаи священны и считаются обителью Богов, но Кайлас - это излюбленное место пребывания Шивы. А Шива, согласно вере индуистов, мастер сжигания дурной кармы и разрушения иллюзий. Из его трезубца устремляются на землю потоки невидимого небесного огня, и грязь превращается в кристально чистый поток энергии. Многие йоги и искренние искатели истины провели здесь не один год в медитациях и молитвах. И сегодня здесь иногда можно встретить людей, из глаз которых словно горная река из ледника, непрерывно льется поток любви и благодати. (   Читать дальше...   )Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA8566E3804EB4E05462EC44ACBEFF8D434667C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564290   (249776) от 18.07.2022
 
 Discovery. Суперфабрики любимая еда / Super Factories Food Edition (2020) HDTV [H.264/1080i]
@@ -6,7 +111,7 @@ Discovery. Суперфабрики любимая еда / Super Factories Food
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249776.jpg" />
+  <img src="Z:/picture/004/save_picture_249776.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Discovery. Экспедиция: Назад в будущее / Expedition: Back
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249466.jpg" />
+  <img src="Z:/picture/004/save_picture_249466.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249415.jpg" />
+  <img src="Z:/picture/004/save_picture_249415.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG. Настольная книга диктатора / The Dictator's Playbook
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249402.jpg" />
+  <img src="Z:/picture/004/save_picture_249402.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248315.jpg" />
+  <img src="Z:/picture/004/save_picture_248315.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ PBS. American Experience: Осуждение Роберта Оппенгейме
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247864.jpg" />
+  <img src="Z:/picture/004/save_picture_247864.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247757.jpg" />
+  <img src="Z:/picture/004/save_picture_247757.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246960.jpg" />
+  <img src="Z:/picture/004/save_picture_246960.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246110.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246107.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244578.jpg" />
+  <img src="Z:/picture/004/save_picture_244578.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244286.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244262.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242619.jpg" />
+  <img src="Z:/picture/005/save_picture_242619.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242292.jpg" />
+  <img src="Z:/picture/004/save_picture_242292.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ Discovery: Разрушители автолегенд / Motor MythBusters (2021
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240464.jpg" />
+  <img src="Z:/picture/004/save_picture_240464.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240048.jpg" />
+  <img src="Z:/picture/004/save_picture_240048.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239974.jpg" />
+  <img src="Z:/picture/004/save_picture_239974.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239810.jpg" />
+  <img src="Z:/picture/004/save_picture_239810.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ NG. Затерянные города с Альбертом Лином / Lost Ci
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239478.jpg" />
+  <img src="Z:/picture/004/save_picture_239478.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239345.jpg" />
+  <img src="Z:/picture/005/save_picture_239345.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ NG. Смертельно опасные монстры Австралии / Aust
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239120.jpg" />
+  <img src="Z:/picture/004/save_picture_239120.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ NG. Смертельно опасные монстры Австралии / Aust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9987836F2EE8A7AAEE77A0B516EFA5CF242037A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628104   (238994) от 21.04.2023
-
-Создание вакцины против коронавируса / The Vaccine: Conquering Covid (2021) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вспышка этого заболевания затронула всё население Земли. Возможно, самое важное научное достижение современности - это вакцина против COVID-19, разработанная в кратчайшие сроки, чтобы остановить пандемию, которая затронула более 170 стран и убила уже более 2 миллионов человек во всем мире. Это рассказ о разработке вакцины, полный трагизма и ликования. Пандемия заставила (   Читать дальше...   )Производство: США, Glass Entertainment GroupЖанр: документальный, история, исследованияПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B1CFFD302E8A71696135824775DE2F60A9E539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638388   (238387) от 12.06.2023
-
-Хватай не глядя / Storage Wars (2014-2015) WEBRip [H.264/1080i-LQ] (сезон 6, серии 1-18 из 18) [AD]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Складские и гаражные аукционы – это богатейший и практически неисчерпаемый источник скрытых сокровищ. Понятно, что охотники за этими сокровищами постараются завладеть ими, обойдя всех конкурентов, в надежде, что в старом хламе отыщутся по-настоящему ценные вещи, которые можно выгодно перепродать. Аукционы проходят так: владелец склада открывает дверь, и у потенциальных (   Читать дальше...   )Производство: США, ORIGINAL PRODUCTIONS, INC A Fremantle Company for A&E NETWORKЖанр: телепередача, реальное ТВУчастники: Брэнди Пассанте, Джаррод Шульц, Лаура Дотсон, Дэн Дотсон, Даррел Шитс, Том Бирс, Брэндон Шитс, Дэйв Хестер, Айви Кэлвин, Барри УайссПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:22:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72322489CBA0F320F5A530DF88EE06D288DF53DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640031   (237891) от 15.06.2023
-
-NG. Море надежды. Подводные сокровища Америки / Sea of Hope. America's Underwater Treasures (2017) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Океан считали слишком большим, чтобы ему что-то угрожало. Но теперь мы знаем, что ошибались. Национальные парки сохраняют природные богатства Америки на суше, но в этом нуждается и океан - ведь он находится в опасности. В столетнюю годовщину Управлению национальных парков инициативная группа отправляется в путешествие по морям и океанам, чтобы убедить одного человека (   Читать дальше...   )Производство: США, True Blue Films, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Роберт НиксонПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADB9231AF439D6B9DE54ED99B05C3DB4F5D3EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629684   (237875) от 28.04.2023
-
-Охота на Бигфута / Shooting Bigfoot (2013) DVB
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о странном, полном конкуренции и интриг мире охотников на бигфута. Молодой британский режиссер Морган Мэттьюз сопровождает три экспедиции, пытающиеся отыскать это неуловимое мифическое существо в американских лесах.Производство: Великобритания, Minnow FilmsЖанр: документальный, тайны, загадкиРежиссер: Морган МэтьюзПеревод: двуголосый профессиональный (24 ДОК)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19129E4D26A08C6BBF8BDA2DC24B9AAC0765A563
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1700629   (117024) от 17.02.2024
+
+Кир Булычев | Такан для детей Земли (2024) [MP3, Андрей Сид]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кого только не встречает профессор Селезнев в космосе… Даже Конька-Горбунка! Планета Зия в 16 парсеках от Земли, в горах которой водятся таканы, так похожие на главного героя одной сказки....Жанр: Детская литература, ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EC981B5260D5F975543CD054044941944276F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387639   (116992) от 18.02.2024
+
+Андрей Усачёв, Сергей Махотин | Как Бабы-Яги сказку спасали (Аудиоспектакль) (2006) [MP3, Олег Табаков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Усачёв, не будучи в преклонном возрасте, уже стал классиком детской литературы. Он уникален. Усачев общается с детьми на понятном им языке, не придуманном. Таких людей всегда хочется спросить: каким же вы были ребёнком, если вы ТАКОЙ взрослый?... Персонажи его сказок, стихов, рассказов и песен – это всегда дети, хоть и в обличие зверей или сказочных существ. (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаВ ролях: Олег Табаков, Валентин Гафт, Клара Румянова, Юрий Гальцев, Всеволод Абдулов, Ирина Муравьева, Вера Васильева, Игорь ЛивановПродолжительность: 04:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECE87E7AC2DE9BBC56200872A6BAB2D84847C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387620   (116990) от 18.02.2024
+
+Андрей Усачёв | Занимательная география (2006) [MP3, Владимир Левашёв, Алла Малкова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Развитие ребёнка.
+Андрей Усачёв, не будучи в преклонном возрасте, уже стал классиком детской литературы. Он уникален. Усачев общается с детьми на понятном им языке, не придуманном. Таких людей всегда хочется спросить: каким же вы были ребенком, если вы ТАКОЙ взрослый?... Персонажи его сказок, стихов, рассказов и песен – это всегда дети, хоть и в обличие (   Читать дальше...   )Жанр: Русская литература для детей, занимательные уроки для детей младшего возрастаПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC34C3AEFCF53306AD5C367C88C1AF712B224068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 387709   (116985) от 18.02.2024
 
 Андрей Усачёв | Планета кошек (2006) [MP3, Андрей Усачёв, Николай Фоменко]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116985.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116965.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116958.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116953.jpg" />
 </div>
 
 
@@ -115,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116158.jpg" />
 </div>
 
 
@@ -144,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116114.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116111.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115969.jpg" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115967.jpg" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115319.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115270.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114984.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114977.jpg" />
 </div>
 
 
@@ -360,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114970.jpg" />
 </div>
 
 
@@ -388,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114915.jpg" />
 </div>
 
 
@@ -415,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114788.jpg" />
 </div>
 
 
@@ -442,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114583.jpg" />
 </div>
 
 
@@ -469,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114575.jpg" />
 </div>
 
 
@@ -496,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114484.jpg" />
 </div>
 
 
@@ -523,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114462.jpg" />
 </div>
 
 
@@ -550,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114282.jpg" />
 </div>
 
 
@@ -576,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114253.jpg" />
 </div>
 
 
@@ -604,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114227.jpg" />
 </div>
 
 
@@ -616,89 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40D083D86263696D8DBF718150B261893373A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386137   (114074) от 06.03.2024
-
-Эрнст Теодор Амадей Гофман | Щелкунчик (Аудиоспектакль) (2008) [MP3, Валентин Гафт и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Любимые сказки».
-Эрнст Теодор Амадей Гофман (1776–1822) – немецкий писатель-романтик, композитор и художник, один из основоположников сказочной фантастики.
-«Щелкунчик и Мышиный Царь» – самая знаменитая волшебная сказка, написанная Эрнстом Теодором Гофманом. Только доброта и любовь маленькой девочки способны расколдовать некрасивого, но храброго и преданного (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаВ ролях: Валентин Гафт, Тимофей Пискунов, Анастасия Добрынина, Иван Чуваткин, Александр Жарков, Алевтина Добрынина, Юнона Дорошева, Алексей Шулин, Рифат Сафиулин, Дмитрий Креминский, Нина Забелинская, Полина Кондратьева, Ольга ПогодинаИздательство: ВимбоПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60BC880DCF842D4353CD6E196F645CAE5BAA6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704931   (114029) от 06.03.2024
-
-Эрнст Теодор Амадей Гофман | Лучшие произведения (2011) [MP3, Станислав Федосов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «XIX век. Зарубежная проза».
-Произведения Эрнста Теодора Амадея Гофмана (1776–1822) наполнены яркими красками и необычными декорациями. Они могут быть смешными и страшными, светлыми и зловещими, волшебными и мистическими. Но главный секрет великого романтика в другом, в двойственном мире его сказок и новелл трудно определить грань, отделяющую вымысел (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 10:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E360D087B0BED7F70473B7B3DDD9950480745387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704956   (114012) от 06.03.2024
-
-Эрнст Теодор Амадей Гофман | Королевская невеста (2013) [MP3, Аркадий Бухмин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Audiobook.
-Сказка немецкого писателя-романтика Эрнста Теодора Амадея Гофмана (1776–1822) «Королевская невеста» (1821). Сказка, написанная с натуры, в которой повествуется о разных людях и обстоятельствах их жизни и приятным образом подготовляется всё то удивительное и весьма диковинное, что содержится в последующих главах…
-Произведения Гофмана наполнены (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: ИДДКПродолжительность: 02:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C3E99740DA8F4BE567306DAEC4915B88E244D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

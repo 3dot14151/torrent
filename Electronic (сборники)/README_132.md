@@ -1,3 +1,61 @@
+###  Публикация: 935234   (499468) от 08.09.2015
+
+VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fred Buccini - Unforgettable (3:48)
+02 Sarah Jane Morris - Remember Me (4:39)
+03 D'Andy - Quizas, Quizas, Quizas (feat. Melania) (2:55)
+04 Ely Bruna - Feel Like Making Love (feat. Frankie Lovecchio) (4:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A6EA3775D916E97B11151DAF41EDDEA739289B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935510   (499463) от 08.09.2015
+
+VA - Lounge Music Cafe Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Loungin it
+02. Elton Ames - Beach House
+03. Belloq - Bellini Groove
+04. Gridlocks - Knox House(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE6A9308ADC7A325744E030EB839E8047CC162D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541293   (499412) от 02.09.2012
 
 DJ Nil - My Buddha Mix (2012) [MP3|320 кб/с]<Deep House, House>
@@ -6,7 +64,7 @@ DJ Nil - My Buddha Mix (2012) [MP3|320 кб/с]<Deep House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499412.jpg" />
+  <img src="Z:/picture/008/save_picture_499412.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ VA - Psy Ambiente (2019) [MP3|320 Kbps] <Ambient, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498621.jpg" />
+  <img src="Z:/picture/008/save_picture_498621.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ VA - Summer Tempted Dance House (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498619.jpg" />
+  <img src="Z:/picture/008/save_picture_498619.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ VA - 2047 Spacehawk (2022) Compiled by mCITY [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498526.jpg" />
+  <img src="Z:/picture/008/save_picture_498526.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Various Artists - Guitars & Machines (1995) [MP3|192 кб/с]<EBM, Industrial>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498512.jpg" />
+  <img src="Z:/picture/008/save_picture_498512.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Best tracks of Way Out There by Jody Wisternoff, 2010-2011, Volume 3 (2022)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498370.jpg" />
+  <img src="Z:/picture/008/save_picture_498370.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - Clubbing Dance House (2019) [MP3|320 Kbps] <House, Electro, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498327.jpg" />
+  <img src="Z:/picture/008/save_picture_498327.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ VA - Record Super Chart 598 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497758.jpg" />
+  <img src="Z:/picture/008/save_picture_497758.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497658.jpg" />
+  <img src="Z:/picture/008/save_picture_497658.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497581.jpg" />
+  <img src="Z:/picture/008/save_picture_497581.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Looking For The Summer (2015) [MP3|320 кб/с]<Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497576.jpg" />
+  <img src="Z:/picture/008/save_picture_497576.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Megalodon Bass (2015) [MP3|320 кб/с]<Drum and Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497522.jpg" />
+  <img src="Z:/picture/008/save_picture_497522.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Лучшая Музыка прямиком из Клубов (2015) [MP3|32
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497267.jpg" />
+  <img src="Z:/picture/008/save_picture_497267.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - HarDD NRG OverDoZZe 8 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496715.jpg" />
+  <img src="Z:/picture/008/save_picture_496715.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - Summer Chill [DigiCom] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496494.jpg" />
+  <img src="Z:/picture/008/save_picture_496494.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496489.jpg" />
+  <img src="Z:/picture/008/save_picture_496489.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495687.jpg" />
+  <img src="Z:/picture/008/save_picture_495687.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495287.jpg" />
+  <img src="Z:/picture/008/save_picture_495287.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Chillout Top 100: The Best Relaxing Music Vol. 2 (2020) [MP3|320 Kbps] <Dow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495056.jpg" />
+  <img src="Z:/picture/008/save_picture_495056.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Beatport Progressive Trance: Electro Sound Pack #157 (2020) [MP3|320 Kbps] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494933.jpg" />
+  <img src="Z:/picture/008/save_picture_494933.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Beatport Tech House: Electro Sound Pack #153 (2020) [MP3|320 Kbps] <Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494847.jpg" />
+  <img src="Z:/picture/008/save_picture_494847.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Beatport Trance: Electro Sound Pack #156 (2020) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494843.jpg" />
+  <img src="Z:/picture/008/save_picture_494843.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Лучшие Trance треки Ver.6 (2019) [MP3|320 Kbps] <Trance, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494696.jpg" />
+  <img src="Z:/picture/008/save_picture_494696.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Лучшие Trance треки Ver.8 (2019) [MP3|320 Kbps] <Trance, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494693.jpg" />
+  <img src="Z:/picture/008/save_picture_494693.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Лучшие Trance треки Ver.8 (2019) [MP3|320 Kbps] <Trance, Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F3D78A25296BB45B5FE80E70B5B02055F6DF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318467   (494692) от 06.08.2019
-
-VA - Лучшие Trance треки Ver.7 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
-02. Jody 6 - Coming Down (Extended Mix) 5:39
-03. Jak Aggas - The New World (Extended Mix) 6:39
-04. Aly & Fila - It's All About The Melody (Extended Mix) 8:59(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E195DD6533ECD1603F86BF65E0559A18E67A8FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318484   (494611) от 06.08.2019
-
-VA - Лучшие Trance треки Ver.9 (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik - Sundown (Original Mix) 6:14
-02. Mark Sherry - Luminosity Curve (Extended Mix) 5:27
-03. Darren Porter feat. Ana Criado - Dream Like I Do (Extended Mix) 7:46
-04. Roman Messer feat. Cari - Serenity (Extended Mix) 6:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance, Vocal TranceПродолжительность: 05:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF622A61AEEBE82C38E824AFF6096951BFCD79F
 ```
 
 https://mybot314.ru/tekegram_catalog/

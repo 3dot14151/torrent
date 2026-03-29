@@ -6,7 +6,7 @@ UctoX 2 v2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791593.jpg" />
+  <img src="Z:/picture/008/save_picture_791593.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Nevercenter CameraBag Photo 2021.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791592.jpg" />
+  <img src="Z:/picture/008/save_picture_791592.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Keep It 1.11.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791590.jpg" />
+  <img src="Z:/picture/008/save_picture_791590.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ OnyX 4.1.1 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791588.jpg" />
+  <img src="Z:/picture/008/save_picture_791588.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Keyboard Maestro 10 v10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791587.jpg" />
+  <img src="Z:/picture/008/save_picture_791587.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ AweCleaner Professional 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791584.jpg" />
+  <img src="Z:/picture/008/save_picture_791584.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ FileMaker Pro 19 v19.4.1.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791583.jpg" />
+  <img src="Z:/picture/008/save_picture_791583.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Permute 3 v3.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791581.jpg" />
+  <img src="Z:/picture/008/save_picture_791581.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wondershare UniConverter 13.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791580.jpg" />
+  <img src="Z:/picture/008/save_picture_791580.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Coming soon 3 v3.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791576.jpg" />
+  <img src="Z:/picture/008/save_picture_791576.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Man Of No Ego - Web Of Life (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791572.jpg" />
+  <img src="Z:/picture/008/save_picture_791572.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ SMPlayer 18.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791569.jpg" />
+  <img src="Z:/picture/008/save_picture_791569.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791565.jpg" />
+  <img src="Z:/picture/008/save_picture_791565.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Calibre 3.16.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791556.jpg" />
+  <img src="Z:/picture/008/save_picture_791556.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Marvelous Designer 7.5 Personal 4.1.101 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791542.jpg" />
+  <img src="Z:/picture/008/save_picture_791542.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wondershare PDFelement Pro 8.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791534.jpg" />
+  <img src="Z:/picture/008/save_picture_791534.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ iStat Menus 6 v6.61 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791530.jpg" />
+  <img src="Z:/picture/008/save_picture_791530.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wondershare Repairit 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791529.jpg" />
+  <img src="Z:/picture/008/save_picture_791529.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Label Showcase - Infrasonic Pure (Mixed by Ultimate) (2021) [MP3|320 Kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791523.jpg" />
+  <img src="Z:/picture/008/save_picture_791523.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Auslogics BoostSpeed 10.0.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791513.jpg" />
+  <img src="Z:/picture/008/save_picture_791513.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ USDownloader 1.3.5.9 Portable (25.01.2018) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791511.jpg" />
+  <img src="Z:/picture/008/save_picture_791511.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ O&O BlueCon Admin + Tech Edition 15.6 Build 6006 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791493.jpg" />
+  <img src="Z:/picture/008/save_picture_791493.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791488.jpg" />
+  <img src="Z:/picture/008/save_picture_791488.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ CrystalDiskMark 6.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791485.jpg" />
+  <img src="Z:/picture/008/save_picture_791485.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Unclutter 2.1.17d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791484.jpg" />
+  <img src="Z:/picture/008/save_picture_791484.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Adobe Acrobat Pro DC 2019.010.20069 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791483.jpg" />
+  <img src="Z:/picture/008/save_picture_791483.jpg" />
 </div>
 
 

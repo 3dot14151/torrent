@@ -6,7 +6,7 @@ Icecream Screen Recorder Pro 4.70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849805.jpg" />
+  <img src="Z:/picture/008/save_picture_849805.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ qBittorrent 4.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849790.jpg" />
+  <img src="Z:/picture/008/save_picture_849790.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Altium Designer 17.0.11 Build 656 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849781.jpg" />
+  <img src="Z:/picture/008/save_picture_849781.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AKVIS Points 3.0.258.14357 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849779.jpg" />
+  <img src="Z:/picture/008/save_picture_849779.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ The Bat! Professional 9.1.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849721.jpg" />
+  <img src="Z:/picture/008/save_picture_849721.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Minstall Portable by Nomer001 2017.03 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849696.jpg" />
+  <img src="Z:/picture/008/save_picture_849696.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849690.jpg" />
+  <img src="Z:/picture/008/save_picture_849690.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Edge 94.0.992.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849648.jpg" />
+  <img src="Z:/picture/008/save_picture_849648.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Reg Organizer 5.14 Тихая установка [Rus+Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849582.jpg" />
+  <img src="Z:/picture/008/save_picture_849582.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cent Browser 4.2.10.171 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849574.jpg" />
+  <img src="Z:/picture/008/save_picture_849574.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ The Bat! Professional 9.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849567.jpg" />
+  <img src="Z:/picture/008/save_picture_849567.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Privacy Eraser Free 5.16.0 Build 4024 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849535.jpg" />
+  <img src="Z:/picture/008/save_picture_849535.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ GPU Shark 0.24.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849525.jpg" />
+  <img src="Z:/picture/008/save_picture_849525.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ K-Lite Codec Pack Update 16.4.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849519.jpg" />
+  <img src="Z:/picture/008/save_picture_849519.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ The Bat! Professional 9.1.18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849485.jpg" />
+  <img src="Z:/picture/008/save_picture_849485.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Babylon Pro 9.0.1.5 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_849479.jpg" />
+  <img src="Z:/picture/009/save_picture_849479.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Avira Phantom VPN Pro 2.31.6.20652 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849463.jpg" />
+  <img src="Z:/picture/008/save_picture_849463.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.1.017 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849459.jpg" />
+  <img src="Z:/picture/008/save_picture_849459.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ AutoRuns 14.03 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849422.jpg" />
+  <img src="Z:/picture/008/save_picture_849422.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ PDFsam Basic 4.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849421.jpg" />
+  <img src="Z:/picture/008/save_picture_849421.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ mp3DirectCut 2.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849415.jpg" />
+  <img src="Z:/picture/008/save_picture_849415.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Google Chrome Enterprise 94.0.4606.71 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849406.jpg" />
+  <img src="Z:/picture/008/save_picture_849406.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Windows 10 1909 (18363.815) x64 Home + Pro + Enterprise (3in1) by Brux v.04.2020
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849364.jpg" />
+  <img src="Z:/picture/008/save_picture_849364.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Bat! Voyager 9.1.18.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849362.jpg" />
+  <img src="Z:/picture/008/save_picture_849362.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v6 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849360.jpg" />
+  <img src="Z:/picture/008/save_picture_849360.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 23.04.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849336.jpg" />
+  <img src="Z:/picture/008/save_picture_849336.jpg" />
 </div>
 
 

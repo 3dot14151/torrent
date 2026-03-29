@@ -1,3 +1,55 @@
+###  Публикация: 1538095   (664226) от 19.03.2022
+
+Без особого риска (1983) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудники одного из отделов МВД, старший инспектор уголовного розыска капитан Юрий Грановский, инспектор старший лейтенант Левон Аветисов и инспектор лейтенант Виктор Петров, готовятся к операции по задержанию опасного вооруженного преступника, которая пройдет в Крыму. Операция должна пройти без риска для отдыхающих. А тем временем дома у каждого накопилось много (   Читать дальше...   )Производство: СССР, Киностудия им. М. ГорькогоЖанр: Боевик, детективРежиссер: Самвел ГаспаровАктеры: Борис Невзоров, Александр Галибин, Ашот Меликджанян, Михаил Пуговкин, Ольга Гаспарова, Марина Тбилели, Борис Химичев, Михаил Кокшенов, Борис Гитин, Ольга АндроповаСубтитры: ОтсутствуютПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB149937D2852DEA83A46A8178A11DD9257CFF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603645   (661092) от 01.06.2017
+
+Радуга (1943) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм поставлен по одноименной повести Ванды Василевской и рассказывает о героической борьбе советских патриотов, жителей украинского села Нова Лебедивка, против гитлеровских оккупантов.Производство: СССР / Киевская киностудияЖанр: Драма, военныйРежиссер: Марк ДонскойАктеры: Нина Алисова, Наталия Ужвий, Валентина Ивашева, Елена Тяпкина, Ганс Клеринг, Николай Братерский, Антон Дунайский, Алик Летичевский, Анна Лисянская, Владимир ПономаревПродолжительность: 01:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3E1A9B355FE628BB662EB19A4017AD6477398C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225204   (660716) от 15.05.2018
 
 Продается медвежья шкура (1980) TVRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660716.jpg" />
+  <img src="Z:/picture/008/save_picture_660716.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660613.jpg" />
+  <img src="Z:/picture/008/save_picture_660613.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658797.jpg" />
+  <img src="Z:/picture/008/save_picture_658797.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657800.jpg" />
+  <img src="Z:/picture/008/save_picture_657800.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657729.jpg" />
+  <img src="Z:/picture/008/save_picture_657729.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657716.jpg" />
+  <img src="Z:/picture/008/save_picture_657716.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656872.jpg" />
+  <img src="Z:/picture/008/save_picture_656872.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656730.jpg" />
+  <img src="Z:/picture/008/save_picture_656730.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656590.jpg" />
+  <img src="Z:/picture/008/save_picture_656590.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656091.jpg" />
+  <img src="Z:/picture/008/save_picture_656091.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654906.jpg" />
+  <img src="Z:/picture/008/save_picture_654906.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654689.jpg" />
+  <img src="Z:/picture/008/save_picture_654689.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650297.jpg" />
+  <img src="Z:/picture/008/save_picture_650297.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650288.jpg" />
+  <img src="Z:/picture/008/save_picture_650288.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650280.jpg" />
+  <img src="Z:/picture/008/save_picture_650280.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650100.jpg" />
+  <img src="Z:/picture/008/save_picture_650100.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650097.jpg" />
+  <img src="Z:/picture/008/save_picture_650097.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649106.jpg" />
+  <img src="Z:/picture/008/save_picture_649106.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648962.jpg" />
+  <img src="Z:/picture/008/save_picture_648962.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648391.jpg" />
+  <img src="Z:/picture/008/save_picture_648391.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646595.jpg" />
+  <img src="Z:/picture/008/save_picture_646595.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646593.jpg" />
+  <img src="Z:/picture/008/save_picture_646593.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646419.jpg" />
+  <img src="Z:/picture/008/save_picture_646419.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646406.jpg" />
+  <img src="Z:/picture/008/save_picture_646406.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1637F8104C19037C9B599462A4C4BBC12F91D0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567997   (644938) от 08.06.2015
-
-Территория (1978) DVDRip
-
->>След.
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644938.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименного романа Олега Куваева. Управление треста "Северстрой" решает прикрыть территорию, где идут поиски уже ненужного олова. Директор Чинков не согласен с решением и предлагает своим партиям заняться разведкой золотоносного месторождения. В случае неудачи он потеряет все, но это его не пугает. В итоге на территории найдено золото.Жанр: Приключения, ДрамаРежиссер: Александр СуринАктеры: Донатас Банионис, Владимир Летенков, Юрий Шерстнёв, Евгений Герасимов, Нина Засухина, Виктор Адеев, Леонтий Полохов, Владимир Ломизов, Дмитрий Кузнецов (II), Николай Волков (III), Валентин Печников, Михаил Глузский, Николай Засухин, Александр Тавакай, Зоя ЧоодуПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A52F3BC1038876D7684A681E2FAA3E031940DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227523   (644732) от 27.05.2018
-
-Человек уходит за птицами (1975) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644732.jpg" />
-</div>
-
-
-###  Подробнее
-
-По летописям событий древнего времени. Юный поэт Фарух у птиц научился вольной песне, у народа - силе слова и надежде на лучшее будущее. Тернистый путь проходит поэт в поисках счастья и правды. Встретившись с жестокостью и несправедливостью, Фарух понимает, что ждать счастья бессмысленно. Он берет в руки меч и клянется бороться за справедливость и счастье своего (   Читать дальше...   )Производство: СССР, УзбекфильмЖанр: ДрамаРежиссер: Али ХамраевАктеры: Джахонгир (Джаник) Файзиев, Дилором Камбарова, Абдугани Саидов, Наргиз Авазова, Мелис Абзалов, Хикмат Латыпов, Бахтиер Ихтияров, Болот Бейшеналиев, Леонард Бабаханов, А. Атакулов, М. Атабаев, Шухрат Иргашев, Яхьё Файзуллаев, Джамал Хашимов, А. Муратова, Машраб Юнусов, Гульча (Гульбустон) Ташбаева.Продолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEE8A669A64E7EDAA7848BA151AAC0B90220475
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1297721   (603143) от 24.04.2019
+
+Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul-Leo [8:08]
+02. Shape Shifting [6:58]
+03. Lush Life (Intro) [2:27]
+04. Lush Life [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F71CA1F8AC2C7FFF6F11FC1BE9FBB510770C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297695   (603114) от 24.04.2019
+
+Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аскеза (4:10)
+02. Костры амбиций (5:46)
+03. Колкие нити (4:44)
+04. Дары моря иллюзий (4:26)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD9E7B9560BC96BE815A5F3CC353D89E3E01A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297694   (603111) от 24.04.2019
+
+Low Kick Collective - Тот кто ищет выход (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медоед (5:44)
+02. Динго (4:14)
+03. Кубическая комета ненависти проткнутая иглой усталости (5:49)Жанр: Dark Jazz, ExperimentalПродолжительность: 00:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F4952C936D112EC1C5CBFA02661DA12FFAC31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297847   (603101) от 24.04.2019
+
+Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment (6:00)
+02. Passages (5:58)
+03. Havana (8:31)
+04. Always (5:34)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B645CAD97FC2F43A9C11C2B3FE9D8DAF61084D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148808   (603002) от 08.07.2017
 
 Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +121,7 @@ Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603002.jpg" />
+  <img src="Z:/picture/008/save_picture_603002.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ David Grisman Quintet featuring Svend Asmussen - Svingin' With Svend (1988) Zebr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603001.jpg" />
+  <img src="Z:/picture/008/save_picture_603001.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Stan Kenton - Summer Of '51 (1987) Garland [FLAC|Lossless|tracks + .cue] <Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602999.jpg" />
+  <img src="Z:/picture/008/save_picture_602999.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Tim Garland - ReFocus (2020) Edition Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602996.jpg" />
+  <img src="Z:/picture/008/save_picture_602996.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - The First Ladies Of Swing (2002) K-tel Entertainment [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602990.jpg" />
+  <img src="Z:/picture/008/save_picture_602990.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Miles Davis - Antwerp Blues (1967) 1998, Megadisc [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602785.jpg" />
+  <img src="Z:/picture/008/save_picture_602785.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Tony Bennett - My Best To You (1982) Reissue 1995 [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602780.jpg" />
+  <img src="Z:/picture/008/save_picture_602780.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Louis Hayes And The Cannonball Legacy Band - Dreamin' Of Cannonball (2002) TCB R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602679.jpg" />
+  <img src="Z:/picture/008/save_picture_602679.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Carol Welsman - I Like Men: Reflections Of Miss Peggy Lee (2009) Welcar Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602585.jpg" />
+  <img src="Z:/picture/008/save_picture_602585.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602053.jpg" />
+  <img src="Z:/picture/008/save_picture_602053.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Budapest Ragtime Band - The Best Of (2001) 2CD, BRB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602048.jpg" />
+  <img src="Z:/picture/008/save_picture_602048.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Jazz Relax - Smooth Jazz Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602021.jpg" />
+  <img src="Z:/picture/008/save_picture_602021.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Parov Stelar - Moonlight Love Affair (2022) [FLAC|Lossless|image + .cue] <Nu Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602005.jpg" />
+  <img src="Z:/picture/008/save_picture_602005.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Dave Frishberg - Let's Eat Home (1990) Concord Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601922.jpg" />
+  <img src="Z:/picture/008/save_picture_601922.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Tubby Hayes Quartet - The Complete Tubby's Groove (1959) 2014, Master Jazz Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601921.jpg" />
+  <img src="Z:/picture/008/save_picture_601921.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Tia Fuller - Angelic Warrior (2012) Mack Avenue Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601920.jpg" />
+  <img src="Z:/picture/008/save_picture_601920.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Dead Frank - Coincidence (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601918.jpg" />
+  <img src="Z:/picture/008/save_picture_601918.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Dave Pike - Four Classic Albums (1961, 1962) 2CD, 2017, Avid Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601777.jpg" />
+  <img src="Z:/picture/008/save_picture_601777.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ Isao Suzuki & Tsuyoshi Yamamoto - Samba Club (1980) 2012, King Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601757.jpg" />
+  <img src="Z:/picture/008/save_picture_601757.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601638.jpg" />
+  <img src="Z:/picture/008/save_picture_601638.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Illinois Jacquet with Kenny Burrell - Desert Winds (2004) [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601355.jpg" />
+  <img src="Z:/picture/008/save_picture_601355.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ Andy LaVerne Trio - Bud's Beautiful (1996) 2010, SteepleChase [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601227.jpg" />
+  <img src="Z:/picture/008/save_picture_601227.jpg" />
 </div>
 
 
@@ -629,122 +744,6 @@ Andy LaVerne Trio - Bud's Beautiful (1996) 2010, SteepleChase [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D16CBDC77FC0A67E51CC8AF44A95FE21C94B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149359   (601225) от 10.07.2017
-
-Stan Kenton - New Concepts of Artistry in Rhythm (1952) 1989, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (This is an Orchestra!) [10:00]
-02. Portrait of a Count [03:17]
-03. Young Blood [03:15]
-04. Frank Speaking [03:14](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8E6B1B5B19934F894CD886C082210BD5B79FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149446   (601220) от 10.07.2017
-
-John Hicks, Cecil McBee, Elvin Jones - Power Trio (1991) BMG Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cousin Mary [06:37]
-02. After The Rain [08:10]
-03. “D” Bass-ic Blues [06:50]
-04. Duke's Place [09:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057BC4D8EF7203B4C6CAC9431586CA04BE105251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149328   (601168) от 10.07.2017
-
-Billy Cobham - Flight Time (1980) 2006, Inak [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Time [06:49]
-02. Antares [05:21]
-03. 6 Persimmons [06:47]
-04. Day Grace [04:45](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD55AD989FA5482D0D40420201744E599D788D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299137   (600855) от 30.04.2019
-
-Cindy Blackman - Arcane (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcane [5:19]
-02. Late Autumn [5:50]
-03. Dual Force [6:37]
-04. Incindyary [4:39](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF86BF71277CA1EB87C349DCC7B82F30A88773A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

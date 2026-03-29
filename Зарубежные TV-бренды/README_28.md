@@ -1,3 +1,107 @@
+###  Публикация: 1123932   (786063) от 09.04.2017
+
+Viasat History. Рим: Первая сверхдержава / Rome: The World's First Superpower (2010) SATRip (Серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786063.jpg" />
+</div>
+
+
+###  Подробнее
+
+3000 лет назад из небольшого племени вырос великий народ подчинивший мир своей воле. Он создал величайшую империю в истории человечества. Империю, что простиралась от Британии до Ближнего Востока. Она просуществовала тысячу лет и повлияла на тот мир, в котором живем мы с вами. Актер Ларри Ламб отправляется в прошлое, которое таится за мраморными памятниками, что (   Читать дальше...   )Телекомпания: Великобритания, 360Production Ltd and Group Entertainment Ltd for Channel 5Жанр: Документальный, историяРежиссер: Дэвид СтаркиПеревод: Одноголосый закадровый, профессиональный, "SDI Media"Продолжительность: 4X~00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD538A09851033586AD3CA8BA51693580C0B70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124247   (785892) от 10.04.2017
+
+NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Производство: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс ТовеллАктеры: Джордж Р. Робертсон, Дэн Дюран, Джилл Фраппье, Ванесса СмитПеревод: ДублированныйПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7ED8C4DC888788431D5487C0F7CD8EEB104F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124456   (785571) от 12.04.2017
+
+От колыбели до могилы / Cradle to Grave (2016) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CADAD2EC3B8CBF61369C11BA73E1BBFAD59DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124550   (785563) от 12.04.2017
+
+От колыбели до могилы / Cradle to Grave (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124794   (785558) от 12.04.2017
 
 PBS: Истории из королевского гардероба Люси Уорсли / Tales From The Royal Wardrobe with Lucy Worsley (2014) HDRip
@@ -6,7 +110,7 @@ PBS: Истории из королевского гардероба Люси У
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785558.jpg" />
+  <img src="Z:/picture/008/save_picture_785558.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Забытая инженерия / Abandoned Engineering (2016) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785494.jpg" />
+  <img src="Z:/picture/008/save_picture_785494.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785370.jpg" />
+  <img src="Z:/picture/008/save_picture_785370.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784603.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784473.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784459.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery. Законы акульего мира / The laws of Jaws (2018) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784192.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784181.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784180.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784032.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783746.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ History Channel: В изоляции. Монголия / Alone. Mongolia (2018) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782216.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782057.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781819.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ History Channel: В изоляции. Один шанс на двоих / Alone 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781788.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NG: Умные Крысы / Rat Genius  (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_781187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781187.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Animal Planet & BBC: Муравьи - убийцы /  Killer Ants (2002) TVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_781104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781104.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780926.jpg" />
+  <img src="Z:/picture/008/save_picture_780926.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780520.jpg" />
+  <img src="Z:/picture/008/save_picture_780520.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ History Channel: Китай. Тайны Запретного города / Secr
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780508.jpg" />
+  <img src="Z:/picture/008/save_picture_780508.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780220.jpg" />
+  <img src="Z:/picture/008/save_picture_780220.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779943.jpg" />
+  <img src="Z:/picture/008/save_picture_779943.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:776345BBD60079EFCBBFD89BCD8D45E8D52EED80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206677   (779880) от 22.02.2018
-
-History Channel: Убийца Зодиак: дело закрыто? / The Hunt for the Zodiac Killer (2017) HDTV [H.264/1080i-LQ] (сезон 1, серии 1-3) (обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779880.jpg" />
-</div>
-
-
-###  Подробнее
-
-О новом расследовании нераскрытого дела таинственного серийного убийцы по прозвищу Зодиак. Удастся ли прочитать его закодированные записки, в которых он зашифровал сведения о себе? Уже есть главный подозреваемый.Производство: США, Karga Seven Pictures for History Channel, A&E NetworkЖанр: Документальный, Реальное ТВПеревод: Двуголосый закадровый, профессиональныйПродолжительность: эпизоды по ~00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA05D24BDE78689FCFDB49FE8640A19CA3FAB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208892   (779623) от 24.02.2018
-
-NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте историю японского лука. Созданный более 1000 лет назад и бывший оружием самураев, он по-прежнему остается эффективным боевым средством.Производство: США, Attention! films / Parthenon EntertainmentЖанр: Документальный, история, религияРежиссер: Джон Вейт, Ян МарчПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E7397143E96BB7B4A7435EECEAFE9EB0B486AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209123   (779467) от 25.02.2018
-
-NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [H.264/720p-LQ] (Серии 1-2 из 2) [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_779467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство дикой природы Китая, от его снежных вершин до плотного тропического леса в низине, стало домом для множества разнообразных животных. Зрители увидят практически неизвестную, дикую природу в двух уникальных его регионах - в Тибете и в провинции Юньнань.Производство: Новая Зеландия, National Geographic Partners, LLC.Жанр: Документальный, фауна, флораРежиссер: Лорни ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:42:47+00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9EC25293BD0731E19D78411764C334CE27C706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209462   (779249) от 27.02.2018
-
-NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боб Пул, кинооператор, снимающий дикую природу, путешествует по суровому для жизни и живописному уголку Кении, чтобы снять на пленку редкие моменты из жизни самых быстрых в мире хищников.Производство: США, National GeographicЖанр: Документальный, фаунаРежиссер: Джеймс МэнфуллПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FE441D3BEBD510F4AAA6F94F9518295EBC2CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

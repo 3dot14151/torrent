@@ -1,3 +1,29 @@
+###  Публикация: 1253993   (377626) от 12.10.2018
+
+Клавдия Лукашевич | По морю житейскому (1908) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6466107B3CE5EC13508B99AB2A01FD304DEC5EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253994   (377526) от 12.10.2018
 
 Иван Белоусов (ред.) | Сборник первый (1909) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377526.jpg" />
+  <img src="Z:/picture/008/save_picture_377526.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377256.jpg" />
+  <img src="Z:/picture/005/save_picture_377256.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377144.jpg" />
+  <img src="Z:/picture/008/save_picture_377144.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377119.jpg" />
+  <img src="Z:/picture/008/save_picture_377119.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376249.jpg" />
+  <img src="Z:/picture/008/save_picture_376249.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376248.jpg" />
+  <img src="Z:/picture/008/save_picture_376248.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375552.jpg" />
+  <img src="Z:/picture/008/save_picture_375552.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375161.jpg" />
+  <img src="Z:/picture/008/save_picture_375161.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373869.jpg" />
+  <img src="Z:/picture/008/save_picture_373869.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373612.jpg" />
+  <img src="Z:/picture/008/save_picture_373612.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373549.jpg" />
+  <img src="Z:/picture/008/save_picture_373549.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373395.jpg" />
+  <img src="Z:/picture/008/save_picture_373395.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373374.jpg" />
+  <img src="Z:/picture/008/save_picture_373374.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373342.jpg" />
+  <img src="Z:/picture/008/save_picture_373342.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373341.jpg" />
+  <img src="Z:/picture/008/save_picture_373341.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373339.jpg" />
+  <img src="Z:/picture/008/save_picture_373339.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373332.jpg" />
+  <img src="Z:/picture/008/save_picture_373332.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373132.jpg" />
+  <img src="Z:/picture/008/save_picture_373132.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373113.jpg" />
+  <img src="Z:/picture/008/save_picture_373113.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373089.jpg" />
+  <img src="Z:/picture/008/save_picture_373089.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372882.jpg" />
+  <img src="Z:/picture/008/save_picture_372882.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ C.В. Михалков, А.С. Пушкин, Б.С. Житков, Шарль П�
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372880.jpg" />
+  <img src="Z:/picture/008/save_picture_372880.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372587.jpg" />
+  <img src="Z:/picture/008/save_picture_372587.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372555.jpg" />
+  <img src="Z:/picture/008/save_picture_372555.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372155.jpg" />
+  <img src="Z:/picture/008/save_picture_372155.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97213D5AF9188C99CDE830F0524598D70E5E5C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327717   (371862) от 26.09.2019
-
-Майк Барфилд | Испытай эту книгу… во имя науки. Потрясающие эксперименты и увлекательные проекты (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, созданная специально для юных исследователей. Ее можно и даже нужно рвать, резать, мять и разрисовывать! И все это – во имя науки!
-Ты сможешь создать своего Альберта Эйнштейна или Марию Кюри, объяснить оптическую иллюзию и сделать музыкальный инструмент, экспериментировать с громобойной хлопушкой и бумерангом, а также многое, многое другое!Жанр: Детская познавательная и развивающая литература, Зарубежные детские книгиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055896549EFD91F92D9399FD61914EC916DEF41D
 ```
 
 https://mybot314.ru/tekegram_catalog/

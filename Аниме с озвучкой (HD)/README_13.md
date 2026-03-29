@@ -1,3 +1,29 @@
+###  Публикация: 1173827   (137168) от 31.12.2017
+
+Houseki no Kuni / Land of the Lustrous / Сказания о самоцветах [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что в далёком будущем население Земли всё-таки обретёт вечную жизнь, бессмертие. Но только, по своей сути, эти бессмертные существа будут напоминать людей внешне, но не являться ими в действительности. Вместо человеческой цивилизации развернётся цивилизация Самоцветов. Но на соседних планетах и спутниках жизнь тоже начала кипеть ключом. Например, (   Читать дальше...   )Жанр: приключения, фэнтези, сэйнэнРежиссер: Кёгоку ТакахикоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174714   (137155) от 31.12.2017
 
 Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что тебе нужно [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +32,7 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137155.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137138.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137005.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136029.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124444.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122429.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61064.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61025.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54859.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52253.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43667.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36299.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34014.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33884.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33883.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33854.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19386.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1336.jpg" />
 </div>
 
 

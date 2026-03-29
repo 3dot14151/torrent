@@ -6,7 +6,7 @@ Avira Antivirus Free 15.0.17.273 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813116.jpg" />
+  <img src="Z:/picture/008/save_picture_813116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UC Browser 5.6.11651.1013 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813112.jpg" />
+  <img src="Z:/picture/008/save_picture_813112.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Autodesk AutoCAD MAP 3D 2017 N009AE (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813106.jpg" />
+  <img src="Z:/picture/008/save_picture_813106.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autodesk AutoCAD Plant 3D 2017 I052.02.r2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813104.jpg" />
+  <img src="Z:/picture/008/save_picture_813104.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TeamViewer 13.0.6447 RePack (& Portable) by elchupacabra (7.01.2018) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813062.jpg" />
+  <img src="Z:/picture/008/save_picture_813062.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BELOFF 2018.1 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813056.jpg" />
+  <img src="Z:/picture/008/save_picture_813056.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adguard Premium 6.2.437.2171 RePack by elchupacabra (7.01.2018) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813054.jpg" />
+  <img src="Z:/picture/008/save_picture_813054.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stellarium 0.15.2 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813047.jpg" />
+  <img src="Z:/picture/008/save_picture_813047.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ LibreOffice 5.3.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813045.jpg" />
+  <img src="Z:/picture/008/save_picture_813045.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MKVToolNix 10.0.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813031.jpg" />
+  <img src="Z:/picture/008/save_picture_813031.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Advanced SystemCare Pro 13.5.0.264 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812965.jpg" />
+  <img src="Z:/picture/008/save_picture_812965.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ACDSee Ultimate 9.2 Build 648 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812964.jpg" />
+  <img src="Z:/picture/008/save_picture_812964.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ K-Lite Codec Pack 12.1.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812950.jpg" />
+  <img src="Z:/picture/008/save_picture_812950.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Debut Video Capture Pro 4.00 RePack by 78Sergey
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812890.jpg" />
+  <img src="Z:/picture/008/save_picture_812890.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Acronis True Image 2016 19.0 Build 6559 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812800.jpg" />
+  <img src="Z:/picture/008/save_picture_812800.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Zoner Photo Studio Professional 12.0.1.8 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_812783.jpg" />
+  <img src="Z:/picture/009/save_picture_812783.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Free Studio 6.6.35.323 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812760.jpg" />
+  <img src="Z:/picture/008/save_picture_812760.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Razer Cortex 8.0.104.420 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812757.jpg" />
+  <img src="Z:/picture/008/save_picture_812757.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Cumulative Update KB4016636 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812751.jpg" />
+  <img src="Z:/picture/008/save_picture_812751.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ PDF Compressor Pro 4.0 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812700.jpg" />
+  <img src="Z:/picture/008/save_picture_812700.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ HomeWiki 1.0.2 Portable [Ru/En] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812687.jpg" />
+  <img src="Z:/picture/008/save_picture_812687.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Gtopala SIW (System Information for Windows) 2017 7.1.0323 Technician Portable [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812685.jpg" />
+  <img src="Z:/picture/008/save_picture_812685.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AOMEI OneKey Recovery 1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812508.jpg" />
+  <img src="Z:/picture/008/save_picture_812508.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10049 (x86, x64) (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812499.jpg" />
+  <img src="Z:/picture/008/save_picture_812499.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Windows 10 Core Technical Preview 10.0.10049 (x86, x64) (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812450.jpg" />
+  <img src="Z:/picture/008/save_picture_812450.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10049 (x86, x64) (esd) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812444.jpg" />
+  <img src="Z:/picture/008/save_picture_812444.jpg" />
 </div>
 
 

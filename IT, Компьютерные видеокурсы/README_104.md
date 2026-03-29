@@ -1,3 +1,138 @@
+###  Публикация: 1691825   (123142) от 13.01.2024
+
+SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apache Spark является ключевым навыком в области данных - вот как вы можете доказать, что владеете им!
+Изучите Apache Spark с нуля и продемонстрируйте свои знания с помощью сертификации Databricks Associate Developer для Apache Spark. Этот курс превратит вас в профессионала PySpark и подготовит к успешной сдаче популярной сертификации Databricks Spark.
+Присоединяйтесь (   Читать дальше...   )Производство: SparkCertCourseЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 15:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657B94D5F6194AF9482BAD52014DB5CCA233B3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691963   (123018) от 14.01.2024
+
+Евгений Паромов | FSD - полный курс (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе собран весь мой опыт работы с FSD, best practises, архитектурные принципы, которые лежат в основе и много примеров разной сложности. Начнём с базовых абстрактных понятий, закончим конкретными решениями задач на самых популярных технологиях.
+Что такое FSD?Это стандартизированный набор архитектурных практик, которые позволяют:
+✅Ускорить разработку
+✅Упростить (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DC510C3D55EC3B06433007981D217979A97E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692062   (123016) от 14.01.2024
+
+Онлайн школа RealManual, Василий Егоров | Kubernetes RKE2 (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123016.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы научитесь разворачивать k8s и его компоненты, собирать шаблоны Proxmox, пользоваться Cloud-init, балансировать трафик с помощью Traefik, хранить данные в NFS и различать RKE2 и RKE. Обучение будет проходить на реальных кейсах, без лишней теории, и вы узнаете множество других интересных твиков.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691859   (123015) от 14.01.2024
+
+Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого этот буткемп? Опытные разработчики желающие перейти на Rust.Изучите язык будущего. Ваше время ценно (буквально, $148,688/год). Изучайте Rust БЫСТРО с помощью буткемпа, вместо того чтобы копаться в ресурсах низкого качества. Студенты/Выпускники в поисках работы. Изучение Rust - отличное дополнение к резюме. Выделитесь среди других кандидатов. Станьте компетентным (   Читать дальше...   )Производство: Let's Get RustyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 09:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691905   (123014) от 14.01.2024
+
+frontcat1 | Грокаем собеседования. Frontend developer (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123014.jpg" />
+</div>
+
+
+###  Подробнее
+
+А как узнать что уже можно искать работу? Никак. Ваш мозг будет шептать вам: давай еще немного поучимся, ты еще плохо знаешь. Ведь так страшно идти в новое. Я сама прошла через это. Если вы понимаете асинхронность. Знаете react/vue/angular, можете решать задачи на codewar хотя бы 7 kyu и у вас есть пет проект сложнее калькулятора, который написан вами. Значит вы (   Читать дальше...   )Производство: frontcat1Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 15:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5961035E352E3065C0BAF4B469F184E62E100A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691907   (123010) от 14.01.2024
 
 Stepik, Глеб Учитель | Проектирование архитектуры и интеграций (API / брокеры) сервисов (2023) WEB-DL [RU]
@@ -6,7 +141,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123010.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123005.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122992.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122984.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122692.jpg" />
 </div>
 
 
@@ -143,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122669.jpg" />
 </div>
 
 
@@ -171,7 +306,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122399.jpg" />
 </div>
 
 
@@ -200,7 +335,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122299.jpg" />
 </div>
 
 
@@ -227,7 +362,7 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122296.jpg" />
 </div>
 
 
@@ -256,7 +391,7 @@ Net Ninja | TypeScript Masterclass (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122257.jpg" />
 </div>
 
 
@@ -284,7 +419,7 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122201.jpg" />
 </div>
 
 
@@ -310,7 +445,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -339,7 +474,7 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121968.jpg" />
 </div>
 
 
@@ -365,7 +500,7 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121934.jpg" />
 </div>
 
 
@@ -391,7 +526,7 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121793.jpg" />
 </div>
 
 
@@ -417,7 +552,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -443,7 +578,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121640.jpg" />
 </div>
 
 
@@ -471,7 +606,7 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121630.jpg" />
 </div>
 
 
@@ -499,7 +634,7 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121609.jpg" />
 </div>
 
 
@@ -525,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -551,7 +686,7 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121367.jpg" />
 </div>
 
 
@@ -563,139 +698,6 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693957   (121357) от 23.01.2024
-
-Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121357.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ускоренная разработка игр: JavaScript и искусственный интеллект" была создана, чтобы научить любого человека, независимо от наличия опыта в программировании, основам HTML5 + CSS и JavaScript с нуля, используя графику и разработку игр в качестве платформы для обучения. И, имея на руках основы, мы отправляемся в одно из самых увлекательных путешествий в (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 45:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A2693637F0925E2280E79E85DD086A06C51722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694211   (121241) от 24.01.2024
-
-OTUS , Алексей Кулиничев, Роман Помазанов, Иван Бабенко и др. | Дизайн сетей ЦОД (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс разработан для тех, кто знает сетевые технологии и хочет понять КАК строить сети современных ЦОД.
-Этот курс будет полезен:
-✅Администраторам сетей
-✅Сетевым инженерам(   Читать дальше...   )Производство: OTUSЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 26:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEABAB241CB7A3F5965BB7286C81EEB357D61B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694672   (120918) от 26.01.2024
-
-Patreon, Timur Shemsedinov | Технологический стек Node.js (2022-2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объем материала: 20 часов лекций, еженедельно 2 часа семинары в течении года, репозитории с примерами кода. Чем это курс не является: это не чтение документации, не курс по фреймворкам, не курс по Metarhia, не повторение старого курса, не лайвкодинг и не мастеркласс, не стрим. Новый курс - это максимально сконцентрированная информация и практические задачи по разработке (   Читать дальше...   )Производство: PatreonЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 207:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEFEA76812348FFECF940B285B8E61FC619E04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694834   (120915) от 26.01.2024
-
-Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на полный курс по CSS, где вы выучите все основы CSS и выполните множество практических упражнений. Этот курс создан для того, чтобы вы уверенно владели стилями и могли превратить свои веб приложения в настоящие произведения искусства. Вы начнете с основ CSS, научитесь  применять стили к разным элементам и разберетесь с тем, как создать адаптивный (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45028430A5505E5E058242FBCD085BB6BC4A8574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694840   (120888) от 26.01.2024
-
-Специалист, Светлана Казакова | Правила организации данных в таблицах Excel (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правила организации данных в таблицах ExcelПроизводство: СпециалистЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 02:31:10Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF859413FAE11BF8A2BF59C85591F9908C719C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

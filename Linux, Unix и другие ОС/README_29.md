@@ -1,3 +1,57 @@
+###  Публикация: 589187   (151072) от 14.12.2012
+
+Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен релиз Univention Corporate Server 3.1, промышленного дистрибутива, основанного на Debian GNU/Linux 6 (Squeeze) и ориентированного на обеспечение поддержки корпоративной IT-инфраструктуры. Для установки задействован собственный инсталлятор, оптимизированный для быстрого развёртывания готовых сервисов. Для локального и централизованного администрирования используется специальный web-интерфейс. Для управления конфигурацией подготовлен инструментарий Univention Configuration Registry, позволяющий через наглядный интерфейс генерировать файлы конфигурации для разных сервисов и программ.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271351   (149194) от 23.12.2018
+
+CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
+
+Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B773FF440F069EEA4BA55AFA932573EACF1DDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434666   (148972) от 25.12.2020
 
 Интернет Контроль Сервер 8.0.1 [x86, amd64] 1xDVD
@@ -6,7 +60,7 @@
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148972.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ KX Studio 14.04.2 (Мультимедийная рабочая станция) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148677.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ AV Linux 6.0.4 (Мультимедийная рабочая станция на 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148299.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146478.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145189.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142051.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141312.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141066.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140811.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140357.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140316.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140146.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140033.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138644.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137494.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137430.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136798.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ IDA Pro 7.7 + IDA Pro 8.3 [x86_64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133579.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ DaVinci Resolve Studio for Linux 17.4.2 Build 9 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129770.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ Ctlos Linux Xfce 2.2.1 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129040.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ Linux Mint Debian Edition 7 Gigi (LMDE 7) [64-bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128866.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ Ubuntu ServerPack 18.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128015.jpg" />
 </div>
 
 
@@ -598,7 +652,7 @@ Ubuntu ServerPack 20.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128013.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126986.jpg" />
 </div>
 
 
@@ -638,58 +692,6 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1C20421F15D96B64CEB64D04FD141B6D114569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634032   (126812) от 21.12.2023
-
-IntelliJ IDEA Ultimate 2023.3.2 [х64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126812.jpg" />
-</div>
-
-
-###  Подробнее
-
-IntelliJ IDEA – это ведущая среда быстрой разработки на языке Java. IntelliJ IDEA представляет собой высокотехнологичный комплекс тесно интегрированных инструментов программирования, включающий интеллектуальный редактор исходных текстов с развитыми средствами автоматизации, мощные инструменты рефакторинга кода, встроенную поддержку технологий J2EE, механизмы интеграции (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766A7033CD37B9D08EE93E58516C3E200EAE3E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634090   (126705) от 22.12.2023
-
-WebStorm 2023.3.2 [x64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126705.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebStorm - Легкий, но мощный IDE, прекрасно оборудованный для комплексной разработки на стороне клиента и на стороне сервера разработки с Node.js. WebStorm поможет вам писать код лучше благодаря умному завершению кода, на лету обнаружения ошибок, мощной навигации и рефакторингу. Поддержка новейших технологий IDE обеспечивает поддержку первого класса для JavaScript, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

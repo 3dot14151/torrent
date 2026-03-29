@@ -1,3 +1,32 @@
+###  Публикация: 1140541   (655893) от 06.06.2017
+
+P.R. Computer - P.R. Computer (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Modern Classical, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Tempered Computer (3:29)
+02. Arctic Light (3:23)
+03. The Pendulum (3:02)
+04. Chase (3:23)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Modern Classical, ExperimentalПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DE319809FB209B951CBB51FBBAA7696EB10C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904110   (655390) от 02.06.2015
 
 Simply Red - Big Love (2015) [MP3|320 кб/с]<Pop, R&B, Nu Soul>
@@ -6,7 +35,7 @@ Simply Red - Big Love (2015) [MP3|320 кб/с]<Pop, R&B, Nu Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655390.jpg" />
+  <img src="Z:/picture/008/save_picture_655390.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pink - The Hits (2009) [MP3|320 kbps]<Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655121.jpg" />
+  <img src="Z:/picture/005/save_picture_655121.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Jonzun Crew - Lost In Space (1983) LP [MP3|320 Kbps] <Electronic, Electro>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654923.jpg" />
+  <img src="Z:/picture/008/save_picture_654923.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Glenn Frey - After Hours (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, Piano, V
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654657.jpg" />
+  <img src="Z:/picture/008/save_picture_654657.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Toto Cutugno - Toto Cutugno - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654131.jpg" />
+  <img src="Z:/picture/008/save_picture_654131.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ VA - Disco De Ouro Vol.20 (2018) [MP3|320 Kbps] <Pop, Ligeira, Sertanejo>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653872.jpg" />
+  <img src="Z:/picture/008/save_picture_653872.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ VA - Die Hit Giganten - Best of NDW (2018) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653776.jpg" />
+  <img src="Z:/picture/008/save_picture_653776.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Katy Perry - Witness (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653748.jpg" />
+  <img src="Z:/picture/008/save_picture_653748.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652868.jpg" />
+  <img src="Z:/picture/008/save_picture_652868.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652802.jpg" />
+  <img src="Z:/picture/008/save_picture_652802.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ VA - Classic Pop Ballads (2019) [MP3|320 Kbps] <Pop, Downtempo, SoftRock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652488.jpg" />
+  <img src="Z:/picture/008/save_picture_652488.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ VA - NRJ Hit Music Only (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652482.jpg" />
+  <img src="Z:/picture/008/save_picture_652482.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Will Young - 85% Proof (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651743.jpg" />
+  <img src="Z:/picture/008/save_picture_651743.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ VA - Fashion Beats 2019.1 (2019) [MP3|320 Kbps] <Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650692.jpg" />
+  <img src="Z:/picture/008/save_picture_650692.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ VA - Mega Hits Spring 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650594.jpg" />
+  <img src="Z:/picture/008/save_picture_650594.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ VA - Dancefloor Annual (2019) Explicit [MP3|320 Kbps] <Electropop, Dance, Future
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648848.jpg" />
+  <img src="Z:/picture/008/save_picture_648848.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ VA - Après Ski Top 100 (2019) 4CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648746.jpg" />
+  <img src="Z:/picture/008/save_picture_648746.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Barbra Streisand - I Can Get It for You Wholesale (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648741.jpg" />
+  <img src="Z:/picture/008/save_picture_648741.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648628.jpg" />
+  <img src="Z:/picture/008/save_picture_648628.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Beppe Cantarelli - Confusione (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648533.jpg" />
+  <img src="Z:/picture/008/save_picture_648533.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Sharon Corr - Dream Of You (2010) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647919.jpg" />
+  <img src="Z:/picture/008/save_picture_647919.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Barbra Streisand - The Essential (2CD) (2002) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647619.jpg" />
+  <img src="Z:/picture/008/save_picture_647619.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647529.jpg" />
+  <img src="Z:/picture/008/save_picture_647529.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647397.jpg" />
+  <img src="Z:/picture/008/save_picture_647397.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647147.jpg" />
+  <img src="Z:/picture/008/save_picture_647147.jpg" />
 </div>
 
 
@@ -730,41 +759,6 @@ Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13306F1CB388651C3B0C310D5FCE42A9FA244C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517758   (646738) от 01.07.2012
-
-Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646738.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rolling In The Deep (03:49)
-2. Rumor Has It (03:43)
-3. Turning Tabels (04:10)
-4. Don't You Remember (04:03)
-5. Set Fire To The Rain (04:01)
-6. He Won't Go (04:37)
-7. Take It All (03:48)
-8. I'll Be Waiting (04:01)
-9. One And Only (05:48)
-10. Lovesong (05:16)(   Читать дальше...   )Жанр: POPПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
 ```
 
 https://mybot314.ru/tekegram_catalog/

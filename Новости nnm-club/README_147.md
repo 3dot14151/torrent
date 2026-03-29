@@ -1,3 +1,165 @@
+###  Публикация: 1048167   (547088) от 01.09.2016
+
+Проекты - VideoHive - Colorful Ink Slideshow - 17094960 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу.
+Шаблон прост в настройке. Имеет легкую замену цвета.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF85D2AE228151E6F3BAD5A835EB11507840DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047947   (547049) от 01.09.2016
+
+Livelock (2016) [Ru/Multi] (1.0 Build 24994/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Livelock — многопользовательский аркадный шутер, где вы в одиночку или с друзьями должны положить конец бесконечной войне между машинами. В роли одного из Ведущих интеллектов вы должны открыть Эдем и оживить человечество. На борьбу с машинами отправится один из роботов с человеческим сознанием — Хекс, Авангард или Катализатор.Тип издания: RepackРазработчик: Tuque GamesЖанр: Arcade (Top-down), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FB0864513BC0E15A07C0ADF557B937007A2AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048086   (547041) от 01.09.2016
+
+Полтора шпиона / Central Intelligence (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547041.jpg" />
+</div>
+
+
+###  Подробнее
+
+От лайка в соцсети до спасения мира — один шаг. Сегодня ты френдишь бывшего одноклассника, а завтра — он тащит тебя под пули. Кто ж знал, что заядлый любитель пончиков превратится в похожего на скалу супершпиона.Производство: США, New Line Cinema, Bluegrass Films, Principato-Young EntertainmentЖанр: Боевик, Комедия, КриминалРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Кевин Харт, Эми Райан, Даниэль Николет, Джейсон Бейтман, Аарон Пол, Райан Хансен, Тим Гриффин, Тимоти Джон Смит, Сион КелепиПеревод: Дублированный (iTunes)Продолжительность: 01:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF01328FF9F1E9C89B6AEAD2D289F041045AFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238325   (546906) от 29.07.2018
+
+Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybrid x86 & x64 (от 28.07.2018) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
+Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD74B96B7E9E8127899E428C7192D52D066FD53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014775   (546902) от 29.07.2018
+
+Подшивка журналов | BSD Magazine [+ Specials] (2008-2018) [PDF] [En] [Обновлено 22.07.2018]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546902.jpg" />
+</div>
+
+
+###  Подробнее
+
+BSD Magazine - проект, посвященный BSD и решениям с открытым исходным кодом, ориентированный как на начинающих, так и опытных пользователей. В журнале публикуют новости и профессиональную информацию о BSD в мире, в том числе и статьи по программированию, инструкции, и многое другое.
+Чтобы удовлетворить читателей, на страницах номеров представлены советы как для начинающих, (   Читать дальше...   )Жанр: BSDФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB17D4749A67E783AA7A2182A7096ACB9D6FB3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310466   (546645) от 24.06.2019
+
+Сергей Лукьяненко | Порог (2019) [MP3]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космоопера «Порог» продолжит традиции раннего творчества писателя, его романов «Звезды – холодные игрушки» и «Линия грез».
+
+Шесть галактических цивилизаций.
+Пять погибших планет.(   Читать дальше...   )Жанр: Космическая фантастика, научная фантастикаПродолжительность: 12:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D9C334FA41278C2A1EDE6B03AE0CBB4C23334E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048310   (546167) от 02.09.2016
 
 Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] (1.0/upd8/dlc) Rip xatab [The Complete Edition]
@@ -6,7 +168,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546167.jpg" />
+  <img src="Z:/picture/008/save_picture_546167.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546157.jpg" />
+  <img src="Z:/picture/008/save_picture_546157.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545914.jpg" />
+  <img src="Z:/picture/008/save_picture_545914.jpg" />
 </div>
 
 
@@ -86,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545689.jpg" />
+  <img src="Z:/picture/008/save_picture_545689.jpg" />
 </div>
 
 
@@ -112,7 +274,7 @@ Acronis True Image Home 2014 17 Build 5560 RePack by KpoJIuK [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545352.jpg" />
+  <img src="Z:/picture/008/save_picture_545352.jpg" />
 </div>
 
 
@@ -138,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545269.jpg" />
+  <img src="Z:/picture/008/save_picture_545269.jpg" />
 </div>
 
 
@@ -164,7 +326,7 @@ Re-Loader Activator 3.0 Beta 3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545264.jpg" />
+  <img src="Z:/picture/008/save_picture_545264.jpg" />
 </div>
 
 
@@ -191,7 +353,7 @@ The Sinking City (2019) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545054.jpg" />
+  <img src="Z:/picture/008/save_picture_545054.jpg" />
 </div>
 
 
@@ -217,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545049.jpg" />
+  <img src="Z:/picture/008/save_picture_545049.jpg" />
 </div>
 
 
@@ -243,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544828.jpg" />
+  <img src="Z:/picture/008/save_picture_544828.jpg" />
 </div>
 
 
@@ -269,7 +431,7 @@ Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.4158) Repack GAMER
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544255.jpg" />
+  <img src="Z:/picture/008/save_picture_544255.jpg" />
 </div>
 
 
@@ -295,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544250.jpg" />
+  <img src="Z:/picture/008/save_picture_544250.jpg" />
 </div>
 
 
@@ -321,7 +483,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.06.26 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544086.jpg" />
+  <img src="Z:/picture/008/save_picture_544086.jpg" />
 </div>
 
 
@@ -347,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543962.jpg" />
+  <img src="Z:/picture/008/save_picture_543962.jpg" />
 </div>
 
 
@@ -375,7 +537,7 @@ Corel Painter 2017 16.0.0.400 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543364.jpg" />
+  <img src="Z:/picture/008/save_picture_543364.jpg" />
 </div>
 
 
@@ -401,7 +563,7 @@ The Sinking City (2019) [Ru/Multi] (3709.2/dlc) Repack R.G. Catalyst [Necronomic
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543173.jpg" />
+  <img src="Z:/picture/008/save_picture_543173.jpg" />
 </div>
 
 
@@ -427,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542969.jpg" />
+  <img src="Z:/picture/008/save_picture_542969.jpg" />
 </div>
 
 
@@ -453,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542234.jpg" />
+  <img src="Z:/picture/008/save_picture_542234.jpg" />
 </div>
 
 
@@ -479,7 +641,7 @@ KMSAuto Net 2015 1.3.7 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542232.jpg" />
+  <img src="Z:/picture/008/save_picture_542232.jpg" />
 </div>
 
 
@@ -507,7 +669,7 @@ Adobe Muse CC 2015.0.2.4 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542230.jpg" />
+  <img src="Z:/picture/008/save_picture_542230.jpg" />
 </div>
 
 
@@ -518,163 +680,6 @@ Adobe Muse CC – визуальный конструктор сайтов, фу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05AB4930D27BA9D02A5129A28B3D8418E2D2DF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925086   (542207) от 05.08.2015
-
-Зона 51 / Area 51 (2015) WEB-DLRip [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зона 51 - это наверное самая таинственная и загадочная правительственная организация, занимающаяся изучением объектов внеземного происхождения. Степень засекреченности - невероятно высока и даже само ее существование всегда отрицалось властными структурами США.
-Однако ничто тайное не может таковым оставаться всегда, и вот четверо друзей: Крис, Пол, Роб и Натали, (   Читать дальше...   )Производство: США / Aramid Entertainment Fund, Blumhouse Productions, IM GlobalЖанр: ужасы, фантастика, триллерРежиссер: Орен ПелиАктеры: Рейд Уорнер, Дэррин Брагг, Бенжамин Ровнер, Елена Ник, Рой Абрамсон, Фрэнк Новак, Гленн Кэмпбелл, Conception West, Джеймс Декер, Патрик СалливанПеревод: авторский (одноголосый закадровый)Озвучка / Автор перевода: М.ЯроцкийСубтитры: отсутствуютПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C767679FC8BFE24A3720440D4C3E9FB4288D797F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885266   (542204) от 05.08.2015
-
-Сборник для Android'a by ProGmerVS v.15.4 build 28 [Ru/En] (Авторская раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы купили себе новенький планшет?! Или наконец-то поняли что смартфон за тридцать тысяч предназначен чтоб не только оправлять смс-ки по WhatsApp и делать селфи в Instargam?! Но даже эти приложения нужно сначала установить. А как это сделать если вы впервые узнали что такое Android и на что он способен и к тому же у Вас нет Google аккаунта?! В официальном магазине (   Читать дальше...   )Поддерживаемая ОС: OS Android 2.1+ для всех приложенийЯзык интерфейса: RU/EN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3859DFAF1C8454D57E784482534EDCAF2B9603BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230126   (541865) от 03.08.2018
-
-WPI x86-x64 by OVGorskiy® 06.2018 1DVD [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет программ с "тихой" установкой, помещенных в оболочку установщика программ Windows Post-Install Wizard (WPI), программы разделены на категории и весь процесс установки и регистрации проходит полностью в автоматическом режиме. Вам стоит только выбрать необходимые программы и запустить установку. Все программы в сборке, имеют краткое описание. Большинство (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E8CF185EBDA2FEE05BFBDA88C0EC5AE9428938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670119   (541664) от 02.09.2013
-
-Настоящая кровь / True Blood (Сезон 6 полный (10)) (2013) WEB-DL 720p (Кубик в Кубе) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541664.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в небольшом городке в пригороде Нового Орлеана. С тех пор, как японцы изобрели синтетическую кровь «True Blood», у вампиров отпала необходимость убивать простых смертных. Два года назад вампиры покинули свои гробы и официально заявили о своих правах. Но как водится, не все люди оказались готовы к этому, и не все вампиры были рады отказаться (   Читать дальше...   )Производство: США, НВОЖанр: Фэнтези, триллер, драмаРежиссер: Майкл Леманн, Скотт Уинант, Даниэль МинаханВ ролях: Анна Пакуин, Стивен Мойер, Сэм Траммелл, Райан Квантен, Рутина Уэсли, Кристофер Бауэр, Нелсан Эллис, Джим Пэррак, Кэрри Престон, Александр Скарсгард и др.Перевод: Профессиональный двухголосый закадровый - Кубик в КубеПродолжительность: ~ 60:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670118   (541663) от 02.09.2013
-
-Настоящая кровь / True Blood (Сезон 6 полный (10)) (2013) WEB-DLRip (Кубик в Кубе) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541663.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в небольшом городке в пригороде Нового Орлеана. С тех пор, как японцы изобрели синтетическую кровь «True Blood», у вампиров отпала необходимость убивать простых смертных. Два года назад вампиры покинули свои гробы и официально заявили о своих правах. Но как водится, не все люди оказались готовы к этому, и не все вампиры были рады отказаться (   Читать дальше...   )Производство: США, НВОЖанр: Фэнтези, триллер, драмаРежиссер: Майкл Леманн, Скотт Уинант, Даниэль МинаханПеревод: Профессиональный двухголосый закадровый - Кубик в КубеПродолжительность: ~ 60:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817818   (540894) от 03.09.2014
-
-Как приручить дракона 2 / How to Train Your Dragon 2 (2014) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540894.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США, DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаАктеры: Джей Барушель. Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер  Кристен Уиг, Джимон ХонсуПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893C868A0F9537B7F890B17027151040B5EBC817
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1045219   (561262) от 22.08.2016
+
+Соседи. На тропе войны 2 / Neighbors 2: Sorority Rising  (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561262.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз в дом по соседству с Маком и Келли въезжает университетский женский клуб. Чтобы разобраться с новыми соседями, которые не дают им покоя, Мак и Келли решают обратиться за помощью к их бывшему врагу - Тедди Сандерсу.Производство: СШАЖанр: комедияРежиссер: Николас СтоллерАктеры: Сет Роген, Зак Эфрон, Роуз Бирн, Хлоя Грейс Морец, Айк Баринхолц, Кирси Клемонс, Дэйв Франко, Джеррод Кармайкл, Кристофер Минц-Плассе, Бини Фелдштейн, Клара Мамет, АквафинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F2A47A3BA88A69DD038EF42A764A9BB196856F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153057   (561061) от 25.07.2017
+
+Меч короля Артура / King Arthur: Legend of the Sword (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой Артур живёт на задворках Лондиниума вместе со своей бандой. Он и понятия не имел о своём королевском происхождении, пока однажды не взял в руки меч Эскалибур. Меч начинает менять Артура. В результате он присоединяется к сопротивлению и таинственной молодой девушке по имени Гвиневра. Ему предстоит научиться понимать магическое оружие, которым он овладел, столкнуться (   Читать дальше...   )Производство: США, Warner Bros., Village Roadshow Pictures, Weed Road PicturesЖанр: Боевик, Приключения, Драма, ФэнтезиРежиссер: Гай РичиАктеры: Чарли Ханнэм, Астрид Берже-Фрисби, Джуд Лоу, Джимон Хонсу, Эрик Бана, Эйдан Гиллен, Фредди Фокс, Крэйг МакГинли, Том Ву, Кингсли Бен-АдирПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC0D5A40F9FDB571DEB2D00B4F94A00B8CCDCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153058   (561052) от 25.07.2017
+
+Во всем виноват енот / Wakefield (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говард Уэйкфилд, преуспевающий юрист, верный муж, заботливый отец двух дочерей, однажды круто изменил свою жизнь. Это произошло внезапно, когда он подходил к родному роскошному гнездышку в пригороде Нью-Йорка. Погнавшись за наглым енотом, сидевшим у него на пути, Уэйкфилд оказался на чердаке заброшенного гаража, откуда были видны светящиеся окна его гостиной. Накрыт (   Читать дальше...   )Производство: США, Mockingbird Pictures, Dominion PicturesЖанр: ДрамаРежиссер: Робин СуикордАктеры: Брайан Крэнстон, Дженнифер Гарнер, Йен Энтони Дэйл, Беверли Д’Анджело, Джейсон О’Мара, Пиппа Беннетт-Уорнер, Эллери Спрейберри, Моника Лосон, Виктория Бруно, Фредерик Кив ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28527C709770271551E1E03CA1A20153CF0060A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235467   (560143) от 11.07.2018
+
+Неповиновение / Disobedience  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_560143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина возвращается в свой ортодоксальный еврейский дом после смерти раввина, своего отца. Общественное возмущение вызывает интерес, возникший у нее к подруге детства.Производство: Великобритания, Ирландия, США / Braven Films, Element Pictures, Film 4, Stage 6 FilmsЖанр: драма, мелодрамаРежиссер: Себастьян ЛелиоАктеры: Рэйчел Вайс, Рэйчел МакАдамс, Алессандро Нивола, Энтон Лессер, Аллан Кордунер, Николас Вудесон, Дэвид Флишман, Стив Ферст, Тревор Аллан Дейвис, Софиа Браун, Бернис СтиджерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58952C219D85969E0600ED4025FE346B7AC58BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153065   (559549) от 26.07.2017
 
 Грейсфилд / The Gracefield Incident (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559549.jpg" />
+  <img src="Z:/picture/008/save_picture_559549.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559437.jpg" />
+  <img src="Z:/picture/008/save_picture_559437.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558820.jpg" />
+  <img src="Z:/picture/008/save_picture_558820.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558534.jpg" />
+  <img src="Z:/picture/008/save_picture_558534.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558513.jpg" />
+  <img src="Z:/picture/008/save_picture_558513.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556663.jpg" />
+  <img src="Z:/picture/008/save_picture_556663.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554617.jpg" />
+  <img src="Z:/picture/008/save_picture_554617.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553572.jpg" />
+  <img src="Z:/picture/008/save_picture_553572.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553568.jpg" />
+  <img src="Z:/picture/008/save_picture_553568.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550881.jpg" />
+  <img src="Z:/picture/008/save_picture_550881.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550790.jpg" />
+  <img src="Z:/picture/008/save_picture_550790.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550736.jpg" />
+  <img src="Z:/picture/008/save_picture_550736.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549888.jpg" />
+  <img src="Z:/picture/008/save_picture_549888.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548710.jpg" />
+  <img src="Z:/picture/008/save_picture_548710.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548039.jpg" />
+  <img src="Z:/picture/008/save_picture_548039.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547991.jpg" />
+  <img src="Z:/picture/008/save_picture_547991.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547987.jpg" />
+  <img src="Z:/picture/008/save_picture_547987.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547900.jpg" />
+  <img src="Z:/picture/008/save_picture_547900.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546338.jpg" />
+  <img src="Z:/picture/008/save_picture_546338.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546216.jpg" />
+  <img src="Z:/picture/008/save_picture_546216.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546093.jpg" />
+  <img src="Z:/picture/008/save_picture_546093.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545593.jpg" />
+  <img src="Z:/picture/008/save_picture_545593.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:076E78C9B00D1DECF7FABC8DF0807102F118F99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048677   (545590) от 03.09.2016
-
-Флоренс Фостер Дженкинс / Florence Foster Jenkins  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545590.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Флоренс Фостер Дженкинс, девушки из богатой нью-йоркской семьи, которая мечтала стать оперной певицей, несмотря на то, что имела ужасный голос.Производство: ВеликобританияЖанр: драма, комедия, биографияРежиссер: Стивен ФрирзАктеры: Мэрил Стрип, Хью Грант, Саймон Хелберг, Ребекка Фергюсон, Нина Арианда, Стэнли Таунсенд, Аллан Кордунер, Кристиан МакКэй, Дэвид Хэйг, Джон Сешнс, Брид Бреннан, Джон КэвэнаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A58CA34506DC5DC6707B590DA40B500CC6B068D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049309   (544558) от 04.09.2016
-
-Такой же предатель, как и мы / Our Kind of Traitor  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая английская пара, отдыхая в Марокко, заводит знакомство с русским олигархом, отмывающим деньги для преступных группировок, чьи лидеры вот-вот спишут его со счетов. Чтобы спасти себя и семью, он предлагает разведке Великобритании море ценных сведений в обмен на защиту и покровительство. Его последняя отчаянная надежда - на «английских джентльменов», которые (   Читать дальше...   )Производство: Великобритания, ФранцияЖанр: триллерРежиссер: Сюзанна УайтАктеры: Карлос Акоста, Радивойе Буквич, Стеллан Скарсгард, Мария Фомина, Доля Гавански, Григорий Добрыгин, Велибор Топич, Павел Жайда, Юэн МакГрегор, Наоми Харрис, Алек Утгофф, Марек ОравекПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748F4CA4BC30AD296A885F11D07BE729699E7337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238810   (544337) от 01.08.2018
-
-Мстители: Война бесконечности / Avengers: Infinity War (2018) BDRemux [H.264/1080p] [EN / RU, EN Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США, Marvel StudiosЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBD37E524BC6B97A1EE3551552E19AB521FA56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049562   (543384) от 05.09.2016
-
-Ярость 3 / Rampage: President Down  (2016) BDRip [H.264/1080p] [EN]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение кровавой истории идейного убийцы Билла Уильямсона. Вдохновившись новостными репортажами, неуловимый каратель начинает новую расправу над обществом, которое изжило себя и нуждается в адовой встряске.Производство: КанадаЖанр: боевик, триллер, криминалРежиссер: Уве БоллАктеры: Брендан Флетчер, Райан МакДонелл, Стив Бэран, Брюс Блэйн, Скотт Пате, Михаэлла Манн, Anthony Rogers, Ральф Штайгер, Виктор ФормосаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211A941C0764C3DE201506F87AEBAAFB94F0A7B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1666989   (178391) от 06.10.2023
+
+Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Friday Night (Live at Parkvilla Theater, Nl, 2022) [00:09:09]
+02. Shall We Run? (Live at Parkvilla Theater, Nl, 2022) [00:04:35]
+03. Rain Drops (Live at Parkvilla Theater, Nl, 2022) [00:06:40]
+04. The Reason Why (Live at Parkvilla Theater, Nl, 2022) [00:04:38](   Читать дальше...   )Жанр: progressive rockПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA4F5B0F485E4AEFA79D77036301BA4DE88571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667065   (178389) от 06.10.2023
+
+Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Synthwave, Darksynth>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodfall [00:03:25]
+02. Destroyer [00:03:10]
+03. Flesh & Blood [00:04:17]
+04. Long Forgotten [00:04:01](   Читать дальше...   )Жанр: UK Synthwave, DarksynthПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E10CE6DAFA90B452E8A620AB25C4F6A0DC977F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666701   (178384) от 06.10.2023
+
+Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Titan (1:13)
+02. Curse of the Machinery (5:40)
+03. In the Realm of Heavy Metal (4:28)
+04. Demise of the Tyrant (4:19)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB28905144B108F7D463395BC5E732D297E45008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666715   (178348) от 06.10.2023
+
+Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Mistakes (5:33)
+02. Push (6:49)
+03. Oklahoma (6:52)
+04. Paradise (7:03)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C75159526E3A602CE73DA9DCEFBAF9F428923BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666892   (178341) от 06.10.2023
+
+Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unleashed (6:01)
+02. The Skeleton Key (5:16)
+03. Rivers (4:59)
+04. Code of Life (6:15)(   Читать дальше...   )Жанр: Symphonic metalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13C42A5E999C27C1080218F5FE7F6D264BD7DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666645   (178333) от 06.10.2023
+
+Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Cold Day In Hell 04:17
+2 Backseat Driver 03:24
+3 No Way Out 05:18
+4 Hot On Your Heels 06:35(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1697AEC700640E6967033856FCEB69F1998CA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666730   (178297) от 06.10.2023
+
+The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023, Rhino [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Hard rock, glam metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Shuck (3:21)
+02. Get Your Hands off My Woman (2:47)
+03. Growing on Me (3:31)
+04. I Believe in a Thing Called Love (3:36)(   Читать дальше...   )Жанр: Hard rock, glam metalПродолжительность: 04:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C813712DAC4323454EF933D53A15B5DCEB32E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428854   (178227) от 04.12.2020
+
+Roxy Music - Manifesto (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Art Rock, New Wave, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178227.jpg" />
+</div>
+
+
+###  Подробнее
+
+East Side
+A1 Manifesto
+A2 Trash
+A3 Angel Eyes(   Читать дальше...   )Жанр: Art Rock, New Wave, Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83ACB44E747F4FA6D5EE396478127C262650E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667052   (178209) от 06.10.2023
 
 Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore / Alt. Rock>
@@ -6,7 +238,7 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178209.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178126.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177947.jpg" />
 </div>
 
 
@@ -91,7 +323,7 @@ Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177838.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177798.jpg" />
+  <img src="Z:/picture/005/save_picture_177798.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177613.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177080.jpg" />
+  <img src="Z:/picture/005/save_picture_177080.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, P
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177050.jpg" />
+  <img src="Z:/picture/005/save_picture_177050.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177006.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176509.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176404.jpg" />
 </div>
 
 
@@ -326,7 +558,7 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176155.jpg" />
 </div>
 
 
@@ -355,7 +587,7 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176145.jpg" />
 </div>
 
 
@@ -384,7 +616,7 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176141.jpg" />
 </div>
 
 
@@ -413,7 +645,7 @@ Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176139.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176126.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176103.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176068.jpg" />
 </div>
 
 
@@ -512,238 +744,6 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926E72602D3692B7D225344840EEEE72F9843ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595112   (176042) от 04.12.2022
-
-Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <AOR/Hard Rock; Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джо Линн Тёрнер (англ. Joe Lynn Turner; настоящее имя Джозеф Артур Марк Линквито, англ. Joseph Arthur Mark Linquito; род. 2 августа 1951, Хакенсак, Нью-Джерси) — американский певец, а также автор песен, известный по выступлениям в группах Fandango, Rainbow, Deep Purple, Yngwie Malmsteen’s Rising Force, HTP, Mother's Army.1985 - Rescue You
-1995 - Nothing's Changed
-1997 - Under Cover
-1998 - Hurry Up And WaitЖанр: AOR/Hard Rock; Heavy MetalПродолжительность: 09:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429650   (175880) от 07.12.2020
-
-Георги Бейков, Ваня Цокова (Дуо Нове) - Завръщане (1983) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175880.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Земя
-A2 Спомен подир спомен
-A3 Циганката
-A4 Любовта, която остава(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595340   (175816) от 04.12.2022
-
-Демонстрационный диск DTS 5.1 CD-Audio #11 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Rock, Demo>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну и вдогонку одиннадцатый диск. Как бы вторая часть вчерашнего релиза. Материал - аналогичный - рок различных авторов, исполнителей и годов выпуска. На мой взгляд, помелодичнее вчерашнего получился.
-Все треки также имеют шесть полноценных каналов звука.При подготовке использовался материал, представленный ув. meloman, который, впрочем, не скрывал, что и сам нашел (   Читать дальше...   )01. Fleetwood Mac- Don't Stop
-02. Foreigner - Juke Box Hero
-03. Hootie & The Blowfish - I only wanna be with you
-04. Mark Knopfler - Sailing to Philadelphia(   Читать дальше...   )Продолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F53475C29521308E5A9B4D730B069AD716F07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429648   (175788) от 07.12.2020
-
-Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Classic Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175788.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Computer-Karriere
-A2 Flieg Mit Mir
-A3 Jahreszeiten
-A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667932   (175455) от 10.10.2023
-
-Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Fire (3:40)
-02. Trendkiller (2:12)
-03. Misanthropic (2:59)
-04. Let the Napalm Rain (3:27)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43C1811093839ABBC69D686A85EE086A91DB282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668014   (175449) от 10.10.2023
-
-Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extremateam [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash / Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Join Hands (30th Anniversary Edition) [00:03:46]
-02. Child O' Boogaow (30th Anniversary Edition) [00:03:58]
-03. Displaced (30th Anniversary Edition) [00:04:21]
-04. Truth Hits Everybody (30th Anniversary Edition) [00:02:17](   Читать дальше...   )Жанр: Thrash / Groove MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9160494F048B6CFDC085E757413253A458F97D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668086   (175410) от 10.10.2023
-
-Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Behind the Scenery - Melodic Death Metal группа из Германии.1997 - Nocturnal Beauty Of A Dying Land
-2000 - ...of Honesty Forbidden
-2004 - RetroviseurЖанр: Melodic Death MetalПродолжительность: 02:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667943   (175367) от 10.10.2023
-
-Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brave This Storm (4:30)
-02. Vengeance Falls (4:14)
-03. Strife (4:29)
-04. No Way to Heal (4:06)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2337DCE919CDF85B0F206F7599BA1F7B4A505481
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1616475   (206051) от 02.03.2023
+
+Забытые гробницы древних майя / Lost Tombs of the Ancient Maya (2021) HDTVRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачем майя строили огромные храмовые комплексы, а потом покидали их? Как они связывали себя с загробным миром и во что верили? Какие новые тайны удалось раскрыть современным археологам и ученым, использующие мюонную визуализацию?Производство: Великобритания, Япония, Windfall Films, NHKЖанр: документальный, история, археология, исследованияРежиссер: Белла ФалькПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55119FF44FD39AD07AB28A15B539A5664DF47AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616436   (206023) от 02.03.2023
+
+Микробы, которыми мы дышим / Le peuple des airs (2021) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бактерии, вирусы, а также споры грибов, водоросли, пыльца и даже насекомые: микроорганизмы постоянно витают в небе. Как такое количество живых существ может попасть в воздух и циркулировать в нашей атмосфере? Как они выживают? Биоразнообразие, здоровье, климат - учёные только сейчас открывают, насколько сильно этот незаметный в воздухе "планктон" влияет (   Читать дальше...   )Производство: Франция, Les Films en Vrac pour ARTE FranceЖанр: документальный, познавательный, аэробиологияРежиссер: Клод-Жули ПаризоПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2FBCCCBFAD2FFC294FF991F56D50B388B280CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616776   (205978) от 03.03.2023
+
+Проект: Динозавр / T.Rex: Autopsy (2015) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_205978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что правительству одного из государств удалось обнаружить сохранившееся целиком тело одного из динозавров... А затем собрало ведущих палеонтологов, чтобы провести тайное вскрытие. Имея доступ только к останкам, ведущие умы мира не могут установить, как именно жили эти гиганты. И теперь, впервые за всю историю выдающиеся ученые могут изучить тело одного (   Читать дальше...   )Производство: Великобритания, Impossible Factual LTD, National GeographicЖанр: документальный, история, палеонтологияРежиссер: Ричард ДэйлПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B61326E2BF4E5F73FF868B222DB3AA93E891CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583684   (205839) от 15.10.2022
+
+Discovery. Отравление в Солсбери / Secrets of the Salisbury Poisonings (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_205839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший российский шпион лежит в больнице Уилтшира в тяжёлом состоянии. Предполагается, что это результат действия боевого отравляющего вещества "Новичок", несколько его капель может убить десятки тысяч человек. Это крупный инцидент покушения на убийство с применением нервно-паралитического агента. Впервые за сто лет в Западной Европе использовали химическое (   Читать дальше...   )Производство: Великобритания, DSP (Darlow Smithson Productions)Жанр: документальный, история, расследованиеРежиссер: Ник ПойнцПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02010BA89EA4B710F870D858DAD1189BB43DBFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617235   (205760) от 05.03.2023
 
 Чудеса Вселенной / Wonders of the Universe (2011) BDRip [H.264/1080p] (серии 1-4 из 4)
@@ -6,7 +110,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205760.jpg" />
+  <img src="Z:/picture/005/save_picture_205760.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205471.jpg" />
+  <img src="Z:/picture/005/save_picture_205471.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205049.jpg" />
+  <img src="Z:/picture/004/save_picture_205049.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204799.jpg" />
+  <img src="Z:/picture/004/save_picture_204799.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204335.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204296.jpg" />
+  <img src="Z:/picture/004/save_picture_204296.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203941.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203763.jpg" />
+  <img src="Z:/picture/004/save_picture_203763.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203029.jpg" />
+  <img src="Z:/picture/004/save_picture_203029.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202578.jpg" />
+  <img src="Z:/picture/004/save_picture_202578.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202522.jpg" />
+  <img src="Z:/picture/004/save_picture_202522.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201678.jpg" />
+  <img src="Z:/picture/005/save_picture_201678.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Чудо-юдо динозавры / Bizarre Dinos (2009) WEB-DL [H.264/1080
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201313.jpg" />
+  <img src="Z:/picture/005/save_picture_201313.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201308.jpg" />
+  <img src="Z:/picture/005/save_picture_201308.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG. Реальность или фантастика? Бермудский тр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201195.jpg" />
+  <img src="Z:/picture/005/save_picture_201195.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Discovery. Виагра: маленькая голубая таблетка, и�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200994.jpg" />
+  <img src="Z:/picture/004/save_picture_200994.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200524.jpg" />
+  <img src="Z:/picture/005/save_picture_200524.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2022) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199921.jpg" />
+  <img src="Z:/picture/005/save_picture_199921.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199595.jpg" />
+  <img src="Z:/picture/005/save_picture_199595.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199545.jpg" />
+  <img src="Z:/picture/005/save_picture_199545.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199490.jpg" />
+  <img src="Z:/picture/005/save_picture_199490.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199466.jpg" />
+  <img src="Z:/picture/005/save_picture_199466.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF60045A54B654C7A94AB0C2E7074AC49001C403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630647   (199084) от 01.05.2023
-
-Загадочный сигнал из космоса / Mystery Signal from Space (2018) HDTVRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высоко в горах Западной Вирджинии располагается обсерватория Грин-Бэнк, оснащенная самым большим в мире подвижным радиотелескопом. Не так давно Грин-Бэнк приняла серию таинственных радиосигналов из космоса. Что это: странный природный феномен или послание от инопланетной цивилизации?Производство: США, CuriosityStreamЖанр: документальный, научно-популярный, космосРежиссер: Майкл МавретикПеревод: двхголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3305241B327F609867DF0CA4F169B25282D1F072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630639   (199074) от 01.05.2023
-
-Множественные миры в квантовой механике / The Many Worlds of Quantum Mechanics (2019) HDTVRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория о возможности существования параллельных реальностей — или множественной Вселенной — появилась совсем недавно, хотя вы наверняка читали о подобном в комиксах или научно-фантастических книгах. В этом фильме мы расскажем, как зарождалась эта теория, и как она связана с квантовой механикой и философией.Производство: США, Rockhound ProductionЖанр: документальный, начуно-популярныйРежиссер: Стивен УилкинсонПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1F804892E33218FD1DFCD8FF34860D69D910BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631250   (198955) от 04.05.2023
-
-Как люди (яЧеловек) / iHuman (2019) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллект - это способность понимать. Мы передали свое знание машинам, искусственный интеллект быстро развивается и некоторые боятся, что это породит много непредвиденных проблем: мы с ним не сладим. Успех в создании искусственного интеллекта будет величайшим событием в истории человечества, к несчастью, возможно, и последним. Алгоритмы искусственного разума уже (   Читать дальше...   )Производство: Норвегия, Дания, Франция, UpNorth Film, Think-Film Impact Production, Made in Copenhagen, ARTE, ZDFЖанр: документальный, исследованияРежиссер: Тонье Хессен ШейПеревод: одноголосый профессиональный (перевод Марии Никоновой)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C15DB953026C97EEAA567C2CE58E35C3E9ED365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631018   (198933) от 03.05.2023
-
-Космический секрет / The Cosmic Secret (2019) WEB-DLRip [H.264/1080p] [VO]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198933.jpg" />
-</div>
-
-
-###  Подробнее
-
-С незапамятных времён человечество смотрело на звёзды в поисках ответов, чтобы открыть наше происхождение. Мы толковали пророчества в надежде предопределить наше будущее. Кто мы такие? Почему мы здесь и какова наша судьба? Автор бестселлеров и известный исследователь Дэвид Уилкок объединяет обширную базу знаний, чтобы представить альтернативную человеческую историю, (   Читать дальше...   )Производство: США, SBA entertainmentЖанр: документальный, научно-популярныйРежиссер: Кори Гуд, Роджер РичардсПеревод: одноголосый любительский (Перевод: Антон Б.)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D495CD71D41EE208EECB53CBF641706588BB03
 ```
 
 https://mybot314.ru/tekegram_catalog/

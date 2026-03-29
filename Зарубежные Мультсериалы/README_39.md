@@ -1,3 +1,56 @@
+###  Публикация: 1264136   (267461) от 05.12.2018
+
+Суперкнига / Superbook (2013-2014) WEBRip [H.264] (Сезон 2, серии 1-13 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Квантум - обыкновенный школьник из городка Велливью, вот только один из его лучших друзей - робот по имени Робик. А еще у него есть подруга Джой Пеппер. Вот и троица, с которой гарантированы происшествия. Приключения для друзей начались, когда появился загадочный устройство, отправляет их путешествовать по страницам Библии. «Суперкнига» - увлекательный мультипликационный (   Читать дальше...   )Производство: США, The Christian Broadcasting Network, Inc.Жанр: Мультсериал, семейный, история, религия, приключения.Режиссер: Брайан Пол РичардсонПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C03F4B7E429FB5744C325304D06D4C9397BBCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184854   (266591) от 10.12.2017
+
+Южный Парк / South Park (2017) HDTVRip [H.264/1080p-LQ] (21 сезон, серия 01-10 из 10)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Многоголосый, Двухголосый, ОдноголосыйОзвучка: MVO Jaskier, MVO IdeaFilm, DVO Sunshine Studio, VO L0cDoGСубтитры: ОтсутствуютПродолжительность: 10x 00:22:10Реклама: Вырезана
+ Присутствует ненормативная лексика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D32851ECD24AB052992161AE63CEAB533714FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190844   (265678) от 11.12.2017
 
 Звездные войны: Силы судьбы / Star Wars: Forces of Destiny (2017) WEB-DLRip [H.264/1080p] (Сезон 1, серии 16 из 16) LostFilm
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265678.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265584.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265535.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265455.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Simon's Cat/ Кот Саймона (2008-2011) WebRip
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265452.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264444.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263328.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262037.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261876.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261357.jpg" />
+  <img src="Z:/picture/005/save_picture_261357.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260565.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260353.jpg" />
+  <img src="Z:/picture/005/save_picture_260353.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259772.jpg" />
+  <img src="Z:/picture/005/save_picture_259772.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259771.jpg" />
+  <img src="Z:/picture/005/save_picture_259771.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259720.jpg" />
+  <img src="Z:/picture/005/save_picture_259720.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258653.jpg" />
+  <img src="Z:/picture/005/save_picture_258653.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257738.jpg" />
+  <img src="Z:/picture/005/save_picture_257738.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257543.jpg" />
+  <img src="Z:/picture/005/save_picture_257543.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257016.jpg" />
+  <img src="Z:/picture/005/save_picture_257016.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256653.jpg" />
+  <img src="Z:/picture/005/save_picture_256653.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255564.jpg" />
+  <img src="Z:/picture/005/save_picture_255564.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255515.jpg" />
+  <img src="Z:/picture/005/save_picture_255515.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255078.jpg" />
+  <img src="Z:/picture/005/save_picture_255078.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254725.jpg" />
+  <img src="Z:/picture/005/save_picture_254725.jpg" />
 </div>
 
 
@@ -616,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B391B776ABE2D64F62DC85022BDC49CC9F3ACA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496646   (253849) от 17.05.2012
-
-Финес и Ферб / Phineas and Ferb (1 сезон, 26 серии из 26) (2007-2008) [H.264/720p] HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм о двух сводных братьях на летних каникулах, живущих в пригороде. Каждый день они придумывают безумные планы и строят невероятные изобретения, из-за чего они часто конфликтуют со своей сестрой. Наряду с этим домашний любимец мальчиков утконос Пэрри, действующий как секретный агент, пытается все время остановить злейшего, но придурковатого ученого по имени (   Читать дальше...   )Жанр: Компьютерная анимацияРежиссер: Захари Монкриф, Дэн Повенмайр, Роберт ХьюзПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 26x ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A279D22344A990E7B9A175DAEE059BAA11FE307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588290   (251772) от 04.06.2023
-
-Симпсоны / The Simpsons (2022) WEBRip [H.264/1080p-LQ] (сезон 34, серии 1-22 из 22)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симпсоны - пародия на американский уклад жизни. Семейство Симпсонов состоит из пяти членов: папаша Гомер, мать семейства Мардж, их дочери, Лиза и Мэгги, и несносный подросток Барт.Производство: США / 20th Television Animation, Curiosity Company, The, Fox Television Animation, Gracie FilmsЖанр: мультфильм, комедияРежиссер: Микель Б. Андерсон, Джим Рирдон, Марк КерклэндАктеры: Дэн Кастелланета, Нэнси Картрайт, Гарри Ширер, Джули Кавнер, Ярдли Смит, Хэнк Азария, Памела Хейден, Тресс МакНилл, Мэгги Росвэлл, Крис ЭджерлиПеревод: Профессиональный (многоголосый закадровый) HDrezka Studio, TVShows
-Любительский (многоголосый закадровый) OMSKBIRDЯзык озвучки: русский, английскийСубтитры: русские (Forced), английские (SDH)Продолжительность: ~00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69B7D8060878486139171DD03337839B6F4CCCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

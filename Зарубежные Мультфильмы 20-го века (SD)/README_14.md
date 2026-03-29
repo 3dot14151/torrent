@@ -1,3 +1,30 @@
+###  Публикация: 569981   (389663) от 05.11.2012
+
+Земля до начала времен / The Land Before Time (1988-2007) DVDRip (13 фильмов)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_389663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было время, когда нога человека еще не ступала на Землю. То было время извергающихся вулканов, громадных землетрясений и ужасных катаклизмов. Наша планета тогда была населена удивительными и странными существами.
+Герой этого мультика, очаровательный бронтозаврик Крошки-Ножки, отправился на поиски легендарной Великой Долины, где по слухам можно неплохо подкрепиться. (   Читать дальше...   )Жанр: мультфильм, приключения, семейныйПеревод: Дублированный / Многоголосый закадровый, профессиональный (Первый фильм)Субтитры: нетФормат: AVIПродолжительность: ~15:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0803792F3E41BC12E64E3307520FD4BEFF9FC0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571968   (387224) от 07.11.2012
 
 Великое путешествие Пуха: В поисках Кристофера Робина / Pooh's Grand Adventure: The Search for Christopher Robin (1997) [H.264] DVDRip
@@ -6,7 +33,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387224.jpg" />
+  <img src="Z:/picture/008/save_picture_387224.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382754.jpg" />
+  <img src="Z:/picture/008/save_picture_382754.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376747.jpg" />
+  <img src="Z:/picture/008/save_picture_376747.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357194.jpg" />
+  <img src="Z:/picture/008/save_picture_357194.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355023.jpg" />
+  <img src="Z:/picture/008/save_picture_355023.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346569.jpg" />
+  <img src="Z:/picture/008/save_picture_346569.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345157.jpg" />
+  <img src="Z:/picture/008/save_picture_345157.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344538.jpg" />
+  <img src="Z:/picture/005/save_picture_344538.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343157.jpg" />
+  <img src="Z:/picture/008/save_picture_343157.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337015.jpg" />
+  <img src="Z:/picture/008/save_picture_337015.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329873.jpg" />
+  <img src="Z:/picture/008/save_picture_329873.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327785.jpg" />
+  <img src="Z:/picture/008/save_picture_327785.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327751.jpg" />
+  <img src="Z:/picture/008/save_picture_327751.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326368.jpg" />
+  <img src="Z:/picture/008/save_picture_326368.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326038.jpg" />
+  <img src="Z:/picture/008/save_picture_326038.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326034.jpg" />
+  <img src="Z:/picture/008/save_picture_326034.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326033.jpg" />
+  <img src="Z:/picture/008/save_picture_326033.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325163.jpg" />
+  <img src="Z:/picture/008/save_picture_325163.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325162.jpg" />
+  <img src="Z:/picture/008/save_picture_325162.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325157.jpg" />
+  <img src="Z:/picture/008/save_picture_325157.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315622.jpg" />
+  <img src="Z:/picture/008/save_picture_315622.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313895.jpg" />
+  <img src="Z:/picture/008/save_picture_313895.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310796.jpg" />
+  <img src="Z:/picture/008/save_picture_310796.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309402.jpg" />
+  <img src="Z:/picture/008/save_picture_309402.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309137.jpg" />
+  <img src="Z:/picture/008/save_picture_309137.jpg" />
 </div>
 
 
@@ -650,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA0F1E07B9F3F293E4291C7FB7C60DC7F5E4166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329810   (302989) от 25.10.2019
-
-Лава-Лава! / Lava-Lava! (1995) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медиа-компанией «Epix Media AG» из Германии был выпущен в продажу замечательный DVD с полной серией LAVA LAVA!, а также бонусом в виде лучших эпизодов GUANO!
-LAVA-LAVA! — французский мультсериал в жанре комедии/чёрного юмора, созданный Федерико Витали в 1994 году. Впервые был показан в 1995 году на анимационном Фестивале «Annecy ‘95».На том же фестивале эпизод 'What’s (   Читать дальше...   )Производство: ФранцияЖанр: Рисованная анимация, Короткометражный, КомедияРежиссер: Федерико ВиталиПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 14 серий ~00:03:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0634160074E0E0DF7CB23D404E4ABB9925E29C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

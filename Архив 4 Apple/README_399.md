@@ -1,3 +1,110 @@
+###  Публикация: 1325860   (408709) от 17.09.2019
+
+Paste 2.4.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2919Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Мультиязычный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1073D8B1EBD833BD3B241AC5930D6BE0CFACC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325913   (408705) от 17.09.2019
+
+DMG Canvas 3 v3.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408705.jpg" />
+</div>
+
+
+###  Подробнее
+
+DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2019Разработчик: Araelium GroupПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C347D244A8B6B30C579C76D4740AE2FBA88E9E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325937   (408696) от 17.09.2019
+
+Audirvana 3.5.20 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2EBEC0237D9403B5213AF36AE2309A641D0BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325865   (408693) от 17.09.2019
+
+Disk Doctor: System Cleaner 4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освободите тонны дискового пространства с помощью Disk Doctor, удалив гигабайты ненужных файлов с вашего жесткого диска.
+Всего за несколько кликов вы можете выборочно удалять файлы в следующих категориях:
+● Кэширование приложений
+● Регистры приложений(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2019Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4631423BD5B356A4F76AB2CBE570B2D997AEA2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325875   (408631) от 17.09.2019
 
 Audiobook Builder 2.0.2 [Multi/Ru]
@@ -6,7 +113,7 @@ Audiobook Builder 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408631.jpg" />
+  <img src="Z:/picture/008/save_picture_408631.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Bartender 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408627.jpg" />
+  <img src="Z:/picture/008/save_picture_408627.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ TechSmith Camtasia Studio 2019.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408624.jpg" />
+  <img src="Z:/picture/008/save_picture_408624.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Bootstrap Studio 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408620.jpg" />
+  <img src="Z:/picture/008/save_picture_408620.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408585.jpg" />
+  <img src="Z:/picture/008/save_picture_408585.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ DaVinci Resolve Studio 16 v16.1.0 b25 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408519.jpg" />
+  <img src="Z:/picture/008/save_picture_408519.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ Transmit 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408422.jpg" />
+  <img src="Z:/picture/008/save_picture_408422.jpg" />
 </div>
 
 
@@ -198,7 +305,7 @@ EtreCheck 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408168.jpg" />
+  <img src="Z:/picture/008/save_picture_408168.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ Artstudio Pro 1.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408159.jpg" />
+  <img src="Z:/picture/008/save_picture_408159.jpg" />
 </div>
 
 
@@ -252,7 +359,7 @@ VMware Fusion Pro 8.5.1 (4543325) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408034.jpg" />
+  <img src="Z:/picture/008/save_picture_408034.jpg" />
 </div>
 
 
@@ -280,7 +387,7 @@ Network Radar 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407995.jpg" />
+  <img src="Z:/picture/008/save_picture_407995.jpg" />
 </div>
 
 
@@ -306,7 +413,7 @@ Colibri 1.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407994.jpg" />
+  <img src="Z:/picture/008/save_picture_407994.jpg" />
 </div>
 
 
@@ -335,7 +442,7 @@ Dash 4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407993.jpg" />
+  <img src="Z:/picture/008/save_picture_407993.jpg" />
 </div>
 
 
@@ -362,7 +469,7 @@ AnyTrans 5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407957.jpg" />
+  <img src="Z:/picture/008/save_picture_407957.jpg" />
 </div>
 
 
@@ -389,7 +496,7 @@ CodeRunner 3.0.1 (21700) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407917.jpg" />
+  <img src="Z:/picture/008/save_picture_407917.jpg" />
 </div>
 
 
@@ -416,7 +523,7 @@ Pixelmator Pro 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407818.jpg" />
+  <img src="Z:/picture/008/save_picture_407818.jpg" />
 </div>
 
 
@@ -444,7 +551,7 @@ Mate Translate 6.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407432.jpg" />
+  <img src="Z:/picture/008/save_picture_407432.jpg" />
 </div>
 
 
@@ -472,7 +579,7 @@ Vellum 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407431.jpg" />
+  <img src="Z:/picture/008/save_picture_407431.jpg" />
 </div>
 
 
@@ -500,7 +607,7 @@ Artstudio Pro 2.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407430.jpg" />
+  <img src="Z:/picture/008/save_picture_407430.jpg" />
 </div>
 
 
@@ -526,7 +633,7 @@ TextMate 2 v2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407429.jpg" />
+  <img src="Z:/picture/008/save_picture_407429.jpg" />
 </div>
 
 
@@ -554,7 +661,7 @@ Downie 3 v3.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407428.jpg" />
+  <img src="Z:/picture/008/save_picture_407428.jpg" />
 </div>
 
 
@@ -582,7 +689,7 @@ Navicat Premium 12 v12.1.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407421.jpg" />
+  <img src="Z:/picture/008/save_picture_407421.jpg" />
 </div>
 
 
@@ -593,116 +700,6 @@ Navicat Premium представляет собой очень мощный ин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C4EB8DF3240A5A52D96368329D51174D1B3E9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326023   (407417) от 18.09.2019
-
-BBEdit 12 12.6.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407417.jpg" />
-</div>
-
-
-###  Подробнее
-
-BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2019Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAEC201FE83884DC4FFB5C200E292815932BEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326008   (407414) от 18.09.2019
-
-Money Pro - Personal Finance 2.2.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C7C08FEFA42EA967533838A4F49B171A1F5E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168812   (405056) от 25.09.2017
-
-Lingon X 5.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 сентября 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B9C72E4884E9224AE88064ED8B76649B1D48AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168885   (405000) от 25.09.2017
-
-Downie 3.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – легкая загрузка видео с тысячи разных сайтов.
-Downie поддерживает более 1,100 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Поддержка 4K видео YouTube - в отличие от многих других загрузчиков YouTube, Downie поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: см. пост Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5906B40BAB3EC9DFA937044292484543DC75A82
 ```
 
 https://mybot314.ru/tekegram_catalog/

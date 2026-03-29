@@ -1,3 +1,32 @@
+###  Публикация: 1083747   (273056) от 16.12.2016
+
+Jean-Michel Jarre - Essentials & Rarities (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiness Is A Sad Song (5:54)
+02. Hypnose (3:30)
+03. Erosmachine (2:58)
+04. La Cage (3:24)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F1ABFF0A66A4C52298987C4C09B391EC21EF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337453   (272629) от 12.11.2019
 
 VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
@@ -6,7 +35,7 @@ VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272629.jpg" />
+  <img src="Z:/picture/008/save_picture_272629.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271062.jpg" />
+  <img src="Z:/picture/008/save_picture_271062.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Sol
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270349.jpg" />
+  <img src="Z:/picture/008/save_picture_270349.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270345.jpg" />
+  <img src="Z:/picture/008/save_picture_270345.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sina Vodjani - Indian Colours (2002) [FLAC|Lossless|tracks + .cue] <New Age, Eth
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269805.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269775.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267383.jpg" />
+  <img src="Z:/picture/008/save_picture_267383.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Wings Of An Angel - The Golden Cage Of Tradition (2019) [FLAC|Lossless|Web-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266151.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Seay - A Winter Blessing The Gift (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265064.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Nostradamus II - For A Thousand Years (2007) [APE|Lossless|image + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264668.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Nostradamus - A Storm Of Dreams (1998) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264667.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264008.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Musica Relajante - Spa for Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263993.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261786.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255076.jpg" />
+  <img src="Z:/picture/005/save_picture_255076.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254613.jpg" />
+  <img src="Z:/picture/005/save_picture_254613.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254533.jpg" />
+  <img src="Z:/picture/005/save_picture_254533.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251915.jpg" />
+  <img src="Z:/picture/004/save_picture_251915.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249639.jpg" />
+  <img src="Z:/picture/004/save_picture_249639.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Japanese Relaxation and Meditation - Reiki Japanese Meditation: Remove All Energ
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243130.jpg" />
+  <img src="Z:/picture/004/save_picture_243130.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243121.jpg" />
+  <img src="Z:/picture/004/save_picture_243121.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242786.jpg" />
+  <img src="Z:/picture/005/save_picture_242786.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235970.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234170.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossov
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234118.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossov
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53C4FC8B31D27B9F6B7E28049B90CB3C5B49BCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633781   (233762) от 18.05.2023
-
-VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RIOPY - Meditation (4:55)
-02. Matteo Myderwyk - Pastorale (2:04)
-03. Carlos Cipa - Sonata Fragment (3:28)
-04. Bertrand Chamayou - 5 Lieder, Op. 49 No. 4, Wiegenlied (Transcr. Reger) (1:41)(   Читать дальше...   )Жанр: Meditation, PianoПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

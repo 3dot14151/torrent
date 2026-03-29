@@ -1,3 +1,29 @@
+###  Публикация: 1611862   (202727) от 13.02.2023
+
+Вавилон / Babylon (2022) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub] [Line, MVO]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_202727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливуд, конец 1920-х. Звезды немого кино пытаются найти место в новом мире, где набирают популярность звуковые фильмы. Успешная карьера старых кумиров неумолимо близится к закату.Производство: США / Paramount Pictures, Marc Platt Productions, C2 Motion Picture GroupЖанр: драма, комедияРежиссер: Дэмьен ШазеллАктеры: Диего Калва, Марго Робби, Брэд Питт, Джован Адепо, Ли Цзюнь Ли, Джин Смарт, Оливия Хэмилтон, П.Дж. Бирн, Лукас Хаас, Макс МингеллаПеревод: Дублированный (Line), профессиональный многоголосый (DniproFilm / HDRezka Studio)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (forced, full, SDH)Продолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D26E882C44F211F84DFC0091FEF1A8CE15DE520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618095   (201581) от 09.03.2023
 
 Мой ужасный сосед / A Man Called Otto (2022) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201581.jpg" />
+  <img src="Z:/picture/005/save_picture_201581.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201546.jpg" />
+  <img src="Z:/picture/005/save_picture_201546.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200271.jpg" />
+  <img src="Z:/picture/005/save_picture_200271.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200265.jpg" />
+  <img src="Z:/picture/005/save_picture_200265.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200251.jpg" />
+  <img src="Z:/picture/005/save_picture_200251.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200237.jpg" />
+  <img src="Z:/picture/005/save_picture_200237.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199832.jpg" />
+  <img src="Z:/picture/005/save_picture_199832.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199649.jpg" />
+  <img src="Z:/picture/005/save_picture_199649.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199620.jpg" />
+  <img src="Z:/picture/005/save_picture_199620.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199556.jpg" />
+  <img src="Z:/picture/005/save_picture_199556.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199475.jpg" />
+  <img src="Z:/picture/005/save_picture_199475.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199465.jpg" />
+  <img src="Z:/picture/005/save_picture_199465.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199422.jpg" />
+  <img src="Z:/picture/005/save_picture_199422.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199364.jpg" />
+  <img src="Z:/picture/005/save_picture_199364.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199114.jpg" />
+  <img src="Z:/picture/005/save_picture_199114.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198464.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198172.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198145.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198137.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197921.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197910.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197898.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197793.jpg" />
+  <img src="Z:/picture/004/save_picture_197793.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197694.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197580.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0179734E3B86425F4F6864BA2CBD069186B15C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637903   (197486) от 06.06.2023
-
-Черный лотос / Black Lotus (2023) WEB-DL [H.264/1080p] [UKR, EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офицер спецназа Маттео Доннер пытается справиться с чувством вины после гибели лучшего друга в ходе совместного задания. После скитаний по миру он возвращается в Амстердам, где его вовлекают в противостояние городских банд. Доннер должен спасти похищенную дочь своего погибшего товарища.Производство: США, Нидерланды / Black Lotus Europe, Capstone Film Group, Interstellar Pictures, TDMPЖанр: боевик, триллерРежиссер: Тодор ЧапкановАктеры: Рико Верховен, Фрэнк Грилло, Мари Домпнье, Петер Францен, Пиппи Кэйси, Рона-Ли Шимон, Магнус Самуэльсон, Саймон Ван, Кевин Янссенс, Христо ПетковПеревод: ДублированныйЯзык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE48669A8CE4256AA6D5FC968F59526CD8810F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

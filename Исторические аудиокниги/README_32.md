@@ -1,3 +1,82 @@
+###  Публикация: 1077491   (300172) от 01.12.2016
+
+Владимир Максимов | Заглянуть в бездну (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман о трагической любви адмирала Александра Васильевича Колчака и Анны Васильевной Тимиревой на фоне событий Гражданской войны в России.
+Повествование часто осложняется демонстрацией редких документов, сценами, рисующими Ленина — главного идейного антипода Колчака, прослеживающими дальнейшую участь большевистских убийц белого адмирала; героев занимает проблема (   Читать дальше...   )Жанр: Исторический романПродолжительность: 09:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB78D764DD788662CB04F3A3FA5C04808C8C566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184549   (299148) от 18.11.2017
+
+Мария Шенбрунн-Амор | Железные франки (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что зависит от человека? Есть ли у него выбор? Может ли он изменить судьбу – свою и своего народа? Прошлое переплетается с настоящим, любовь борется с долгом, страсть граничит с ненавистью, немногие противостоят многим, а один – всем. Пока Восток и Запад меряются силами, люди совершают выбор между добром и злом. Лишь страдания делают тебя человеком, только героическая (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BC31FC77346381BDC07AFDE82B53173B175085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333998   (298741) от 27.10.2019
+
+Андрей Венков | Гроза Кавказа. Жизнь и подвиги генерала Бакланова (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военачальник Донского казачьего войска генерал-лейтенант Яков Петрович Бакланов (1808–1873) был одним из прославленных героев Кавказской войны 1817–1864 гг. О безмерной храбрости и лихости Бакланова ходили легенды. Он лично водил казачьи полки и сотни в атаки, участвовал в засадах и перестрелках, приступах, строительстве укреплений, мостов и дорог. Обладая огромной (   Читать дальше...   )Жанр: ЖЗЛПродолжительность: 20:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBED0F1BBC2DC7F56A8CA9D8005065D915019FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961970   (296451) от 03.12.2015
 
 Борис Акунин | История Российского государства (Том 3). Между Азией и Европой. От Ивана III до Бориса Годунова (2015) [MP3, Александр Клюквин]
@@ -6,7 +85,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296451.jpg" />
+  <img src="Z:/picture/008/save_picture_296451.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296136.jpg" />
+  <img src="Z:/picture/008/save_picture_296136.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295995.jpg" />
+  <img src="Z:/picture/008/save_picture_295995.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295994.jpg" />
+  <img src="Z:/picture/008/save_picture_295994.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295981.jpg" />
+  <img src="Z:/picture/008/save_picture_295981.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294156.jpg" />
+  <img src="Z:/picture/008/save_picture_294156.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293902.jpg" />
+  <img src="Z:/picture/008/save_picture_293902.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293366.jpg" />
+  <img src="Z:/picture/008/save_picture_293366.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290512.jpg" />
+  <img src="Z:/picture/008/save_picture_290512.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288106.jpg" />
+  <img src="Z:/picture/008/save_picture_288106.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287403.jpg" />
+  <img src="Z:/picture/008/save_picture_287403.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286281.jpg" />
+  <img src="Z:/picture/008/save_picture_286281.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286275.jpg" />
+  <img src="Z:/picture/008/save_picture_286275.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286272.jpg" />
+  <img src="Z:/picture/008/save_picture_286272.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284749.jpg" />
+  <img src="Z:/picture/008/save_picture_284749.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283909.jpg" />
+  <img src="Z:/picture/008/save_picture_283909.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283441.jpg" />
+  <img src="Z:/picture/008/save_picture_283441.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282870.jpg" />
+  <img src="Z:/picture/008/save_picture_282870.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280767.jpg" />
+  <img src="Z:/picture/008/save_picture_280767.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280334.jpg" />
+  <img src="Z:/picture/008/save_picture_280334.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280259.jpg" />
+  <img src="Z:/picture/008/save_picture_280259.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279156.jpg" />
+  <img src="Z:/picture/008/save_picture_279156.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278903.jpg" />
+  <img src="Z:/picture/008/save_picture_278903.jpg" />
 </div>
 
 
@@ -599,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A8489F2E7AE029B9EE9F0F8B7E35F392682A4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265093   (276408) от 26.11.2018
-
-Виталий Гладкий | Ушкуйники (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276408.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIV век. Великий Новгород. Молодые парни, Носок и Стоян, мечтают стать ушкуйниками. Но для этого необходимо вооружиться за свой счет, а денег нет. На ярмарке друзья становятся свидетелями зимней забавы – борьбы медведя с человеком. Стоян вмешивается в схватку и насаживает медведя на рогатину, спасая борца. В благодарность получает от него оберег и деньги. Парни становятся (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9082F5F285381372A54CC27E72A4471CB4FB5017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265557   (274066) от 28.11.2018
-
-Уильям Гаррисон Эйнсворт | Джон Лоу. Игрок в тени короны (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Май 1705 года. Франция на грани банкротства. Эпоха «короля-солнца» закатилась. Кутила и бонвиван Филипп Орлеанский, племянник Людовика XIV и регент при малолетнем Людовике XV, в перерывах между балами и альковными похождениями ищет выход из тяжелой ситуации. И выход найден. Шотландский финансист-чародей Джон Лоу представляет регенту революционную идею: заменить звонкую (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E3588A22F66042774EE5A1897D0B7475D65F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337609   (273612) от 11.11.2019
-
-Богдан Сушинский | Саблями крещённые (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последние бои во имя Франции казаки ведут уже тогда, когда сама Франция оказалась на грани гражданской войны из-за осложнившейся борьбы за власть между принцем Конде и его сторонниками, с одной стороны, и кардиналом Мазарини и Анной Австрийской — с другой. Еще больше обостряется ситуация, когда в дела Парижа в лице папского нунция Барберини вмешивается Ватикан... (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 16:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE109F89088E73F2CBE4FE1F166624447898694F
 ```
 
 https://mybot314.ru/tekegram_catalog/

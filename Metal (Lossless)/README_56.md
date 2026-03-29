@@ -1,3 +1,90 @@
+###  Публикация: 1296487   (891718) от 05.09.2021
+
+Iron Maiden - 59 аlbums, 7 Box-sets, 207 CD (1979-2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Maiden — британская хеви-метал-группа, которая в начале 1980-х гг. являлась одним из известнейших представителей новой волны британского хеви-метала (NWOBHM), а позже оказала значительное влияние на развитие метала в целом. История группы Iron Maiden неразрывно связана с именем её отца-основателя, идейного вдохновителя и бессменного лидера бас-гитариста Стива (   Читать дальше...   )--------------------------
+
+01. Senjutsu (8:20)
+02. Stratego (5:00)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 159:16:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9241A5792742B5B1060304A1BC8CB8D23440E229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993641   (891666) от 07.03.2016
+
+Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched Wisdom 10:14
+02. Cnestorial 10:42
+03. Molec Codices 09:35
+04. Timehusk 06:05(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993642   (891656) от 07.03.2016
+
+Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Love
+02. Black Snow (The Final Sign)
+03. Pain
+04. Indian War Love Song (Deliver Me)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993636   (891648) от 07.03.2016
 
 Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +93,7 @@ Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891648.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dreamlike Horror - Delightful Suicides (2005) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891646.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Hellion - The Black Book (1990) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890996.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crematory - Unbroken (2020) [FLAC|Lossless|image + .cue] <Gothic Metal, Industri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890130.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Fight - War Of Words (1993) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889850.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Apofenia - Peste (2016) Demo [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889598.jpg" />
+  <img src="Z:/picture/005/save_picture_889598.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Tomy Iommi - Iommi (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889451.jpg" />
+  <img src="Z:/picture/005/save_picture_889451.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Overkill - The Grinding Wheel (2017) Scene [FLAC|Lossless|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889365.jpg" />
+  <img src="Z:/picture/005/save_picture_889365.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Claymorean - Lament Of Victory (2013) [FLAC|Lossless|image + .cue] <Epic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_889348.jpg" />
+  <img src="Z:/picture/008/save_picture_889348.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Claymorean - Eulogy For The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889345.jpg" />
+  <img src="Z:/picture/005/save_picture_889345.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Euge Valovirta - Shooting From The Hip (2021) [FLAC|Lossless|WEB-DL|tracks] <Shr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889334.jpg" />
+  <img src="Z:/picture/005/save_picture_889334.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Eisbrecher - Maximum Monster (2021) [FLAC|Lossless|image + .cue] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889200.jpg" />
+  <img src="Z:/picture/005/save_picture_889200.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Tragedy - Disco Balls to the Wall (2021) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889192.jpg" />
+  <img src="Z:/picture/005/save_picture_889192.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Dead by Monday - Dead by Monday (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888715.jpg" />
+  <img src="Z:/picture/005/save_picture_888715.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Reactory - Collapse to Come (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888713.jpg" />
+  <img src="Z:/picture/005/save_picture_888713.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Leaves' Eyes - 7 Albums, 1 Live, 10 EPs (2004-2019) 20CD [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888441.jpg" />
+  <img src="Z:/picture/005/save_picture_888441.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Threshold - 11 Albums, 4 Compilations, 6 Lives, 3 Singles (1993 - 2018) 39CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888252.jpg" />
+  <img src="Z:/picture/005/save_picture_888252.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Fight - Mutations (1994) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888243.jpg" />
+  <img src="Z:/picture/005/save_picture_888243.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Gehennah - Too Loud to Live, Too Drunk to Die (2016) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888239.jpg" />
+  <img src="Z:/picture/005/save_picture_888239.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Fight - A Small Deadly Space (1995) Japan [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888234.jpg" />
+  <img src="Z:/picture/005/save_picture_888234.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Fight - K5 - The War Of Words Demos (2006) Japan [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888231.jpg" />
+  <img src="Z:/picture/005/save_picture_888231.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Rob Halford - The Essential Halford (2015) 2CD Japan [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888127.jpg" />
+  <img src="Z:/picture/005/save_picture_888127.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Messiah's Kiss - Prayer For The Dying (2002) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887864.jpg" />
+  <img src="Z:/picture/005/save_picture_887864.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Messiah's Kiss - Prayer For The Dying (2002) [FLAC|Lossless|image + .cue] <Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F213F353781509E7C8AC32B5BBC06F8A209E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494649   (887822) от 08.09.2021
-
-Bloodbound - Creatures Of The Dark Realm (2021) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Creatures Preludium
-02. Creatures Of The Dark Realm
-03. When Fate Is Calling
-04. Ever Burning Flame(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9842A32331E9235661549010D4BDEDA67184D356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103102   (887766) от 11.02.2017
-
-Doro - Machine II Machine (1995) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tie Me Up (5:00)
-02. The Want (6:31)
-03. Ceremony (4:58)
-04. Machine II Machine (5:03)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C34D0BA84816AD3CA269DECA4D609C82A80269C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103101   (887648) от 11.02.2017
-
-Doro - Angels Never Die (1993) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye On You (3:06)
-02. Bad Blood (4:10)
-03. Last Day Of My Life (5:34)
-04. Born To Bleed (4:24)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Soft RockПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7940F35C59BAE019B6B66BADDDB1E935AF5AD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

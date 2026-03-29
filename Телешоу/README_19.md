@@ -1,3 +1,31 @@
+###  Публикация: 1129788   (720230) от 29.04.2017
+
+Холостяк (2017.04.29) SATRip (сезон 5, выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720230.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 МАРТА В 21:30 НА ТНТ НАЧНЕТСЯ НОВЫЙ СЕЗОН ШОУ «ХОЛОСТЯК»
+Грядет новый сезон самого романтичного шоу на ТНТ. Продюсеры невероятно долго и тщательно подбирали главного героя — они хотели пригласить достойного мужчину, сильную личность, человека с огоньком в глазах. И такой мужчина нашелся. Вот только не с огоньком в глазах, а с ревущим пламенем в сердце!
+С главным (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC80B5BE8BCD09D3FD562E634F22C235793BFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129973   (718611) от 30.04.2017
 
 Холостяк (2017.04.29) HDTV [H.264/1080i-LQ] (сезон 5, выпуск 8)
@@ -6,7 +34,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718611.jpg" />
+  <img src="Z:/picture/008/save_picture_718611.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718527.jpg" />
+  <img src="Z:/picture/008/save_picture_718527.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718505.jpg" />
+  <img src="Z:/picture/008/save_picture_718505.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718257.jpg" />
+  <img src="Z:/picture/008/save_picture_718257.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714079.jpg" />
+  <img src="Z:/picture/008/save_picture_714079.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713048.jpg" />
+  <img src="Z:/picture/008/save_picture_713048.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706604.jpg" />
+  <img src="Z:/picture/008/save_picture_706604.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706392.jpg" />
+  <img src="Z:/picture/008/save_picture_706392.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705980.jpg" />
+  <img src="Z:/picture/008/save_picture_705980.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705076.jpg" />
+  <img src="Z:/picture/008/save_picture_705076.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704545.jpg" />
+  <img src="Z:/picture/008/save_picture_704545.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704161.jpg" />
+  <img src="Z:/picture/008/save_picture_704161.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702910.jpg" />
+  <img src="Z:/picture/008/save_picture_702910.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700512.jpg" />
+  <img src="Z:/picture/008/save_picture_700512.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700500.jpg" />
+  <img src="Z:/picture/008/save_picture_700500.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700499.jpg" />
+  <img src="Z:/picture/008/save_picture_700499.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700418.jpg" />
+  <img src="Z:/picture/008/save_picture_700418.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698866.jpg" />
+  <img src="Z:/picture/008/save_picture_698866.jpg" />
 </div>
 
 
@@ -486,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698354.jpg" />
+  <img src="Z:/picture/008/save_picture_698354.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698287.jpg" />
+  <img src="Z:/picture/008/save_picture_698287.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697660.jpg" />
+  <img src="Z:/picture/008/save_picture_697660.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697101.jpg" />
+  <img src="Z:/picture/008/save_picture_697101.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696427.jpg" />
+  <img src="Z:/picture/008/save_picture_696427.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695186.jpg" />
+  <img src="Z:/picture/008/save_picture_695186.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695126.jpg" />
+  <img src="Z:/picture/008/save_picture_695126.jpg" />
 </div>
 
 
@@ -654,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84589FAAFE9B757B6B80D7A55E4F08622ADAC0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027772   (694549) от 20.06.2016
-
-Где логика? (2016.06.19) WEB-DL [H.264/720p-LQ] (выпуск 19)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB7954B0D1E8A2209CA85EEB0791C4D46D46DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

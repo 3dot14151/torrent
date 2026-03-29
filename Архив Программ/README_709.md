@@ -1,3 +1,160 @@
+###  Публикация: 1028126   (692255) от 21.06.2016
+
+AutoPlay Menu Builder 8.0 build 2450 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная программа для создания автозапуска на ваши CD-DVD носители. Изначально, после запуска, можно немного растеряться, так как функций перед нами многовато, но это только плюс, так как вы сможете все детально настроить, скачать AutoPlay Menu Builder можно ниже.
+Если с фантазией плохо, можно воспользоваться готовыми шаблонами и подкорректировать их под себя. Вы (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1321BD2B7F7BAF20C6022577AAFD52610160C97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028105   (692254) от 21.06.2016
+
+Auslogics BoostSpeed 9.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550EC7117D9567755AD3CD894BAF4F9DD2650603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028059   (692252) от 21.06.2016
+
+StartIsBack++ 1.3 RePack by D!akov [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692252.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartIsBack++ возвращает в Windows 10 полнофункциональную кнопку запуска меню Пуск, такую же как и в Windows 7. Восстанавливает оригинальное стартовое меню Windows 7 со всеми его возможностями: поиск, перетащить, вставить, недавно использованные приложения. Можно изменить внешний вид меню Пуск, в том числе выбрать другую иконку кнопки "Пуск", изменить цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEFF60A420A9C69577E9417E80528C2CCF3DF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403323   (692233) от 19.08.2020
+
+Brave Browser 1.12.112 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищенный веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным серфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E180C79B3F9831DACAD106B8CDE4E31FE6A080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288901   (692208) от 13.03.2019
+
+Photo Supreme 4.3.3.2004 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7217F46CAB3034C0E8D9762C436FD5E5B1DED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403422   (692181) от 19.08.2020
+
+Brave Browser 1.12.114 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1704880BB316236ADD10E32232E08B8839921F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534721   (692139) от 03.03.2022
 
 PreSonus Studio One 5 Professional 5.5.1 [Multi]
@@ -6,7 +163,7 @@ PreSonus Studio One 5 Professional 5.5.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692139.jpg" />
+  <img src="Z:/picture/008/save_picture_692139.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ Opera 84.0.4316.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692137.jpg" />
+  <img src="Z:/picture/008/save_picture_692137.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ Windows 11 Manager 1.0.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692127.jpg" />
+  <img src="Z:/picture/008/save_picture_692127.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Autodesk AutoCAD P&ID 2017 HF3 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692087.jpg" />
+  <img src="Z:/picture/008/save_picture_692087.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ Microsoft Office 2016 Standard 16.0.4390.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692071.jpg" />
+  <img src="Z:/picture/008/save_picture_692071.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ Google Chrome 73.0.3683.75 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692070.jpg" />
+  <img src="Z:/picture/008/save_picture_692070.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ CCleaner 5.19.5633 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692068.jpg" />
+  <img src="Z:/picture/008/save_picture_692068.jpg" />
 </div>
 
 
@@ -181,6 +338,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288846   (691970) от 13.03.2019
+
+BurnAware Professional 12.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_691970.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393FBD1E4B937312D59A4CDB79003BCC8D689F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288910   (691965) от 13.03.2019
 
 XYplorer 19.80.0000 RePack (& Portable) by elchupacabra [Ru/En]
@@ -189,7 +372,7 @@ XYplorer 19.80.0000 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691965.jpg" />
+  <img src="Z:/picture/008/save_picture_691965.jpg" />
 </div>
 
 
@@ -215,7 +398,7 @@ Arturia - Pigments 1.1.2.539 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691959.jpg" />
+  <img src="Z:/picture/008/save_picture_691959.jpg" />
 </div>
 
 
@@ -242,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691924.jpg" />
+  <img src="Z:/picture/008/save_picture_691924.jpg" />
 </div>
 
 
@@ -268,7 +451,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4390.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691916.jpg" />
+  <img src="Z:/picture/008/save_picture_691916.jpg" />
 </div>
 
 
@@ -294,7 +477,7 @@ KMSAuto Lite 1.2.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691914.jpg" />
+  <img src="Z:/picture/008/save_picture_691914.jpg" />
 </div>
 
 
@@ -320,7 +503,7 @@ Autodesk AutoCAD Plant 3D 2017 HF31 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691912.jpg" />
+  <img src="Z:/picture/008/save_picture_691912.jpg" />
 </div>
 
 
@@ -348,7 +531,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4390.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691910.jpg" />
+  <img src="Z:/picture/008/save_picture_691910.jpg" />
 </div>
 
 
@@ -374,7 +557,7 @@ Tor Browser Bundle 6.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691899.jpg" />
+  <img src="Z:/picture/008/save_picture_691899.jpg" />
 </div>
 
 
@@ -400,7 +583,7 @@ Driver Magician 4.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691867.jpg" />
+  <img src="Z:/picture/008/save_picture_691867.jpg" />
 </div>
 
 
@@ -426,7 +609,7 @@ Driver Magician 4.6 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691859.jpg" />
+  <img src="Z:/picture/008/save_picture_691859.jpg" />
 </div>
 
 
@@ -452,7 +635,7 @@ MKVToolNix 32.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691848.jpg" />
+  <img src="Z:/picture/008/save_picture_691848.jpg" />
 </div>
 
 
@@ -478,7 +661,7 @@ eM Client Pro 7.2.34959.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691840.jpg" />
+  <img src="Z:/picture/008/save_picture_691840.jpg" />
 </div>
 
 
@@ -489,188 +672,6 @@ eM Client - отличный почтовый клиент с возможнос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F584598C93D17837AEB281B3AB3EF260D5F75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288839   (691839) от 13.03.2019
-
-Google Chrome 73.0.3683.75 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C05884064EE2D19F1457162E2C51DE7F6F1FF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288848   (691837) от 13.03.2019
-
-K-Lite Codec Pack 14.8.4 Mega/Full/Standard/Basic + Update [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691837.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D2932C1E846501AC098A54F1A12DFD223F7D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288797   (691834) от 13.03.2019
-
-Avidemux 2.7.2 Portable by FC Portables (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avidemux — свободное кроссплатформенное приложение с открытыми исходными кодами, предоставляющее возможности для быстрого (и несложного) редактирования видеофайлов (удаления ненужных частей, наложения всевозможных фильтров и последующего кодирования). Поддерживается работа с различными типами видео (среди которых AVI, MPEG, MP4/MOV, OGM, ASF/WMV, VOB, MKV и FLV), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37B0FF0A3341F5E443F8AF9351E74289B39FF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896825   (691759) от 10.05.2015
-
-R-Wipe & Clean 10.7 Build 1975 Corporate RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691759.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Wipe & Clean - эффективная утилита очистки дискового пространства и сохранения конфиденциальности информации. Это приложение полностью удалит временные интернет файлы, журнал посещенных страниц, кукисы, автозаполняемые формы и пароли, файлы подкачки, список недавно использовавшихся документов, список часто используемых компонентов, хранящихся в системном реестре, временные файлы и многое другое. Сделает невозможным восстановление конфиденциальной информации о вашей сетевой или локальной активности. Также (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBF0AD44F80CE781F789ACFE62D62DBDA018F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288639   (691720) от 13.03.2019
-
-Wondershare Filmora 9.0.8.2 (x64) Repack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Filmora - удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. Вы сможете создавать высококачественные фильмы с титрами, применять фильтры, эффекты перехода, обрабатывать звук. Кроме этого, программа поможет напрямую загрузить свое видео на YouTube для обмена с друзьями и семьей, сохранить видео для воспроизведения на (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0495A80A64BC41ECF162B20E29AC0F741CC95DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288710   (691710) от 13.03.2019
-
-Google Earth Pro 7.3.2.5776 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором мы живем, теперь у вас под рукой! Корпорация Google выпустила новую версию программного пакета под названием Google Earth. Приложение предназначено для работы с одноименным сервисом, который позволяет просматривать спутниковые снимки планеты Земля в 3D-режиме, используя для этого технологию OpenGL. Присутствуют функции для поиска по адресам, по объектам. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2133519960ED6C0B974FA148F14A59617CCEE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896685   (691592) от 10.05.2015
-
-UltraUXThemePatcher 2.5.10 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие знают из опыта, что дизайн Windows рано или поздно надоедает и вам хочется его как то изменить. И это проблема, потому что для использования сторонних тем вам придется изменять системные файлы, или покупать дорогое программное обеспечение. Теперь этому конец, потому что UltraUXThemePatcher может делать это автоматически. Быстро, бесплатно и без проблем, потому что если ваша версия windows не сможет принять патч он это определит и ничего менять не будет.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9685A30487DB94CDE23353F753190C3A3A67C0AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

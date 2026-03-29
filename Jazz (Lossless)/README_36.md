@@ -1,3 +1,125 @@
+###  Публикация: 288517   (922419) от 29.01.2011
+
+Dave Brubeck - Legacy Of A Legend 2CD (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922419.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Jeepers Creepers (4:58)
+02. Taking A Chance On Love (4:15)
+03. The Duke (2:55)
+04. Someday My Prince Will Come (8:19)
+05. Ode To A Cowboy (5:03)
+06. Thank You (Dziekuje) (3:34)
+07. Camptown Races (2:09)
+08. Gone With The Wind (6:24)
+09. Blue Rondo A La Turk (6:46)(   Читать дальше...)Жанр: JazzПродолжительность: 01:50:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366660   (922367) от 12.03.2020
+
+Benny Carter & Dizzy Gillespie - Sweet And Lovely 1976 (2000) ADA Sound Ltd. [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet and Lovely [10:44]
+02. Broadway [7:52]
+03. The Courtship [6:35]
+04. Constantinople [9:01](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08941104E85C1EC9EAFDB2EF0C288912E4CA814F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096224   (921119) от 23.01.2017
+
+Ama Jazz - In One Breath (1996) Leo Records Laboratory[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Castles In The Air [05:41]
+ 02.Moderato [04:08]
+ 03.Swarm [06:50]
+ 04.PPP [04:34](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3879CE2D297A42BC336AE00A97745AA0D61E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096263   (921114) от 23.01.2017
+
+Abe Rabade Trio - Versons (2013) Karonte[FLAC|Lossless|tracks + .cue] <Modern Creative, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Like Sonny [07:36]
+ 02.All Or Nothing At All [06:52]
+ 03.Golden Earrings [06:01]
+ 04.The Peacocks [06:38](   Читать дальше...   )Жанр: Modern Creative, Piano JazzПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962F5E72BE35BE2011C796574FF878D04364D259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096271   (921112) от 23.01.2017
 
 Abe Rabade Trio - Once (2016) Karonte[FLAC|Lossless|tracks + .cue] <Modern Creative, Piano Jazz>
@@ -6,7 +128,7 @@ Abe Rabade Trio - Once (2016) Karonte[FLAC|Lossless|tracks + .cue] <Modern Creat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921112.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Paul Barbarin, Punch Miller, George Lewis - Jazz At Preservation Hall III (1962)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921099.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ The Modern Jazz Quartet - Pyramid & Lonely Woman (1959, 1962) 2000, ArsNova[APE|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921087.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ The Monty Alexander Trio - Montreux Alexander Live! (1977) 1995, MPS Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921080.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ John Abercrombie Quartet - Up And Coming (2016) ECM[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921062.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ Duke Ellington - Mellow (1940-е - 1960-е) 1997, BMG[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921051.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Roberto Fonseca - Abuc (2016) Impulse![FLAC|Lossless|tracks + .cue] <Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920988.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920984.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920983.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920949.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ Z O L B E R T - Inside Out (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920947.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ VA - Best Of The Big Bands (2010) 2CD, Sonoma Entertainment [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920513.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ Nina Simone - My Baby Just Cares For Me (1986) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920361.jpg" />
 </div>
 
 
@@ -383,7 +505,7 @@ Eddie Higgins Quintet - It's Magic (2007) [FLAC|Lossless]<Post-Bop, Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920340.jpg" />
 </div>
 
 
@@ -418,7 +540,7 @@ VA - Led Zeppelin In Jazz: Tribute To Led Zeppelin (2021) [FLAC|Lossless|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920288.jpg" />
 </div>
 
 
@@ -447,7 +569,7 @@ The Modern Jazz Quartet - The Last Concert (1974) 2CD, 2005, Atlantic[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919406.jpg" />
 </div>
 
 
@@ -476,7 +598,7 @@ Igor Butman, Eddie Gomez, Andrei Kondakov, Lenny White - Jazz 4х4 (1997) Сою
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919400.jpg" />
 </div>
 
 
@@ -505,7 +627,7 @@ Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919382.jpg" />
 </div>
 
 
@@ -534,7 +656,7 @@ VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919365.jpg" />
 </div>
 
 
@@ -563,7 +685,7 @@ The Paul Bley Quartet - Solemn Meditation (1957) 2008, Fresh Sound Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919290.jpg" />
 </div>
 
 
@@ -592,7 +714,7 @@ Bill Evans - Empathy + Pike's Peak (1961-1962) 2013, Essetial Jazz Classics[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919273.jpg" />
 </div>
 
 
@@ -621,7 +743,7 @@ Bennie Green - Bennie Green (1960) 1980, Bainbridge Records [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919214.jpg" />
 </div>
 
 
@@ -636,128 +758,6 @@ Bennie Green был одним из немногих тромбонистов 19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF45A08ABC5B2FC3C3F15FAC2CFBF683D677E046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096558   (919199) от 24.01.2017
-
-Benny Green - Kaleidoscope (1997) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kaleidoscope (take 1) [08:46]
- 02.Thursday's Lullaby [06:57]
- 03.The Sexy Mexy [05:31]
- 04.Patience [05:44](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E775A6DE51B5D34B8B04E6ADD347F876529AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367155   (919198) от 14.03.2020
-
-Martial Solal - The Complete Vogue Recordings, Vol.2, 1956 (1998) Vogue [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris je t'aime d'amour [3:02]
-02. Tout bleu [3:00]
-03. Sadi's Sad [2:25]
-04. Love Walked In [3:07](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE6BEAC3F02B5271CFACC955D661B57216A9CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988522   (919102) от 21.02.2016
-
-Duke Ellington - Live In Europe: Guest Star Ella Fitzgerald (1967) 1994, Musica Jazz[FLAC|Lossless|tracks + .cue] <Big Band, Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Take The ''A'' Train [00:43]
- 02.Johnny Come Lately [04:09]
- 03.Swamp Goo [05:17]
- 04.Up Jump [03:20](   Читать дальше...   )Жанр: Big Band, Swing, Vocal JazzПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C291481893BEF65C29C62FBB516284C1F974950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289507   (918754) от 31.01.2011
-
-Danilo Rea Trio - Romantica (2004) [FLAC|Lossless]<Modern Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reginella (5:40)
-02. Munastero 'E Santa Chiara (4:39)
-03. Tu Si' 'Na Cosa Grande (5:24)
-04. Core 'Ngrato (Catari Catari) (4:05)
-05. Santa Lucia (5:05)
-06. Che Cosa C'e (6:06)
-07. Torna A Surriento (6:24)
-08. Parlami D'amore Mariu (4:25)
-09. Metti Una Sera A Cena (5:27)
-10. Resta Cu'mme (5:59)(   Читать дальше...)Жанр: Modern Jazz, PianoПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,57 @@
 https://t.me/izofen
+###  Публикация: 1861890   (1062738) от 
+
+Книжная серия | Школа юного инженера [4 книги] (2021-2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогой друг! Ты живешь в мире, где всевозможные гаджеты больше не являются предметами со страниц фантастических книг. Вокруг тебя работают тысячи автоматов, роботов и прочих приборов, призванных помогать человеку. Неужели ты никогда не хотел их подчинить или вовсе создать с нуля? Настало время воплощать самые смелые мечты в реальность.
+Шаг за шагом ты научишься (   Читать дальше...   )Жанр: Детское, техникаИздательство: Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130B065B5A98B16C3B3F1DEE366733A7EAB274E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860933   (1062268) от 
+
+Ирина Корн | Волшебный английский [4 книги] (2020-2021) [PDF] [RU, EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Волшебный английский» ─ это доступный старт в изучении языка через игру и визуальные образы. Книги не заменяют систематическое обучение, но эффективно формируют первичную мотивацию, словарный запас и базовые навыки восприятия английской речи на слух и в тексте.Жанр: Языки, обучениеЯзык: Русский, АнглийскийИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB29535246FC1386052BEBE9CBCBC010FF7FF87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857537   (1059704) от 06.03.2026
 
 Наталья Хозяинова | Нейросети и искусственный интеллект (2026) [PDF]
@@ -7,7 +60,7 @@ https://t.me/izofen
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059704.jpg" />
+  <img src="Z:/picture/005/save_picture_1059704.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059203.jpg" />
+  <img src="Z:/picture/005/save_picture_1059203.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058401.jpg" />
+  <img src="Z:/picture/005/save_picture_1058401.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058010.jpg" />
+  <img src="Z:/picture/005/save_picture_1058010.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057328.jpg" />
+  <img src="Z:/picture/005/save_picture_1057328.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057327.jpg" />
+  <img src="Z:/picture/005/save_picture_1057327.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057227.jpg" />
+  <img src="Z:/picture/005/save_picture_1057227.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057198.jpg" />
+  <img src="Z:/picture/005/save_picture_1057198.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057197.jpg" />
+  <img src="Z:/picture/005/save_picture_1057197.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056210.jpg" />
+  <img src="Z:/picture/005/save_picture_1056210.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055023.jpg" />
+  <img src="Z:/picture/005/save_picture_1055023.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054669.jpg" />
+  <img src="Z:/picture/005/save_picture_1054669.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054668.jpg" />
+  <img src="Z:/picture/005/save_picture_1054668.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054667.jpg" />
+  <img src="Z:/picture/005/save_picture_1054667.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054226.jpg" />
+  <img src="Z:/picture/005/save_picture_1054226.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054225.jpg" />
+  <img src="Z:/picture/005/save_picture_1054225.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054224.jpg" />
+  <img src="Z:/picture/005/save_picture_1054224.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054223.jpg" />
+  <img src="Z:/picture/005/save_picture_1054223.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053136.jpg" />
+  <img src="Z:/picture/005/save_picture_1053136.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053133.jpg" />
+  <img src="Z:/picture/005/save_picture_1053133.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051233.jpg" />
+  <img src="Z:/picture/005/save_picture_1051233.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050350.jpg" />
+  <img src="Z:/picture/005/save_picture_1050350.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049768.jpg" />
+  <img src="Z:/picture/005/save_picture_1049768.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049767.jpg" />
+  <img src="Z:/picture/005/save_picture_1049767.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DA9CF2AB106B1D8AEE810620DCFBE96248327A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843929   (1049668) от 23.12.2025
-
-С.В. Вахнина | Физика. Большой наглядный справочник школьника (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049668.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике представлены основные разделы школьного курса физики: «Механика», «Молекулярная физика», «Электродинамика», «Оптика», «Теория относительности», «Квантовая физика». Материал сгруппирован по коротким рубрикам, таблицам и схемам. В книге множество иллюстраций, важная информация подаётся через вопросно-ответную форму с элементами комиксов, что способствует (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B572C2B238C5F6BF814EABD547819D68D78E5A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843373   (1049184) от 20.12.2025
-
-Коллектив авторов | Английский язык. Тематический словарь (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот компактный и наглядный тематический словарь содержит слова по основным темам: «Семья и друзья», «Части тела», «Мой дом», «Животные», «Цвета», «Одежда», «Профессии», «Еда и напитки» и др. Каждая тема сопровождается яркими и красочными иллюстрациями, которые облегчат процесс запоминания новых слов. В конце книги даны самые важные английские глаголы.
-Пособие предназначается (   Читать дальше...   )Жанр: Языки, пособие, справочникИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB832C8443485F8ADB0AC0D6442BD714C594B1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

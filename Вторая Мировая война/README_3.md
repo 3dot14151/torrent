@@ -1,3 +1,29 @@
+###  Публикация: 1274487   (793000) от 07.01.2019
+
+History Channel. Далекий берег. Афроамериканцы в «День «Д» / A Distant Shore: African Americans of D-Day (2007) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди американских солдат, высадившихся в Нормандии 6 июня 1944, было около 2000 афроамериканцев. И сегодня семеро из этих забытых героев впервые расскажут свою историю - одну из последних, еще не рассказанных историй того знаменательного дня.Производство: США, History ChannelЖанр: Документальный, война, историяПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08829D48C7A26CFB3FA46E06261A554AF52A6A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274489   (792999) от 07.01.2019
 
 History Channel. Далекий берег. Афроамериканцы в «День «Д» / A Distant Shore: African Americans of D-Day (2007) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@ History Channel. Далекий берег. Афроамериканцы в «Д
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792999.jpg" />
+  <img src="Z:/picture/008/save_picture_792999.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789029.jpg" />
+  <img src="Z:/picture/008/save_picture_789029.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787825.jpg" />
+  <img src="Z:/picture/008/save_picture_787825.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786820.jpg" />
+  <img src="Z:/picture/008/save_picture_786820.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786534.jpg" />
+  <img src="Z:/picture/008/save_picture_786534.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785610.jpg" />
+  <img src="Z:/picture/008/save_picture_785610.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785572.jpg" />
+  <img src="Z:/picture/008/save_picture_785572.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785569.jpg" />
+  <img src="Z:/picture/008/save_picture_785569.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782705.jpg" />
+  <img src="Z:/picture/008/save_picture_782705.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782601.jpg" />
+  <img src="Z:/picture/008/save_picture_782601.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782510.jpg" />
+  <img src="Z:/picture/008/save_picture_782510.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781717.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779630.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776891.jpg" />
+  <img src="Z:/picture/008/save_picture_776891.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776855.jpg" />
+  <img src="Z:/picture/008/save_picture_776855.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776810.jpg" />
+  <img src="Z:/picture/008/save_picture_776810.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776440.jpg" />
+  <img src="Z:/picture/008/save_picture_776440.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776344.jpg" />
+  <img src="Z:/picture/008/save_picture_776344.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776327.jpg" />
+  <img src="Z:/picture/008/save_picture_776327.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776115.jpg" />
+  <img src="Z:/picture/008/save_picture_776115.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776105.jpg" />
+  <img src="Z:/picture/008/save_picture_776105.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775794.jpg" />
+  <img src="Z:/picture/008/save_picture_775794.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775755.jpg" />
+  <img src="Z:/picture/008/save_picture_775755.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773164.jpg" />
+  <img src="Z:/picture/008/save_picture_773164.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773005.jpg" />
+  <img src="Z:/picture/008/save_picture_773005.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106F4273370ACB726A1400BD19A4D68B3100941C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213415   (771625) от 16.03.2018
-
-Один в поле воин. Подвиг 41-го (2010) WEBRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1941-го. Танковая армада немецкого генерала Гудериана рвется на Восток. Кажется, ничто не может ее остановить. И вдруг на мосту у деревни Сокольничи колонну встречает шквал артиллерийского огня. Загорается головной танк, за ним второй, третий. В панике автоматчики, идущие за броней. И только через три часа боя немцы обнаруживают: разгром учинила не батарея русских, (   Читать дальше...   )Производство: Россия, Кинокомпания «Родина»Жанр: Документальный, война, историяРежиссер: Александр ЛадновПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660A1199D84BC057930E7A2946B161C6F5C1FD21
 ```
 
 https://mybot314.ru/tekegram_catalog/

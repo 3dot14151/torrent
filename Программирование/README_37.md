@@ -6,7 +6,7 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247708.jpg" />
+  <img src="Z:/picture/004/save_picture_247708.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247680.jpg" />
+  <img src="Z:/picture/004/save_picture_247680.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247616.jpg" />
+  <img src="Z:/picture/004/save_picture_247616.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247614.jpg" />
+  <img src="Z:/picture/004/save_picture_247614.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247565.jpg" />
+  <img src="Z:/picture/004/save_picture_247565.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247555.jpg" />
+  <img src="Z:/picture/004/save_picture_247555.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247550.jpg" />
+  <img src="Z:/picture/004/save_picture_247550.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247506.jpg" />
+  <img src="Z:/picture/004/save_picture_247506.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247492.jpg" />
+  <img src="Z:/picture/004/save_picture_247492.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247256.jpg" />
+  <img src="Z:/picture/004/save_picture_247256.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247142.jpg" />
+  <img src="Z:/picture/004/save_picture_247142.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247034.jpg" />
+  <img src="Z:/picture/004/save_picture_247034.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246833.jpg" />
+  <img src="Z:/picture/004/save_picture_246833.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246203.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245843.jpg" />
+  <img src="Z:/picture/004/save_picture_245843.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245495.jpg" />
+  <img src="Z:/picture/004/save_picture_245495.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245475.jpg" />
+  <img src="Z:/picture/004/save_picture_245475.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245405.jpg" />
+  <img src="Z:/picture/004/save_picture_245405.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244862.jpg" />
+  <img src="Z:/picture/004/save_picture_244862.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244574.jpg" />
+  <img src="Z:/picture/004/save_picture_244574.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244242.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243683.jpg" />
+  <img src="Z:/picture/005/save_picture_243683.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243681.jpg" />
+  <img src="Z:/picture/004/save_picture_243681.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242909.jpg" />
+  <img src="Z:/picture/005/save_picture_242909.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241969.jpg" />
+  <img src="Z:/picture/004/save_picture_241969.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241958.jpg" />
+  <img src="Z:/picture/004/save_picture_241958.jpg" />
 </div>
 
 

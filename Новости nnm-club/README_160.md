@@ -1,3 +1,163 @@
+###  Публикация: 935963   (495625) от 11.09.2015
+
+Очередное достижение: 100+ TB отданного трафика от brutus_, oven540304, vavag08, Злой неадмин, Василий Тимошкин
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_495625.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Друзья! И вновь у нас повод для гордости за наших товарищей-одноклубников!brutus_, oven540304, vavag08, Злой неадмин и Василий Тимошкин - также присоединились к компании многоуважаемых сотников!, переступив порог заветной сотни TB отданного трафика.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936199   (495398) от 11.09.2015
+
+CrossOver Linux 14.1.6 [x86-x64] (deb, rpm, bin)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коммерческая версия программы wine. Позволяет запускать приложения и игры Windows под Linux и Mac OS X.
+В отличие от обычной версии wine имеет более удобный интерфейс, протестирован с кучей приложений и игр. Легко интегрируется в систему, позволяет изолировать устанавливаемые приложения друг от друга. Codeweavers вносит много исправлений в код wine, но не очень быстро (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BC2F144560A2E35C69EC301C4ECED1C61A6024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936151   (495396) от 11.09.2015
+
+The KMPlayer 4.0.0.0 RePack by 7sh3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495396.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMPlayer – один из самых универсальных плееров, способный воспроизводить практически любые форматы медиафайлов: VCD, DVD, AVI, MKV, Ogg Theora, OGM, 3GP, MPEG-1/2/4, WMV, RealMedia, QuickTime и многие другие. Также программа понимает титры на DVD дисках и способна записывать звук, видео или картинки из любой части проигрываемого фрагмента. Проигрыватель может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68747A84633F1D9401E23C3EAF6EA7A39055CC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936186   (495388) от 11.09.2015
+
+Destroy Windows 10 Spying 1.5 Build 361 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495388.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C33028291E45755B55DAA762E5430B05554CA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936147   (495385) от 11.09.2015
+
+Сергей Тармашев | Древний. Предыстория. Книга первая (2015) [FB2, EPUB]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга приквела к циклу «Древний».
+
+Цикл Сергея Тармашева «Древний» стал легендой отечественной фантастики и самой популярной из постапокалиптических саг. Новая книга, которую читатели ждали не один год, повествует о масштабных межгалактических событиях, предшествовавших грандиозной эпопее о Древнем. Читателям предстоит узнать о детстве Тринадцатого: того, (   Читать дальше...   )Жанр: Научная фантастика, Боевая фантастика, ПостапокалипсисФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A9838182C51701ADB1A7F638EEF116C7A112DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243050   (495352) от 25.08.2018
+
+Последний акулий торнадо: Как раз во время / The Last Sharknado: It's About Time (2018) HDTVRip [MVO, AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фин должен вернуться в прошлое и воссоединиться со своей командой борцов с акулами, чтобы остановить самый первый акулий торнадо и спасти человечество.Производство: США / Global Asylum, SyfyЖанр: Фантастика, Ужасы, Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Энтони ФеррантеАктеры: Йен Зиринг, Тара Рид, Касси Скербо, Джуда Фридландер, Вивика А. Фокс, Брендан Петриццо, М. Стивен Фелти, Matie Moncea, Тодд Рекс, Дебра УилсонПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: отсутствуютПродолжительность: 01:25:58Реклама: Присутствуют вставки голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E432BAA72B9C71DDD2D404A69D95A453E60DE437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543445   (494758) от 05.09.2012
 
 Norton Internet Security 2013 20.1.0.24 Final [Русский]
@@ -6,7 +166,7 @@ Norton Internet Security 2013 20.1.0.24 Final [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494758.jpg" />
+  <img src="Z:/picture/008/save_picture_494758.jpg" />
 </div>
 
 
@@ -34,7 +194,7 @@ Adobe Acrobat 9 Professional v.9.5.2 DVD [RUS / ENG]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494753.jpg" />
+  <img src="Z:/picture/008/save_picture_494753.jpg" />
 </div>
 
 
@@ -60,7 +220,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494752.jpg" />
+  <img src="Z:/picture/008/save_picture_494752.jpg" />
 </div>
 
 
@@ -87,7 +247,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494748.jpg" />
+  <img src="Z:/picture/008/save_picture_494748.jpg" />
 </div>
 
 
@@ -114,7 +274,7 @@ Windows 7 7600.16385.Ultimate X64 LITE STYLLING & MS OFFICE 2010 PROPLUS X86 _10
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494528.jpg" />
+  <img src="Z:/picture/008/save_picture_494528.jpg" />
 </div>
 
 
@@ -141,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_493545.jpg" />
+  <img src="Z:/picture/005/save_picture_493545.jpg" />
 </div>
 
 
@@ -167,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_493489.jpg" />
+  <img src="Z:/picture/005/save_picture_493489.jpg" />
 </div>
 
 
@@ -195,7 +355,7 @@ Microsoft Office for Mac 2016 15.26 (160910) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493459.jpg" />
+  <img src="Z:/picture/008/save_picture_493459.jpg" />
 </div>
 
 
@@ -224,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493297.jpg" />
+  <img src="Z:/picture/008/save_picture_493297.jpg" />
 </div>
 
 
@@ -250,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493296.jpg" />
+  <img src="Z:/picture/008/save_picture_493296.jpg" />
 </div>
 
 
@@ -276,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493064.jpg" />
+  <img src="Z:/picture/008/save_picture_493064.jpg" />
 </div>
 
 
@@ -304,7 +464,7 @@ Workers & Resources: Soviet Republic (2019) [Ru/Multi] (0.8.2.25) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492766.jpg" />
+  <img src="Z:/picture/008/save_picture_492766.jpg" />
 </div>
 
 
@@ -330,7 +490,7 @@ Inquisitor [En/Cz] (P) 2012 | THETA
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492693.jpg" />
+  <img src="Z:/picture/008/save_picture_492693.jpg" />
 </div>
 
 
@@ -356,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492688.jpg" />
+  <img src="Z:/picture/008/save_picture_492688.jpg" />
 </div>
 
 
@@ -382,7 +542,7 @@ Adobe Photoshop Lightroom CC 2015.7 (6.7) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491427.jpg" />
+  <img src="Z:/picture/008/save_picture_491427.jpg" />
 </div>
 
 
@@ -409,7 +569,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4549.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491259.jpg" />
+  <img src="Z:/picture/008/save_picture_491259.jpg" />
 </div>
 
 
@@ -435,7 +595,7 @@ Cowboy WPI StartSoft September 63-2015 [Lite-Part 2] [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491222.jpg" />
+  <img src="Z:/picture/008/save_picture_491222.jpg" />
 </div>
 
 
@@ -462,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491221.jpg" />
+  <img src="Z:/picture/008/save_picture_491221.jpg" />
 </div>
 
 
@@ -490,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490877.jpg" />
+  <img src="Z:/picture/008/save_picture_490877.jpg" />
 </div>
 
 
@@ -516,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490804.jpg" />
+  <img src="Z:/picture/008/save_picture_490804.jpg" />
 </div>
 
 
@@ -527,177 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B1D957339081A723A894FCDAA8FE5B08514D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382901   (490689) от 02.09.2011
-
-Cheat Engine 6.1 [Rus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cheat Engine — мощная программа для изменения значений памяти в оффлайн играх. Нахождение нужного значения в памяти процесса игры и изменение его для получение неограниченных ресурсов в игре (деньги, жизнь, опыт и т.д.) или изменение баланса, уровней и всего, что позволит вам ваша фантазия.
-
-Особенности Cheat Engine:
-Создание и встраивание чит-кодов.
-Поиск многоуровневых указателей.
-Внедрение чит-кода.
-Создание трейнеров.
-Поиск адреса.
-Спидхак — изменение скорости игры.
-Встроенный отладчик.(   Читать дальше...   )Язык интерфейса: Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544309   (490619) от 07.09.2012
-
-Avira Internet Security 2012 12.1.9.354 SP1 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avira Internet Security 2012 - защищает вас с помощью 15 различных защитных технологий, в числе которых дополнительный сетевой экран. Еще более лучшее распознавание и удаление вирусов, червей, троянов, рекламных и шпионских программ, дозвонщиков и прочего вредоносного ПО.
-
-(   Читать дальше...   )Название программы: Avira Internet Security 2012Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544335   (490608) от 07.09.2012
-
-Norton 360 2013 20.1.1.2 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton - продукт всимирно известной компании Symantec для комплексной защиты компьютера. По своим возможностям Norton 360 превосходит Norton Internet Security: помимо антивируса, файрволла, антишпиона и антифишинга (которые имеются и в NIS), Norton 360 включает в себя такие функциональности как аутентификация веб-сайтов, локальный и онлайновый бэкап и восстановление данных (включая их шифрование), дефрагментация и очистка диска, а также интегрированная круглосуточная поддержка посредством емейла и чата.Название программы: Norton 360Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544235   (490557) от 07.09.2012
-
-Tekken Tag Tournament 2 [XBOX360] [RUS] [Region Free] (LT+2.0) (2012)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиквел к десятилетней давности файтингу, который многие игроки считают самым лучшим в серии по сей день. Новая игра вберет в себя все самое лучшее от оригинала – мы вновь будем принимать участие в схватках «два на два» и баловаться с безграничными комбо-возможностями и сменой персонажей во время боя. Также добавятся и новые элементы, позаимствованные из наисвежайших частей Tekken. Все-таки прошло двенадцать лет и многое за это время успело измениться – поединки стали более стремительными и быстрыми, а баланс между персонажами был перекроен не один миллион раз. Разработчики обещают все это учесть и добавить еще больше динамики в битвы на просторах Tekken Tag Tournament 2.Тип издания: ЛицензияЖанр: Arcade (Fighting) / 3DЯзык интерфейса: RUS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A6C37B970AA3D771B133252A948A1B10AFF6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544331   (490551) от 07.09.2012
-
-Norton Internet Security 2013 Final 20.1.1.2 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton Internet Security 2013 - официальная версия антивируса от компании Symantec. Norton Internet Security - это комплексный антивирус и фаервол, который защищает ваш компьютер, локальную сеть, деятельность в Интернете и ваши личные данные, используя инновационные технологии, позволяющие бороться с современными агрессивными угрозами. мощная и быстрая защита от вредоносных программ и онлайн-угроз без замедления компьютера. Улучшенная система Norton Protection System с многоуровневыми технологиями безопасности, работающих вместе, обеспечивает комплексную защиту.Название программы: Norton Internet Security 2013 FinalЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544288   (490529) от 07.09.2012
-
-Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, объединяющий элементы шутера от первого лица, гоночного боевика и классической ролевой игры.
-
-Действие разворачивается на Пандоре — малонаселенной пустынной планете, где законы переписываются ежедневно — при помощи оружия. Все местное население сосредоточено на небольших аванпостах, расположенных на границе принадлежащих людям территорий, известных как Приграничные земли. Единственная достопримечательность на Пандоре — таинственное Хранилище, скрывающее несметные сокровища, якобы спрятанные представителями высокоразвитой инопланетной цивилизации многие века назад.
-
-Солдат или охотник, сирена или берсерк — выбрав одного из четырех персонажей, каждый из которых обладает уникальными навыками, игрок отправиться на поиски Хранилища. Можно попытаться добраться до сокровищ в одиночку, однако лучше найти союзников, чтобы сражаться с ними плечом к плечу. (   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA81300D61DA1872C821A9ED73D9DE76B4B2B493
 ```
 
 https://mybot314.ru/tekegram_catalog/

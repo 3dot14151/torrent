@@ -1,3 +1,57 @@
+###  Публикация: 1192084   (263035) от 17.12.2017
+
+В.Е. Карпов, К.А. Коньков | Основы операционных систем (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе описаны фундаментальные принципы проектирования и реализации операционных систем. Курс базируется на семестровом курсе "Введение в операционные системы", читаемом авторами в МФТИ и может рассматриваться как учебник для студентов, специализирующихся в области информатики. Курс включает теоретические главы, а также обширный иллюстрационный материал, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EA0C7E1C0DDDEE1F363758AD85D0AD4AAF95C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193799   (261920) от 22.12.2017
+
+И.А. Дьяков | Микропроцессорные системы. Архитектура микроконтроллеров семейства MCS-51 (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена схемотехника однокристальных микроЭВМ, рассмотрены вопросы программирования на языке Асcемблер.
+Предназначено для студентов всех форм обучения направлений 230100.62 – Информатика и вычислительная техника, 010400.62 – Прикладная математика и информатика, 230104.65 – Системы автоматизированного проектирования.
+С 80-х годов 20 века в микропроцессорной технике (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D559BA62FE17758AB8532ED0B3F2108CC3F205BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193935   (261756) от 23.12.2017
 
 А.И. Астайкин и др. | Приборы физической электроники (2008) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261756.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261754.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261691.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261690.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261686.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261181.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260896.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260884.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260770.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260552.jpg" />
+  <img src="Z:/picture/005/save_picture_260552.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260293.jpg" />
+  <img src="Z:/picture/005/save_picture_260293.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260273.jpg" />
+  <img src="Z:/picture/005/save_picture_260273.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259587.jpg" />
+  <img src="Z:/picture/005/save_picture_259587.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258972.jpg" />
+  <img src="Z:/picture/005/save_picture_258972.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258345.jpg" />
+  <img src="Z:/picture/005/save_picture_258345.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255821.jpg" />
+  <img src="Z:/picture/005/save_picture_255821.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255165.jpg" />
+  <img src="Z:/picture/005/save_picture_255165.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254982.jpg" />
+  <img src="Z:/picture/005/save_picture_254982.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254914.jpg" />
+  <img src="Z:/picture/005/save_picture_254914.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254584.jpg" />
+  <img src="Z:/picture/005/save_picture_254584.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254406.jpg" />
+  <img src="Z:/picture/005/save_picture_254406.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254389.jpg" />
+  <img src="Z:/picture/005/save_picture_254389.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253457.jpg" />
+  <img src="Z:/picture/005/save_picture_253457.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252080.jpg" />
+  <img src="Z:/picture/004/save_picture_252080.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24FF5F047B5E8FA98846D110344A46E38F72356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636441   (251946) от 30.05.2023
-
-М.С. Костин, А.Д. Ярлыков | Архитектурно-конфигурируемые SDR-технологии радиомониторинга и телеметрии (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даны ключевые понятия, термины и определения, радиотехнические характеристики и параметры средств радиосвязи. Рассматриваются практические решения архитектурного проектирования и моделирования SDR-систем посредством визуального программирования в среде GNU Radio. Приведены типовые задания по созданию проектов SDR-систем в программном обеспечении SDRSharp и GNU Radio (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06AD4A8AE3A9906459DCC8E53A1A498D97E1F291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636605   (251897) от 31.05.2023
-
-С.А. Мартишин и др. | Базы данных. Практическое применение СУБД SQL и NoSOL-типа для применения проектирования информационных систем (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для изучения практического применения СУБД SQL и NoSQL-типа при проектировании информационных систем. Проведены аналогии между базами данных SQL и NoSQL-типа. Полученные теоретические знания закрепляются при выполнении цикла лабораторных работ. Работа с SQL СУБД изучается на примере СУБД MariaDB, рассмотрен вопрос использования хорошо (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1513D1BC2CA757E55AF00C68475A8645C9775AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

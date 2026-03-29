@@ -6,7 +6,7 @@ Journey - Frontiers (1983) Remastered, 2023, Columbia [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170341.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DJ Shadow - Action Adventure (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170313.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Simple Minds - New Gold Dream (Live From Paisley Abbey) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170304.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Barbra Streisand - Evergreens - Celebrating Six Decades on Columbia Records (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170211.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sorcerer - Reign of the Reaper (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170186.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Red Reign - Don't Look Back (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170133.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Prince & The New Power Generation - Diamonds and Pearls (Super Deluxe Edition) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170113.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170101.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169929.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Prospective - Reasons To Leave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169546.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ragana - Desolation's Flower (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169504.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mass Hysteria - Tenace, Pt. 2 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169403.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ King Gizzard & The Lizard Wizard - The Silver Cord (2023) [FLAC 24/48|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169370.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ghosts of Atlantis - Riddles of the Sycophants (2023) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169122.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167811.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166089.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165484.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163556.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Oasis - The Masterplan (1998) Remastered Edition, 2023, Big Brother Recordings L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163419.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Serenity - Nemesis AD (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163413.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bad Wolves - Die About It (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163404.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Van Morrison - Accentuate The Positive (2023) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163325.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Angra - Cycles Of Pain (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163199.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jean Michel Jarre - Oxymoreworks (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163019.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Till Lindemann - Zunge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162115.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Chicago - Greatest Christmas Hits (2023) Remaster [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161305.jpg" />
 </div>
 
 

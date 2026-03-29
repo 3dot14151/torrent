@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699077.jpg" />
+  <img src="Z:/picture/008/save_picture_699077.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699076.jpg" />
+  <img src="Z:/picture/008/save_picture_699076.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699075.jpg" />
+  <img src="Z:/picture/008/save_picture_699075.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699074.jpg" />
+  <img src="Z:/picture/008/save_picture_699074.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699073.jpg" />
+  <img src="Z:/picture/008/save_picture_699073.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Movavi Video Editor Plus 22.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699064.jpg" />
+  <img src="Z:/picture/008/save_picture_699064.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Viber 17.0.0.0 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699063.jpg" />
+  <img src="Z:/picture/008/save_picture_699063.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Adobe InDesign 2022 v17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699059.jpg" />
+  <img src="Z:/picture/008/save_picture_699059.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Daum PotPlayer 1.7.17508 Stable RePack (& portable) by 7sh3 (08.03.2019) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699008.jpg" />
+  <img src="Z:/picture/008/save_picture_699008.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698987.jpg" />
+  <img src="Z:/picture/008/save_picture_698987.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698986.jpg" />
+  <img src="Z:/picture/008/save_picture_698986.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698985.jpg" />
+  <img src="Z:/picture/008/save_picture_698985.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698984.jpg" />
+  <img src="Z:/picture/008/save_picture_698984.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Cookie 5.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698983.jpg" />
+  <img src="Z:/picture/008/save_picture_698983.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ OCRKit Pro 17.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698981.jpg" />
+  <img src="Z:/picture/008/save_picture_698981.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698980.jpg" />
+  <img src="Z:/picture/008/save_picture_698980.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698975.jpg" />
+  <img src="Z:/picture/008/save_picture_698975.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698972.jpg" />
+  <img src="Z:/picture/008/save_picture_698972.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698971.jpg" />
+  <img src="Z:/picture/008/save_picture_698971.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698952.jpg" />
+  <img src="Z:/picture/008/save_picture_698952.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Bandicam 2.2.1.785 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698950.jpg" />
+  <img src="Z:/picture/008/save_picture_698950.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ ESET NOD32 Internet Security 12.1.31.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698923.jpg" />
+  <img src="Z:/picture/008/save_picture_698923.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Canary Mail 2.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698920.jpg" />
+  <img src="Z:/picture/008/save_picture_698920.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Zbrush 2019 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698904.jpg" />
+  <img src="Z:/picture/008/save_picture_698904.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ iZotope - RX 7 Audio Editor Advanced 7.01.315 STANDALONE, VST, VST3, AAX RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698903.jpg" />
+  <img src="Z:/picture/008/save_picture_698903.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698876.jpg" />
+  <img src="Z:/picture/008/save_picture_698876.jpg" />
 </div>
 
 

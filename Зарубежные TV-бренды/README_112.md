@@ -1,3 +1,108 @@
+###  Публикация: 1666193   (180053) от 03.10.2023
+
+Discovery: Современные Шерлок Холмсы / In the Mind of Criminal Profilers (2000) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда у неизвестного злодея нет лица и примет, в дело вступают профайлеры – специалисты, составляющие портрет правонарушителя по косвенным уликам. В любой стране таких экспертов – считанные единицы, ведь чтобы обрисовать профиль подозреваемого, нужно обладать энциклопедическими знаниями, интуицией Шерлока Холмса и интеллектом, способным замечать и анализировать тысячи (   Читать дальше...   )Производство: США / High Road Films Production, Discovery CommunicationsЖанр: документальныйРежиссер: Art BoothУчастники: Dayle Hinman, Susan Smith, Bill SuffПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BC935505E740539B2162F29778F96777FADA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577895   (179597) от 28.11.2022
+
+Discovery. Джереми Уэйд: Тайны океана / Mysteries of the Deep (2022) WEB-DL [H.264/1080p] (сезон 2, серия 1-5 из 9) [VO] (обновляемая)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_179597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джереми Уэйд возвращается в новом захватывающем шоу! Темные глубины океана полны тайн. Каждую неделю Джереми будет погружаться в одну из увлекательных загадок: потерянные сокровища, пропавшие корабли и самолеты на дне океанов. Уэйд изучит невероятные кадры из архивов, повстречается с очевидцами необъяснимых событий и изучит заключения экспертов. Сможет ли он разгадать (   Читать дальше...   )Производство: США, Icon Films, Discovery ChannelЖанр: документальный, история, исследованияРежиссер: Энди КлэрПеревод: одноголосый любительский (Vlad Dorf)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6BA1E2193F895AE374F0B5F82FE306C485E912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 60621   (178719) от 03.12.2020
+
+Discovery. Московская осада / The Moscow Siege (2002) SatRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178719.jpg" />
+</div>
+
+
+###  Подробнее
+
+922 заложника, 42 чеченских боевика, готовых умереть, российские специальные подразделения, использование смертоносного секретного оружия, 171 человек погиб. С этих слов начинается фильм об ужасных событиях, произошедших в октябре 2002 года - о захвате театрального центра на Дубровке. Фильм был продемонстрирован на канале Discovery в 2002 году.Телекомпания: DiscoveryЖанр: ДокументальныйРежиссер: Памела ГордонПеревод: ПрофессиональныйПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43950421623378A6C71EA3C434FCB97352E1FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594213   (178671) от 30.11.2022
+
+BBC: Мир природы. Лосось: Серебряный прилив / The Natural World. Salmon: The Silver Tide (2000) SATRip (сезон 18, серия 14)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нерка в реках Северо-Западного побережья США — невероятно щедрый подарок природы для всех: от людей и медведей-гризли до белоголовых орланов.
+Каждый год огромная масса этой рыбы возвращается на нерест в реки Аляски и Британской Колумбии. И тогда же множество хищников устремляется к воде — не упустить свой шанс.Производство: США, BBC, Discovery Channel Co-productionЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A0CB71C8E165EEF6368DD478AA034DBF5F4FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428919   (178004) от 04.12.2020
 
 Discovery: Будущее с Джеймсом Вудсом / Futurescape with James Woods (2013) HDTV [H.264/1080p-LQ] (Сезон 1, серии 1-6 из 6)
@@ -6,7 +111,7 @@ Discovery: Будущее с Джеймсом Вудсом / Futurescape with Ja
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178004.jpg" />
+  <img src="Z:/picture/005/save_picture_178004.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177918.jpg" />
+  <img src="Z:/picture/005/save_picture_177918.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177294.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177266.jpg" />
+  <img src="Z:/picture/005/save_picture_177266.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177224.jpg" />
+  <img src="Z:/picture/004/save_picture_177224.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176495.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Discovery: Техногенная катастрофа: Японская тра�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176454.jpg" />
+  <img src="Z:/picture/004/save_picture_176454.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176313.jpg" />
+  <img src="Z:/picture/004/save_picture_176313.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176295.jpg" />
+  <img src="Z:/picture/004/save_picture_176295.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176159.jpg" />
+  <img src="Z:/picture/004/save_picture_176159.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175993.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ Discovery: Высадка союзников - цветная съемка / D-d
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175485.jpg" />
+  <img src="Z:/picture/004/save_picture_175485.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175481.jpg" />
+  <img src="Z:/picture/004/save_picture_175481.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175421.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174904.jpg" />
+  <img src="Z:/picture/004/save_picture_174904.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174885.jpg" />
+  <img src="Z:/picture/004/save_picture_174885.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174818.jpg" />
+  <img src="Z:/picture/004/save_picture_174818.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174690.jpg" />
+  <img src="Z:/picture/004/save_picture_174690.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174129.jpg" />
+  <img src="Z:/picture/004/save_picture_174129.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ History Channel: Злой гений / Evil Genius (2016-2017) HDTVRip (8 сер
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173882.jpg" />
+  <img src="Z:/picture/004/save_picture_173882.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173770.jpg" />
+  <img src="Z:/picture/004/save_picture_173770.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172783.jpg" />
 </div>
 
 
@@ -564,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9DA5C8A89E681197B965BA1E093CE554460DFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669561   (172754) от 16.10.2023
-
-NG. Эпические приключения с Берти Грегори / Epic Adventures with Bertie Gregory (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авантюрист Берти Грегори приглашает зрителей вместе с ним отправиться навстречу эпическим приключениям, погрузившись в природу самых необычных и удивительных уголков нашей планеты. Используя передовые технологии, Берти Грегори и команда ломают стереотипы о традиционных телевизионных шоу о природе, показывая мир диких животных и редких растений с новой стороны. На (   Читать дальше...   )Производство: США, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Хью Пирсон, Джеймс Брикелл, Паркер Браун, Джордж Пальеро, Уилл УэстУчастники: Берти ГрегориПеревод: одноголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: английские (full, SDH)Продолжительность: 5 x ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEB1E963B9F32735294E16C26FF59A407567A43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670868   (171678) от 22.10.2023
-
-BBC: Горизонт. Что такое реальность? / Horizon. What is Reality? (2011) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальность в нашем понимании - это что-то очень хорошо знакомое, привычное и надёжное... Деревья растут вверх, брошенные предметы падают на землю, люди дышат воздухом, футбольный мяч летает по привычным и понятным для человеческого глаза траекториям... Но насколько всё то, что мы видим, слышим, чувствуем - можно назвать реальностью? Или, это, возможно, лишь результат (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярныйРежиссер: Helen ShariatmadariПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53919D050AC1AC643C9BA04A6D18E1363D8660C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344275   (170265) от 10.12.2019
-
-BBC: Живой мир. Осьминог в моём доме / BBC Natural World. The Octopus in My House (2019) HDTVRip (H.265/1080p-LQ) [10-bit] [EN / RU, EN Sub]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор и его дочь развивают необычные отношения с осьминогом, которого они пригласили жить к себе в дом.Производство: Великобритания, BBC Worldwide Ltd.Жанр: Документальный, познавательный, исследованиеРежиссер: Анна ФитчПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301BE66F3C6FEBA4914A5B592B2C745361BBE04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515400   (170022) от 06.12.2021
-
-BBC. Великие географические открытия / Voyages of Discovery (2006) HDTVRip [H.264/720p] (серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователь Пол Роуз воссоздает легендарные морские путешествия, в ходе которых были сделаны великие открытия, повлиявшие на современную жизнь: торговлю, производство, развитие медицины, биологии, геологии и астрономии. Документальный цикл в доступной и увлекательной форме рассказывает о разнообразных аспектах взаимодействия человека с водной средой и о том, какие (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документально-постановочный, история, путешествияРежиссер: Крис Боулд, Шон СмитПеревод: одноголосый профессиональный ("ИНИС" по заказу "Союз-Видео")Субтитры: русские, английские, украинскиеПродолжительность: 5x ~00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278B199AF8A4ED17616B4FA72A14961BDCD6DE74
 ```
 
 https://mybot314.ru/tekegram_catalog/

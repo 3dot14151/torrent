@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802548.jpg" />
+  <img src="Z:/picture/008/save_picture_802548.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802546.jpg" />
+  <img src="Z:/picture/008/save_picture_802546.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Path Of Destiny - Dreams In Splendid Black (2016) [FLAC|Lossless|image + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802545.jpg" />
+  <img src="Z:/picture/008/save_picture_802545.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Microsoft Visual Studio 2019 Community 16.5.4 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802543.jpg" />
+  <img src="Z:/picture/008/save_picture_802543.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ GeoGebra 6.0.583.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802540.jpg" />
+  <img src="Z:/picture/008/save_picture_802540.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ AnyBurn 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802539.jpg" />
+  <img src="Z:/picture/008/save_picture_802539.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Ultra Mood - Oblivion (2020 Edit) (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802537.jpg" />
+  <img src="Z:/picture/008/save_picture_802537.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Microsoft Visual Studio 2019 Professional 16.5.4 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802536.jpg" />
+  <img src="Z:/picture/008/save_picture_802536.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Telegram Desktop 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802535.jpg" />
+  <img src="Z:/picture/008/save_picture_802535.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802532.jpg" />
+  <img src="Z:/picture/008/save_picture_802532.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Google Chrome 83.0.4103.61 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802521.jpg" />
+  <img src="Z:/picture/008/save_picture_802521.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802503.jpg" />
+  <img src="Z:/picture/008/save_picture_802503.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ CrystalDiskInfo 8.12.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802499.jpg" />
+  <img src="Z:/picture/008/save_picture_802499.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ashampoo UnInstaller 10.00.13 (DC 25.10.2021) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802498.jpg" />
+  <img src="Z:/picture/008/save_picture_802498.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Audacity 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802494.jpg" />
+  <img src="Z:/picture/008/save_picture_802494.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ PDF24 Creator 10.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802493.jpg" />
+  <img src="Z:/picture/008/save_picture_802493.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Nox App Player 6.0.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802486.jpg" />
+  <img src="Z:/picture/008/save_picture_802486.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ummy Video Downloader 1.8.3.3 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802482.jpg" />
+  <img src="Z:/picture/008/save_picture_802482.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Serif Affinity Designer 1.6.2.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802474.jpg" />
+  <img src="Z:/picture/008/save_picture_802474.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802470.jpg" />
+  <img src="Z:/picture/008/save_picture_802470.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802441.jpg" />
+  <img src="Z:/picture/008/save_picture_802441.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ SiteSucker 2.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802440.jpg" />
+  <img src="Z:/picture/008/save_picture_802440.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ SlimBrowser 7.00 Build 142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802435.jpg" />
+  <img src="Z:/picture/008/save_picture_802435.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802434.jpg" />
+  <img src="Z:/picture/008/save_picture_802434.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Best Of Crystalclouds Recordings Vol. 1 (Mixed by Angelica S & Science Deal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802433.jpg" />
+  <img src="Z:/picture/008/save_picture_802433.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ MJ Free - Next Level LP (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802428.jpg" />
+  <img src="Z:/picture/008/save_picture_802428.jpg" />
 </div>
 
 

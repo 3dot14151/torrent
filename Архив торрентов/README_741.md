@@ -6,7 +6,7 @@ Tails (Incognito) 0.17.2-rc1 [Анонимный доступ в сети] [i386
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884917.jpg" />
+  <img src="Z:/picture/005/save_picture_884917.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Celestia 1.6.1 + Portable + Celestia Origin v.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884906.jpg" />
+  <img src="Z:/picture/005/save_picture_884906.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884882.jpg" />
+  <img src="Z:/picture/005/save_picture_884882.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Avast Free Antivirus 20.2.2401 (build 20.2.5130.561) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884871.jpg" />
+  <img src="Z:/picture/005/save_picture_884871.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884866.jpg" />
+  <img src="Z:/picture/005/save_picture_884866.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884864.jpg" />
+  <img src="Z:/picture/008/save_picture_884864.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884861.jpg" />
+  <img src="Z:/picture/005/save_picture_884861.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884859.jpg" />
+  <img src="Z:/picture/005/save_picture_884859.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884849.jpg" />
+  <img src="Z:/picture/005/save_picture_884849.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884847.jpg" />
+  <img src="Z:/picture/005/save_picture_884847.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884846.jpg" />
+  <img src="Z:/picture/005/save_picture_884846.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884845.jpg" />
+  <img src="Z:/picture/005/save_picture_884845.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884844.jpg" />
+  <img src="Z:/picture/005/save_picture_884844.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884843.jpg" />
+  <img src="Z:/picture/005/save_picture_884843.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884838.jpg" />
+  <img src="Z:/picture/005/save_picture_884838.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884836.jpg" />
+  <img src="Z:/picture/005/save_picture_884836.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884831.jpg" />
+  <img src="Z:/picture/005/save_picture_884831.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884827.jpg" />
+  <img src="Z:/picture/005/save_picture_884827.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Tor Browser Bundle 9.0.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884818.jpg" />
+  <img src="Z:/picture/005/save_picture_884818.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884812.jpg" />
+  <img src="Z:/picture/005/save_picture_884812.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884807.jpg" />
+  <img src="Z:/picture/005/save_picture_884807.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Avast Premium Security 20.2.2401 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884795.jpg" />
+  <img src="Z:/picture/005/save_picture_884795.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884783.jpg" />
+  <img src="Z:/picture/005/save_picture_884783.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Sitni Sati FumeFX 5.0.2 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884780.jpg" />
+  <img src="Z:/picture/005/save_picture_884780.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884777.jpg" />
+  <img src="Z:/picture/005/save_picture_884777.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA -  Mayan Audio presents 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884749.jpg" />
+  <img src="Z:/picture/005/save_picture_884749.jpg" />
 </div>
 
 

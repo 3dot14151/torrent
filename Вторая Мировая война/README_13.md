@@ -1,3 +1,59 @@
+###  Публикация: 1173011   (380932) от 17.10.2017
+
+Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTVRip (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_380932.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 75-й годовщине внезапного нападения японцев на Пёрл-Харбор.
+Остается много вопросов, в частности, что Вашингтон знал о предстоящем нападении и какие действия предпринимал? Было перехвачено огромное количество радиограмм между Токио и его посольством. Почему о них не знал ни один из высших офицеров, ответственных за защиту Оаху?
+Захватывающий сериал из двух частей (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяРежиссер: Кристофер СпенсерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 х ~ 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FCCAE1210E9F48C52CEE24E585EF0324FFD182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173014   (380930) от 17.10.2017
+
+Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTV [H.264/1080p-LQ] (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_380930.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 75-й годовщине внезапного нападения японцев на Пёрл-Харбор.
+Остается много вопросов, в частности, что Вашингтон знал о предстоящем нападении и какие действия предпринимал? Было перехвачено огромное количество радиограмм между Токио и его посольством. Почему о них не знал ни один из высших офицеров, ответственных за защиту Оаху?
+Захватывающий сериал из двух частей (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяРежиссер: Кристофер СпенсерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 х ~ 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2FF433E4EF943D8311CE5F838BD7FFA6A658E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571366   (380587) от 10.11.2012
 
 Борьба миров. Третий Рейх против Третьего Рима (2008) DVDRip
@@ -6,7 +62,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380587.jpg" />
+  <img src="Z:/picture/008/save_picture_380587.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ BBC: Дюнкерк / Dunkirk (2004) DVDRip (3 серии из 3)
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375852.jpg" />
+  <img src="Z:/picture/008/save_picture_375852.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ NG. Взгляд изнутри: Вторая мировая война / Inside
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372151.jpg" />
+  <img src="Z:/picture/008/save_picture_372151.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370194.jpg" />
+  <img src="Z:/picture/008/save_picture_370194.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370117.jpg" />
+  <img src="Z:/picture/008/save_picture_370117.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369719.jpg" />
+  <img src="Z:/picture/008/save_picture_369719.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367895.jpg" />
+  <img src="Z:/picture/008/save_picture_367895.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363356.jpg" />
+  <img src="Z:/picture/008/save_picture_363356.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359024.jpg" />
+  <img src="Z:/picture/008/save_picture_359024.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358553.jpg" />
+  <img src="Z:/picture/008/save_picture_358553.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357676.jpg" />
+  <img src="Z:/picture/008/save_picture_357676.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353161.jpg" />
+  <img src="Z:/picture/008/save_picture_353161.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353113.jpg" />
+  <img src="Z:/picture/008/save_picture_353113.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346684.jpg" />
+  <img src="Z:/picture/008/save_picture_346684.jpg" />
 </div>
 
 
@@ -376,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346587.jpg" />
+  <img src="Z:/picture/008/save_picture_346587.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346580.jpg" />
+  <img src="Z:/picture/008/save_picture_346580.jpg" />
 </div>
 
 
@@ -429,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342607.jpg" />
+  <img src="Z:/picture/008/save_picture_342607.jpg" />
 </div>
 
 
@@ -455,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342283.jpg" />
+  <img src="Z:/picture/008/save_picture_342283.jpg" />
 </div>
 
 
@@ -481,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340421.jpg" />
+  <img src="Z:/picture/008/save_picture_340421.jpg" />
 </div>
 
 
@@ -507,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335392.jpg" />
+  <img src="Z:/picture/008/save_picture_335392.jpg" />
 </div>
 
 
@@ -533,7 +589,7 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip [H.264/72
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334859.jpg" />
+  <img src="Z:/picture/008/save_picture_334859.jpg" />
 </div>
 
 
@@ -559,7 +615,7 @@ National Geographic. Капитуляция / Surrender (2015) HDTVRip (сери
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334848.jpg" />
+  <img src="Z:/picture/008/save_picture_334848.jpg" />
 </div>
 
 
@@ -585,7 +641,7 @@ NG. Капитуляция / Surrender (2015) HDTVRip [H.264/1080p-LQ] (сери
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334675.jpg" />
+  <img src="Z:/picture/008/save_picture_334675.jpg" />
 </div>
 
 
@@ -611,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332957.jpg" />
+  <img src="Z:/picture/008/save_picture_332957.jpg" />
 </div>
 
 
@@ -622,61 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836740BD29BD611F7376EF46541DE409176972F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957925   (325739) от 19.11.2015
-
-Нюрнбергский набат. Репортаж из прошлого. Последнее сражение (2006) HDTV [H.264/1080i] (части 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм по книге Александра Звягинцева состоит из двух частей: "Последнее сражение" и "Казнь".
-Это ничем не примечательное здание в центре Нюрнберга особо отмечено в мировой истории.
-Нюрнберг - город ремесленников, музыкантов, игрушечных дел мастеров, многих поколений добропорядочных бюргеров, родина великого художника Дюрера - навсегда (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1621391F56A1E139A6BD2A05A2CD1C54601C4227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259180   (323247) от 02.11.2018
-
-Разведка боем. Секретное оружие Виктора Леонова (2018) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Николаевич Леонов (1916-2003) - советский моряк, дважды Герой Советского Союза, командир отдельных разведывательных отрядов Северного и Тихоокеанского флотов.
-Его называли «советским Джеймсом Бондом». Виктор Леонов - мировая легенда разведывательных и десантных операций. Гитлер считал его своим личным врагом. За голову легендарного разведчика была объявлена (   Читать дальше...   )Производство: Россия, ООО «ГПЦ Продакшн», по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, война, биография, спецподразделения, историяПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEA7AE01F4449B5CB0B56BBE22AD8F647C05E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

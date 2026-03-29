@@ -6,7 +6,7 @@ Ubuntu*Pack MATE 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925311.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925305.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925154.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925144.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ctlos Linux Openbox 1.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920070.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908708.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908634.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ctlos Linux Xfce 2.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801356.jpg" />
+  <img src="Z:/picture/008/save_picture_801356.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2018) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794853.jpg" />
+  <img src="Z:/picture/008/save_picture_794853.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ubuntu*Pack 18.04 LXDE (Lubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794787.jpg" />
+  <img src="Z:/picture/008/save_picture_794787.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Debian 10.3 XFCE 4.14 (май 2020) [64-bit] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783283.jpg" />
+  <img src="Z:/picture/008/save_picture_783283.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Ubuntu ServerPack 16.04 (февраль 2019) [i386, amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646454.jpg" />
+  <img src="Z:/picture/008/save_picture_646454.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch L
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604012.jpg" />
+  <img src="Z:/picture/008/save_picture_604012.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Ctlos Linux Openbox/i3 v2.2 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563139.jpg" />
+  <img src="Z:/picture/008/save_picture_563139.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Kerio Control Software Appliance 9.3.5 build 4367 [i386] 1xCD [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480481.jpg" />
+  <img src="Z:/picture/008/save_picture_480481.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Linux Mint 21 Custom Xfce с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475889.jpg" />
+  <img src="Z:/picture/008/save_picture_475889.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ubuntu*Pack 20.04 GNOME (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472639.jpg" />
+  <img src="Z:/picture/008/save_picture_472639.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ubuntu*Pack 20.04 GNOME Classic (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472637.jpg" />
+  <img src="Z:/picture/008/save_picture_472637.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ubuntu*Pack 20.04 Budgie (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472545.jpg" />
+  <img src="Z:/picture/008/save_picture_472545.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Ubuntu*Pack 20.04 (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472542.jpg" />
+  <img src="Z:/picture/008/save_picture_472542.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ubuntu*Pack 20.04 Cinnamon (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472538.jpg" />
+  <img src="Z:/picture/008/save_picture_472538.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Ubuntu*Pack 20.04 DDE (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472530.jpg" />
+  <img src="Z:/picture/008/save_picture_472530.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Ubuntu*Pack 20.04 GNOME Flashback (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470519.jpg" />
+  <img src="Z:/picture/008/save_picture_470519.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470424.jpg" />
+  <img src="Z:/picture/008/save_picture_470424.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470421.jpg" />
+  <img src="Z:/picture/008/save_picture_470421.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Ubuntu*Pack 20.04 GNOME Like Win (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470418.jpg" />
+  <img src="Z:/picture/008/save_picture_470418.jpg" />
 </div>
 
 

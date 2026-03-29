@@ -1,3 +1,29 @@
+###  Публикация: 1325895   (407364) от 18.09.2019
+
+Bang Dream! 2nd Season | Ура мечте! (ТВ-2) [2019, TV, 13 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды девушка по имени Касуми Тояма заходит в ломбард, которым владеет её одноклассница и видит там странную гитару в форме звезды. Это наталкивает её на идею создать музыкальную группу, членами которой неохотно становятся её одноклассницы по школе. Преодолевая многие препятствия и решая некоторые из своих личных проблем, Касуми в конце концов находит мечту, которую (   Читать дальше...   )Производство: Япония, Sanzigen & PassioneЖанр: повседневность, музыкальныйРежиссер: Какимото КодайПеревод: Alorian & MeLarie (RisensTeam)Язык озвучки: ЯпонскийСубтитры: ass, внешние, русскиеПродолжительность: 13 эпизодов по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602ED74AD4A1E77FD7E8D899E30695436B0EFDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312408   (407283) от 18.09.2019
 
 Tejina Senpai | Magical Sempai | Фокусница-старшеклассница [2019, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Tejina Senpai | Magical Sempai | Фокусница-старшеклассниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407283.jpg" />
+  <img src="Z:/picture/008/save_picture_407283.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407276.jpg" />
+  <img src="Z:/picture/008/save_picture_407276.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kyoukai no Rinne-3 / Риннэ: Меж двух миров-3 [2017, TV, 25 из
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404783.jpg" />
+  <img src="Z:/picture/008/save_picture_404783.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403868.jpg" />
+  <img src="Z:/picture/008/save_picture_403868.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Kyoukai Senjou no Horizon II / Horizon in the Middle of Nowhere II / Гориз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402739.jpg" />
+  <img src="Z:/picture/008/save_picture_402739.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Baka to Test to Shoukanjuu Ni! / Дурни, Тесты, Аватары [ТВ-2]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402683.jpg" />
+  <img src="Z:/picture/008/save_picture_402683.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Fate/Kaleid Liner Prisma Illya / Судьба: Девочка-волшебниц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402261.jpg" />
+  <img src="Z:/picture/008/save_picture_402261.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401315.jpg" />
+  <img src="Z:/picture/008/save_picture_401315.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] HDTV 720p Raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399213.jpg" />
+  <img src="Z:/picture/008/save_picture_399213.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Jikan no Shihaisha | Chronos Ruler | Повелитель хроноса [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399166.jpg" />
+  <img src="Z:/picture/008/save_picture_399166.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399148.jpg" />
+  <img src="Z:/picture/008/save_picture_399148.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398354.jpg" />
+  <img src="Z:/picture/008/save_picture_398354.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Nobunaga Concerto | Концерт Нобунаги [2014, TV, 10] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394783.jpg" />
+  <img src="Z:/picture/008/save_picture_394783.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Centaur no Nayami / A Centaur's Life / Тревоги кентавра [2017, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393827.jpg" />
+  <img src="Z:/picture/008/save_picture_393827.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Jigoku Shoujo: Yoi no Togi | Адская девочка (четвёртый с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393769.jpg" />
+  <img src="Z:/picture/008/save_picture_393769.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Gekijouban Sword Art Online: Ordinal Scale | Мастера меча онлай�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391711.jpg" />
+  <img src="Z:/picture/008/save_picture_391711.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391704.jpg" />
+  <img src="Z:/picture/008/save_picture_391704.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Gamers! / Геймеры! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390285.jpg" />
+  <img src="Z:/picture/008/save_picture_390285.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388803.jpg" />
+  <img src="Z:/picture/008/save_picture_388803.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Kami Kuzu Idol | Phantom of the Idol | Богиня идола-мерзавца 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387751.jpg" />
+  <img src="Z:/picture/008/save_picture_387751.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Bang Dream! | Ура мечте! (ТВ-1) [2017, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387178.jpg" />
+  <img src="Z:/picture/008/save_picture_387178.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385200.jpg" />
+  <img src="Z:/picture/008/save_picture_385200.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Gaikotsu Shotenin Honda-san | Skull-face Bookseller Honda-san | Скелет-к�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385132.jpg" />
+  <img src="Z:/picture/008/save_picture_385132.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Given | Дарованный [2019, TV, 11 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385061.jpg" />
+  <img src="Z:/picture/008/save_picture_385061.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384519.jpg" />
+  <img src="Z:/picture/008/save_picture_384519.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2889FF39772D8CDFC348298F7B378B95160FD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314372   (384510) от 20.09.2019
-
-Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попытайтесь снова! [2019, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акира Оно попадает в мир «Игры» в роли «главного босса» — Князя Тьмы по имени Хакуто Кунай. Встретив там хромую девушку, они отправляются в путешествие. Но у Князя Тьмы, обладателя колоссальной силы, оказывается множество врагов, которые не дадут ему покоя. Куда бы путники ни направились, их втягивают в очередную переделку...
-© wakanimПроизводство: студия Ekachi EpilkaЖанр: приключения, фэнтезиРежиссер: Кимура ХиросиПеревод: HorribleSubs; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EF378350AB9BB912F12602E638C820D5616C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

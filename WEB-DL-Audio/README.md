@@ -7,7 +7,7 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245804.jpg" />
+  <img src="Z:/picture/004/save_picture_245804.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239216.jpg" />
+  <img src="Z:/picture/004/save_picture_239216.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238316.jpg" />
+  <img src="Z:/picture/004/save_picture_238316.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232419.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum &
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229117.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219758.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stone
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219713.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205196.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204452.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197985.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Mu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197349.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195864.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192302.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191324.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191318.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191222.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190972.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190207.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190186.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190165.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190121.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190118.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187437.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187205.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187195.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187160.jpg" />
 </div>
 
 

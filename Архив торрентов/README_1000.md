@@ -6,7 +6,7 @@ Inna De Yard - The Soul of Jamaica (2017) [FLAC|Lossless|tracks] <Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818675.jpg" />
+  <img src="Z:/picture/008/save_picture_818675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Skype 7.34.0.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818671.jpg" />
+  <img src="Z:/picture/008/save_picture_818671.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ RogueKiller Free 12.10.1.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818662.jpg" />
+  <img src="Z:/picture/008/save_picture_818662.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hetman Uneraser 3.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818661.jpg" />
+  <img src="Z:/picture/008/save_picture_818661.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Opera 44.0.2510.857 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818660.jpg" />
+  <img src="Z:/picture/008/save_picture_818660.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adguard 1.4.1 (377) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818656.jpg" />
+  <img src="Z:/picture/008/save_picture_818656.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818653.jpg" />
+  <img src="Z:/picture/008/save_picture_818653.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818647.jpg" />
+  <img src="Z:/picture/008/save_picture_818647.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818646.jpg" />
+  <img src="Z:/picture/008/save_picture_818646.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818637.jpg" />
+  <img src="Z:/picture/008/save_picture_818637.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Cumulative Update KB4015438 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818569.jpg" />
+  <img src="Z:/picture/008/save_picture_818569.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ DesignToolBox 2.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818565.jpg" />
+  <img src="Z:/picture/008/save_picture_818565.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ CCleaner 5.28.6005 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818553.jpg" />
+  <img src="Z:/picture/008/save_picture_818553.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818546.jpg" />
+  <img src="Z:/picture/008/save_picture_818546.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818543.jpg" />
+  <img src="Z:/picture/008/save_picture_818543.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818537.jpg" />
+  <img src="Z:/picture/008/save_picture_818537.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818525.jpg" />
+  <img src="Z:/picture/008/save_picture_818525.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818516.jpg" />
+  <img src="Z:/picture/008/save_picture_818516.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818483.jpg" />
+  <img src="Z:/picture/008/save_picture_818483.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818468.jpg" />
+  <img src="Z:/picture/008/save_picture_818468.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Autodesk AutoCAD 2018 О.49.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818464.jpg" />
+  <img src="Z:/picture/008/save_picture_818464.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Trance Trip Vol. 5 (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818424.jpg" />
+  <img src="Z:/picture/008/save_picture_818424.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Coldharbour Selections Part 22 (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818423.jpg" />
+  <img src="Z:/picture/008/save_picture_818423.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Global DJ Broadcast Top 15 - May 2010 [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818418.jpg" />
+  <img src="Z:/picture/008/save_picture_818418.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818402.jpg" />
+  <img src="Z:/picture/008/save_picture_818402.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818398.jpg" />
+  <img src="Z:/picture/008/save_picture_818398.jpg" />
 </div>
 
 

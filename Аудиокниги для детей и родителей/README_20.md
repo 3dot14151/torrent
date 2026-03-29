@@ -1,3 +1,82 @@
+###  Публикация: 1387064   (792575) от 31.05.2020
+
+Наталья Широкова | Волшебные сказки о детях-героях (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли 30 сказок, в основе которых лежат реальные истории подвигов и добрых поступков современных детей. Своими примерами они доказывают: героем можно стать без магии и суперспособностей, если быть неравнодушным. Книгу выпустила команда проекта «Подвиги обычных людей».Жанр: детские рассказы, сказкиПродолжительность: 03:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0598BFED8CB80166CB7CF7C1849F348AEEEA9EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275037   (791078) от 10.01.2019
+
+Александр Сергеевич Пушкин | Сказка о мёртвой царевне и семи богатырях (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сказка о мертвой царевне и семи богатырях
+2. Сказка о царе БерендееЖанр: Детская сказкаПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1AF51578F2B148703A351CA75DFDA00264F610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276686   (787632) от 17.01.2019
+
+Марк Ефетов | Валдайские колокольцы (1982) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навсегда останется в памяти автора суровый лесной край Валдай, где он впервые побывал ребенком в гостях у фронтового друга своего дяди. Прямы, открыты и добры люди, живущие здесь; в непростых условиях приходится им трудиться. Коллективизм и взаимовыручка, готовность всегда прийти на помощь - на этом строится и жизнь колхозов. И секретарь райкома партии под стать (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0CC1A8720FE6AB5F3A09A2D475379CC0DE3C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512213   (787386) от 24.11.2021
 
 Oбработка Александра Афанасьева | Русские народные сказки (2013) [MP3, Ирина Мохова]
@@ -6,7 +85,7 @@ Oбработка Александра Афанасьева | Русские н�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787386.jpg" />
+  <img src="Z:/picture/008/save_picture_787386.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786341.jpg" />
+  <img src="Z:/picture/008/save_picture_786341.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785599.jpg" />
+  <img src="Z:/picture/008/save_picture_785599.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784585.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783692.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783688.jpg" />
+  <img src="Z:/picture/008/save_picture_783688.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783677.jpg" />
+  <img src="Z:/picture/008/save_picture_783677.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783417.jpg" />
+  <img src="Z:/picture/008/save_picture_783417.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783411.jpg" />
+  <img src="Z:/picture/008/save_picture_783411.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783406.jpg" />
+  <img src="Z:/picture/008/save_picture_783406.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783104.jpg" />
+  <img src="Z:/picture/008/save_picture_783104.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782936.jpg" />
+  <img src="Z:/picture/008/save_picture_782936.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782734.jpg" />
+  <img src="Z:/picture/008/save_picture_782734.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782300.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778164.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777445.jpg" />
 </div>
 
 
@@ -442,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777193.jpg" />
+  <img src="Z:/picture/008/save_picture_777193.jpg" />
 </div>
 
 
@@ -472,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777188.jpg" />
+  <img src="Z:/picture/008/save_picture_777188.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777124.jpg" />
+  <img src="Z:/picture/008/save_picture_777124.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777121.jpg" />
+  <img src="Z:/picture/008/save_picture_777121.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777117.jpg" />
+  <img src="Z:/picture/008/save_picture_777117.jpg" />
 </div>
 
 
@@ -583,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777115.jpg" />
+  <img src="Z:/picture/008/save_picture_777115.jpg" />
 </div>
 
 
@@ -615,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776185.jpg" />
+  <img src="Z:/picture/008/save_picture_776185.jpg" />
 </div>
 
 
@@ -626,84 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0FC130D70CB163B9D6ACBCBF1C0019267C3E737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014711   (776175) от 08.05.2016
-
-Максуд Ибрагимбеков | За все хорошее - смерть (2013) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои повести Максуда Ибрагимбекова внешне ничем не примечательны. Обыкновенные мальчики, живущие обычной мальчишеской жизнью. И заботы их, и проблемы — такие же, как у всех: взаимопонимание (часто — непонимание) с родными и друзьями, влюбленности, поиски своего места в классе, в компании, в жизни. На первый взгляд — типичная «подростковая» проза, где все знакомо (   Читать дальше...   )Жанр: Приключения, детская литератураПродолжительность: 02:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED2C2A79CA17FFFC64B536D2CF72EF34492B742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014772   (776155) от 08.05.2016
-
-Илья Литвак | Добрым детям Сказки к Пасхе (2005) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наших маленьких детей ждет очень суровый мир, полный страшных вещей, которым придется противостоять. Как они справятся с этим? Только если будут добрыми, сильными, справедливыми. Только если эти качества впитаны с раннего детства. Только если с младенчества человек знает, что такое совесть, умеет жалеть и любить. И только если он убежден, что Добро всегда сильнее! (   Читать дальше...   )Жанр: Детям, сказкиПродолжительность: 04:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3A91354AC5C68ABA950D7F673011BCDF257C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014675   (775687) от 09.05.2016
-
-Жюль Верн | Два года каникул (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученики пансиона Чермен решили провести каникулы в морском путешествии. Нетерпеливые мальчики остаются ночевать одни на яхте перед отправкой в море. Ночью разразился шторм, и яхту вместе с мальчиками унесло в море. Так начались каникулы длиной в два года...Жанр: ПутешествияПродолжительность: 09:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6152B30010196FF5F47DE566C2CAEC132EE332FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

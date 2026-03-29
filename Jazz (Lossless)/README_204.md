@@ -1,3 +1,119 @@
+###  Публикация: 1070365   (366996) от 07.11.2016
+
+Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmurando (4:50)
+02. Waiting For Amalia (3:21)
+03. Alegria Da Casa (3:27)
+04. Baiao Guri (3:15)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Brazilian JazzПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EAC5BAB7556EB8D27408CF2994AFDBA167D576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070623   (366881) от 07.11.2016
+
+Mich Gerber - The Endless String (2003) [FLAC|Lossless|tracks + .cue] <Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic Bass>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Unda (05:40)
+02 Zumurud (05:42)
+03 Sirens Call (04:41)
+04 Lament (05:15)(   Читать дальше...   )Жанр: Jazz, World Fusion, Trip-Hop, Electronic, Downtempo, Acoustic BassПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278ECD31B7E1A8F396638CBF8EE230F50D353891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836071   (366814) от 30.10.2014
+
+David Hazeltine Trio - Cleopatra's Dream (2006) [FLAC|Lossless]<Jazz, Contemporary Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cleopatra's Dream [05:19]
+ 02. Tempus Fugit [03:11]
+ 03. Glass Enclosure [03:48]
+ 04. Wail [05:26](   Читать дальше...   )Жанр: Jazz, Contemporary Jazz, Post-Bop, Piano JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CAF13C0E4666F172AD7F19FE2151A1597B07AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576220   (366633) от 14.09.2022
+
+Fred Hersch - Breath By Breath (2022) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin Again [6:53]
+02. Awakened Heart [4:13]
+03. Breath by Breath [6:23]
+04. Monkey Mind [4:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C7E992414A6605BDBE3685A778B0788B1242D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576405   (366623) от 14.09.2022
 
 Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternate Blues (1980) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -6,7 +122,7 @@ Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366623.jpg" />
+  <img src="Z:/picture/008/save_picture_366623.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Chet Baker - The Pacific Jazz Collection (1953 - 1958) 4CD, 2016, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366370.jpg" />
+  <img src="Z:/picture/008/save_picture_366370.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Wayne Shorter - Emanon (2013 - 2016) 3CD, 2018, Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366233.jpg" />
+  <img src="Z:/picture/008/save_picture_366233.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366192.jpg" />
+  <img src="Z:/picture/008/save_picture_366192.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366190.jpg" />
+  <img src="Z:/picture/008/save_picture_366190.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366189.jpg" />
+  <img src="Z:/picture/008/save_picture_366189.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366188.jpg" />
+  <img src="Z:/picture/008/save_picture_366188.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Blow Up A-Go-Go! Dancefloor Classics From The Legendary Blow Up Club (1999)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365938.jpg" />
+  <img src="Z:/picture/005/save_picture_365938.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Basia - Butterflies (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Bossa Nova
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365896.jpg" />
+  <img src="Z:/picture/008/save_picture_365896.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Ray Bryant Trio - Gotta Travel On (1966) 2011, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365532.jpg" />
+  <img src="Z:/picture/008/save_picture_365532.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Donald Byrd - Slow Drag (1967) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365399.jpg" />
+  <img src="Z:/picture/008/save_picture_365399.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Spaza - 3 Albums (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Experimental>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365389.jpg" />
+  <img src="Z:/picture/008/save_picture_365389.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Tito Puente And His Orchestra - Mambo Macoco (1949 - 1951) 1992, Tumbao Cuban Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365387.jpg" />
+  <img src="Z:/picture/008/save_picture_365387.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Music Magic - One Man Lady (1981) 2005, Cool Sound [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365385.jpg" />
+  <img src="Z:/picture/008/save_picture_365385.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Bill Evans With Jeremy Steig - What's New (1969) Remaster, 2014, Universal[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364660.jpg" />
+  <img src="Z:/picture/008/save_picture_364660.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Weather Report - Live In Offenbach 1978 (2011) 2CD, WDR[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364655.jpg" />
+  <img src="Z:/picture/008/save_picture_364655.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Gabor Szabo - 1969 (2004) Air Mail [FLAC|Lossless|tracks + .cue] <Jazz Fusion, G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364354.jpg" />
+  <img src="Z:/picture/008/save_picture_364354.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Dave Brubeck - Just You, Just Me (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364308.jpg" />
+  <img src="Z:/picture/008/save_picture_364308.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Espen Eriksen Trio featuring Andy Sheppard - In The Mountains (2022) Rune Grammo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364281.jpg" />
+  <img src="Z:/picture/008/save_picture_364281.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Martial Solal Trio - Balade du 10 Mars (1999) /Soul Note/[APE|image+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363884.jpg" />
+  <img src="Z:/picture/008/save_picture_363884.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Mark Whitecage's Other Other Quartet - Research on the Edge (1999) /CIMP/[APE|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363882.jpg" />
+  <img src="Z:/picture/008/save_picture_363882.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363669.jpg" />
+  <img src="Z:/picture/008/save_picture_363669.jpg" />
 </div>
 
 
@@ -635,119 +751,6 @@ Johnny Hodges - With Billy Strayhorn And The Orchestra (1961) /1999, Verve/[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:977C2BDD0873EE3F190E2DC17CFCE44A3F8CB812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951492   (363664) от 29.10.2015
-
-Nat King Cole Trio - Live at the Circle Room & More (1946/1949) /1999, Definitive Records/[FLAC|tracks+.cue]<Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Opening Theme [00:40]
- 02.Oh, But I Do [02:58]
- 03.I'm Thru With Love [03:11]
- 04.'C' Jam Blues [03:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F109A2A49EA46F9EDCACDD9F81365E650B03564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328487   (363604) от 30.09.2019
-
-John Coltrane - Blue World (1960-е) 2019, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NaimaЖанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666E7198F8FF20518ECFF98054C39A1C87B035CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328576   (363553) от 30.09.2019
-
-The Steve Howe Trio - New Frontier (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiatus [02:24]
-02. Left To Chance [06:33]
-03. Fair Weather Friend [04:26]
-04. Zodiac [03:07](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3267EF818388C1D6BC9C17DB432D40046E47EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416933   (363344) от 18.10.2020
-
-Tito Puente - Master Timbalero (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Arrival [5:08]
-02. Enchantment [4:46]
-03. Sakura Sakura (Cherry Blossom Nova) [5:10]
-04. Azu Ki Ki [5:13](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08472FE29A5A75955EA01D2F93A6D37E89E3330
 ```
 
 https://mybot314.ru/tekegram_catalog/

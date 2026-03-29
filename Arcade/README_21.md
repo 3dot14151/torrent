@@ -1,3 +1,29 @@
+###  Публикация: 1150131   (596126) от 13.07.2017
+
+Black The Fall (2017) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596126.jpg" />
+</div>
+
+
+###  Подробнее
+
+После десятилетий тяжелой работы старый токарь планирует побег из коммунизма. На своем пути он встречает самое невероятное существо — маленького брошенного робота. Смогут ли они вместе выбраться из этого мрачного мира?Тип издания: LicenseРазработчик: Sand Sailor StudioЖанр: Arcade (Industrial), CasualЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F80932B60DB8D780EA59FF55B05582DE6846884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039720   (594143) от 02.08.2016
 
 Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
@@ -6,7 +32,7 @@ Cast of the Seven Godsends - Redux (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594143.jpg" />
+  <img src="Z:/picture/008/save_picture_594143.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Omensight (2018) [Ru/Multi] (1.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593193.jpg" />
+  <img src="Z:/picture/008/save_picture_593193.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Oddworld: Munch’s Oddysee HD (2010) [En] (1.0/upd 14) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588095.jpg" />
+  <img src="Z:/picture/008/save_picture_588095.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Swords of Ditto (2018) [Ru/Multi] (1.15.04-202) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587829.jpg" />
+  <img src="Z:/picture/008/save_picture_587829.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587746.jpg" />
+  <img src="Z:/picture/008/save_picture_587746.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.0.41.212) RePack xGhos
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587608.jpg" />
+  <img src="Z:/picture/008/save_picture_587608.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Alien Shooter 2: Золотое издание [Ru] (L) (2007)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586721.jpg" />
+  <img src="Z:/picture/008/save_picture_586721.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Inked (2018) [Ru/Multi] (20180528-1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583027.jpg" />
+  <img src="Z:/picture/008/save_picture_583027.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578958.jpg" />
+  <img src="Z:/picture/008/save_picture_578958.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Lock's Quest (2017) [Multi] (20170716) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577520.jpg" />
+  <img src="Z:/picture/008/save_picture_577520.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Mortal Kombat Anthology (1997-2015) [Ru/En] Repack R.G. Catalyst [Fatality Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577389.jpg" />
+  <img src="Z:/picture/008/save_picture_577389.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574255.jpg" />
+  <img src="Z:/picture/008/save_picture_574255.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Dark Future: Blood Red States (2019) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573894.jpg" />
+  <img src="Z:/picture/008/save_picture_573894.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Risky Wings (2018) [Ru/Multi] (502) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572181.jpg" />
+  <img src="Z:/picture/008/save_picture_572181.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Risky Wings (2018) [Ru/Multi] (502/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572159.jpg" />
+  <img src="Z:/picture/008/save_picture_572159.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Milanoir (2018) [Ru/Multi] (1.1.0.213) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572140.jpg" />
+  <img src="Z:/picture/008/save_picture_572140.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Ice Age 4: Continental Drift - Arctic Games [Ru] (RePack/1.0) 2012 l R.G. Elemen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572037.jpg" />
+  <img src="Z:/picture/008/save_picture_572037.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Grow Up (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571901.jpg" />
+  <img src="Z:/picture/008/save_picture_571901.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Marvel: Ultimate Alliance 2 (2016) [En] (1.0/upd20160804) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571864.jpg" />
+  <img src="Z:/picture/008/save_picture_571864.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Foreign Legion: Buckets Of Blood [Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_570774.jpg" />
+  <img src="Z:/picture/005/save_picture_570774.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Mind Dead (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570116.jpg" />
+  <img src="Z:/picture/008/save_picture_570116.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Kung Fu Strike: The Warrior's Rise [En/Multi4] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569992.jpg" />
+  <img src="Z:/picture/008/save_picture_569992.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Ascendant (2014) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568677.jpg" />
+  <img src="Z:/picture/008/save_picture_568677.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568334.jpg" />
+  <img src="Z:/picture/008/save_picture_568334.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Fight'N Rage (2017) [En/Spa] (190516) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568315.jpg" />
+  <img src="Z:/picture/008/save_picture_568315.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Fight’N Rage - это старомодный аркадный файтинг. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3897423A6CC2FB872B219CD1F4E0A2B54B22F717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304007   (568293) от 23.05.2019
-
-LEGO: Marvel's Avengers (2016) [Ru/En] (1.1.0) Repack xatab
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мстители, собирайтесь! В популярной серии видеоигр LEGO Marvel вышла новая динамичная игра о приключениях супергероев. Присоединитесь к команде Мстителей LEGO Marvel и сыграйте в видеоигру с персонажами и сюжетами из фильмов и других художественных произведений.Тип издания: RepackРазработчик: Traveller's Tales , TT GamesЖанр: Arcade (Platform), 3D, 3rd-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2393BB6E8B5C27573F18D02A9F60B8AC8C065214
 ```
 
 https://mybot314.ru/tekegram_catalog/

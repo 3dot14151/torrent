@@ -1,3 +1,56 @@
+###  Публикация: 1707881   (62503) от 19.03.2024
+
+BricsCAD Ultimate 24.2.03 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62503.jpg" />
+</div>
+
+
+###  Подробнее
+
+BricsCad – лидер среди альтернативных DWG САПР платформ, предлагает полный набор функций для профессиональных пользователей. Bricscad использует формат DWG и обеспечивает очень высокую совместимость с AutoCAD®. Bricscad имеет интуитивно понятный интерфейс и не требует дополнительного обучения. Отличный выбор для архитекторов, инженеров, конструкторов и для всех, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDCAEFA39CF2F89E514774889F03BA57A582CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708760   (61984) от 24.03.2024
+
+КОМПАС-3D 22.0.10.1463 (x64) [Ru]
+
+>>След.
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61984.jpg" />
+</div>
+
+
+###  Подробнее
+
+КОМПАС-3D — система трехмерного проектирования, ставшая стандартом для тысяч предприятий, благодаря сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования.
+Ключевой особенностью продукта является использование собственного математического ядра С3D и параметрических технологий, разработанных (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E51F10FF7B8C79895EB728BCD39F0D4CF340B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713260   (60645) от 05.04.2024
 
 DATAKIT CrossManager 2024.2 [Multi/Ru]
@@ -6,7 +59,7 @@ DATAKIT CrossManager 2024.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60645.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Autodesk Inventor Professional 2025 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56324.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Sprint-Layout 6.0 DC 13.06.2024 RePack (& Portable) by NikZayatS2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51241.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Crocodile Technology 3D 609 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51170.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Proteus Professional 8.17 SP2 Build 37159 by nekto78 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51122.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ COMSOL Multiphysics 6.2 Build 339 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51117.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ ETAP 19.0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51010.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Altair Twin Activate 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50366.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Cadence OrCAD X 23.10.006 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46947.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ SimOne (Версия для радиолюбителей) 3.2.1 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44441.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ PathWave Advanced Design System 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44130.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ ZWCAD Architecture 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44129.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Automation Studio Professional Edition 7.0.0.10038 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42968.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ AnyLogic Professional 8.9.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42337.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ GoldSim 14.0 R3 Build 449 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40477.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Altair Flow Simulator 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40408.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Altair HyperWorks Suite 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40406.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Altair Inspire 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40403.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Altair S-FRAME 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38914.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ SolidWorks 2024 Premium SP5.0  [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38455.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Golden Software Grapher 24.1.213 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38200.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Altium Designer 25.0.2 Build 28 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36810.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ FreeCAD 1.0.0 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36710.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36334.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ nanoCAD – первая отечественная базовая САПР-пл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED221413F39165B06591BFA2C7CDE04160B92444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762144   (36286) от 24.11.2024
-
-DipTrace 5.1.0 + 3D Models [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36286.jpg" />
-</div>
-
-
-###  Подробнее
-
-DipTrace - это многофункциональная САПР по разработке электронных печатных плат и схемотехнической документации для проектов любой сложности, от идеи до готового устройства.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFE367FCF9E13B8548AD1BBD40FB5CCC4BD838C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764600   (34981) от 07.12.2024
-
-КОМПАС-3D v23 (Учебная версия) 23.0.3.2285 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34981.jpg" />
-</div>
-
-
-###  Подробнее
-
-КОМПАС-3D — система трехмерного проектирования, ставшая стандартом для тысяч предприятий, благодаря сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования.
-Ключевой особенностью продукта является использование собственного математического ядра С3D и параметрических технологий, разработанных (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D457A9B288FE9D01BBB978C98D646E55E70141
 ```
 
 https://mybot314.ru/tekegram_catalog/

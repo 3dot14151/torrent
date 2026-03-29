@@ -1,3 +1,162 @@
+###  Публикация: 952356   (356340) от 01.11.2015
+
+Футбол. Чемпионат Испании 2015-16. Liga BBVA. 10 тур. Реал Мадрид – Лас-Пальмас (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2015-16, Liga BBVA. 10 тур. Реал Мадрид – Лас-Пальмас.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:47:49 + 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EAB0EF78D02053B6095BBCA9D8D4E16E3E497C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952336   (356339) от 01.11.2015
+
+Футбол. Чемпионат России 2015-2016. РФПЛ. 14 тур. Зенит - Мордовия (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016, 14 тур. Зенит - Мордовия.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 02:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393323856FC2A4C79EF00CA4CADAD9FD457838B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178539   (356260) от 28.10.2017
+
+Фигурное катание. Гран-при 2017-2018. 2-й Этап. Скейт Канада 2017. Реджайна (Канада). Женщины. Короткая программа (27.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356260.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 октября 2017 года, пятница. 21:57 МСК
+Серия Гран-при по фигурному катанию сезона 2017-2018.
+«Skate Canada International 2017» — 2-й Этап Гран-при. Реджайна (Канада).
+Женщины. Короткая программа(   Читать дальше...   )Телекомпания: Eurosport Gold HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B510DF2E0268A4D27FE9802D55CE5903DAC9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952406   (356214) от 01.11.2015
+
+Вести в субботу с Сергеем Брилевым. Экстренный выпуск (31.10.2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утром 31 октября российский пассажирский самолет А321, следовавший рейсом 7K 9268 из Шарм-Эль-Шейха в Петербург, разбился на Синайском полуострове. На его борту находились 217 пассажиров и 7 членов экипажаТелекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DFECF1B21087DBDA09265244BEEA8C718CBF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952555   (356209) от 01.11.2015
+
+Воскресное время - Первый канал (01.11.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 02:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DB85ED32F69CAEFFA83CC94089B244B6A39F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952370   (356048) от 01.11.2015
+
+Футбол. Чемпионат Англии 2015-16. EPL. 11 тур. Челси - Ливерпуль (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Англии 2015-16, EPL. 11 тур. Челси - Ливерпуль.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E2A18C8E51F2D2244829F8091C95F3AB7EA578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952534   (356046) от 01.11.2015
 
 Вести недели (01.11.2015) SATRip
@@ -6,7 +165,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356046.jpg" />
+  <img src="Z:/picture/008/save_picture_356046.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355796.jpg" />
+  <img src="Z:/picture/008/save_picture_355796.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355706.jpg" />
+  <img src="Z:/picture/008/save_picture_355706.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355509.jpg" />
+  <img src="Z:/picture/008/save_picture_355509.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355038.jpg" />
+  <img src="Z:/picture/008/save_picture_355038.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354878.jpg" />
+  <img src="Z:/picture/008/save_picture_354878.jpg" />
 </div>
 
 
@@ -171,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354873.jpg" />
+  <img src="Z:/picture/008/save_picture_354873.jpg" />
 </div>
 
 
@@ -199,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354793.jpg" />
+  <img src="Z:/picture/008/save_picture_354793.jpg" />
 </div>
 
 
@@ -227,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354689.jpg" />
+  <img src="Z:/picture/008/save_picture_354689.jpg" />
 </div>
 
 
@@ -253,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354416.jpg" />
+  <img src="Z:/picture/008/save_picture_354416.jpg" />
 </div>
 
 
@@ -282,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354415.jpg" />
+  <img src="Z:/picture/008/save_picture_354415.jpg" />
 </div>
 
 
@@ -311,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354411.jpg" />
+  <img src="Z:/picture/008/save_picture_354411.jpg" />
 </div>
 
 
@@ -340,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354195.jpg" />
+  <img src="Z:/picture/008/save_picture_354195.jpg" />
 </div>
 
 
@@ -366,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354092.jpg" />
+  <img src="Z:/picture/008/save_picture_354092.jpg" />
 </div>
 
 
@@ -395,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354081.jpg" />
+  <img src="Z:/picture/008/save_picture_354081.jpg" />
 </div>
 
 
@@ -421,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353973.jpg" />
+  <img src="Z:/picture/008/save_picture_353973.jpg" />
 </div>
 
 
@@ -447,7 +606,7 @@ Moto GP. Сезон 2017. Shell Malaysia Motorcycle Grand Prix. Этап 17. Г�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353960.jpg" />
+  <img src="Z:/picture/008/save_picture_353960.jpg" />
 </div>
 
 
@@ -473,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353959.jpg" />
+  <img src="Z:/picture/008/save_picture_353959.jpg" />
 </div>
 
 
@@ -499,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353780.jpg" />
+  <img src="Z:/picture/008/save_picture_353780.jpg" />
 </div>
 
 
@@ -525,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353670.jpg" />
+  <img src="Z:/picture/008/save_picture_353670.jpg" />
 </div>
 
 
@@ -536,174 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4F2A65968447FD3AA3D219D1C8D1EC6D876F632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952696   (353512) от 02.11.2015
-
-Формула 1. Гран-При Мексики. Гонка (2015) HDTVRip [H.264/720p] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353512.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Формула-1" спустя 23 года возвращается в Мексику, где на автодроме братьев Родригес в Мехико состоится 17-й этап чемпионата текущего сезона. Интрига осталась лишь в том, кто займет места после первого.
-
-В Сочи "Мерседес" выиграл Кубок конструкторов, а в американском Остине гонщик этой команды Льюис Хэмилтон выиграл титул в личном зачете. Серьезная (   Читать дальше...   )Телекомпания: РоссияЖанр: Спорт, автоПродолжительность: 02:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FBE8592D5862E9E2E8F3C39D3CFC78072A2E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952703   (353419) от 02.11.2015
-
-Формула 1. Гран-При Мексики. Гонка (2015) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353419.jpg" />
-</div>
-
-
-###  Подробнее
-
-F1 2015. Этап 17, "Автодром имени братьев Родригес" (Мехико, Мексика)
-31.10.2015, Квалификация, 22:00 (мск) / 01.11.2015, Гонка, 22:00 (мск)Телекомпания: МАТЧ! ТВЖанр: Чемпионат Мира, АвтоСпорт, "открытые колеса"Продолжительность: 02:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E0E67DB911BE974080C8CA863095E972D2DDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952280   (353160) от 02.11.2015
-
-Самые шокирующие гипотезы (2015) SATRip (выпуски 1-31)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353160.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самые шокирующие гипотезы" - документальный проект телеканала "Рен ТВ"! Мы дадим новые ответы на старые вопросы и зададим свои. Факты, о которых долго молчали наши коллеги-журналисты, и независимая оценка событий, изменивших мир. Расследования самых сенсационных историй и свежий взгляд на, казалось бы, общеизвестные исторические факты. Поиск (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 31 х ~ 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1974E58694568AE5785827663CEBE3AF22373622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072395   (352883) от 13.11.2016
-
-Футбол. Чемпионат Мира 2018.Отборочный турнир.Европа.Группа C.4-й тур. Северная Ирландия – Азербайджан (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352883.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2016, пятница. 22:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа
-Группа C. 4-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D323F51580EF9ACAD90326FAC9B2F2BA31E8400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072387   (352882) от 13.11.2016
-
-Футбол. Чемпионат Мира 2018.Отборочный турнир.Европа.Группа E.4-й тур. Дания – Казахстан (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352882.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2016, пятница. 22:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа
-Группа E. 4-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Роман Трушечкин)Продолжительность: 01:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292644386292BCE98439819041DAACAC3B910856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072169   (352879) от 13.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "Трофе де Франс-2016". Пары. Короткая программа (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352879.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2016, пятница. 17:30 МСК
-4-й Этап серии Гран-при сезона 2016-2017
-"Трофе де Франс-2016". Париж (Франция)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB9F45B8423A3D90BF9C93F23AF49751F721958
 ```
 
 https://mybot314.ru/tekegram_catalog/

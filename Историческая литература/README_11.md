@@ -1,3 +1,137 @@
+###  Публикация: 974721   (975794) от 12.01.2016
+
+И. Стоун | Закулисная история войны в Корее (1953) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корейская война, бесспорно, является одним из важнейших событий нашего времени. Из всех современных событий она получила, пожалуй, наиболее широкую гласность. Но огромный поток широко рекламируемых сообщений, поступающий по всем каналам самых совершенных современных средств связи, дает американскому народу лишь одностороннее освещение событий, преподносит ему только (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144C645FCB439B8BF6206EF5B369026D726CF1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974745   (975792) от 12.01.2016
+
+М. Горев | Голод (1922) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра об ужасах голода, разразившегося в 1921 году на Поволжье и в др. местах России.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B363559392D2D5FDB529418CE7A0DCECAEA5BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974673   (975639) от 12.01.2016
+
+Эдвард Радзинский | Боги и люди (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975639.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Пророки и безумцы, властители дум, земные боги... Тайна славы, загадки решений, менявшие судьбы мира, губительные молнии истории и, наконец, чертеж Господа в судьбах людей... Обо всем этом - в книге".
+
+Эдвард РадзинскийЖанр: Биографии и мемуары, историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0C845124B1DFB9F31D7125D4A905A76CDBECFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974549   (975631) от 12.01.2016
+
+Эдвард Радзинский | Убийство императора. Александр II и тайная Россия (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы до сих пор ищем ответы на мучительные вопросы: почему от царя, названного русской Историей «Царем-Освободителем», уничтожившего постыдное русское рабство, реформировавшего всю русскую жизнь, к концу его правления отвернулось русское общество? Почему плодом первой русской перестройки стала могущественнейшая террористическая организация, до той поры невиданная в (   Читать дальше...   )Жанр: Биографии и Мемуары, Историческая литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672D701AD3A6EF28FB09218EABE05FB8C81003C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974858   (975625) от 12.01.2016
+
+Крисанн Бреннан | Червивое яблоко. Моя жизнь со Стивом Джобсом (2014) [EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Джобс – идол высоких технологий, создатель современного образа жизни, циничный делец, превративший мечту о свободе в многомиллиардный бизнес.
+
+Но Крисанн Бреннан – первая любовь Стива и мать его ребенка – помнит Джобса совсем другим и знает его лучше многих. В ее глазах юный Стив предстал мечтателем и идеалистом, стремящимся изменить мир – ни на что меньшее (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E1FF04DD89EB2B43F0ABC2E2BD5D0AA90EFA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357634   (973085) от 04.02.2020
 
 Константин Душенко | Последние слова знаменитых людей (2016) [EPUB]
@@ -6,7 +140,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973085.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972178.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970937.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970935.jpg" />
 </div>
 
 
@@ -110,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970631.jpg" />
 </div>
 
 
@@ -136,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970558.jpg" />
 </div>
 
 
@@ -162,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970409.jpg" />
 </div>
 
 
@@ -188,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969787.jpg" />
 </div>
 
 
@@ -214,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969775.jpg" />
 </div>
 
 
@@ -240,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969749.jpg" />
 </div>
 
 
@@ -267,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969718.jpg" />
 </div>
 
 
@@ -293,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969714.jpg" />
 </div>
 
 
@@ -321,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969659.jpg" />
 </div>
 
 
@@ -347,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968690.jpg" />
 </div>
 
 
@@ -373,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968688.jpg" />
 </div>
 
 
@@ -399,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968678.jpg" />
 </div>
 
 
@@ -425,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967179.jpg" />
 </div>
 
 
@@ -451,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966770.jpg" />
 </div>
 
 
@@ -477,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966764.jpg" />
 </div>
 
 
@@ -503,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966137.jpg" />
 </div>
 
 
@@ -529,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966064.jpg" />
 </div>
 
 
@@ -545,138 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6281BAFB2370F46F81ED01F240805CC24E23244B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977379   (965766) от 21.01.2016
-
-С. Вишнев | Экономические ресурсы Германии. Экономическая база Германии в новой Европейской войне (1940) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая империалистическая война в Европе имеет свой «экономический фронт», значение которого исключительно велико. Воюющие стороны, мобилизуя все свои военно-производственные ресурсы, одновременно стремятся посредством блокады и экономической войны ослабить хозяйственную базу противника. Это показывает возросшую роль экономических факторов в современной войне и значение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90EC5105B1173D260D7138B4BCE7261E51AAEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359204   (965111) от 11.02.2020
-
-Мориц Д. Буш | Так говорил Бисмарк! (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Результаты Франко-прусской войны 1870–1871 года стали триумфальными для Германии и дипломатической победой Отто фон Бисмарка. Но как удалось ему добиться этого?
-Мориц Буш – автор этих дневников – безотлучно находился при Бисмарке семь месяцев войны в качестве личного секретаря и врача и ежедневно, методично, скрупулезно фиксировал на бумаге все увиденное и услышанное, (   Читать дальше...   )Жанр: Биография, мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C4516A4D3AFB6336D9E787E7CD7740EE35EF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359266   (965007) от 11.02.2020
-
-Олег Воскобойников | Средневековье крупным планом (2019) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со школьной скамьи мы привыкли, что история – это перечень дат, имен и событий, последовательность которых нужно зазубрить. Нам никогда не объясняли мотивов и причин, нам представляли факты, заставляя просто принять их, как данность. Ученый-медиевист и профессор НИУ ВШЭ Олег Воскобойников предлагает другой подход.
-В своей книге «Средневековье крупным планом» автор (   Читать дальше...   )Жанр: История Древнего мираФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A522FAB0A374CF74256BD74E21216E34F8B88343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978043   (964711) от 22.01.2016
-
-Н. А. Халфин, А. А. Мурадян | Янки на Востоке в XIX веке, или колониализм без империи (1966) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накопленные наукой факты с полной очевидностью свидетельствуют о том, что американская политика на Востоке  носила неоспоримо колониалистский характер. И хотя  до самого конца XIX в. Соединенные Штаты не создали  своей колониальной империи, это отнюдь не означало,  что американскому капитализму было чуждо стремление  наживаться за счет (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D68EA3E7BDF4E7BEE256AA728D846EE03DCEA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978033   (964710) от 22.01.2016
-
-В. И. Дунаев | Японцы в Японии (1977) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги В.И. Дунаев, долгое время работавший в Японии в качестве корреспондента АПН, не претендует на последовательное раскрытие общественно-политических проблем Японии. Но та мозаичность, которой отличается эта книга, многообразие жизненных ситуаций, человеческих судеб, личные наблюдения и впечатлений автора - все это позволяет в конечном итоге сделать достаточно (   Читать дальше...   )Жанр: История, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFADEEB7BCB75505C35B94A3C869A4A9949AEC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

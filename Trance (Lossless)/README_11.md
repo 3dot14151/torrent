@@ -6,7 +6,7 @@ VA - Fatum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156989.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Vocal Trance 2018 (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156682.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Black Hole Recordings: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155194.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Myon Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154653.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Emma Hewitt - Emma Hewitt Remixed (Mini Mix) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149771.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Kyau & Albert Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149488.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Nitrous Oxide Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149471.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Deejay Dance Compilation Mixed By DJ Neil (2004) [FLAC|Lossless|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143775.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Female Vocal Trance Remixes (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141136.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136795.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Chicane - The Greatest Misses (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hous
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133012.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132071.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - A State of Trance Year Mix 2023 (Mixed by Armin van Buuren) (2023) [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128765.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Armin van Buuren - Breathe In (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Elec
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123148.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120679.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Пименов представляет Будущие хиты 2006 (2006)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120491.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Cosmonaut & Satellites (Космонавт и спутники) - макси-с�
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120463.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Cosmonaut & Satellites (Космонавт и спутники) -  Наверх 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120459.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA (Armin Van Buuren) - A State of Trance 2024 - DESTINATION (The Official Album
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116733.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Nova Scotia - Before I Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111171.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111126.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111125.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110429.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (2023) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110328.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109790.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109466.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1834685   (250350) от 04.11.2025
+
+House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repack Necros [Digital Deluxe Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора стряхнуть пыль с молотка - «Хаус Флиппер» возвращается в новом виде! Покупайте и ремонтируйте заброшенные дома! Или вы предпочитаете строить новые? Теперь можно и это! Примерьте роль флиппера-новичка и заработайте состояние, помогая жителям милого городка Pinnacove.Тип издания: RepackРазработчик: Frozen District, EmpyreanЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66309ED7F9B2AA89F13BF804C8C6415800C8B8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834692   (250337) от 04.11.2025
 
 Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250337.jpg" />
+  <img src="Z:/picture/004/save_picture_250337.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car Dealership Simulator (2023) [Multi] (1.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247709.jpg" />
+  <img src="Z:/picture/004/save_picture_247709.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ A Game of Thrones: The Board Game (2020) [Multi] (1.1.0.1494/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247393.jpg" />
+  <img src="Z:/picture/004/save_picture_247393.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247093.jpg" />
+  <img src="Z:/picture/004/save_picture_247093.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247056.jpg" />
+  <img src="Z:/picture/004/save_picture_247056.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Homeseek (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246746.jpg" />
+  <img src="Z:/picture/004/save_picture_246746.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246260.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233750.jpg" />
+  <img src="Z:/picture/005/save_picture_233750.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.6f1/dlc) Repack seleZen [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230586.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Factorio (2020) [Ru/Multi] (2.0.72/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230234.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.00.12) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225790.jpg" />
+  <img src="Z:/picture/005/save_picture_225790.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225089.jpg" />
+  <img src="Z:/picture/005/save_picture_225089.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Farmer's Dynasty (2017) [Ru/Multi] (1.00.2019.11.21) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224567.jpg" />
+  <img src="Z:/picture/005/save_picture_224567.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Tinytopia (2021) [Multi] (211111) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222066.jpg" />
+  <img src="Z:/picture/005/save_picture_222066.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ European Ship Simulator - Remastered (2016) [Multi] (1.0.765) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221677.jpg" />
+  <img src="Z:/picture/005/save_picture_221677.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Garden Simulator (2022) [Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221085.jpg" />
+  <img src="Z:/picture/005/save_picture_221085.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217152.jpg" />
+  <img src="Z:/picture/005/save_picture_217152.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ HuniePop 2: Double Date (2021) [En] (1.1.0a) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216250.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Steam-Rip/1.0.8788.0/DLC) 2012 | R.G. И�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216220.jpg" />
+  <img src="Z:/picture/005/save_picture_216220.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Ship Simulator 2008 (2008) [Ru/En] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216005.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Professional Lumberjack 2015 (2015) [Multi] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215681.jpg" />
+  <img src="Z:/picture/005/save_picture_215681.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Ship Graveyard Simulator (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214498.jpg" />
+  <img src="Z:/picture/005/save_picture_214498.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Please Fix The Road (2022) [Ru/Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213245.jpg" />
+  <img src="Z:/picture/005/save_picture_213245.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212660.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212290.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC0686F944465D390264696536BBA57218F2654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831500   (212283) от 29.10.2025
-
-MechWarrior 2 (1995) [En] (2.3.0.6) Repack Necros [Titanium Edition]
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mechwarrior 2 - симулятор управления фантастической боевой машиной 31-го тысячелетия в вымышленной вселенной Battletech. В роли война Клана игроку предстоит вести бой управляя Боевым Мехом. Задача игрока - выполнять миссии используя наименьшее кол-во ресурсов, за что он будет вознаграждаться дополнительными очками репутации чести. противником выступают Мехи и боевая (   Читать дальше...   )Тип издания: RepackРазработчик: ActivisionЖанр: Симулятор мехаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F046F020A718733DFA19B32D38E8AC162824A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330269.jpg" />
+  <img src="Z:/picture/008/save_picture_330269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330216.jpg" />
+  <img src="Z:/picture/008/save_picture_330216.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330160.jpg" />
+  <img src="Z:/picture/008/save_picture_330160.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330158.jpg" />
+  <img src="Z:/picture/008/save_picture_330158.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330146.jpg" />
+  <img src="Z:/picture/008/save_picture_330146.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Evanescence - Fallen (2003) [AAC|256 кб/с|WEB]<Alternative Rock, Nu Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329357.jpg" />
+  <img src="Z:/picture/008/save_picture_329357.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329307.jpg" />
+  <img src="Z:/picture/008/save_picture_329307.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Burito - Bu Ri To (2015) [AAC|WEB-DL|256 кб/с]<Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329200.jpg" />
+  <img src="Z:/picture/008/save_picture_329200.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Evanescence - The Open Door (2006) [AAC|256 кб/с|WEB]<Alternative Rock, Nu Me
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328355.jpg" />
+  <img src="Z:/picture/008/save_picture_328355.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Evanescence - Anywhere But Home (2004) Live [AAC|256 кб/с|WEB]<Alternative Ro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328251.jpg" />
+  <img src="Z:/picture/008/save_picture_328251.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Evanescence - Evanescence (2011) Deluxe Edition [AAC|256 кб/с|WEB]<Alternativ
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328240.jpg" />
+  <img src="Z:/picture/008/save_picture_328240.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [AAC|256 кб/с]<Bass
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328199.jpg" />
+  <img src="Z:/picture/008/save_picture_328199.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328197.jpg" />
+  <img src="Z:/picture/008/save_picture_328197.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327602.jpg" />
+  <img src="Z:/picture/008/save_picture_327602.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327601.jpg" />
+  <img src="Z:/picture/008/save_picture_327601.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327592.jpg" />
+  <img src="Z:/picture/008/save_picture_327592.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327591.jpg" />
+  <img src="Z:/picture/008/save_picture_327591.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327589.jpg" />
+  <img src="Z:/picture/008/save_picture_327589.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Max Richter - Sleep (2015) [AAC|256 кб/с|WEB]<Modern Classical, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327493.jpg" />
+  <img src="Z:/picture/008/save_picture_327493.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327436.jpg" />
+  <img src="Z:/picture/008/save_picture_327436.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Lindsey Stirling - Lindsey Stirling (2012) [AAC|256 кб/с|WEB]<Classical Cross
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327429.jpg" />
+  <img src="Z:/picture/008/save_picture_327429.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327424.jpg" />
+  <img src="Z:/picture/008/save_picture_327424.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ludovico Einaudi - Elements (2015) Deluxe Version [AAC|256 кб/с|WEB]<Modern C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327367.jpg" />
+  <img src="Z:/picture/008/save_picture_327367.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Lindsey Stirling - Shatter Me (2014) [AAC|256 кб/с|WEB]<Classical Crossover, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327335.jpg" />
+  <img src="Z:/picture/008/save_picture_327335.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327284.jpg" />
+  <img src="Z:/picture/008/save_picture_327284.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Rammstein - Herzeleid (1995) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326587.jpg" />
+  <img src="Z:/picture/008/save_picture_326587.jpg" />
 </div>
 
 

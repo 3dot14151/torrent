@@ -1,3 +1,171 @@
+###  Публикация: 848770   (225895) от 20.12.2014
+
+Никола Емелин - Емелин Вечер (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Николая Емелина в Москве, в 2007 г.01. Русь
+02. Поэты - Ангелы
+03. 25-июля
+04. К бате(   Читать дальше...   )Жанр: Концерт, ФолкПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F93DD24241802E6F943A84BEBFD508A1327083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964667   (225872) от 14.12.2015
+
+Александр Пушкин - Повести Белкина. Гробовщик (1972) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моноспектакль по одноименной повести А.С. Пушкина.
+Гробовщик Адриан Прохоров отправляется в гости к своему новому знакомому - сапожнику. Во время застолья многочисленные гости решили выпить за здоровье тех, на кого они работают. Адриан решил, что подобное предложение было намеренной насмешкой над его ремеслом, которое он считал не хуже других. Обиженный гробовщик (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программЖанр: Моноспектакль, литературное чтение, драмаРежиссер: Ольга КозноваАктеры: Александр КалягинПродолжительность: 00:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938AD6BAA20E0DE0C0F46EF267B79D532FF88E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965579   (225857) от 14.12.2015
+
+Александр Пушкин - Медный всадник (1979) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моноспектакль «Медный всадник» выпущен центральным телевидением СССР в 1979 году. Знаменитую поэму Пушкина читает народный артист Анатолий Папанов. Папанову как никому другому удалось передать всю прелесть этого художественного произведения. В своём монологе актёр особо выразительно подчеркивает отдельные места, мимикой и жестами выделяет некоторые особо значимые (   Читать дальше...   )Производство: СССР, Центральное телевидениеЖанр: Моноспектакль, литературное чтение, поэзияАктеры: Анатолий ПапановПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF95C202F86BED3F27BEB2173B44D88332958358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965435   (225674) от 14.12.2015
+
+Квартирник у Маргулиса. 6 выпуск. Скляр (2015) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкант, автор песен, радиоведущий и актер Александр Ф. Скляр сегодня в гостях у Евгения Маргулиса. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и любимые песни: Кухня, Босиком по Луне, Не надо так, Кислое вино (вместе с Александром Пушным) и многие другие. Дата эфира: 12.12.2015.01. Ад-и-Рай
+02. На кухне
+03. Босиком по луне
+04. Не надо так(   Читать дальше...   )Жанр: КонцертПродолжительность: 0:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E21A4619CDBC461D754C660A3A813F1E59A897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586705   (225637) от 09.12.2012
+
+Metallica - Quebec Magnetic (2012) BDRip [720]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Metallica, снятое их старым другом и коллегой Wayne Isham в канадском Квебеке в 2009 году.
+
+Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Также стоит отметить, что за данный выпуск проголосовало более 35 тысяч поклонников группы.Жанр: трэш-метал, концертПеревод: ОтсутствуетПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965081   (225515) от 14.12.2015
+
+Adele - At The BBC (2015) HDTVRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225515.jpg" />
+</div>
+
+
+###  Подробнее
+
+На шоу BBC Адель исполнила свои самые популярные хиты. Адель - британская певица, композитор, поэт, исполняющая поп-джаз/соул, блюз. В этом году состоялась мировая супер-премьера долгожданного третьего студийного альбома Адель - «25»!01. Rolling In The Deep
+02. Hello
+03. Rumour Has It
+04. Skyfall(   Читать дальше...   )Производство: Великобритания, BBCЖанр: Поп-музыка, концертПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C20BBA2793ECB3AC09185126F1C744621081C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965004   (225493) от 14.12.2015
 
 Джузеппе Верди - Жанна д’Арк (Театр Ла Скала) / Giuseppe Verdi - Giovanna d’Arco (Teatro alla Scala) (2015) HDTVRip [720p] [IT]
@@ -6,7 +174,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225493.jpg" />
+  <img src="Z:/picture/005/save_picture_225493.jpg" />
 </div>
 
 
@@ -33,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225411.jpg" />
+  <img src="Z:/picture/005/save_picture_225411.jpg" />
 </div>
 
 
@@ -59,7 +227,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225379.jpg" />
+  <img src="Z:/picture/005/save_picture_225379.jpg" />
 </div>
 
 
@@ -88,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225266.jpg" />
+  <img src="Z:/picture/005/save_picture_225266.jpg" />
 </div>
 
 
@@ -119,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225199.jpg" />
+  <img src="Z:/picture/005/save_picture_225199.jpg" />
 </div>
 
 
@@ -145,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223905.jpg" />
+  <img src="Z:/picture/005/save_picture_223905.jpg" />
 </div>
 
 
@@ -171,7 +339,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223829.jpg" />
+  <img src="Z:/picture/005/save_picture_223829.jpg" />
 </div>
 
 
@@ -197,7 +365,7 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222735.jpg" />
+  <img src="Z:/picture/005/save_picture_222735.jpg" />
 </div>
 
 
@@ -226,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222452.jpg" />
+  <img src="Z:/picture/005/save_picture_222452.jpg" />
 </div>
 
 
@@ -255,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222154.jpg" />
+  <img src="Z:/picture/005/save_picture_222154.jpg" />
 </div>
 
 
@@ -284,7 +452,7 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222117.jpg" />
+  <img src="Z:/picture/005/save_picture_222117.jpg" />
 </div>
 
 
@@ -313,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221782.jpg" />
+  <img src="Z:/picture/005/save_picture_221782.jpg" />
 </div>
 
 
@@ -343,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221120.jpg" />
+  <img src="Z:/picture/005/save_picture_221120.jpg" />
 </div>
 
 
@@ -372,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221105.jpg" />
+  <img src="Z:/picture/005/save_picture_221105.jpg" />
 </div>
 
 
@@ -401,7 +569,7 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220603.jpg" />
 </div>
 
 
@@ -428,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220561.jpg" />
+  <img src="Z:/picture/005/save_picture_220561.jpg" />
 </div>
 
 
@@ -454,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220409.jpg" />
+  <img src="Z:/picture/005/save_picture_220409.jpg" />
 </div>
 
 
@@ -483,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220019.jpg" />
+  <img src="Z:/picture/005/save_picture_220019.jpg" />
 </div>
 
 
@@ -509,7 +677,7 @@ Queen: A Night At The Odeon - Hammersmith (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219859.jpg" />
+  <img src="Z:/picture/005/save_picture_219859.jpg" />
 </div>
 
 
@@ -539,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219584.jpg" />
+  <img src="Z:/picture/005/save_picture_219584.jpg" />
 </div>
 
 
@@ -554,177 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:599B2171D6FCF810CCE849E7D8786FAEF641994D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966444   (218734) от 18.12.2015
-
-Эдуард Хиль. С любовью вместе, фильм-концерт (1973) SATRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный фильм ленинградского телевидения с участием народного артиста РСФСР, Эдуарда Хиля.1. Не отводи от жизни глаз
-2. Веселый пастух
-3. Крестики-нолики
-4. Твоя судьба(   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: МузыкальныйАктеры: Эдуард ХильПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2256ADB42CBB70822D06D80C1571E88573B550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425839   (218488) от 22.11.2020
-
-Квартирник НТВ у Маргулиса. Группа POKAPRЁT (21.11.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218488.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2015 году популярный актер Евгений Цыганов вместе с Михаилом Химаковым и Андреем Муравкиным собрали коллектив и уже на протяжение пяти лет создают «убойный звук», делая упор на гитару, барабаны, бас и вокал. В названии группы отражается весь принцип их существования: с первых аккордов их песен понятно — драйва музыкантам не занимать. В гостях у Евгения Маргулиса (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BE7096A9E87A23DB5FA6F5D61D7C77E293201B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465054   (218374) от 02.12.2021
-
-ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых оригинальных рок-групп мирового уровня – в каковом статусе техасские бородачи ZZ Top пребывают с середины 70-х – за почти 39 лет профессиональной карьеры не имела ни единой авторизованной концертной видеозаписи. Это тем более удивительно для группы, с пониманием встретившей наступление видеоэры 80-х. Но, совершенно в стиле ZZ Top, поклонники должны (   Читать дальше...   )Производство: СШАЖанр: RockРежиссер: Milton LageАктеры: ZZ Top
-Billy Gibbons - гитара, вокал
-Dusty Hill - бас, вокал
-Frank Beard - ударныеПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966572   (217765) от 18.12.2015
-
-Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается концерт Кэти Перри на Allphones Arena в Сиднее (Австралия), записанный в декабре 2014 года в ходе её мирового тура The Prismatic World Tour Live.01. Roar
-02. Part of Me
-03. Wide Awake
-04. This Moment / Love Me(   Читать дальше...   )Производство: США (Eagle Rock Entertainment)Жанр: PopРежиссер: Russell ThomasПродолжительность: 01:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4D52481340835BC3A53AF79F9F543333D1AF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269876   (217716) от 16.12.2018
-
-L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитарист Трейси Ганс и вокалист Фил Льюис, которые в 2016 году воссоединились под названием L.A. Guns после более 15 лет скандалов и работы по раздельности, выпускают новый концертный альбом "Made In Milan". Релиз увидел свет 23 марта на лейбле Frontiers Music Srl в форматах CD, DVD и Blu-ray. Материал диска был записан в 2017 году на фестивале "Frontiers (   Читать дальше...   )01. No Mercy
-02. Electric Gypsy
-03. Killing Machine
-04. Bow Solo/Over The Edge(   Читать дальше...   )Производство: США, Frontiers Music SrlЖанр: Hard Rock, Glam RockСубтитры: отсутствуютПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB9F40218425195AACF715F910D32E190448F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269782   (217664) от 16.12.2018
-
-L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитарист Трейси Ганс и вокалист Фил Льюис, которые в 2016 году воссоединились под названием L.A. Guns после более 15 лет скандалов и работы по раздельности, выпускают новый концертный альбом "Made In Milan". Релиз увидел свет 23 марта на лейбле Frontiers Music Srl в форматах CD, DVD и Blu-ray. Материал диска был записан в 2017 году на фестивале "Frontiers (   Читать дальше...   )01. No Mercy
-02. Electric Gypsy
-03. Killing Machine
-04. Bow Solo/Over The Edge(   Читать дальше...   )Производство: США, Frontiers Music SrlЖанр: Hard Rock, Glam RockСубтитры: отсутствуютПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8708CC57FB4A871370A6732BEAE64D274507E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1215206   (904930) от 28.08.2021
+
+Tamas Olejnik (Dublicator, MetaComplex, Antendex, Astral Travel Agency, Organit, Auto Reverse, etc.) - 2006-2021 [FLAC|Lossless] <Dub Techno, Ambient, Electro, Psybient, Synthwave, Psy-Trance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avulth - Lime & Space (07:52)
+ 02. Organit - Curvature (07:12)Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Electro, Techno, Psybient, Synthwave, Psy-Trance •Продолжительность: 46:42:52 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CE68DABE45586F2D5DBB01F32B605060BF6A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368727   (904680) от 22.03.2020
+
+Ремонт по-марсиански: инженеры NASA вернули бур аппарата InSight к работе, стукнув по нему лопатой
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженеры NASA в очередной раз доказали, что способны решать самые нетривиальные задачи в самых непростых условиях. Прецедент произошел с марсианским модулем InSight – в ходе пробного бурения инструмент аппарата застрял в грунте Красной планеты и операторы марсохода нашли крайне необычный выход из положения. Они отдали марсоходу приказ... ударить себя лопатой. И это (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099351   (904572) от 01.02.2017
+
+Пространственно-временные кристаллы - абсолютно новая форма материи
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904572.jpg" />
+</div>
+
+
+###  Подробнее
+
+У большинства людей понятие "кристалл" ассоциируется с алмазами, полудрагоценными камнями или крупинками обычной соли. Все названные выше вещи имеют одно общее свойство - элементы их упорядоченной структуры повторяются в пространстве бесчисленное количество раз. Но на свете могут существовать и более экзотические кристаллы, к примеру такие, структура которых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369062   (904525) от 22.03.2020
+
+Платформа / El hoyo / The Platform (2019) WEB-DLRip [H.264] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горен соглашается на участие в некоем эксперименте и вскоре приходит в себя в почти пустой комнате уровня 48, где имеются большие прямоугольные отверстия в полу и потолке. На каждом уровне находятся двое человек, а сколько всего уровней — неизвестно. Этажи связывает общий колодец, по которому раз в день опускается платформа с едой, и чем ниже находятся люди, тем (   Читать дальше...   )Производство: Испания / Basque Films, Mr Miyagi Films, Plataforma La Película AIEЖанр: Фантастика, триллер, драмаРежиссер: Гальдер Гастелу-УррутияАктеры: Иван Массаге, Сорион Эгилеор, Антония Сан Хуан, Эмилио Буале, Alexandra Masangkay, Zihara Llana, Марио Пардо, Альгис Арлаускас, Txubio Fernández, Eric GoodeПеревод: Одноголосый любительский (Datynet)Субтитры: Русские, английские, испанскиеПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7793C45E41161B41AFCD60274B19170ECC4E62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099621   (904247) от 01.02.2017
 
 Bandicam 3.3.2.1195 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +111,7 @@ Bandicam 3.3.2.1195 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904247.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.01.31 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904229.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ iБой / iBoy (2016) WEB-DL [H.264/720p-LQ] [AD]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904227.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903943.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903595.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ uTorrent 3.4.5 Build 41865 Stable Portable by A1eksandr1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903589.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Windows 98 — теперь и в браузере
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903542.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ AusLogics BoostSpeed 8.2.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903504.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903125.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ Microsoft может выпустить облачную версию Windows 10
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902855.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Need For Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902658.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902655.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ Avira Phantom VPN Pro 2.4.3.30556 RePack by D!akov [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902632.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902356.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902289.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902157.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902135.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901838.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ Wurm Unlimited (2015) [En] (2016-03-01) SteamRip GameComa
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901837.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2071465/dlc) SteamRip =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901726.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901683.jpg" />
 </div>
 
 
@@ -555,121 +660,13 @@ New Super Mario Bros.Wii [Wii] [PAL] [Русский (R.G. DShock)] (2009)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901678.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Жанр: 2.5D PlatformerФормат: Образ в формате
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350718   (901137) от 24.03.2020
-
-Murenase! Seton Gakuen / Seton Academy: Join the Pack! / Объединяйся! Академия Сэтон [2020, TV, 12] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901137.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Академии Сэтон» учатся в основном животные, пусть разумные, говорящие и ходящие на двух ногах, но во многом верные своим животным привычкам. Дзин Мадзама, один из двух учеников-людей в своём классе, с детства не испытывает особой симпатии к животным. Единственная его отрада в школе — одноклассница Хитоми Хино, такой же человек, как и он. Возможно, так бы и продолжилась (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA94AA8C0CC20F3B8BDBD27E68D40E541B54DC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292523   (900937) от 10.02.2011
-
-Gary Moore - 42 Albums (1973-2009) [MP3|320 kbps]<Rock, Blues>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Уильям Гэри Мур (англ. Robert William Gary Moore; 4 апреля 1952, Белфаст, Северная Ирландия — 6 февраля 2011, Эстепона, Испания) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С четырнадцати лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша.
-Музыкальная карьера Гэри Мура (   Читать дальше...   )Список альбомов:
-1973 - Grinding Stone
-1978 - Back on the streets
-1980 - G-Force (Castle Communications 1990)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 53:59:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100278   (900761) от 03.02.2017
-
-Total Commander 9.0a Freemen 17.1 Repack by notn [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69C0C8033809E0972398469A6F485ADBABA90D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099683   (900715) от 03.02.2017
-
-Американские провайдеры похоронили антипиратскую систему «шести ударов»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-провайдеры США объявили о завершении работы системы предупреждения о нарушении авторских прав Copyright Alert System (CAS)В 2011 году Американская ассоциация кинокомпаний (MPAA) и Американская ассоциация звукозаписывающих компаний (RIAA) объединились с несколькими крупными провайдерами США, запустив систему предупреждений авторских прав CAS. Система должна (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,82 @@
+###  Публикация: 815848   (550600) от 25.08.2014
+
+Епископ Григорий | Течение неба. Христианство как опасное путешествие навсегда (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истинное православие весьма отличается от его расхожих версий, излагаемых в благоглупостных книжках о вере и церкви. Оно почти недоступно не только наблюдению, но даже словесному описанию. Однако не все так плохо.
+Нужно просто отойти чуть в сторону от тех смотровых площадок, откуда православие обычно - и безуспешно - показывают, и обратиться к историческим и современным прецедентам христианского бытия, когда оно направлено "против течения" нехристианской или псевдохристианской общественной жизни. Может (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854EE039836A4DEF2AF9642C82F037D02A669598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046934   (550177) от 29.08.2016
+
+И. С. Вдовин (отв. ред.) | Природа и человек в религиозных представлениях народов Сибири и Севера (1976) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550177.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике систематизированы и подвергнуты анализу религиоз­ные представления, бытовавшие в середине XIX—начале XX в. у ненцев, нганасан, кетов, селькупов, нанайцев, нивхов, чукчей, ко­ряков, алтайцев, тувинцев, бурят и западносибирских татар. Боль­шинство статей написано на основе полевых материалов авто­ров, а также данных научных публикаций, архивных и музейных (   Читать дальше...   )Жанр: История, философия, религиоведение, этнография, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E407E23CCC4818BCFAEFA09730A67F1D9F06913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237923   (549728) от 26.07.2018
+
+Архимандрит Спиридон (Кисляков) | Исповедь священника перед Церковью (2018) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об этом человеке мало что известно широкой публике. Главное произведение его жизни ни разу не публиковалось за последнее столетие в полном виде, в то же время трудно сравнить с ним по мощи, смелости, силе выразительности какую-либо другую книгу, написанную о следовании за Христом в ХХ веке. Этот человек – архимандрит Спиридон (Кисляков), эта книга – «Исповедь священника (   Читать дальше...   )Жанр: Биографии и мемуары, духовная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA304CA591817DFBEAD4DE2A58AF35F38848C181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309589   (549678) от 21.06.2019
 
 Иеромонах Серафим (Параманов) | О паломничестве и странничестве (2004) [PDF, DJVU]
@@ -6,7 +85,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549678.jpg" />
+  <img src="Z:/picture/008/save_picture_549678.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549614.jpg" />
+  <img src="Z:/picture/008/save_picture_549614.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546615.jpg" />
+  <img src="Z:/picture/008/save_picture_546615.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546539.jpg" />
+  <img src="Z:/picture/008/save_picture_546539.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545805.jpg" />
+  <img src="Z:/picture/008/save_picture_545805.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545800.jpg" />
+  <img src="Z:/picture/008/save_picture_545800.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544946.jpg" />
+  <img src="Z:/picture/008/save_picture_544946.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544670.jpg" />
+  <img src="Z:/picture/008/save_picture_544670.jpg" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543839.jpg" />
+  <img src="Z:/picture/008/save_picture_543839.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543837.jpg" />
+  <img src="Z:/picture/008/save_picture_543837.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543161.jpg" />
+  <img src="Z:/picture/008/save_picture_543161.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542884.jpg" />
+  <img src="Z:/picture/008/save_picture_542884.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542535.jpg" />
+  <img src="Z:/picture/008/save_picture_542535.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542528.jpg" />
+  <img src="Z:/picture/008/save_picture_542528.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542519.jpg" />
+  <img src="Z:/picture/008/save_picture_542519.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542517.jpg" />
+  <img src="Z:/picture/008/save_picture_542517.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542514.jpg" />
+  <img src="Z:/picture/008/save_picture_542514.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541973.jpg" />
+  <img src="Z:/picture/008/save_picture_541973.jpg" />
 </div>
 
 
@@ -486,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541399.jpg" />
+  <img src="Z:/picture/008/save_picture_541399.jpg" />
 </div>
 
 
@@ -512,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541053.jpg" />
+  <img src="Z:/picture/008/save_picture_541053.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540628.jpg" />
+  <img src="Z:/picture/008/save_picture_540628.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537203.jpg" />
+  <img src="Z:/picture/008/save_picture_537203.jpg" />
 </div>
 
 
@@ -591,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537148.jpg" />
+  <img src="Z:/picture/008/save_picture_537148.jpg" />
 </div>
 
 
@@ -603,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B39683BA3489EDC0DA9AE3129FD008D87DE9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154551   (537144) от 01.08.2017
-
-Г. А. Гурев | Дарвинизм и религия. Из истории идеологической борьбы в биологии (1957) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537144.jpg" />
-</div>
-
-
-###  Подробнее
-
-При всей важности для истории естествознания выступлений ранних натуралистов-эволюционистов только Чарлзу Роберту Дарвину (1809—1882) привелось дать вполне убедительные, неопровержимые доказательства существования органической эволюции, т.е. непостоянства, «текучести» видов и их преемственности, родственной связи, и создать строго научное учение об историческом развитии (   Читать дальше...   )Жанр: Политология, биология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9EF310944C66DD9F9CE03484C152E4FC135B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154902   (537079) от 01.08.2017
-
-Ковчег (изд.) | Великие русские старцы. Жизнеописания, чудеса, духовные наставления. (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949D07052C5D7D20C3085C9CC205912282BC0372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312003   (536207) от 02.07.2019
-
-Г.П. Чинякова | Кавказское созвездие. Жизнеописания подвижников Северного Кавказа XX века (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Г.П. Чиняковой посвящена кавказским подвижникам, чьё служение Богу и Его святой Церкви выпало на трагический XX век. Это воистину духовное созвездие — архипастыри, священники, монашествующие, миряне, принесшие Господу свою жизнь. В книгу также включены жизнеописания подвижников конца XX века — в частности, протоиерея Петра Сухоносова, замученного в 1999 году.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D73DC384CED5B2B04A32AA77E50A650787803B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

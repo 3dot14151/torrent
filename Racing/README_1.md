@@ -6,7 +6,7 @@ Sonic & All-Stars Racing Transformed En/Multi5] (L) 2013 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986390.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983137.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.0.7.0/dlc) SteamRip Let'sРlay [Gold P
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969146.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Road Rash [En] (L) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955318.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Burnout Paradise: The Ultimate Box [Ru/En/Multi8] (L/1.1.0.0) 2009 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954692.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Race Driver: GRID (2008) [Multi] (1.3.0.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953209.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Colin McRae Rally Remastered (2014) [Multi] (1.0) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953195.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Sébastien Loeb Rally EVO (2016) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952375.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Camper Jumper Simulator (2017) [En/Pl] (1.0) License HI2U
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949932.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Death Track: Resurrection [En/Multi6] (L) 2008 | PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946974.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ DiRT: Anthology / DiRT: Антология [Ru/En] (Repack) 2007-2012 | R.G. М�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946777.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Aqua Moto Racing Utopia (2016) [Ru/Multi] (1.0/upd5) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945479.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MX Nitro: Unleashed (2017) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940517.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ridge Racer Unbounded [Ru/En/Multi6] (RePack/1.13) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934266.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DiRT Showdown (2012) [Ru/Multi] (1.2) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928515.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Need for Speed: Most Wanted 2012 [Ru] (RePack/1.5) 2012 | Audioslave
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924350.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Vector 36 (2017) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916697.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904380.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880969.jpg" />
+  <img src="Z:/picture/005/save_picture_880969.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MX Nitro (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880954.jpg" />
+  <img src="Z:/picture/005/save_picture_880954.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ MX Nitro (2017) [Ru/Multi] (5.4.4.14695) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879143.jpg" />
+  <img src="Z:/picture/005/save_picture_879143.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874172.jpg" />
+  <img src="Z:/picture/005/save_picture_874172.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Rally Championship 2000 [Ru] (L) 2000
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872222.jpg" />
+  <img src="Z:/picture/008/save_picture_872222.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Need for Speed Most Wanted (2012) [Ru/Multi] (1.5.0.0/dlc) License PLAZA [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846003.jpg" />
+  <img src="Z:/picture/008/save_picture_846003.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/11dlc) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844885.jpg" />
+  <img src="Z:/picture/008/save_picture_844885.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Radial-G: Racing Revolved (2016) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844465.jpg" />
+  <img src="Z:/picture/008/save_picture_844465.jpg" />
 </div>
 
 

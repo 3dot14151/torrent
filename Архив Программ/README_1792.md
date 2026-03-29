@@ -1,3 +1,291 @@
+###  Публикация: 1661770   (188412) от 15.09.2023
+
+AOMEI Partition Assistant Technician Edition 10.2.0 (15.09.2023) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188412.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3E6997DB16F0D8A28941DE24B180B6ADCA244F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661747   (188407) от 15.09.2023
+
+SamDrivers 23.9 Expert [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers для экспертов содержит самые капризные и не всегда стабильные, но иногда нужные драйверы. В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.22.1 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229BDE1EBE12D4EBDAF8CE97CD20CF4DC2953D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661768   (188406) от 15.09.2023
+
+Topaz Photo AI 2.0.1 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCB5C379182525B5E10BB05B49231DF70BB636B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590841   (188396) от 15.11.2022
+
+AIMP 5.10 Build 2414 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188396.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Белорусский, Украинский, Английский,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84887A3B3D220E2C96D4564FBC0E3FD5D1655F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590840   (188391) от 15.11.2022
+
+KiCad 6.0.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188391.jpg" />
+</div>
+
+
+###  Подробнее
+
+KiCad – уникальный в своем роде программный продукт, позволяющий открывать, создавать, разрабатывать электронные схемы для последующего вывода дизайна печатной платы в интерактивном просмотре. По сути, это целый комплекс программ, относящийся к отдельному классу EDA – Автоматизация проектирования электроники. Встроенные компоненты позволят не только создать, но также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA28961B095E961C51459474EEB548EA14EB81BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590687   (188347) от 15.11.2022
+
+Planet VPN 1.4.02.08 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью бесплатный ВПН сервис без ограничений по трафику и скорости. Для подключения не требуется регистрация и ввод личных данных.
+С Planet VPN вы можете не беспокоиться об интернет-цензуре и ограничении доступа к любимым сайтам и торрентам.
+Наслаждайтесь просмотром потокового видео и прослушиванием музыки на сайтах, спортивными мероприятиями, играми, социальными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBAA086788A9DCF832BFD0C10903BDE3A24DB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661549   (188346) от 15.09.2023
+
+SAS.Планета 230909 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188346.jpg" />
+</div>
+
+
+###  Подробнее
+
+SAS.Планета / SAS.Planet / SASPlanet – свободная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone maps, карты Генштаба и др., (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BBF756AB33E6B5E1AC0EF432CEE439F81F8749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661582   (188318) от 15.09.2023
+
+Blackmagic Design DaVinci Resolve Studio 18.6 Build 9 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188318.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B01677DCCD86EAB0AC41931C395C52BF2C8F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661582   (188316) от 15.09.2023
+
+Blackmagic Design DaVinci Resolve Studio 18.6 Build 9 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188316.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B01677DCCD86EAB0AC41931C395C52BF2C8F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661756   (188303) от 15.09.2023
+
+Adobe Illustrator 2023 27.9.0.80 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator 2022 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2B3BB50CF1A622A2CF5D475F179C628B218AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661756   (188301) от 15.09.2023
+
+Adobe Illustrator 2023 27.9.0.80 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator 2022 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2B3BB50CF1A622A2CF5D475F179C628B218AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661763   (188296) от 15.09.2023
 
 CorelDRAW Technical Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +294,7 @@ CorelDRAW Technical Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188296.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ CorelDRAW Technical Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188295.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ Adobe Photoshop 2024 25.0.0.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188292.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ HiBit Uninstaller 3.1.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188230.jpg" />
 </div>
 
 
@@ -111,7 +399,7 @@ Joplin 2.12.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188226.jpg" />
 </div>
 
 
@@ -138,7 +426,7 @@ PortableApps.com Platform 26.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188211.jpg" />
 </div>
 
 
@@ -166,7 +454,7 @@ Pale Moon 32.4.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188208.jpg" />
 </div>
 
 
@@ -192,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188201.jpg" />
 </div>
 
 
@@ -218,7 +506,7 @@ SamDrivers 23.9 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188197.jpg" />
 </div>
 
 
@@ -244,7 +532,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7109 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188185.jpg" />
 </div>
 
 
@@ -270,7 +558,7 @@ Adobe Bridge 2024 14.0.0.102 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188171.jpg" />
 </div>
 
 
@@ -296,7 +584,7 @@ Uninstall Tool 3.7.3 Build 5719 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188160.jpg" />
 </div>
 
 
@@ -322,7 +610,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.3448]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188156.jpg" />
 </div>
 
 
@@ -351,7 +639,7 @@ GoodbyeDPI 0.2.2. Launcher 6.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188149.jpg" />
 </div>
 
 
@@ -380,7 +668,7 @@ Windows 7 (3in1) x64 by Updated Edition (15.09.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188141.jpg" />
 </div>
 
 
@@ -393,299 +681,6 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoИнтегрированы о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3CF14C72C9025239D3A9109AD894813BA1BCD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661997   (188117) от 16.09.2023
-
-Adobe Photoshop 2023 24.7.1.741 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2023 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB64648CEA9C952DAD3C7427E5FD7A7C1CD696C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661540   (188111) от 16.09.2023
-
-KMS Tools Portable by Ratiborus 15.09.2023 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188111.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5440C4722E90018495F1869D1632B05D8B8FDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662498   (188054) от 17.09.2023
-
-Text Editor Pro 27.6.0 + Portable + Bonus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6891308FFC2362FF22FCD5A1C02CFD0A17E18BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662317   (188034) от 17.09.2023
-
-Telegram Desktop 4.9.8 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE326A5782498D299AF74FE21A96AE7DF59F78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662508   (188032) от 17.09.2023
-
-Sumatra PDF 3.5.15510 Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E981225CF5213B2454F526F509BF793EE51B44A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662309   (188007) от 17.09.2023
-
-PortableApps.com Platform 26.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188007.jpg" />
-</div>
-
-
-###  Подробнее
-
-PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
-
-Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D2FBE5DD7FCFC6331BC125B825BEE79FB49277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662324   (187994) от 17.09.2023
-
-Subtitle Edit 4.0.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8F4B67D92DFB96E5461B70966AE73CB43B5633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662504   (187985) от 17.09.2023
-
-Imagine 1.1.8 + Portable + Plugins  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725533606EE2E7F997C2D698E10249F70B22E0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662491   (187920) от 17.09.2023
-
-DNS Changer 2.1.8 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187920.jpg" />
-</div>
-
-
-###  Подробнее
-
-DNS Changer - это простой и эффективный инструмент для пользователей, которым требуется программа для удобной смены DNS-серверов. Основная цель программы - предложить удобный способ изменения DNS без лишних усилий со стороны пользователя. DNS Changer - это интуитивно понятное и удобное приложение с современным дизайном интерфейса. Его использование не вызывает трудностей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0022BD0E707EB73624540BCEE869C002F334617D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660738   (187822) от 17.09.2023
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20565 (2023.09) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B3E519EB308AA656309833BED30ABF97E2BCA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591056   (187809) от 16.11.2022
-
-Opera GX 92.0.4561.64 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACE31A7FB35BD4714F614AC4179B69691BBF410
 ```
 
 https://mybot314.ru/tekegram_catalog/

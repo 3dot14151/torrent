@@ -1,3 +1,160 @@
+###  Публикация: 766240   (588690) от 30.07.2014
+
+Верь / Believe (2014) WEB-DLRip [720p] (Сезон 1, серии 1-13 из 13) (LostFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Левитация, телекинез, умение предсказывать будущее, способность управлять природой... Всем этим с малых лет обладает Бо. Девочку, осиротевшую в два года, принимает к себе небольшая группа людей, известная как «Истинные верующие». Там долгие годы Бо была надёжно ограждена от посторонних, которые бы могли воспользоваться её необычными способностями ради собственной (   Читать дальше...   )Жанр: Фэнтези, драмаРежиссер: Альфонсо Куарон, Роксанн ДоусонАктеры: Джонни Секвойя, Джэйк МакЛафлин, Делрой Линдо, Кайл МакЛоклен, Сиенна Гиллори, Джейми Чунг, Ариан Моайед, Юрий Хенли-Кон, Кэти МакКлеллан, Роб Морган и др.Перевод: Профессиональный многоголосый закадровый - LostFilmОзвучка: Студия «LostFilm»Формат: MKVПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3F770EB630E45B1742572C5BF8522B89C38468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651669   (588687) от 30.07.2014
+
+Тысяча и одна ночь / 1001 ночь / BinBir Gece (2006-2009) TVRip (серии 1-90 из 90) turok1990
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588687.jpg" />
+</div>
+
+
+###  Подробнее
+
+У главной героини сериала Шахрезад болен сын, и требуется очень дорогостоящая операция на костном мозге. Растит сына она одна, муж погиб. Родители мужа были против женитьбы и не хотят помогать ей. Банк отказывает в кредите. Остается последний шанс просить кредит у хозяина фирмы, ее непосредственного начальника. Вот и поступает от ее начальника господина Онура неожиданное (   Читать дальше...   )Жанр: МелодрамаРежиссер: Кудрет СабанжиАктеры: Халит Эргенч, Бергюзар Корель, Тарду Флордун, Джейда Дювенджи, Метин Чекмез, Томрис Инчер, Демир Ерган, Иф Чинар, Мерих Эрмакастар, Барту КучукчаглаянПеревод: Одноголосый закадровый, любительский - turok1990Продолжительность: 87 x ~ 01:00:00 + 00:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9754B042C697F640BE18FD669A9AB6325BF65BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916932   (588481) от 13.07.2015
+
+Switch UI Language Adobe CC 2015 1.0 [En] (Авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшие приложения, позволяющее быстро сменить язык в продуктах Adobe CC 2015.
+Поддерживаемые языки для переключения:  английский, русский, украинский.Разработчик: BuZzOFFЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF14EC6393A8ED1F82CA054E1EFC86488E10E884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917903   (588478) от 13.07.2015
+
+AusLogics BoostSpeed 5.5.1.0 RePack (& Portable) by elchupacabra (Upd. 12.07.2015) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588478.jpg" />
+</div>
+
+
+###  Подробнее
+
+AusLogics BoostSpeed - единственная программа, которая позволит Вам быстро и качественно произвести настройку Вашей системы на максимальную производительность. Встроенный System Adviser проверит настройки Вашей системы с помощью 50 различных тестов и предложит Вам рекомендации по каждому тесту. Программа в реальном времени проверяет Вашу систему и если находит, что (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717648E7B6C5AE8F99A2E480003AEA3AFC2B4057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918107   (588475) от 13.07.2015
+
+Шпион / Spy (2015) WEBRip [H.264] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_588475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзан Купер всю свою жизнь мечтала стать секретным агентом и даже устроилась работать в ЦРУ. Однако, дальше сотрудника самой низкой ступени ей так и не удалось продвинуться. Понимая, что осуществить свою мечту практически невозможно, она все-таки продолжает надеяться на лучшее и с нетерпением ожидает своего шанса. И вскоре судьба дарит ей такую возможность. Лучший (   Читать дальше...   )Производство: США, Feigco Entertainment, Twentieth Century FoxЖанр: Боевик, КомедияРежиссер: Пол ФигАктеры: Мелисса МакКарти, Джейсон Стэйтем, Джуд Лоу, Роуз Бирн, Миранда Харт, Бобби Каннавале, Морена Баккарин, Раад Рави, Джессика Чаффин, Сэм РичардсонПеревод: Дублированный (чистый звук)Язык субтитров: АнглийскийПродолжительность: 01:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742DCFD9BA74D3FCB307B038D5B4E4E9B87C8C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039467   (588181) от 03.08.2016
+
+Найден генетический "ключ", поворот которого позволяет стереть ассоциативную память
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_588181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ассоциативная память играет в нашей жизни одну из главных ролей. Коснитесь рукой раскаленной ручки стоящей на плите сковородки и, благодаря именно ассоциативной памяти, вы больше никогда в жизни не будете повторять этой ошибки. Но у ассоциативной памяти имеется и "обратная сторона медали", к примеру, у людей, прошедших через "горнило" горячих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 200257   (588021) от 03.08.2016
 
 Десант есть десант / ВДВ (1-16 серии из 16) / 2010 / SATRip
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_588021.jpg" />
+  <img src="Z:/picture/005/save_picture_588021.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ FL Studio Producer Edition 12.3 build 72 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588013.jpg" />
+  <img src="Z:/picture/008/save_picture_588013.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Fallout 4: Vault-Tec Workshop (2016) [Ru/En] (1.6.3.0.1) License [DLC]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588012.jpg" />
+  <img src="Z:/picture/008/save_picture_588012.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588007.jpg" />
+  <img src="Z:/picture/008/save_picture_588007.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_588003.jpg" />
+  <img src="Z:/picture/005/save_picture_588003.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ Google подтвердила: ваши данные активности буд
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_587890.jpg" />
+  <img src="Z:/picture/005/save_picture_587890.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ Microsoft патентует технологию слежки за пользо
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587855.jpg" />
+  <img src="Z:/picture/008/save_picture_587855.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587823.jpg" />
+  <img src="Z:/picture/008/save_picture_587823.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ Microsoft Office 2010 VL Professional Plus [SP1] x86 [Русский] [Unattende
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587748.jpg" />
+  <img src="Z:/picture/008/save_picture_587748.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587742.jpg" />
+  <img src="Z:/picture/008/save_picture_587742.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ F1 2015 (2015) [Ru/Multi] (1.0.1.8) RePack R.G. Steamgames
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587602.jpg" />
+  <img src="Z:/picture/008/save_picture_587602.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587601.jpg" />
+  <img src="Z:/picture/008/save_picture_587601.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ Far Cry: Операция-Телепортация (2022) [Ru/En] (1.0) Repack/M
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587498.jpg" />
+  <img src="Z:/picture/008/save_picture_587498.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587161.jpg" />
+  <img src="Z:/picture/008/save_picture_587161.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ Jetico BestCrypt 9.02.10 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587129.jpg" />
+  <img src="Z:/picture/008/save_picture_587129.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ Satisfactory (2019) [Ru] (0.1.6) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586893.jpg" />
+  <img src="Z:/picture/008/save_picture_586893.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ Everspace (2017) [Ru/Multi] (1.3.4.36508/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586881.jpg" />
+  <img src="Z:/picture/008/save_picture_586881.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ Slimjet 4.0.13.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586771.jpg" />
+  <img src="Z:/picture/008/save_picture_586771.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / SGM 1.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586724.jpg" />
+  <img src="Z:/picture/008/save_picture_586724.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ Adobe Acrobat Professional DC (v15.8) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586592.jpg" />
+  <img src="Z:/picture/008/save_picture_586592.jpg" />
 </div>
 
 
@@ -513,164 +670,6 @@ Adobe Acrobat Professional DC — это полностью обновленна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F02423811E01B0FB6BAFE3ECF03E7FD0D0AEECC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552480   (586513) от 21.05.2022
-
-Windows 11 Pro x64 21Н2 (build 22000.675) by ivandubskoj 20.05.2022 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6548A358E185AE7B458087D9FF2EAA79C08D05C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225334   (586495) от 21.05.2022
-
-Три идиота / 3 Idiots (2009) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое друзей отправляются на поиски пропавшего приятеля. В этом путешествии им предстоит постоянно ввязываться в уже давно забытые споры, расстроить чужую свадьбу и побывать на похоронах. Их дорога проходит через опасные места. И тут начинается еще одно не совсем обычное путешествие друзей дорогами их памяти.
- Они вспоминают своего приятеля, неудержимого и свободомыслящего (   Читать дальше...   )Производство: ИндияЖанр: Комедия, Мелодрама, ДрамаРежиссер: Раджкумар ХираниАктеры: Аамир Кхан, Карина Капур, Мадхаван, Шарман Джоши, Боман Ирани, Оми Вайдя, Али Фазал, Джавед Джеффри, Rajeev Ravindranathan, Акил Мишра и др.Перевод: Одноголосый закадровыйФормат: AVIПродолжительность: 02:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0798D0EE2D2474B95B9A548663E3C1B11C91AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040444   (586091) от 05.08.2016
-
-Тарзан. Легенда / The Legend of Tarzan (2016) WEBRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все истории о Тарзане рассказывают нам одинаковый сюжет о взрослении в джунглях маленького мальчика – выросший в окружении горилл, он постепенно становится могучим воином. Но что произошло потом, когда Джон Клейтон покинул тропический лес и вернулся в Лондон? Под именем лорда Грейстока наш герой мирно живет в британской столице, войдя в высшее общество Англии. Но (   Читать дальше...   )Производство: США, Dark Horse Entertainment, Jerry Weintraub Productions, Riche ProductionsЖанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Дэвид ЙэтсАктеры: Александр Скарсгард, Рори Дж. Сапер, Кристоф Вальц, Сэмюэл Л. Джексон, Марго Робби, Ози Икхайл, Менс-Сана Тамакло, Энтони АчеампонгПеревод: Многоголосый закадровый, любительский (СПД)Субтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:49:28Реклама: Присутствуют голосовые и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A2CA24016072EB900C2C0FF423DD035715EB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301235   (585979) от 10.05.2019
-
-Nvidia DriverPack v.430.64 RePack by CUTA [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nvidia DriverPack - это единый пакет с драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
-Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80688FD854A105DD790958DF999317B46A5F3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241431   (585913) от 10.05.2019
-
-Graveyard Keeper (2018) [Ru/Multi] (1.123) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graveyard Keeper - самый недостоверный симулятор средневекового кладбища этого года. Строй и управляй кладбищем, пытайся сэкономить, развивай сторонний бизнес и заботься, чтобы ни один ценный ресурс не пропал без дела. Не забывай, тут игра про капитализм, где все способы получения прибыли хороши. Да, кстати, еще это - история любви.Тип издания: LicenseРазработчик: Lazy Bear GamesЖанр: Simulation, Role-playing, ManagerialЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FA3E6C86EED58BD1B1811A197EC45FABEB53CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918905   (585577) от 16.07.2015
-
-Google Nik Software Complete Collection 1.2.11 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8832721E36778EB267AD7E3C3B6F3AF405AD5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

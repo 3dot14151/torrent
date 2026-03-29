@@ -6,7 +6,7 @@ Adobe Acrobat Reader DC 2015.016.20041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757163.jpg" />
+  <img src="Z:/picture/008/save_picture_757163.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ruxpin - This Time We Go Together [n5MD] (2013) [FLAC|Lossless]<IDM, Experimenta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757153.jpg" />
+  <img src="Z:/picture/005/save_picture_757153.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bandicam 2.2.0.777 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757139.jpg" />
+  <img src="Z:/picture/008/save_picture_757139.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FontCreator Professional Edition 13.0.0.2678 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757116.jpg" />
+  <img src="Z:/picture/008/save_picture_757116.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757112.jpg" />
+  <img src="Z:/picture/008/save_picture_757112.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Tari Tari | И то, и Другое [2012, TV, 13 ep + OVA] BDRip 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757111.jpg" />
+  <img src="Z:/picture/008/save_picture_757111.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Viber 13.3.1.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757104.jpg" />
+  <img src="Z:/picture/005/save_picture_757104.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4823.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757091.jpg" />
+  <img src="Z:/picture/008/save_picture_757091.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PhoneRescue for iOS 3.7.2.20190129 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757090.jpg" />
+  <img src="Z:/picture/008/save_picture_757090.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757087.jpg" />
+  <img src="Z:/picture/008/save_picture_757087.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757081.jpg" />
+  <img src="Z:/picture/008/save_picture_757081.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lamer Full Edition by puhpol 16.05.2016 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757077.jpg" />
+  <img src="Z:/picture/008/save_picture_757077.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Scanitto Pro 3.5 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757042.jpg" />
+  <img src="Z:/picture/008/save_picture_757042.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AI RoboForm Enterprise 7.9.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757040.jpg" />
+  <img src="Z:/picture/008/save_picture_757040.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Viper FTP 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757034.jpg" />
+  <img src="Z:/picture/008/save_picture_757034.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Smooze Pro 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757033.jpg" />
+  <img src="Z:/picture/008/save_picture_757033.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ SQLPro for SQLite 2022.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757031.jpg" />
+  <img src="Z:/picture/008/save_picture_757031.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Feeder 4 v4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757030.jpg" />
+  <img src="Z:/picture/008/save_picture_757030.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ IconJar 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757029.jpg" />
+  <img src="Z:/picture/008/save_picture_757029.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Permute 3 v3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757027.jpg" />
+  <img src="Z:/picture/008/save_picture_757027.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Firefox Browser ESR 78.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757023.jpg" />
+  <img src="Z:/picture/008/save_picture_757023.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Blender 2.83.2 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757022.jpg" />
+  <img src="Z:/picture/005/save_picture_757022.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Firefox Browser 78.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757021.jpg" />
+  <img src="Z:/picture/008/save_picture_757021.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Topaz Mask AI 1.2.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757009.jpg" />
+  <img src="Z:/picture/008/save_picture_757009.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Anguish (Dälek & Fire! Orchestra & Faust) - Anguish (2018) [FLAC|Lossless|Web-D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756988.jpg" />
+  <img src="Z:/picture/008/save_picture_756988.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Weeknight - Dead Beat Creep (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756987.jpg" />
+  <img src="Z:/picture/008/save_picture_756987.jpg" />
 </div>
 
 

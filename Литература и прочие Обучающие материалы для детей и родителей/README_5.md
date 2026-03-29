@@ -1,3 +1,138 @@
+###  Публикация: 1604740   (1045226) от 15.01.2023
+
+Лев Толстой | Котенок (1928) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два рассказа: про котенка, которого дети взяли погулять, и чуть было не загрызли собаки. И про щенка, который защитил детей от бешеной собаки.
+Для детей младшего школьного возраста. Иллюстрации Г.Васильева.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBFC02F8F585775908165AE847B8C4C729B775C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604692   (1045213) от 15.01.2023
+
+Эльжбета | Флон-Флон и Мюзетт (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как разговаривать о войне с детьми? Ведь они с малых лет должны понимать, что война бессмысленна и люди сами выдумывают себе врагов. Благодаря этой простой, но глубокой истории о двух друзьях-зайчатах Флон-Флоне и Мюзетт, разлучённых войной, даже самые маленькие читатели поймут, как страшна и жестока любая война и как ценен мир.
+
+В выразительных иллюстрациях мягких (   Читать дальше...   )Жанр: зарубежные детские книги, книги для дошкольников, сказкиПеревод: Ирина БалахоноваФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D9C78BE675908E285DBC800FAAC32813E4D6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604770   (1045209) от 15.01.2023
+
+Анне-Катрине Вестли | Папа, мама, бабушка, восемь детей и грузовик (сборник) (2014) [PDF, FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть книги, которые необходимо прочитать в детстве. Среди них – книги известной норвежской писательницы Анне-Катрине Вестли. На родине её имя известно каждому, а её популярность можно сравнить только с популярностью Астрид Линдгрен. К счастью, книги Вестли хорошо известны и в нашей стране.«Жила-была большая-пребольшая семья: папа, мама и целых восемь детей… И ещё (   Читать дальше...   )Жанр: детская проза, детские приключения, зарубежные детские книгиПеревод: Любовь ГорлинаФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5449B59CF5074E3CC8164D10D34639D533688B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604698   (1045182) от 15.01.2023
+
+П.А. Знаменский (ред.) | Сборник вопросов и задач по физике для 8—10 классов средней школы (1958) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический задачник по физике для средней школы. Пережил множество изданий.
+В сборник включены задачи по всем разделам школьного курса для 8-10 классов.
+Представлено 10-е изданиеЖанр: учебное пособиеИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B767A38C5AB0B46326F1B93836535B65289DCC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604699   (1045180) от 15.01.2023
+
+Л.С. Фридланд | Большие находки (1951) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для детей и подростков в популярной форме рассказывает о некоторых открытиях в области медицины.Жанр: научно-популярная, рассказы о медицинеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90CD4964DB6E6FAEBD66F4899E80C71731F10EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605007   (1045073) от 16.01.2023
 
 Диана Уинн Джонс | Огонь и заклятие, или Восемь дней с Люком (2016) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +141,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045073.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044925.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044869.jpg" />
 </div>
 
 
@@ -85,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044866.jpg" />
 </div>
 
 
@@ -112,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044738.jpg" />
 </div>
 
 
@@ -140,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044513.jpg" />
 </div>
 
 
@@ -168,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044368.jpg" />
 </div>
 
 
@@ -194,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044109.jpg" />
 </div>
 
 
@@ -222,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043644.jpg" />
 </div>
 
 
@@ -250,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043413.jpg" />
 </div>
 
 
@@ -278,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043296.jpg" />
 </div>
 
 
@@ -306,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043115.jpg" />
 </div>
 
 
@@ -332,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043095.jpg" />
 </div>
 
 
@@ -358,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043093.jpg" />
 </div>
 
 
@@ -386,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043076.jpg" />
 </div>
 
 
@@ -413,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043044.jpg" />
 </div>
 
 
@@ -439,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043003.jpg" />
 </div>
 
 
@@ -465,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042960.jpg" />
 </div>
 
 
@@ -491,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042956.jpg" />
 </div>
 
 
@@ -519,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042927.jpg" />
 </div>
 
 
@@ -546,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042820.jpg" />
 </div>
 
 
@@ -559,140 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0C0540C80DD6AB810CB00CD4027664B8E45777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436914   (1042807) от 02.01.2021
-
-Алиса Ткачева | Наблюдаем и изучаем. Птицы (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие бывают птицы? Где они живут и чем питаются? Куда и почему улетают на зимовку перелётные птицы и как справляются с холодом те, что остаются? Книга «Птицы» расскажет о жизни удивительных пернатых, которых мы часто видим на улицах или в парках, и позволит принять активное участие в их жизни.
-
-Множество интересных заданий и игр помогут лучше усвоить прочитанное, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70878983775D9FDB265A257445F5A8809C24A339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436976   (1042805) от 02.01.2021
-
-Дмитрий Смирнов, Елена Хомич | Научно-популярная библиотека начальной школы. Кошки и котята (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь завести кошку, или просто узнать, какие существуют породы этих замечательных домашних питомцев? Тогда смело открывай нашу книгу! На ее страницах найдется много информации об особенностях поведения разных кошек и правильном уходе за ними.
-
-Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6226E53214F054A568E6A09AB97448C91D0C2881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436956   (1042804) от 02.01.2021
-
-Наталья Гончарук, Марина Почкина | Большая книга вопросов и ответов. Где? (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042804.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой увлекательной книге собраны рассказы о мифах и легендах, о природе и географии, о памятниках культуры, о народах, обычаях, религии, о науке, изобретениях и открытиях, о спорте, играх и развлечениях на всех материках нашей Земли. Текст дополняют великолепные иллюстрации и карты. Здесь нет ни слишком сложных вопросов, ни непонятных ответов. Эта книга — интересное (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2496FA26414D00890F70C92E84C2FDBEA7A5F8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436990   (1042802) от 02.01.2021
-
-Владимир Малов | А почему? Обо всём на свете (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042802.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге В.И. Малова - писателя-популяризатора, журналиста и ответственного редактора журнала "А почему?" - "Обо всём на свете" собраны ответы на самые интересные вопросы о науке, технике, природе, искусстве, которые только может задать юный почемучка: какое дерево самое высокое, сколько километров до ближайших звёзд, когда погаснет наше солнце, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9019FCFAA488BFB2DEB48DC32675E442DAE117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436884   (1042800) от 02.01.2021
-
-Кристель Петиколлен | Мой ребенок слишком много думает. Как поддержать детей в их сверхэффективности (2019) [PDF, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители необычных детей сталкиваются с множеством проблем: ребенок гиперчувствителен и очень эмоционален. Он мало спит, много двигается или, наоборот, часами сидит в уголке, погруженный в свои занятия. Он становится то заторможенным, то взрывается гневом. Ребенок послушный, но далеко не покорный. Он задает удивительно взрослые вопросы, но при этом в некоторых ситуациях (   Читать дальше...   )Жанр: Педагогика/Воспитание детейФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816AA71909089ECB2CE1A313A496F9565F6EEB7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

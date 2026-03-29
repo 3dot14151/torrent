@@ -1,3 +1,114 @@
+###  Публикация: 1059632   (462109) от 04.10.2016
+
+RapidWeaver 7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462109.jpg" />
+</div>
+
+
+###  Подробнее
+
+RapidWeaver - популярный HTML-редактор
+RapidWeaver - WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
+
+RapidWeaver является приложением все-в-одном, которое (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 октября 2016Разработчик: Realmac Software LimitedПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD90FCD5D4AB5860ADE0D0B1F2237C5200E9E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059687   (461976) от 04.10.2016
+
+Default Folder X 5.0.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2016Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06020E83198118B7BE12198329EE10BE3BF6F289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059549   (461975) от 04.10.2016
+
+Downie 2.5.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie 2 – это простейший видео-загрузчик. Поддерживает более 750 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS OS X 10.10 и вышеЯзык интерфейса: Английский, Русский (вперемешку)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B7CF540E8E81C5D09D8CF10A5DD76CDBB6E377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059671   (461974) от 04.10.2016
+
+Cocktail 10.0.1 (Sierra Edition) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocktail - это приятная и довольно мощная утилита со множеством практических возможностей, которые упрощают использование продвинутых функций UNIX и помогает сотням мак-юзеров!
+
+Cocktail преподносит великолепный микс из инструментов для обслуживания и твиков интерфейса.Тип издания: macOS SoftwareРелиз состоялся: 04 октября 2016Разработчик: MaintainПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0F7D452E767E030AC46F60C7D656B8A16447FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059497   (461964) от 04.10.2016
 
 Fission 2.3.0 [En]
@@ -6,7 +117,7 @@ Fission 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461964.jpg" />
+  <img src="Z:/picture/008/save_picture_461964.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Wondershare Filmora 7.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461828.jpg" />
+  <img src="Z:/picture/008/save_picture_461828.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ iCash 7.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461822.jpg" />
+  <img src="Z:/picture/008/save_picture_461822.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Little Snitch 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461670.jpg" />
+  <img src="Z:/picture/008/save_picture_461670.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ iSkysoft iPhone Data Recovery 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461537.jpg" />
+  <img src="Z:/picture/008/save_picture_461537.jpg" />
 </div>
 
 
@@ -141,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461341.jpg" />
+  <img src="Z:/picture/008/save_picture_461341.jpg" />
 </div>
 
 
@@ -167,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461202.jpg" />
+  <img src="Z:/picture/008/save_picture_461202.jpg" />
 </div>
 
 
@@ -193,7 +304,7 @@ Beyond Compare 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461197.jpg" />
+  <img src="Z:/picture/008/save_picture_461197.jpg" />
 </div>
 
 
@@ -222,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461052.jpg" />
+  <img src="Z:/picture/008/save_picture_461052.jpg" />
 </div>
 
 
@@ -248,7 +359,7 @@ Boom 3D v1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460909.jpg" />
+  <img src="Z:/picture/008/save_picture_460909.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ SnapNDrag Pro 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459864.jpg" />
+  <img src="Z:/picture/008/save_picture_459864.jpg" />
 </div>
 
 
@@ -306,7 +417,7 @@ Moom 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459725.jpg" />
+  <img src="Z:/picture/008/save_picture_459725.jpg" />
 </div>
 
 
@@ -333,7 +444,7 @@ Temps 1.13.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459694.jpg" />
+  <img src="Z:/picture/008/save_picture_459694.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ Xversion 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459689.jpg" />
+  <img src="Z:/picture/008/save_picture_459689.jpg" />
 </div>
 
 
@@ -390,7 +501,7 @@ Serial Box 10-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459566.jpg" />
+  <img src="Z:/picture/008/save_picture_459566.jpg" />
 </div>
 
 
@@ -419,7 +530,7 @@ Aimersoft Video Converter Ultimate for Mac 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459451.jpg" />
+  <img src="Z:/picture/008/save_picture_459451.jpg" />
 </div>
 
 
@@ -445,7 +556,7 @@ Boom 2 v1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459297.jpg" />
+  <img src="Z:/picture/008/save_picture_459297.jpg" />
 </div>
 
 
@@ -472,7 +583,7 @@ Data Guardian 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459276.jpg" />
+  <img src="Z:/picture/008/save_picture_459276.jpg" />
 </div>
 
 
@@ -498,7 +609,7 @@ TinkerTool System 5.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459216.jpg" />
+  <img src="Z:/picture/008/save_picture_459216.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ Reflector 2.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459197.jpg" />
+  <img src="Z:/picture/008/save_picture_459197.jpg" />
 </div>
 
 
@@ -553,7 +664,7 @@ Hardware Monitor 5.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459155.jpg" />
+  <img src="Z:/picture/008/save_picture_459155.jpg" />
 </div>
 
 
@@ -581,7 +692,7 @@ Canary Mail 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459154.jpg" />
+  <img src="Z:/picture/008/save_picture_459154.jpg" />
 </div>
 
 
@@ -595,118 +706,6 @@ Canary работает с Gmail, iCloud, Outlook, Yahoo! и другими сл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F097369A7C18595E965C64707ADCDD348A900B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162302   (459146) от 01.09.2017
-
-Carbon Copy Cloner 5.0 (5061) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: август 2017Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A89E613F7295B1BEE95410C5B9084C91A46C9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162431   (459049) от 01.09.2017
-
-Чудо-женщина / Wonder Woman (2017) WEB-DLRip [480p] iPod
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед тем как стать Чудо-Женщиной, она была Дианой — принцессой амазонок, обученной быть непобедимой воительницей. И когда на берегах ограждённого от внешнего мира райского острова, который служил ей родиной, терпит крушение американский пилот и рассказывает о серьёзном конфликте, бушующем во внешнем мире, Диана покидает свой дом, чтобы справиться с этой угрозой. (   Читать дальше...   )Производство: США, Китай, Гонконг, Великобритания, Италия, КанадаЖанр: Фантастика, фэнтези, боевик, приключения, военныйРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Конни Нильсен, Робин Райт, Дэнни Хьюстон, Дэвид Тьюлис, Саид Тагмауи, Юэн Бремнер, Юджин «Храбрый камень», Люси ДэвисПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 02:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CB6341D20647A0A857EEAF7E14822C12A94701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107344   (458890) от 01.09.2017
-
-Blocs 2.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой способ создания красивых сайтов.
-Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
-
-Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02  августа 2017Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3274A0A66349FE7A2C9B49B24A09EAD97CED2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162275   (458887) от 01.09.2017
-
-SecuritySpy 4.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458887.jpg" />
-</div>
-
-
-###  Подробнее
-
-SecuritySpy позволит Вам быстро настроить эффективное домашнее (или для небольшого офиса) видеонаблюдение (CCTV). Причем SecuritySpy обеспечивает достаточно надежное решение.
-
-SecuritySpy работает с широким спектром камер чтобы удовлетворить все потребности, от традиционных аналоговых камер до последней сетевой камеры HD разрешения, предлагая высокое качество видео. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2017Разработчик: BensoftwareПоддерживаемая ОС: OS X 10.5 или более поздняя версияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE926AD9991E917936C03148E9CDB1DDEFDEF5A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

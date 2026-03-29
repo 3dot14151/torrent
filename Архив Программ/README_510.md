@@ -6,7 +6,7 @@ CCleaner Professional 5.52.6967 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787536.jpg" />
+  <img src="Z:/picture/008/save_picture_787536.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FurMark 1.20.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787525.jpg" />
+  <img src="Z:/picture/008/save_picture_787525.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Video Suite 17.2.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787523.jpg" />
+  <img src="Z:/picture/008/save_picture_787523.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PCRADIO 6.0.1 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787512.jpg" />
+  <img src="Z:/picture/008/save_picture_787512.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Skype 8.37.0.98 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787510.jpg" />
+  <img src="Z:/picture/008/save_picture_787510.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Zoom Player MAX 14.5 Build 1450 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787498.jpg" />
+  <img src="Z:/picture/008/save_picture_787498.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Victoria 4.72b Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787444.jpg" />
+  <img src="Z:/picture/008/save_picture_787444.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MAGIX Vegas Pro 16.0 Build 361 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787443.jpg" />
+  <img src="Z:/picture/008/save_picture_787443.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ K-Lite Codec Pack Update 16.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787384.jpg" />
+  <img src="Z:/picture/008/save_picture_787384.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Edge 96.0.1054.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787372.jpg" />
+  <img src="Z:/picture/008/save_picture_787372.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ant Download Manager Pro 2.4.2 акция (Sharewareonsale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787362.jpg" />
+  <img src="Z:/picture/008/save_picture_787362.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ ZW3D 2022X SP [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787349.jpg" />
+  <img src="Z:/picture/008/save_picture_787349.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ StartAllBack 3.1.2 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787348.jpg" />
+  <img src="Z:/picture/008/save_picture_787348.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ashampoo UnInstaller 11.00.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787344.jpg" />
+  <img src="Z:/picture/008/save_picture_787344.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ UltraUXThemePatcher 4.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787339.jpg" />
+  <img src="Z:/picture/008/save_picture_787339.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinToUSB Free / Pro / Enterprise / Technician 6.5.2.0 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787335.jpg" />
+  <img src="Z:/picture/008/save_picture_787335.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ StartAllBack 3.1.2 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787331.jpg" />
+  <img src="Z:/picture/008/save_picture_787331.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ AOMEI Partition Assistant Pro 9.5 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787316.jpg" />
+  <img src="Z:/picture/008/save_picture_787316.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ XnView Classic 2.50.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787311.jpg" />
+  <img src="Z:/picture/008/save_picture_787311.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.348]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787294.jpg" />
+  <img src="Z:/picture/008/save_picture_787294.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Privacy Eraser Free 4.46.2 Build 2752 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787234.jpg" />
+  <img src="Z:/picture/008/save_picture_787234.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CoolUtils Total Audio Converter 5.3.0.186 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787231.jpg" />
+  <img src="Z:/picture/008/save_picture_787231.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Photo Supreme 4.3.2.1878 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787229.jpg" />
+  <img src="Z:/picture/008/save_picture_787229.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wondershare Recoverit 7.3.0.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787216.jpg" />
+  <img src="Z:/picture/008/save_picture_787216.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Advanced Installer 15.6 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787215.jpg" />
+  <img src="Z:/picture/008/save_picture_787215.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wise Care 365 Pro 5.2.4.519 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787205.jpg" />
+  <img src="Z:/picture/008/save_picture_787205.jpg" />
 </div>
 
 

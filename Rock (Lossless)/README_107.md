@@ -1,3 +1,148 @@
+###  Публикация: 1578121   (348070) от 22.09.2022
+
+King Buffalo - Regenerator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regenerator [00:09:37]
+02. Mercury [00:04:30]
+03. Hours [00:04:57]
+04. Interlude [00:02:57](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EDEA16E87B99FA740966E5DA381BA85D1F7082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329794   (348007) от 07.10.2019
+
+Nad Sylvan - The Regal Bastard (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am the Sea (07:48)
+02. Oahu (04:20)
+03. Whoa (Always Been Without You) (07:22)
+04. Meet Your Maker (06:35)(   Читать дальше...   )Жанр: Prog Rock, Art RockПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4CADFB1E3CE247F861F69DA0EA78573F0208C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329777   (348003) от 07.10.2019
+
+Magic Pie - Fragments of the 5th Element (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Who Had It All (05:25)
+02. P & C (05:34)
+03. Table for Two (04:07)
+04. Touched by an Angel (08:04)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7AD06766BCCC6B15129DBDAFBC75C1E73D2D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257306   (347937) от 25.10.2018
+
+VA - Rock Sound: Sound Check No. 112 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulfly - Unleash (05:09)
+02. Alesana - This is Usually the Part Where People Scream (03:43)
+03. We are the Ocean - Don't be Careless (03:05)
+04. Harvey Milk - Barn Burner (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560D0452386DC92AD8205D142178C27DD3D1FFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257299   (347934) от 25.10.2018
+
+VA - Rock Sound: Sound Check No. 115 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Me the Horizon - Chelsea Smile (04:59)
+02. Funeral for a Friend - You Can't See the Forest for the Wolves (03:20)
+03. The Bronx - Knifeman (03:52)
+04. Young Livers - Fair Well (02:46)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2803B5B14F38026FB8344DC529ACB6C797792C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257304   (347932) от 25.10.2018
 
 VA - Rock Sound: Sound Check No. 113 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -6,7 +151,7 @@ VA - Rock Sound: Sound Check No. 113 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347932.jpg" />
+  <img src="Z:/picture/008/save_picture_347932.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Ian Anderson - 6 Альбомов (1983 - 2005) [FLAC|Lossless]<Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347822.jpg" />
+  <img src="Z:/picture/005/save_picture_347822.jpg" />
 </div>
 
 
@@ -66,7 +211,7 @@ VA - Rock Sound: Sound Check No. 114 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347786.jpg" />
+  <img src="Z:/picture/008/save_picture_347786.jpg" />
 </div>
 
 
@@ -95,7 +240,7 @@ Millenium - Tales From Imaginary Movies (2022) [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347610.jpg" />
+  <img src="Z:/picture/008/save_picture_347610.jpg" />
 </div>
 
 
@@ -124,7 +269,7 @@ The Rolling Stones - GRRR! (2012) Super Deluxe Edition, 5CD+7” Vinyl [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347258.jpg" />
+  <img src="Z:/picture/005/save_picture_347258.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ Philhelmon - Enjoy It While It Lasts (2012) [FLAC|Lossless|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346939.jpg" />
+  <img src="Z:/picture/008/save_picture_346939.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ VA - Rock Sound: Sound Check No. 118 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345929.jpg" />
+  <img src="Z:/picture/008/save_picture_345929.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ VA - Rock Sound: Sound Check No. 121 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345925.jpg" />
+  <img src="Z:/picture/008/save_picture_345925.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ VA - Rock Sound: Sound Check No. 116 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345921.jpg" />
+  <img src="Z:/picture/008/save_picture_345921.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ VA - Rock Sound: Sound Check No. 102 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345919.jpg" />
+  <img src="Z:/picture/008/save_picture_345919.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ BlackLight - Follow The Future (2020) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345855.jpg" />
+  <img src="Z:/picture/008/save_picture_345855.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Banco Del Mutuo Soccorso - Orlando: Le Forme Dell’Amore (2022) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345844.jpg" />
+  <img src="Z:/picture/008/save_picture_345844.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ Lunatic Soul - Through Shaded Woods (2020) 2xCD [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345840.jpg" />
+  <img src="Z:/picture/008/save_picture_345840.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - Rock Sound: Sound Check No. 101 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345796.jpg" />
+  <img src="Z:/picture/008/save_picture_345796.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ INXS - Full Moon, Dirty Hearts (1993) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345712.jpg" />
+  <img src="Z:/picture/008/save_picture_345712.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ The Alan Parsons Project - The Collection (2010) [FLAC|Lossless]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_345159.jpg" />
+  <img src="Z:/picture/005/save_picture_345159.jpg" />
 </div>
 
 
@@ -479,7 +624,7 @@ Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344704.jpg" />
+  <img src="Z:/picture/008/save_picture_344704.jpg" />
 </div>
 
 
@@ -508,7 +653,7 @@ Kozak System - 2 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue]<Folk
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344433.jpg" />
+  <img src="Z:/picture/008/save_picture_344433.jpg" />
 </div>
 
 
@@ -537,7 +682,7 @@ LaMacchia - Thunderheads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343652.jpg" />
+  <img src="Z:/picture/008/save_picture_343652.jpg" />
 </div>
 
 
@@ -566,7 +711,7 @@ Freedom Hawk - Take All You Can (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343650.jpg" />
+  <img src="Z:/picture/008/save_picture_343650.jpg" />
 </div>
 
 
@@ -595,7 +740,7 @@ Atme - Mantrakora (2021) EP [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343647.jpg" />
+  <img src="Z:/picture/008/save_picture_343647.jpg" />
 </div>
 
 
@@ -609,157 +754,6 @@ Atme - Mantrakora (2021) EP [FLAC|Lossless|image + .cue] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D8DB87FA32AAE9D138D4067850779C7B32FA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257712   (343435) от 27.10.2018
-
-Lunatic Soul (Mariusz Duda, ex.Riverside) - Under The Fragmented Sky (2018) EP [FLAC|Lossless|image + .cue] <Atmospheric Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.He Av En
-02.Trials
-03.Sorrow
-04.Under The Fragmented Sky(   Читать дальше...   )Жанр: Atmospheric Progressive rockПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FCC66517AB02EA06FEA2209CFE4DCAC84CF9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580545   (342176) от 25.11.2012
-
-Joe Cocker - Fire It Up (2012) [FLAC|Lossless]<Classic Rock>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire It Up (03:52)
-02. I'll Be Your Doctor (03:30)
-03. You Love Me Back (03:54)
-04. I Come In Peace (04:18)
-05. You Don't Need A Million Dollars (03:55)
-06. Eye On The Prize (04:07)
-07. Younger (04:11)
-08. You Don't Know What You're Doing To Me (03:50)
-09. The Letting Go (03:29)
-10. I'll Walk In The Sunshine Again (03:13)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258174   (341337) от 28.10.2018
-
-Abney Park - Under The Floor, Over The Wall (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Overkill (4:24)
- 02. Your Escape (5:04)
- 03. Armor and Flight (3:33)
- 04. His Imaginary World (4:27)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E523C79EAE40314A4BA9F2393F623230DC920A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578754   (341227) от 25.09.2022
-
-Cavem3n - A Prehistoric Anthology (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Christus Incendium
-02 Cococruel
-03 Diabolus Domina (44.1/24)
-04 Grinding(   Читать дальше...   )Жанр: Heavy Rock, StonerПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003F6636B502D087DCD02ACA3E20C008649B6958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578948   (341217) от 25.09.2022
-
-Squared - Strange Affairs (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Thousand Years (1:06)
-02. Stranger At Heart (4:49)
-03. Personal Matter (4:27)
-04. Darkest Fantasies (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4397C100ABB22E1AB830598F0E9910F2D952E86B
 ```
 
 https://mybot314.ru/tekegram_catalog/

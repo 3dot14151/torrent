@@ -1,3 +1,29 @@
+###  Публикация: 1551620   (234903) от 16.05.2022
+
+8 дней до ада / 8 Days to Hell (2022) WEBRip [H.264/1080p-LQ] [MVO, AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антология ужасов, состоящая из семи связанных между собой историй, каждая из которых следует по пути серийных убийц, несущих ужас и разрушение по всему Лос-Анджелесу.Производство: США / Pegasus Flying FilmsЖанр: УжасыРежиссер: Шэйн ВудсонАктеры: Эрик Робертс, Шэйн Вудсон, Тори Лондон, Дрю Хейл, Рей Марз, Дэвид Кастро, Том МакЛарен, Сэди Кац, Крис Барри, Джоанна РэйПеревод: Многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:26:52Реклама: Присутствует реклама аудио, видео, баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE4B26A4A1FF8ABBE0BDF0DA964A729972B038B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551646   (234627) от 17.05.2022
 
 8 дней до ада / 8 Days to Hell (2022) WEBRip [MVO, AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234627.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234543.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234476.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234326.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233664.jpg" />
+  <img src="Z:/picture/005/save_picture_233664.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233360.jpg" />
+  <img src="Z:/picture/005/save_picture_233360.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233193.jpg" />
+  <img src="Z:/picture/005/save_picture_233193.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233113.jpg" />
+  <img src="Z:/picture/005/save_picture_233113.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232757.jpg" />
+  <img src="Z:/picture/005/save_picture_232757.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232664.jpg" />
+  <img src="Z:/picture/005/save_picture_232664.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232604.jpg" />
+  <img src="Z:/picture/005/save_picture_232604.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232495.jpg" />
+  <img src="Z:/picture/005/save_picture_232495.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232013.jpg" />
+  <img src="Z:/picture/005/save_picture_232013.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231089.jpg" />
+  <img src="Z:/picture/005/save_picture_231089.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230861.jpg" />
+  <img src="Z:/picture/005/save_picture_230861.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230651.jpg" />
+  <img src="Z:/picture/005/save_picture_230651.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230561.jpg" />
+  <img src="Z:/picture/005/save_picture_230561.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230555.jpg" />
+  <img src="Z:/picture/005/save_picture_230555.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230536.jpg" />
+  <img src="Z:/picture/005/save_picture_230536.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230506.jpg" />
+  <img src="Z:/picture/005/save_picture_230506.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230295.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230260.jpg" />
+  <img src="Z:/picture/005/save_picture_230260.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229764.jpg" />
+  <img src="Z:/picture/004/save_picture_229764.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229736.jpg" />
+  <img src="Z:/picture/004/save_picture_229736.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229689.jpg" />
+  <img src="Z:/picture/004/save_picture_229689.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22401952ABBFA191B2D54274C37344EA773929B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512473   (229648) от 25.11.2021
-
-Точка кипения / Boiling Point (2021) WEBRip [H.264/1080p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как это часто бывает — беда не приходит одна. Шеф-повар Энди катастрофически опаздывает на работу, на ходу пытаясь склеить свою личную жизнь по телефону. Его высокопрофессиональный вышколенный персонал пребывает в тревожном ожидании и на низком старте: они всегда готовы лечь грудью на амбразуру и отстоять честь заведения. Но самый большой кошмар заключается в том, (   Читать дальше...   )Производство: Великобритания / Ascendant Films, Burton Fox Films, White Hot ProductionsЖанр: Триллер, драмаРежиссер: Фил БарантиниАктеры: Стивен Грэм, Винетт Робинсон, Элис Мэй Фитэм, Джейсон Флеминг, Ханна Уолтерс, Малачи Кирби, Идзука Хойл, Таз Скайлар, Лорин Аджуфо, Рэй ПантакиПеревод: Многоголосый любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:33:53Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785E9C8D82F86D2A466CA4DB1A807C49FF05F01F
 ```
 
 https://mybot314.ru/tekegram_catalog/

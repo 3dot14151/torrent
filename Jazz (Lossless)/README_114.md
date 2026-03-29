@@ -1,3 +1,119 @@
+###  Публикация: 1030775   (672405) от 01.07.2016
+
+Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Of Love [04:55]
+02. Paradise [04:49]
+03. The Only One [04:41]
+04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291134   (672231) от 23.03.2019
+
+Konstantin Klashtorni - Kool&Klean (Volume VIII) (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Islands in Tranquility
+02. Sublime You
+03. So Divine
+04. Morning Mist(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792F70432F471B768874DCBB57BD1D77C189ED5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291064   (671926) от 23.03.2019
+
+VA - Smooth Jazz n Chill (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebron - Kiss And Tell
+02. Oli Silk - Get Out Claws
+03. Randy Scott - Kisses
+04. Jaared - Jamaican Winds(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C43AE6C1D710B6860F925FB4557696A9220CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223851   (671650) от 06.05.2018
+
+Eleanor Dubinsky - Soft Spot Of My Heart (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Around
+02. Soft Spot Of My Heart
+03. Wind Won't Knock It Down
+04. Wait For You(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD11D495AC0B77B77B0ECA9D573D4BB054E25508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223705   (671648) от 06.05.2018
 
 Chris Standring - Sunlight (2018) Time Blues [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
@@ -6,7 +122,7 @@ Chris Standring - Sunlight (2018) Time Blues [FLAC|Lossless|image + .cue] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671648.jpg" />
+  <img src="Z:/picture/008/save_picture_671648.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Tape Five - Circus Maximus (2015) [FLAC|Lossless]<Electro Swing, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671404.jpg" />
+  <img src="Z:/picture/008/save_picture_671404.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ed Thigpen - It's Entertainment (1998) 2000, Stunt Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671205.jpg" />
+  <img src="Z:/picture/008/save_picture_671205.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Joe Zawinul - Dialects (1986) 2002, Columbia [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671204.jpg" />
+  <img src="Z:/picture/008/save_picture_671204.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Lambert, Hendricks & Ross - The Hottest New Group In Jazz (1959) 2017, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671202.jpg" />
+  <img src="Z:/picture/008/save_picture_671202.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dave Brubeck - On Time (2001) Sony Music Special Products [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671151.jpg" />
+  <img src="Z:/picture/008/save_picture_671151.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dave Brubeck - Lullaby in Rhythm (1949 - 1955) 4CD, 2006, Membran Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671150.jpg" />
+  <img src="Z:/picture/008/save_picture_671150.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dexter Gordon - Dexter Calling (1961) 2004, Blue Note [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671019.jpg" />
+  <img src="Z:/picture/008/save_picture_671019.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Duke Ellington - Peer Gynt Suites  Nos. 1 & 2, Suite Thursday (1960) 1990, Sony 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670982.jpg" />
+  <img src="Z:/picture/008/save_picture_670982.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The E.J. Strickland Quintet - Warriors For Peace (2018) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670846.jpg" />
+  <img src="Z:/picture/008/save_picture_670846.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kenny Burrell - Jazzmen Detroit (1956) 2010, Savoy Jazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670843.jpg" />
+  <img src="Z:/picture/008/save_picture_670843.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Keith Jarrett Trio - Hamburg Concert (1972) 2CD, 2014, Jazz Hour [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670841.jpg" />
+  <img src="Z:/picture/008/save_picture_670841.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Rippingtons feat. Russ Freeman - Open Road (2019) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670561.jpg" />
+  <img src="Z:/picture/008/save_picture_670561.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Cecilia Engelbrecht Heick - Spring Is A Promise Of Fall (2016) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670475.jpg" />
+  <img src="Z:/picture/008/save_picture_670475.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Greg Howe - Sound Proof (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670256.jpg" />
+  <img src="Z:/picture/008/save_picture_670256.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ John Patitucci - John Patitucci (1988) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669777.jpg" />
+  <img src="Z:/picture/008/save_picture_669777.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Koop - Coup De Grace (Best Of Koop 1997-2007) (2010) [FLAC|Lossless]<Acid Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669601.jpg" />
+  <img src="Z:/picture/008/save_picture_669601.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Walter Norris Trio - Lush Life (1991) Concord Jazz [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669465.jpg" />
+  <img src="Z:/picture/008/save_picture_669465.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Howard Alden - I Remember Django (2010) Arbors Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669462.jpg" />
+  <img src="Z:/picture/008/save_picture_669462.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Joseph Bonner - Triangle (1975) 2009, Whynot [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669461.jpg" />
+  <img src="Z:/picture/008/save_picture_669461.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Kenny Garrett - Sketches Of MD: Live At The Iridium (2008) Mack Avenue Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669411.jpg" />
+  <img src="Z:/picture/008/save_picture_669411.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669395.jpg" />
+  <img src="Z:/picture/008/save_picture_669395.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:660D7053F26338E58A1A54A5E0E5E780920AE8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291553   (668914) от 25.03.2019
-
-Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where or When [4:38]
-02. Lucky 13 [4:47]
-03. Suzanne [6:13]
-04. Born to Be Blue [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291557   (668912) от 25.03.2019
-
-The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Walking Stomp [5:23]
-02. The Legendary Profile [6:45]
-03. Willow Weep for Me [7:38]
-04. The Cylinder [5:33](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE79A8C4BB84EFEF6B6288859057E0A2AED62D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291554   (668911) от 25.03.2019
-
-Stan Getz - Live In Paris 1959 (2018) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherokee [9:01]
-02. All the Things You Are [6:11]
-03. Lover Man [4:08]
-04. Special Club [3:37](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E188ECD5289FCDDFF9C14DD3CCAA7E064AB22D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031222   (668777) от 03.07.2016
-
-Duke Ellington - The Best Of (1987) [APE|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Back Blues
-02. Where's the Music?
-03. Rubber Bottom
-04. Jump for Joy(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461744431006995C1C149F6824F365A65DFECC5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

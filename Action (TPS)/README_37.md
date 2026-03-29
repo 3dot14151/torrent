@@ -1,3 +1,159 @@
+###  Публикация: 1654161   (194032) от 19.08.2023
+
+M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в самые темные уголки будущего с "M.E.R.C Genesis", в леденящем душу научно-фантастическим хоррор-шутером от третьего лица, который проверит ваши нервы и боевые навыки. Отправляйтесь в потустороннее путешествие по случайно сгенерированным уровням, гарантируя, что каждое прохождение будет уникальным и захватывающим.Тип издания: RepackРазработчик: Evil BunnehЖанр: Action (Horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1E26B8516DFAAB3FAA99AA9F142C0EA0BEB408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656843   (193193) от 01.09.2023
+
+Daymare: 1994 Sandcastle (2023) [Ru/Multi] (6410) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daymare: 1994 Sandcastle — это сюжетный хоррор от третьего лица, приквел к полюбившейся всем игре Daymare: 1998. Играйте за специального агента Далилу Рейес, бывшего правительственного шпиона на службе в АИДе (Аварийно-исследовательской дивизии Hexacore) и приготовьтесь попасть в самое таинственное место в истории. Но будьте начеку, ведь в лабиринте коридоров научно-исследовательского (   Читать дальше...   )Тип издания: RepackРазработчик: Invader StudiosЖанр: Action (Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CD09BD6540E83C45109F18217EB53C82C0879A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657020   (192813) от 02.09.2023
+
+Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый боевик, в котором концепция серии ARMORED CORE получила современное развитие за счёт знаний, накопленных компанией FromSoftware за время разработки игр этого жанра. Управляйте собственной мехой в скоростных сражениях, где можно двигаться в любом направлении, и попробуйте добиться победы, используя преимущества сложных участков и подвижность своей мехи на земле (   Читать дальше...   )Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, 3rd Person, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC0D34EE2F86C9181CE2B06BC35BFEDD01074C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341942   (192476) от 03.09.2023
+
+Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоррор-игра на выживание от третьего лица со сверхсложной механикой выживания и живучими врагами. Она требует стратегического подхода к боям и головоломкам и предлагает посмотреть на историю глазами трех персонажей, чтобы узнать о глубоком и темном мире игры. Действие разворачивается на секретной исследовательской базе со смертельным химическим оружием и особой командой (   Читать дальше...   )Тип издания: LicenseРазработчик: Invader StudiosЖанр: Экшны, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E85387B5D3C5FDA9859143B4A49988B700E707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425578   (190922) от 06.11.2022
+
+BloodRayne: Terminal Cut (2020) [Ru/Multi] (1.06) License GOG
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_190922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это окончательное издание BloodRayne, усовершенствованное и обновленное для современных систем разработчиками игры. В 1932 году в Европе была поймана девушка, которую обвиняли в убийстве нескольких человек. Причем последней жертвой стал ее собственный биологический отец. Девушка, однако, утверждала, что все убитые принадлежали ордену вампиров и представляли угрозу (   Читать дальше...   )Тип издания: LicenseРазработчик: Terminal RealityЖанр: Шутеры, ЭкшныЯзык озвучки: Русский, Английский, Испанский, Французский и другиеЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC439D59FBC83359CA54CEDF66C8B5C8D5257CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496520   (188566) от 14.11.2022
+
+Aragami 2 (2021) [Ru/Multi] (1.0.30195.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_188566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы один из последних представителей клана искусных воинов – арагами. Арагами страдают от сверхъестественного недуга, который разъедает тело и разум, но он же открывает им доступ к сущности мрака – мистической силе, позволяющей управлять тенями. С помощью этой силы арагами выполняют поручения в разных уголках долины, стремясь обеспечить свою деревню средствами к существованию (   Читать дальше...   )Тип издания: LicenseРазработчик: Lince WorksЖанр: Экшны, Приключение, СтелсЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3C67565DE773356AF2AB2AD391050111E14662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661832   (188172) от 16.09.2023
 
 Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу врага (2005) [Ru] (1.0) License
@@ -6,7 +162,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188172.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187991.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187624.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Darksiders III (2018) [Ru/Multi] (1.4a/dlc) License GOG [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187603.jpg" />
+  <img src="Z:/picture/005/save_picture_187603.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ BloodRayne 2: Terminal Cut (2020) [Ru/En] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187598.jpg" />
+  <img src="Z:/picture/005/save_picture_187598.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186077.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (53106) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182090.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181037.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.98/dlc) Repack xatab [Game of the Yea
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180992.jpg" />
+  <img src="Z:/picture/005/save_picture_180992.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178576.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0u5/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177174.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177136.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Resident Evil 2 (2019) [Ru/Multi] (1.05u13/dlc) Repack Decepticon [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177084.jpg" />
+  <img src="Z:/picture/005/save_picture_177084.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176100.jpg" />
+  <img src="Z:/picture/004/save_picture_176100.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ En Garde! (2023) [Multi] (1.0.5) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171110.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169822.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.14718) Repack Other s [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168815.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168027.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Zombie Army 4: Dead War (2020) [Ru/En] (2.02/dlc) Repack Other s [Super Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163423.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159062.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2935FB277EEF57FB0809239C120F6150F1318B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966545   (158311) от 21.12.2015
-
-Drakan: Order of the Flame (1999) [En] (2.10) Repack/Mod nikerossxp
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158311.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается с того, что на Ринн и её брата Делона нападает группа вартоков, оркоподобных существ выступающих на стороне Навароса. Раненную Ринн оставили умирать, а Делон был похищен. Выжившая девушка, вернувшись в деревню, обнаруживает её сожжённой прислужниками Навароса. Смертельно раненный староста поручает Ринн найти дракона Арока и воскресить легендарный (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Surreal SoftwareЖанр: Action (Slasher), Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AEC41D964DDECD506B5DAC284954C9AAD9217F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194332   (156377) от 24.12.2017
-
-ECHO (2017) [En/Fr/Ge] (1.05) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156377.jpg" />
-</div>
-
-
-###  Подробнее
-
-ECHO - научно-фантастическая приключенческая игра с видом от третьего лица. Проведя сто лет в состоянии стазиса, юная Эн прибывает на место назначения - в легендарный Дворец, чудо древнейшей цивилизации, куда не ступала нога человека. С помощью давно забытых технологий героиня надеется возродить когда-то оборвавшуюся здесь жизнь, однако Эн даже не представляет, что (   Читать дальше...   )Тип издания: LicenseРазработчик: ULTRA ULTRAЖанр: Шутер, Экшн, ФантастикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AF7F60B134485599BB861104EC58351696BE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675235   (153658) от 15.11.2023
-
-The Awakener: Forgotten Oath (2023) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153658.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Awakener: Forgotten Oath - это очень гибкая игра в жанре «рогалик», в которой игроки будут выступать в роли Пробудителя, призванного Двенадцатью Богами Терада, и участвовать в захватывающих битвах от третьего лица. Вам решать, как вы будете реагировать на сражения в этом разлагающемся мире. Улучшите свои способности посредством сражений и смерти, победите рабов (   Читать дальше...   )Тип издания: SceneРазработчик: TANER GAMESЖанр: Экшены, Ролевые игрыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59B65C42B725BE4CBB48CA093865A27EC47E7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270898   (153125) от 21.12.2018
-
-Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третьей части серии Thief™ к Гаррету, искуснейшему из воров, обращается Хранитель Артемус и поручает ему украсть два ценных артефакта. В то же время Гаррет узнает о пророчестве, в котором говорится о приходе Темной Эры. Он отправляется в путешествие, чтобы раскрыть тайну, которая угрожает самому существованию ордена Хранителей. Неужели в ряды ордена затесался предатель?Тип издания: LicenseРазработчик: Ion StormЖанр: Экшн, Симулятор, СтелсЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИтальянскийЯзык интерфейса: Английский, Немецкий, Французский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C11DAA6231C44B359EDD2C17638A4995557B651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518672   (151874) от 21.12.2021
-
-Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Collection Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151874.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Warhammer® 40,000® Space Marine® вам отводится роль капитана Титуса, космодесантника ордена Ультрамаринов, закаленного в огне бесчисленных сражений. Неисчислимая орда орков вторглась в имперский мир-кузницу - одну из фабрик размером с планету, где делаются машины для непрекращающейся борьбы человечества за выживание. Потерять эту планету недопустимо! Кроме (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Action (Shooter, Slasher), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B96AD1250BC126F98AA96CCD003A618ED448682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825994   (150700) от 18.10.2025
-
-Tomb Raider I-III Remastered (2024) [Ru/Multi] (Build 19617537) Repack Let'sРlay [Starring Lara Croft]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический подарок для любителей адвенчур, в котором собраны оригинальные приключения легендарной Лары Крофт. В комплект входят первые три части со всеми дополнениями и секретными уровнями, которые теперь обновлены благодаря улучшенной графике и производительности, что позволяет игрокам плавно переключаться между (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7D2A8466E9CEBB5CD60F76189FB9D53EE96E24
 ```
 
 https://mybot314.ru/tekegram_catalog/

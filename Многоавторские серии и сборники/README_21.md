@@ -1,3 +1,109 @@
+###  Публикация: 1412218   (376324) от 12.10.2020
+
+Книжная серия | Любовь в каждом городе [6 книг] (2020) [FB2]  [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_376324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джули Кэплин. Маленькое кафе в Копенгагене
+Вы когда-нибудь испытывали чувство благодарности к городу за то, что будто родились заново? Отпустили все обиды, посмеялись над неудачами и нашли себя? Кейт Синклер, молодая журналистка из Лондона, никогда не нуждалась в такой перезагрузке, но у судьбы свои планы. Копенгаген становится важным местом для Кейт. Любовь переворачивает (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D25B25CD22471BFB337A4D1E7101207D894366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574391   (375639) от 12.11.2012
+
+Книжная серия | City Style (201 книга) [2004-2011] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_375639.jpg" />
+</div>
+
+
+###  Подробнее
+
+City Style - городской стиль! Серия книг о любви в городском стиле. Это вам не деревенский стиль "завалил на сеновал". Это...гораздо лживее.
+Но главное: на 90 процентах обложек присутствуют женские ножки. Остальные части тела художника-оформителя не интересуют...Жанр: Любовный романФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBCC88E4D2C16CB3A806DD9897B86E5F5D91519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949735   (374646) от 24.10.2015
+
+Книжная серия | Детектив-событие [48 книг] (2007-2015) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374646.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Детектив-событие» - серия детективных романов наших писательниц: Ксении Баженовой, Дианы Бош, Евгении Михайловой, Елены Михалковой и др.Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E166EF863AFCE1A4F37709CC39CB90A0198576A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327214   (374101) от 25.09.2019
+
+Сборник произведений | 100 лучших детективных романов всех времен (MWA) [85 книг] (XIX-XX вв) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374101.jpg" />
+</div>
+
+
+###  Подробнее
+
+«100 лучших детективных романов всех времен» — это два аналогичных литературных списка, представляющие из себя перечень лучших детективных произведений. Первый список (англ. The Top 100 Crime Novels of All Time) был составлен Британской ассоциацией писателей-криминалистов (CWA) в 1990 году, второй же (англ. The Top 100 Mystery Novels of All Time) — Ассоциацией детективных (   Читать дальше...   )Жанр: Классический детектив, Шпионский детектив, Крутой детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9596785718AF837FA83B6AD47127667B0A10A49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415884   (373788) от 13.10.2020
 
 Книжная серия | «Морские истории и байки» [32 книги] (2015-2020) [FB2]
@@ -6,7 +112,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373788.jpg" />
+  <img src="Z:/picture/008/save_picture_373788.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372638.jpg" />
+  <img src="Z:/picture/008/save_picture_372638.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372546.jpg" />
+  <img src="Z:/picture/008/save_picture_372546.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372515.jpg" />
+  <img src="Z:/picture/008/save_picture_372515.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371941.jpg" />
+  <img src="Z:/picture/008/save_picture_371941.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370558.jpg" />
+  <img src="Z:/picture/008/save_picture_370558.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367801.jpg" />
+  <img src="Z:/picture/008/save_picture_367801.jpg" />
 </div>
 
 
@@ -198,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366930.jpg" />
+  <img src="Z:/picture/008/save_picture_366930.jpg" />
 </div>
 
 
@@ -224,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364684.jpg" />
+  <img src="Z:/picture/008/save_picture_364684.jpg" />
 </div>
 
 
@@ -251,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362875.jpg" />
+  <img src="Z:/picture/008/save_picture_362875.jpg" />
 </div>
 
 
@@ -283,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362428.jpg" />
+  <img src="Z:/picture/008/save_picture_362428.jpg" />
 </div>
 
 
@@ -313,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362418.jpg" />
+  <img src="Z:/picture/005/save_picture_362418.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360969.jpg" />
+  <img src="Z:/picture/008/save_picture_360969.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360568.jpg" />
+  <img src="Z:/picture/008/save_picture_360568.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359671.jpg" />
+  <img src="Z:/picture/008/save_picture_359671.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358914.jpg" />
+  <img src="Z:/picture/008/save_picture_358914.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357664.jpg" />
+  <img src="Z:/picture/008/save_picture_357664.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357655.jpg" />
+  <img src="Z:/picture/008/save_picture_357655.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357524.jpg" />
+  <img src="Z:/picture/008/save_picture_357524.jpg" />
 </div>
 
 
@@ -544,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355151.jpg" />
+  <img src="Z:/picture/008/save_picture_355151.jpg" />
 </div>
 
 
@@ -571,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349970.jpg" />
+  <img src="Z:/picture/008/save_picture_349970.jpg" />
 </div>
 
 
@@ -598,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348620.jpg" />
+  <img src="Z:/picture/008/save_picture_348620.jpg" />
 </div>
 
 
@@ -609,122 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50EED1DDC4457FD63FA3C7D48EB5526DEC8FA444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409814   (345771) от 13.11.2011
-
-Книжная серия | Терра-детектив [27 книг] (1995-2008) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более сотни произведений - от психологического детектива до детектива-боевика. Это настоящее удовольствие, хочется, чтобы книги эти никогда не кончались, ибо загадки всегда привлекают пытливый ум, а их разгадки радуют душу: преступник пойман, зло наказано. Или наоборот, но это не так важно, важно лишь то, что вы, оставляя улики в виде зачитанных до дыр страниц, в (   Читать дальше...   )Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AC255B0F4A57FEEE6C21468CA1876F697D5317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580279   (345583) от 24.11.2012
-
-Книжная серия | Витязи (Фантастика. История. Приключения) в 3 томах [1993-1995] [FB2, DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия имеет два названия: Витязи и Фантастика. История. Приключения
-Всего издательством Гепта-Трейд было выпущено 4 тома, в которые вошли исторические приключенческие романы. Фантастики не видно.Жанр: История. ПриключенияФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0517FDCD24634799A39D46BFA82AA17C4B77E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580150   (345439) от 24.11.2012
-
-Книжная серия | Магический реализм (13 книг) [2003-2004] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магический реализм - серия зарубежной фантастики, которая "не совсем фантастика".
-Составителем серии был известный петербургский редактор и переводчик Александр Гузман.
-Серия представлена полностью.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547FE5A238A5D807B348F57C8D1E7E738FAFB42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579890   (345435) от 24.11.2012
-
-Книжная серия "Любовь и честь" (16 книг) [1994-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серию Любовь и честь в 90-х годах выпускало издательство Олма-Пресс, а с 2011 года издает издательство Азбука.
-Новая серия выглядит покруче.
-Исторические приключения плюс любовные переживания.
-
-В книжную серию вошли:
-Мэри Бэлоу. 		Шляпка с перьями
-Энн Бэрбор. 		Возвращение лорда Гленрейвена
-Энн Бэрбор. 		Шаг во времени
-Донна Дэвидсон. 	Дар Элизабет
-Айрис Дюбуа		Сломанный клинок(   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8534A2E79B2145998D2CB59227E886BF6730AF11
 ```
 
 https://mybot314.ru/tekegram_catalog/

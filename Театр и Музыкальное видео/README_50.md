@@ -1,3 +1,168 @@
+###  Публикация: 323682   (746871) от 15.04.2011
+
+[FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Интервью + Концерт + ВидеоклипыСубтитры: НемецкиеПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940C19D5E2073CC2A6EBD37CB6B5622A414FEC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782914   (746808) от 03.05.2014
+
+Юрий Антонов - 50 лет на сцене (2014.05.02) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт Юрия Антонова. Только лучшие хиты в живом исполнении.01. Зеркало
+02. Море
+03. У берёз и сосен
+04. На улице Каштановой(   Читать дальше...   )Жанр: Концерт,Soft Rock, Pop Rock, Jazz, DiscoПродолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71E3BB4BDA62F9C87C5987E11572A5663B6B7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783008   (746684) от 03.05.2014
+
+Юрий Антонов - 50 лет на сцене (2014.05.02) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт Юрия Антонова. Только лучшие хиты в живом исполнении.01 - Зеркало
+02 - Море
+03 - У берёз и сосен
+04 - На улице Каштановой(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Jazz, DiscoПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BC341ED3D36CA061209DF1733BC8E28FF2FC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396275   (746648) от 15.07.2020
+
+Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machine Learning]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746648.jpg" />
+</div>
+
+
+###  Подробнее
+
+From Wishes to Eternity — Live был записан в Тампере (Финляндия) 29 декабря 2000 года. В дополнение к DVD-изданию, исключительно для рынка Финляндии последовало ограниченное издание на компакт-дисках, выпущенных тиражом 10 000 экземпляров, а также на видеокассетах в формате VHS — тиражом 1000 экземпляров. Позже, в 2005 году, звукозаписывающая компания Spinefarm Records (   Читать дальше...   )Производство: FinlandЖанр: Symphonic Power MetalПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08D6407630C89D2A828A8E7B1AC099B1CFE7C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664518   (745685) от 05.06.2013
+
+Мираж - Музыка нас связала (1989) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745685.jpg" />
+</div>
+
+
+###  Подробнее
+
+клип на песню "Музыка нас связала"Жанр: МузыкаПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9EB6F1765988A20A6CB47AA56AED3B43EE3244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665035   (745638) от 05.06.2013
+
+Judas Priest - Epitaph (2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_745638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Hymn
+02. Rapid Fire
+03. Metal Gods
+04. Heading Out to the Highway(   Читать дальше...   )Производство: Legacy Recordings/Sony Music EntertainmentЖанр: Heavy MetalПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:22:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216387   (744439) от 03.04.2018
 
 Океан Эльзы - Без тебя / Океан Ельзи - Без тебе (2018) WEBRip [H.264/2160p] [4K]
@@ -6,7 +171,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744439.jpg" />
+  <img src="Z:/picture/008/save_picture_744439.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743522.jpg" />
+  <img src="Z:/picture/008/save_picture_743522.jpg" />
 </div>
 
 
@@ -61,7 +226,7 @@ Lisa Stansfield - Live In Manchester '2014 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743458.jpg" />
+  <img src="Z:/picture/008/save_picture_743458.jpg" />
 </div>
 
 
@@ -90,7 +255,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743296.jpg" />
+  <img src="Z:/picture/008/save_picture_743296.jpg" />
 </div>
 
 
@@ -119,7 +284,7 @@ John Fogerty - Live at Stagecoach Country Music Festival (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743098.jpg" />
+  <img src="Z:/picture/008/save_picture_743098.jpg" />
 </div>
 
 
@@ -148,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742154.jpg" />
+  <img src="Z:/picture/008/save_picture_742154.jpg" />
 </div>
 
 
@@ -177,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741293.jpg" />
+  <img src="Z:/picture/008/save_picture_741293.jpg" />
 </div>
 
 
@@ -203,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740710.jpg" />
+  <img src="Z:/picture/008/save_picture_740710.jpg" />
 </div>
 
 
@@ -229,7 +394,7 @@ Lisa Stansfield. Live at Baloise Session (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740685.jpg" />
+  <img src="Z:/picture/008/save_picture_740685.jpg" />
 </div>
 
 
@@ -258,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739602.jpg" />
+  <img src="Z:/picture/008/save_picture_739602.jpg" />
 </div>
 
 
@@ -284,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739033.jpg" />
+  <img src="Z:/picture/008/save_picture_739033.jpg" />
 </div>
 
 
@@ -310,7 +475,7 @@ Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738913.jpg" />
+  <img src="Z:/picture/008/save_picture_738913.jpg" />
 </div>
 
 
@@ -336,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738308.jpg" />
+  <img src="Z:/picture/008/save_picture_738308.jpg" />
 </div>
 
 
@@ -364,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738306.jpg" />
+  <img src="Z:/picture/008/save_picture_738306.jpg" />
 </div>
 
 
@@ -392,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737011.jpg" />
+  <img src="Z:/picture/008/save_picture_737011.jpg" />
 </div>
 
 
@@ -421,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736391.jpg" />
+  <img src="Z:/picture/008/save_picture_736391.jpg" />
 </div>
 
 
@@ -450,7 +615,7 @@ Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736297.jpg" />
+  <img src="Z:/picture/008/save_picture_736297.jpg" />
 </div>
 
 
@@ -479,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735848.jpg" />
+  <img src="Z:/picture/008/save_picture_735848.jpg" />
 </div>
 
 
@@ -508,7 +673,7 @@ ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735329.jpg" />
+  <img src="Z:/picture/008/save_picture_735329.jpg" />
 </div>
 
 
@@ -534,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734727.jpg" />
+  <img src="Z:/picture/008/save_picture_734727.jpg" />
 </div>
 
 
@@ -546,172 +711,6 @@ Audio: CDA: Это все. 1994Жанр: Альтернативный РокПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF6587BA62CF4026C0C485F753C9BC7306B725C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398364   (734690) от 28.07.2020
-
-ПАУК оркестр (Коррозия металла) & Александра Орлова - Лиза разведчица (2015) WEBRip [H.264/1080p] <Thrash, Punk, Oi>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая версия песни «Лиза Разведчица», была записана для культового спецпроэкта писателя Олега Гастэло «ПЕСНИ ПАРТИЙЦА» в далёком 1998г, когда в России свирепствовал ДЭФОЛТ! Автор музыки ПАУК, слова Гастэло - ПАУК. После выхода сборника ПП, песня «Лиза Разведчица», стала сразу популярна среди политизированной молодёжи и  котируетца до сих пор. В том же 1998г, композиция (   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 00:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E21DA10DEC45D5EBC4BE23837BC929FC6D8E38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398284   (734688) от 28.07.2020
-
-Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore> 13 клипов
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734688.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 At War with Love
-002 Drogen
-003 F.Y.W
-004 Fire(   Читать дальше...   )Жанр: Beatdown HardcoreСубтитры: АнглийскиеПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308C7021195886FC463E825683E2D969DCCD790F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788301   (734080) от 22.05.2014
-
-Лебединое озеро / Swan Lake (2007) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734080.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лебединое озеро" - символ русского балета. Самый репертуарный спектакль Мариинского театра в исполнении блестящей труппы, в главных ролях Ульяна Лопаткина и Данила Корсунцев. И этим сказано всё! Ульяна Лопаткина - настоящая королева лебедей. Это признано всем миром. Существует много вариантов этого бессмертного балета, но такого слияния балерины и созданного (   Читать дальше...   )Производство: США (Decca Music Group), Великобритания (BBC)Жанр: БалетРежиссер: Росс МакГиббонАктеры: Ульяна Лопаткина (Одетта-Одиллия), Данила Корсунцев (Принц Зигфрид), Александра Гронская (Владетельная принцесса, мать Зигфрида), Илья Кузнецов (Фон Ротбард), Андрей Иванов (Шут), Петр Стасюнас, Ирина Голуб, Екатерина Осмолкина, Антон Корсаков, Евгения Образцова, Светлана Иванова, Олеся Новикова, Виктория Терешкина, Татьяна Ткаченко, Ксения Острейковская, Дарья СухоруковаПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B3EAB44D8D96919012327CCD9D2734BD9D7AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788806   (734067) от 22.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopРежиссер: Франсуа АнссПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEC2B99E1B89A96AED344854C86486A3B826998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788077   (734064) от 22.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopРежиссер: Франсуа АнссПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828BE986B912834A7E286E7B4EC6C1C7A4F8328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307896   (733500) от 04.02.2022
-
-Маленькие комедии большого дома (1974) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять лирических и сатирических новелл из жизни москвичей 70-х годов: "Смотровой ордер", "Грабеж", "Московская серенада", "Звуковое письмо", "Пой, ласточка, пой...". Жители нового дома влюбляются, ссорятся и мирятся, работают и отдыхают.
-«Смотровой ордер» — оптимистическая комедия с переездом и вселением. «Грабеж» (   Читать дальше...   )Производство: СССР, Московский театр СатирыЖанр: КомедияРежиссер: Александр Ширвиндт, Андрей Миронов, Валентин ПлучекАктеры: Татьяна Пельтцер, Борис Кумаритов, Надежда Каратаева, Виктор Рухманов, Андрей Миронов, Наталья Защипина, Спартак Мишулин, Юрий Авшаров, Нина Архипова, Зоя Зелинская, Даниил Каданов, Александр Диденко, Екатерина Градова, Зиновий Высоковский и др.Субтитры: отсутствуютПродолжительность: 02:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0D72E66525AA338B7AEA2375C8B9AF63997B87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 261906   (285723) от 08.12.2016
+
+Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010) HDTVRip [720p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вода повсюду и в ней спрятаны таинственные силы. Теперь технология может показать, что всё время находится прямо перед нашими глазами. Вода из крана принимает невообразимые формы. Крошечный червь обладает силой контролировать мозг. Красивые, но смертельные формы жизни в океане. И микроскопическая лаборатория, способная спасти вашу жизнь.
+
+Добро пожаловать в невидимый (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3819D17F4CA5842C9EC1158FBC9569566FEB659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262475   (284205) от 21.11.2018
+
+BBC. Российская империя: Династия Романовых / Empire of the Tsars: Romanov Russia with Lucy Worsley (2016) HDTVRip [H.264/1080p-LQ] (3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реформация России. Доктор Люси Уорсли углубляется в мир начала династии Романовых, чьё правление берёт истоки от 16-летнего Михаила Романова до Петра Великого, который решил реформировать и модернизировать Россию.Производство: Великобритания, ВВСЖанр: Документальный, историяРежиссер: Джон ДасПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3D40E64439CD0E6730BFC9D7553BFB2759ACF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155794   (283892) от 26.11.2017
+
+BBC: Забытые британские рабовладельцы / Britain's Forgotten Slave Owners (2015) DVB (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_283892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти два века эти документы пребывали в забвении, даже среди историков. Рабский труд служил двигателем британской экономики. Когда его наконец отменили, рабовладельцы потребовали компенсации, сумма ее равнялась 17 млрд. сегодняшних фунтов. Эти деньги легли в основание современного мира.Производство: Великобритания, BBC History Production LondonЖанр: Документальный, история, исследованияРежиссер: Джеймс Ван Дер Пул, Бен КричтонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:48:25+00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F9B0E7338AFC9787CFEEBE710C8AD356ABEF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186933   (283738) от 26.11.2017
+
+Мир без микробов / Un monde sans microbe (A world without microbes) (2016) DVB
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_283738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что бы произошло, если бы, как по мановению волшебной палочки, все микробы вдруг исчезли с нашей планеты? Будет ли возможна при этом жизнь? К каким последствиям приведет исчезновение этого невидимого мира? Окунитесь в увлекательный мир бесконечно малого...Производство: Франция, AB Productions & Docland YardЖанр: Документальный, научно-познавательный, исследованияРежиссер: Марианна КрамерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3FF56D3D9256615C3A838F677A0BFB58EE683A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136508   (282185) от 05.11.2019
 
 Discovery Channel Россия. Техногеника. Русский коллайдер (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 8 из 13)
@@ -6,7 +112,7 @@ Discovery Channel Россия. Техногеника. Русский колл�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282185.jpg" />
+  <img src="Z:/picture/008/save_picture_282185.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281922.jpg" />
+  <img src="Z:/picture/008/save_picture_281922.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281671.jpg" />
+  <img src="Z:/picture/008/save_picture_281671.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ BBC. Великая битва Александра Македонского / A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281081.jpg" />
+  <img src="Z:/picture/008/save_picture_281081.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ NG. Ледяная дорога: Кошмар на дороге! / Ice Road Resc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280993.jpg" />
+  <img src="Z:/picture/008/save_picture_280993.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280645.jpg" />
+  <img src="Z:/picture/008/save_picture_280645.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280117.jpg" />
+  <img src="Z:/picture/008/save_picture_280117.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280115.jpg" />
+  <img src="Z:/picture/008/save_picture_280115.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280011.jpg" />
+  <img src="Z:/picture/008/save_picture_280011.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ NGW. Выжить в дикой природе / Survive the Wild(2016) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279455.jpg" />
+  <img src="Z:/picture/008/save_picture_279455.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279030.jpg" />
+  <img src="Z:/picture/008/save_picture_279030.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278768.jpg" />
+  <img src="Z:/picture/008/save_picture_278768.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Discovery. Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278753.jpg" />
+  <img src="Z:/picture/008/save_picture_278753.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278699.jpg" />
+  <img src="Z:/picture/008/save_picture_278699.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278363.jpg" />
+  <img src="Z:/picture/008/save_picture_278363.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ Discovery. Танк на Луне / Tank on the Moon (2008) PDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_278293.jpg" />
+  <img src="Z:/picture/005/save_picture_278293.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTV [H.264/720p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278274.jpg" />
+  <img src="Z:/picture/008/save_picture_278274.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277176.jpg" />
+  <img src="Z:/picture/008/save_picture_277176.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276933.jpg" />
+  <img src="Z:/picture/008/save_picture_276933.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ Discovery: Опасная миссия: Хаббл / Mission Critical: Hubble (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276929.jpg" />
+  <img src="Z:/picture/008/save_picture_276929.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276850.jpg" />
+  <img src="Z:/picture/008/save_picture_276850.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276271.jpg" />
+  <img src="Z:/picture/008/save_picture_276271.jpg" />
 </div>
 
 
@@ -569,110 +675,6 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92345A253777ED850EA45A1AA7307AC78754EC4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080486   (274399) от 15.12.2016
-
-History. Кругосветное путешествие Оззи и Джека / Ozzy & Jack's World Detour (2016) HDTVRip [H.264/1080i-LQ] (сезон 1, серии 1-10 из 10) (Обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274399.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Крестный отец хэви-метала» великий и ужасный Оззи Осборн вместе со своим сыном Джеком отправляется в захватывающее путешествие по миру. Однако это не стандартная туристическая поездка, включающая в себя беглое изучение основных достопримечательностей, а серьезное исследование знаковых исторических мест, таких как Стоунхендж, мемориал Рашмор, Джеймстаун, Розуэлл (   Читать дальше...   )Телекомпания: США / Osbourne Media, T Group ProductionsЖанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: ~ 00:40:00 (серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A9BDA17DB7126F223D26BAC78C920B8427DC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188292   (274248) от 02.12.2017
-
-Тайны шести жен с Люси Уорсли / Secrets of the Six Wives with Lucy Worsley (2016) DVB (Сезон 1, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал показывает нам драматическую реконструкцию, в которой Люси Уорсли пересматривает ключевые события в жизни шести жен Генриха VIII, раскрывает те моменты, в которых каждая из них пыталась оказать влияние на короля и суд Тюдоров. Люси вникает в записи личных моментов и личных чувств в жизни этих женщин, которые в конечном итоге формируют ход истории.Производство: Великобритания, Wall to Wall South LtdЖанр: Документальный, драма, биография, историяРежиссер: Расселл ИнглэндПеревод: Многоголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3x~00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D543E044E579ACA399AF475026895E62EE282F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265463   (274073) от 28.11.2018
-
-NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окаванго - это то место, где природа создала самые разнообразные среды обитания на земле. Это место, где десятки тысяч животных каждый год переживают удивительные драмы, вызванные могущественой природной силой под названием "Большой потоп".Производство: США, Icon Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд БестелингПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7ECEBEBDB52F2F17315700B3B91A8D4D2B94D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265470   (274064) от 28.11.2018
-
-NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 2018 года НАСА запустило первую в истории миссию полета на звезду. Это поистине исторический квест, посвященный исследованию самого крупного объекта нашей солнечной системы - Солнца. Для его реализации был создан самый быстрый из когда-либо созданных на Земле летательных аппаратов, который будет лететь со скоростью 450000 миль в час. Его невероятная по своей (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэниел М. СмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2C14D5B0BEB86F182A80A2D8E386DEA0F9BAA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

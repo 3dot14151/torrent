@@ -6,7 +6,7 @@ Dead Space 2 (2011) [PS3] [EUR] 3.40 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988711.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jurassic Park: The Game [PS3] [PAL] [Ru] [Repack] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986464.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Transformers: Revenge of the Fallen (2009) [PS3] [USA] 2.60 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985776.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Cave [PS3] [PAL] [RU] (2013) 2013 | PS-Club Team
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985167.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Worms Revolution [PS3] [Ru] [Repack] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985122.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ K-POP Dance Festival [Wii] [Korean] [NTSC-K] (2013)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_984406.jpg" />
+  <img src="Z:/picture/008/save_picture_984406.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Rayman Raving Rabbids [Wii] [PAL] [Multi 6] (2006)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981980.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dark Souls II (2014) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / 1.10 / DLC] [Ru/Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981939.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Cursed Crusade / The Cursed Crusade: Искупление (2010) [Xbox360] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981561.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Winter Sports 2011: Go for Gold (2010) [Xbox360] [Region Free] FreeBoot [Unoffic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981556.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Contrast (2013) [PS3] [USA] 3.30 [HEN / CFW] [Repack / 1.01] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980761.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Evil Within (2014) [Xbox360] [Region Free] FreeBoot [Unofficial/dlc/tu] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980601.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Borderlands: The Pre-Sequel (2014) [Xbox360] Freeboot [Unofficial/dlc/tu] [Ru] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979892.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979869.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979693.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Call of Juarez: Gunslinger (2019) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.5] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979623.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sled Shred  [Wii] [NTSC-U ] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_979577.jpg" />
+  <img src="Z:/picture/008/save_picture_979577.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Valkyrie Profile 2 Silmeria [PS2] [ENG, NTSC] (2006)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979416.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ World Gone Sour [Xbox360] [Freeboot] [ENG] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979394.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ LEGO: The Lord of the Rings [xbox360] [Русский] [Region Free] [XGD3/Lt+3.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979383.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Midnight Club 3 DUB Edition Remix [ENG] [NTSC] (2006)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979382.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Dragon Ball Collection (2008-2012) [PS3] [EUR] 2.17, 3.01, 3.42, 3.70, 4.21, 4.5
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978455.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Syberia 2 (2015) [PS3] [EUR] 3.30 [HEN / CFW] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978451.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dino Stalker [PS2] [RUS, NTSC] (2002)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978298.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Final Fight Streetwise [PS2] [RUS, NTSC] (2006)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978271.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Contra Shattered Soldier [PS2] [RUS, PAL] (2003)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978265.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 580374   (344849) от 24.11.2012
+
+Pid [Ru/En] (RePack/3.5.6) 2012 | Audioslave
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pid – платформер, где вы выступаете в роли мальчика, оказавшегося на далекой планете. Вам предстоит сразиться со злобными роботами и подружиться с инопланетными жителями, чтобы разгадать великий заговор, держащий всю планету под гипнозом, и вернуться домой.
+Кроме одиночного режима, в Pid есть возможность играть в кооперативе с другом.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E46F63D21EA4E87FCF4255206EA87FFD171099E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073507   (344488) от 16.11.2016
 
 Lantern (2016) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +33,7 @@ Lantern (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344488.jpg" />
+  <img src="Z:/picture/008/save_picture_344488.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Trailblazers (2018) [Multi] (5.6.5.11926743) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343936.jpg" />
+  <img src="Z:/picture/008/save_picture_343936.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.15/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342474.jpg" />
+  <img src="Z:/picture/008/save_picture_342474.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ No Place for Bravery (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342441.jpg" />
+  <img src="Z:/picture/008/save_picture_342441.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Infinifactory (2015) [En] (5.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341399.jpg" />
+  <img src="Z:/picture/008/save_picture_341399.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru] (RePack/1.0
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339367.jpg" />
+  <img src="Z:/picture/008/save_picture_339367.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Circle Empires (2018) [Ru/Multi] (1.2.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338113.jpg" />
+  <img src="Z:/picture/008/save_picture_338113.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Metal Tales: Fury of the Guitar Gods (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335256.jpg" />
+  <img src="Z:/picture/008/save_picture_335256.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334934.jpg" />
+  <img src="Z:/picture/008/save_picture_334934.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Surf's Up! / Лови Волну! (2007) [Ru] (1.0) Repack Sash HD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334308.jpg" />
+  <img src="Z:/picture/008/save_picture_334308.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333259.jpg" />
+  <img src="Z:/picture/008/save_picture_333259.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Moorhuhn - Das verbotene Schloss (L) [Dе] (2010)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332901.jpg" />
+  <img src="Z:/picture/008/save_picture_332901.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332806.jpg" />
+  <img src="Z:/picture/008/save_picture_332806.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ Evil Defenders (2015) [Ru/Multi] (1.0) SteamRip R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327199.jpg" />
+  <img src="Z:/picture/008/save_picture_327199.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ My Memory of Us (2018) [Ru/Multi] (1.2990) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322852.jpg" />
+  <img src="Z:/picture/008/save_picture_322852.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ Mega Man 11 (2018) [Multi] (1.0.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311081.jpg" />
+  <img src="Z:/picture/008/save_picture_311081.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306085.jpg" />
+  <img src="Z:/picture/008/save_picture_306085.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304763.jpg" />
+  <img src="Z:/picture/008/save_picture_304763.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303941.jpg" />
+  <img src="Z:/picture/008/save_picture_303941.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ Ben 10 (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302728.jpg" />
+  <img src="Z:/picture/008/save_picture_302728.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ GUTS (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300984.jpg" />
+  <img src="Z:/picture/008/save_picture_300984.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Injustice: Gods Among Us (2013) [Ru/Multi] (1.0.2787.0) Repack xatab [Ultimate E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298443.jpg" />
+  <img src="Z:/picture/008/save_picture_298443.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ Hyperdimension Neptunia Re-Birth2: Sisters Generation (2015) [En/Ru] Repack R.G.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294377.jpg" />
+  <img src="Z:/picture/008/save_picture_294377.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293277.jpg" />
+  <img src="Z:/picture/008/save_picture_293277.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License 0x0007
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293100.jpg" />
+  <img src="Z:/picture/008/save_picture_293100.jpg" />
 </div>
 
 
@@ -644,32 +671,6 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E995C19CFDAA626A2FF9224FD21C0CCCEE452958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270242   (287061) от 14.12.2010
-
-Как достать: Принц Персии и Жадный Халиф (L) [Ru] 2010 | TRiViUM
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами совершенно новая игра Как достать: Принц Персии и Жадный Халиф! Что может быть веселее, чем вывести из себя толстого вечно ворчащего Халифа? Наверное, только перецеловать всех его красавиц-жен. Отправляйтесь на эту авантюру вместе с озорным Принцем Персии.Тип издания: ЛицензияЖанр: ArcadeЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969BB0E6EF2424F65B6574ED94D821FE72B2B3BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

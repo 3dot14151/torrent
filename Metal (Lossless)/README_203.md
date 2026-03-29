@@ -1,3 +1,91 @@
+###  Публикация: 1333834   (243613) от 26.10.2019
+
+Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. The Game
+03. Dream To Fly
+04. Again(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD239DD29EA10C3212F364BEB78A138418B9CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455671   (243612) от 20.03.2021
+
+Enforcer - Live by Fire II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die for the Devil (Live)
+02. Searching for You (Live)
+03. Undying Evil (Live)
+04. From Beyond (Live)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D9FC7E2C80AFC51AC443A9F4EA5AA2A47A5172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538075   (243596) от 19.03.2022
+
+Funeral - Praesentialis In Aeternum (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежские первопроходцы дум-метала FUNERAL выпустили новый альбом “Praesentialis in Aeternum” 10 декабря 2021 года на лейбле Season of Mist.
+Его обложку нарисовал Christopher Rådlund.1. And
+2. Materie
+3. Erindring I - Hovmod
+4. Erindring II - Fall(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A07A4D4FB34620147CAA01153F4CBD27408CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538153   (243581) от 19.03.2022
 
 Friends of Hell - Friends Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -6,7 +94,7 @@ Friends of Hell - Friends Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243581.jpg" />
+  <img src="Z:/picture/004/save_picture_243581.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Zeelion - Steel Attack (2005) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243563.jpg" />
+  <img src="Z:/picture/004/save_picture_243563.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Merciless Law - Troops Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243554.jpg" />
+  <img src="Z:/picture/004/save_picture_243554.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ Deimos' Dawn - Anthem Of The Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243553.jpg" />
+  <img src="Z:/picture/004/save_picture_243553.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ Rosicrucian - No Cause for Celebration (1994) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243539.jpg" />
+  <img src="Z:/picture/004/save_picture_243539.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243536.jpg" />
+  <img src="Z:/picture/004/save_picture_243536.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ Disturbed - Down With The Sickness (2001) Single, Promo [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243531.jpg" />
+  <img src="Z:/picture/004/save_picture_243531.jpg" />
 </div>
 
 
@@ -208,7 +296,7 @@ Cerulia - Aurora Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243530.jpg" />
+  <img src="Z:/picture/004/save_picture_243530.jpg" />
 </div>
 
 
@@ -237,7 +325,7 @@ Reverence - Vengeance Is … LIVE (2018) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243520.jpg" />
+  <img src="Z:/picture/004/save_picture_243520.jpg" />
 </div>
 
 
@@ -266,7 +354,7 @@ Sieghetnar - Verfallen & Verendet (2006) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243511.jpg" />
+  <img src="Z:/picture/004/save_picture_243511.jpg" />
 </div>
 
 
@@ -295,7 +383,7 @@ Fate of Misery - For All, There Exists, Nothing (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243506.jpg" />
+  <img src="Z:/picture/005/save_picture_243506.jpg" />
 </div>
 
 
@@ -324,7 +412,7 @@ Berserkerband - First Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243503.jpg" />
+  <img src="Z:/picture/004/save_picture_243503.jpg" />
 </div>
 
 
@@ -353,7 +441,7 @@ Aftermath - Remastermath (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243497.jpg" />
+  <img src="Z:/picture/004/save_picture_243497.jpg" />
 </div>
 
 
@@ -382,7 +470,7 @@ Fatal Embrace - Manifestum Infernalis (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243487.jpg" />
+  <img src="Z:/picture/005/save_picture_243487.jpg" />
 </div>
 
 
@@ -411,7 +499,7 @@ Alase - A Matter of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243484.jpg" />
+  <img src="Z:/picture/004/save_picture_243484.jpg" />
 </div>
 
 
@@ -440,7 +528,7 @@ Blood God & Debauchery - Demons Of Rock 'n' Roll (2022) 2xCD, Limited Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243472.jpg" />
+  <img src="Z:/picture/004/save_picture_243472.jpg" />
 </div>
 
 
@@ -469,7 +557,7 @@ Red Harvest - Internal Punishment Programs (2004) [APE|Lossless|image + .cue] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243466.jpg" />
+  <img src="Z:/picture/004/save_picture_243466.jpg" />
 </div>
 
 
@@ -498,7 +586,7 @@ Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|tracks + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243437.jpg" />
+  <img src="Z:/picture/004/save_picture_243437.jpg" />
 </div>
 
 
@@ -527,7 +615,7 @@ Arion - Vultures Die Alone (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243391.jpg" />
+  <img src="Z:/picture/005/save_picture_243391.jpg" />
 </div>
 
 
@@ -556,7 +644,7 @@ Red Rum - Book of Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243377.jpg" />
+  <img src="Z:/picture/004/save_picture_243377.jpg" />
 </div>
 
 
@@ -585,7 +673,7 @@ Veonity - Elements Of Power (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243354.jpg" />
+  <img src="Z:/picture/005/save_picture_243354.jpg" />
 </div>
 
 
@@ -614,7 +702,7 @@ Blodkvalt - Algor Mortis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243308.jpg" />
+  <img src="Z:/picture/004/save_picture_243308.jpg" />
 </div>
 
 
@@ -643,7 +731,7 @@ Defleshed - Fast Forward (1999) Reissue 2002 [APE|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243290.jpg" />
+  <img src="Z:/picture/004/save_picture_243290.jpg" />
 </div>
 
 
@@ -657,93 +745,6 @@ Defleshed - Fast Forward (1999) Reissue 2002 [APE|Lossless|image + .cue] <Thrash
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD7024ECCDEAC606E94E2C7EBF828CCE4E26A789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613756   (243279) от 19.02.2023
-
-Dawn of Darkness - The First Seven Signs (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Storm (05:57)
-02 - Dangerous Birds (04:34)
-03 - Sufferers' Blood (05:43)
-04 - Completely Closed World (06:13)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894F39CF4DA1C5B6988D706F000FE9C2B5DE3C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079425   (243271) от 04.12.2016
-
-Odal - Geistes Unruh (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geistes Unruh
-02. ...flammender Geist
-03. Erblicke das Chaos
-04. ...in steter Wiederkehr(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A15512F764459E33D96558CEB56556B9F34DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613585   (243249) от 19.02.2023
-
-Wizards Of Hazards - Supernatural (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grapes of Wrath [00:04:47]
-02. Dusk & Dawn [00:04:15]
-03. Moonpowers [00:03:56]
-04. Wolf to Another [00:04:51](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA7BEB5694E41373F29639AB0E200ACF7E7BF2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

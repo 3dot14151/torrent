@@ -1,3 +1,206 @@
+###  Публикация: 974852   (973357) от 14.01.2016
+
+Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detonator
+02. I Spy
+03. The Devil's Radio
+04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975069   (973297) от 14.01.2016
+
+Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I love it when we do (3:40)
+02. Love won't work (3:40)
+03. If tomorrow never comes (3:39)
+04. Come be my baby (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975115   (973213) от 14.01.2016
+
+Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Carretera (4:42)
+02. Cosas De La Vida (3:55)
+03. Baila Morena (3:50)
+04. Derroche (3:37)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975355   (973207) от 14.01.2016
+
+Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson, Ballad, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy (3:17)
+02. Let It Be Me (3:06)
+03. Mammy Blue (4:16)
+04. Fragile (4:24)(   Читать дальше...   )Жанр: Soft Rock, Chanson, Ballad, SchlagerПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975349   (973195) от 14.01.2016
+
+Julio Iglesias - Tango (1996) [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tango>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Cumparsita (2:35)
+02. El Dia Que Me Quieras (3:01)
+03. A Media Luz (2:43)
+04. Volver (3:34)(   Читать дальше...   )Жанр: Ballad, Vocal, TangoПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F4BD3A11BFD6348A0390CCB88271C1B36057DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743869   (973144) от 10.01.2014
+
+VA - All Woman - 18 Greatest Hits (1994) [FLAC|Lossless|tracks  + .cue]<Pop, Love Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Stansfield - All Woman (04:50)
+ 02. Beverley Craven - Holding On (03:51)
+ 03. Cathy Dennis - Too Many Walls (04:30)
+ 04. Anita Baker - Sweet Love (04:22)(   Читать дальше...   )Жанр: Pop, Love BalladПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCE761637CF224D6A9FA1F7164BAEE67EBCA0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975015   (973117) от 14.01.2016
+
+Vanessa Paradis - M & J (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marilyn Et John [05:48]
+ 02. Maxou [03:50]
+ 03. Le Bon Dieu Est Un Marin [04:28]
+ 04. Mosquito [04:21](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA239F02B02D3C606120339963FE57E3A2F8E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357598   (973084) от 04.02.2020
 
 Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad, 70s-90s>
@@ -6,7 +209,7 @@ Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973084.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973076.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Bal
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973036.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973004.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972099.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Cha
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972028.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971938.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971936.jpg" />
 </div>
 
 
@@ -241,7 +444,7 @@ VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971923.jpg" />
 </div>
 
 
@@ -270,7 +473,7 @@ Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970818.jpg" />
 </div>
 
 
@@ -299,7 +502,7 @@ VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970804.jpg" />
 </div>
 
 
@@ -328,7 +531,7 @@ Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969782.jpg" />
 </div>
 
 
@@ -357,7 +560,7 @@ Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969700.jpg" />
 </div>
 
 
@@ -386,7 +589,7 @@ Everything But The Girl - Temperamental (1999) Remastered, 2015, Edsel Records, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969668.jpg" />
 </div>
 
 
@@ -415,7 +618,7 @@ Everything But The Girl - Walking Wounded (1996) Remastered, 2015, Edsel Records
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969656.jpg" />
 </div>
 
 
@@ -444,7 +647,7 @@ Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969635.jpg" />
 </div>
 
 
@@ -473,7 +676,7 @@ Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968752.jpg" />
 </div>
 
 
@@ -502,7 +705,7 @@ Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968569.jpg" />
 </div>
 
 
@@ -531,7 +734,7 @@ Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967828.jpg" />
 </div>
 
 
@@ -545,207 +748,6 @@ Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13ED441359B09087A6D0908D29340527C47CE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976948   (967798) от 19.01.2016
-
-VA - 2006 Grammy Nominees (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorillaz feat. De la Soul - Feel Good Inc. (3:28)
-02. Green Day - Boulevard of Broken Dreams (4:21)
-03. Mariah Carey - It’s Like That (3:23)
-04. Paul McCartney - Fine Line (3:06)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4F102663287A4A3EB5ACFC56555D7639D9274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976912   (967790) от 19.01.2016
-
-VA - 2008 Grammy Nominees (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake - What Goes Around... Comes Around (5:11)
-02. Amy Winehouse - Rehab (3:33)
-03. Beyoncé - Irreplaceable (3:46)
-04. Foo Fighters - The Pretender (4:27)(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, PopПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9310E7184CF2AD91510EFA8764C1349B2F62AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977042   (967746) от 19.01.2016
-
-VA - Miamibiza Hits 2014 (2014) [FLAC|Lossless|tracks + .cue] <Dance, Pop, Latino>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gusttavo Lima - Balada (3:25)
-02. Jack Holiday & B-Case - Feel It! (Radio Mix)Жанр: Dance, Pop, LatinoПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F062DF7E7DA79C5C69048B53DB24B20DEA629E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977685   (965746) от 21.01.2016
-
-Deborah Harry - Debravation (1993) [APE|Lossless|image+.cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can See Clearly
-02. Stability
-03. Strike Me Pink
-04. Rain(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D39D2EC139BBCCD68826F783A4764C450CCFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977362   (965740) от 21.01.2016
-
-VA - DJ Soul Ballads vol.1 (2000) [APE|lossless|image+.cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whithey Houston - Exhale (Shoop Shoop)
-02. Mariah Carey feat. Boyz II Man - One Sweet Day
-03. Jon B. feat. Babyface - Someone To Love
-04. TLC - Red Light Special(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1935722C97B75471D9273C7655CFAAF3AA2D7AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977577   (965735) от 21.01.2016
-
-VA - Red Hot Hits (2005) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G4 - Bohemian Rhapsody (6:09)
-02. Jennifer Lopez - Get Right (3:47)
-03. Britney Spears - Do Something (3:23)
-04. Natasha Bedingfield - Unwritten (4:18)(   Читать дальше...   )Жанр: Pop, Rock, HouseПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E98E5B7432B321E3B3708E24B0B0D4F6708B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977983   (964660) от 22.01.2016
-
-Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Since You've Been Gone
-02	Don't Give Up
-03	Your All I Ever Wanted
-04	Living On a Desert Island(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
 ```
 
 https://mybot314.ru/tekegram_catalog/

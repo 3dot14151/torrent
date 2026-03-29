@@ -6,7 +6,7 @@ Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625794.jpg" />
+  <img src="Z:/picture/008/save_picture_625794.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bad Boys Blue - House Of Silence (1991) [FLAC|Lossless|image + .cue] <Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625635.jpg" />
+  <img src="Z:/picture/008/save_picture_625635.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Savage - Tonight (2009) [FLAC|Lossless]<italo-disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624587.jpg" />
+  <img src="Z:/picture/005/save_picture_624587.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623872.jpg" />
+  <img src="Z:/picture/008/save_picture_623872.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Belle Epoque - Now (1979) RM, 2002, CD-Maximum [APE|Lossless|image + .cue] <Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622610.jpg" />
+  <img src="Z:/picture/008/save_picture_622610.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Blue System - Walking On A Rainbow + Hello America (2000) [FLAC|image + .cue]<Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621770.jpg" />
+  <img src="Z:/picture/008/save_picture_621770.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Modern Talking - Greatest Hits Mix (1988) [FLAC|tracks+.cue]<Euro Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621550.jpg" />
+  <img src="Z:/picture/008/save_picture_621550.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ivan Cattaneo - Bandiera Gialla (1983) CGD, Reissue, 1988 [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620879.jpg" />
+  <img src="Z:/picture/008/save_picture_620879.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Sunlover Records Compilation Vol.3 - Italowave (2017) [FLAC|Lossless|WEB-DL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620631.jpg" />
+  <img src="Z:/picture/008/save_picture_620631.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Boris Zhivago - The Best of Boris Zhivago (2019) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620624.jpg" />
+  <img src="Z:/picture/008/save_picture_620624.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Grand 12 Inches 9 (2012) 4CD (Compiled by Ben Liebrand) [FLAC|Lossless]<Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_614617.jpg" />
+  <img src="Z:/picture/005/save_picture_614617.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ The African Singers - Disco Africana (2000) [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611243.jpg" />
+  <img src="Z:/picture/008/save_picture_611243.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ One Way - Fancy Dancer (1981) Reissue, 2008, Dizzare Records [FLAC|Lossless|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607690.jpg" />
+  <img src="Z:/picture/008/save_picture_607690.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Cliff Wedge - Back To The 80's (2009) 2CD [FLAC|Lossless|image + .cue] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605633.jpg" />
+  <img src="Z:/picture/008/save_picture_605633.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - ZYX Italo Disco New Generation vol.7 (2015) 2CD, Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604279.jpg" />
+  <img src="Z:/picture/008/save_picture_604279.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - ZYX Italo Disco New Generation vol.8 (2016) 2CD, Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604260.jpg" />
+  <img src="Z:/picture/008/save_picture_604260.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Italoconnection - Metropoli (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603198.jpg" />
+  <img src="Z:/picture/008/save_picture_603198.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Donna Summer - Love to Love You Donna (2013) [FLAC|Lossless|tracks + .cue] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603175.jpg" />
+  <img src="Z:/picture/008/save_picture_603175.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Modern Talking - Les Essentiels (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599882.jpg" />
+  <img src="Z:/picture/008/save_picture_599882.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-P
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598760.jpg" />
+  <img src="Z:/picture/008/save_picture_598760.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Monte Kristo - Sherry Mi-Sai (2007) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597026.jpg" />
+  <img src="Z:/picture/008/save_picture_597026.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - 100 Hits - Disco Classics (2011) 5CD Box set [FLAC|Lossless]<Disco, Funk>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596431.jpg" />
+  <img src="Z:/picture/008/save_picture_596431.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Italo Disco Classics (2013) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596197.jpg" />
+  <img src="Z:/picture/008/save_picture_596197.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596188.jpg" />
+  <img src="Z:/picture/008/save_picture_596188.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594744.jpg" />
+  <img src="Z:/picture/008/save_picture_594744.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594172.jpg" />
+  <img src="Z:/picture/008/save_picture_594172.jpg" />
 </div>
 
 

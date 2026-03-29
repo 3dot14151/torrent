@@ -1,3 +1,145 @@
+###  Публикация: 1401468   (708922) от 10.08.2020
+
+NizamovStudio | Разработка мобильного приложения B2B в 1С (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание мобильного приложения 1С для B2B с нуля до 100%.
+В итоге вы научитесь создавать:
+- Кроссплатформенные мобильные приложение на базе платформы 1С
+- HTTP сервисы для обмена с центральной базой(   Читать дальше...   )Жанр: Программирование 1СПродолжительность: 05:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401470   (708830) от 10.08.2020
+
+[Курсы-по-1С.РФ] Гилев Евгений, Насипов Фарид | Тренинг-интенсив по 1С: Конвертации данных 2.1 (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс построено на практических задачах
+Мы считаем, что навык появится только поле того, как будет отработано хотя бы несколько типовых задач.
+Поэтому мы разобрали 45 практических ситуаций, когда возникают обмены данными, переносы и конвертации объектов.
+Кроме того, мы отобрали 16 задач для “закрепления руками” (домашние задания).Производство: Курсы-по-1С.РФЖанр: Программирование 1СПродолжительность: 11:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD5047E78B62BCDFF4C1AAFAD2D8A4F689B4056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398209   (704881) от 12.08.2020
+
+[Udemy] Mefodiy Kelevra | VPN мастеркласс. Public VPN, Personal VPN, WireGuard VPN (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое VPN и почему смена IP адреса это только его "побочный эффект"
+Как производятся атаки на протокол VPN и как сделать так что бы Ваш трафик не расшифровали.
+Как замаскировать ваше VPN соединение для обхода фаерволов например в людных местах - Кафе и Гостиницах
+Разберем плюсы и минусы большинства VPN провайдеров в интернете.(   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 01:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228E7CD96320B8437B7D9498394B10231E2390F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402044   (704874) от 12.08.2020
+
+Skillbox | Работа в командной строке Bash (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь использовать командную строку в Linux-системах, чтобы оптимизировать вашу работу с кодом и серверами.Жанр: АдминистрированиеПродолжительность: 04:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B760E8CDCAA5A8BEB6BD64E60A78D009A7690952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401887   (704863) от 12.08.2020
+
+Skillbox | Excel + Google Таблицы с нуля до PRO (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь составлять сложные отчёты и строить прогнозы, сможете автоматизировать свою работу с помощью скриптов и макросов — тем самым освободите время для других задач.
+В состав релиза входят курсы:
+- Excel базовый
+- Excel PRO(   Читать дальше...   )Жанр: Работа с таблицамиПродолжительность: 23:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC12394ADFCF1F60E823E2FF4C96EA9360F9A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220761   (702008) от 20.04.2018
 
 Специалист | Настройка ПК с Windows 10/8. Уровни 1 и 2 (2017) PCRec [H.264]
@@ -6,7 +148,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702008.jpg" />
+  <img src="Z:/picture/008/save_picture_702008.jpg" />
 </div>
 
 
@@ -34,7 +176,7 @@ WebForMySelf | Курс по базе данных MySQL (2014) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701439.jpg" />
+  <img src="Z:/picture/008/save_picture_701439.jpg" />
 </div>
 
 
@@ -61,7 +203,7 @@ ITVDN | ASP.NET WEB API2 (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700919.jpg" />
+  <img src="Z:/picture/008/save_picture_700919.jpg" />
 </div>
 
 
@@ -87,7 +229,7 @@ School.php | Пошаговое создание сайта от А до Я (д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699605.jpg" />
+  <img src="Z:/picture/008/save_picture_699605.jpg" />
 </div>
 
 
@@ -113,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695427.jpg" />
+  <img src="Z:/picture/008/save_picture_695427.jpg" />
 </div>
 
 
@@ -139,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693303.jpg" />
+  <img src="Z:/picture/008/save_picture_693303.jpg" />
 </div>
 
 
@@ -165,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692121.jpg" />
+  <img src="Z:/picture/008/save_picture_692121.jpg" />
 </div>
 
 
@@ -191,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691801.jpg" />
+  <img src="Z:/picture/008/save_picture_691801.jpg" />
 </div>
 
 
@@ -217,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691039.jpg" />
+  <img src="Z:/picture/008/save_picture_691039.jpg" />
 </div>
 
 
@@ -246,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690962.jpg" />
+  <img src="Z:/picture/008/save_picture_690962.jpg" />
 </div>
 
 
@@ -274,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690956.jpg" />
+  <img src="Z:/picture/008/save_picture_690956.jpg" />
 </div>
 
 
@@ -302,7 +444,7 @@ Sean Allen | iOS Dev Launchpad (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690328.jpg" />
+  <img src="Z:/picture/008/save_picture_690328.jpg" />
 </div>
 
 
@@ -331,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690018.jpg" />
+  <img src="Z:/picture/008/save_picture_690018.jpg" />
 </div>
 
 
@@ -360,7 +502,7 @@ learn.nestjs.com | Основы NestJS / NestJS Fundamentals (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690012.jpg" />
+  <img src="Z:/picture/008/save_picture_690012.jpg" />
 </div>
 
 
@@ -388,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689997.jpg" />
+  <img src="Z:/picture/008/save_picture_689997.jpg" />
 </div>
 
 
@@ -415,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689849.jpg" />
+  <img src="Z:/picture/008/save_picture_689849.jpg" />
 </div>
 
 
@@ -442,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688828.jpg" />
+  <img src="Z:/picture/008/save_picture_688828.jpg" />
 </div>
 
 
@@ -468,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688098.jpg" />
+  <img src="Z:/picture/008/save_picture_688098.jpg" />
 </div>
 
 
@@ -494,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688020.jpg" />
+  <img src="Z:/picture/008/save_picture_688020.jpg" />
 </div>
 
 
@@ -523,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687952.jpg" />
+  <img src="Z:/picture/008/save_picture_687952.jpg" />
 </div>
 
 
@@ -552,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686604.jpg" />
+  <img src="Z:/picture/008/save_picture_686604.jpg" />
 </div>
 
 
@@ -563,142 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E9D0EB5C36D847B690632DC7953EE2240D852C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403864   (686028) от 22.08.2020
-
-[Udemy] Maximilian Schwarzmüller | Ускоренное обучение JavaScript / Accelerated JavaScript Training (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко погрузитесь в JavaScript, язык, который необходимо знать в веб-разработке, с практическим подходом, основанным на примерах.
-Изучите один из самых важных языков в веб-разработке - быстро и с нуля!
-JavaScript - одна из самых важных частей каждой современной, реактивной, удобной веб-страницы или приложения. Несмотря на этот факт, вы, возможно, знаете много руководств, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403856   (685711) от 22.08.2020
-
-[Foxminded] Sergey Nemchinskiy | GRASP and GoF Design patterns Advanced On-line Course (2020) CamRip (re-encoded) (2020) CamRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паттерны – это именно те фичи, которые облегчают жизнь кодеру, они решают конкретную проблему каждый раз новым путём. Хочешь узнать как их применять, когда проектируешь приложения и не только? Тогда не упусти шанс прокачать свои скиллы уже здесь и сейчас. Проще говоря, ты сэкономишь своё время и силы, ведь паттерны это уже готовые решения, а тебе нужно будет лишь (   Читать дальше...   )Производство: FoxmindedЖанр: ПрограммированиеПродолжительность: 13:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD3EF3BADEC94C32BB311FE14574866E6F8DE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222371   (684560) от 29.04.2018
-
-Олег Арестов | PHP. Основы веб-разработки [Уровень 1] (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684560.jpg" />
-</div>
-
-
-###  Подробнее
-
-PHP входит в тройку самых востребованных и популярных языков программирования в мире. Он широко применяется при создании динамически генерируемых веб-страниц. Большинство фрилансеров-программистов в мире используют язык PHP: он позволяет разрабатывать динамические сайты любой сложности и обладает большим набором встроенных средств для разработки веб-приложений.
-Курс (   Читать дальше...   )Производство: GeekBrainsЖанр: ITПродолжительность: 18:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16DC0DED29AEA8ADB3B8C03B03412536781B027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222375   (684454) от 29.04.2018
-
-Артем Шашков | JavaScript. Продвинутый курс [Уровень 2] (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для тех, кто уже освоил базовые возможности языка JavaScript, и теперь хочет научиться делать реально крутые вещи. Каждый урок включает в себя как полезную теорию, так и эффективную практику. Насыщенный самыми актуальными знаниями и навыками, продвинутый курс от GeekBrains - это возможность быстро и надёжно стать профессиональным разработчиком JavaScript.Производство: GeekBrainsЖанр: ITПродолжительность: 17:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198C8AD54765DE2E43DD7B4E02D134985D952768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221883   (684443) от 29.04.2018
-
-Мефодий Келевра | Информационная безопасность (2018) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для людей с небольшими знаниями в области информационной безопасности. Требуется минимальное понимание устройства сетей и используемых в них протоколов. Приветствуется знание UNIX-подобных систем. Если этих знаний нет или их недостаточно, в курсе вы сможете их получить.
-
-Чему Вы научитесь:
-• Ключевым сетевым протоколам, принципам их работы;(   Читать дальше...   )Производство: GeekBrainsЖанр: ITПродолжительность: 17:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588F6B69973D71D4D6B82D2F7F27A05D76DCA739
 ```
 
 https://mybot314.ru/tekegram_catalog/

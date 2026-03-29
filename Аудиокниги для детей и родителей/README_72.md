@@ -1,3 +1,82 @@
+###  Публикация: 1568132   (125159) от 29.12.2023
+
+Мария Парр | Тоня Глиммердал (2021) [MP3, Роза Шмуклер]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тоня – единственный ребёнок в норвежской горной деревушке неподалёку от моря. У неё есть снегокат, лыжи, большая семья, собирающаяся вместе только по праздникам и горы, и пастбища, и речка – всё вокруг её. Когда она летит на лыжах, распевая во весь голос и сверкая рыжей копной волос, вся деревня знает, что едет самый главный человек в долине. Лучший друг Тони – старик (   Читать дальше...   )Жанр: детская проза, зарубежные детские книгиПеревод: Ольга ДроботПродолжительность: 04:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A563F828E16F4082143BBA4FFE8A460BCFF39DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688365   (125151) от 29.12.2023
+
+Народное творчество | Игралки. Считалочки. Дразнилки. Небылицы. Сказки (2013) [MP3, Наталья Михеева, Олег Исаев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вдруг вашему ребёнку стало грустно и нет настроения играть и веселиться, то скорее включайте нашу уникальную программу «Игралки». Во-первых, вы сможете наконец-то пересчитать «всех и вся» с помощью наших многочисленных считалок, возможно, вспомните свои детские считалки. Во-вторых, научитесь подшучивать над окружающими с помощью наших дружеских дразнилок. В-третьих, (   Читать дальше...   )Жанр: детские стихи, сказкиИздательство: Литрес ПаблишингПродолжительность: 03:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC5A2094BF5230628672E27AB0662D959635866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 420232   (125141) от 30.12.2023
+
+Жюль Верн | Вокруг света за 80 дней (Аудиоспектакль) (2006) [MP3, Альберт Филозов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мир приключений.
+Французский писатель Жюль Верн (1828–1905) известен всем нам как автор захватывающих фантастических и приключенческих романов. Его перу принадлежат свыше 60 книг, каждая из которых после прочтения запоминается на всю жизнь. Роман «Вокруг света в 80 дней» – не исключение.Жанр: Зарубежная литература, классика, приключенческий романВ ролях: Андрей Данилюк, Александр Ильин, Ирина Киреева, Альберт Филозов и др.Продолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F193FDC1B1F631976C137427251D21EE711E6B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 445024   (125124) от 30.12.2023
 
 Жюль Верн | Школа Робинзонов (2011) [MP3, Николай Рихтер]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125124.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125112.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125058.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125046.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125038.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125029.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125028.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125012.jpg" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125010.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125008.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124999.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124865.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124821.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124814.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124784.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124763.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124655.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124650.jpg" />
 </div>
 
 
@@ -488,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124644.jpg" />
 </div>
 
 
@@ -514,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124642.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124540.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124539.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124534.jpg" />
 </div>
 
 
@@ -604,87 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ECB1687C38F16EE5FB814E1131F1DBF577E86F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689672   (124523) от 03.01.2024
-
-Уильям Шекспир | Шекспир в пересказе для детей (2013) [MP3, Владимир Левашёв]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-Перед вами прекрасная адаптация наиболее (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, драма, комедияИздательство: Студия «АРДИС»Продолжительность: 04:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9C681139CF35501A291FD69B561BD8BBEE569D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689629   (124504) от 03.01.2024
-
-Александр Колмановский | Лекция «Хорошая мать – это какая?» (2021) [MP3, Александр Колмановский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что значит «достаточно хорошая мать»? Термин ввёл британский психоаналитик Дональд Винникотт, который считал, что идеальных матерей не существует. Но как на практике понять, что ты «достаточно хорошая мать»? Где грань между хорошей матерью и плохой? Что надо делать обязательно, а на какие материнские обязанности можно закрыть глаза? Должна ли мама быть всегда «доброй»? (   Читать дальше...   )Жанр: семейная психология, детская психологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287496568C29BBDD6975118FB3188A838AEEB667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400198   (124465) от 04.01.2024
-
-Константин Паустовский | Созвездие Гончих Псов (2003) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Школьная библиотека.
-Повести выдающегося русского советского писателя Константина Георгиевича Паустовского (1892–1968) проникнуты горячей любовью к Родине, ее чудесной природе, к ее замечательным людям. «Школьная библиотека» представляет лирические произведения разных лет, которые по праву считаются шедеврами русской прозы ХХ века: «Разливы рек», «Исаак Левитан», (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 05:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FF6DDFA031E8A6A9A1FA96178A4739BA937402
 ```
 
 https://mybot314.ru/tekegram_catalog/

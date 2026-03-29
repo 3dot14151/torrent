@@ -1,3 +1,119 @@
+###  Публикация: 925413   (541492) от 06.08.2015
+
+Keith Jarrett - Backhand (1974) /2013, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_541492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inflight [09:08]
+02. Kuum [11:41]
+03. Vapallia [07:50]
+04. Backhand [11:09]Жанр: Jazz, Post-BopПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A645FC059C3F6EFF40B1790CB06C19A1A09EC17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925390   (541491) от 06.08.2015
+
+Curtis Fuller Quintet - South American Cookin' (1961) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_541491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Young Lovers [05:24]
+02. Besame Mucho [09:20]
+03. Willow Weep For Me [06:45]
+04. One Note Samba [04:16](   Читать дальше...   )Жанр: Jazz, Hard Bop, Mainstream JazzПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1726BA6A674DA27364352CE0D2E261A63B6C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925369   (541411) от 06.08.2015
+
+VA - Electro Jazz (2015) [FLAC|tracks|WEB-DL]<Electro Jazz, Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_541411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interpretes Divers - Rhodes Club (03:41)
+02. Interpretes Divers - Hot Times (03:20)
+03. Interpretes Divers - Urban Trumpet (03:31)
+04. Gregory Toucas - Miles from Dream (04:08)(   Читать дальше...   )Производство: Justement MusicЖанр: Electro Jazz, Nu Jazz, Broken BeatПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18381AC79BAFE37658D060A05BE731EB7AE7740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050192   (540755) от 07.09.2016
+
+VA - Jazzy Lounge, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Balearic, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurice Sanders - Oise [3:56]
+02. Cee Jazz - A Night in Venice [4:51]
+03. Dee Lice - Derize (Chill Groovers Mix) [5:44]
+04. Cairo Aerts - Hybrid Line [3:52](   Читать дальше...   )Жанр: Nu Jazz, Balearic, LoungeПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3232CC5DA47A2167DC6ADC83AFDDC4AF51259688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050246   (540651) от 07.09.2016
 
 Charles Mingus - The Black Saint And The Sinner Lady & Mingus Mingus Mingus Mingus Mingus (1963, 1964) 2011, Un[FLAC|Lossless|tracks + .cue] <Post-Bop,  Avant-Garde Jazz>
@@ -6,7 +122,7 @@ Charles Mingus - The Black Saint And The Sinner Lady & Mingus Mingus Mingus Ming
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540651.jpg" />
+  <img src="Z:/picture/008/save_picture_540651.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Jazzy Lounge, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Baleari
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540642.jpg" />
+  <img src="Z:/picture/008/save_picture_540642.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dorothy Donegan - Five Classic Albums (1942 - 1960) 4CD, 2017, Real Gone Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540630.jpg" />
+  <img src="Z:/picture/008/save_picture_540630.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Grant Green - The Main Attraction (1976) 2002, Epic -  EK 86145 [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540629.jpg" />
+  <img src="Z:/picture/008/save_picture_540629.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Keiko Matsui - 24 альбома (1987 - 2007) [APE|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540296.jpg" />
+  <img src="Z:/picture/008/save_picture_540296.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Al Foster - Inspirations & Dedications (2019) Smoke Sessions Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540073.jpg" />
+  <img src="Z:/picture/008/save_picture_540073.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Ellery Eskelin with Andrea Parkins & Jim Black - The Secret Museum (2000) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540071.jpg" />
+  <img src="Z:/picture/008/save_picture_540071.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Charlie Mingus - Statement (1969) /2014, Studio Songs/[FLAC|tracks+.cue]<Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539315.jpg" />
+  <img src="Z:/picture/008/save_picture_539315.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Dodo Marmarosa Trio - Complete Studio Recordings (1946 - 1962) 2CD, 2004, Lone H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539283.jpg" />
+  <img src="Z:/picture/008/save_picture_539283.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Grover Washington Jr. - Come Morning (1981) Elektra [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539191.jpg" />
+  <img src="Z:/picture/008/save_picture_539191.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Grover Washington, Jr. - Feels So Good (1975) 1986, Motown [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539186.jpg" />
+  <img src="Z:/picture/008/save_picture_539186.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Grover Washington Jr. - Then And Now (1988) Columbia [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539163.jpg" />
+  <img src="Z:/picture/008/save_picture_539163.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Carmen McRae - Book Of Ballads (1959) 2008, Kapp Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539097.jpg" />
+  <img src="Z:/picture/008/save_picture_539097.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Flora Purim - That's What She Said (1976) 1990, Original Jazz Classics [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538987.jpg" />
+  <img src="Z:/picture/008/save_picture_538987.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Marchio Bossa - Come in un quadro (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538971.jpg" />
+  <img src="Z:/picture/008/save_picture_538971.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Brian Bromberg - Thicker Than Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538879.jpg" />
+  <img src="Z:/picture/008/save_picture_538879.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Paul Bley, Franz Koglmann, Gary Peacock - Annette (1992) 2001, HAT HUT Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538427.jpg" />
+  <img src="Z:/picture/008/save_picture_538427.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ James Williams - Alter Ego (1984) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538306.jpg" />
+  <img src="Z:/picture/008/save_picture_538306.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Dinah Washington - Jazz Profile (1962 - 1963) 1997, Blue Note [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538305.jpg" />
+  <img src="Z:/picture/008/save_picture_538305.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Count Basie - Jazz Profile (1959 - 1961) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538304.jpg" />
+  <img src="Z:/picture/008/save_picture_538304.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Keiko Matsui - Journey To The Heart (2016) [FLAC|Lossless|image + .cue] <Smooth-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538082.jpg" />
+  <img src="Z:/picture/008/save_picture_538082.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Helen Merrill & Gil Evans - Collaboration (1988) Nippon [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537467.jpg" />
+  <img src="Z:/picture/008/save_picture_537467.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Helen Merrill & Gil Evans - Collaboration (1988) Nippon [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F97EC5B518B41C8D7362283CF038DA468AD9C94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925949   (537281) от 08.08.2015
-
-Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Positively [03:34]
-02. Lover Man (Oh, Where Can You Be) [04:45]
-03. Let's Get It All Together [07:10]
-04. Easy For You To Say [04:39](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48A7B01FF2A616D114E4B05980862E81CD9B50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925854   (537275) от 08.08.2015
-
-Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real Thing/Keeping It Real (Featuring Chieli Minucci/Ragan Whiteside) (5:30)
-02. Creepin' (5:19)
-03. Don't You Worry 'bout A Thing (Featuring Chieli Minucci) (5:13)
-04. That Girl (Featuring U-Nam) (5:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AFB94C955019A3695634CDA2D2B8A88C5B588D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925857   (537270) от 08.08.2015
-
-Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dock of My Mind (4:16)
-02. Afternoon (4:26)
-03. Barefoot Girl (3:43)
-04. Colourful Winds (3:27)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD3C9C46D898D53775066207EC7DD5702ADBA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050444   (536748) от 09.09.2016
-
-VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tracks + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Old Black Magic [04:41]
- 02.Johnny Come Lately [03:31]
- 03.Tea For Two [02:53]
- 04.Embraceable You [09:23](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
 ```
 
 https://mybot314.ru/tekegram_catalog/

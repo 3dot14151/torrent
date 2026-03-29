@@ -1,3 +1,235 @@
+###  Публикация: 1708813   (112909) от 22.03.2024
+
+Celso Salim & Darryl Carriere - About Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BBQ (4:36)
+02. Sweet Thing (4:34)
+03. Please Stop (4:52)
+04. In Your Arms (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB15EE42AE590D8EDF89422611F5A5B849589B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708784   (112907) от 22.03.2024
+
+Samson - Before the Storm (1982) [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Dangerzone" (Paul Samson, Chris Aylmer, Nicky Moore)
+02. "Stealing Away" (Samson, Aylmer, Moore)
+03. "Red Skies" (Samson, Bruce Dickinson, Aylmer, Thunderstick)
+04. "I'll Be 'Round" (Samson, Aylmer, Moore, Pete Jupp)(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 40:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D83ECF6FD7CFD859B0228D23AE51318C9E6D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708844   (112905) от 22.03.2024
+
+Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Sent (4:11)
+02. Yo (Excuse Me Miss) (3:32)
+03. Calm Down (3:56)
+04. Me & U (3:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A279BB4505B408B078950D79A0B48059070FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708797   (112904) от 22.03.2024
+
+Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse (3:20)
+02. Longfeather (4:12)
+03. Holy Water (4:32)
+04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B07E4BEDB30CCE7392CB3FFE0E7DD920601CF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709103   (112902) от 23.03.2024
+
+Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ведьма (М. Рябинин) — 3.56
+02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
+03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709105   (112882) от 23.03.2024
+
+Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
+02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
+03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709097   (112873) от 23.03.2024
+
+Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Гималаи (А. Лукьянов)
+02. Клава (М. Дунаевский)
+03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709186   (112863) от 23.03.2024
+
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709183   (112860) от 23.03.2024
 
 Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
@@ -6,7 +238,7 @@ Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112860.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112859.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112855.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112852.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112848.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112844.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Stevie & the Blue Flames - Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112836.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Sol - Mall Gig (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112835.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Lorenzo Sanchez Band - Blue Avenida (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112831.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112830.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Nils Lofgren Band - Spares (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112829.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ D4oesz - Lucid Strings (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112828.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Ratzlaff & Webb - Delta Badhand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112827.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ The End Machine - The Quantum Phase (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112825.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ TC Tom Comfort - Slave To The Stupid Still (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112824.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112823.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Brother Dege - Aurora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112819.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112806.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2C9810BB517AF101B49C4155293C5A04E2CF77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709422   (112805) от 24.03.2024
-
-Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Year Of The Clown [00:03:37]
-02. Chivalry's Death [00:04:32]
-03. We Can't Lose What We Never Had [00:03:28]
-04. Wisdom From a Madame [00:03:33](   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D38DEB1A6495032C6D7A1E5FE8D86585101397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709372   (112804) от 24.03.2024
-
-Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capstan (5:36)
-02. Smoke & Trash (5:25)
-03. Soothe My Soul (4:26)
-04. Braindead (10:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE484285BC978B77505A0E3700960D3E7D06FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709748   (112801) от 25.03.2024
-
-Раймонд Паулс - Сестра Керри (1979) [FLAC 24/192|Lossless|tracks] <Musical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Сторона.
-01-Пролог
-02-Песенка Керри
-03-Тип-топ(   Читать дальше...   )Жанр: MusicalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709606   (112774) от 25.03.2024
-
-Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things I've Been Telling Myself for Years (3:34)
-02. Lovers' Leap (4:35)
-03. (Where Is It?) (0:27)
-04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710234   (112763) от 26.03.2024
-
-Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. О мое солнце (Э. Капуа)
-02. Аве Мария (Ф. Шуберт)
-03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710389   (112745) от 26.03.2024
-
-Abya - Prayer Of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bells Of Blood (6:38)
-02. Frozen Crown (7:19)
-03. Prayer Of Chaos (7:40)
-04. Walking In The Shadows (7:52)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFC0C38DE6264EBAFED1A61C4B4D309F502A39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710244   (112744) от 26.03.2024
-
-София Ротару - Монолог о любви (1987) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Песня нашего лета (В. Матецкий — М. Танич)
-02. Ночь (музыка и слова В. Лащука)
-03. Осень (И. Поклад — Г. Тараненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B86D7F680F71B5AE4F9F9F60E2070699CDEDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710056   (112740) от 26.03.2024
-
-Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112740.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Panic Attack
-A2 The Serpent And The King
-B1 Invincible Shield
-B2 Devil In Disguise(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

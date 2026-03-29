@@ -1,3 +1,119 @@
+###  Публикация: 1617058   (1035584) от 05.03.2023
+
+Quincy Jones - Milestones Of A Legend (1953 - 1962) 10CD, 2022, The Intense Media [FLAC|Lossless|tracks + .cue] <Bop, Cool, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Golden Touch [3:05]
+02. Jones Beach [4:55]
+03. The Midnight Sun Will Never Set [4:58]
+04. I'm Gone [5:18](   Читать дальше...   )Жанр: Bop, Cool, Big BandПродолжительность: 11:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3F29486D6390723B585BFCB9094B27EC0261BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617171   (1035567) от 05.03.2023
+
+Eva Cassidy & London Symphony Orchestra - I Can Only Be Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Classical Crossover, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songbird
+02. Autumn Leaves
+03. People Get Ready
+04. Waly Waly(   Читать дальше...   )Жанр: Vocal Jazz, Classical Crossover, Easy ListeningПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA53B2414396FAC477647554C693B1E5028E3E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443498   (1035500) от 29.01.2021
+
+Mary Lou Williams - Conversation (1940-e) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8th Avenue [2:40]
+02. Medley: Cloudy/What's Your Story? Morning Glory/Ghost of Love [4:19]
+03. Limehouse Blues [2:43]
+04. Boogie Misterioso [2:49](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B5135466FDA185A99D11B766095F9983BDAF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617341   (1035362) от 06.03.2023
+
+Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anywhere [5:31]
+02. Other Places [6:55]
+03. Mythology [7:55]
+04. For Heaven's Sake [8:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07154FBB803C87D398E43589DE34C5B3E4DE829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617352   (1035332) от 06.03.2023
 
 Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035332.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Marchio Bossa - I asked for you (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Boss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035320.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Andy Kirk & Mary Lou Williams - Mary's Idea (1936 - 1941) 1993, GRP [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035228.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Grachan Moncur III Octet - Exploration (2004) Capri Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035079.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Gary Smulyan - Gary Smulyan with Strings (1996) [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034968.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dave Brubeck - Lullabies (2010) 2020, Verve Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034960.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Smooth Lounge Piano - Peaceful Winter Dreams (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034936.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Richard Elliot - Authentic Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034924.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Harry James - 1939 - 1940 (1997) Classics [FLAC|Lossless|image + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034704.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Weather Report - Tale Spinnin' (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034702.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bob Wilber - Bob Wilber and The Scott Hamilton Quartet (1977) 1993, Chiaroscuro 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034688.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bar-Kays - The Best Of Bar-Kays (1993) [FLAC|Lossless|tracks + .cue] <Funk, Rhyt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034622.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Bertha Hope - Elmo's Fire (1991) SteepleChase [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034572.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dinah Washington - Drinking Again (1962) 1989, Roulette [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034571.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ L.A. 4 - Executive Suite (1982) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034569.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Nancy Wilson - Yesterday's Love Songs & Today's Blues (1963) 1991, Capitol Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034468.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Buddy De Franco (DeFranco) - Pretty Moods (1954) 2013, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034245.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Buddy De Franco (DeFranco) - Bravura: Complete 1959 Septette Sessions (2011) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034242.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Giorgi Mikadze - Georgian Microjamz (2020) [FLAC|Lossless|tracks + .cue] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034233.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Buddy De Franco (DeFranco) - Blues Bag (1964) 2000, Koch Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034185.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sun Ra - The Complete Remastered Recordings On Black Saint & Soul Note (1986 - 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034176.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dinah Washington - Mad About the Boy: 25 Classics (2000) Delta Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034175.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Dinah Washington - Mad About the Boy: 25 Classics (2000) Delta Entertainment [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A206F712B006264D209927E8A32A9F8692CDB2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445137   (1034009) от 04.02.2021
-
-Vered Dekel - Make Way For Love (2004) [FLAC|Lossless|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Day I'll Fly Away - 05:43
-2. It Never Entered My Mind - 03:58
-3. Landslide - 05:32
-4. To Dance - 05:57(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3730D7410132217FC2BEF50D0DB2EC624A397690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445061   (1033959) от 04.02.2021
-
-Dexter Gordon - 1943 - 1947 (1998) Classics [FLAC|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Found a New Baby [4:40]
-02. Rosetta [5:09]
-03. Sweet Lorraine [4:54]
-04. I Blowed and Gone [4:45](   Читать дальше...   )Жанр: BopПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3CE074F9B1C3BD9E77FC1909B3687F921659A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618580   (1033933) от 12.03.2023
-
-Azymuth - Aurora (2011) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aurora 05:25
-2. In My Treehouse 07:13
-3. Tá Nessa Ainda Bicho? 04:21
-4. Isso É Partido Alto 06:06(   Читать дальше...   )Жанр: Jazz, Blues, SoulПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E487A2DCAE9669805D12CB21F18A1E68F24782C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618599   (1033920) от 12.03.2023
-
-Dinah Washington - Sings The Blues (2006) Going For A Song [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Love, No Nothing [2:49]
-02. Shoo Shoo Baby [2:36]
-03. Stairway to the Stars [3:00]
-04. I Want to Be Loved [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AEF7721DEF07D7BA2C0231DC14636E03F0A6A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

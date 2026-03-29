@@ -1,3 +1,120 @@
+###  Публикация: 513984   (52646) от 21.06.2024
+
+Кино (Виктор Цой) - 12 альбомов (Австрийские, Чехословацкое, Японское, Американское и Французкое издания без ремастеринга)(1982-1990) + Атаман (трек) (версия из фильма + студийная запись) (2012) [M ...
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цой стал истинной легендой русского рока, которому было суждено трагически умереть в возрасте 28 лет. Сложно переоценить значение его творчества для целых поколений молодёжи и рок-музыки пост советского пространства в принципе. Творчество группы «КИНО» вот уже более 30 лет значимо и актуально, а значит, «Цой жив!», и неизменно будут звучать его песни.
+Первые CD издания, (   Читать дальше...   )01. Атаман  (04:10)
+02. Атаман (студийная запись) (04:13)Жанр: RockПродолжительность: 00:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF358071E2356AE82CDC9118FF8E6BC017D98F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735606   (50655) от 08.07.2024
+
+Вячеслав Малежик - Ленивый рок-н-ролл (2024) [MP3|320 Kbps] <Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ленивый рок-н-ролл [00:03:54]
+02 - Весна в Москве [00:03:43]
+03 - Трубная [00:02:43]
+04 - В омуте любви [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D2B10751EE57E23D59FEC21629858845FF6F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748847   (43920) от 11.09.2024
+
+Ария - Гость из царства теней. Наследие (2024) Live [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гонка за славой
+02. Ангелы неба
+03. Волонтёр
+04. Герой асфальта(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21E0242303371097C98A62E16F52341E6D8BF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748626   (43861) от 11.09.2024
+
+Эдуард Артемьев - Рок-опера "Преступление и наказание" (2007) [MP3|320 Kbps] <Rock, Opera, Musical>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43861.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Преступление и наказание» — опера Эдуарда Артемьева (музыка) и Юрия Ряшенцева (стихи), вышедшая двухдисковым альбомом в конце 2007 года.
+
+Работу над партитурой своей оперы под рабочим названием «Раскольников» Эдуард Артемьев вёл с 1977 по 2007 год. Основой послужило либретто, написанное Андреем Кончаловским и Юрием Ряшенцевым при участии Марка Розовского по мотивам (   Читать дальше...   )01. Интродукция. Баллада шарманщика [2:46]
+02. Толпа и очередь к старухе-процентщице [3:42]
+03. Соня у старухи [2:06]
+04. Раскольников: "Не все на свете люди - муравьи!" [3:25](   Читать дальше...   )Жанр: Rock, Opera, MusicalПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8338DE0FE33C191915D7BD8EF10F68B605FC61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274447   (41423) от 05.10.2024
 
 Сруб - 12 Альбомов + 9 Синглов + 2 Компиляции (2013-2024) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
@@ -6,7 +123,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41423.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ Infornal FuckЪ - Музыка Категории Бэ (2024) [MP3|320 Kbps] <Pa
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40467.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38734.jpg" />
 </div>
 
 
@@ -91,7 +208,7 @@ HARDY - 3 Альбома (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38491.jpg" />
 </div>
 
 
@@ -119,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38261.jpg" />
 </div>
 
 
@@ -148,7 +265,7 @@ Gospod - 5 Albums (2021-2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34529.jpg" />
 </div>
 
 
@@ -177,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33762.jpg" />
 </div>
 
 
@@ -206,7 +323,7 @@ VA - Полигон Records. Лучшее 2024 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32308.jpg" />
 </div>
 
 
@@ -235,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30595.jpg" />
 </div>
 
 
@@ -264,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29897.jpg" />
 </div>
 
 
@@ -293,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29893.jpg" />
 </div>
 
 
@@ -322,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28009.jpg" />
 </div>
 
 
@@ -351,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26671.jpg" />
 </div>
 
 
@@ -380,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25629.jpg" />
 </div>
 
 
@@ -409,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22829.jpg" />
 </div>
 
 
@@ -438,7 +555,7 @@ VA - Совсем Не Popsовые (2014) [MP3|320 кб/с]<Ska, punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22313.jpg" />
 </div>
 
 
@@ -467,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21953.jpg" />
 </div>
 
 
@@ -496,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21948.jpg" />
 </div>
 
 
@@ -525,7 +642,7 @@ polnalyubvi - Прощай и люби меня (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21936.jpg" />
 </div>
 
 
@@ -554,7 +671,7 @@ VA - Охота! 87 (2019) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21737.jpg" />
 </div>
 
 
@@ -583,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19583.jpg" />
 </div>
 
 
@@ -612,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19548.jpg" />
 </div>
 
 
@@ -626,123 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3589E1EEC63BC52ED23B46B503F21B6008F2F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798945   (16551) от 28.05.2025
-
-Alternanthera - Диссонансы (2025) [MP3|320 Kbps] <Industrial, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Бэнт Менесс
-02 Чужой
-03 Душевные диссонансы
-04 Звери(   Читать дальше...   )Жанр: Industrial, MetalПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC16BE90763F90B3D67A094D3E215DCBBBB84261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800534   (15640) от 04.06.2025
-
-Бунтовщик - Железный рок (2025) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мучительная смерть (Painful Death) [00:04:20]
-02 - Хочу действия (I Want Action) [00:03:51]
-03 - Красивые женщины (Beautiful Women) [00:03:52]
-04 - Демократия (Democratia) [00:03:32](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55239C4F1FE46DC2EA04E9D287E061F932D0A127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801857   (14709) от 13.06.2025
-
-Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рыбалка [00:05:22]
-02. Керженец [00:08:14]
-03. Сад [00:03:51]
-04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408668   (14365) от 17.06.2025
-
-GroTTesque - Коллекция (+Bonus) (2014-2024) [MP3|320 Kbps] <Heavy, Industrial, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14365.jpg" />
-</div>
-
-
-###  Подробнее
-
-◄GroTTesque► начали свою активную деятельность с сентября 2013 года.
-Стиль команды можно охарактеризовать как SteamPunk/Industrial/Melodic Metal. Звучание отличает смесь плотных гитарных рифов и насыщенных электронных сэмплов. Музыканты коллектива активно участвуют в сценическом шоу, перевоплощаясь в различных героев альтернативной вселенной, которая (   Читать дальше...   )Список альбомов:
-2014 - Авиаторы
-2014 - Вечный странник
-2016 - Здесь отступает жизнь(   Читать дальше...   )Жанр: Heavy, Industrial, MetalПродолжительность: 04:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D560586632BF83413399AC0173DCFC9DCFA0A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

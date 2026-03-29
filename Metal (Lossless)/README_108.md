@@ -1,3 +1,90 @@
+###  Публикация: 1226232   (655844) от 20.05.2018
+
+Praying Mantis - Gravity (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep It Alive
+02. Mantis Anthem
+03. Time Can Heal
+04. 39 Years(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AF901CDD541681A46C7206F70E6090B8434FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226407   (655841) от 20.05.2018
+
+Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innuendo (Queen Cover)
+02. Only (Anthrax Cover)
+03. Tears of the Dragon (Bruce Dickinson Cover)
+04. Edge of the Blade (Journey Cover)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C7468A9C4ADFC1B766D002E0683C60C45325EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539591   (655048) от 28.03.2022
+
+Kvaen - The Great Below (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cauldron of Plagues (00:03:44)
+02 - The Great Below (00:04:28)
+03 - In Silence (00:07:23)
+04 - Damnations Jaw (00:05:00)(   Читать дальше...   )Жанр: Melodic Black, Pagan MetalПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D3AA08E869660DCD6DACB1B7B7D25A54A6AE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226456   (654876) от 21.05.2018
 
 Deceptionist - Initializing Irreversible Procces (2016) [FLAC|Lossless|image + .cue] <Technical Brutal Death Metal>
@@ -6,7 +93,7 @@ Deceptionist - Initializing Irreversible Procces (2016) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654876.jpg" />
+  <img src="Z:/picture/008/save_picture_654876.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Engel - Abandon All Hope (2018) Japan [FLAC|Lossless|image + .cue] <Modern Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654866.jpg" />
+  <img src="Z:/picture/008/save_picture_654866.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Skelator - Agents Of Power (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654820.jpg" />
+  <img src="Z:/picture/005/save_picture_654820.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Five Finger Death Punch - And Justice For None (2018) Limited Deluxe Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654606.jpg" />
+  <img src="Z:/picture/008/save_picture_654606.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Eagle Twin - The Unkindness of Crows (2009) [FLAC|Lossless] <Drone Doom / Sludge
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654591.jpg" />
+  <img src="Z:/picture/005/save_picture_654591.jpg" />
 </div>
 
 
@@ -160,7 +247,7 @@ Burning Point - The Ignitor [Japanese Edition] (2012) [WavPack|Lossless]<Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654590.jpg" />
+  <img src="Z:/picture/005/save_picture_654590.jpg" />
 </div>
 
 
@@ -195,7 +282,7 @@ Paradise Lost - The Plague Within (2015) Limited Mediabook [FLAC|image+.cue]<Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654261.jpg" />
+  <img src="Z:/picture/008/save_picture_654261.jpg" />
 </div>
 
 
@@ -224,7 +311,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653865.jpg" />
+  <img src="Z:/picture/008/save_picture_653865.jpg" />
 </div>
 
 
@@ -253,7 +340,7 @@ Stahlmann - Kinder der Sehnsucht (2019) Limited Edition [FLAC|lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652661.jpg" />
+  <img src="Z:/picture/008/save_picture_652661.jpg" />
 </div>
 
 
@@ -282,7 +369,7 @@ Vivaldi Metal Project - EpiClassica (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652634.jpg" />
+  <img src="Z:/picture/008/save_picture_652634.jpg" />
 </div>
 
 
@@ -311,7 +398,7 @@ Martyr - You Are Next (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652157.jpg" />
+  <img src="Z:/picture/008/save_picture_652157.jpg" />
 </div>
 
 
@@ -340,7 +427,7 @@ Sigh - Graveward (2015) [FLAC|tracks+.cue]<Avant-garde, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651930.jpg" />
+  <img src="Z:/picture/008/save_picture_651930.jpg" />
 </div>
 
 
@@ -369,7 +456,7 @@ Moonspell - 14Albums+2EP (1994-2012) [FLAC|Lossless]<Gothic Metal/Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_650957.jpg" />
+  <img src="Z:/picture/005/save_picture_650957.jpg" />
 </div>
 
 
@@ -404,7 +491,7 @@ Powerwolf - Metallum Nostrum (2019) [FLAC|Lossless|image + .cue] <Symphonic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650377.jpg" />
+  <img src="Z:/picture/008/save_picture_650377.jpg" />
 </div>
 
 
@@ -433,7 +520,7 @@ Candlemass - 12 Albums, 6 Compilations, 3 Lives, 3 Single & EP (1986-2019) 58CD 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650369.jpg" />
+  <img src="Z:/picture/008/save_picture_650369.jpg" />
 </div>
 
 
@@ -462,7 +549,7 @@ Blasted To Static - Blasted To Static (2016) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649942.jpg" />
+  <img src="Z:/picture/008/save_picture_649942.jpg" />
 </div>
 
 
@@ -491,7 +578,7 @@ SOTO - Divak (2016) Jeff Scott Soto's Band [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649669.jpg" />
+  <img src="Z:/picture/008/save_picture_649669.jpg" />
 </div>
 
 
@@ -520,7 +607,7 @@ The Agonist - Prisoners (2012) [FLAC|Lossless]<Melodic Death Metal, Metalcore, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649441.jpg" />
+  <img src="Z:/picture/005/save_picture_649441.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Dirty Shirt - Letchology (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648847.jpg" />
+  <img src="Z:/picture/008/save_picture_648847.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Wolf - Shadowland (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648783.jpg" />
+  <img src="Z:/picture/008/save_picture_648783.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Long Distance Calling - Boundless (2018) Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648737.jpg" />
+  <img src="Z:/picture/008/save_picture_648737.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Yngwie J. Malmsteen - Blue Lightning (2019) [WavPack|Lossless|image + .cue] <Neo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648629.jpg" />
+  <img src="Z:/picture/008/save_picture_648629.jpg" />
 </div>
 
 
@@ -671,7 +758,7 @@ Souldrainer - Architect (2014) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648601.jpg" />
+  <img src="Z:/picture/008/save_picture_648601.jpg" />
 </div>
 
 
@@ -691,91 +778,6 @@ Souldrainer - Architect (2014) [FLAC|Lossless]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4E5A2199F4CF36FAFE40746861A342E150170D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141629   (648384) от 11.06.2017
-
-Pyogenesis - A Kingdom to Disappear (2017) [FLAC|Lossless|image + .cue] <Gothic Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Is Good (Intro) 01:26
-02. Every Man for Himself... and God Against All 03:53
-03. I Have Seen My Soul 04:43
-04. A Kingdom to Disappear (It's Too Late) 03:30(   Читать дальше...   )Жанр: Gothic Dark MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ECECB7FD3C86E5D333D7AB62EED4407C7069B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292280   (648176) от 28.03.2019
-
-Rammstein - Deutschland (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>След.
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deutschland
-2. Deutschland (Rmx by Richard Z. Kruspe)Жанр: Industrial MetalПродолжительность: 00:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC6C40195D5086724D958CB717EA58D84CAE0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032104   (648022) от 06.07.2016
-
-Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Far Beyond the Edge of Sanity    06:12
-02.  Blacklight    04:19
-03.  Salem    06:02
-04.  Twilight    06:12(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
 ```
 
 https://mybot314.ru/tekegram_catalog/

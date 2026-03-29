@@ -1,3 +1,119 @@
+###  Публикация: 1514372   (217479) от 03.12.2021
+
+Kenny G - New Standards (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217479.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Emeline (3:40)
+2. Only You (5:51)
+3. Paris By Night (5:30)
+4. Rendezvous (6:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB81C5CD552E7F589BADD1049C62727A1681958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586374   (217260) от 26.10.2022
+
+Jeff Parker, Eric Revis, Nasheet Waits - Eastside Romp (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217260.jpg" />
+</div>
+
+
+###  Подробнее
+
+In May 2016, guitarist Jeff Parker, double bassist Eric Revis, and drummer Nasheet Waits spent a single day recording in a Pasadena studio. The seven tunes they cut appear on Eastside Romp. Mixed in 2018, it sat on a shelf for four more years. This collaboration juxtaposes Parker, an adaptable and mercurial player, with the incendiary, wildly inventive rhythm section (   Читать дальше...   )01. Similar Limits (Brown) - 4:16
+02. Wait (Parker) - 8:13
+03. Between Nothingness and Infinity (Waits) - 7:05
+04. Drunkard's Lullaby (Revis) - 5:44(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F1C40978F890EE8F3F2FE67E023FB62A2DCDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652579   (217214) от 12.08.2023
+
+James Moody - Wail Moody, Wail (1955) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Golden Touch [4:13]
+02. The Nearness Of You [4:56]
+03. Donkey Serenade [3:48]
+04. Moody's Blue Again [4:37](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F73E73EF34B563E07E39E513F60DC1973B0D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084887   (217177) от 20.12.2016
+
+Terry Gibbs Quartet - Take It From Me (1964) Remaster, 2010, Universal[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take It From Me [04:25]
+ 02.El Fatso [04:01]
+ 03.Oge [03:09]
+ 04.Pauline's Place [02:33](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AA0A4AB0B7AD090AB5AA57E92588CBFE6878CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084982   (217172) от 20.12.2016
 
 Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|image + .cue] <Hard bop, Post bop>
@@ -6,7 +122,7 @@ Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217172.jpg" />
+  <img src="Z:/picture/005/save_picture_217172.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217058.jpg" />
+  <img src="Z:/picture/005/save_picture_217058.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Marion Meadows - Dressed To Chill (2006) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216947.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Billie Holiday - Songs For Distingue Lovers (1957) 1997, Classic Compact Discs [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216900.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Beto Saroldi - Venus (2020) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216856.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216407.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216403.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216326.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bruno Angelini - Open Land (2018) La Buissonne [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216279.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kenny Dorham - Sings And Plays: This Is the Moment! (1958) 1994, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216252.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Paula Atherton - Can You Feel It (2020) [FLAC|Lossless|image + .cue] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216164.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215932.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Cityrhythm Orchestra - Vibrant Tone (2004) [FLAC|Lossless]<Big Band, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215771.jpg" />
+  <img src="Z:/picture/005/save_picture_215771.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Eddie Higgins Trio - Essential Romance (2009) Venus Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215761.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Club des Belugas - Best of 2002-2022 (2022) 3CD Box Set [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215655.jpg" />
+  <img src="Z:/picture/005/save_picture_215655.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215579.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215376.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Dakota Staton - Live at Milestones (1986) 2007, Caffe Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215195.jpg" />
+  <img src="Z:/picture/005/save_picture_215195.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Sonny Stitt - Four Classic Albums 1954 - 1959 (2011) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215131.jpg" />
+  <img src="Z:/picture/005/save_picture_215131.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Billie Holiday - Birth Of A Legend (30-e - 40-e) 2019, Rough Guides [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215052.jpg" />
+  <img src="Z:/picture/005/save_picture_215052.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Lennie Niehaus Vol. 4 - The Quintets & Strings (1955) 1995, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214883.jpg" />
+  <img src="Z:/picture/005/save_picture_214883.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Monty Alexander - Fridaynight (1985) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214873.jpg" />
+  <img src="Z:/picture/005/save_picture_214873.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Monty Alexander - Fridaynight (1985) Remaster, 2015, Solid Records[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FB5D5EAF17A05D2E4DB3C5AD3652FF0388339F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653377   (214757) от 16.08.2023
-
-VA - Modern Jazz Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Lanza - Sugar (3:57)
-02. Larkster Quartet - Run (5:09)
-03. Malva and the Sunday Crew - All About That Bass (2:47)
-04. Olivia Keast - Blinding Lights (3:06)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D70FD222A3D4BC1DBB076F35E6096023AD09A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653369   (214732) от 16.08.2023
-
-VA - Best Jazz Pop Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast - As It Was (3:33)
-02. George Lanza - Moves Like Jagger (3:26)
-03. Larkster Quartet - Yellow (4:06)
-04. Meesha - Finally (2:13)(   Читать дальше...   )Жанр: Jazz Vocal, PopПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7C0558EA3796C31914E2C0D8EE21F3533AE23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853467   (214730) от 26.12.2014
-
-Dave Koz & Friends - The 25th of December (2014) [FLAC|Lossless]<Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сам Dave Koz рассказывал об этом альбоме, он был сделан на одном дыхании. И в нем слышится рождественская любовь и радость в каждой ноте. Помогли создать этот альбом великие исполнители. И как золотое обрамление, завершает этот шедевр Битловская All You Need is Love в джазовой обработке. И пусть она не покажется Вам очень не похожей на оригинал. Ведь праздник (   Читать дальше...   )01. Dave Koz - The First Noel (3:43)
-02. Dave Koz/Johnny Mathis - It’s the Most Wonderful Time of the Year (3:23)
-03. Dave Koz/Eric Benet - This Christmas (4:34)
-04. Dave Koz/Gloria Estefan - Do You Hear What I Hear? (4:12)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, Contemporary Jazz, Crossover Jazz, Easy ListeningПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1758E3A14ED4C15B7FA7F367049A6AE03C3C74F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653375   (214720) от 16.08.2023
-
-VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast - Can’t Stop the Feeling! (4:07)
-02. Larkster Quartet - As It Was (3:34)
-03. Meg Birch - Smells Like Teen Spirit (3:41)
-04. George Lanza - Seven Nation Army (2:26)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DA132DDF9D543CCCB305B842C5F0C24D2A3A41
 ```
 
 https://mybot314.ru/tekegram_catalog/

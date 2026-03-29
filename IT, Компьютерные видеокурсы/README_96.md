@@ -1,3 +1,145 @@
+###  Публикация: 1674740   (160746) от 06.11.2023
+
+Proglib.Academy, Наталья Кайда, Александр Пупышев | Основы IT для непрограммистов (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните понимать, о чем с вами говорят работодатели, заказчики и клиенты.
+Сфера IT уже давно включает в себя специалистов по разным направлениям, которые куда шире, чем программирование.
+
+- Какими базовыми знаниями нужно обладать специалистам, реализующим IT-продукты?(   Читать дальше...   )Производство: Proglib.AcademyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:58:03Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674786   (160742) от 06.11.2023
+
+podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Использование asyncio для организации конкурентного программирования многим кажется уже тривальным подходом, но несмотря на многочисленные плюсы библиотеки разработчики часто сталкиваются со сложностями.
+В первом сезоне Podlodka Python Crew:
+✅пробежимся по основным принципам работы asyncio и "граблям", с которыми сталкивается большинство;
+✅поделимся (   Читать дальше...   )Производство: podlodka.ioЖанр: Онлайн-конференцияЯзык озвучки: РусскийПродолжительность: 09:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33569EBA452638D5BB8645EC9F9F0D3CC557AB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599279   (159977) от 22.12.2022
+
+ZTM Academy, Andrei Dumitrescu | Bash Scripting: Learn Shell Scripting (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn Bash Scripting from scratch, from an industry expert. You'll learn Shell Scripting fundamentals, master the command line, and get the practice and experience you need to go from beginner to being able to get hired as a DevOps Engineer, SysAdmin, or Network Engineer!
+We guarantee you that this is the most comprehensive and up-to-date online resource to learn (   Читать дальше...   )Производство: ZTM AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 09:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1223569686FA7E826D2C1F7212B685AAB31F238E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599283   (159956) от 22.12.2022
+
+Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научись создавать архитектуру хранения данных, управлять ею и автоматизировать рутинные процессы. Полный курс по NoSQL - работа с нереляционными базами данных. Научись работать с MongoDB, ElasticSearch, ClickHouse, CouchDB, PouchDB, Redis, Neo4j и Google BigQuery.
+Чему вы научитесь?Введение в NoSQL - Почему появился NoSQL, особенности, NewSQL
+Типы NoSQL систем, CAP (   Читать дальше...   )Производство: Merion AcademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EC6FDACC414962B6726F647730DE7ABC9EF158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599284   (159920) от 22.12.2022
+
+Merion Academy, Олег Филиппов | Основы реляционных баз данных. SQL (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе и с нуля пройдем все этапы проектирования, администрирования, резервирования и масштабирования БД с использованием PostgreSQL, MS SQL и MySQL, чтобы получить оплачиваемые навыки DBA (администратора БД).
+Кому подойдет курс:
+1. Студент
+Вы в начале карьерного пути: знание принципов работы баз данных - неотъемлемая часть работы IT спеца, вне зависимости от того, (   Читать дальше...   )Производство: Merion AcademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421DDC37151B089546B0EEDF08A91B44E6A9DE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600086   (159171) от 25.12.2022
 
 Первый Бит | Оператор 1С широкого профиля (2022) WEB-DL [AD] [RU]
@@ -6,7 +148,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159171.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159137.jpg" />
 </div>
 
 
@@ -61,7 +203,7 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159131.jpg" />
 </div>
 
 
@@ -89,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159115.jpg" />
 </div>
 
 
@@ -118,7 +260,7 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159096.jpg" />
 </div>
 
 
@@ -147,7 +289,7 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159076.jpg" />
 </div>
 
 
@@ -175,7 +317,7 @@ Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158886.jpg" />
 </div>
 
 
@@ -201,7 +343,7 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158868.jpg" />
 </div>
 
 
@@ -229,7 +371,7 @@ Thinknetica Pro, Алексей Матюшкин | Разработка на Eli
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158850.jpg" />
 </div>
 
 
@@ -258,7 +400,7 @@ Slurm (Слёрм), Иван Чувашов | DWH на основе GreenPlum (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158828.jpg" />
 </div>
 
 
@@ -287,7 +429,7 @@ Udemy, Frank Anemaet | Python Desktop Apps with Tkinter (2018) WEB-DL [EN, RU / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158816.jpg" />
 </div>
 
 
@@ -316,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158809.jpg" />
 </div>
 
 
@@ -345,7 +487,7 @@ Slurm (Слёрм), Роман Панин | Основы информацион�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158780.jpg" />
 </div>
 
 
@@ -374,7 +516,7 @@ Skillbox, Дмитрий Зайцев, Константин Брюханов | �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158723.jpg" />
 </div>
 
 
@@ -402,7 +544,7 @@ ProfIT | PHP7 - что нужно знать уже сейчас (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158551.jpg" />
 </div>
 
 
@@ -431,7 +573,7 @@ Lynda.com | Foundations of Programming: Code Efficiency (2013) PCRec [H.264/720p
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158124.jpg" />
 </div>
 
 
@@ -459,7 +601,7 @@ Udemy, Christ Raharja | The Future of App Development: Text to App AI Generation
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157042.jpg" />
 </div>
 
 
@@ -485,7 +627,7 @@ JUG Ru Group | HolyJS 2023 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156636.jpg" />
 </div>
 
 
@@ -512,7 +654,7 @@ Slurm (Слёрм), Александр Лукьянченко, Георг Гаа
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156635.jpg" />
 </div>
 
 
@@ -540,7 +682,7 @@ WPCourses, Алейников Сергей | Как быстро и правил
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156616.jpg" />
 </div>
 
 
@@ -569,7 +711,7 @@ Voitixler, Екатерина Векслер | Практический онла
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156478.jpg" />
 </div>
 
 
@@ -583,151 +725,6 @@ Voitixler, Екатерина Векслер | Практический онла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33ED0F88E24568963FDB4DC26BA000D788E084F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600553   (156372) от 27.12.2022
-
-Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите технологию сетевого хранилища Ceph, чтобы использовать в своих проектах для повышения отказоустойчивости.
-На курсе ответим на вопросы:
-Можно ли запускать на Ceph базу данных под высокой нагрузкой? Какие настройки необходимо сделать?
-Можно ли сделать сетевое хранилище на Ceph, сравнимое по производительности с локальным диском?(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B63B9A14AB7CDEE0CB2AB72741B373602E843FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676351   (156233) от 13.11.2023
-
-BigData Team, Алексей Драль, Артём Выборнов, Павел Клеменков | Практический курс по Big Data (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый быстрый способ прокачать свои навыки для IT-специалистов. Научитесь эффективно обрабатывать большие данные, выполняя практические задания на реальном кластере.
-Кому подойдет этот курс:
-✅Разработчикам
-Вы программируете, но хотите расширить профессиональные возможности и получить практические навыки работы с большими данными? На курсе вы научитесь работать (   Читать дальше...   )Производство: BigData TeamЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 10:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFEF4409E0AA782D650A01577AC8D121BEA34EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587835   (155807) от 13.12.2012
-
-Yandex.ru | Курсы информационных технологий, Третий набор [2012] CamRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155807.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 октября 2012 года стартовали третьи Курсы информационных технологий Яндекса.
-
-Теоретический курс состоял из семи лекций, которые проходили в московском офисе Яндекса. Для тех, кто не попал в число слушателей, и просто для всех желающих были организованы трансляции лекций с возможностью задавать вопросы в чате. 50 очных слушателей и онлайн-зрители узнали про:
-
-профессии в мире информационных технологий;
-инструментарий системного инженера;
-архитектуру операционной системы;
-безопасность информационных систем;
-организацию хранения данных;
-виртуализацию в Linux;(   Читать дальше...   )Жанр: LinuxПродолжительность: 16:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08B19CD2523FE00FB4EC63F22E4943B7304FF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194584   (154891) от 25.12.2017
-
-Максим Пистолетов | Программируем на языке qlua (2017) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154891.jpg" />
-</div>
-
-
-###  Подробнее
-
-На видеокурсе "Программируем на языке qlua", вы c первых уроков вместе с автором пишите "боевого торгового робота". В процессе, вы узнаете  "подводные камни", которые встречают "робото-писатели", а также разберетесь с другими особенностями работы в терминале QUIK при создании роботов.Жанр: Программирование, LUA, QUIKПродолжительность: 09:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB6051E946F9E105B96AE50F64AC49BD035CF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600794   (154805) от 28.12.2022
-
-Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блокчейном можно назвать журнал всех подтверждённых транзакций. Все транзакции собираются в блоки, которые генерируются специальным процессом — майнингом. Ключевыми преимуществами блокчейна часто называют  прозрачность процесса транзакций и множественное дублирование информации о транзакциях у каждого участника процесса. Отсюда и вывод — почему нельзя выполнить подделку (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C065FAF958884B61F384993B1E492846C01EAEEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 1047076   (550187) от 29.08.2016
+
+Qbserve 1.45 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживание рабочего времени с комфортом.
+Qbserve в автоматическом режиме отслеживает время потраченное на работу и  помогает повысить производительность.  Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
+
+Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 августа 2016Разработчик: QotoQotПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374F86A3C17812EA31B7109255D8F992BEEE23C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047083   (550176) от 29.08.2016
+
+CalendarPro for Google 2.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организация никогда не была такой простой !! Вы никогда не пропустите любое важное событие!!
+CalendarPro for Google - приложение календарь-Google с интуитивным дизайном. Программа имеет простой и аккуратный внешний вид с высоким быстродействием и надежностью.
+
+CalendarPro for Google успешно оптимизированный Google Calendar и впишется в ваши нативные приложения. CalendarPro (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 августа 2016Разработчик: AppEaseПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC0D64368118E4F6D2A7D780534189C8E4FEB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309459   (550163) от 20.06.2019
+
+Wondershare PDFelement Pro 7.0.1.2255 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550163.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: июнь 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D63B0DA05CE3B13083D38D7D22897492F38AB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309222   (550153) от 20.06.2019
+
+Affinity Designer 1.7.1.1 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для графического дизайна для Mac.
+Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2019Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4462DC4F362CD7D4B565D8CAD506F89549F4C5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309218   (550152) от 20.06.2019
 
 Affinity Photo 1.7.1 (142) [Multi/Ru]
@@ -6,7 +117,7 @@ Affinity Photo 1.7.1 (142) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550152.jpg" />
+  <img src="Z:/picture/008/save_picture_550152.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ mSecure 3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550100.jpg" />
+  <img src="Z:/picture/008/save_picture_550100.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Beyond Compare 4.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550099.jpg" />
+  <img src="Z:/picture/008/save_picture_550099.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ Photo Mechanic 6.6.0 (build 3143) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550088.jpg" />
+  <img src="Z:/picture/008/save_picture_550088.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ Airy Pro 3.8.212 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550086.jpg" />
+  <img src="Z:/picture/008/save_picture_550086.jpg" />
 </div>
 
 
@@ -145,7 +256,7 @@ iExplorer 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550020.jpg" />
+  <img src="Z:/picture/008/save_picture_550020.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549699.jpg" />
+  <img src="Z:/picture/008/save_picture_549699.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ SQLPro for MSSQL 1.0.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549334.jpg" />
+  <img src="Z:/picture/008/save_picture_549334.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ Calendar 366 Plus 1.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549329.jpg" />
+  <img src="Z:/picture/008/save_picture_549329.jpg" />
 </div>
 
 
@@ -255,7 +366,7 @@ Wondershare PDFelement with OCR 5.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549254.jpg" />
+  <img src="Z:/picture/008/save_picture_549254.jpg" />
 </div>
 
 
@@ -281,7 +392,7 @@ Alfred Powerpack 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549168.jpg" />
+  <img src="Z:/picture/008/save_picture_549168.jpg" />
 </div>
 
 
@@ -309,7 +420,7 @@ Camtasia 2.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549162.jpg" />
+  <img src="Z:/picture/008/save_picture_549162.jpg" />
 </div>
 
 
@@ -336,7 +447,7 @@ Yate 3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549052.jpg" />
+  <img src="Z:/picture/008/save_picture_549052.jpg" />
 </div>
 
 
@@ -365,7 +476,7 @@ Wirecast Pro 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549029.jpg" />
+  <img src="Z:/picture/008/save_picture_549029.jpg" />
 </div>
 
 
@@ -392,7 +503,7 @@ Shimo 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548977.jpg" />
+  <img src="Z:/picture/008/save_picture_548977.jpg" />
 </div>
 
 
@@ -421,7 +532,7 @@ WinZip Mac Edition 5.0.3160 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548940.jpg" />
+  <img src="Z:/picture/008/save_picture_548940.jpg" />
 </div>
 
 
@@ -448,7 +559,7 @@ Bumpr 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548844.jpg" />
+  <img src="Z:/picture/008/save_picture_548844.jpg" />
 </div>
 
 
@@ -475,7 +586,7 @@ Affinity Publisher 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548562.jpg" />
+  <img src="Z:/picture/008/save_picture_548562.jpg" />
 </div>
 
 
@@ -503,7 +614,7 @@ TouchRetouch 2.1.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548561.jpg" />
+  <img src="Z:/picture/008/save_picture_548561.jpg" />
 </div>
 
 
@@ -532,7 +643,7 @@ Photo Mechanic 6  v6.6.0 (build 3291) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548410.jpg" />
+  <img src="Z:/picture/008/save_picture_548410.jpg" />
 </div>
 
 
@@ -558,7 +669,7 @@ Cisdem PDFPasswordRemover 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548352.jpg" />
+  <img src="Z:/picture/008/save_picture_548352.jpg" />
 </div>
 
 
@@ -585,7 +696,7 @@ Jettison 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548345.jpg" />
+  <img src="Z:/picture/008/save_picture_548345.jpg" />
 </div>
 
 
@@ -599,117 +710,6 @@ OS X имеет свою философию и некоторые вещи в с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BEC932A3E22C2EA7BA1667781027B67775B0A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047941   (548335) от 31.08.2016
-
-App Tamer 2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548335.jpg" />
-</div>
-
-
-###  Подробнее
-
-App Tamer — держим производительность под контролем!
-При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!
-
-App Tamer — это небольшая (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 августа 2016Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.7  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF821CD45561602D89F05B2DD5780490886C6FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048058   (548021) от 31.08.2016
-
-Hands Off! 3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 августа 2016Разработчик: One Periodic Inc.Поддерживаемая ОС: Mac OS X 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D9CE93911FF066E82B43F92656340477964A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238156   (547893) от 28.07.2018
-
-iStat Menus 6.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547893.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus  — лучшее приложение для контроля работы Mac
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
-
-iStat Menus позволяет в режиме реального времени следить за десятками показателей. Загруженность процессора, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: BjangoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский*, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F189D72D5731E04F9FC81B73EBF33FAA1625F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238083   (547841) от 28.07.2018
-
-Черновик (2018) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой москвич Кирилл — талантливый дизайнер компьютерных игр. В один прекрасный день он оказывается напрочь стертым из памяти всех, кого он знал и любил. Кирилл узнает, что выбран для важной и таинственной миссии. Его предназначение — стать таможенником между параллельными мирами, коих во Вселенной десятки. Сможет ли Кирилл разгадать тайну этих таинственных миров (   Читать дальше...   )Производство: Россия / Новые людиЖанр: ФантастикаРежиссер: Сергей МокрицкийАктеры: Никита Волков, Евгений Ткачук, Ольга Боровская, Юлия Пересильд, Северия Янушаускайте, Евгений Цыганов, Елена Яковлева, Ирина Демидкина, Андрей Мерзликин, Андрей РуденскийПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227CC2B3708F76A9C4C7366A5AC167076EC1017A
 ```
 
 https://mybot314.ru/tekegram_catalog/

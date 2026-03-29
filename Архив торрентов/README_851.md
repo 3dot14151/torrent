@@ -6,7 +6,7 @@ Untitled S. - Life On Repeat (2014) [FLAC|Lossless|WEB|Mixed]<Psybient, Downtemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855150.jpg" />
+  <img src="Z:/picture/008/save_picture_855150.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855132.jpg" />
+  <img src="Z:/picture/008/save_picture_855132.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PhotoArtista - Oil v2.0.94 [En] - превращает фотографию в �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855131.jpg" />
+  <img src="Z:/picture/008/save_picture_855131.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855130.jpg" />
+  <img src="Z:/picture/008/save_picture_855130.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855122.jpg" />
+  <img src="Z:/picture/008/save_picture_855122.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Soft4Boost Document Converter 6.2.9.459 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855076.jpg" />
+  <img src="Z:/picture/008/save_picture_855076.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ One Switch 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855075.jpg" />
+  <img src="Z:/picture/008/save_picture_855075.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855074.jpg" />
+  <img src="Z:/picture/008/save_picture_855074.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855073.jpg" />
+  <img src="Z:/picture/008/save_picture_855073.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855072.jpg" />
+  <img src="Z:/picture/008/save_picture_855072.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Soft4Boost AMPlayer 5.6.7.291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855070.jpg" />
+  <img src="Z:/picture/008/save_picture_855070.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855066.jpg" />
+  <img src="Z:/picture/008/save_picture_855066.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ LDPlayer 3.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855065.jpg" />
+  <img src="Z:/picture/008/save_picture_855065.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Zemana AntiMalware Premium 2.20.2.8 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854995.jpg" />
+  <img src="Z:/picture/008/save_picture_854995.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 7 Manager 5.1.8 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854993.jpg" />
+  <img src="Z:/picture/008/save_picture_854993.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854991.jpg" />
+  <img src="Z:/picture/008/save_picture_854991.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Fragment v1.3.6 [Ru/Multi] - Создание призматических эф�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854989.jpg" />
+  <img src="Z:/picture/008/save_picture_854989.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854988.jpg" />
+  <img src="Z:/picture/008/save_picture_854988.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854969.jpg" />
+  <img src="Z:/picture/008/save_picture_854969.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854962.jpg" />
+  <img src="Z:/picture/008/save_picture_854962.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854960.jpg" />
+  <img src="Z:/picture/008/save_picture_854960.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854959.jpg" />
+  <img src="Z:/picture/008/save_picture_854959.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WonderFox HD Video Converter Factory Pro 18.9 (20.04.2020) RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854925.jpg" />
+  <img src="Z:/picture/008/save_picture_854925.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ MediaHuman YouTube Downloader 3.9.9.36 (1704) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854923.jpg" />
+  <img src="Z:/picture/008/save_picture_854923.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854875.jpg" />
+  <img src="Z:/picture/008/save_picture_854875.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Foxit Reader 8.2.1.6871 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854849.jpg" />
+  <img src="Z:/picture/008/save_picture_854849.jpg" />
 </div>
 
 

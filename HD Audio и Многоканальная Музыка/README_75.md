@@ -1,3 +1,238 @@
+###  Публикация: 1677542   (150543) от 18.11.2023
+
+Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Alternative rock, progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:22)
+02. Apocalypse Please (4:12)
+03. Time is Running Out (3:57)
+04. Sing for Absolution (4:56)(   Читать дальше...   )Жанр: Alternative rock, progressive rockПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589035   (150358) от 14.12.2012
+
+Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moscow Calling вышел 29 марта 1993 года. Во многих странах, в том числе и в России он вышел под названием Gorky Park 2. Альбом не попал в американские чарты, но завоевал немалую популярность, продавшись в мире тиражом в полмиллиона копий. Бешеную популярность диск получил в Дании, получив там платиновый статус. В Европе этот диск представляла фирма BMG, в Скандинавии (   Читать дальше...   )Жанр: Hard RockФормат: Vinyl, LP, AlbumПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271121   (150169) от 23.12.2018
+
+Peter Sellers - The Peter Sellers Collection 1955-1990 (Series EMI Comedy Classics. Classic songs, sketches and previously unreleased material. Producer George Martin) (1990) [FLAC 2.0|48/24|image+ ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cassette One
+Side One:
+01. Any Old Iron
+02. A Hard Days Night(   Читать дальше...   )Жанр: Non-Music, ComedyПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFE9ED069FCB1E1E0D57B31D31D3D5680759410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271140   (149995) от 23.12.2018
+
+VA - Country Gold (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Dan Seals - My Baby's Got Good Timing
+02. Anne Murray - Just Fall In Love Again
+03. Michael Martin Murphey - What'sForever For(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271135   (149983) от 23.12.2018
+
+The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149983.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dancin' Shoes
+A2 Keeping The Love Alive
+A3 Once You Get The Feel Of It
+A4 Still Holdin' On(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271133   (149939) от 23.12.2018
+
+Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149939.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Little Marie
+A2 Our Little Rendezvous
+A3 No Particular Place To Go
+A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738801   (149897) от 26.12.2013
+
+Оркестр Олега Лундстрема - В сочных тонах, В наше время (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149897.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сочных тонах 1
+1. Блюз в до мажоре (C-jam Blues) - D. Ellington  8:50
+2. Звёздная пыль (Stardust) - H. Carmichae  4:50
+3. В сочных тонах (In A Mellotone) - D. Ellington  6:04
+В сочных тонах 2
+1. Четыре брата (Four Brothers) - J. Giuffre  2:36
+2. Стелла при свете звезд (Stella By Starlight) - V. Young  8:20
+3. Четыре плюс два (Four Plus Two) - O. Nelson  7:30
+В наше время 1
+1. Любви дороги (Love Roads) - О. Лундстрем  5:03(   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271128   (149848) от 23.12.2018
+
+Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. I Still Believe (The Kings Mix)
+02. Honey (Classic Mix)
+03. When You Believe (Featuring – Whitney Houston)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271279   (149756) от 23.12.2018
 
 Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
@@ -6,7 +241,7 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149756.jpg" />
 </div>
 
 
@@ -35,7 +270,7 @@ Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149430.jpg" />
 </div>
 
 
@@ -64,7 +299,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149391.jpg" />
 </div>
 
 
@@ -93,7 +328,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149296.jpg" />
 </div>
 
 
@@ -119,7 +354,7 @@ VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149216.jpg" />
 </div>
 
 
@@ -148,7 +383,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148767.jpg" />
 </div>
 
 
@@ -177,7 +412,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148732.jpg" />
 </div>
 
 
@@ -206,7 +441,7 @@ Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148714.jpg" />
 </div>
 
 
@@ -235,7 +470,7 @@ Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148620.jpg" />
 </div>
 
 
@@ -264,7 +499,7 @@ Kurt Vile - Back to Moon Beach (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147923.jpg" />
 </div>
 
 
@@ -293,7 +528,7 @@ A Day To Remember - For Those Who Have Heart (2007) Remastered, Reissue, 2023, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147895.jpg" />
 </div>
 
 
@@ -322,7 +557,7 @@ Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147813.jpg" />
 </div>
 
 
@@ -351,7 +586,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147747.jpg" />
 </div>
 
 
@@ -380,7 +615,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147728.jpg" />
 </div>
 
 
@@ -409,7 +644,7 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147719.jpg" />
 </div>
 
 
@@ -438,7 +673,7 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147712.jpg" />
 </div>
 
 
@@ -467,7 +702,7 @@ Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147691.jpg" />
 </div>
 
 
@@ -496,7 +731,7 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147635.jpg" />
 </div>
 
 
@@ -510,238 +745,6 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678067   (147527) от 20.11.2023
-
-Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2023, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Don't Keep Me Waiting (5:48)
-02. Dancin' 'Round And 'Round (4:01)
-03. Talk To Me (3:29)
-04. Deeper Than The Night (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304DAFE2FDACFA4926DC284230E04122725C5431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677806   (147477) от 20.11.2023
-
-Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Infest (Live at INFEST IN-Studio, 2020) [4:28]
-02 - Last Resort (Live at INFEST IN-Studio, 2020) [3:16]
-03 - Broken Home (Live at INFEST IN-Studio, 2020) [3:45]
-04 - Dead Cell (Live at INFEST IN-Studio, 2020) [3:14](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A0E67D01851B0479D52DBA3D86DAD0099D51DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678164   (147439) от 20.11.2023
-
-Thea Gilmore - Thea Gilmore (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice Normal Woman [00:02:38]
-02. Bones [00:02:49]
-03. Hope And Fury [00:02:20]
-04. Unravel Me [00:03:39](   Читать дальше...   )Жанр: Indie-FolkПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4B1D885E9B811E2EE70E0B6E63F20EC2235B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678115   (147431) от 20.11.2023
-
-Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of Us Must Know (Sooner or Later) (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:44)
-02. Blowin' in the Wind (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:36)
-03. Just Like a Woman (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (5:07)
-04. Oh, Sister (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:57)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1B5E86D5902AEBF3DF2A635A57F348C88EFE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678046   (147371) от 20.11.2023
-
-Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathedral (4:22)
-02. White Rabbit (4:40)
-03. Passage (3:11)
-04. Imminent (4:57)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3071FF1AC03B0EA5A0500F467CDC5C1A9F8B7CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678073   (147324) от 20.11.2023
-
-Dolly Parton - Rockstar (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockstar (with Richie Sambora) (4:37)
-02. World On Fire (4:21)
-03. Every Breath You Take (featuring Sting) (4:23)
-04. Open Arms (featuring Steve Perry) (3:17)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4F61B48A1A22D4FE117380E99BD1511E53386D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347940   (147033) от 25.12.2019
-
-Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Mood (3:47)
- 02. All My Love (3:38)
- 03. The Best Thing (4:52)
- 04. Bad Love (4:08)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4906B6B28BC294F3D4AC245E5913003C0C6E0BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087489   (146511) от 27.12.2016
-
-Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146511.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Love On The Line (4:41)
-A2. Alright Down Get Boogie (Muala Rusic) (3:58)
-A3. The Song (They Love To Sing) (6:09)
-A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
 ```
 
 https://mybot314.ru/tekegram_catalog/

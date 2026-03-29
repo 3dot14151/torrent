@@ -1,3 +1,107 @@
+###  Публикация: 1371161   (893307) от 29.03.2020
+
+Хлоп! Наука о пузырях / Pop! The Science of Bubbles (2013) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пузыри... Для большинства людей - это всего лишь детская забава. Но для науки - это мощнейший инструмент: они объясняют, как работает наша планета, как устроена солнечная система, как работает световая волна. Они помогают океану дышать! Влияют на поведение животных. И даже... создают вкус шампанского. Добро пожаловать в удивительный мир пузырей!Производство: Великобритания, Furnace, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Пол СенПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FB0D1FD581A2EB99A21FC91E45DAFDA1D09A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370911   (893278) от 29.03.2020
+
+NG. Звездное выживание с Беаром Гриллсом / Running Wild Bear Grylls (2019) HDTVRip [H.264/1080p] (сезон 5, серии 10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалист по выживанию Беар Гриллс возвращается в дикую природу в новом сезоне своего приключенческого сериала вместе с популярными голливудскими знаменитостями, от супергероев Марвел, до отмеченных различными премиями звезд шоу-бизнеса. Раз в неделю каждый новый гость Беара отправляется вместе с ним в путешествие по самым экстремальным природным ландшафтам в мире. (   Читать дальше...   )Производство: США, Великобритания, Bear Grylls Ventures, Electus, National Geographic ChannelЖанр: Документальный, реалити-шоу, выживание, путешествия, экстримРежиссер: Беар Гриллс, Дилберт ШупманПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 10 x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB078B9D5BF34A9C91BB058F1666E8B585438254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370872   (893241) от 29.03.2020
+
+Строительство гигантов / Building Giants (2019) HDTVRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся сериал об инженерах, которые построили восемь самых невероятных конструкций в мире, представляющих собой новое поколение инженерных чудес света. Они более амбициозны и более продвинуты, чем все, что было раньше.Производство: Великобритания, Windfall Films, Science ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Тимоти КларксонУчастники: Эрлин Хэтфилд, Аври Мартин, Джулиан БарраттПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 8 x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA328C4DB0B21CA74071081CB4F4A56E99A02447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102016   (892787) от 08.02.2017
+
+N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть. Она восхищает. Она пугает. И те, кто с нею сталкивался, и кому удалось ее избежать на время, смотрят на мир уже совсем другими глазами. Что с нами происходит, когда мы умираем? Что поджидает человека в этом коридоре пути между жизнью и - смертью? И действительно ли мы умираем, когда наше сердце останавливается навсегда?Телекомпания: США, National Geographic ExplorerЖанр: Документальный, научно-популярныйРежиссер: Марк МаннуччиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0A4D15186CEDD9F5CD619588C59798157A5FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101532   (892646) от 08.02.2017
 
 BBC: Армада. Неизвестная история (12 дней чтобы спасти Англию) / Armada: The Untold Story (12 Days to Save England) (2015) SATRip [H.264] (серии 1-3 из 3)
@@ -6,7 +110,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892646.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892287.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Техногеника. Карьер "Удачный" (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891196.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891054.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890343.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889223.jpg" />
+  <img src="Z:/picture/005/save_picture_889223.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889123.jpg" />
+  <img src="Z:/picture/005/save_picture_889123.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Самые страшные мировые морские катастроф
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889082.jpg" />
+  <img src="Z:/picture/005/save_picture_889082.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888844.jpg" />
+  <img src="Z:/picture/005/save_picture_888844.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888265.jpg" />
+  <img src="Z:/picture/005/save_picture_888265.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888042.jpg" />
+  <img src="Z:/picture/005/save_picture_888042.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886609.jpg" />
+  <img src="Z:/picture/005/save_picture_886609.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885662.jpg" />
+  <img src="Z:/picture/005/save_picture_885662.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884959.jpg" />
+  <img src="Z:/picture/005/save_picture_884959.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC: Эйнштейн и Хокинг. Гении нашей Вселенной 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883336.jpg" />
+  <img src="Z:/picture/005/save_picture_883336.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883208.jpg" />
+  <img src="Z:/picture/005/save_picture_883208.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883023.jpg" />
+  <img src="Z:/picture/005/save_picture_883023.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882235.jpg" />
+  <img src="Z:/picture/005/save_picture_882235.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882174.jpg" />
+  <img src="Z:/picture/005/save_picture_882174.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881795.jpg" />
+  <img src="Z:/picture/005/save_picture_881795.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881673.jpg" />
+  <img src="Z:/picture/005/save_picture_881673.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880740.jpg" />
+  <img src="Z:/picture/005/save_picture_880740.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F2A3FC8D0DDE237F24457AE760564540903EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373288   (880138) от 06.04.2020
-
-NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop (2009) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодно в период разлива реки Окаванго обитающая там стая павианов должна передвигаться вплавь по воде, в которой прячутся крокодилы и еще множество неожиданностей ждут их впереди.Производство: Южная Африка, Road Media, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Адриан БэйлиПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07259D5AD0699ADF40ABC794683412666E2B394D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373375   (879959) от 06.04.2020
-
-Discovery: 100 Величайших Открытий / 100 Greatest Discoveries (2004) HDTVRip [720p-LQ] (9 серий)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любое открытие, в какой бы сфере науки оно ни было сделано, способно коренным образом изменить ход эволюции, хотя на первый взгляд далеко не каждое из них покажется нам важным и полезным. Однако есть в истории науки открытия, мгновенно перевернувшие не только нашу повседневную жизнь, но и наше представление о мире.
-Стремление познать себя и окружающий мир — движущая (   Читать дальше...   )Производство: США, thinkfilm, Discovery ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Майк ФаунтинПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42AD6B11AFCF4AD3D8EDF56887C740F7FA10606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104647   (879854) от 15.02.2017
-
-BBC: Секреты устройства античных городов. Афины / The Ancient City: Life in Classical Athens (2015) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из прекраснейших городов в мире. Во многом именно Афины определили наш идеал города и гражданина. В современном мире много мегаполисов, которые значительно выросли со времён античности и всё же создание древних Афин стало грандиозным достижением. Все аспекты повседневной жизни, от обороны до утилизации отходов, решали граждане. В конечном счёте эта система (   Читать дальше...   )Телекомпания: Brave New Media WalesЖанр: Документальный, историяРежиссер: Черри ДорреттПеревод: "Видеофильм ТВ", двуголосый закадровый, профессиональныйПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B725C25FE83F26D3233BB4AA3904CE95555BB12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640154   (878746) от 11.04.2013
-
-Discovery. Как устроена Вселенная / Discovery. How the Universe Works (2010) BDRemux [1080i]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная великолепная передача канала Discovery. Здесь нам расскажут теорию о том как образовалась вселенная, галактики, солнечные системы, планеты, звезды и т. д. И все это очень красиво нарисовано. В действительности тема космоса одна из наиболее интересных тем. Ведь мы даже не знаем все процессы нашей галактики, а есть ещё миллиарды других, незнакомых нам галактик.Сейчас (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйФормат: MKVПродолжительность: 8 x ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560CC95B1AB627B4BAD5C9188D00FDC5CF523CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

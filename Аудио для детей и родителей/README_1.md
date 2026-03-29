@@ -1,3 +1,86 @@
+###  Публикация: 1842875   (1048818) от 17.12.2025
+
+Николай Носов | Приключения Толи Клюквина (2011) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Николай Николаевич Носов (1908–1976), русский советский прозаик, драматург. Его романы-сказки о Незнайке – «Приключения Незнайки и его друзей», «Незнайка в Солнечном городе», «Незнайка на Луне» – стали классикой детской литературы.
+Весёлые и поучительные рассказы и повести Николая Носова воспитали не одно поколение юных читателей. (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 05:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB50075DA7DF5FD5654642DE24AF1B010B31A033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842366   (1048720) от 15.12.2025
+
+Ася Кравченко | Куда подевались волшебники? (2025) [MP3, Никита Юськов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если на королевство обрушиваются все напасти сразу? Конечно, бежать к волшебникам! Только где теперь волшебники? Всё почему-то совсем не так, как мы привыкли. Рыцари не сражаются, а играют в шахматы. Герой не хочет убивать дракона, а рассказывает ему сказки. Да и принцесса против любой жестокости – она любит животных «Куда подевались волшебники?» Аси (   Читать дальше...   )Жанр: Волшебные сказки, Волшебные существа, Детские приключения, Детям от 6-х лет, Невероятные приключения, Принцессы, Рыцари, Сказки, Современные сказкиИздательство: СамокатПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F7A12294D55C17CBE075E8246F67FEA436DF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842369   (1048719) от 15.12.2025
+
+Александр Тихонов | Коготь велоцираптора (2025) [MP3, Роман Покрышкин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьник и профессор через портал попадают в эпоху динозавров.
+
+Опасное и увлекательное путешествие в прошлое.
+(   Читать дальше...   )Жанр: Далекое прошлое, Детская познавательная и развивающая литература, Детские приключения, Динозавры, Развитие кругозора, Семейное чтениеИздательство: Аудиокнига (АСТ)Продолжительность: 02:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CFEAF6AE739F1A5A85ED1F3E8C3EB2984F0BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842308   (1048634) от 15.12.2025
 
 Анатолий Рыбаков | Приключения Миши Полякова и его друзей (Книга 1). Кортик (2011) [MP3, Василий Мичков]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048634.jpg" />
+  <img src="Z:/picture/008/save_picture_1048634.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048633.jpg" />
+  <img src="Z:/picture/008/save_picture_1048633.jpg" />
 </div>
 
 
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048626.jpg" />
+  <img src="Z:/picture/008/save_picture_1048626.jpg" />
 </div>
 
 
@@ -89,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048625.jpg" />
+  <img src="Z:/picture/008/save_picture_1048625.jpg" />
 </div>
 
 
@@ -116,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048621.jpg" />
+  <img src="Z:/picture/008/save_picture_1048621.jpg" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047768.jpg" />
+  <img src="Z:/picture/008/save_picture_1047768.jpg" />
 </div>
 
 
@@ -169,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047676.jpg" />
+  <img src="Z:/picture/008/save_picture_1047676.jpg" />
 </div>
 
 
@@ -197,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047381.jpg" />
+  <img src="Z:/picture/005/save_picture_1047381.jpg" />
 </div>
 
 
@@ -223,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047275.jpg" />
+  <img src="Z:/picture/005/save_picture_1047275.jpg" />
 </div>
 
 
@@ -251,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047152.jpg" />
+  <img src="Z:/picture/005/save_picture_1047152.jpg" />
 </div>
 
 
@@ -280,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046687.jpg" />
 </div>
 
 
@@ -307,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046459.jpg" />
 </div>
 
 
@@ -334,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046041.jpg" />
 </div>
 
 
@@ -360,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045761.jpg" />
 </div>
 
 
@@ -388,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045324.jpg" />
 </div>
 
 
@@ -415,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045231.jpg" />
 </div>
 
 
@@ -441,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044950.jpg" />
 </div>
 
 
@@ -467,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044394.jpg" />
 </div>
 
 
@@ -493,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044169.jpg" />
 </div>
 
 
@@ -520,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043326.jpg" />
 </div>
 
 
@@ -548,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043172.jpg" />
 </div>
 
 
@@ -574,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042564.jpg" />
 </div>
 
 
@@ -601,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041739.jpg" />
 </div>
 
 
@@ -613,84 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB6AE642E208D37B673355A6C5F4BAADE7A8AEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438708   (1040952) от 09.01.2021
-
-П. Дж. Белл | Поезд в Невероятные места (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о поезде, который доставит вас в невероятное место, в Тролльвиль. И о девочке, которая готова отправиться в самое главное путешествие в жизни. А также о мальчике, которого заперли в стеклянном шаре. Вместе с главной героиней Сюзи вы познакомитесь со множеством интересных персонажей. Например, с троллями. Или с магами, добрыми и злыми. Окунетесь в замечательную (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 08:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79EBEC50F61F2CE5BD0EE6B70D6DB021A94276E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438686   (1040931) от 09.01.2021
-
-Людмила Петрановская | Что делать, если ждет экзамен? (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига «Что делать, если ждет экзамен?» расскажет старшеклассникам и их родителям как во время процесса подготовки к экзаменам не утратить душевного равновесия и избежать скандалов в семье. Учащимся аудиокнига поможет выучить материал и показать свои знания во время сдачи экзаменов, а родителям – правильно поддержать своего ребенка в этом важном и сложном жизненном (   Читать дальше...   )Жанр: Воспитание детей/Детская психологияПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B31D0EA738EDA4B9C7642B386921D55AC493BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438670   (1040929) от 09.01.2021
-
-Артем Соловейчик | Воспитание без воспитания. Как сохранить доверие ребенка (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем недавно, всего сто с небольшим лет назад, считалось, что розги – законный инструмент воспитания и образования. И человеком приличным вырастет, и латынь выучит. Воспитание без наказания было немыслимо. Сейчас другие времена. Но похоже, мы по-прежнему бессильны отказаться от наказания как действенного инструмента воспитания. Как растить детей без принуждения? (   Читать дальше...   )Жанр: Педагогика/Воспитание детейПродолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3201A485965932CF251DA88F76A4AF5ABE485B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

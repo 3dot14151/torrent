@@ -1,3 +1,109 @@
+###  Публикация: 1566002   (488414) от 26.07.2022
+
+SQLPro Studio 2022.45 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488414.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 17.06.2022Разработчик: © 2022 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAF5B89004C170775AB9CAB23FC9CE602C9BE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566013   (488410) от 26.07.2022
+
+Slidepad 1.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488410.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2021 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54210CCD8A97595DE9911CF84178740956DE1F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565926   (488406) от 26.07.2022
+
+Loop Mash Up Pro 1.2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8387E8B41C6E7E6886792CB0E72BB64F7D183F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565972   (488404) от 26.07.2022
+
+Blackmagic Design Fusion Studio 18.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.07.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084AD4C0AC80E089AE86B9024AAA5B12675A3595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566005   (488372) от 26.07.2022
 
 Notebooks – Write and Organize 3.0 U2B [En]
@@ -6,7 +112,7 @@ Notebooks – Write and Organize 3.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488372.jpg" />
+  <img src="Z:/picture/008/save_picture_488372.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ RAR Extractor Max-Unzip Winrar 9.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488371.jpg" />
+  <img src="Z:/picture/008/save_picture_488371.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Tower Pro 9 v9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488363.jpg" />
+  <img src="Z:/picture/008/save_picture_488363.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ FoneDog iPhone Cleaner 1.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488361.jpg" />
+  <img src="Z:/picture/008/save_picture_488361.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Rhinoceros 7 v7.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488359.jpg" />
+  <img src="Z:/picture/008/save_picture_488359.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Elmedia Player Pro 8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488351.jpg" />
+  <img src="Z:/picture/008/save_picture_488351.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ DxO OpticsPro Elite 11.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488264.jpg" />
+  <img src="Z:/picture/008/save_picture_488264.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ iA Writer 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488218.jpg" />
+  <img src="Z:/picture/008/save_picture_488218.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Sketch 40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488173.jpg" />
+  <img src="Z:/picture/008/save_picture_488173.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Audirvana Plus 2.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488027.jpg" />
+  <img src="Z:/picture/008/save_picture_488027.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ Serial 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488012.jpg" />
+  <img src="Z:/picture/008/save_picture_488012.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ KCNcrew Pack 09-15-15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487944.jpg" />
+  <img src="Z:/picture/008/save_picture_487944.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ Sandvox 2.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487938.jpg" />
+  <img src="Z:/picture/008/save_picture_487938.jpg" />
 </div>
 
 
@@ -359,7 +465,7 @@ Curio Professional 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487894.jpg" />
+  <img src="Z:/picture/008/save_picture_487894.jpg" />
 </div>
 
 
@@ -386,7 +492,7 @@ Apple iWork: Keynote 7.0, Numbers 4.0 & Pages 6.0 (upd 20.09.2016) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487687.jpg" />
+  <img src="Z:/picture/008/save_picture_487687.jpg" />
 </div>
 
 
@@ -412,7 +518,7 @@ Sensei 1.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487522.jpg" />
+  <img src="Z:/picture/008/save_picture_487522.jpg" />
 </div>
 
 
@@ -438,7 +544,7 @@ PullTube 1.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487394.jpg" />
+  <img src="Z:/picture/008/save_picture_487394.jpg" />
 </div>
 
 
@@ -464,7 +570,7 @@ File Cabinet Pro 7.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487390.jpg" />
+  <img src="Z:/picture/008/save_picture_487390.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ Debookee 7 v7.5.0b3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487383.jpg" />
+  <img src="Z:/picture/008/save_picture_487383.jpg" />
 </div>
 
 
@@ -516,7 +622,7 @@ iNet Network Scanner 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487264.jpg" />
+  <img src="Z:/picture/008/save_picture_487264.jpg" />
 </div>
 
 
@@ -544,7 +650,7 @@ OmniFocus Pro 3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487256.jpg" />
+  <img src="Z:/picture/008/save_picture_487256.jpg" />
 </div>
 
 
@@ -572,7 +678,7 @@ CrossOver 20.0-b1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487122.jpg" />
+  <img src="Z:/picture/008/save_picture_487122.jpg" />
 </div>
 
 
@@ -585,115 +691,6 @@ CrossOver 20.0-b1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880BD85365AD95A6DB05AD2997D44C665F68E2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405032   (487034) от 28.08.2020
-
-Native Instruments Kontakt 6 v6.4.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47506C1A918641F9AB3284D6140448E2B0944371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319148   (486579) от 10.08.2019
-
-Kerbal Space Program (1.7.3.02594/all dlc) (2019) [Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerbal Space Program – симулятор космических полетов, где вы разрабатываете собственную космическую программу.
-
-Ваша цель в KSP – сконструировать космический корабль, способный отправить ваш экипаж в космос. В вашем распоряжении множество деталей, из которых можно собрать рабочий звездолет. У каждой из них своя функция, которая определенным образом влияет на движение (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: SquadПоддерживаемая ОС: OS X 10.7+Жанр: космический симулятор, открытый мир, песочницаЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81C463A16E08E8670BF87394300ED326AA2524E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566164   (486530) от 27.07.2022
-
-Scrutiny 12 v12.3.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17545B83C08FB7F10CF983835DD419B5AB61374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566072   (486528) от 27.07.2022
-
-Yate 6.10.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E34ABF9659EDDEFC747644BF0282559E3CB6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

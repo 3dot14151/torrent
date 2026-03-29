@@ -1,3 +1,30 @@
+###  Публикация: 1543912   (499259) от 19.07.2022
+
+Тайна куноити Цубаки | Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki [2022, TV, 13 из 13] WEBRip 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499259.jpg" />
+</div>
+
+
+###  Подробнее
+
+В изолированном клане Аканэ, состоящем исключительно из девушек, обучаются молодые девушки-ниндзя — куноити. В клане действует одно правило, которого должны придерживаться все без исключений: «Мужчины опасны и любое взаимодействие с ними запрещено». Цубаки — перспективная ученица с многообещающим будущим, но у неё начинает появляется странное чувство в сердце... (   Читать дальше...   )Жанр: КомедияРежиссер: Какути ТакудайЯзык озвучки: Русский многоголосый, закадровый (SHIZA Project)Субтитры: Русские (софтсаб на надписи)
+ - не во всех сериях вообще есть, все вопросы к (SHIZA Project)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEFE0B8AF1C568DB4D24BF8F092FC1C871FD10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563661   (498379) от 20.07.2022
 
 Никуко из Рыбацкой гавани / Gyokou no Nikuko-chan  [2021, Movie] WEB-DL 1080p rus
@@ -6,7 +33,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498379.jpg" />
+  <img src="Z:/picture/008/save_picture_498379.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498107.jpg" />
+  <img src="Z:/picture/008/save_picture_498107.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498103.jpg" />
+  <img src="Z:/picture/008/save_picture_498103.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Odin: Koushi Hansen Starlight / Odin: Photon Space Sailer Starlight / Один: 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497972.jpg" />
+  <img src="Z:/picture/008/save_picture_497972.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Asa Made Jugyo Chu! / С утра и до заката мы учимся раз�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496947.jpg" />
+  <img src="Z:/picture/008/save_picture_496947.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495645.jpg" />
+  <img src="Z:/picture/008/save_picture_495645.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Toji no Miko / Katana Maidens / Жрицы с мечами [2018, TV, 24 ep] WEB
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493379.jpg" />
+  <img src="Z:/picture/008/save_picture_493379.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya / Исче�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490807.jpg" />
+  <img src="Z:/picture/008/save_picture_490807.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485110.jpg" />
+  <img src="Z:/picture/008/save_picture_485110.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484681.jpg" />
+  <img src="Z:/picture/008/save_picture_484681.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Taboo-Tattoo / Запретная татуировка [2016, TV, 12] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482795.jpg" />
+  <img src="Z:/picture/008/save_picture_482795.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482564.jpg" />
+  <img src="Z:/picture/008/save_picture_482564.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ Soukihei MD Geist | MD Geist | Опаснейший Гейст [1986, OVA] LDRip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482052.jpg" />
+  <img src="Z:/picture/008/save_picture_482052.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481269.jpg" />
+  <img src="Z:/picture/008/save_picture_481269.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476684.jpg" />
+  <img src="Z:/picture/008/save_picture_476684.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476390.jpg" />
+  <img src="Z:/picture/008/save_picture_476390.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474786.jpg" />
+  <img src="Z:/picture/008/save_picture_474786.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ Macross Plus / Макросс Плюс [1994, OVA,  4 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474374.jpg" />
+  <img src="Z:/picture/008/save_picture_474374.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли нашу л
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470008.jpg" />
+  <img src="Z:/picture/008/save_picture_470008.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / По велен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468179.jpg" />
+  <img src="Z:/picture/008/save_picture_468179.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467924.jpg" />
+  <img src="Z:/picture/008/save_picture_467924.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464239.jpg" />
+  <img src="Z:/picture/008/save_picture_464239.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самур
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461583.jpg" />
+  <img src="Z:/picture/008/save_picture_461583.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых т�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461582.jpg" />
+  <img src="Z:/picture/008/save_picture_461582.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Ка�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461579.jpg" />
+  <img src="Z:/picture/008/save_picture_461579.jpg" />
 </div>
 
 
@@ -649,33 +676,6 @@ Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB4EB4318CC0EF1EB0DCC799A734BE9C71B6C7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034257   (461457) от 04.10.2016
-
-91 Days / 91 день [2016, TV, 12 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Времена сухого закона. Но власть в городе под названием Беззаконный принадлежит вовсе не полиции. Городом правит мафия. Криминальные боссы и мелкие сошки — каждый наживается за счет запрещенного варева, которое меж тем только укрепляет свои позиции на черном рынке.
-Авилио, чья семья погибла в результате мафиозных распрей, возвращается в город спустя семь долгих лет. (   Читать дальше...   )Жанр: приключенияРежиссер: Кабураки ХироСубтитры: ASS, Встроенные, Полные | Надписи «YakuSub Studio»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4EC669371F8351A7F2BC8641F9B9248FA9BA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

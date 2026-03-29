@@ -6,7 +6,7 @@ VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88077.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Roberto Cacciapaglia - 4 albums (2007-2011) [MP3|320 кб/с]<Neoclassical, New 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87474.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string q
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87381.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Antonio Vivaldi - 5 Concerti for Bassoon, Strings & Continuo: Milan Turkovic & I
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87163.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87153.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Telemann, Schaffrath, Fasch, Torriani, Waterson, Donizetti - Virtuosity of Basso
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86785.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Johann Sebastian Bach – Brandenburg Concertos 2, 4, 6; 1, 3, 5: 2CD, VA, (1991
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86778.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ The Brandt Brauer Frick Ensemble - Mr. Machine (2011) [MP3|~245 кб/с (V0)]<Ex
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86306.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85809.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Magic of Classic music (2012) [MP3|192-256 kbps]<Classic>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85507.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Johann Sebastian Bach-The Organ Works vol.6: organ Peter Hurford (1982-1985)/198
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85315.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85305.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Wolfgang Amadeus Mozart - Cassations G-Dur KV 63 & B-Dur KV 99, Divertimento D-D
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85288.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84733.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626: Munchner Philharmoniker (17
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84704.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Wolfgang Amadeus Mozart-Serenade No.13 in G major KV525; Divertimento KV136 & KV
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84696.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84589.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84574.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84558.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Mozart - Concertos For Flute and Harp, KV 299: The Amsterdam baroque orchestra (
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83469.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ W.A. Mozart - Early Symphonies 1,2: The English Concert (1879-1882) on authentic
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83455.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Roberto Cacciapaglia - 3 альбома (2007-2010) [FLAC|Lossless]<New Age, Rel
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82749.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82259.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82243.jpg" />
 </div>
 
 
@@ -784,7 +784,7 @@ Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82113.jpg" />
 </div>
 
 
@@ -819,7 +819,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81872.jpg" />
 </div>
 
 

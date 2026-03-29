@@ -1,3 +1,161 @@
+###  Публикация: 1800637   (15639) от 04.06.2025
+
+Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Богини кафе-террасы [ТВ-2] [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миура, Канагава. Хаято Касукабэ после поступления в Токийский университет, возвращается в родной город после смерти своей бабушки и собирается закрыть её убыточное кафе Familia. Там он обнаруживает, что в кафе работали пять девушек. Узнав, что они помогали и заботились о его бабушке, Хаято решает снова открыть кафе.Производство: студия Tezuka Productions / 手塚プロダクションЖанр: комедия, повседневность, эттиРежиссер: Кувабара СатосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C484341C31BDE56B366B846796A73EF5E3EE2D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800630   (15636) от 04.06.2025
+
+Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Subete o Juurin Suru made | Я стал сильнейшим с никчёмным навыком [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тока - обычный незаметный парень, которого все принимают за пустое место. Однажды его вместе с одноклассниками переносит в другой мир, но и там ничего не меняется. Все его товарищи получают сильные навыки, только Тока оказывается ни к чему не годным, и богиня Вишис ссылает его в древние развалины. Но там оказывается, что навыки Токи не такие уж никчёмные. Теперь (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Фукуда МитиоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E56D6769C480794FFA0CAF1C057AC120AEBA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654290   (15183) от 09.06.2025
+
+Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелитель тьмы на подработке! [ТВ-2] [2022, TV, 24 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание на первый сезон.
+
+В одной далекой-далекой галактике местный Князь Тьмы, он же Сатана, потерпел сокрушительное поражение. Когда все было кончено, и лучшие бойцы человечества, возглавляемые героем Эмилией, ворвались в его замок, темный повелитель, собрав остатки сил, открыл магический портал, куда и прыгнул вместе с генералом Алсиэлем. Астральная буря забросила (   Читать дальше...   )Производство: студия Studio 3HzЖанр: комедия, фэнтезиРежиссер: Тикуси ДайсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94A144F72A55797B2C1078C5DED90F85628EE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801273   (15166) от 09.06.2025
+
+Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифицирован по жизни [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно разочаровавшийся в жизни японский писатель, по-булгаковски именующий себя Мастером, в очередной раз пытается покончить с собой, да не один, а вместе со своей верной подругой, но вместо Царства Смерти попадает в мир меча и магии. Теперь единственной целью этого склонного к самоубийству циника становиться узнать, что стало с его подругой, после чего он планирует (   Читать дальше...   )Производство: студия Atelier PontdarcЖанр: приключения, комедия, фэнтезиРежиссер: Кавай СигэкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC04EFE601FE3A27678A5FD0EBAECB3ED7A68894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801263   (15165) от 09.06.2025
+
+Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | Восхождение Героя щита [ТВ-3] [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ивaтaни Haoфyми вмecтe c тpeмя дpyгими людьми пpизвaн в пapaллeльный миp, чтoбы cтaть eгo Гepoeм. Пoлyчив в pyки лeгeндapный щит, oн oтпpaвляeтcя в пyтeшecтвиe, нo нe имeя ни oпытa, ни xapизмы, ocтaётcя лишь c oднoй пpeкpacнoй cпyтницeй, кoтopaя пpeдaёт eгo нa тpeтий дeнь. B peзyльтaтe Ивaтaни oкaзывaeтcя oгpaблeнным и oбвинённым в изнacилoвaнии, cильныe миpa ceгo (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Хага ХитосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37981ABB2248A8ECA323E8F429996738DD53E535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801218   (15164) от 09.06.2025
+
+Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store | Консьерж универмага Арктика [2023, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акино - новый консьерж в универмаге "Арктика", где все покупатели - животные. В этот необычный универмаг, где продавцы - люди, а покупатели - животные, и даже вымершие звери приходят, чтобы проконсультироваться о предметах, которые они ищут, или о проблемах, которые у них возникли. Акино тактично и с улыбкой решает проблемы покупателей, а её отзывчивость (   Читать дальше...   )Производство: Production I.G / プロダクション・アイジーЖанр: фэнтези, комедияРежиссер: Итадзу ЁсимиПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB065E5D480D01FD36883723D4BF75BC747014A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801274   (15161) от 09.06.2025
 
 Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evil Lieutenant Used to Be Archenemies | Волшебница и злой офицер [2024, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +164,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15161.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15160.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15134.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15133.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15128.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15127.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15126.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15125.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13505.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13372.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12819.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11800.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11112.jpg" />
 </div>
 
 

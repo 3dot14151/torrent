@@ -6,7 +6,7 @@ AIMP 5.00 Build 2338 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815880.jpg" />
+  <img src="Z:/picture/008/save_picture_815880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Waterfox Current G4.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815874.jpg" />
+  <img src="Z:/picture/008/save_picture_815874.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ jv16 PowerTools 7.0.0.1288 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815870.jpg" />
+  <img src="Z:/picture/008/save_picture_815870.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LDPlayer 4.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815868.jpg" />
+  <img src="Z:/picture/008/save_picture_815868.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Acoustica Premium Edition 7.3.15 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815866.jpg" />
+  <img src="Z:/picture/008/save_picture_815866.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kaspersky Lab Products Remover 1.0.1803.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815858.jpg" />
+  <img src="Z:/picture/008/save_picture_815858.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AIMP 5.00 Build 2338 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815850.jpg" />
+  <img src="Z:/picture/008/save_picture_815850.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows and Office Genuine ISO Verifier 11.10.22.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815744.jpg" />
+  <img src="Z:/picture/008/save_picture_815744.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PreSonus Studio One 5 Professional 5.4.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815740.jpg" />
+  <img src="Z:/picture/008/save_picture_815740.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Windows 11 Manager 1.0.1 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815716.jpg" />
+  <img src="Z:/picture/008/save_picture_815716.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Google Chrome 95.0.4638.54 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815712.jpg" />
+  <img src="Z:/picture/008/save_picture_815712.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Photo Supreme 5.4.1.2886 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815661.jpg" />
+  <img src="Z:/picture/008/save_picture_815661.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VirtualBox 6.1.28 Build 147628 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815575.jpg" />
+  <img src="Z:/picture/008/save_picture_815575.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PTE AV Studio Pro 10.0.10 Build 7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815562.jpg" />
+  <img src="Z:/picture/008/save_picture_815562.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Brave Browser 1.8.96 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815558.jpg" />
+  <img src="Z:/picture/008/save_picture_815558.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ oCam Screen Recorder 264.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815542.jpg" />
+  <img src="Z:/picture/008/save_picture_815542.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Waterfox 56.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815533.jpg" />
+  <img src="Z:/picture/008/save_picture_815533.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Phase One Capture One Pro 21 14.4.1.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815531.jpg" />
+  <img src="Z:/picture/008/save_picture_815531.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Panda Free Antivirus 2016 16.1.2 DC 18.04.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815497.jpg" />
+  <img src="Z:/picture/008/save_picture_815497.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ PicturesToExe Deluxe 9.0.5 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815483.jpg" />
+  <img src="Z:/picture/008/save_picture_815483.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ USDownloader 1.3.5.9 Portable (24.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815481.jpg" />
+  <img src="Z:/picture/008/save_picture_815481.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ CoreAVC 2.5.1 Professional Edition [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815461.jpg" />
+  <img src="Z:/picture/008/save_picture_815461.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815444.jpg" />
+  <img src="Z:/picture/008/save_picture_815444.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815374.jpg" />
+  <img src="Z:/picture/008/save_picture_815374.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815370.jpg" />
+  <img src="Z:/picture/008/save_picture_815370.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Streaming Audio Recorder 4.3.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815308.jpg" />
+  <img src="Z:/picture/008/save_picture_815308.jpg" />
 </div>
 
 

@@ -1,3 +1,141 @@
+###  Публикация: 606955   (994635) от 22.01.2013
+
+Dynamic Photo HDR 5.2.0 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Photo HDR - программа для создания и редактирования динамических HDR фотографий. Проста в использовании, позволяет создавать HDR из одной фотографии, добавлять различные эффекты, что особенно полезно для владельцев фотокамер без функции автобрекетинга, умеет работать с файлами формата RAW, полученными с разных цифровых камер, позволяет корректировать изображения по ключевым точкам вручную и автоматически.
+
+Многие любители фотографировать и добавлять различные эффекты фотографиям, слышали о HDR снимках, но никогда не пробовали их делать сами. Если Вы не знаете что такое HDR (High Dynamic Range Imaging), то самое время попробовать Dynamic PHOTO HDR. Вам понравится после фотографирования с различной экспозицией - добавлять различные эффекты фотографиям, оптимизировать их, делать их более четкими и реалистичными. Программа расчитана на обработку динамических снимков. При совмещении снимков снятых с различной экспозицией убирает муар и лишние детали.Название программы: Dynamic Photo HDRТип издания: Mac OS XЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608136   (993866) от 24.01.2013
+
+PreSonus Studio One Pro 2.5 [Eng]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studio One Pro - мощный, профессиональный аудио/MIDI-секвенсор, снабжен не только всеми профессиональными функциями, необходимыми музыканту и аранжировщику в процессе производства музыки, но и некоторыми новыми разработками, выделяющими эту программу из ряда традиционных аудио-приложений. В основе работы Studio One Pro лежит механизм автоматического переключения между 32 и 64 битной разрядностью вычислений с плавающей запятой.Название программы: PreSonus Studio One ProРелиз состоялся: 30 ноября 2012 годаТип издания: Mac OS X softwareЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353083   (993323) от 16.01.2020
+
+Ortelius 2 v2.2.3 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ortelius - полнофункциональное векторное приложение для рисования, в частности для дизайна карты. Рисуйте на карте, используя встроенные функции - дороги, реки, береговые линии, здания, символы и контуры. Ortelius известен своими уникальными «подключаемыми дорожками» и экспертными сложными стилями, которые упрощают рисование утомительных карт. Каждый объект поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Mapdiva, Pty LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46509973059F29DA882CB7E4058AFBE20B09875A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353010   (993321) от 16.01.2020
+
+ClearDisk 2.12 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993321.jpg" />
+</div>
+
+
+###  Подробнее
+
+ClearDisk очищает ваш диск, удаляет ненужные файлы, а также ускоряет вашу систему через 5 минут!
+ClearDisk - простая и эффективная утилита, которая находит ненужные файлы на жестком диске, и позволяет удалить их, чтобы освободить место с помощью всего лишь нескольких щелчков мыши!
+
+Временные файлы создаются во время обычной работы системы, многие из которых не удаляются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F55CF7F4DA0E3D2C0D171016DE3DB98E424992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353021   (993319) от 16.01.2020
+
+Logicly 1.11.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научите логически управлять цифровыми схемами эффективно - с Logicly
+
+● Создавайте схемы быстро и легко с современным и интуитивно понятным пользовательским интерфейсом с помощью перетаскивания, копирования / вставки, масштабирования и многого другого.
+● Возьмите под контроль отладку, приостановив симуляцию и наблюдая за распространением сигнала по мере (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Bowler Hat LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28901A169B4FB44D253A4DDF2C0C0D2F1D53E2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353014   (993292) от 16.01.2020
 
 iClock Pro 5.6 [Multi]
@@ -6,7 +144,7 @@ iClock Pro 5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993292.jpg" />
 </div>
 
 
@@ -32,7 +170,7 @@ iCash 7.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993290.jpg" />
 </div>
 
 
@@ -58,7 +196,7 @@ Adobe Photoshop Elements 2020 v18.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993109.jpg" />
 </div>
 
 
@@ -84,7 +222,7 @@ Adobe Premiere Elements 2020 v18.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993083.jpg" />
 </div>
 
 
@@ -110,7 +248,7 @@ Apple iWork - Pages 8.1, Numbers 6.0, Keynote 9.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992998.jpg" />
 </div>
 
 
@@ -136,7 +274,7 @@ Artpaper: new daily wallpapers 3.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991911.jpg" />
 </div>
 
 
@@ -162,7 +300,7 @@ Easy Translator 15.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991870.jpg" />
 </div>
 
 
@@ -190,7 +328,7 @@ EndNote X9 v9.3.2 (build 15235) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991748.jpg" />
 </div>
 
 
@@ -217,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991445.jpg" />
 </div>
 
 
@@ -247,7 +385,7 @@ Paintbrush 2.1.1 [ENG]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989962.jpg" />
 </div>
 
 
@@ -277,7 +415,7 @@ iSkysoft DVD Creator 6.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989943.jpg" />
 </div>
 
 
@@ -305,7 +443,7 @@ Duplicate File Remover PRO 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989733.jpg" />
 </div>
 
 
@@ -332,7 +470,7 @@ Chamonix 1.1 - CHM-viewer [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989136.jpg" />
 </div>
 
 
@@ -359,7 +497,7 @@ Better Blocker 2020.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989055.jpg" />
 </div>
 
 
@@ -386,7 +524,7 @@ Mac Screen Recorder 2.0.30 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989002.jpg" />
 </div>
 
 
@@ -412,7 +550,7 @@ BlueHarvest 7 v7.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988993.jpg" />
 </div>
 
 
@@ -440,7 +578,7 @@ Axure RP Pro 6.5.0.3048 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987726.jpg" />
 </div>
 
 
@@ -466,7 +604,7 @@ Graphic 3.0.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987242.jpg" />
 </div>
 
 
@@ -495,7 +633,7 @@ JetBrains WebStorm 11.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987091.jpg" />
 </div>
 
 
@@ -521,7 +659,7 @@ Luminar 3  v3.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986992.jpg" />
 </div>
 
 
@@ -549,7 +687,7 @@ JRiver Media Center 26 v26.0.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986822.jpg" />
 </div>
 
 
@@ -560,141 +698,6 @@ J.River Media Center - мощный мультимедийный центр, о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DBE0155EB36523309731CF2ADECD9A4FE059068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354925   (986220) от 24.01.2020
-
-Image Crop 1.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрезайте, конвертируйте и переименуйте тысячи файлов изображений в пакетном режиме с помощью Image Crop. Обрезайте изображения, чтобы удалить нежелательные области или дать им конкретное соотношение сторон. Кроме того, если ваши исходные файлы изображений плохо названы, вы можете использовать Image Crop, чтобы дать им значащие имена, чтобы их легче находить и идентифицировать.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2020Разработчик: Day 1 Solutions SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812CD3177F45A677A483BF6DFDE1B3AB36D0783C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354996   (986155) от 24.01.2020
-
-Micromat Checkmate 1.1.9 (build 3382) [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Checkmate, программное обеспечение для мониторинга работоспособности компьютера от Micromat. Мы создали Checkmate, чтобы стать мощным продуктом для компьютерной диагностики, не мешая вашей работе.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2020Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59177027B189B4A88533A81B6D1DF711774D1916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354827   (985961) от 24.01.2020
-
-Adobe Zii 2020 - Universal Patcher v5.1.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D4DF6A6F0340E7AE381A5CCCCA8E469B137132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971634   (985945) от 03.01.2016
-
-IconKit 4.7.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для создания (генерации) иконок для Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
-
-Основные возможности:
-• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 декабря 2015Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FC6774207594ECDF356D0D865944015724942D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971679   (985861) от 03.01.2016
-
-Sip Pro 3.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sip - код оттенков на экране
-Крошечная, но очень полезная программа разработанная Rui Aureliano для людей, которые тесно связаны с веб-дизайном.
-При помощи данной программы можно определить код цвета на любом участке экрана.  После установки в системном меню появляется ярлык программы. Далее все просто. Выбираем Pick Color и увеличительную площадь наводим на область, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2015Разработчик: Rui AurelianoПоддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2172655585CE720793A30B80BBD7AE262D9901
 ```
 
 https://mybot314.ru/tekegram_catalog/

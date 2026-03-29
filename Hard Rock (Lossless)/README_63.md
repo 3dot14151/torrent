@@ -1,3 +1,61 @@
+###  Публикация: 1452798   (244339) от 07.03.2021
+
+Empire - Sound Barrier (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Barrier
+02. Margin Call
+03. Conversation
+04. I Won't Be There(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EE0B83E171E8B1C1DC74AF1E4584B660207529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536532   (244069) от 12.03.2022
+
+Epic - Starlight (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want
+02. Carry On
+03. Can't Get Over You
+04. Groovin' For You(   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7194F866DEF8EA0387605BA66C7791CCF889810B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626247   (244046) от 13.04.2023
 
 L.A. Guns - Black Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ L.A. Guns - Black Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244046.jpg" />
+  <img src="Z:/picture/004/save_picture_244046.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Rust n' Rage - One For The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244040.jpg" />
+  <img src="Z:/picture/004/save_picture_244040.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ City Kings - Steel Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243941.jpg" />
+  <img src="Z:/picture/004/save_picture_243941.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Misery - Misery Loves Company (1991) Remastered, 2022, Eonian Records [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243792.jpg" />
+  <img src="Z:/picture/004/save_picture_243792.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Motive Black - Auburn (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243777.jpg" />
+  <img src="Z:/picture/004/save_picture_243777.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Hazer - Pessimist (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243769.jpg" />
+  <img src="Z:/picture/004/save_picture_243769.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Circus Of Rock - Lost Behind The Mask (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243768.jpg" />
+  <img src="Z:/picture/005/save_picture_243768.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Gary Moore - Victims of the Future (1983) Reissue, 2023, Universal, Japanese Edi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243635.jpg" />
+  <img src="Z:/picture/004/save_picture_243635.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Chip Z’Nuff - Perfectly Imperfect (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243625.jpg" />
+  <img src="Z:/picture/004/save_picture_243625.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Gary Moore - We Want Moore! (1984) Reissue, 2023, Universal, Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243592.jpg" />
+  <img src="Z:/picture/004/save_picture_243592.jpg" />
 </div>
 
 
@@ -298,7 +356,7 @@ Circus Of Rock - Come One, Come All (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243565.jpg" />
+  <img src="Z:/picture/005/save_picture_243565.jpg" />
 </div>
 
 
@@ -327,7 +385,7 @@ The Neptune Power Federation - Le Demon De L'amour (2022) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243543.jpg" />
+  <img src="Z:/picture/005/save_picture_243543.jpg" />
 </div>
 
 
@@ -356,7 +414,7 @@ Perblind - The Dead And The Living (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243375.jpg" />
+  <img src="Z:/picture/004/save_picture_243375.jpg" />
 </div>
 
 
@@ -385,7 +443,7 @@ Warrant - Dirty Rotten Filthy Stinking Rich (1989) Japanese Edition [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243343.jpg" />
+  <img src="Z:/picture/004/save_picture_243343.jpg" />
 </div>
 
 
@@ -414,7 +472,7 @@ Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243338.jpg" />
+  <img src="Z:/picture/004/save_picture_243338.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ L.A.Guns - Black Diamonds (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243310.jpg" />
+  <img src="Z:/picture/004/save_picture_243310.jpg" />
 </div>
 
 
@@ -472,7 +530,7 @@ Abanamat - Abanamat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243264.jpg" />
+  <img src="Z:/picture/004/save_picture_243264.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ Ben Sollberger Project - I Hate to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243117.jpg" />
+  <img src="Z:/picture/004/save_picture_243117.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Misery - Risk It All (1992) Reissue, 2023, Eonian Records [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243083.jpg" />
+  <img src="Z:/picture/004/save_picture_243083.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ Sweet And Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242833.jpg" />
+  <img src="Z:/picture/005/save_picture_242833.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Neal Schon - Journey Through Time (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242814.jpg" />
+  <img src="Z:/picture/005/save_picture_242814.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Big City - Sunwind Sails (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242714.jpg" />
+  <img src="Z:/picture/005/save_picture_242714.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242612.jpg" />
+  <img src="Z:/picture/005/save_picture_242612.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Grand Design - Rawk (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242582.jpg" />
+  <img src="Z:/picture/005/save_picture_242582.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Grand Design - Rawk (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D10DF1D838193CE1B6FD0CAD3BFAA6C2A10FC3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100223   (242516) от 04.02.2017
-
-Manny Freiser - Way Back Home (2006) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Back Home 04:47
-02. Messaround 03:34
-03. Slowdance 04:30
-04. Breakaway 04:11(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9133D4C6703CB322640681AC9C115B5872CD1E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634668   (242503) от 21.05.2023
-
-TankZilla - TankZilla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucifer (02:41)
-02. Crossroad (04:00)
-03. Wrong Place (03:06)
-04. Soulsurfer (03:37)(   Читать дальше...   )Жанр: Hard Rock, Southern MetalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB86ADF9617F753F5F902747E14F18DF64F296C
 ```
 
 https://mybot314.ru/tekegram_catalog/

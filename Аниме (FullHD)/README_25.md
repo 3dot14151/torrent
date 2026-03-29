@@ -1,3 +1,161 @@
+###  Публикация: 1029048   (678166) от 28.06.2016
+
+Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война – дело серьезное, и подходить к ней нужно со всей ответственностью. Даже если конфликт разворачивается между выдуманными странами – такими, как Герцогство Кракозия и Республика Грания. По крайней мере, двум воительницам из Герцогства Кракозии, старшему лейтенанту Лутгальниковой и младшему лейтенанту Харуке, посланным на ответственную миссию, не до шуток. Ведь (   Читать дальше...   )Жанр: приключения, комедия, эттиРежиссер: Кимура Хироси / Kimura Hiroshi / 木村寛Продолжительность: 12 серий + 1 special по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0B61E0255D057F1042D79137C624EFF2BD371A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645212   (677712) от 07.07.2013
+
+One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итак, одиннадцатый по счёту фильм One Piece.
+События происходят в новом мире, который находится на грани исчезновения. Ожесточенный бой между легендарным бывшим адмиралом военно-морского флота Зетто, который руководит группой, пытающейся уничтожить пиратов, и группой Мугивара во главе с Монки Д. Луффи.Жанр: приключенияРежиссер: Нагаминэ ТацуяСубтитры: •Продолжительность: 110 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF75C1C8C8AC418B574DE408545013121EDC491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536962   (670868) от 14.03.2022
+
+Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatural Investigation | Бюро паранормальных расследований Мухё и Родзи [2018, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы стали одержимы духом против своей воли? В доме появился призрак, которого нужно выгнать... или, например, сжечь дотла? Если ваш ответ «да», то обращайтесь к Мухё и Родзи, экспертам по сверхъестественным законам. Их специальность - вершить правосудие над злыми духами!Производство: Studio Deen / スタジオディーン, Bridge / ブリッジЖанр: комедия, детектив, мистикаРежиссер: Кондо НобухироПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2B95F4F6A62FD971FAAFD59071E45E92674B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536963   (670863) от 14.03.2022
+
+Muhyo to Roji no Mahouritsu Soudan Jimusho 2 | Muhyo & Roji's Bureau of Supernatural Investigation 2 | Бюро паранормальных расследований Мухё и Родзи 2 [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тору Мухё — гений магического права, которому под силу отправлять в заточение злые души и призраков, что после смерти вредят живым. В нелёгком деле ему помогает обычный парнишка Дзиро «Родзи» Кусано. Разумеется, их работа тесно связана с теми, кому мешает жить нечисть. Битва с Энтю осталась позади. Мухё с Родзи покинули Адскую тюрьму и вернулись к повседневной жизни. (   Читать дальше...   )Производство: Studio Deen / スタジオディーン, Bridge / ブリッジЖанр: комедия, детектив, мистикаРежиссер: Кондо НобухироПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6092E7D9474B56EBBA63552D4AE36082A81ED3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899265   (669120) от 21.05.2015
+
+RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёлтая [2013-2014, TV, 28 из 28] WEB-DLRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в мире называемом Ремнант, появились полчища ужасных чудовищ — существ Гримм. Человечество оказалось на грани уничтожения. Однако, открытие волшебного вещества, "Праха", позволило отогнать Гримм. А в дальнейшем и поднять цивилизацию на совершенно иной уровень.
+Сейчас об угрозе никто и не помнит. Ведь мир и покой охраняют искусные воины, способные (   Читать дальше...   )Производство: США,   Rooster Teeth ProductionsЖанр: технофэнтези, боевик, комедия, школаРежиссер: Monty Oum (Монти Оум)Перевод: Серии 1-23, 27-28Язык субтитров: РусскийФормат: MP4Продолжительность: ~4-17 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8EDE7DBDB48A85A34136B2A676D5C7C70C837E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137157   (668816) от 25.05.2017
+
+Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668816.jpg" />
+</div>
+
+
+###  Подробнее
+
+История сложных судеб двух подростков. У героини проблемы со слухом, из-за чего в обычной школе она вызывала раздражение одноклассников. Раздражение вылилось в издевательства. Герой был одним из зачинщиков издевательств. Но хоть и были виноваты все, когда пришло время кого-то обвинить, только он стал общепризнанным злодеем. И новым объектом издевательств. Прошли (   Читать дальше...   )Производство: Япония, Kyoto Animation, Animation DoЖанр: повседневность, драма, романтикаРежиссер: 山田尚子 / Yamada Naoko / Ямада НаокоЯзык субтитров: Русский (внешние, отключаемые)Продолжительность: 130 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1445360B2013DD8DEF9CF3742A770B5809279380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512372   (664520) от 18.06.2012
 
 Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение Искательницы [2012, Movie] BDRip 1080p raw
@@ -6,7 +164,7 @@ Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение И�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664520.jpg" />
+  <img src="Z:/picture/008/save_picture_664520.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Re:Creators | Возрождающие [2017, TV, 22 эп.] BDrip 1080p 10bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663764.jpg" />
+  <img src="Z:/picture/008/save_picture_663764.jpg" />
 </div>
 
 
@@ -61,7 +219,7 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663763.jpg" />
+  <img src="Z:/picture/008/save_picture_663763.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663646.jpg" />
+  <img src="Z:/picture/008/save_picture_663646.jpg" />
 </div>
 
 
@@ -114,7 +272,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662097.jpg" />
+  <img src="Z:/picture/008/save_picture_662097.jpg" />
 </div>
 
 
@@ -140,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658809.jpg" />
+  <img src="Z:/picture/008/save_picture_658809.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658562.jpg" />
+  <img src="Z:/picture/008/save_picture_658562.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ Leadale no Daichi nite | In the Land of Leadale | На просторах Лид
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658127.jpg" />
+  <img src="Z:/picture/008/save_picture_658127.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ Planetarian: Chiisana Hoshi no Yume | Planetarian: The Reverie of a Little Plane
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657812.jpg" />
+  <img src="Z:/picture/008/save_picture_657812.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657712.jpg" />
+  <img src="Z:/picture/008/save_picture_657712.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657343.jpg" />
+  <img src="Z:/picture/008/save_picture_657343.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656115.jpg" />
+  <img src="Z:/picture/008/save_picture_656115.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654850.jpg" />
+  <img src="Z:/picture/008/save_picture_654850.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ Code Geass: Boukoku no Akito / Code Geass: Akito the Exiled / Изгнанник
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652950.jpg" />
+  <img src="Z:/picture/008/save_picture_652950.jpg" />
 </div>
 
 
@@ -379,7 +537,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652428.jpg" />
+  <img src="Z:/picture/008/save_picture_652428.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650582.jpg" />
+  <img src="Z:/picture/008/save_picture_650582.jpg" />
 </div>
 
 
@@ -431,7 +589,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650578.jpg" />
+  <img src="Z:/picture/008/save_picture_650578.jpg" />
 </div>
 
 
@@ -457,7 +615,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650386.jpg" />
+  <img src="Z:/picture/008/save_picture_650386.jpg" />
 </div>
 
 
@@ -483,7 +641,7 @@ Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650253.jpg" />
+  <img src="Z:/picture/008/save_picture_650253.jpg" />
 </div>
 
 
@@ -509,7 +667,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650223.jpg" />
+  <img src="Z:/picture/008/save_picture_650223.jpg" />
 </div>
 
 
@@ -522,165 +680,6 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40CB12AEAC234D43685FB205C2BEAD9793D143D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540712   (650211) от 31.03.2022
-
-Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650211.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты сильный, так что помогай людям», — слова, которые сказал старшекласснику Юдзи Итадори его дед перед смертью. Но старик даже не представлял, какое будущее ждёт его внука. После смерти деда парень встречает шамана Мегуми Фушигуро, ищущего проклятый амулет. Опасная вещь оказывается в школьном клубе оккультных исследований, в котором состоит Юдзи, и друзья юноши (   Читать дальше...   )Производство: MAPPAЖанр: Приключения, фэнтези, сёнэнРежиссер: Пак Сон ХуСубтитры: РусскиеПродолжительность: 24 серии по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF8E0A1D2C3304954B67C7963792015350FC021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842487   (647386) от 06.07.2016
-
-Free! Eternal Summer / Вольный! Вечное лето [2014, TV, 13 + 1sp] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая вода голубых дорожек снова свела вместе старых знакомых и привлекла в привычную компанию новые лица. Вернувшись домой, Рин Мацуока преодолел детскую обиду на Харуку Нанасэ, гения плавания, которого не волнуют победные очки и секунды. К радости друзей и сестры, недостойное чувство зависти сменилось здоровым личным и спортивным соперничеством. Теперь Рин – (   Читать дальше...   )Жанр: повседневность, спортРежиссер: Уцуми Хироко / Utsumi Hiroko / 内海紘子Продолжительность: 13 серий + 1 спэшл по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B152186456B98D05BDFF00B7396F2ED48C0D690D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032235   (645360) от 07.07.2016
-
-Boku dake ga Inai Machi | Erased | Город, в котором меня нет [2016, TV, 12] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сатору Фудзинума – типичный великовозрастный неудачник. В 29 лет куют состояния – а он зарабатывает гроши доставкой пиццы и рисует мангу, которая никому особо не нужна. Однако не все лежит на поверхности. Невыразительный парень владеет чудесной способностью «возрождения», что позволяет вернуться назад во времени и предотвратить смертельную опасность, грозящую кому-то (   Читать дальше...   )Жанр: триллер, драмаРежиссер: Ито Томохико / Itou Tomohiko / 伊藤智彦Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B057364F77985330D1FDD74D062316D9531E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541745   (642723) от 04.04.2022
-
-100-man no Inochi no Ue ni Ore wa Tatte Iru | I'm Standing on a Million Lives | Я стою на миллионе трупов [2020, TV, 24 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёцуя - простой школьник, которому ничего не интересно в жизни, кроме как играть дома в игры. Каждый день он стремился поскорее уйти и заняться любимым делом. Однако однажды, задержавшись на дежурстве, парень вдруг оказался в каком-то ином мире. Впрочем, новая реальность сильно напоминает игру.Производство: Студия Maho FilmЖанр: приключения, фэнтезиРежиссер: Хабара КумикоПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFF64FD4B48B2E3CC4AA9E6ADDAF7CB79EB6D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032950   (641900) от 09.07.2016
-
-Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера-тян [2015, TV, 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641900.jpg" />
-</div>
-
-
-###  Подробнее
-
-История разворачивается вокруг девочки по имени Сомера. Она — хранительница таинственных магических сил, а также причина различных комедийных ситуаций, происходящих с ней и её друзьями.Производство: Студия Seven / セブンЖанр: комедияРежиссер: Имадзаки ИцукиЯзык субтитров: Русский (отключаемый)Продолжительность: 13 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35862875CFD31BD6C93307BDDB288AD807FC9732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518488   (640592) от 04.07.2012
-
-Asa made Jugyou Chu! / See Me After Class! / Дополнительные занятия до утра! [2012, OVA, 1ep] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юки Кагами наконец-таки поступил в Академию своей мечты! Только почему-то в женское отделение...
-Теперь у парня лишь два пути: прикинуться девкой или со свистом покинуть учебное заведение.
-Юки Кагами достает мамину косметичку...
-© AnimemagaЖанр: комедия, эттиРежиссер: Канадзава Хиромицу / Kanazawa Hiromitsu / 金澤洪充Продолжительность: 1 эп., 30 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DE04AB616C0276194202319DF03C9EF235C525
 ```
 
 https://mybot314.ru/tekegram_catalog/

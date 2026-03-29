@@ -1,3 +1,114 @@
+###  Публикация: 1263534   (288123) от 19.11.2018
+
+NXPowerLite Desktop 8 v8.0.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с NXPowerLite Desktop - программой для дополнительного сжатия файлов PDF, Microsoft Office, JPEG-картинок , с целью уменьшения размера для последующей их пересылки по электронной почте в виде вложений. Особенно эффективна программа при сжатии pdf-документов, офисных файлов и картинок.
+
+Оптимизированные файлы сохраняют исходный формат и остаются полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2018Разработчик: Neuxpower Solutions LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский, Японский и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527DADB10E613B72EA212BF39DF44B513F90C99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186152   (288109) от 24.11.2017
+
+iMazing 2.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288109.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2017Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D31B693EB5DBF2A3377C30E65FDA4372574EC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263522   (288017) от 19.11.2018
+
+Submerge 3 v3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
+
+Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2018Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C91EDF331047D1F932A3E35CAC8D0D1A298134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263529   (288014) от 19.11.2018
+
+Athentech Perfectly Clear Complete 3.6.3.1345 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2018Разработчик: AthentechПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1BC4312D69292AA08F3AFB67C6B2BBFC3D53D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263271   (288013) от 19.11.2018
 
 Enolsoft PDF Creator 4.0.0 [En]
@@ -6,7 +117,7 @@ Enolsoft PDF Creator 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288013.jpg" />
+  <img src="Z:/picture/008/save_picture_288013.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ BetterTouchTool 2.660 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288006.jpg" />
+  <img src="Z:/picture/008/save_picture_288006.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ Remotix VNC & RDP 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287983.jpg" />
+  <img src="Z:/picture/008/save_picture_287983.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ SnapNDrag Pro - organize and edit screenshot 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287909.jpg" />
+  <img src="Z:/picture/008/save_picture_287909.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ Mellel 4 v4.2.4r5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287902.jpg" />
+  <img src="Z:/picture/008/save_picture_287902.jpg" />
 </div>
 
 
@@ -143,7 +254,7 @@ TextSoap 8 v8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287899.jpg" />
+  <img src="Z:/picture/008/save_picture_287899.jpg" />
 </div>
 
 
@@ -169,7 +280,7 @@ iA Writer 5.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287884.jpg" />
+  <img src="Z:/picture/008/save_picture_287884.jpg" />
 </div>
 
 
@@ -195,7 +306,7 @@ JixiPix Premium Pack 1.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287875.jpg" />
+  <img src="Z:/picture/008/save_picture_287875.jpg" />
 </div>
 
 
@@ -221,7 +332,7 @@ Movavi Screen Recorder 10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287826.jpg" />
+  <img src="Z:/picture/008/save_picture_287826.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ Mach Desktop 3 v3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287821.jpg" />
+  <img src="Z:/picture/008/save_picture_287821.jpg" />
 </div>
 
 
@@ -273,7 +384,7 @@ App Cleaner & Uninstaller Pro 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287813.jpg" />
+  <img src="Z:/picture/008/save_picture_287813.jpg" />
 </div>
 
 
@@ -302,7 +413,7 @@ Mountain Duck 2.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287805.jpg" />
+  <img src="Z:/picture/008/save_picture_287805.jpg" />
 </div>
 
 
@@ -331,7 +442,7 @@ Path Finder 9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287738.jpg" />
+  <img src="Z:/picture/008/save_picture_287738.jpg" />
 </div>
 
 
@@ -357,7 +468,7 @@ SiteSucker 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287695.jpg" />
+  <img src="Z:/picture/008/save_picture_287695.jpg" />
 </div>
 
 
@@ -386,7 +497,7 @@ Corel Painter 2017 (16.1.0.456) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287582.jpg" />
+  <img src="Z:/picture/008/save_picture_287582.jpg" />
 </div>
 
 
@@ -413,7 +524,7 @@ A Better Finder Rename 10.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287460.jpg" />
+  <img src="Z:/picture/008/save_picture_287460.jpg" />
 </div>
 
 
@@ -440,7 +551,7 @@ Pixelmator 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287440.jpg" />
+  <img src="Z:/picture/008/save_picture_287440.jpg" />
 </div>
 
 
@@ -466,7 +577,7 @@ IP Scanner Pro 3.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287432.jpg" />
+  <img src="Z:/picture/008/save_picture_287432.jpg" />
 </div>
 
 
@@ -494,7 +605,7 @@ Alternote 1.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287431.jpg" />
+  <img src="Z:/picture/008/save_picture_287431.jpg" />
 </div>
 
 
@@ -523,7 +634,7 @@ Vectoraster 6.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287429.jpg" />
+  <img src="Z:/picture/008/save_picture_287429.jpg" />
 </div>
 
 
@@ -551,7 +662,7 @@ Wondershare PDFelement 6 Pro 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287409.jpg" />
+  <img src="Z:/picture/008/save_picture_287409.jpg" />
 </div>
 
 
@@ -577,7 +688,7 @@ Ableton Live Suite 9.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287367.jpg" />
+  <img src="Z:/picture/008/save_picture_287367.jpg" />
 </div>
 
 
@@ -590,114 +701,6 @@ Ableton Live Suite - это один из самых популярных сек
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C33B2E51D33E0EE7CE83CDA30C0F62680CA996D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335311   (287357) от 02.11.2019
-
-Король / The King (2019) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287357.jpg" />
-</div>
-
-
-###  Подробнее
-
-История молодого английского короля Генриха V. Взойдя на престол в мрачные времена Столетней войны, он становится одним из величайших полководцев своей эпохи.Производство: Великобритания, Венгрия, Австралия / Netflix, Plan B Entertainment, Porchlight FilmsЖанр: Драма, мелодрама, военный, биография, историяРежиссер: Дэвид МишоАктеры: Тимоти Шаламе, Джоэл Эдгертон, Роберт Паттинсон, Бен Мендельсон, Шон Харрис, Лили-Роуз Депп, Том Глинн-Карни, Томасин МакКензи, Дин-Чарльз Чепмен, Тара ФитцджеральдПеревод: Дублированный (Пифагор)Субтитры: Русские (forced, full), английские (forced, full, SDH)Продолжительность: 02:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3374D88097F957741203C9D14DCF858761925603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963557   (287153) от 08.12.2015
-
-OmniFocus Pro 2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287153.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniFocus 2: когда время — важнейший ресурс
-Многие люди никогда не задумывались над тем, каким же всё-таки ценным ресурсом они оперируют. Секунды, минуты, часы, дни — все эти единицы времени неустанно просачиваются сквозь пальцы нашей жизни. У нас остаётся два варианта: так и продолжать смотреть на зря потраченное время и жалеть или же взяться за чёткое планирование, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 декабря 2015Разработчик: The Omni GroupПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2B7E71463A140252E0C5CD51D23FA4F2B3A0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963564   (287145) от 08.12.2015
-
-PhoneRescue 2.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287145.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 октября 2015Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0CF3DB0E498A33B7125866123F817F6781BEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186220   (287122) от 24.11.2017
-
-CleanMyMac 3.9.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287122.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - Программа для очистки Mac
-CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии. CleanMyMac имеет красивый интерфейс, который не оставит равнодушным никого. Все выполнено в стандартном виде Mac OS: красиво, удобно и доступно.
-
-CleanMyMac позволяет избавиться от разнообразного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 ноября 2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5CC82B471821BF16A7C2F1A991561CD31FFD62
 ```
 
 https://mybot314.ru/tekegram_catalog/

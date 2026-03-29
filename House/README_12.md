@@ -1,3 +1,119 @@
+###  Публикация: 1110403   (852034) от 03.03.2017
+
+VA - Selected Edm Compilation 17 (2017) [MP3|320 Kbps] <Club House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852034.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pumping Guys - Everybody in the Place (Original Mix) 4:38
+002. DJ Favorite - Drop That Bass (Big Room Mix) 5:37
+003. Brasslover - This Is the Drop (Original Mix) 3:38
+004. DJ Swagygy - Back Ones Again (Original Mix) 4:23(   Читать дальше...   )Жанр: Club House, Electro HouseПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F1F7118CBEEC1172B58CB21EEC50029CF2A0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377802   (850002) от 23.04.2020
+
+VA - Sex On The Beach Summer 2020 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850002.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Modell & Mercier - For My Soul (Early Dance mix) (4:02)
+2.Folder Full - 4 Strings (Fields Forever mix) (3:11)
+3.Alexander Sander - Dubai Beach (It Hurts To Shoot mix) (3:12)
+4.Jep Neil - Muba (Give Me Your mix) (2:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB634888A51F8A436CCE16E020DB01817A4B467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111229   (848844) от 05.03.2017
+
+VA - Ibiza Electronic House Mecca Music Del Mar Club Deluxe (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugo Lanz - Back in Town 06:20
+02. Arizona Girls - Kiss Me Slow (Mike Schulz Chillhouse mix) 05:29
+03. Black Chilli Mix - Don Juan (Get Lucky Remix) 06:24
+04. Bongo Starr - Saxofonia (Riva Soul Mix) 06:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56F57E44DBECE86E9AFCC3E198F67C98C0AA102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111256   (848843) от 05.03.2017
+
+VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hopeer – Open Water 06:34
+02. Morgenklang – Broken Flowers 06:58
+03. Lars Sommerfeld – Think It 09:30
+04. Holle64 – Clapton 07:08(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799542909CE8BCCFE006DBA291805752FCCC69AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111346   (848765) от 05.03.2017
 
 VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (2017) [MP3|320 Kbps] <Progressive House>
@@ -6,7 +122,7 @@ VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (201
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848765.jpg" />
+  <img src="Z:/picture/008/save_picture_848765.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Workout & Fitness House (2020) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848420.jpg" />
+  <img src="Z:/picture/008/save_picture_848420.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848342.jpg" />
+  <img src="Z:/picture/008/save_picture_848342.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minim
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846184.jpg" />
+  <img src="Z:/picture/008/save_picture_846184.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846043.jpg" />
+  <img src="Z:/picture/008/save_picture_846043.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845398.jpg" />
+  <img src="Z:/picture/008/save_picture_845398.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845395.jpg" />
+  <img src="Z:/picture/008/save_picture_845395.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Moodmusic WMC Survival Kit (2016) [MP3|320 кб/с] <Tech House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845391.jpg" />
+  <img src="Z:/picture/008/save_picture_845391.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ed Ed - Eclectic 01 (2016) [MP3|320 кб/с] <Tech House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845297.jpg" />
+  <img src="Z:/picture/008/save_picture_845297.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845294.jpg" />
+  <img src="Z:/picture/008/save_picture_845294.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - 10 Years Stil Vor Talent (Presented By Oliver Koletzki) - 2016 [MP3|320 к�
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845201.jpg" />
+  <img src="Z:/picture/008/save_picture_845201.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845153.jpg" />
+  <img src="Z:/picture/008/save_picture_845153.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844853.jpg" />
+  <img src="Z:/picture/008/save_picture_844853.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
+  <img src="Z:/picture/008/save_picture_843571.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843386.jpg" />
+  <img src="Z:/picture/008/save_picture_843386.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843302.jpg" />
+  <img src="Z:/picture/008/save_picture_843302.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841727.jpg" />
+  <img src="Z:/picture/008/save_picture_841727.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ ATB - Best Hits & Remixes (2000) [MP3|320 Kbps] <House, Progressive House,Trance
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841237.jpg" />
+  <img src="Z:/picture/008/save_picture_841237.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840971.jpg" />
+  <img src="Z:/picture/008/save_picture_840971.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839450.jpg" />
+  <img src="Z:/picture/008/save_picture_839450.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ VA - Extreme Sports Music Vol 3 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839440.jpg" />
+  <img src="Z:/picture/008/save_picture_839440.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839333.jpg" />
+  <img src="Z:/picture/008/save_picture_839333.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F26D484FF73648651D515C40366C302DA942EE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112973   (838548) от 11.03.2017
-
-VA - Dumbbell Training Overcome Your Weakness (2017) [MP3|320 Kbps] <Deep House, Electronic, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lucifah - Learn 03:36
-002. Martin Pool - Comples 02:58
-003. Joel Fuel - Stage 03:37
-004. Interfacer - Charge 04:41(   Читать дальше...   )Жанр: Deep House, Electronic, ProgressiveПродолжительность: 06:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382CB1F55A7A7117C034C63CF4D61B32CFECE853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113595   (836820) от 12.03.2017
-
-VA - WMC Miami Pool Beats 2017 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acoustic Novels – Everybody’s Got To Learn Sometime
-02. Soul Chap – Letting Go
-03. Akjela – Steh Auf
-04. Race Corner – Floating Tank(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2234B4CA285BC6DC4EB360F881287A4051EE11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113654   (836716) от 12.03.2017
-
-VA - Dont Worry Be Sexy Vol.1: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Stoner - Paradise Fantasy - Original Mix
-02. Robert Owner - Big One - Original Mix
-03. Chile Lavern - Milky Way - Original Mix
-04. Kay Christopher - Kalimba - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730F2EE4767155349D5FA08349E66D55ACEFA4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379836   (836378) от 01.05.2020
-
-VA - Southbeat Music Pres: Gym Music Motivation (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project 91 And Enyo - Amigos
-02. Manuel Costa And Oscat - Out Of Control
-03. Mirro And WDBS - Land Dance
-04. Van Snyder - For You(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8764CD84E86FBA64CD5FAEC24BCCCB107B6B9824
 ```
 
 https://mybot314.ru/tekegram_catalog/

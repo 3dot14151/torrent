@@ -1,3 +1,81 @@
+###  Публикация: 1552304   (577494) от 30.05.2022
+
+Дочь дьявола / La fille du diable (Devil’s Daughter) (1946) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_577494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуемого полицией грабителя Саже по доброте душевной подсаживает к себе в машину возвращающийся в родные края из Америки Людовик Мерсье. Но на ночной дороге автомобиль, управляемый изрядно набравшимся по случаю возвращения на родину репатриантом, терпит аварию. Мерсье погибает, а чудом выживший Саже присваивает себе его личность. В маленьком провинциальном городке (   Читать дальше...   )Производство: Франция, Pathé Consortium Cinéma, Safia, Société Nouvelle Pathé CinémaЖанр: ДрамаРежиссер: Анри ДекуанАктеры: Пьер Френе, Фернан Леду, Тереза Дорни, Пьер Жювене, Роберт Селер, Поль Франкёр, Николас Амато, Андре Васле, Альберт Гладо, Франсуа ПатрисПеревод: Авторский (Андрей Дольский)Субтитры: отсутствуютПродолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7402BA03EBC535C0AEC1D9B9D6C698D17620597D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916514   (577002) от 24.07.2015
+
+Доктор Голдфут и девушки-бомбы / Le spie vengono dal semifreddo (1966) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_577002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Голдфут вновь планирует захватит весь мир. На этот раз с помошью обворожительных девушек-роботов, начинённых взрывными устройствами.Производство: Италия, США / American International Pictures (AIP), Italian International FilmЖанр: Фантастика, комедия, приключенияРежиссер: Марио БаваАктеры: Винсент Прайс, Фабиан, Франко Франки, Чиччо Инграссия, Франческо Мулэ, Лаура Антонелли, Эннио Антонелли, Марио Бава, Луис М. ХэйардПеревод: Одноголосый закадровый (ССК+)Субтитры: ОтсутствуютПродолжительность: 01:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CA91D3E1541CCE5272972B9F520217A6285997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917832   (576903) от 24.07.2015
+
+Смертельная охота / Death Hunt (1981) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_576903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Скалистых горах во время собачьих боев Альберт Джонсон спасает от толпы полумертвого пса, набив морду его хозяину. Тот собирается ему отомстить, но неудачно. Нескольких человек Джонсон подстрелил. Местный представитель закона, крутой Эдгар Миллен, вынужден устроить на Джонсона охоту, хотя и подозревает, что тот невиновен. К охоте присоединяются все любители повеселиться. (   Читать дальше...   )Производство: США, ГонконгЖанр: Боевик, приключения, криминалРежиссер: Питер Р. ХантАктеры: Чарльз Бронсон, Ли Марвин, Эндрю Стивенс, Карл Уэзерс, Эд Лотер, Скотт Хайлендс, Энджи Дикинсон, Генри Бекман, Уильям Сэндерсон, Джон Седар, Джеймс О’Коннелл, Лен Лессер, Ричард Давалос, Мори Чайкин, Аугуст Шелленберг, Дэннис Уоллес, Джеймс МакИнтайр, Рэйфорд Барнс, Шон МакКэнн, Стив Финкел, Дэнис Лакруа, Танту Кардинал, Эми Мари ДжорджПеревод: Профессиональный многоголосыйПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478B11A2007C19E7B643D212A5CA60931BF87B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918685   (576781) от 24.07.2015
 
 Поднять Титаник / Raise the Titanic (1980) DVDRip [AVO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576781.jpg" />
+  <img src="Z:/picture/008/save_picture_576781.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576681.jpg" />
+  <img src="Z:/picture/008/save_picture_576681.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576678.jpg" />
+  <img src="Z:/picture/008/save_picture_576678.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576201.jpg" />
+  <img src="Z:/picture/008/save_picture_576201.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576141.jpg" />
+  <img src="Z:/picture/008/save_picture_576141.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576025.jpg" />
+  <img src="Z:/picture/008/save_picture_576025.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575561.jpg" />
+  <img src="Z:/picture/008/save_picture_575561.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574732.jpg" />
+  <img src="Z:/picture/008/save_picture_574732.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574724.jpg" />
+  <img src="Z:/picture/008/save_picture_574724.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574590.jpg" />
+  <img src="Z:/picture/008/save_picture_574590.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574204.jpg" />
+  <img src="Z:/picture/005/save_picture_574204.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573824.jpg" />
+  <img src="Z:/picture/008/save_picture_573824.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573807.jpg" />
+  <img src="Z:/picture/008/save_picture_573807.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573648.jpg" />
+  <img src="Z:/picture/008/save_picture_573648.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573497.jpg" />
+  <img src="Z:/picture/008/save_picture_573497.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573444.jpg" />
+  <img src="Z:/picture/008/save_picture_573444.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573357.jpg" />
+  <img src="Z:/picture/008/save_picture_573357.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573055.jpg" />
+  <img src="Z:/picture/008/save_picture_573055.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572588.jpg" />
+  <img src="Z:/picture/008/save_picture_572588.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572492.jpg" />
+  <img src="Z:/picture/008/save_picture_572492.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572347.jpg" />
+  <img src="Z:/picture/008/save_picture_572347.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572147.jpg" />
+  <img src="Z:/picture/008/save_picture_572147.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572014.jpg" />
+  <img src="Z:/picture/008/save_picture_572014.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918489   (571677) от 27.07.2015
-
-Шинэндоа / Shenandoah (1965) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место и время действия: Вирджиния в эпоху Гражданской войны. Герой фильма отказывается поддерживать конфедератов, он против рабства, однако не хочет становиться и на сторону северян, так как совершенно не приемлет войны. Когда его сын попадает в плен, Стюарт отправляется на поиски мальчика. Теперь он собственными глазами видит ужасы войны и в результате вынужден (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Драма, Вестерн, ВоенныйРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Даг МакКлёр, Гленн Корбетт, Патрик Уэйн, Розмари Форсайт, Филлип Элфорд, Кэтрин Росс, Чарльз Робинсон, Джим МакМуллан, Тим МакИнтайрПеревод: Многоголосый закадровый, Петербург 5-й КаналСубтитры: ОтсутствуютПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E32D27E19CF2AEED5429F21547FA6BC65D79699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916715   (571634) от 27.07.2015
-
-Великий Уолдо Пеппер / The Great Waldo Pepper (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшабашный Уолдо Пеппер, лётчик-ас Первой мировой войны, зарабатывает на жизнь выступлениями на авиашоу. Но однажды он встречает в небе своего старого противника — немецкого пилота Эрнста Кесслера…Производство: СШАЖанр: Приключения, драмаРежиссер: Джордж Рой ХиллАктеры: Роберт Редфорд, Бо Свенсон, Бо Брандин, Сьюзен Сарандон, Эдвард Херрманн, Филип Бранс, Родерик Кук, Келли Джина Питерс, Марго Киддер, Скотт Ньюман, Джеймс Н. Харрелл, Джо Биллингс, Джек Мэннинг, Лоуренс П. Кэйси, Арт ШолльПеревод: Профессиональный многоголосыйПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0550E1556FBD9BA9ACCEC02511D0F09CFB237A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918368   (571428) от 27.07.2015
-
-Орел или Решка / Pari e dispari (1978) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571428.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как лейтенанта Джонни Фирпо лишает победы спортивная мафия, подстроив поломку мотора скутера, терпению командования военно-морских сил приходит конец. Джонни посылают разобраться с игорной мафией, проникшей во все спортивные мероприятия во Флориде. И неоценимую помощь в этом деле ему окажет его брат Чарли...Производство: ИталияЖанр: Комедия, криминалРежиссер: Серджио КорбуччиАктеры: Теренс Хилл, Бад Спенсер, Лучано Катеначчи, Мариса Лаурито, Ким МакКэй, Сальваторе Боргезе, Джерри Лестер, Вуди Вудбери, Карло Реали, Риккардо ПиццутиПеревод: Профессиональный многоголосыйПродолжительность: 01:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BF66CA65CBB473B6CC145CD2255031BBC00955
 ```
 
 https://mybot314.ru/tekegram_catalog/

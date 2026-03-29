@@ -6,7 +6,7 @@ Shadowgate v. 1.2.5966 (2014) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641482.jpg" />
+  <img src="Z:/picture/008/save_picture_641482.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TRI. Of Friendship and Madness 2.4.0.16 (1.0.4) (2014) [Multi/Ru] [OS X Native g
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639537.jpg" />
+  <img src="Z:/picture/008/save_picture_639537.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Yooka-Laylee (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638721.jpg" />
+  <img src="Z:/picture/008/save_picture_638721.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Dead Synchronicity: Tomorrow Comes Today v.1.0.6 (2015) [Multi/Ru] [OS X Native 
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635805.jpg" />
+  <img src="Z:/picture/008/save_picture_635805.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Grim Fandango Remastered v1.2.2 (2015) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635687.jpg" />
+  <img src="Z:/picture/008/save_picture_635687.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sphinx and the Cursed Mummy v2018.05.23 (2018) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629962.jpg" />
+  <img src="Z:/picture/008/save_picture_629962.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Where The Water Tastes Like Wine v1.4.21207 (2018) [Multi/Ru] [macOS Native game
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624357.jpg" />
+  <img src="Z:/picture/008/save_picture_624357.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623409.jpg" />
+  <img src="Z:/picture/008/save_picture_623409.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Flyhunter Origins v. 1.0 (2014) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621658.jpg" />
+  <img src="Z:/picture/008/save_picture_621658.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Aaru's Awakening v. 1.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621653.jpg" />
+  <img src="Z:/picture/008/save_picture_621653.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Monochroma v. 1.0 (2014) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621556.jpg" />
+  <img src="Z:/picture/008/save_picture_621556.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ The Mooseman / Человеколось (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618594.jpg" />
+  <img src="Z:/picture/008/save_picture_618594.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Tales from the Borderlands: Episode 1-2-3 v.1.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610478.jpg" />
+  <img src="Z:/picture/008/save_picture_610478.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Save Koch (2019) [En/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608276.jpg" />
+  <img src="Z:/picture/008/save_picture_608276.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Tengami v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606828.jpg" />
+  <img src="Z:/picture/008/save_picture_606828.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hue (2016) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604113.jpg" />
+  <img src="Z:/picture/008/save_picture_604113.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Clocker v1.1.0 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602630.jpg" />
+  <img src="Z:/picture/008/save_picture_602630.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tomb Raider: Anniversary (2007) [Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597785.jpg" />
+  <img src="Z:/picture/008/save_picture_597785.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rayman Origins 1.0.1 (2014) [Multi/Ru] [App Store]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589621.jpg" />
+  <img src="Z:/picture/008/save_picture_589621.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lost Sea v.1.0.1 (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587214.jpg" />
+  <img src="Z:/picture/008/save_picture_587214.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lumo v.1.06.27 (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580335.jpg" />
+  <img src="Z:/picture/008/save_picture_580335.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Legend of Kay — Anniversary v. 1.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564434.jpg" />
+  <img src="Z:/picture/008/save_picture_564434.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Violett Remastered v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564430.jpg" />
+  <img src="Z:/picture/008/save_picture_564430.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Anna's Quest v. 2.0.01 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564387.jpg" />
+  <img src="Z:/picture/008/save_picture_564387.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Nightmares from the Deep: The Cursed Heart v1.4.7278 [Multi/Ru] [macOS Native ga
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562135.jpg" />
+  <img src="Z:/picture/008/save_picture_562135.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Layers of Fear v.1.1.0/dlc (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560992.jpg" />
+  <img src="Z:/picture/008/save_picture_560992.jpg" />
 </div>
 
 

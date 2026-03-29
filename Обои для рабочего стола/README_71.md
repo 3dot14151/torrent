@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292970.jpg" />
+  <img src="Z:/picture/008/save_picture_292970.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292849.jpg" />
+  <img src="Z:/picture/008/save_picture_292849.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291224.jpg" />
+  <img src="Z:/picture/008/save_picture_291224.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291111.jpg" />
+  <img src="Z:/picture/008/save_picture_291111.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291025.jpg" />
+  <img src="Z:/picture/008/save_picture_291025.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290075.jpg" />
+  <img src="Z:/picture/008/save_picture_290075.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289491.jpg" />
+  <img src="Z:/picture/008/save_picture_289491.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288002.jpg" />
+  <img src="Z:/picture/008/save_picture_288002.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287999.jpg" />
+  <img src="Z:/picture/008/save_picture_287999.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287833.jpg" />
+  <img src="Z:/picture/008/save_picture_287833.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287827.jpg" />
+  <img src="Z:/picture/008/save_picture_287827.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287822.jpg" />
+  <img src="Z:/picture/008/save_picture_287822.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287809.jpg" />
+  <img src="Z:/picture/008/save_picture_287809.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287323.jpg" />
+  <img src="Z:/picture/008/save_picture_287323.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287316.jpg" />
+  <img src="Z:/picture/008/save_picture_287316.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287136.jpg" />
+  <img src="Z:/picture/008/save_picture_287136.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286982.jpg" />
+  <img src="Z:/picture/008/save_picture_286982.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Desktop Wallpapers Full HD. Part (513) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286005.jpg" />
+  <img src="Z:/picture/008/save_picture_286005.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (272) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285998.jpg" />
+  <img src="Z:/picture/008/save_picture_285998.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (277) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285995.jpg" />
+  <img src="Z:/picture/008/save_picture_285995.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (271) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285991.jpg" />
+  <img src="Z:/picture/008/save_picture_285991.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Desktop Wallpapers Full HD. Part (520) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285982.jpg" />
+  <img src="Z:/picture/008/save_picture_285982.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Desktop Wallpapers Full HD. Part (518) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285978.jpg" />
+  <img src="Z:/picture/008/save_picture_285978.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (276) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285973.jpg" />
+  <img src="Z:/picture/008/save_picture_285973.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (273) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285844.jpg" />
+  <img src="Z:/picture/008/save_picture_285844.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (275) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285843.jpg" />
+  <img src="Z:/picture/008/save_picture_285843.jpg" />
 </div>
 
 

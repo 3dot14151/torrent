@@ -1,3 +1,90 @@
+###  Публикация: 1177761   (355931) от 28.10.2017
+
+Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Testament записанное в "The Paramount" (Хантингтон, США) 15.02.2013 и выпущенное на DVD/Blu-Ray 15.10.20131. Intro
+2. Rise Up
+3. More Than Meets The Eye
+4. Burnt Offerings(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178133   (355640) от 28.10.2017
+
+Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Kreator на Wacken Open Air в 2014 году, вошедшее в состав специального издания альбома Gods Of Violence на DVD и Blu-Ray01. Mars Mantra
+02. Phantom Antichrist
+03. From Flood Into Fire
+04. Warcurse(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0566A4843182D902D037F1BEF090A6E8326BF885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178581   (353693) от 29.10.2017
+
+Anthrax - Chile On Hell 2013 (2014) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Anthrax В Teatro Caupolican (Сантьяго, Чили) 10 мая 2013 года. Выпущен на DVD/Blu-Ray 16 сентября 2014.01. Among The Living
+02. Caught In A Mosh
+03. I Am The Law
+04. Chile On Hell(   Читать дальше...   )Производство: Megaforce Records (USA)Жанр: Thrash Metal/Heavy MetalПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB627656308B7C283F9B52D90F022C79504352B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178642   (353316) от 29.10.2017
 
 Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
@@ -6,7 +93,7 @@ Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353316.jpg" />
+  <img src="Z:/picture/008/save_picture_353316.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Eric Clapton's: Crossroads Guitar Festival (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352296.jpg" />
+  <img src="Z:/picture/008/save_picture_352296.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Roger Waters -The Wall Show ( London O2 Arena 5/02/2011 )(Pink Floyd Reunite) (2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352091.jpg" />
+  <img src="Z:/picture/005/save_picture_352091.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Hugh Laurie: Let Them Talk. A Celebration of New Orleans Blues (2011) [1080i] HD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351739.jpg" />
+  <img src="Z:/picture/008/save_picture_351739.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ U.D.O. - Live in Sofia (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_350081.jpg" />
+  <img src="Z:/picture/005/save_picture_350081.jpg" />
 </div>
 
 
@@ -156,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350011.jpg" />
+  <img src="Z:/picture/008/save_picture_350011.jpg" />
 </div>
 
 
@@ -182,7 +269,7 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349051.jpg" />
+  <img src="Z:/picture/008/save_picture_349051.jpg" />
 </div>
 
 
@@ -211,7 +298,7 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348902.jpg" />
+  <img src="Z:/picture/008/save_picture_348902.jpg" />
 </div>
 
 
@@ -240,7 +327,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347882.jpg" />
+  <img src="Z:/picture/008/save_picture_347882.jpg" />
 </div>
 
 
@@ -269,7 +356,7 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347605.jpg" />
+  <img src="Z:/picture/008/save_picture_347605.jpg" />
 </div>
 
 
@@ -298,7 +385,7 @@ Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347464.jpg" />
+  <img src="Z:/picture/008/save_picture_347464.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346683.jpg" />
+  <img src="Z:/picture/008/save_picture_346683.jpg" />
 </div>
 
 
@@ -350,7 +437,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346437.jpg" />
+  <img src="Z:/picture/008/save_picture_346437.jpg" />
 </div>
 
 
@@ -379,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345694.jpg" />
+  <img src="Z:/picture/008/save_picture_345694.jpg" />
 </div>
 
 
@@ -408,7 +495,7 @@ P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343257.jpg" />
+  <img src="Z:/picture/008/save_picture_343257.jpg" />
 </div>
 
 
@@ -437,7 +524,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342321.jpg" />
+  <img src="Z:/picture/005/save_picture_342321.jpg" />
 </div>
 
 
@@ -463,7 +550,7 @@ The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340047.jpg" />
+  <img src="Z:/picture/005/save_picture_340047.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339756.jpg" />
+  <img src="Z:/picture/005/save_picture_339756.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339623.jpg" />
+  <img src="Z:/picture/005/save_picture_339623.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338417.jpg" />
+  <img src="Z:/picture/008/save_picture_338417.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Eric Clapton: Planes, Trains and Eric (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336903.jpg" />
+  <img src="Z:/picture/008/save_picture_336903.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335245.jpg" />
+  <img src="Z:/picture/008/save_picture_335245.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335218.jpg" />
+  <img src="Z:/picture/008/save_picture_335218.jpg" />
 </div>
 
 
@@ -654,85 +741,6 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D056BC4D21190D0530F714C74A4AED28FE83AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331035   (334852) от 13.10.2019
-
-Квартирник НТВ у Маргулиса. Группа A’Studio (12.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — поп-группа A’Studio. Музыканты вспомнили, как играли на разогреве у самого Элтона Джона, рассказали истории из непрекращающейся гастрольной жизни, исполнили со зрителями свои песни, а также не забыли про свой главный хит — композицию «Улетаю».
-Участники A’Studio рассказали, с чего начался их творческий путь, какими были их самые необычные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258050   (334346) от 31.10.2018
-
-Квартирник на НТВ у Маргулиса. Денис Мажуков (10.27.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334346.jpg" />
-</div>
-
-
-###  Подробнее
-
-На легендарном «Квартирнике» побывал Денис Мажуков, который подарил зрителям незабываемый концерт с зажигательными ритмами. Музыкант рассказал, как началось его увлечение рок-н-роллом и когда состоялся его дебют на телевидении. Евгений Маргулис узнал у звездного гостя, как ему удалось сделать выбор в жизни между спортом и музыкой. Денис вспомнил, что травма ноги (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3A9D77B76412A22F8FFFC36DE93B6B1A5D91F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955568   (333786) от 11.11.2015
-
-Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живое выступление на канале BBC Radio 2 в январе 2013Жанр: МузыкальныйАктеры: Bon JoviПеревод: ОтсутствуетПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770E39A1483A71B4593D44710B249A30DF01DB7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

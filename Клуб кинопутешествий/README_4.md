@@ -1,3 +1,55 @@
+###  Публикация: 971868   (984556) от 04.01.2016
+
+С миру по нитке. Аргентина (2015) HDTVRip [720p-LQ] [Серии: 1-4 из 4]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редко встретишь человека, который бы не хотел посмотреть мир. Но чаще встречают те, у кого есть огромное желание попутешествовать, но не хватает финансов на дорогостоящие туры, а обычные отели не по карману. Проект «С миру по нитке» поможет нам. Авторы и ведущие программы для путешественников расскажут и покажут, как отдохнуть в разных уголках планеты без больших (   Читать дальше...   )Телекомпания: МИР ТВЖанр: ТелепередачаПродолжительность: каждая серия ~ 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0D82A0028037BF88F71D1DC62FC9D3C80D909A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972029   (984275) от 04.01.2016
+
+Еврейское счастье (2016.01.04) SATRip (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Израиль: - явление парадоксальное. С одной стороны, это молодая страна, которой ещe нет семидесяти лет. В то же время израильтяне несут тяжкий груз многовековой истории, основанной по большей части на мифологии. Всe это - правда и вымысел, история и современность - переплетается в пространстве одного города. На протяжении всей истории Иерусалим был для евреев символом (   Читать дальше...   )Владимир Познер и Иван Ургант отправляются в очередное путешествие. На этот раз по Земле Обетованной.Телекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E69083182DB6F7E58A3B3EB2809979771E3130E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355548   (983445) от 26.01.2020
 
 Живой Меконг / Mekong ALive (2011) HDTVRip (серии 1-5 из 5)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983445.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983345.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983014.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983008.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981807.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981448.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980659.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980239.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980158.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980099.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978119.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977880.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977688.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976797.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975678.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975642.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973342.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973090.jpg" />
 </div>
 
 
@@ -496,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971939.jpg" />
 </div>
 
 
@@ -524,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971691.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970881.jpg" />
 </div>
 
 
@@ -576,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970820.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970374.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964558.jpg" />
 </div>
 
 
@@ -639,60 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92481597427B77ADB65AEAB413832C88BB718825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359679   (964186) от 12.02.2020
-
-Приключение в Большом каньоне 3D: Река в опасности / Grand Canyon Adventure: River at Risk (2008) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающий документальный фильм, который рассказывает зрителю об угрозе, нависшей над одним из главных пейзажных символов Америки. Вы увидите великую реку Колорадо, которая напомнит нам о самой гнетущей современной проблеме окружающей среды – нарастающая нехватка пресной воды во всем мире. Присоединитесь к адвокатам, занимающимся защитой окружающей среды, - Роберту (   Читать дальше...   )Производство: США, MacGillivray Freeman Films, TevaЖанр: Документальный, природа, путешествияРежиссер: Грег МакГилвриПеревод: Двуголосый закадровый, профессиональныйСубтитры: Английские, французские (полные, форсированные), итальянские (полные, форсированные), испанские (полные, форсированные), чешские (полные, форсированные), датские, финские, греческие, венгерские, норвежские, польские, португальские (полные, форсированные), русские (полные, форсированные), шведские, турецкие.Продолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3FB97262D155CFF14FD2187B35F5849FA6B924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747380   (962774) от 19.01.2014
-
-Россия от края до края. Большой Кавказ (2014.01.19) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличительная особенность Большого Кавказа - многообразие ландшафтов Это тысячелетние ледники и горные ущелья, альпийские луга и бескрайние степи, пески Сарыкума - самой большой песчаной дюны Евразии.
-Первобытные леса начинаются в нескольких десятках километров от знаменитых черноморских курортов.
-Биологи считают Кавказ одним из самых богатых по разнообразию видов (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ДокументальныйПродолжительность: ~ 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B02FA013A5CE63CD170BEB1CCA0CA9608F9183
 ```
 
 https://mybot314.ru/tekegram_catalog/

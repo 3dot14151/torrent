@@ -1,3 +1,32 @@
+###  Публикация: 1281772   (749923) от 09.02.2019
+
+Eric Gales - The Bookends (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749923.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:55] 1 - Intro
+[4:20] 2 - Something's Gotta Give
+[3:28] 3 - Whatcha Gon' Do
+[4:21] 4 - It Just Beez That Way(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E54DE375CFAD1E7BC873850778343A16A41FE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216609   (749423) от 31.03.2018
 
 Livin' Blues - Hitch-Hickin (Collection) (2010) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -6,7 +35,7 @@ Livin' Blues - Hitch-Hickin (Collection) (2010) [MP3|320 Kbps] <Blues, Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749423.jpg" />
+  <img src="Z:/picture/008/save_picture_749423.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bridget Kelly Band - Forever In Blues (2014) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748639.jpg" />
+  <img src="Z:/picture/008/save_picture_748639.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Thomas David Gibson - The Way She Change (2016) [MP3|320 кб/с] <Blues-Rock, S
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748573.jpg" />
+  <img src="Z:/picture/008/save_picture_748573.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ John Lee Hooker - The Big Soul of John Lee Hooker (Bonus Track Version) (2016) [
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748561.jpg" />
+  <img src="Z:/picture/008/save_picture_748561.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Little Boys Blue - Tennissippi (2016) [MP3|320 кб/с] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743889.jpg" />
+  <img src="Z:/picture/008/save_picture_743889.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ John Verity - My Religion (2016) [MP3|320 кб/с] <Blues, Blues Rock, Classic R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742508.jpg" />
+  <img src="Z:/picture/008/save_picture_742508.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ James O'Neill and the Silver Shadows - A Little Bit More Than the Blues (2016) [
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742506.jpg" />
+  <img src="Z:/picture/008/save_picture_742506.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Albert Castiglia - Big Dog (2016) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742501.jpg" />
+  <img src="Z:/picture/008/save_picture_742501.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ John Verity Band - Routes (2004) [MP3|320 кб/с] <Blues Rock, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742497.jpg" />
+  <img src="Z:/picture/008/save_picture_742497.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Stumble - The Other Side (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742448.jpg" />
+  <img src="Z:/picture/008/save_picture_742448.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Lisa Mann - Hard Times, Bad Decisions (2016) [MP3|320 кб/с] <Modern Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742433.jpg" />
+  <img src="Z:/picture/008/save_picture_742433.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Edward Hartline - Edward Hartline - Human Nature (2015) [MP3|320 Kbps] <Blues, F
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742393.jpg" />
+  <img src="Z:/picture/008/save_picture_742393.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sam Green and the Midnight Heist - Onsette Return (2018) EP [MP3|320 Kbps] <Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742263.jpg" />
+  <img src="Z:/picture/008/save_picture_742263.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Piano Blues (2018) [MP3|320 Kbps] <Blues, Piano Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742136.jpg" />
+  <img src="Z:/picture/008/save_picture_742136.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Tony Joe White - Rain Crow (2016) [MP3|320 кб/с] <Blues Rock, Country>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742070.jpg" />
+  <img src="Z:/picture/008/save_picture_742070.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Marc Lelangue Trio - Lost in the Blues (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741074.jpg" />
+  <img src="Z:/picture/008/save_picture_741074.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Tandem Unicycle - Tandem Unicycle (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741015.jpg" />
+  <img src="Z:/picture/008/save_picture_741015.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ulrich Ellison And Tribe - America (2017) [MP3|320 Kbps] <Blues-Rock, 70's Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741006.jpg" />
+  <img src="Z:/picture/008/save_picture_741006.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Kate Lush Band - Let It Fly (2017) [MP3|320 Kbps] <Blues, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741001.jpg" />
+  <img src="Z:/picture/008/save_picture_741001.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Alex Parche Band - Get Down To Business (1999) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740987.jpg" />
+  <img src="Z:/picture/008/save_picture_740987.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Daryl Hance - Wild Blue Iris (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740986.jpg" />
+  <img src="Z:/picture/008/save_picture_740986.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Dan Patlansky - 2 Альбома (2006, 2012) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740980.jpg" />
+  <img src="Z:/picture/008/save_picture_740980.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Janiva Magness - Love Wins Again (2016) [MP3|320 кб/с] <Modern Electric Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740895.jpg" />
+  <img src="Z:/picture/008/save_picture_740895.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740688.jpg" />
+  <img src="Z:/picture/008/save_picture_740688.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Spencer MacKenzie - Cold November (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739363.jpg" />
+  <img src="Z:/picture/008/save_picture_739363.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Spencer MacKenzie - Cold November (2018) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE6BF963257F8F13DDD2254F30608FCAC5C6F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528953   (733529) от 04.02.2022
-
-Robertas Semeniukas Aleksandr Belkin - Amber Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby What You Want Me To Do (03:12)
- 02. Broke And Hungry (03:50)
- 03. You Gotta Move (03:58)
- 04. Blues Stay Away From Me (02:50)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73F0ACF0A5DBD79319B91ED797F71D6B19DA7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

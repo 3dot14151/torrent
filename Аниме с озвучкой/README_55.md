@@ -1,3 +1,29 @@
+###  Публикация: 1807659   (65144) от 20.07.2025
+
+Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation | Альтернативная игра богов | Игровое гиперпространство Нептунии [2013, TV, 12 + 1] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бескрайний мир Игромании поделен на четыре державы, каждой из которых управляет могущественная богиня. До недавнего времени они вели отчаянную борьбу за Шару – долю популярности на игровом рынке, но стараниями хозяйки Планептуна, богини Пурпурное Сердце, был заключен мир. Лидеры воюющих сторон договорились не отбирать Шару друг у друга, а множить ее общими усилиями, (   Читать дальше...   )Производство: David Production / デイヴィッドプロダクションЖанр: приключения, фэнтези, комедия, фантастика, махо-сёдзёРежиссер: Мукай МасахироПеревод: Koushin & Shifroval (эп. 01-08), Shegann (эп. 09-12), Endil & Flusszerfall (спешиал)Язык озвучки: японский, русскийСубтитры: русские (полные, надписи)Продолжительность: 12 эп. по 25 мин. + 1 спешиал на 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9615B56BB27A6AC0943DD811CB644C8466C70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808665   (64911) от 26.07.2025
 
 Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница после школы [2023, TV, 13 из 13 эп.] BDRip 1080p HEVC 10-bit raw+eng+rus
@@ -6,7 +32,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64911.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62814.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62742.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62564.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62401.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62208.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62165.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62104.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62048.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62045.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Girls Bravo | Браво, девушки! [2004, TV, 11 из 11] DVDRip 480p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61959.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61944.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Girls Bravo 2 | Браво, девушки! 2 [2005, TV, 13 из 13] DVDRip 480p
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61899.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61894.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61890.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Triage X | Искусственный отбор [2015, TV, 10 из 10 + OVA] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61849.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61783.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61651.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61577.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61555.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61548.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61345.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61343.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61064.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61029.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78841EAA92E7A505A4A87BA2A1E9DFE609FBFC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690408   (61025) от 02.04.2024
-
-Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в одиночку [2024, TV, 12 из 12] WEBRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет назад по всему миру стали открываться некие «врата», ведущие в подземелья с монстрами, противостоять которым оказалось не под силу даже военным. Однако если успеть вовремя победить босса подземелья, то врата пропадут, не открывшись, и мирные люди не пострадают. Сразиться с боссом способны только избранные — люди, получившие особые силы, чтобы бороться (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: Экшен, приключения, фэнтезиРежиссер: Сюнсукэ НакадзюЯзык озвучки: Японский и русский (AniMaunt)Субтитры: ОтсутствуютПродолжительность: 13 x ~ 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B4301F2B195AE099E93DED75159E9AE48EB06D
 ```
 
 https://mybot314.ru/tekegram_catalog/

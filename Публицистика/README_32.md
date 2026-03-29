@@ -1,3 +1,85 @@
+###  Публикация: 1288246   (697864) от 10.03.2019
+
+Ц. Фридлянд (ред.) | Атеизм и борьба с церковью в эпоху Великой французской революции [Часть 1] (1933) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697864.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гораздо большей степени историки изучали великие революции последних трех столетий с социально-политической, чем с идеологической стороны. Идеология борющихся классов в революции должна стать предметом специального изучения. Ленин показал нам то огромное творческое значение, какое имеет революция для воспитания и перевоспитания классов. Революция творит, и в революции (   Читать дальше...   )Жанр: История, политология, публицистика, религиоведение, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E45090C371ED249A5707449739304BADD8FDEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402775   (697811) от 16.08.2020
+
+В. В. Маяковский | Маяковский об Америке (1952) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 1925 года Владимир Маяковский совершил длительную поездку в Соединенные Штаты Америки. Результатом этой поездки явилось значительное количество стихотворений, вошедших затем в сборник «Испания. Океан. Гаванна. Мексика. Америка» и путевые очерки «Мое открытие Америки».
+
+Стихи и путевые очерки Маяковского показывают заокеанскую капиталистическую державу во всеоружии (   Читать дальше...   )Жанр: История, политология, искусство, поэзия, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77D064713B671A50DFEEA1BF734EF72E1E30FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288154   (697765) от 10.03.2019
+
+А. А. Строков (ред.) | Уроки истории неопровержимы (1964) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697765.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Некоторые современные империалистические деятели, — говорил в докладе о 45-й годовщине Советских Вооруженных Сил Министр обороны СССР Маршал Советского Союза Р. Я. Малиновский, — с раздражением вспоминают наши напоминания о прошлом. Но что поделаешь? Страниц правды из истории не вычеркнешь!»
+
+Настоящая книга — это еще одно напоминание об уроках минувшей войны. Измышлениям (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4C882B832B419C041F4150715BC194CC197F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288138   (697495) от 10.03.2019
 
 Джереми Кларксон | Вокруг света с Кларксоном. Особенности национальной езды. 5-е изд. (2018) [FB2, EPUB]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697495.jpg" />
+  <img src="Z:/picture/008/save_picture_697495.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694188.jpg" />
+  <img src="Z:/picture/008/save_picture_694188.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694145.jpg" />
+  <img src="Z:/picture/008/save_picture_694145.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693074.jpg" />
+  <img src="Z:/picture/008/save_picture_693074.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692251.jpg" />
+  <img src="Z:/picture/008/save_picture_692251.jpg" />
 </div>
 
 
@@ -140,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688680.jpg" />
+  <img src="Z:/picture/008/save_picture_688680.jpg" />
 </div>
 
 
@@ -168,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688667.jpg" />
+  <img src="Z:/picture/008/save_picture_688667.jpg" />
 </div>
 
 
@@ -196,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687793.jpg" />
+  <img src="Z:/picture/008/save_picture_687793.jpg" />
 </div>
 
 
@@ -222,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687567.jpg" />
+  <img src="Z:/picture/008/save_picture_687567.jpg" />
 </div>
 
 
@@ -250,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686397.jpg" />
+  <img src="Z:/picture/008/save_picture_686397.jpg" />
 </div>
 
 
@@ -278,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686229.jpg" />
+  <img src="Z:/picture/008/save_picture_686229.jpg" />
 </div>
 
 
@@ -304,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684939.jpg" />
+  <img src="Z:/picture/008/save_picture_684939.jpg" />
 </div>
 
 
@@ -330,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684535.jpg" />
+  <img src="Z:/picture/008/save_picture_684535.jpg" />
 </div>
 
 
@@ -356,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684340.jpg" />
+  <img src="Z:/picture/008/save_picture_684340.jpg" />
 </div>
 
 
@@ -384,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683841.jpg" />
+  <img src="Z:/picture/008/save_picture_683841.jpg" />
 </div>
 
 
@@ -410,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682872.jpg" />
+  <img src="Z:/picture/008/save_picture_682872.jpg" />
 </div>
 
 
@@ -436,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682247.jpg" />
+  <img src="Z:/picture/008/save_picture_682247.jpg" />
 </div>
 
 
@@ -462,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682173.jpg" />
+  <img src="Z:/picture/008/save_picture_682173.jpg" />
 </div>
 
 
@@ -488,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681876.jpg" />
+  <img src="Z:/picture/008/save_picture_681876.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681434.jpg" />
+  <img src="Z:/picture/008/save_picture_681434.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681102.jpg" />
+  <img src="Z:/picture/008/save_picture_681102.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680142.jpg" />
+  <img src="Z:/picture/008/save_picture_680142.jpg" />
 </div>
 
 
@@ -594,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679275.jpg" />
+  <img src="Z:/picture/008/save_picture_679275.jpg" />
 </div>
 
 
@@ -605,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A579A234223752D899AFD460F68B79F99E5E1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290405   (678338) от 20.03.2019
-
-И. И. Толстой (отв. ред.) | Записки Юлия Цезаря (1948) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь книг "Записок" о Галльской войне (58-52 гг. до н. э.) и три книги о гражданской войне (49-48 гг. до н. э.) были написаны самим Цезарем (102 или 100-44 до н. э.), VIII книга о Галльской войне и книги об Александрийской и Африканской войнах (47-46 гг. до н. э.) - военачальниками его штаба; отсюда необычное обозначение автора. М. М. Покровский подчеркивал (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1733D6D3F0E968C67B3A76761BCA1B6946F74FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290482   (678335) от 20.03.2019
-
-Ладислас Фараго | История шпионажа времен второй Мировой войны (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ладислас Фараго, бывший начальник отдела исследований и планирования в специальном военном подразделении ВМС США, автор нескольких книг по шпионажу, предлагает захватывающую картину всего спектра тайной деятельности, различных форм разведки секретных служб стран – участниц Второй мировой войны. Результатом действий агентов спецслужб, проводивших разведывательные (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело/спецслужбы, Зарубежная публицистикаПеревод: Александр УткинФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A880DF8430A4FC6C4817C756F6B508FB3BEF3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135962   (676985) от 21.05.2017
-
-Валерий Могильницкий | В долине слез. О великих узниках Карлага (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга В. М. Могильницкого посвящена жертвам сталинских репрессий. Перед читателями открывается целая галерея ярких, выдающихся личностей, судьбы которых были сломаны страшной машиной по уничтожению людей. Открытость стиля автора, доступность изложения делают книгу интересной широкому кругу читателей.Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ADF6159F15794181BB11EA018745D33EABCC0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

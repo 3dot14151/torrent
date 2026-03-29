@@ -1,3 +1,55 @@
+###  Публикация: 1632213   (198606) от 10.05.2023
+
+Исторический Парад Победы 24 июня 1945 года (24.06.1945) WEBRip [H.264/720p] [Полная версия] [Handmade AI]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический Парад Победы 24 июня 1945 года. Полная версия. Телеканал «ПОБЕДА», входящий в «Цифровое Телесемейство» Первого канала, представляет полную версию торжественного Парада Победы 1945 года. Совместно с Российским государственным архивом кинофотодокументов редакцией была проделана уникальная работа. Кадр за кадром собрана хроника всего праздничного дня 24 (   Читать дальше...   )Телекомпания: Победа / Первый канал. Всемирная сетьЖанр: документальный, история, хроника, церемонияРежиссер: Дарья ХубоваЯзык озвучки: РусскийПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F517B3B2F333403F678E531EF206BB1845DAC43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633393   (198410) от 14.05.2023
+
+Они шли за Гитлером. История одной коалиции (2018) HDTV [H.264/1080i] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спросите сегодня где-нибудь в Европе: кто воевал против СССР во Второй мировой войне? Вам ответят: "Германия, – а подумав, добавят, – кажется, Италия". А как же те сотни тысяч венгров, румын, хорватов, французов, словаков, поляков, испанцев, которые вместе с Германией пришли в СССР. 22 июня нам объявили войну Италия, Словакия и Хорватия, 27 июня – Венгрия, (   Читать дальше...   )Производство: Россия, ВГТРК, Под знаком ПИЖанр: документальный, история, ВОВРежиссер: Михаил КузовенковЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC37CF62A7429F13DD4B965B28C05E2AAF546E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638611   (197333) от 09.06.2023
 
 Разгром немецких войск под Москвой (1942) DVDRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
@@ -6,7 +58,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197333.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196628.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194607.jpg" />
+  <img src="Z:/picture/004/save_picture_194607.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194593.jpg" />
+  <img src="Z:/picture/004/save_picture_194593.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194541.jpg" />
+  <img src="Z:/picture/004/save_picture_194541.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194447.jpg" />
+  <img src="Z:/picture/004/save_picture_194447.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188510.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188015.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187725.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187683.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184612.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183468.jpg" />
+  <img src="Z:/picture/004/save_picture_183468.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177941.jpg" />
+  <img src="Z:/picture/005/save_picture_177941.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176304.jpg" />
+  <img src="Z:/picture/004/save_picture_176304.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175466.jpg" />
+  <img src="Z:/picture/004/save_picture_175466.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172445.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169474.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169386.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168919.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168619.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168198.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166830.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ NG. Суперсооружения Третьего рейха - 7 / Nazi Megast
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166394.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166388.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1083640D698EC7FB53A1C9C0CA675C5C4632C38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345554   (166369) от 15.12.2019
-
-NG. Суперсооружения Третьего рейха - 7 / Nazi Megastructures - 7 (2019) HDTVRip [H.264/720p-LQ] (7 сезон: 2-4 серия из 6) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале вы познакомитесь с примерами мышления и тактики, а также с технологиями, применявшимися во время Второй мировой войны нацистами и японцами, от создания ВВС Германии, до строительства бирманской железной дороги смерти. Вы увидите образцы военного снаряжения того времени, оборонительные сооружения и другие забытые свидетельства войны, которые обнаружены (   Читать дальше...   )Производство: США, Darlow Smithson Productions, National GeographicЖанр: Документальный, война, историяРежиссер: Джеймс МиллярПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DDEE0BFD5F1630D3CC625EA132CEE7A189DA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516669   (165078) от 12.12.2021
-
-Чистая победа. Величайшее воздушное сражение в истории (2015) WEB-DLRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как правило, крупнейшими воздушными сражениями Второй мировой войны считают атаку "Люфтваффе" на Англию и схватку американской и японской авиации над Тихим океаном. В действительности, самое большое количество самолетов в истории сражалось весной и летом 1943 года в небе над Россией, а точнее над Кубанью - над Крымском и над Мысхако, то есть над знаменитой (   Читать дальше...   )Производство: Россия, Краснодарская киностудия им. Н.МинервинаЖанр: документальный, военный, историяРежиссер: Валерий ТимощенкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C72BD1840E80B6C9BCC5B0C3B648F364F7C18E
 ```
 
 https://mybot314.ru/tekegram_catalog/

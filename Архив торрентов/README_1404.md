@@ -6,7 +6,7 @@ VideoDuke 1.11 (build 283) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735300.jpg" />
+  <img src="Z:/picture/008/save_picture_735300.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Receipts 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735299.jpg" />
+  <img src="Z:/picture/008/save_picture_735299.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Wallpaper Engine 2.0.98 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735291.jpg" />
+  <img src="Z:/picture/008/save_picture_735291.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ FL Studio Producer Edition 20.8.3.2304 + FLEX Extensions RePack by Zom [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735290.jpg" />
+  <img src="Z:/picture/008/save_picture_735290.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ V-Ray 5.20.02 for 3ds Max 2016-2022 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735283.jpg" />
+  <img src="Z:/picture/008/save_picture_735283.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ EverWeb (Standalone) 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735270.jpg" />
+  <img src="Z:/picture/008/save_picture_735270.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Music Tag Editor 2 v5.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735269.jpg" />
+  <img src="Z:/picture/008/save_picture_735269.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Watsky - Placement (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735266.jpg" />
+  <img src="Z:/picture/008/save_picture_735266.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Slimjet 27.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735262.jpg" />
+  <img src="Z:/picture/005/save_picture_735262.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ XYplorer 20.90.0800 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735260.jpg" />
+  <img src="Z:/picture/008/save_picture_735260.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Glary Utilities Pro 5.147.0.173 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735257.jpg" />
+  <img src="Z:/picture/005/save_picture_735257.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Adobe Prelude 2020 v9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735251.jpg" />
+  <img src="Z:/picture/008/save_picture_735251.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ WebVideoHunter Pro 6.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735249.jpg" />
+  <img src="Z:/picture/008/save_picture_735249.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735221.jpg" />
+  <img src="Z:/picture/008/save_picture_735221.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Freemake Video Converter 4.1.11.53 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735219.jpg" />
+  <img src="Z:/picture/008/save_picture_735219.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Wonderfox HD Video Converter Factory Pro 19.0 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735218.jpg" />
+  <img src="Z:/picture/005/save_picture_735218.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ R-Drive Image 6.3.Build.6306 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735215.jpg" />
+  <img src="Z:/picture/005/save_picture_735215.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735212.jpg" />
+  <img src="Z:/picture/008/save_picture_735212.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ TweakPower 1.104 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735208.jpg" />
+  <img src="Z:/picture/005/save_picture_735208.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735193.jpg" />
+  <img src="Z:/picture/008/save_picture_735193.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Opera 69.0.3686.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735191.jpg" />
+  <img src="Z:/picture/008/save_picture_735191.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735187.jpg" />
+  <img src="Z:/picture/008/save_picture_735187.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Firefox Browser 79.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735181.jpg" />
+  <img src="Z:/picture/008/save_picture_735181.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Adobe XD 31.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735178.jpg" />
+  <img src="Z:/picture/008/save_picture_735178.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ PIDKey Lite 1.64.4 Beta 3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735173.jpg" />
+  <img src="Z:/picture/008/save_picture_735173.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Cockos REAPER 6.13 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735172.jpg" />
+  <img src="Z:/picture/008/save_picture_735172.jpg" />
 </div>
 
 

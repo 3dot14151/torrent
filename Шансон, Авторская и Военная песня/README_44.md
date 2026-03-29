@@ -1,3 +1,67 @@
+###  Публикация: 1269853   (218074) от 16.12.2018
+
+Игорь Карташёв - 2 Альбома (1995 - 2002) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Братишечка
+02. Луна озарила
+03. 17 лет
+04. Течет реченька(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27063A15E372EF5A10080E8F28C62D16A943E167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586024   (217990) от 12.12.2012
+
+Александр Доля - Золотая лента (2013) [MP3|320 кб/с]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217990.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Осень разлуки
+2 Ночь любви
+3 Золотая лента
+4 Слезы осени
+5 Налей дружок
+6 Проводница
+7 Лагерная осень
+8 Братва
+9 Колесница
+10 Отец(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AE878A455C45510A9E24414DF95D7E0F89477D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652450   (217688) от 11.08.2023
 
 группа Владимир - За жизнь (2023) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
@@ -6,7 +70,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217688.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216448.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215486.jpg" />
+  <img src="Z:/picture/005/save_picture_215486.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214655.jpg" />
+  <img src="Z:/picture/005/save_picture_214655.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - Популярный шансон (2005) [FLAC|Lossless|tracks + .cue]<Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214651.jpg" />
+  <img src="Z:/picture/005/save_picture_214651.jpg" />
 </div>
 
 
@@ -151,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214103.jpg" />
 </div>
 
 
@@ -180,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211242.jpg" />
 </div>
 
 
@@ -209,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211209.jpg" />
 </div>
 
 
@@ -238,7 +302,7 @@ VA - Казачьи песни: Сборник лучших песен (2002) [F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210752.jpg" />
+  <img src="Z:/picture/005/save_picture_210752.jpg" />
 </div>
 
 
@@ -267,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210329.jpg" />
 </div>
 
 
@@ -296,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209281.jpg" />
+  <img src="Z:/picture/005/save_picture_209281.jpg" />
 </div>
 
 
@@ -325,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209243.jpg" />
 </div>
 
 
@@ -354,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209201.jpg" />
+  <img src="Z:/picture/005/save_picture_209201.jpg" />
 </div>
 
 
@@ -383,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209200.jpg" />
 </div>
 
 
@@ -412,7 +476,7 @@ VA - Калина красная 22-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208673.jpg" />
 </div>
 
 
@@ -441,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208013.jpg" />
 </div>
 
 
@@ -470,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206613.jpg" />
 </div>
 
 
@@ -499,7 +563,7 @@ VA - Калина красная 21-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204559.jpg" />
 </div>
 
 
@@ -528,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204220.jpg" />
+  <img src="Z:/picture/004/save_picture_204220.jpg" />
 </div>
 
 
@@ -557,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204081.jpg" />
 </div>
 
 
@@ -586,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203570.jpg" />
+  <img src="Z:/picture/004/save_picture_203570.jpg" />
 </div>
 
 
@@ -615,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202531.jpg" />
+  <img src="Z:/picture/004/save_picture_202531.jpg" />
 </div>
 
 
@@ -644,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201626.jpg" />
+  <img src="Z:/picture/005/save_picture_201626.jpg" />
 </div>
 
 
@@ -673,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199691.jpg" />
+  <img src="Z:/picture/005/save_picture_199691.jpg" />
 </div>
 
 
@@ -687,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF991324A183721CDCB8C9D85203E32C2C685443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630970   (198995) от 03.05.2023
-
-VA - Белорусский вокзал <<Лучшие песни военных лет>> (2004) [FLAC|Lossless|tracks + .cue] <Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инна Афанасьева - Тёмная ночь
-02. гр. J Морс - Земляника
-03. виа Харлi - Бери шинель, пошли домой
-04. Наташа Кудрина - Мы за ценой не постоим ( Песня из к/ф Белорусский вокзал )(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8815344085161E5C2D01D11F05246679746323D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631430   (198881) от 06.05.2023
-
-VA - Белорусский вокзал <<Лучшие песни военных лет>> (2004) [MP3|320 Kbps] <Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инна Афанасьева - Тёмная ночь
-02. гр. J Морс - Землянка
-03. виа Харлi - Бери шинель, пошли домой
-04. Наташа Кудрина - Мы за ценой не постоим ( Песня из к/ф Белорусский вокзал )(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C387168F8E31A4CD57274716BB3E54879A5A2963
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1044497   (565652) от 20.08.2016
+
+Charles Lloyd - Manhattan Stories (1965) 2CD, 2014, Resonance Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565652.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sweet Georgia Bright [17:50]
+02.How Can I Tell You [11:56]
+03.Lady Gabor [12:52]Жанр: Hard Bop, Post-BopПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A68C577CEC18FBAAC7F7F985246776AD4DB11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304304   (565562) от 25.05.2019
+
+Christian McBride - Christian McBride's New Jawn (2018) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin’ Funny [2:49]
+02. Ke-Kelli Sketch [9:55]
+03. Ballad of Ernie Washington [5:34]
+04. The Middle Man [5:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA42B2E9D6544AEAD595AF2BE2C79D29204CCA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555910   (565520) от 06.06.2022
+
+Buddy DeFranco (De Franco) - Charlie Cat 2 (2007) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Cat II [7:53]
+02. All My Life [4:57]
+03. By Myself [5:39]
+04. Walk This Way [5:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAEFFE0DD0AB7F8133A55A7BB1CFB352D82B14F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044474   (565499) от 20.08.2016
+
+Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz & Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Lady (5:14)
+02. Rise Above (7:03)
+03. Love Game (5:20)
+04. Love is Working Overtime (4:06)(   Читать дальше...   )Жанр: Jazz Fusion, Jazz & BluesПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC18AA64E57E8013C15C25BA57FDF8BB2C6FCB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044615   (565356) от 20.08.2016
 
 Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz, Fusion, Instrumental>
@@ -6,7 +122,7 @@ Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565356.jpg" />
+  <img src="Z:/picture/008/save_picture_565356.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Julian Curwin & The Tango Saloon - The Tango Saloon (2006) [APE|Lossless]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565083.jpg" />
+  <img src="Z:/picture/008/save_picture_565083.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ Ornette Coleman - The Empty Foxhole (1966) /2015, Universal/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564633.jpg" />
+  <img src="Z:/picture/008/save_picture_564633.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ Tiny Grimes - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564208.jpg" />
+  <img src="Z:/picture/008/save_picture_564208.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Matthew Gee All-Stars - Jazz By Gee! (1956) 1996, Original Jazz Classics[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563838.jpg" />
+  <img src="Z:/picture/008/save_picture_563838.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ Dexter Gordon - 12 Classic Albums 1947-1962 (2015) 6CD, Enlightenment [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563831.jpg" />
+  <img src="Z:/picture/008/save_picture_563831.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ Bobby Jaspar - Three Classic Albums Plus (1956, 1957) 2CD, 2017, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563746.jpg" />
+  <img src="Z:/picture/008/save_picture_563746.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Milt Jackson - Quartet (1955) Remaster, 2013, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563745.jpg" />
+  <img src="Z:/picture/008/save_picture_563745.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Miramode Orchestra - Tumbler (2017) [FLAC|Lossless|tracks + .cue] <Electronic, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563742.jpg" />
+  <img src="Z:/picture/008/save_picture_563742.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Fred Hersch - Songs Without Words (2001) 3CD, Nonesuch Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563635.jpg" />
+  <img src="Z:/picture/008/save_picture_563635.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Judy Garland - Chasing Rainbows (1936 - 1939) 1989, Remember [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563620.jpg" />
+  <img src="Z:/picture/008/save_picture_563620.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ VA - This Is Vocal Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563370.jpg" />
+  <img src="Z:/picture/008/save_picture_563370.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Jimmy McGriff - The Worm (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562853.jpg" />
+  <img src="Z:/picture/008/save_picture_562853.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ George Gershwin - Rhapsody In Blue - An American In Paris (James Levine & Chicag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562699.jpg" />
+  <img src="Z:/picture/008/save_picture_562699.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Bobby Bryant - Earth Dance (1969) 2011, EMI Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562276.jpg" />
+  <img src="Z:/picture/008/save_picture_562276.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Hadley Caliman & Pete Christlieb - Reunion (2010) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562275.jpg" />
+  <img src="Z:/picture/008/save_picture_562275.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Ray Brown Trio - Live From New York To Tokyo (1987, 1989) 2CD, 2003, Concord Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562270.jpg" />
+  <img src="Z:/picture/008/save_picture_562270.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Mike Vax & Ron Romm - Collaboration (2018) [FLAC|Lossless|image + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562268.jpg" />
+  <img src="Z:/picture/008/save_picture_562268.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Rosenberg Trio & Tim Kliphuis - Tribute To Stephane Grappelli (2008) Foreign Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562092.jpg" />
+  <img src="Z:/picture/008/save_picture_562092.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Curtis Fuller - Meets Roma Jazz Trio (1982) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561895.jpg" />
+  <img src="Z:/picture/008/save_picture_561895.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Lenny White - Present Tense (1995) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561892.jpg" />
+  <img src="Z:/picture/008/save_picture_561892.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Charles Earland - Coming To You Live (1980) Remaster, 2016, Sony Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561827.jpg" />
+  <img src="Z:/picture/008/save_picture_561827.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Charles Earland - Coming To You Live (1980) Remaster, 2016, Sony Music[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06BECED46527F540B0894C8011E9A0C908DFE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045197   (561825) от 22.08.2016
-
-Diane Schuur - Love Songs (1993) [FLAC|Lossless|image + .cue] <Smooth Jazz, Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love
-02. Speak Low (From The Musical Production "One Touch Of Venus")
-03. I Thought About You
-04. Prelude To A Kiss(   Читать дальше...   )Жанр: Smooth Jazz, Cool JazzПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1370A2B4E1BDB61AEC2974F7F3BED66E159F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556111   (561770) от 08.06.2022
-
-Charnett Moffett - New Love (2021) Motema Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swinging in the Realms [4:02]
-02. We Remember [4:53]
-03. Little Flowers [3:30]
-04. Today [3:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79327965BD4E05204FB41522952C179493EA3608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153049   (561761) от 25.07.2017
-
-Horace Parlan - Seven Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561761.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Movin' & Groovin' and Us Three:
-01. C Jam Blues [05:12]
-02. On Green Dolphin Street [05:30]
-03. Up In Cynthia's Room [05:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 04:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C38702F3166A1B410F59F7BE1B5834B4D29AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153052   (561755) от 25.07.2017
-
-Paolo Fresu & Omar Sosa - Alma (2011) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S'Inguldu [05:33]
-02. Inverno Grigio [05:28]
-03. No Trance [03:36]
-04. Alma [05:49](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524F25614448A3ABCDED869F058C9BCADC171568
 ```
 
 https://mybot314.ru/tekegram_catalog/

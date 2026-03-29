@@ -1,3 +1,90 @@
+###  Публикация: 1397792   (737598) от 22.07.2020
+
+Бурёнка Даша - Сборник 3 (2018) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-11. Божья Коровка
+02+/-12. Ням-Ням-Нямочки
+03+/-13. Моя Мама - Фея
+04+/-14. Валенки(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38296C6738199A2B6F7F8D10B34EBE11051A2077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397802   (737597) от 22.07.2020
+
+Бурёнка Даша - Сборник 4 (2019) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-11. Бегемоты-Кашалоты
+02+/-12. Блины
+03+/-13. День Рождения
+04+/-14. Детский Сад(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DA52F1E8D81CD89905F82B7C4C1095B5608027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397820   (737557) от 22.07.2020
+
+Наринэ Абгарян | Манюня, юбилей Ба и прочие треволнения (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737557.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Любая история имеет свое начало и свой конец».
+Перед вами – третья, заключительная книга о девочке Манюне и прочих ее друзьях-родственниках.
+Это большое счастье, когда история одной семьи находит отклик в сердцах стольких людей.
+Мы хотим поблагодарить вас за то, что вы были с нами.(   Читать дальше...   )Жанр: Детская литература/Проза/ПриключенияПродолжительность: 10:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEA1D924F5DF7A0CD3D2B183706EA6BF8B96B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397922   (737136) от 23.07.2020
 
 Елена Арсеньева | Юность богатырская (2020) [MP3]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737136.jpg" />
+  <img src="Z:/picture/008/save_picture_737136.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736728.jpg" />
+  <img src="Z:/picture/008/save_picture_736728.jpg" />
 </div>
 
 
@@ -60,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736722.jpg" />
+  <img src="Z:/picture/008/save_picture_736722.jpg" />
 </div>
 
 
@@ -87,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736684.jpg" />
+  <img src="Z:/picture/008/save_picture_736684.jpg" />
 </div>
 
 
@@ -116,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736481.jpg" />
+  <img src="Z:/picture/008/save_picture_736481.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736233.jpg" />
+  <img src="Z:/picture/008/save_picture_736233.jpg" />
 </div>
 
 
@@ -172,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736163.jpg" />
+  <img src="Z:/picture/008/save_picture_736163.jpg" />
 </div>
 
 
@@ -201,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736148.jpg" />
+  <img src="Z:/picture/008/save_picture_736148.jpg" />
 </div>
 
 
@@ -230,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736147.jpg" />
+  <img src="Z:/picture/008/save_picture_736147.jpg" />
 </div>
 
 
@@ -259,7 +346,7 @@ VA - Лучшие песни из передачи "Радионяня" (2005) [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736026.jpg" />
+  <img src="Z:/picture/008/save_picture_736026.jpg" />
 </div>
 
 
@@ -289,7 +376,7 @@ VA - Храбрый Зайчик. Песни для детей (2017) [MP3|320 K
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735711.jpg" />
+  <img src="Z:/picture/008/save_picture_735711.jpg" />
 </div>
 
 
@@ -318,7 +405,7 @@ VA - Тише, дети спят. Колыбельные песни (2014) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735704.jpg" />
+  <img src="Z:/picture/008/save_picture_735704.jpg" />
 </div>
 
 
@@ -347,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735660.jpg" />
+  <img src="Z:/picture/008/save_picture_735660.jpg" />
 </div>
 
 
@@ -376,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735267.jpg" />
+  <img src="Z:/picture/008/save_picture_735267.jpg" />
 </div>
 
 
@@ -402,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734866.jpg" />
+  <img src="Z:/picture/008/save_picture_734866.jpg" />
 </div>
 
 
@@ -428,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734863.jpg" />
+  <img src="Z:/picture/008/save_picture_734863.jpg" />
 </div>
 
 
@@ -454,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734812.jpg" />
+  <img src="Z:/picture/008/save_picture_734812.jpg" />
 </div>
 
 
@@ -480,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734381.jpg" />
+  <img src="Z:/picture/008/save_picture_734381.jpg" />
 </div>
 
 
@@ -509,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734350.jpg" />
+  <img src="Z:/picture/008/save_picture_734350.jpg" />
 </div>
 
 
@@ -535,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734349.jpg" />
+  <img src="Z:/picture/008/save_picture_734349.jpg" />
 </div>
 
 
@@ -561,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734345.jpg" />
+  <img src="Z:/picture/008/save_picture_734345.jpg" />
 </div>
 
 
@@ -590,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734344.jpg" />
+  <img src="Z:/picture/008/save_picture_734344.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734341.jpg" />
+  <img src="Z:/picture/008/save_picture_734341.jpg" />
 </div>
 
 
@@ -631,86 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62DAB97801653B806615701F277B248C3F217C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399161   (734338) от 29.07.2020
-
-Варвара Еналь | Живые. Эра драконов. Пустыня Всадников. Книга 1. (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэши всю жизнь прожила в окруженном скалами Третьем Городе. Но однажды она вместе со своим отцом покидает безопасные стены и отправляется в дальний путь. Впереди Мэши ждут опасные приключения, когда древние легенды оказываются реальностью, а исконные враги совершенно неожиданно приходят на помощь. Почему во всем мире осталось всего девять Городов? Какие двери открывают (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 10:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079F0C1F7BC6F17C9D8F096EB4198E7565B07D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711268   (734261) от 29.07.2020
-
-Хью Лофтинг | Путешествия Доктора Дулиттла (1992) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктора Айболита знают и любят все. По крайней мере, те, кто когда-то был советским ребенком. Но есть ещё совсем другогой доктор, родившийся на несколько лет раньше Айболита. Зовут его Дулиттл. Он приходится внучатым племянником мистеру Пиквику — добродушному упитанному путешественнику, всеобщему любимцу и правдоискателю. А придумал его простой ирландский инженер (   Читать дальше...   )Жанр: СказкиПродолжительность: 10:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEE83E04A8FA44FB83D17007600DA2F9AA50485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444921   (734150) от 29.07.2020
-
-Валентин Постников | Карандаш и Самоделкин в деревне Козявкино (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734150.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном небольшом, но очень красивом городе живут два маленьких веселых человечка. Зовут их Карандаш и Самоделкин. Они – самые настоящие волшебники. Карандаш – художник, у которого вместо носа волшебный карандаш. Все, что он нарисует, превращается в настоящее.
-А его друг Самоделкин – железный человечек, который умеет мастерить разные невероятные машины.
-Веселые истории (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D4E717F066C248CA1A2E452416943A6415CE96
 ```
 
 https://mybot314.ru/tekegram_catalog/

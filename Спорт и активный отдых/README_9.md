@@ -1,3 +1,204 @@
+###  Публикация: 1439549   (1039944) от 13.01.2021
+
+Биатлон. Кубок Мира 2020-2021. Этап 5. Оберхоф (Германия). Одиночная смешанная эстафета-Супермикст (2021) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+10 января 2021, воскресенье. 16:40 МСК
+Этап 5. Оберхоф (Германия)
+Одиночная смешанная эстафета (Супермикст)(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47617212F0DE6DAB7251BD09CCC52CE85D38A8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439602   (1039939) от 13.01.2021
+
+Биатлон. Кубок Мира 2020-2021. Этап 5. Оберхоф (Германия). Одиночная смешанная эстафета-Супермикст (2021) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+10 января 2021, воскресенье. 16:40 МСК
+Этап 5. Оберхоф (Германия)
+Одиночная смешанная эстафета (Супермикст)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7277767166F90A89D9A5714244EF14828B5FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439398   (1039937) от 13.01.2021
+
+Горные лыжи. Кубок мира 2020-2021. 10-й Этап. Земмеринг (Австрия). Женщины. Гигантский слалом (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубка мира по горнолыжному спорту 2020-2021 года
+28 декабря 2020 года
+10-й Этап. Земмеринг (Австрия).
+Женщины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:03 — 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE464F74DDE7657D9B63B80E0196FE5BE8B4C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439384   (1039934) от 13.01.2021
+
+Горные лыжи. Кубок мира 2020-2021. 11-й Этап. Мадонна-ди-Кампильо (Италия). Мужчины. Слалом (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубка мира по горнолыжному спорту 2020-2021 года
+22 декабря 2020 года
+11-й Этап. Мадонна ди Кампильо (Италия).
+Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:03:48 — 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034A8A664A345114D3EA508B095CAB572B1E94F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612940   (1039793) от 17.02.2023
+
+Хоккей. НХЛ 2022-2023. Флорида Пантерз - Вашингтон Кэпиталз (16.02.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039793.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 февраля 2023, пятница. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Картер Сандлак (Лондон, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: NBCSWAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B657258C22FCFFBD245064510F1A88C39F38B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439704   (1039640) от 14.01.2021
+
+Прыжки с трамплина. Кубок мира 2020-2021. Этап 3. Рука (Финляндия). Мужчины. Индивидуальные соревнования (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по прыжкам с трамплина 2020–2021
+28 ноября 2020 года
+Этап 3. Рука (Финляндия)
+Трамплин HS 142(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A39806AAE25C0911AEB98F47982D88F4C24E9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439755   (1039638) от 14.01.2021
+
+Биатлон. Кубок Мира 2020-2021. Этап 6. Оберхоф (Германия). Мужчины. Спринт 10 км (2021) WEB-DLRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+13 января 2021, среда. 16:30 МСК
+Этап 6. Оберхоф (Германия)
+Мужчины. Спринт 10 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97CC801FAC6AD43523C3456564897DEB2C33144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439746   (1039613) от 14.01.2021
 
 Горные лыжи. Кубок мира 2020-2021. 10-й Этап. Земмеринг (Австрия). Женщины. Слалом (2020) IPTVRip [H.264/1080p-LQ]
@@ -6,7 +207,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039613.jpg" />
 </div>
 
 
@@ -35,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039608.jpg" />
 </div>
 
 
@@ -62,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039606.jpg" />
 </div>
 
 
@@ -91,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039600.jpg" />
 </div>
 
 
@@ -120,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039598.jpg" />
 </div>
 
 
@@ -149,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039586.jpg" />
 </div>
 
 
@@ -176,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039518.jpg" />
 </div>
 
 
@@ -205,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039478.jpg" />
 </div>
 
 
@@ -234,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039380.jpg" />
 </div>
 
 
@@ -261,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039355.jpg" />
 </div>
 
 
@@ -288,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039348.jpg" />
 </div>
 
 
@@ -317,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039346.jpg" />
 </div>
 
 
@@ -346,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039294.jpg" />
 </div>
 
 
@@ -375,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039285.jpg" />
 </div>
 
 
@@ -403,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039277.jpg" />
 </div>
 
 
@@ -431,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039275.jpg" />
 </div>
 
 
@@ -459,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039262.jpg" />
 </div>
 
 
@@ -488,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039258.jpg" />
 </div>
 
 
@@ -516,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039256.jpg" />
 </div>
 
 
@@ -530,206 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:575E9DE56C6874E06B0E539CBD913BEAE4D4DCC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440121   (1039084) от 16.01.2021
-
-Гандбол. Чемпионат Мира 2021. Мужчины. Предварительный раунд. Группа H. 1-й тур. Беларусь — Россия (2021) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по гандболу среди мужчин 2021 года
-14 января 2021, четверг. 17:30 МСК
-Предварительный раунд. Группа H. 1-й тур
-Беларусь — Россия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DDB36525AF8C1DC3AD54AD72A71095154C6B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440136   (1039072) от 16.01.2021
-
-Гандбол. Чемпионат Мира 2021. Мужчины. Предварительный раунд. Группа E. 1-й тур. Норвегия — Франция (2021) WEB-DLRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по гандболу среди мужчин 2021 года
-14 января 2021, четверг. 22:30 МСК
-Предварительный раунд. Группа E. 1-й тур
-Норвегия — Франция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A320EA01BC53B3B220C4FF7E247498A0B21C026C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440124   (1039071) от 16.01.2021
-
-Гандбол. Чемпионат Мира 2021. Мужчины. Предварительный раунд. Группа H. 1-й тур. Словения — Южная Корея (2021) WEB-DLRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по гандболу среди мужчин 2021 года
-14 января 2021, четверг. 20:00 МСК
-Предварительный раунд. Группа H. 1-й тур.
-Словения — Южная Корея(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBEBAC5B0C84D6E308624960BEAFE36D22D505C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440314   (1039067) от 16.01.2021
-
-Гандбол. Чемпионат Мира 2021. Мужчины. Предварительный раунд. Группа B. 1-й тур. Испания — Бразилия (2021) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по гандболу среди мужчин 2021 года
-15 января 2021, пятница. 20:00 МСК
-Предварительный раунд. Группа B. 1-й тур.
-Испания — Бразилия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9986166738CF535FBA3F567CB2FF3329EDE064F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440120   (1039024) от 16.01.2021
-
-Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Баффало Сэйбрз (15.01.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039024.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 января 2021, суббота. 03:00 МСК
-Стадион: Кибэнк-центр (Баффало, США), вместимость: 19070
-Главный судья: Джастин Сен-Пьер (Дольбо, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E66844DAF5FC52FD33C558437D18974E9B65128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440144   (1039014) от 16.01.2021
-
-Хоккей. НХЛ 2020-2021. Чикаго Блэкхоукс - Тампа-Бэй Лайтнинг (15.01.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039014.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 января 2021, суббота. 03:00 МСК
-Стадион: Амали-Арена (Тампа, США), вместимость: 19500
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Франсис Шаррон (Оттава, Канада)Телекомпания: FS-SunЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D1CD8675CEE20A5FCCF723E8DBE663FB757C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440133   (1038988) от 16.01.2021
-
-Хоккей. НХЛ 2020-2021. Питтсбург Пингвинз - Филадельфия Флайерз (15.01.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038988.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 января 2021, суббота. 03:00 МСК
-Стадион: Уэллс Фарго-центр (Филадельфия, США), вместимость: 20011
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EE8E507474F0BA0586EC6756266F9BAAF71F87
 ```
 
 https://mybot314.ru/tekegram_catalog/

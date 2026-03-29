@@ -1,3 +1,61 @@
+###  Публикация: 1292857   (628372) от 08.04.2019
+
+VA - Cryptic House XXI (2019) Compiled by ZeByte [MP3|320 Kbps] <House, Deep House, Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolph - Into (Lukas Endhardt Remix) [6:58]
+02. Kora (Ca), Wuachuma, Keli Amarai - Caroussel [7:37]
+03. Elfenberg - Kazikot [7:01]
+04. Luca Musto Feat. Loewenthal - Chapters [7:40](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Tech HouseПродолжительность: 03:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE3C5BC41D0B4DD4F71B7997AD4ADA485B359AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035348   (628270) от 16.07.2016
+
+VA - Bassnectar - Красивейший дабстеп (Sound Clinic - Bass Edition) (2016) [MP3|320-352 Kbps] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 501, Belle Humble - Head Rush
+02. Acid Paradox, Nori - Cthulu (CTwo Remix)
+03. Above & Beyond, Richard Bedford - Sun & Moon (Eric Farias Remix)
+04. Adam F - When The Rain Is Gone (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 25:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80595460C79BFD095D5B1DFA6E31A1F1C6D0834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294443   (628247) от 08.04.2019
 
 VA - Beyond Time: Vocal Trance Mix (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Beyond Time: Vocal Trance Mix (2019) [MP3|320 Kbps] <Vocal, Uplifting Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628247.jpg" />
+  <img src="Z:/picture/008/save_picture_628247.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Techno Skyline Sessions (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628235.jpg" />
+  <img src="Z:/picture/008/save_picture_628235.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Lounge Flow: Modern Chillout Selection (2018) [MP3|320 Kbps] <Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628214.jpg" />
+  <img src="Z:/picture/008/save_picture_628214.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Top 50 Production (2018) [MP3|320 Kbps] <Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628213.jpg" />
+  <img src="Z:/picture/008/save_picture_628213.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Hits of My Soul Vol. 45 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627709.jpg" />
+  <img src="Z:/picture/008/save_picture_627709.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ VA - Believe In Trance  Music (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626765.jpg" />
+  <img src="Z:/picture/008/save_picture_626765.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ VA - Ibiza Clubbing Missing July (2016) [MP3|320 Kbps] <House, Electro House, Fu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626718.jpg" />
+  <img src="Z:/picture/008/save_picture_626718.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ VA - Club Dance Ambience vol.78 (2016) [MP3|320 Kbps] <House, Electro House, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626713.jpg" />
+  <img src="Z:/picture/008/save_picture_626713.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ VA - 50 Best of Summer Workout Hits (2016) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626705.jpg" />
+  <img src="Z:/picture/008/save_picture_626705.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ VA - Summer Session 2016 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House, Disc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626661.jpg" />
+  <img src="Z:/picture/008/save_picture_626661.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - Extra Trance (episode 3) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626274.jpg" />
+  <img src="Z:/picture/008/save_picture_626274.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ VA - Hypnotic Techno / Techno / 2022 / MP3 (2022) [MP3|320 Kbps] <Techno, Minima
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625553.jpg" />
+  <img src="Z:/picture/008/save_picture_625553.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Hits of My Soul Vol. 27 (2017) [MP3|320 кб/с]<Trap, Future Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625513.jpg" />
+  <img src="Z:/picture/008/save_picture_625513.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - The Dance Cube XLIX 4CD (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625232.jpg" />
+  <img src="Z:/picture/008/save_picture_625232.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ VA - Lounge At The Seashore 15 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624959.jpg" />
+  <img src="Z:/picture/008/save_picture_624959.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624893.jpg" />
+  <img src="Z:/picture/008/save_picture_624893.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ VA - Best Vocal Around Energy (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624728.jpg" />
+  <img src="Z:/picture/008/save_picture_624728.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - Aurosonic Intro: Atmospheric Progressive Trance (2016) [MP3|320 Kbps] <Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624657.jpg" />
+  <img src="Z:/picture/008/save_picture_624657.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Record Super Chart № 445 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624652.jpg" />
+  <img src="Z:/picture/008/save_picture_624652.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ VA - Hits of My Soul Vol. 06 (2016) [MP3|320 кб/с]<Electronic, House, Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624317.jpg" />
+  <img src="Z:/picture/008/save_picture_624317.jpg" />
 </div>
 
 
@@ -601,7 +659,7 @@ VA - Ham!d Production June (2016) [MP3|320 Kbps] <House, Trance, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622826.jpg" />
+  <img src="Z:/picture/008/save_picture_622826.jpg" />
 </div>
 
 
@@ -630,7 +688,7 @@ VA - Empire Records - Stadium 3 (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622784.jpg" />
+  <img src="Z:/picture/008/save_picture_622784.jpg" />
 </div>
 
 
@@ -659,7 +717,7 @@ VA - Ultra Festival Live Life Anthems (2016) [MP3|320 Kbps] <House, Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622750.jpg" />
+  <img src="Z:/picture/008/save_picture_622750.jpg" />
 </div>
 
 
@@ -688,7 +746,7 @@ VA - Festival Alfa Future People (2016) [MP3|320 Kbps] <Trance, House, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622746.jpg" />
+  <img src="Z:/picture/008/save_picture_622746.jpg" />
 </div>
 
 
@@ -702,64 +760,6 @@ VA - Festival Alfa Future People (2016) [MP3|320 Kbps] <Trance, House, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:272B65138336BF58C403760A1B220A5E32804511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229746   (622720) от 08.06.2018
-
-VA - Empire Records  - Stadium 2 (2018) [MP3|320 Kbps] <Hands Up, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyron Hapi feat. Mimoza - Anyway (O'Neill & Leonardo La Mark Radio Remix)
-02. Felix Jaehn Ft. Matluck - Honolulu (Original Mix)
-03. Joe Manina - Illusion (Radio Edit)
-04. Robbie Rivera - Come Back To Me(   Читать дальше...   )Жанр: Hands Up, Big RoomПродолжительность: 01:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30904BD63E6F3E2060C49CAEE02FF23F8CE17E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229753   (622716) от 08.06.2018
-
-VA - Empire Records - Stadium 7 (2018) [MP3|320 Kbps] <Hardstyle, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riggi & Piros - Wild At Heart
-02. Dirty Rush & Gregor Es - Evrbdy
-03. Finger & Kadel - Paxi Fixi (Radio Edit)
-04. Discotech & Joe Maz - Horns (Radio Edit)(   Читать дальше...   )Жанр: Hardstyle, Hard TranceПродолжительность: 04:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99DFEED4712FAAE20FDEABA0604DCD5353F0BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

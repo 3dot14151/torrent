@@ -1,3 +1,133 @@
+###  Публикация: 1438091   (1041347) от 07.01.2021
+
+Мэтт Кук | Ловкость ума: 75 гениальных парадоксов в математике, физике и философии (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - настоящий путеводитель по парадоксам, начиная с древнейших (Ахиллес и черепаха) и заканчивая современными (кот Шрёдингера и парадокс Тьюринга). Как утверждают авторы, парадокс - это «магия в вашей голове». Что делать, если интуиция подсказывает одно, а логика диктует другое? Остроумные примеры, собранные под одной обложкой, - отличное средство тренировки (   Читать дальше...   )Жанр: Физико-математические наукиПеревод: В.С. ЯценковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DF046692F23B57A5A508410BAD820AB6ABEC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611580   (1041132) от 12.02.2023
+
+А.А. Женсыкбаев | Проблемы восстановления операторов (2019) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуются задачи оптимального восстановления функций, линейных функционалов и операторов, теория гауссовых формул восстановления на различных чебышевских системах. Освещаются результаты исследований последнего времени, имеющие в том или ином смысле окончательный характер. Особое внимание уделяется методам исследований, которые могут быть использованы в решении (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C54B2F2B18BCB3FF477C01551EAB21F1886194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439619   (1039744) от 13.01.2021
+
+Оомия Нобумицу | Химия вокруг нас (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039744.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге явления видимого мира описываются через призму микромира – как результат взаимодействия химических веществ. В таком контексте рассматриваются различные процессы в организме животных и человека, приготовление пищи и даже работа бытовой техники. И конечно, отдельного внимания заслуживают загадки, которые загадывает нам окружающий мир: почему огонь горит, (   Читать дальше...   )Жанр: Естественные науки, ХимияПеревод: С.Л. ПлехановаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8D0914E07AC16E9283BDE911EFBB13C5FD4F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614195   (1038859) от 21.02.2023
+
+Л.С. Полак, А.С. Михайлов | Самоорганизация в неравновесных физико-химических системах (1983) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена анализу эффектов самоорганизации - возникновения, развития и гибели макроскопических структур в неравновесных открытых физико-химических системах. Рассмотрены аналогии между явлениями самоорганизации и фазовыми переходами в равновесных системах. Кратко обсуждены проблема зарождения турбулентности и динамические модели хаоса. Изложена теория автоволновых (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A798FD5ED8EEE62D625E94937CE17BD31B339DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614458   (1038574) от 22.02.2023
+
+П.Я. Уфимцев | Три лекции по физической теории дифракции (1972) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три лекции по физической теории дифракцииЖанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73846518D48C2437BB7E005F8BA8B2AD4C0E000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614463   (1038572) от 22.02.2023
 
 П.Я. Уфимцев | Метод краевых волн в физической теории дифракции (1962) [PDF]
@@ -6,7 +136,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038572.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038411.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038171.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037666.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037396.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037395.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036842.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036821.jpg" />
 </div>
 
 
@@ -220,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036391.jpg" />
 </div>
 
 
@@ -246,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035278.jpg" />
 </div>
 
 
@@ -272,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035255.jpg" />
 </div>
 
 
@@ -300,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034558.jpg" />
 </div>
 
 
@@ -326,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034299.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032354.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026324.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026091.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020560.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019238.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019224.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018889.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018536.jpg" />
 </div>
 
 
@@ -545,138 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0B043B4E9955B03E9F1FEFD7D6C8D99805B649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469834   (1016071) от 14.05.2021
-
-Хаим Шапира | Восемь этюдов о бесконечности. Математическое приключение (2021) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Математические формулы – такое же чудо, как и гениальные произведения великих композиторов и писателей, утверждает автор нескольких бестселлеров, математик и философ Хаим Шапира. Всем, кто желает расширить свой кругозор, он предлагает познакомиться с математическими теориями, касающимися самой красивой из концепций, когда-либо созданных человечеством, – концепцией (   Читать дальше...   )Жанр: Математика, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF10A349B2A114B60309EFE98AA11B305390362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470202   (1015941) от 15.05.2021
-
-Менно Схилтхёйзен | Дарвин в городе: как эволюция продолжается в городских джунглях (2021) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голуби, белки, жуки, одуванчики – на первый взгляд городские флора и фауна довольно скучны. Но чтобы природа заиграла новыми красками, не обязательно идти в зоопарк или включать телевизор. Надо просто знать, куда смотреть и чему удивляться. В этой книге нидерландский эволюционный биолог Менно Схилтхёйзен собрал поразительные примеры того, как от жизни в городе меняются (   Читать дальше...   )Жанр: Естествознание, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D388334E374397CE126882C651D04E2DA6C70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474445   (1012965) от 02.06.2021
-
-Улдис Заринс | Форма головы и шеи / Form of the Head and Neck (2021) [PDF] [En]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мышцы лица, как вы, вероятно, обнаружили, не имеют почти никакого отношения к окончательной форме лица. Эта книга объясняет не только анатомию, но и взаимосвязь между анатомией и формой.Жанр: АнатомияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85C7698BA6C64551367F903A5EBC74D8F9ECAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475065   (1012371) от 06.06.2021
-
-Владимир Бубнов | Информатика и информация: знаково-символьный аспект (2020) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу данной работы положено представление о том, что информация – это содержание символа, изображенного различными графическими конструкциями. В монографии обсуждаются все аспекты измерения и переработки информации посредством анализа графических символьных конструкций.
-Книга может быть использована студентами и аспирантами высших учебных заведений при изучении (   Читать дальше...   )Жанр: Учебные пособияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1727B8D1E50DE712DD097764DA7AFD47237D605B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480796   (1008666) от 30.06.2021
-
-Хосе Луис Кордейро, Дэвид Вуд | Смерть должна умереть. Наука в борьбе за наше бессмертие (2021) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008666.jpg" />
-</div>
-
-
-###  Подробнее
-
-90 % жителей развитых стран умирают из-за старения организма. Связанные со старением процессы провоцируют развитие сердечно-сосудистых и онкологических заболеваний и деменции. Однако так будет не всегда.
-Авторы книги – инженер и ученый Хосе Луис Кордейро и пионер индустрии смартфонов, соучредитель Symbian инженер Дэвид Вуд, возглавляющие международную организацию (   Читать дальше...   )Жанр: Научно-популярная литература,  Биология и эволюцияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E714C39043DDFA235C9FF83AE50617EE604CB81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

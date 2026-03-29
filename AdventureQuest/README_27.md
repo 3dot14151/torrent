@@ -1,3 +1,82 @@
+###  Публикация: 1332225   (716446) от 06.08.2020
+
+Subnautica (2018) [Ru/Multi] (65786) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subnautica - это ролевая игра от создателей Natural Selection 2, в которой авторы пообещали соместить кинематографичность, открытый мир и проработку "больших" RPG. Subnautica – игра-песочница с открытым миром, созданная компанией Unknown Worlds Entertainment. Главная особенность игры – всё действие происходит в инопланетном океанеТип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F31F8196A3D2E5E5E13A69BD4DD666D34285CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024637   (715286) от 09.06.2016
+
+Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) Repack Other s [Episodes 1-6]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_715286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
+Сюжет Minecraft: Story Mode, как сейчас принято, поделен на несколько эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940BA5A90F6D0DE6213590D83D70D3046CFD6FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219254   (715056) от 13.04.2018
+
+Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_715056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В древнем кельтском повествовании молодая девушка по имени Солас (Solas) должна пройти через суровую безжалостную зиму, чтобы исправить ошибки прошлого своей семьи. Solas и White WInter - это атмосферная приключенческая игра с с элементами головоломок и темной историей, которую Солас должна раскрыть.Тип издания: LicenseРазработчик: Savepoint StudiosЖанр: AdventureЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219266   (715053) от 13.04.2018
 
 Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
@@ -6,7 +85,7 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715053.jpg" />
+  <img src="Z:/picture/008/save_picture_715053.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714368.jpg" />
+  <img src="Z:/picture/008/save_picture_714368.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Call of Cthulhu (2018) [Ru/En] (1.0/u2) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714356.jpg" />
+  <img src="Z:/picture/008/save_picture_714356.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714355.jpg" />
+  <img src="Z:/picture/008/save_picture_714355.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713928.jpg" />
+  <img src="Z:/picture/008/save_picture_713928.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712270.jpg" />
+  <img src="Z:/picture/008/save_picture_712270.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Resolutiion (2020) [Ru/Multi] (1.1.4.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708818.jpg" />
+  <img src="Z:/picture/008/save_picture_708818.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708435.jpg" />
+  <img src="Z:/picture/008/save_picture_708435.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706799.jpg" />
+  <img src="Z:/picture/008/save_picture_706799.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706693.jpg" />
+  <img src="Z:/picture/008/save_picture_706693.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706684.jpg" />
+  <img src="Z:/picture/008/save_picture_706684.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706666.jpg" />
+  <img src="Z:/picture/008/save_picture_706666.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706665.jpg" />
+  <img src="Z:/picture/008/save_picture_706665.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706574.jpg" />
+  <img src="Z:/picture/008/save_picture_706574.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ The Station (2018) [En] (B1.53.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703970.jpg" />
+  <img src="Z:/picture/008/save_picture_703970.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700804.jpg" />
+  <img src="Z:/picture/008/save_picture_700804.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700788.jpg" />
+  <img src="Z:/picture/008/save_picture_700788.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_699499.jpg" />
+  <img src="Z:/picture/005/save_picture_699499.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699021.jpg" />
+  <img src="Z:/picture/008/save_picture_699021.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698908.jpg" />
+  <img src="Z:/picture/008/save_picture_698908.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695434.jpg" />
+  <img src="Z:/picture/008/save_picture_695434.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ CRIMSON ROOM DECADE (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693882.jpg" />
+  <img src="Z:/picture/008/save_picture_693882.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693511.jpg" />
+  <img src="Z:/picture/008/save_picture_693511.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492F450F85FC05FD3AEC315D4C661EF0A98B5D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139397   (693411) от 12.03.2019
-
-RiME (2017) [Ru/Multi] (1.04) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0B43F4D13DB02F0CA8D2A2B5881E0DF33B4FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221676   (692879) от 25.04.2018
-
-PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотрите, так могла бы выглядеть игра, созданная самой Пилой! Используйте доступные предметы, обманывайте иллюзии и разгадывайте оптические головоломки, и, прежде всего, ответьте на вопрос - смеете ли вы играть со мной? Шаг в мир, вдохновленный фильмом SAW.Тип издания: LicenseРазработчик: AIREMЖанр: Adventure (Horror), Logic, PuzzleЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Украинский, Английский и другиеЯзык интерфейса: Русский, Украинский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3F1427593E39EC05CC50CDCD6A261D95CF0DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288924   (691635) от 13.03.2019
-
-Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kageroh: Shadow Corridor — это игра в жанре хоррор, разрабатываемая KazukiShiroma для платформы PC. Окружение в игре относится к cтилистике фэнтези, а выделить особенности можно следующие: экшен, инди, хоррор.Тип издания: LicenseРазработчик: KazukiShiromaЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Корейский, ЯпонскийЯзык интерфейса: Английский, Корейский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330A77FF812B3D0642C501C4E407D3D332FCED7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

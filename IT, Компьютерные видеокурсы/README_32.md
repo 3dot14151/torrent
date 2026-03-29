@@ -1,3 +1,135 @@
+###  Публикация: 1371308   (891321) от 30.03.2020
+
+OTUS | Математика для Data Science. Базовый курс (2020) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы освоите основные разделы высшей математики, необходимые для успешной работы в Data Science: математический анализ, линейную алгебру, теорию вероятности и статистику. После курса вы будете готовы к изучению машинного обучения.Жанр: Программирование, Data ScienceПродолжительность: 62:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495AE708B3528CF4F73137B1DC211235F3FB949D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494317   (890283) от 06.09.2021
+
+Udemy, Sergei Bukharov | Проектирование ПО по принципам SOLID и Connascence (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890283.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOLID, Connascence, Cohesion и Coupling — практики, который помогают писать здоровый код и порицать тех, кто пишет плохой.
+О принципах SOLID знают все, но немногие их применяют или могут сказать, в каком месте кода эти принципы нарушены. Что уж говорить о Cohesion, Coupling и Connascence.
+Если хотите во всём этом разобраться и применять на практике — курс вам поможет. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9065B264ECB5AC029042C2234B2665BE29C5E82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371338   (889897) от 31.03.2020
+
+Pluralsight.com | Индексирование MySQL для производительности / MySQL Indexing for Performance (2013) PCRec [H.264] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебный курс MySQL с упором на стратегии индексации для высокопроизводительной базы данных.Производство: Pluralsight.comЖанр: Базы данных, MySQLПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F4F46E88584370FECDE1A325C238B57F7E4C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371337   (889890) от 31.03.2020
+
+Pluralsight.com | Оптимизация запросов MySQL и настройка производительности / MySQL Query Optimization and Performance Tuning (2013) PCRec [H.264] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс посвящен оптимизации запросов MySQL и настройке производительности.Производство: Pluralsight.comЖанр: Базы данных, MySQLПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE0CF915D32C04F1A77668A627CA84F9C096D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494376   (888928) от 07.09.2021
+
+RealPython | Data Collection & Storage (2019) WEB-DL [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение собирать и хранить данные - важная часть инструментария любого специалиста по данным! Вы выйдете за рамки игрушечных наборов данных и узнаете, как использовать Python для обработки данных, которые можно найти в реальном мире.Производство: RealPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7006CBF09DF2B95167287A2B4184428AB837C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494492   (888753) от 07.09.2021
 
 Nomad Coders | YouTube CloneCoding (2021) WEB-DL [En]
@@ -6,7 +138,7 @@ Nomad Coders | YouTube CloneCoding (2021) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888753.jpg" />
+  <img src="Z:/picture/005/save_picture_888753.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Pluralsight.com | Мониторинг MySQL с помощью Performance Schem
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888190.jpg" />
+  <img src="Z:/picture/005/save_picture_888190.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ Steve Grisetti | Lynda - HitFilm 3 Pro Essential Training (2015) PCRec [H.264/72
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887760.jpg" />
+  <img src="Z:/picture/005/save_picture_887760.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ Udemy, Dennis Ivy, Brad Traversy | Django with React | An Ecommerce Website  (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887133.jpg" />
+  <img src="Z:/picture/005/save_picture_887133.jpg" />
 </div>
 
 
@@ -115,7 +247,7 @@ Podlodka, А. Ложечкин и др. | Podlodka Soft Skills Crew - Комму
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887127.jpg" />
+  <img src="Z:/picture/005/save_picture_887127.jpg" />
 </div>
 
 
@@ -144,7 +276,7 @@ Stepik, Артём Прытков | Tableau Профессионал (2021) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887086.jpg" />
+  <img src="Z:/picture/005/save_picture_887086.jpg" />
 </div>
 
 
@@ -171,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887037.jpg" />
+  <img src="Z:/picture/005/save_picture_887037.jpg" />
 </div>
 
 
@@ -199,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886167.jpg" />
+  <img src="Z:/picture/005/save_picture_886167.jpg" />
 </div>
 
 
@@ -226,7 +358,7 @@ ITVDN, Сластен Максим | jQuery (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885411.jpg" />
+  <img src="Z:/picture/005/save_picture_885411.jpg" />
 </div>
 
 
@@ -253,7 +385,7 @@ Pluralsight.com | Начало работы с MariaDB / Getting Started with Ma
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881790.jpg" />
+  <img src="Z:/picture/005/save_picture_881790.jpg" />
 </div>
 
 
@@ -279,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880260.jpg" />
+  <img src="Z:/picture/005/save_picture_880260.jpg" />
 </div>
 
 
@@ -306,7 +438,7 @@ Udemy / Cronis Academy | Бинарное дерево поиска (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879894.jpg" />
+  <img src="Z:/picture/005/save_picture_879894.jpg" />
 </div>
 
 
@@ -332,7 +464,7 @@ Udemy / Cronis Academy | Двоичные числа. Все о дополнит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879867.jpg" />
+  <img src="Z:/picture/005/save_picture_879867.jpg" />
 </div>
 
 
@@ -358,7 +490,7 @@ Udemy / Cronis Academy | Оценка сложности алгоритмов. �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879765.jpg" />
+  <img src="Z:/picture/005/save_picture_879765.jpg" />
 </div>
 
 
@@ -384,7 +516,7 @@ Javabegin | Angular для начинающих (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879649.jpg" />
+  <img src="Z:/picture/005/save_picture_879649.jpg" />
 </div>
 
 
@@ -410,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879611.jpg" />
+  <img src="Z:/picture/005/save_picture_879611.jpg" />
 </div>
 
 
@@ -436,7 +568,7 @@ ItGid, Александр Лущенко | HTML для JavaScript разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878600.jpg" />
+  <img src="Z:/picture/005/save_picture_878600.jpg" />
 </div>
 
 
@@ -462,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876673.jpg" />
+  <img src="Z:/picture/005/save_picture_876673.jpg" />
 </div>
 
 
@@ -489,7 +621,7 @@ ITVDN | Видео курсы по YII2 [Essential, Advanced] (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876364.jpg" />
+  <img src="Z:/picture/005/save_picture_876364.jpg" />
 </div>
 
 
@@ -516,7 +648,7 @@ IQComp | Коллекция обучающих видеоуроков с сай�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875497.jpg" />
+  <img src="Z:/picture/005/save_picture_875497.jpg" />
 </div>
 
 
@@ -543,7 +675,7 @@ Rod Stephens | [O'Reilly] Алгоритмы и структуры данных 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872796.jpg" />
+  <img src="Z:/picture/008/save_picture_872796.jpg" />
 </div>
 
 
@@ -557,144 +689,6 @@ Rod Stephens | [O'Reilly] Алгоритмы и структуры данных 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0974309876729F637ADE90D83AA633503FC4C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479295   (872457) от 17.09.2021
-
-Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 1] (2015-2021) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка видеокурсов и других материалов по программированию и администрированию 1С за 2015-2021 года.
-В состав первой части подборки входят:
-1C Предприятие для программистов
-КонфигурированиеПроизводство: Верный старт в 1C и др.Жанр: 1С, программирование, администрированиеПродолжительность: ~00:10:00 видеоурок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5DD0FBE6B588957611ADF39BDA3868C4512C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089362   (870688) от 20.02.2017
-
-Geekbrains | Wordpress для профессионалов. Разработка темы оформления (2016) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание сайта происходит в несколько этапов. После дизайна всех страниц сайта и верстки HTML макета необходимо выполнить ряд задач, без которых запуск сайта и его дальнейшее продвижение просто невозможны: создание разделов, наполнение контентом страниц сайта, настройка ключевых слов и параметров оптимизации, изменение и добавление новых материалов на сайт, администрирование (   Читать дальше...   )Производство: GeekbrainsЖанр: ВидеокурсПродолжительность: 16:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235043E922E80710C708D68ECC8770A977F97036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496775   (869364) от 19.09.2021
-
-Udemy, Manuel End | LPIC-1 - Linux System Administrator Masterclass (2021) WEB-DL [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869364.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе подготовки к экзамену LPIC-1 вы получите все необходимое для сдачи обоих экзаменов.
-На мастер-классе администратора Linux LPIC-1 вы получите более 27 часов видеоматериалов, 4 словаря, 2 рабочих тетради с почти 60 практическими задачами и 180 вопросами с несколькими вариантами ответов, которые также задаются на экзаменах. Конечно, курс охватывает текущую (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 27:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9317598A118E7D6864C6C0D5524BA71C58EEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496913   (867583) от 20.09.2021
-
-Институт прикладной автоматизации и программирования | Администрирование Linux (LPIC 1-3) (2014) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Администрирование Linux (LPIC 1)
-Если организация, в которой вы работаете, серьезно задумывается о возможности перехода на платформу Linux, а вам не приходилось сталкиваться с работой по администрированию linux и предстоит администрирование linux с нуля, то курс Администрирование linux (LPIC1) будет для вас более чем актуален. Данный курс разработан на основе программ (   Читать дальше...   )Производство: Институт прикладной автоматизации и программированияЖанр: Администрирование, LinuxПродолжительность: 56:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3F8D1DC3F88AEA81FFB659A4B2CA411724FA77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497188   (865936) от 21.09.2021
-
-PythonYoga | Python/Django + React QR Digital Menu Builder (2021) WEB-DL [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделано для ресторанов, кафе, пабов и отелей. Ваши клиенты могут делать заказы со своего стола или со своего дивана дома.
-Почему QR-код для меню?
-COVID-19
-Экономьте на расходах на печать(   Читать дальше...   )Производство: PythonYogaЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
 ```
 
 https://mybot314.ru/tekegram_catalog/

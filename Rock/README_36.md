@@ -1,3 +1,32 @@
+###  Публикация: 905953   (645800) от 08.06.2015
+
+Das Bluesgericht - Was Besseres (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry, Baby (4:15)
+02. Keine Fragen (4:07)
+03. Pfoten Da Wech (3:35)
+04. Dangerseeker (4:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466B0AC03E9C225FF7B914707D511E6F91CB8B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517897   (645708) от 02.07.2012
 
 Rod Stewart - Smiler (1974) [MP3|320 кб/с]<Rock, Folk Rock>
@@ -6,7 +35,7 @@ Rod Stewart - Smiler (1974) [MP3|320 кб/с]<Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645708.jpg" />
+  <img src="Z:/picture/008/save_picture_645708.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Brad Wilson - Blues Thunder (2015) [MP3|320 кб/с]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645659.jpg" />
+  <img src="Z:/picture/008/save_picture_645659.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Elton John - 17-11-70+ (1971) 2LP, Remastered, 2017, UMC [MP3|320 Kbps] <Country
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644720.jpg" />
+  <img src="Z:/picture/008/save_picture_644720.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Suzi Quatro - A's, B's & Rarities (2004) [MP3|320 Kbps] <Rock, Pop Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644717.jpg" />
+  <img src="Z:/picture/008/save_picture_644717.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Jani Lane - Catch A Falling Star (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643914.jpg" />
+  <img src="Z:/picture/008/save_picture_643914.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643819.jpg" />
+  <img src="Z:/picture/008/save_picture_643819.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643814.jpg" />
+  <img src="Z:/picture/008/save_picture_643814.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Led Zeppelin - Live (Bootleg) (1993) [MP3|320 кб/с]<Сlassic Rock, Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643483.jpg" />
+  <img src="Z:/picture/008/save_picture_643483.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643201.jpg" />
+  <img src="Z:/picture/008/save_picture_643201.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Gleb Kolyadin - Gleb Kolyadin (Expanded Edition) (2018) Reissue, 2021, Kscope [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642990.jpg" />
+  <img src="Z:/picture/008/save_picture_642990.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Rockin' Horse - Yes It Is (1971) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642108.jpg" />
+  <img src="Z:/picture/008/save_picture_642108.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Nick Johnston - Public Display Of Infection (2011) [MP3|215~232 Kbps (V2)] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642107.jpg" />
+  <img src="Z:/picture/008/save_picture_642107.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Screaming Lord Sutch - Rock & Horror (1991) [MP3|320 кб/с]<Rock & Roll, Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641710.jpg" />
+  <img src="Z:/picture/008/save_picture_641710.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Smashing Pumpkins - Bruised Angel Wings (2015) [MP3|320 кб/с]<Alernative Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641693.jpg" />
+  <img src="Z:/picture/008/save_picture_641693.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ The Modern Lovers - The Modern Lovers (1976), Remastered /2003, Castle Music/ [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641691.jpg" />
+  <img src="Z:/picture/008/save_picture_641691.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ La BIG Rabia - La BIG Rabia (2016) [MP3|192 Kbps] <Acoustic Rock, Blues, Latino>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640280.jpg" />
+  <img src="Z:/picture/008/save_picture_640280.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Fall of Envy - Poetic Rage (2012) Special Edition [MP3|320 Kbps] <Rock, Alt Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640208.jpg" />
+  <img src="Z:/picture/008/save_picture_640208.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Davy O'List - Second Thoughts (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640032.jpg" />
+  <img src="Z:/picture/008/save_picture_640032.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Skraeckoedlan - Sagor (2015) [MP3|320 кб/с]<Progressive Rock / Stoner / Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639926.jpg" />
+  <img src="Z:/picture/008/save_picture_639926.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639511.jpg" />
+  <img src="Z:/picture/008/save_picture_639511.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Lumbee - Overdose (1970) Unofficial Release, Special Limited Edition [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639405.jpg" />
+  <img src="Z:/picture/008/save_picture_639405.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ The Rolling Stones - Ladies and Gentlemen (2017) Live [MP3|320 Kbps] <Classic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639086.jpg" />
+  <img src="Z:/picture/008/save_picture_639086.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Jethro Tull - Greatest Hits (2011) 2CD [MP3|320 kbps] <Progressive rock - Folk r
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638866.jpg" />
+  <img src="Z:/picture/008/save_picture_638866.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638585.jpg" />
+  <img src="Z:/picture/008/save_picture_638585.jpg" />
 </div>
 
 
@@ -722,7 +751,7 @@ Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638198.jpg" />
+  <img src="Z:/picture/008/save_picture_638198.jpg" />
 </div>
 
 
@@ -736,35 +765,6 @@ Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C27DE6008A39E6FEB70E0A76A752D3009A7966D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907274   (638188) от 12.06.2015
-
-Mother's Cake - Love The Filth (2015) [MP3|320 кб/с]<Progressive / Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prelude
-2. Love The Filth
-3. Ecstasy
-4. Void(   Читать дальше...   )Жанр: Progressive / Psychedelic RockПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72519FF8DF4FDEF22B1736166BD2CD17E25AA75
 ```
 
 https://mybot314.ru/tekegram_catalog/

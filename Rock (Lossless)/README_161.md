@@ -1,3 +1,148 @@
+###  Публикация: 968817   (149427) от 26.12.2015
+
+Bon Jovi - Have A Nice Day (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have a Nice Day (3:49)
+02. I Want to Be Loved (3:49)
+03. Welcome to Wherever You Are (3:47)
+04. Who Says You Can't Go Home? (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B827FEED63FAE47AE1DC2B090720C12E7556ABF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969291   (149336) от 26.12.2015
+
+Jethro Tull - Too Old To Rock 'N' Roll: Too Young To Die! (1976) 2CD Box Set, 2015, Chrysalis Records [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude | 00:53
+02. Quiz Kid | 04:03
+03. Crazed Institution | 04:35
+04. Salamander | 02:52(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0663AB427964B16041F2D6D2CD9782FA91CF511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677673   (149259) от 19.11.2023
+
+Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz-Rock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Over-Nite Sensation
+Disc 2: Bonus Session Masters / Bonus Vault Sensations
+Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(   Читать дальше...   )Жанр: Jazz-Rock, Prog-RockПродолжительность: 4CD: 04:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968826   (149175) от 26.12.2015
+
+David Bowie - The Rise And Fall Of Ziggy Stardust And The Spiders From Mars (1972) SACD, 2003, EMI [FLAC|Lossless|tracks + .cue] <Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Years (4:43)
+02. Soul Love (3:33)
+03. Moonage Daydream (4:39)
+04. Starman (4:13)(   Читать дальше...   )Жанр: GlamПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9491CF4F587428EE110BA8D7D22C00C6B92C8C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968840   (149159) от 26.12.2015
+
+Roxy Music - The Best Of Roxy Music (2001) SACD, Compilation, 2003, Virgin [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon (4:16)
+02. More Than This (4:18)
+03. Jealous Guy (4:57)
+04. Over You (3:27)(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, GlamПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76CAA1DFD6458EDBFCDC1799B7282531F7C0172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969251   (149132) от 26.12.2015
 
 The Allman Brothers Band - 5 Classic Albums (2015) Universal Music [FLAC|Lossless|tracks + .cue] <Classic Rock, Blues-Rock>
@@ -6,7 +151,7 @@ The Allman Brothers Band - 5 Classic Albums (2015) Universal Music [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149132.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Mark Knopfler - Shangri-La (2004) SACD [FLAC|Lossless|tracks + .cue] <Folk Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149115.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Roger Waters - The Wall (Live In Berlin) (1990) 2SACD, 2003, Mercury [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149019.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Willard Grant Conspiracy - Untethered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148831.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Fire Garden - Far and Near (2016) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148697.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Blops - Blops (aka Marzo, aka Locomotora) (1973) 2006, Shadoks Musi [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148650.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Le Orme - Collage (1971) 1990,  Philips [WavPack|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148574.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Jon Lord - Before I Forget (1982) Remastered /2012, EMI Records /[APE|Lossless]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148561.jpg" />
 </div>
 
 
@@ -240,7 +385,7 @@ Allison Crowe - Tidings (2004) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Christm
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148538.jpg" />
 </div>
 
 
@@ -269,7 +414,7 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146806.jpg" />
 </div>
 
 
@@ -298,7 +443,7 @@ The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146792.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Soars - Repeater (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146180.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ VA - Hassle: Volume One (2007) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146011.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ Les Cameleons - Todos (2001) Single [FLAC|Lossless|tracks + .cue] <Rock, Ska>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146010.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ Metusa - 4 альбома (2009 - 2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145951.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Faces - Stay With Me: Faces Anthology (2012) 2CD Compilation, Remastered [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145771.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Dan Lucas - The Long Road (2021) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145685.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ The Rolling Stones - Between The Buttons (1967) SACD, Remastered, 2002 ABKCO Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145618.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ T. Rex - Electric Warrior (1971) SACD, 2003, A&M Records [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145602.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2016) The Complete Narra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145565.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Trace - 3 Albums (1974-1976) Reissue, 2009, Arcangelo, Japan [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145546.jpg" />
 </div>
 
 
@@ -601,150 +746,6 @@ Trace - 3 Albums (1974-1976) Reissue, 2009, Arcangelo, Japan [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13FECB00293C3FF0D4D1067CF1E30386589D9351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969661   (145418) от 28.12.2015
-
-Chris Rea - The Road To Hell (Parts 1 & 2) (1989) CDS [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Parts 1 & 2) (9:25)
-02. Josephine (La Version Française) (5:39)
-03. He Should Know Better (4:37)Жанр: Blues Rock, Pop RockПродолжительность: 00:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16B2A408CA17FD5FC19927BA51F924CF55E0725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969849   (145398) от 28.12.2015
-
-Keith Richards - Crosseyed Heart (Best Buy Edition) (2015) [FLAC|Image+cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crosseyed Heart
-02. Heartstopper
-03. Amnesia
-04. Robbed Blind(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566F78820B9B5DAE3CD295B166A3CE78007A476F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087467   (145235) от 28.12.2016
-
-Three Lions - Three Lions (2014) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145235.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Trouble In A Red Dress - 3:43
-2. Hold Me Down - 4:49
-3. Twisted Soul - 5:13
-4. Winter Sun - 3:36(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B202049ADBD24811126429E792A6F14679B39F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087670   (145186) от 28.12.2016
-
-Violence Fog & Jerusalem - SWF-Sessions Volume 6 (1971) 2001,  Long Hair [FLAC|Lossless|image + .cue] <KrautRock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violence Fog:
-01. New One 05:01
-02. Rolli Zink 06:44
-03. Brother Where are You 07:17(   Читать дальше...   )Жанр: KrautRock, Psychedelic RockПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2129FC166DAA558BDE64325FE098F745DE59C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087469   (145071) от 28.12.2016
-
-Mecca - III (2016) Россия, пиратка [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take My Hand (3:18)
-02. Unknown (4:23)
-03. Alone (5:03)
-04. Gone (4:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5E4EA4FF9953770773C0EE8D10B21EC08968C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

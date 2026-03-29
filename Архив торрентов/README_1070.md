@@ -6,7 +6,7 @@ Process Lasso Pro 8.9.8.102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801866.jpg" />
+  <img src="Z:/picture/008/save_picture_801866.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rick Ross - Rather You Than Me (2017) [MP3|320 kbps] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801863.jpg" />
+  <img src="Z:/picture/008/save_picture_801863.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ PhoneClean Pro 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801860.jpg" />
+  <img src="Z:/picture/008/save_picture_801860.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Chromium 57.0.2987.133 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801854.jpg" />
+  <img src="Z:/picture/008/save_picture_801854.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801853.jpg" />
+  <img src="Z:/picture/008/save_picture_801853.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801852.jpg" />
+  <img src="Z:/picture/008/save_picture_801852.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801851.jpg" />
+  <img src="Z:/picture/008/save_picture_801851.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801850.jpg" />
+  <img src="Z:/picture/008/save_picture_801850.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Famous by February - Confessions (2017) EP [FLAC|Lossless|tracks + .cue] <Indie 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801847.jpg" />
+  <img src="Z:/picture/008/save_picture_801847.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ QLab Pro 4 v4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801827.jpg" />
+  <img src="Z:/picture/008/save_picture_801827.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ iShowU Studio 2 v2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801823.jpg" />
+  <img src="Z:/picture/008/save_picture_801823.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Exposure Software Blow Up 3 v3.1.4.391 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801816.jpg" />
+  <img src="Z:/picture/008/save_picture_801816.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Exposure X7 v7.0.2.119 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801813.jpg" />
+  <img src="Z:/picture/008/save_picture_801813.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Task Office 6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801810.jpg" />
+  <img src="Z:/picture/008/save_picture_801810.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ AudFree Auditior 2.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801809.jpg" />
+  <img src="Z:/picture/008/save_picture_801809.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Maxthon Browser MX5 5.0.3.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801804.jpg" />
+  <img src="Z:/picture/008/save_picture_801804.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Elmedia Player PRO 6.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801803.jpg" />
+  <img src="Z:/picture/008/save_picture_801803.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Wise Game Booster 1.3.9.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801799.jpg" />
+  <img src="Z:/picture/008/save_picture_801799.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Softany WinCHM Pro 5.2 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801780.jpg" />
+  <img src="Z:/picture/008/save_picture_801780.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ IINA 0.0.15 (build 64) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801772.jpg" />
+  <img src="Z:/picture/008/save_picture_801772.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ FontLab 7 v7.1.2.7436 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801763.jpg" />
+  <img src="Z:/picture/008/save_picture_801763.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Viper FTP 5.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801761.jpg" />
+  <img src="Z:/picture/008/save_picture_801761.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Exposure Software Snap Art 4 v4.1.3.384 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801745.jpg" />
+  <img src="Z:/picture/008/save_picture_801745.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Downcast 2.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801739.jpg" />
+  <img src="Z:/picture/008/save_picture_801739.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Exposure Software Eye Candy 7 v7.2.3.176 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801732.jpg" />
+  <img src="Z:/picture/008/save_picture_801732.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Autodesk AutoCAD LT 2018.0.1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801724.jpg" />
+  <img src="Z:/picture/008/save_picture_801724.jpg" />
 </div>
 
 

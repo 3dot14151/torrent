@@ -1,3 +1,109 @@
+###  Публикация: 1024512   (713018) от 10.06.2016
+
+LoftSchool | Комплексное обучение разработке на PHP (2016) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713018.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЕМУ ТЫ НАУЧИШЬСЯ, ПРОЙДЯ КУРС:
+Создавать современные PHP приложенияИспользуя лучшие передовые инструменты и технологии. Наша цель — дать тебе как можно больше знаний и навыков, необходимых для работы в современной веб-студии.Быстро реализовывать свою идеюИ запускать новый проект в срок от 2 дней до 2 недель.Использовать все необходимые инструменты для построения (   Читать дальше...   )Жанр: Программирование, PHP, Back-endПродолжительность: 35:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B162CE8D01EB0C058407C514A68CE237FE224F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025033   (713011) от 10.06.2016
+
+Navitel / Навител Навигатор v9.6.2526 RePack [Ru/En] - только программа навигации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 10.06.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600BDB464BBFD9284C4C090B22DA4E7CEBD5AA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219379   (712912) от 14.04.2018
+
+Adobe Photoshop CC 2018 19.1.3 (x64) RePack by JFK2005 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CE909491FE486BFF6BBD720D437F4DCCFF4355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893559   (712665) от 29.04.2015
+
+Easy DriverPacks 6.3.2015.0310 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайская версия драйверпаков и программы-установщика, которая способна автоматически установить и обновить драйвера на вашем компьютере.
+Использование пакетов драйверов является удобным и универсальным способом автоматической установки драйверов.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77A3D13637FAD74749D9D9172E11D9F3B54398A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893377   (712532) от 29.04.2015
 
 State of Decay: Year-One (2015) [Ru/Multi] (1.0) Repack R.G. Games [Survival Edition]
@@ -6,7 +112,7 @@ State of Decay: Year-One (2015) [Ru/Multi] (1.0) Repack R.G. Games [Survival Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712532.jpg" />
+  <img src="Z:/picture/008/save_picture_712532.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712529.jpg" />
+  <img src="Z:/picture/008/save_picture_712529.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712389.jpg" />
+  <img src="Z:/picture/008/save_picture_712389.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Microsoft Office 2016 Select Edition 16.0.4498.1000 RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712007.jpg" />
+  <img src="Z:/picture/008/save_picture_712007.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711589.jpg" />
+  <img src="Z:/picture/005/save_picture_711589.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ CorelDRAW Graphics Suite 2018 20.0.0.633 RePack by KpoJIuK[Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711101.jpg" />
+  <img src="Z:/picture/008/save_picture_711101.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ OTUS | Разработчик Java [32 занятия из 32] (2017-2018) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711097.jpg" />
+  <img src="Z:/picture/008/save_picture_711097.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711055.jpg" />
+  <img src="Z:/picture/008/save_picture_711055.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Adobe Photoshop CC 2015 (v16.1.2) x86-x64 RUS/ENG Update 5
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711051.jpg" />
+  <img src="Z:/picture/008/save_picture_711051.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.11.1.0/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711046.jpg" />
+  <img src="Z:/picture/008/save_picture_711046.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711044.jpg" />
+  <img src="Z:/picture/008/save_picture_711044.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711038.jpg" />
+  <img src="Z:/picture/008/save_picture_711038.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710546.jpg" />
+  <img src="Z:/picture/008/save_picture_710546.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710535.jpg" />
+  <img src="Z:/picture/008/save_picture_710535.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710471.jpg" />
+  <img src="Z:/picture/008/save_picture_710471.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710344.jpg" />
+  <img src="Z:/picture/008/save_picture_710344.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ WebForMySelf | JavaScript. Полное руководство для совре
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710333.jpg" />
+  <img src="Z:/picture/008/save_picture_710333.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ ABBYY FineReader 14.107.232 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710329.jpg" />
+  <img src="Z:/picture/008/save_picture_710329.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ Crysis: Remastered (2021) [Ru/En] (3.0.0) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710277.jpg" />
+  <img src="Z:/picture/008/save_picture_710277.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710254.jpg" />
+  <img src="Z:/picture/005/save_picture_710254.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ TNOD User & Password Finder 1.6.5.0 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709473.jpg" />
+  <img src="Z:/picture/008/save_picture_709473.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ Windows XP Pro SP3 Rus VL Final x86 Diablik94 Edition [29.04.2011/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709343.jpg" />
+  <img src="Z:/picture/005/save_picture_709343.jpg" />
 </div>
 
 
@@ -571,113 +677,6 @@ Windows XP Pro SP3 Rus VL Final x86 Diablik94 Edition [29.04.2011/Rus]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329556   (709222) от 29.04.2011
-
-AMD Catalyst 11.4 [Multilanguage+Rus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709222.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMD выпустила новую версию драйвера Catalyst 11.4 WHQL. Этот выпуск поддерживает видеокарты серий Radeon HD 2000, HD 3000, HD 4000, HD 5000 и HD 6000, а также чипсеты Radeon 3000 и 4000.Язык интерфейса: Multilanguage+Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025607   (709178) от 12.06.2016
-
-Autodesk AutoCAD 2017 HF3 x86-x64 RUS-ENG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709178.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов. Пришло время проектировать (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544238C7AE9E51CFF996877F666410DE1A268336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286764   (708722) от 04.03.2019
-
-Сколько россияне тратят на бензин
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_708722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Больше всего россиян - 42 процента - тратят на бензин в месяц свыше 4 тысяч рублей. К такому выводу пришли эксперты аналитического агентства "Автостат", проведя онлайн-опрос российских автомобилистов. Примерно каждый пятый (20,6 процента) ежемесячно выделяет из своего бюджета на топливо от 3 до 4 тысяч рублей, а почти каждый шестой (17,2 процента) - от (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286749   (708608) от 04.03.2019
-
-Ярослав Брин | Фитнес модель за 4 месяца - 5.0 (2018) HDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговый Видео - Тренинг по Вашему Преображению.
-За 4 месяца произойдет самая Яркая и Адски Тяжелая трансформация вашего тела и сознания.
-Никаких соплей из Рубрики Полюби себя такой, какая ты есть, Хорошего человека должно быть много, Главное Внутренний мир.
-Это мы оставим психологам, торговцам шаурмой и продавцам из магазина одежды больших размеров.Производство: РоссияЖанр: Видеотренинг по жиросжиганиюПродолжительность: 69:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6AF9EFB49CBC2F9836B5CEA199BF58E6799C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

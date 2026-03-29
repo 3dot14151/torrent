@@ -1,3 +1,29 @@
+###  Публикация: 1014178   (776449) от 07.05.2016
+
+Джон Стейнбек | Русский дневник (2008) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского писателя Джона Стейнбека "Русский дневник" написана в 1947 году после его путешествия по Советскому Союзу. Очень точно, с деталями быта и подробностями встреч Стейнбек воспроизводит свое путешествие по стране (Москва - Сталинград - Украина - Грузия).Жанр: Зарубежная литератураИздательство: Нигде не купишьПродолжительность: 05:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337DE24C97D60948E3EFBEF2EFA5B5A419D95E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014203   (776444) от 07.05.2016
 
 Стефан Цвейг | Нетерпение сердца (2016) [MP3, Евгений Терновский]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776444.jpg" />
+  <img src="Z:/picture/008/save_picture_776444.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776164.jpg" />
+  <img src="Z:/picture/008/save_picture_776164.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775089.jpg" />
+  <img src="Z:/picture/008/save_picture_775089.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774345.jpg" />
+  <img src="Z:/picture/008/save_picture_774345.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774282.jpg" />
+  <img src="Z:/picture/008/save_picture_774282.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773537.jpg" />
+  <img src="Z:/picture/008/save_picture_773537.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773384.jpg" />
+  <img src="Z:/picture/008/save_picture_773384.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772964.jpg" />
+  <img src="Z:/picture/008/save_picture_772964.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771983.jpg" />
+  <img src="Z:/picture/008/save_picture_771983.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771916.jpg" />
+  <img src="Z:/picture/008/save_picture_771916.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771837.jpg" />
+  <img src="Z:/picture/008/save_picture_771837.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771715.jpg" />
+  <img src="Z:/picture/008/save_picture_771715.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771633.jpg" />
+  <img src="Z:/picture/008/save_picture_771633.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771632.jpg" />
+  <img src="Z:/picture/008/save_picture_771632.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771601.jpg" />
+  <img src="Z:/picture/008/save_picture_771601.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771595.jpg" />
+  <img src="Z:/picture/008/save_picture_771595.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771202.jpg" />
+  <img src="Z:/picture/008/save_picture_771202.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770529.jpg" />
+  <img src="Z:/picture/008/save_picture_770529.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770527.jpg" />
+  <img src="Z:/picture/008/save_picture_770527.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770356.jpg" />
+  <img src="Z:/picture/008/save_picture_770356.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770068.jpg" />
+  <img src="Z:/picture/008/save_picture_770068.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769887.jpg" />
+  <img src="Z:/picture/008/save_picture_769887.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769635.jpg" />
+  <img src="Z:/picture/008/save_picture_769635.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769528.jpg" />
+  <img src="Z:/picture/008/save_picture_769528.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769520.jpg" />
+  <img src="Z:/picture/008/save_picture_769520.jpg" />
 </div>
 
 
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8006169B9E301D0F2420CEDF9E859A64CF3B75DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392524   (769249) от 26.06.2020
-
-Аманда Квик | Кольца Афродиты (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могущественные древние «кольца Афродиты».
-Загадочная реликвия, сыгравшая, как имеет основания подозревать Беатрис Пул, весьма важную роль в таинственной гибели ее любимого дядюшки. Однако кто поверит девушке, снискавшей славу автора модных «готических романов»? Ей ведь всюду мерещатся ужасные тайны!
-В полном отчаянии, Беатрис обращается за помощью к самому мрачному (   Читать дальше...   )Жанр: РоманПродолжительность: 10:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F7E4BAECB8A38177A0F5C2AC821855200732CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

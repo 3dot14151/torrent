@@ -1,3 +1,29 @@
+###  Публикация: 1362095   (950452) от 22.02.2020
+
+Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танки: Настоящая Битва за Анцио! [2014, OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950452.jpg" />
+</div>
+
+
+###  Подробнее
+
+OVA, сюжет которой рассказывает о битве против старшей школы Анцио. Хронологически, это 8-ой эпизод TV-сериала.Производство: Actas, ЯпонияЖанр: ПриключенияРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая закадроваяСубтитры: ПолныеПродолжительность: 37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A76FAC130106A9DDAE8FA408DF5957CF36A920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362094   (950451) от 22.02.2020
 
 Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Танки. Фильм [2015, Movie] BDRip 1080p 10-bit raw+rus
@@ -6,7 +32,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950451.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950450.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950449.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942306.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939075.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939074.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939073.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935633.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935632.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935631.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Charlotte | Шарлотта [2015, TV, 13 ep + 1 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934325.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932868.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932867.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932866.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931385.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931384.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931380.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931379.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931378.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931377.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929852.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928562.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926606.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924948.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923245.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D959403197C78A5A50B6989060225AB494E553AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358080   (923240) от 11.03.2020
-
-Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочется Петь [2015, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способность говорить даёт великую возможность выражать свои мысли и чувства, делиться ими с кем-то. Эта способность по-настоящему делает человека счастливым. Но слова могут ранить, причинить невыносимую боль. Сказанное сгоряча, в порыве безудержного гнева, и слова, которые не имели своей целью обидеть... Жизнь учит нас быть сдержанными в выражениях, но фразеологизму (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Романтика, ДрамаРежиссер: Нагай ТацуюкиОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 1:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFDDAB069756EF28969D00B5A6DF79DEA9B7EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

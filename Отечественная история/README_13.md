@@ -1,3 +1,29 @@
+###  Публикация: 1405403   (482861) от 30.08.2020
+
+Последний воин СМЕРШа (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 января 2020 Иван Лаврентьевич Устинов отметил свой сотый День рождения. Военный контрразведчик! Человек-эпоха! Он прошел Великую Отечественную. Воевал в составе легендарного СМЕРШ, который 19 апреля 2020 отметил 77-ю годовщину со дня создания. Ловил шпионов. Позже - боролся с происками иностранных разведок в период Холодной войны. Возглавлял военную контрразведку (   Читать дальше...   )Производство: Россия, т/к "Звезда"Жанр: Документальный, биографияРежиссер: Сергей МерзляковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939572DA5C1902876C0C974CEACC0798E725DC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319703   (479224) от 14.08.2019
 
 Символы эпохи (2014-2015) SATRip (1-27 серии из ??) (Обновляемая)
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479224.jpg" />
+  <img src="Z:/picture/008/save_picture_479224.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472918.jpg" />
+  <img src="Z:/picture/008/save_picture_472918.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471265.jpg" />
+  <img src="Z:/picture/008/save_picture_471265.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470952.jpg" />
+  <img src="Z:/picture/008/save_picture_470952.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468800.jpg" />
+  <img src="Z:/picture/008/save_picture_468800.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464616.jpg" />
+  <img src="Z:/picture/008/save_picture_464616.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457975.jpg" />
+  <img src="Z:/picture/008/save_picture_457975.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457173.jpg" />
+  <img src="Z:/picture/008/save_picture_457173.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454751.jpg" />
+  <img src="Z:/picture/008/save_picture_454751.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454681.jpg" />
+  <img src="Z:/picture/008/save_picture_454681.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453028.jpg" />
+  <img src="Z:/picture/008/save_picture_453028.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452054.jpg" />
+  <img src="Z:/picture/008/save_picture_452054.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450604.jpg" />
+  <img src="Z:/picture/008/save_picture_450604.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449258.jpg" />
+  <img src="Z:/picture/008/save_picture_449258.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445015.jpg" />
+  <img src="Z:/picture/008/save_picture_445015.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442039.jpg" />
+  <img src="Z:/picture/008/save_picture_442039.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441164.jpg" />
+  <img src="Z:/picture/008/save_picture_441164.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440931.jpg" />
+  <img src="Z:/picture/008/save_picture_440931.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439427.jpg" />
+  <img src="Z:/picture/008/save_picture_439427.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438659.jpg" />
+  <img src="Z:/picture/008/save_picture_438659.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438493.jpg" />
+  <img src="Z:/picture/008/save_picture_438493.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438484.jpg" />
+  <img src="Z:/picture/008/save_picture_438484.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438418.jpg" />
+  <img src="Z:/picture/008/save_picture_438418.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436178.jpg" />
+  <img src="Z:/picture/008/save_picture_436178.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436101.jpg" />
+  <img src="Z:/picture/008/save_picture_436101.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F5CA62EB6FE5CA8DB043207628002B5C01DD1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323204   (433412) от 05.09.2019
-
-Подвиг на Халхин-Голе (2019) SATRip (1-4 серия из 4)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монгольские степи. Халхин-Гол. 80 лет назад на этой земле нашли свою смерть тысячи советских и монгольских солдат и офицеров. За что они бились с японцами в полутора тысячах километров от границы СССР? Зачем в эти степи пришла из Японии Квантунская армия? И почему Монголия до сих пор благодарна советскому маршалу Георгию Жукову? Тот давно минувший конфликт на Халхин-Голе (   Читать дальше...   )Производство: Россия, ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, война, историяРежиссер: Алексей КременецкийПродолжительность: 4 х ~ 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3B20579556839206316E53751120FDF29CBEE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

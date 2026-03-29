@@ -1,3 +1,81 @@
+###  Публикация: 1754633   (40736) от 11.10.2024
+
+Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40736.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Средневековая доставка" - это симулятор и приключенческая игра. Погрузитесь в захватывающее путешествие по миру Средних веков, полному тайн и интриг. Игра происходит в оживленном городе Торнридж, где игроки берут на себя роль Алистера, скромного курьера с тайной прошлой. Путешествуя через живописные пейзажи и взаимодействуя с разнообразными жителями города, (   Читать дальше...   )Тип издания: RepackРазработчик: Mega Game StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A1F1AD9FB44E661C29692E9E27E47988C983D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754567   (40730) от 11.10.2024
+
+The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/dlc) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия, подарившая нам Until Dawn, представляет серию не связанных между собой кинематографичных игр с разветвлённым сюжетом в жанре ужасов. Отлично подходит для коротких игровых сеансов в одиночку или с друзьями. The Devil in Me - четвёртая игра серии, завершающая первый сезон. Группа документалистов получает таинственное приглашение в современную копию «Замка убийств» (   Читать дальше...   )Тип издания: RepackРазработчик: Supermassive GamesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22A4CBF503059AADB27A859CA30EBFF5E6DDE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754618   (40723) от 11.10.2024
+
+The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор выживания на обитаемом острове - The Forest - сделана в новой для того времени графике, открыв совершенно неоднозначные игровые процессы для протагониста. Мы играем за персонажа, который попал на обитаемый остров, и теперь должен выжить при любых условиях. Атакующие туземцы-каннибалы, звери, нехватка еды, воды и убежища - всё это только мелочи. Недалеко (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651FF423BFE28D5A05E80DD04C9A7781EBD6C239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754588   (40693) от 11.10.2024
 
 The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
@@ -6,7 +84,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40693.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40633.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40540.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40525.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40519.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40134.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40106.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39921.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39904.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39896.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39881.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39879.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39878.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39845.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39826.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39732.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39729.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39724.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39626.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39606.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39450.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39263.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39241.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ INDIKA - игра от третьего лица с историей о стра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF94492FB334957718CFE1983D9E52438440339F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753864   (39131) от 27.10.2024
-
-Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond Shadowgate, захватывающее продолжение классической приключенческой игры для NES, вдыхает новую жизнь в жанр приключений "укажи и щелкни". Спустя более трех десятилетий эта любимая жемчужина вновь появляется на свет с повествованием, которое в четыре раза масштабнее, чем у ее предшественницы, сочетая ностальгическую 8-битную эстетику с современным (   Читать дальше...   )Тип издания: LicenseРазработчик: Zojoi LLC., GrahfMetalЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720E080ABD6327B3E9031D87F819E61B69EA33FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756246   (39054) от 28.10.2024
-
-Neva (2024) [Ru/Multi] (1.02) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмоциональное приключение Neva сделала та же команда разработчиков, которая выпустила игру GRIS, тепло принятую критиками и полюбившуюся игрокам. Главная героиня Neva - девушка Альба, которая после встречи с тёмными силами оказалась связана с любопытным волчонком. Вместе они отправляются в опасное путешествие по некогда прекрасному умирающему миру. Альба и волчонок (   Читать дальше...   )Тип издания: RepackРазработчик: Nomada StudioЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757578   (39022) от 28.10.2024
-
-The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39022.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Coma 2B: Catacomb - корейская приключенческая игра, совмещающая в себе элементы хоррора и симулятора выживания. Сюжет этой предыстории The Coma 2: Vicious Sisters объединяет всю серию. Чой Ёнхо, герой The Coma 1, снова отправляется в жуткое зеркальное измерение. Что произошло между The Coma 1 и The Coma 2? Ответ вы узнаете в этой игре.Тип издания: RepackРазработчик: Dvora Studio Co., Ltd.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: КорейскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
 ```
 
 https://mybot314.ru/tekegram_catalog/

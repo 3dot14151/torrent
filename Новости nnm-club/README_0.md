@@ -1,3 +1,107 @@
+###  Публикация: 1851430   (1055296) от 03.02.2026
+
+Запустилась соцсеть Moltbook, где общаются только ИИ-агенты - нам разрешили только смотреть
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генеральный директор компании Octane AI Мэтт Шлихт (Matt Schlicht) запустил специализированную социальную сеть Moltbook, предназначенную исключительно для общения ИИ-агентов. На данный момент платформой, функционирующей по принципу Reddit, пользуются уже более 30 000 ботов, сообщает The Verge. Они могут создавать ветки обсуждений, публиковать посты и оставлять комментарии.Платформа (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851425   (1055095) от 02.02.2026
+
+Мы победили: Microsoft отказывается от чрезмерного использования ИИ в Windows 11
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft всерьёз пересматривает подход к интеграции в Windows 11 инструментов на базе искусственного интеллекта, включая виртуального помощника Copilot и спорную функцию Recall, которая фиксирует все действия пользователя операционной системы. Софтверный гигант сократит функциональность Copilot и пересмотрит концепцию Recall в рамках серьёзного изменения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850866   (1054899) от 31.01.2026
+
+Акции Microsoft показали сильнейшее падение с 2020 года
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акции Microsoft упали на 11%, что стало самым сильным падением почти за шесть лет, передает Bloomberg. Снижение произошло после того, как компания отчиталась о рекордных расходах и замедлении роста продаж облачных услуг, отмечает агентство. Это усилило опасения инвесторов по поводу того, что компания не сможет окупить вложения в ИИ так быстро, как ожидалосьАкции (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850916   (1054725) от 01.02.2026
+
+В ответах ChatGPT обнаружили региональную дискриминацию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054725.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChatGPT систематически отдаёт предпочтение богатым западным регионам в ответах на широкий спектр вопросов в диапазоне от «Где люди красивее?» до «Какая страна безопаснее?», и виной всему предубеждения в обучающих массивах. Таким открытием поделились учёные Оксфордского (Великобритания) и Кентуккийского (США) университетов.Исследователи представили анализ 20 млн запросов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850342   (1054579) от 30.01.2026
 
 Во Франции депутаты поддержали закон о запрете соцсетей для детей
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054579.jpg" />
+  <img src="Z:/picture/005/save_picture_1054579.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053563.jpg" />
+  <img src="Z:/picture/005/save_picture_1053563.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053360.jpg" />
+  <img src="Z:/picture/005/save_picture_1053360.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Zapret GUI 1.60 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053264.jpg" />
+  <img src="Z:/picture/005/save_picture_1053264.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053021.jpg" />
+  <img src="Z:/picture/005/save_picture_1053021.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052627.jpg" />
+  <img src="Z:/picture/005/save_picture_1052627.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052597.jpg" />
+  <img src="Z:/picture/005/save_picture_1052597.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051367.jpg" />
+  <img src="Z:/picture/005/save_picture_1051367.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050138.jpg" />
+  <img src="Z:/picture/005/save_picture_1050138.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ ID для каждого пользователя хотят ввести в р�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049801.jpg" />
+  <img src="Z:/picture/005/save_picture_1049801.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049761.jpg" />
+  <img src="Z:/picture/005/save_picture_1049761.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049630.jpg" />
+  <img src="Z:/picture/005/save_picture_1049630.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049070.jpg" />
+  <img src="Z:/picture/005/save_picture_1049070.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1048950.jpg" />
+  <img src="Z:/picture/005/save_picture_1048950.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1048845.jpg" />
+  <img src="Z:/picture/005/save_picture_1048845.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1048742.jpg" />
+  <img src="Z:/picture/005/save_picture_1048742.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1048582.jpg" />
+  <img src="Z:/picture/005/save_picture_1048582.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1048471.jpg" />
+  <img src="Z:/picture/005/save_picture_1048471.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048341.jpg" />
+  <img src="Z:/picture/008/save_picture_1048341.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048331.jpg" />
+  <img src="Z:/picture/008/save_picture_1048331.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047721.jpg" />
+  <img src="Z:/picture/008/save_picture_1047721.jpg" />
 </div>
 
 
@@ -561,119 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047345.jpg" />
+  <img src="Z:/picture/005/save_picture_1047345.jpg" />
 </div>
 
 
 ###  Подробнее
 
 ИИ Nano Banana Pro способен генерировать поддельные документы, включая квитанции, формы KYC и даже изображения паспортов, выяснили пользователи. Модель ИИ выводит результаты с гиперреалистичным почерком или макетами документов всего по одному запросу.Возможность создать официальные документы значительно увеличивает риск мошенничества и манипуляции с личными данными. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840330   (1047276) от 05.12.2025
-
-Micron закрыла бренд Crucial и свернула производство потребительских SSD и ОЗУ, направив все силы на ИИ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Micron объявила о том, что она фактически упраздняет бренд Crucial, под которым производила модули оперативной памяти и SSD. Если точнее, Micron говорит о выходе из потребительского бизнеса Crucial.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840294   (1047088) от 04.12.2025
-
-Роскомнадзор начал менять подход к блокировке запрещенного контента
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор обновил настройки систем противодействия угрозам, что привело к сбоям в работе VPN в России. Так регулятор пытается усложнить доступ к средствам обхода блокировок для пользователей, объясняют эксперты
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839715   (1046753) от 01.12.2025
-
-В России открылось ещё одно производство материалов для печатных плат
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046753.jpg" />
-</div>
-
-
-###  Подробнее
-
-На заводе будут выпускать фольгированные диэлектрики и препреги как для стандартных задач, так и для высокочастотных и высокоскоростных устройств.Мощности завода рассчитаны на выпуск до 1,25 млн м² продукции в год. Из них 300 000 м² подходят для производства плат 6 и 7 классов точности, то есть более сложных и плотных по компоновке. Такие платы используют (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839331   (1046682) от 30.11.2025
-
-Ученые выяснили, когда мозг перестает развиваться: 32 года — точка невозврата
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый анализ почти четырёх тысяч МРТ-сканов показал, что человеческий мозг проходит через пять заметно различающихся этапов, и каждый связан с перестройкой внутренней структуры, влияющей на способы обработки информации. Эти длительные периоды задают траекторию умственного развития — от первых лет жизни до глубокой старости — и в итоге определяют, как меняются когнитивные (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

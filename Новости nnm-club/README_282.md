@@ -1,3 +1,161 @@
+###  Публикация: 1740784   (47730) от 06.08.2024
+
+Россия за время продэмбарго стала чистым экспортером свинины и мяса птицы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия в этом году "отмечает" очередной юбилей продовольственного эмбарго: ровно десять лет назад в ответ на санкции Запада страна запретила ввоз некоторых произведенных там продуктов питания. Эти ограничения не привели к дефициту, Россия даже смогла сама существенно нарастить поставки продуктов из стоп-листа за рубеж, а по ряду позиций и вовсе стала чистым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241155   (47714) от 06.08.2024
+
+Декстер / Dexter (2010) HDTVRip (сезон 5, серии 1-12 из 12) Новамедиа
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дом в пригороде, любящая жена, трое детей... хронический недосып, проваленное дело в суде, жажда убийства, агент Лэнди, вернувшийся в Майами и загадочный маньяк, убивающий вот уже тридцать лет - будни Декстера Моргана становятся все более насыщенными и разнообразными. Можно ли удержаться на грани, если в одной руке у тебя разделочный нож, а в другой - памперс? Удастся (   Читать дальше...   )Производство: США / Clyde Phillips Productions, Devilina Productions, ShowtimeЖанр: триллер, драма, криминал, детективРежиссер: Джон Дал, Стив Шилл, Кит ГордонАктеры: Майкл С. Холл, Дженнифер Карпентер, Дэвид Зайас, Джеймс Римар, К.С. Ли, Луна Лорен Велес, Десмонд Хэррингтон, Джули Бенц, Кристина Робинсон, Джеффри ПирсонПеревод: hatifnattenЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8820248EB145AB84F31CAC2082222C3B4AEF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740785   (47601) от 07.08.2024
+
+Российский робот установил новый рекорд по сборке кубика Рубика
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский робот побил мировой рекорд по скоростной сборке кубика Рубика. Ему удалось собрать головоломку за 0,203 секунды. Об этом сообщил создатель робота Александр Кротов, передает РИА Новости.Уточняется, что предыдущий рекорд принадлежал роботу японской компании Mitsubishi Electric Corporation, который смог собрать кубик Рубика за 0,305 секунды. Для сравнения, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741381   (47553) от 07.08.2024
+
+Очередное достижение: 3000 релизов от krochka1!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 3000 релизов от krochka1!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 3000-м релизом!
+Невероятное количество релизов, огромный труд!!!
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616844   (47503) от 08.08.2024
+
+SnowRunner (2020) [Ru/Multi] (31.0/dlc) Repack dixen18
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главное отличие SnowRunner от множества других симуляторов грузоперевозок заключается в том, что здесь нет ровных дорог, шоссе и автобанов. Только снег, грязь и непреодолимые препятствия. Игра встречает интересными и разнообразными заданиями, обширными картами и, самое главное, широким выбором транспорта: внедорожники, тягачи, вездеходы и грузовики. После выбора (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E39DF33F3113BF4F00FF623F0CF6ECC9411CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741565   (47312) от 10.08.2024
+
+Представлен первый калиево-ионный аккумулятор стандартного форм-фактора 18650
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Group1 выпустила первый в мире калиево-ионный аккумулятор, выполненный в широко распространённом цилиндрическом форм-факторе 18650. Новинка была представлена в рамках 14-й ежегодной конференции Beyond Lithium, и она может стать важным шагом на пути создания стабильных и экономически выгодных альтернатив привычным литийионным батареям.Калиево-ионные батареи (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741308   (47297) от 10.08.2024
 
 Тур с Иванушками (2024) WEBRip [H.264/1080p]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47297.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47296.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47282.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47102.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47100.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.4037]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46878.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46756.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ Google могут разделить: Минюст США думает, как �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46661.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46573.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ Microsoft сняла ограничение на максимальный раз
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46466.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Synology DSM 7.2.1 [x32_x64] 2xDVD OVA IMG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46464.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46338.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46333.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46249.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ Dead Cells (2017) [Ru/Multi] (1.26.0/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46146.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ Oblivion VPN (Unofficial Warp Client) 4 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46048.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ ChatGPT5: гений логики с душой ребенка
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46026.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45921.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ Total Commander PowerUser v.74 Portable by HA3APET [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45843.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Electric Light Orchestra-The Very Best Of (1971-1986) DVD5
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45841.jpg" />
 </div>
 
 
@@ -518,165 +676,6 @@ Electric Light Orchestra-The Very Best Of (1971-1986) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:156BF96806F25BB177C847586106C3102603727D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744528   (45825) от 24.08.2024
-
-Российские геймеры в июле потратили 20 млрд рублей на игровых персонажей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российские геймеры в июле потратили на внутриигровые покупки 20,4 млрд рублей. Об этом «Известиям» сообщили аналитики онлайн-школы в сфере геймдева и компьютерной графики XYZ. Внутриигровые покупки геймеров стали фактически превышать траты на покупку игр.Специалисты уточнили, что на сегодняшний день существуют две основных модели монетизации игр: первая — с единоразовой (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745108   (45732) от 25.08.2024
-
-Собиратель душ / Longlegs (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45732.jpg" />
-</div>
-
-
-###  Подробнее
-
-По оценкам ФБР, лишь один из пяти серийных убийц попадает в руки закона, а остальные остаются на свободе. Агент Ли Харкер охотится за одним из таких неуловимых чудовищ по прозвищу Собиратель душ. Более десяти лет его жертвами становились целые семьи, члены которых по непонятными причинам убивали друг друга. Чем ближе Харкер подбирается к разгадке личности убийцы, (   Читать дальше...   )Производство: США, Канада / C2 Motion Picture GroupЖанр: триллер, детектив, ужасыРежиссер: Осгуд ПеркинсАктеры: Майка Монро, Николас Кейдж, Блэр Андервуд, Алисия Уитт, Мишель Чхве-Ли, Дакота Долби, Лорен Акала, Кирнан Шипка, Майла Хоси, Джейсон ДэйПеревод: Многоголосый (HDrezka Studio, LineFilm), двуголосый (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C087D3E908BF385419964BF2D181C86D24475038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745120   (45531) от 27.08.2024
-
-В Норвегии заработала первая в Европе фабрика по производству LFP-аккумуляторов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежцы первыми в Европе начали тестовое производство литий-железо-фосфатных (LFP) аккумуляторов. На днях там официально открылась первая в этой части света фабрика по выпуску перспективных аккумуляторов. Мощность производства составит 1 ГВт·ч в год с перспективой многократного роста до внушительных 43 ГВт·ч в год к 2028 году.Четыре года назад завод по выпуску первых (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745757   (45521) от 27.08.2024
-
-Windows 11 PRO 23H2 22631.4037 Update 10 by Ghost Spectre [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрано из en-us_windows_11_business_editions_version_23h2_updated_aug_2024_x64_dvd_4b6aa6b4.iso
-
-Что такое Compact / Superlite:
-— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2375BFF3166F736EECAAD8C30B053E1D6562996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744554   (45310) от 29.08.2024
-
-Наутилус / Nautilus (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) RuDub
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индийский принц Немо, потерявший трон после восстания против Британии, становится капитаном подводной лодки «Наутилус» и решает отомстить англичанам, которые отняли у него все.Производство: Великобритания / All3Media, Moonriver, Seven Stories ProductionsЖанр: боевик, драма, приключенияРежиссер: Майкл Мэтьюз, Бен С. Лукас, Isabelle SiebАктеры: Шазад Латиф, Джейкоб Коллинс-Леви, Камерон Каффе, Бенедикт Харди, Джорджия Флуд, Тьерри Фремон, Селин Менвиль, Kayden Price, Tyrone Ngatai, Арло ГринПеревод: Многоголосый (RuDub)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A564F4B8AC168F8A6CE18FE8E22A668DBA9652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745448   (45295) от 29.08.2024
-
-Автомобили Tesla начали проезжать на красный свет
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владельцы автомобилей Tesla столкнулись с новой проблемой: их машины иногда проезжают на красный свет. Это происходит из-за ошибок в последней версии программного обеспечения для автономного вождения.Одним из пользователей Reddit, столкнувшимся с этой проблемой, был водитель, который написал: «К счастью, я остановил автомобиль до того, как он проехал на светофоре, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

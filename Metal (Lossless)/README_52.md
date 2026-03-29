@@ -1,3 +1,86 @@
+###  Публикация: 1097924   (912671) от 28.01.2017
+
+Cholane - Caution! (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Shake Your Bones  (03:03) 
+02|  Wicked Man  (04:06) 
+03|  Streets On Fire  (03:44) 
+04|  Get Down  (04:37) (   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F076FD90C3A3C2F683D36E1435EE9A5BAEAE784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097831   (912669) от 28.01.2017
+
+House of Spirits - 2 Albums (1994,1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912669.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1994 году из двух половинок полураспавшихся групп (Olaf Bilic и Martin Hirsch из Jester's March, Uwe Baltrusch и Jorg Michael из Mekong Delta) собралась одна супергруппа. И сотворила шедевр прог-металла, по какому-то недоразумению не замеченный широкой публикой. Стилистически первый альбом не похож ни на одну из групп-предшественниц, но на Queensryche образца пика (   Читать дальше...   )1994-Turn Of The Tide
+1999-PsychosphereЖанр: Progressive MetalПродолжительность: 01:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D87E0302DCF9DB78E5D324329CA663827142AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491258   (912581) от 24.08.2021
+
+Soulrest - Angst, Ghouls and Superstitions (2021) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulrest - это Ужгородская металл группа, играющая "старорежимный Death Metal" с наклоном в Prog / Tech Death.
+Первые демо группа выпустила еще в середине 90-х, потом были два полноформатника в 2005 и 2006 годах, шесть лет перерыва и третий альбом "Beyond The Borders Of Sense" в 2012-м, который получил множество положительных рецензий и отзывов. (   Читать дальше...   )01.  Angst, Ghouls and Superstitions (30:30)Жанр: Death MetalПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F78225560B686CA974CB271FA9B3FB4DCE70D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097610   (912514) от 28.01.2017
 
 The Murder of My Sweet - Echoes of the Aftermath (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Metal>
@@ -6,7 +89,7 @@ The Murder of My Sweet - Echoes of the Aftermath (2017) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912514.jpg" />
 </div>
 
 
@@ -35,7 +118,7 @@ Kreator - Gods of Violence (2017) 3CD Mailorder Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912255.jpg" />
 </div>
 
 
@@ -64,7 +147,7 @@ Megaherz - Erdwarts (2015) EP [FLAC|Lossless|image + .cue] <Industrial Metal, ND
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911868.jpg" />
 </div>
 
 
@@ -94,7 +177,7 @@ Schlafes Bruder - Heute War Gott Nicht Hier (2013) [FLAC|Lossless]< Symphonic Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911242.jpg" />
 </div>
 
 
@@ -123,7 +206,7 @@ Jaded Star - Memories From The Future (2015) [FLAC|Lossless|tracks + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910891.jpg" />
 </div>
 
 
@@ -152,7 +235,7 @@ Seven Sisters - Seven Sisters (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910877.jpg" />
 </div>
 
 
@@ -181,7 +264,7 @@ Trappazat - From Dusk Till Dawn (2012) [FLAC|Lossless|image + .cue] <NWOBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910856.jpg" />
 </div>
 
 
@@ -210,7 +293,7 @@ Whispering Woods - 2 Albums (2011-2015) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910780.jpg" />
 </div>
 
 
@@ -239,7 +322,7 @@ Machine Head - Catharsis (2018) [FLAC|Lossless|tracks + .cue] <Groove Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910760.jpg" />
 </div>
 
 
@@ -268,7 +351,7 @@ Astarte - Doomed Dark Years (1998) Reissued, 2002 [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910612.jpg" />
 </div>
 
 
@@ -297,7 +380,7 @@ Crashtime - Valley Of The Kings (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910573.jpg" />
 </div>
 
 
@@ -326,7 +409,7 @@ Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910138.jpg" />
 </div>
 
 
@@ -356,7 +439,7 @@ Helloween - Keeper Of The Seven Keys (Parts I & II)(US 1-st press) (1987, 1988) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910059.jpg" />
 </div>
 
 
@@ -385,7 +468,7 @@ Killswitch Engage - Killswitch Engage (2009) Special Edition [FLAC|Lossless|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909262.jpg" />
 </div>
 
 
@@ -414,7 +497,7 @@ Killswitch Engage - Disarm The Descent (2013) Special Edition [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909257.jpg" />
 </div>
 
 
@@ -443,7 +526,7 @@ Killswitch Engage - The End Of Heartache (2004) Reissue, 2005, Roadrunner Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909250.jpg" />
 </div>
 
 
@@ -472,7 +555,7 @@ Killswitch Engage - Incarnate (2016) Special Edition [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909069.jpg" />
 </div>
 
 
@@ -501,7 +584,7 @@ Never-Trust - Bras De Fer (2014) [FLAC|Lossless|image + .cue] <Thrash Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908950.jpg" />
 </div>
 
 
@@ -530,7 +613,7 @@ Feinstein - Hail And Farewell (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908916.jpg" />
 </div>
 
 
@@ -559,7 +642,7 @@ Pestilence - Exitivm (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908756.jpg" />
 </div>
 
 
@@ -588,7 +671,7 @@ Rotting Christ - Rituals (2016) Japanese Edition [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907903.jpg" />
 </div>
 
 
@@ -617,7 +700,7 @@ Anthrax - For All Kings (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907828.jpg" />
 </div>
 
 
@@ -646,7 +729,7 @@ Leprous - Aphelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907510.jpg" />
 </div>
 
 
@@ -660,93 +743,6 @@ Leprous - Aphelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE7B26DD48A21B7E9C32F769AAEBDE7962F2426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368932   (907493) от 21.03.2020
-
-Killswitch Engage - Alive or Just Breathing (2002) Reissue, 2005, Roadrunner Records [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Numbered Days (3:35)
-02. Self Revolution (3:09)
-03. Fixation on the Darkness (3:38)
-04. My Last Serenade (4:14)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F785EF984C2AEE09036945F38326E1F64C4160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098880   (907439) от 31.01.2017
-
-Bornholm - Primaeval Pantheons (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye of Knowledge - 07:13
-02. Atavism - 04:42
-03. Runes of Power - 05:35
-04. Old - 05:46(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BFC8632626814A2AFC2D7BE2BB8A2D8C31E9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098870   (907436) от 31.01.2017
-
-Celtefog - Sounds of the Olden Days (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Last Sight to the Known Universe - 09:07
-2. Tombs of Memories - 06:28
-3. Call of the Ancestors - 08:37
-4. Three Nights in the Mediterranean Sea - 07:01(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBF88B4E44D6EAF3B6A1E5206D24154F5AFA1E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

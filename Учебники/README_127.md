@@ -1,3 +1,57 @@
+###  Публикация: 1790366   (22055) от 08.04.2025
+
+О.Н. Цубербиллер | Задачи и упражнения по аналитической геометрии (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник рассчитан на студентов втузов и педвузов.
+В нем, по возможности, использованы задачи из области физики, механики и других прикладных наук. Обращено внимание на графики, на механическое образование кривых и поверхностей, дано понятие о простейших механизмах в связи с задачами на геометрические места.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077ED9C3DE10627B3B25F06234512D45C69C0A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790401   (22044) от 08.04.2025
+
+Б.А. Дубровин, С.П. Новиков, А.Т. Фоменко | Современная геометрия [3 книги] (1998 - 2001) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 1:
+Книга включает геометрию пространства Евклида и Минковского, их группы преобразований, классическую геометрию кривых и поверхностей, тензорный анализ и риманову геометрию, вариационное исчисление и теорию поля, основы теории относительности. Книга рассчитана на студентов-математиков, механиков, физиков-теоретиков, начиная со 2-го курса университета, и обеспечивает (   Читать дальше...   )Жанр: МатематикаИздательство: Эдиториал УРССФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2D2D2807BC2DA144E534A6A5051A5C40B8FE75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790560   (21884) от 10.04.2025
 
 О.А. Астафьева, И.А. Башкирова, Т.А. Колоскова | Секреты современной русской орфографии (2023) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21884.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21124.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21099.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21017.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20601.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19366.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19044.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18233.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17800.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17586.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15675.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15634.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15001.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14994.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ B.C. Вернодубенко, А.С. Новосёлов | Выживание л
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14637.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14325.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13697.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12348.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11620.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11588.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9863.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9345.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9318.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9315.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810437   (9314) от 04.08.2025
-
-В.А. Топоногов | Дифференциальная геометрия кривых и поверхностей (2012) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из трех частей: теории кривых в трехмерном евклидовом пространстве и на плоскости, внешней геометрии поверхностей в трехмерном евклидовом пространстве, внутренней геометрии поверхности. Учебный материал представлен двумя уровнями сложности. Первый — это классическое теоретическое изложение университетского курса дифференциальной геометрии. Второй уровень (   Читать дальше...   )Жанр: МатематикаИздательство: ФизматкнигаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0DD08B7968FBF72810A0F68A1C9411DCDDF954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810435   (9308) от 04.08.2025
-
-A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [En]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тексте представлены примеры работы с MultiSim и PSpice, а также пошаговые инструкции и полноцветные изображения экрана, которые помогут учащимся собирать схемы, подключать измерительные приборы и проверять их работу с помощью сложных компьютерных симуляций.
-Более 1200 полноцветных фотографий, схем и иллюстраций помогают прояснить и расширить основной материал главы, (   Читать дальше...   )Жанр: ЭлектротехникаЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 ```
 
 https://mybot314.ru/tekegram_catalog/

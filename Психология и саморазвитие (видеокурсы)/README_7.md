@@ -1,3 +1,34 @@
+###  Публикация: 1558169   (213234) от 19.06.2022
+
+Академия Смысла, Андрей Курпатов | Вся школа Академии Смысла (2022) WEB-DL [Часть 2 из 3] [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся школа Академии Смысла, часть 2:
+Мужчина и Женщина. Психология отношений
+Построй здоровые отношения с помощью факт-карт
+Принятие неопределенности(   Читать дальше...   )Производство: Академия СмыслаЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 45:30:05Реклама: Присутствуют сторонние наложения и вставки в видео
+
+Академия Смысла, Андрей Курпатов | Вся школа Академии Смысла (2022) WEB-DL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D569CBA28FA278015DC590D43F3B5F9A4C838BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558265   (213231) от 19.06.2022
 
 Академия Смысла, Андрей Курпатов | Вся школа Академии Смысла (2022) WEB-DL [Часть 3 из 3] [AD] [RU]
@@ -6,7 +37,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213231.jpg" />
+  <img src="Z:/picture/005/save_picture_213231.jpg" />
 </div>
 
 
@@ -37,7 +68,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212994.jpg" />
+  <img src="Z:/picture/005/save_picture_212994.jpg" />
 </div>
 
 
@@ -64,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212984.jpg" />
+  <img src="Z:/picture/005/save_picture_212984.jpg" />
 </div>
 
 
@@ -93,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212823.jpg" />
+  <img src="Z:/picture/005/save_picture_212823.jpg" />
 </div>
 
 
@@ -120,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211298.jpg" />
+  <img src="Z:/picture/005/save_picture_211298.jpg" />
 </div>
 
 
@@ -149,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210750.jpg" />
+  <img src="Z:/picture/005/save_picture_210750.jpg" />
 </div>
 
 
@@ -178,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210154.jpg" />
+  <img src="Z:/picture/005/save_picture_210154.jpg" />
 </div>
 
 
@@ -205,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210103.jpg" />
 </div>
 
 
@@ -234,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210022.jpg" />
 </div>
 
 
@@ -260,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209680.jpg" />
+  <img src="Z:/picture/005/save_picture_209680.jpg" />
 </div>
 
 
@@ -289,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208204.jpg" />
+  <img src="Z:/picture/005/save_picture_208204.jpg" />
 </div>
 
 
@@ -318,7 +349,7 @@ Lectera, Lectera | Аналитическое мышление (2025) WEB-DL [RU
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202405.jpg" />
 </div>
 
 
@@ -345,7 +376,7 @@ Skillbox, Николь Шахбазян, Динара Фахретдинова |
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201843.jpg" />
 </div>
 
 
@@ -374,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201112.jpg" />
+  <img src="Z:/picture/005/save_picture_201112.jpg" />
 </div>
 
 
@@ -402,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200992.jpg" />
+  <img src="Z:/picture/004/save_picture_200992.jpg" />
 </div>
 
 
@@ -428,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200952.jpg" />
+  <img src="Z:/picture/005/save_picture_200952.jpg" />
 </div>
 
 
@@ -454,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200929.jpg" />
+  <img src="Z:/picture/005/save_picture_200929.jpg" />
 </div>
 
 
@@ -482,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200914.jpg" />
+  <img src="Z:/picture/005/save_picture_200914.jpg" />
 </div>
 
 
@@ -508,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200912.jpg" />
+  <img src="Z:/picture/005/save_picture_200912.jpg" />
 </div>
 
 
@@ -534,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200909.jpg" />
+  <img src="Z:/picture/005/save_picture_200909.jpg" />
 </div>
 
 
@@ -563,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200888.jpg" />
+  <img src="Z:/picture/005/save_picture_200888.jpg" />
 </div>
 
 
@@ -591,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200840.jpg" />
+  <img src="Z:/picture/005/save_picture_200840.jpg" />
 </div>
 
 
@@ -620,7 +651,7 @@ Proprofiling, Алексей Филатов | Социальная инжене�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200803.jpg" />
+  <img src="Z:/picture/005/save_picture_200803.jpg" />
 </div>
 
 
@@ -648,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200745.jpg" />
+  <img src="Z:/picture/005/save_picture_200745.jpg" />
 </div>
 
 
@@ -676,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200365.jpg" />
+  <img src="Z:/picture/005/save_picture_200365.jpg" />
 </div>
 
 
@@ -687,35 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B4B4F5E61299418A9D5099C19EEDEE652AB1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624720   (200188) от 07.04.2023
-
-Proprofiling, Алексей Филатов | Психотипы в профайлинге (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общение с людьми – это очень важный и полезный навык. А знание психотипов личности позволяет разбираться в людях, находить подход к каждому и эффективнее выстраивать отношения с людьми в разных сферах жизни:
-в карьере,
-в бизнесе,
-в продажах,(   Читать дальше...   )Производство: ProprofilingЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 10:56:25Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9920E756FD8886F2F10CF2F08D5B2DDF5B58C3BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

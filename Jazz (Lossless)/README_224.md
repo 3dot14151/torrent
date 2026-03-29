@@ -1,3 +1,119 @@
+###  Публикация: 1185530   (291740) от 22.11.2017
+
+Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Boy (3:46)
+ 02. My Heart Is Open (4:01)
+ 03. Breathe Me In (3:55)
+ 04. Autumn Leaves (4:06)(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6F57B51A8B2C2B9C11274B9BED9374A16BC0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185645   (291730) от 22.11.2017
+
+Duke Ellington - Moonlight Fiesta (1936 - 1953) 3CD, 2011, Le Chant du Monde [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Caravan:
+01. Caravan [03:09]
+02. Stompy Jones [02:44]
+03. Clouds In My Heart [03:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61744510CA05D8A9CFB0FB83CA053F53365A6806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334867   (291676) от 31.10.2019
+
+Waso - Live In Laren (1980) 1992, Polydor [FLAC|Lossless|tracks + .cue] <Gypsy, Swing, Jazz Manouche>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Douce Ambiance (2:31)
+02.Georgia On My Mind (3:47)
+03.Sugar (3:46)
+04.Si Tu Savais (3:26)(   Читать дальше...   )Жанр: Gypsy, Swing, Jazz ManoucheПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA545F2A9398914C21AEA0736FB18CE086C593A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334896   (291675) от 31.10.2019
+
+Max Roach & Abdullah Ibrahim - Streams Of Consciousness 1977 (2003) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streams of Consciousness [21:01]
+02. Inception [3:53]
+03. Acclamation [9:30]
+04. Consanguinity [6:56]Жанр: Post-Bop, Free ImprovisationПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE19D7DE69C87970F464A95D2DF088FB4B2823E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262869   (291591) от 17.11.2018
 
 Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291591.jpg" />
+  <img src="Z:/picture/008/save_picture_291591.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ralph Sharon Trio - The Magic Of George Gershwin (2000) Avid Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291585.jpg" />
+  <img src="Z:/picture/008/save_picture_291585.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Casiopea - Platinum (1987) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291582.jpg" />
+  <img src="Z:/picture/008/save_picture_291582.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Casiopea - Euphony (1988) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291576.jpg" />
+  <img src="Z:/picture/008/save_picture_291576.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Mark Murphy - Links (2001) HighNote[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291491.jpg" />
+  <img src="Z:/picture/008/save_picture_291491.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Zoot Sims & Al Cohn - Zoot Case (1982) 1991, Sonet Records[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290447.jpg" />
+  <img src="Z:/picture/008/save_picture_290447.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290417.jpg" />
+  <img src="Z:/picture/008/save_picture_290417.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290416.jpg" />
+  <img src="Z:/picture/008/save_picture_290416.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ray Charles & Betty Carter - Just You Just Me (1991) Traditional Line[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290341.jpg" />
+  <img src="Z:/picture/008/save_picture_290341.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290116.jpg" />
+  <img src="Z:/picture/008/save_picture_290116.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290115.jpg" />
+  <img src="Z:/picture/008/save_picture_290115.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Eric Gale - Part Of You (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290114.jpg" />
+  <img src="Z:/picture/008/save_picture_290114.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Ronnie Scott's Jazz Quintet - Never Pat A Burning Dog (1991) Ronnie Scott's Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290113.jpg" />
+  <img src="Z:/picture/008/save_picture_290113.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Yusef Lateef - At Cranbrook And Elsewhere (1958) 2009, El Records [WavPack|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289952.jpg" />
+  <img src="Z:/picture/008/save_picture_289952.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Nat King Cole - Greatest Love Songs (1987) [FLAC|Lossless|tracks + .cue] <Ballad
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289928.jpg" />
+  <img src="Z:/picture/008/save_picture_289928.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Simone Kopmajer - Spotlight On Jazz (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289921.jpg" />
+  <img src="Z:/picture/008/save_picture_289921.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Ely Bruna - Remember The Time (2010) Irma Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289911.jpg" />
+  <img src="Z:/picture/008/save_picture_289911.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sweetbottom - Live The Reunion - (Urban Island Music) (2003) [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289889.jpg" />
+  <img src="Z:/picture/008/save_picture_289889.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ June Christy - Cocktail Hour 1950-e - 1960-e (2001) 2CD, Allegro [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289882.jpg" />
+  <img src="Z:/picture/008/save_picture_289882.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ The Plastic Waste Band - Crushed (2019) [FLAC|Lossless|tracks + .cue] <Fusion / 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289877.jpg" />
+  <img src="Z:/picture/008/save_picture_289877.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Victor Feldman - Suite Sixteen (1955) [APE|Lossless|image + .cue] <Cool, West Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288602.jpg" />
+  <img src="Z:/picture/008/save_picture_288602.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Wynton Marsalis Septet - Blue Interlude (1992) Columbia[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288596.jpg" />
+  <img src="Z:/picture/008/save_picture_288596.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Wynton Marsalis Septet - Blue Interlude (1992) Columbia[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:340CA1E1F1C64D124E17D33CEF67252C30F335DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080583   (288558) от 07.12.2016
-
-Rene Marie - Sound Of Red (2016) Motema [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sound of Red [06:01]
- 02.If You Were Mine [06:34]
- 03.Go Home [05:46]
- 04.Lost [10:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52400CCDFE5C6325CA8E35317AE8CCAE16BAD501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186336   (288460) от 24.11.2017
-
-Rob Schneiderman - Dark Blue (1994) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Blue [05:43]
-02. The Touch of Your Lips [07:59]
-03. The Lion's Mane [08:12]
-04. Silent Conversation [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F7C0C3DE5878602D0C2B207D537AF20EDEA66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186261   (288459) от 24.11.2017
-
-Billy Taylor - Solo (1988) Taylor-Made Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [06:53]
-02. A Bientot [04:47]
-03. Handle with Care [03:48]
-04. Old Folks [05:14](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE3A4F2A2A536AFBB5E92B39ECD957B4F41BA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186258   (288458) от 24.11.2017
-
-Claudio Roditi & Metropole Orchestra (1996) Mons Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rua Dona Margerida [04:40]
-02. Softly as in the Morning Sunrise [04:00]
-03. The Natural Bridge [04:50]
-04. Airegin [04:13](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC599A24A88FBF13D6342CC7F5661B8BCE04C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1339980   (264305) от 22.11.2019
+
+Sonic Syndicate - Only Inhuman (2007) [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftermath
+02. Blue Eyed Fiend
+03. Psychic Suicide
+04. Double Agent 616(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150762412BAE72A88294A244467F085CBB2CBC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339904   (264281) от 22.11.2019
+
+The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист и композитор Магнус Карлссон (Kiske/ Somerville, Magnus Karlsson's Free Fall, Primal Fear, The Codex, Planet Alliance, Last Tribe, Midnight Sun, Starbreaker, Allen/ Lande, Bob Catley, Scheepers) и вокалист Ронни Ромеро (Rainbow, Walter Giardino Temple, Eridan, Aria Inferno, Lords of Black, Jose Rubio's Nova Era, Santelmo, Voces del Rock) объединились в новом (   Читать дальше...   )--------------------------
+
+01. Don't Stand In My Way (5:02)
+02. Bring Me Home (6:24)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 01:55:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340172   (263977) от 23.11.2019
+
+Pretty Maids - Undress Your Madness (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Intro [0:34]
+2 - Serpentine [4:17]
+3 - Firesoul Fly [4:17]
+4 - Undress Your Madness [4:20](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF41086EE97FC95E506E35A3F4CD4428967AC7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340498   (263628) от 24.11.2019
 
 Machine Men - 3 Альбома Collection (2004-2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Machine Men - 3 Альбома Collection (2004-2007) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263628.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Silent Force - 6 Альбомов Collection (2000-2013) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262916.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lindemann - F&M: Frau Und Mann (2019) Special Edition [FLAC|lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262810.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262148.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262145.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262142.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262138.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262137.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Bravelord - The Power From The End Of The World (2025) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261706.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ When Nothing Remains - Echoes of Eternal Night (2025) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261594.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Sister - The Way We Fall (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261548.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Exodus - Tempo Of The Damned; Shovel Headed Kill Machine (2024) Compilation, Rei
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260748.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Sterbhaus - Next Akin to Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260571.jpg" />
+  <img src="Z:/picture/005/save_picture_260571.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Mekong Delta - Intersections (2012) [FLAC|Lossless]<Progressive Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258748.jpg" />
+  <img src="Z:/picture/005/save_picture_258748.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Diablo Swing Orchestra - Pandora's Pinata (2012) [FLAC|Lossless]<Avant-Garde Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258620.jpg" />
+  <img src="Z:/picture/005/save_picture_258620.jpg" />
 </div>
 
 
@@ -453,7 +540,7 @@ Agalloch - Ashes Against The Grain (2006) 2XCD, Reissue, 2025, Eisenwald , Delux
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257822.jpg" />
+  <img src="Z:/picture/005/save_picture_257822.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ Moonspell + Orquestra Sinfonietta De Lisboa - Opus Diabolicum (The Orchestral Li
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257732.jpg" />
+  <img src="Z:/picture/005/save_picture_257732.jpg" />
 </div>
 
 
@@ -511,7 +598,7 @@ Elithium - Strangers Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257621.jpg" />
+  <img src="Z:/picture/005/save_picture_257621.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ Spiritbox - Сollection (2021 - 2025) 3 CD [FLAC|Lossless|tracks + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257512.jpg" />
+  <img src="Z:/picture/005/save_picture_257512.jpg" />
 </div>
 
 
@@ -570,7 +657,7 @@ Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256749.jpg" />
+  <img src="Z:/picture/005/save_picture_256749.jpg" />
 </div>
 
 
@@ -599,7 +686,7 @@ Michael Schenker Group - Don't Sell Your Soul (2025) Japanese Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255665.jpg" />
+  <img src="Z:/picture/005/save_picture_255665.jpg" />
 </div>
 
 
@@ -628,7 +715,7 @@ Kambrium - Dawn of the Five Suns (2018) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255484.jpg" />
+  <img src="Z:/picture/005/save_picture_255484.jpg" />
 </div>
 
 
@@ -657,7 +744,7 @@ Korova - A Kiss in the Charnel Fields (1995) [FLAC|Lossless|image + .cue] <Avant
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255483.jpg" />
+  <img src="Z:/picture/005/save_picture_255483.jpg" />
 </div>
 
 
@@ -671,93 +758,6 @@ Korova - A Kiss in the Charnel Fields (1995) [FLAC|Lossless|image + .cue] <Avant
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251725A6540DD3342FAE4C4CF4F978B90164DDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624559   (255482) от 06.04.2023
-
-Tytus - Roaming In Despair (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The March Of The Unwilling
-2. Fistful Of Sand
-3. Gotta Keep Movin' (MC5 cover)
-4. Motori (Divlje Jagode cover)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA1DBF085CDD11C377EB19F65976ED1A0CB36C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624545   (255481) от 06.04.2023
-
-Weedzard - Weedzard (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mountain [00:06:57]
-02. Science [00:07:10]
-03. Facada [00:06:43]
-04. Wheels on Fire [00:02:29](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2763AF82541D4D7B83CA18B958EE022292EC0E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624456   (255480) от 06.04.2023
-
-Vatican Spectrum - Ave Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Satan
-02. No! Woman No Die
-03. Liars
-04. Vatican Spectrum(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10C502A487EAE3DF71C7E357745AD93BF56FDBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

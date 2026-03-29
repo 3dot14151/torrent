@@ -1,3 +1,111 @@
+###  Публикация: 1647437   (231623) от 18.07.2023
+
+Владимир Набоков | Камера Обскура (2013) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камера обскура" (1931, опубл. 1932-1933) - пятый русский роман Владимира Набокова и второй из трех его романов на "немецкую" тему. Берлинский искусствовед Бруно Кречмар, увлекшись бездарной шестнадцатилетней актриской Магдой Петерс, тайной любовницей художника Роберта Горна, бросает семью и вовлекается в глумливый околоартистический круг, не подозревая, (   Читать дальше...   )Жанр: Классическая проза, РоманИздательство: Нигде не купишьПродолжительность: 08:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE8C9D2F3B75521C4F71336D3CFE559861E0246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636454   (231611) от 30.05.2023
+
+Юкио Мисима | Золотой храм (2023) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_231611.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1950 году в приступе безумия, молодой буддийский послушник поджигает знаменитый Золотой храм в Киото. Юкио Мисима был настолько потрясен случившимся, что позже превратил эту историю в роман, который не только считается вершиной творчества Мисимы, но и входит в число самых читаемых в мире произведений японской литературы.
+
+Молодой Мидзогути – сын бедного провинциального (   Читать дальше...   )Жанр: классическая прозаПеревод: Григорий ЧхартишвилиПродолжительность: 09:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AA6EB7C029FFB2045F30B0F5B103D709B39B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648267   (230974) от 22.07.2023
+
+Александр  Куприн | Суламифь (2007) [MP3, Алексей Россошанский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230974.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Были царства и цари, и от них не осталось и следа, как от ветра, пробежавшего над пустыней. Были длинные, беспощадные войны, после которых имена полководцев сияли в веках, точно кровавые звёзды; но время стёрло даже старую память о них».
+
+«Любовь же бедной девушки из виноградника и великого царя никогда не пройдёт и не забудется, потому что крепка, как смерть, любовь, (   Читать дальше...   )Жанр: литература 19 века, русская классикаИздательство: Литрес ПаблишингПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C4A0E9A5CB13E7E4A444ED5629CDEB56F9FA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637754   (230637) от 05.06.2023
+
+Пелам Гренвилл Вудхаус | Дела и приключения мистера Акриджа (2023) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_230637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позвольте представить – Стенли Федерстонхау Акридж. Великий интриган и отчаянно безалаберный тип, у которого никогда нет денег, зато полно уверенности в том, что вселенная обязательно позаботится о нем. Он никогда не унывает и всегда полон свежих идей: как завоевать мир или заработать миллион фунтов стерлингов. Уверены, с мистером Акриджем и захватывающими историями (   Читать дальше...   )Жанр: зарубежная классикаПродолжительность: 06:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ECF98E406134547F5DCCF7AB38F7404509E88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353739   (230619) от 09.10.2022
 
 Марина Цветаева | Мне нравится, что Вы больны не мной… [сборник] (2019) [MP3, Елизавета Егорова]
@@ -6,7 +114,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230619.jpg" />
+  <img src="Z:/picture/005/save_picture_230619.jpg" />
 </div>
 
 
@@ -35,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230570.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230483.jpg" />
+  <img src="Z:/picture/005/save_picture_230483.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230042.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229432.jpg" />
+  <img src="Z:/picture/004/save_picture_229432.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227790.jpg" />
+  <img src="Z:/picture/005/save_picture_227790.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226691.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226374.jpg" />
+  <img src="Z:/picture/005/save_picture_226374.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226219.jpg" />
+  <img src="Z:/picture/005/save_picture_226219.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225247.jpg" />
+  <img src="Z:/picture/005/save_picture_225247.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225181.jpg" />
+  <img src="Z:/picture/005/save_picture_225181.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225169.jpg" />
+  <img src="Z:/picture/005/save_picture_225169.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224528.jpg" />
+  <img src="Z:/picture/005/save_picture_224528.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223825.jpg" />
+  <img src="Z:/picture/005/save_picture_223825.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223317.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223018.jpg" />
+  <img src="Z:/picture/005/save_picture_223018.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222543.jpg" />
+  <img src="Z:/picture/005/save_picture_222543.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220948.jpg" />
+  <img src="Z:/picture/005/save_picture_220948.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218981.jpg" />
+  <img src="Z:/picture/005/save_picture_218981.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217317.jpg" />
+  <img src="Z:/picture/005/save_picture_217317.jpg" />
 </div>
 
 
@@ -532,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217115.jpg" />
+  <img src="Z:/picture/005/save_picture_217115.jpg" />
 </div>
 
 
@@ -558,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216961.jpg" />
 </div>
 
 
@@ -571,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07FC0B5086BF22A9F7E896E4BD13E48E5F4894DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652613   (216943) от 12.08.2023
-
-Гюстав Флобер | Госпожа Бовари (2006) [MP3, Степан Старчиков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она мечтала быть любимой, жить в окружении красоты и блестящего общества. Но взамен судьба преподнесла ей брак с сельским врачом и прозябание в крошечном городишке среди обывателей. Однако находится человек, который кажется Эмме Бовари воплощением её былой мечты. Куда же приведёт её погоня за призраком любви: к счастью или к могиле?Жанр: зарубежная классика, классическая проза, литература 19 векаПродолжительность: 13:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15758FF2E4F79CA3F7F3FC216E773C85AD420635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652617   (216926) от 12.08.2023
-
-Эмиль Золя | Радость жизни (2021) [MP3, Татьяна Виноградова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня, встречающая в своей жизни лишь неблагодарность, ненависть, корыстолюбие и обман, отвечает окружающим любовью, самоотверженностью, милосердием. Она наделена уникальным качеством – радоваться жизни, такой, какова она есть.Жанр: зарубежная классика, литература 19 векаИздательство: ИДДКПродолжительность: 13:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6E627C6AF86BF2ED733BD0E954A5BF51914880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652607   (216892) от 12.08.2023
-
-Кикути Кан | Портрет дамы с жемчугами (2021) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216892.jpg" />
-</div>
-
-
-###  Подробнее
-
-В силу сложившихся традиций на протяжении веков уделом женщины считались ведение домашнего хозяйства и воспитание детей, а её поведение регламентировалось строгими нормами морали. Особенно ярко это проявлялось в странах Восточной Азии, в том числе и в Японии. Тем удивительнее сюжет романа «Портрет дамы с жемчугами», главная героиня которого решила доказать себе и (   Читать дальше...   )Жанр: классическая прозаПеревод: М. ОгусиИздательство: СОЮЗПродолжительность: 10:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4EB2973D2545473A42C80088B33C9F93363FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084605   (216711) от 20.12.2016
-
-Андре Моруа | Письма незнакомке (2013) [MP3, Юрий Заборовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами – лучшее из творческого наследия Моруа, одного из самого известного французского писателя ХХвека. Произведение, воплотившие в себе всю прелесть его тонкого, ироничного таланта постижения человеческой психологии. Парадоксальные, полные тонкого юмора и лиризма, «Письма незнакомке» до сих пор считаются своеобразным «эталоном жанра». Существовала ли таинственная (   Читать дальше...   )Жанр: Классическая прозаИздательство: Нигде не купишьПродолжительность: 05:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BAEDD1FC578831D06965B9846693E5E4B756AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

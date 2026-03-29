@@ -1,3 +1,29 @@
+###  Публикация: 988560   (920657) от 20.02.2016
+
+Виталий Гладкий | Копье Милосердия (2016) [FB2]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известному «черному археологу» Глебу Тихомирову поступает предложение, от которого трудно отказаться: заняться поисками подлинного Копья Милосердия – одной из главных реликвий христианства. Многие сильные мира сего пытались заполучить его в свои руки, потому что древнее пророчество гласит: «Владеющий этим Копьем и разумеющий, каким силам оно служит, держит судьбу (   Читать дальше...   )Жанр: Приключения: прочее, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA6479EBD479B7978A782AB46A1F3270664CD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989816   (914902) от 23.02.2016
 
 Артуро Перес-Реверте | Корабли на суше не живут (2016) [FB2]
@@ -6,7 +32,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914902.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908259.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908087.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906795.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906461.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906358.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906272.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906269.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887458.jpg" />
+  <img src="Z:/picture/005/save_picture_887458.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884298.jpg" />
+  <img src="Z:/picture/005/save_picture_884298.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877242.jpg" />
+  <img src="Z:/picture/005/save_picture_877242.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876834.jpg" />
+  <img src="Z:/picture/005/save_picture_876834.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875249.jpg" />
+  <img src="Z:/picture/005/save_picture_875249.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869950.jpg" />
+  <img src="Z:/picture/008/save_picture_869950.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867951.jpg" />
+  <img src="Z:/picture/008/save_picture_867951.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866263.jpg" />
+  <img src="Z:/picture/008/save_picture_866263.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862278.jpg" />
+  <img src="Z:/picture/008/save_picture_862278.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860635.jpg" />
+  <img src="Z:/picture/008/save_picture_860635.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852764.jpg" />
+  <img src="Z:/picture/008/save_picture_852764.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849709.jpg" />
+  <img src="Z:/picture/008/save_picture_849709.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843186.jpg" />
+  <img src="Z:/picture/008/save_picture_843186.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833158.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820444.jpg" />
+  <img src="Z:/picture/008/save_picture_820444.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815288.jpg" />
+  <img src="Z:/picture/008/save_picture_815288.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802418.jpg" />
+  <img src="Z:/picture/008/save_picture_802418.jpg" />
 </div>
 
 
@@ -651,34 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F8B219BF5C7CE05A9EB5F11BC6C412CF716FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120963   (801120) от 01.04.2017
-
-Джеймс Л. Нельсон | Хозяин форта. Возвращение викинга (2017) [FB2]
-
->>Художественная литература
->>Приключенческая проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Книга норманнов» (Book of the Norsemen).
-
-Навсегда попрощался с городом викингов Дуб-Линном Торгрим Ночной Волк. Его кораблю «Скитальцу» предстоял долгий путь в родную Норвегию. Оправившись от ран, полученных в прошлых битвах, команда мечтает скорее вернуться домой, а сам Ночной Волк давно решил, что это последний поход. Но у богов были другие (   Читать дальше...   )Жанр: Историческая литература, Исторические приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC20E38A8133985E0B2F47C77F9A7844737A6CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

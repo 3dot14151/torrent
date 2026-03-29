@@ -1,3 +1,159 @@
+###  Публикация: 1070399   (366418) от 07.11.2016
+
+Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о Коконоцу, который отнюдь не горит желанием наследовать конфетный магазин в глухой провинции, как того хочет его отец. Хотару, души не чающая в маленьких кондитерских, как-то объявляется в заведении Коконоцу и, узнав ситуацию, начинает регулярно наведываться с единственной целью — убедить парня изменить решение.Жанр: комедия, повседневностьРежиссер: Такаянаги Сигэхито / Takayanagi Shigehito / 高柳滋仁Продолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841205EF2F6D59E224BEF99B8684EB53BD5BA0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328198   (366022) от 29.09.2019
+
+Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [2019, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боуида Харуто - заядлый отаку, который не интересуется 3D (реальными) девушками. Однажды он купил фигуру своей любимой аниме-героини Ноны, но внезапно Нона начала двигаться! Бешеная семейная жизнь между одним отаку и одним роботом вот-вот начнется!Производство: студия Studio A-CATЖанр: комедияРежиссер: Мотонага КэйтароПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9B223A869DFDB512913E79F298E6647BCF1F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328324   (365545) от 29.09.2019
+
+Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365545.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования (если это можно так назвать) три школьницы: Юа, Рен и Хоми, каждая из которых любит носить колготки разной толщины, от совсем прозрачных до весьма плотных. © KG-PortalПроизводство: студия Yokohama Animation Lab / 横浜アニメーションラボЖанр: комедия, этти, повседневностьРежиссер: Огава ЮкиПеревод: ZeroЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 SP по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFDF66738A39CADA510B502F37DA3D774464829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328325   (365540) от 29.09.2019
+
+Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насекомыми [2018, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм ​​рассказывает об огромном многоквартирном доме, известном как обитель духов. Восемнадцатилетняя студентка по имени Рин решает посетить это мистическое место. Когда Рин раскрывает правду об этом здании, она оказывается вовлечена в странные события. © shikimoriЖанр: мистика, ужасыРежиссер: Сакамото СакуПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 75 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23687BBF31A277337EE9F1269B1410F4C9F1023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286530   (365529) от 29.09.2019
+
+Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волшебства [ТВ-3] [2018, TV, 26 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365529.jpg" />
+</div>
+
+
+###  Подробнее
+
+На востоке от столицы Японии Токио располагается большой город Академград. Назван он так потому, что 80 процентов его жителей - это студенты и школьники, а всего живёт там свыше двух миллионов человек. В реальности этого аниме существуют не только обычные люди, но и обладатели сверхспособностей, и дети, имеющие какую-то суперсилу, обучаются именно в Академграде. (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, комедияРежиссер: Нисикиори ХиросиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7E75CBCB323A71C38D6047AD156C28D4C96944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722225   (364619) от 14.11.2013
+
+Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-Лаганн [2007, TV, 27] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни лет люди живут в глубоких пещерах, в постоянном страхе перед землетрясениями и обвалами. В одной из таких подземных деревень живет мальчик Симон и его «духовный наставник» — молодой парень Камина. Камина верит, что наверху есть другой мир, без стен и потолков; его мечта — попасть туда. Но его мечты остаются пустыми фантазиями, пока в один прекрасный день Симон (   Читать дальше...   )Жанр: приключения, фантастика, меха, драмаРежиссер: Имайси ХироюкиСубтитры: •Продолжительность: 27 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1956034360466557DE187AB53632A1DD5E192FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 253857   (364127) от 04.11.2010
 
 Dance In The Vampire Bund | Танец на Вампирском берегу [2010, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +162,7 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364127.jpg" />
+  <img src="Z:/picture/008/save_picture_364127.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364038.jpg" />
+  <img src="Z:/picture/008/save_picture_364038.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Cyberpunk: Edgerunners | Киберпанк: Бегущие по краю [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363287.jpg" />
+  <img src="Z:/picture/008/save_picture_363287.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361032.jpg" />
+  <img src="Z:/picture/008/save_picture_361032.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361025.jpg" />
+  <img src="Z:/picture/008/save_picture_361025.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359457.jpg" />
+  <img src="Z:/picture/008/save_picture_359457.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358769.jpg" />
+  <img src="Z:/picture/008/save_picture_358769.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358309.jpg" />
+  <img src="Z:/picture/008/save_picture_358309.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353002.jpg" />
+  <img src="Z:/picture/008/save_picture_353002.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352902.jpg" />
+  <img src="Z:/picture/008/save_picture_352902.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351396.jpg" />
+  <img src="Z:/picture/008/save_picture_351396.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ Kemono Friends | Животные-друзья | Дикие друзья [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351132.jpg" />
+  <img src="Z:/picture/008/save_picture_351132.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ Queen's Blade Unlimited | Клинок Королевы: Безграничны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350650.jpg" />
+  <img src="Z:/picture/008/save_picture_350650.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ Queen's Blade: Rebellion | Клинок Королевы: Мятеж [2012, TV +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350508.jpg" />
+  <img src="Z:/picture/008/save_picture_350508.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ Queen's Blade: Rurou no Senshi | Queen's Blade: Wandering Warriors | Клино�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350501.jpg" />
+  <img src="Z:/picture/008/save_picture_350501.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ Queen's Blade: Utsukushiki Toushitachi | Queen's Blade: Beautiful Warriors | К�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350497.jpg" />
+  <img src="Z:/picture/008/save_picture_350497.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ Queen's Blade: Vanquished Queens | Клинок королевы: Поверже
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350490.jpg" />
+  <img src="Z:/picture/008/save_picture_350490.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350163.jpg" />
+  <img src="Z:/picture/008/save_picture_350163.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ Sengoku Collection / Parallel World Samurai / Коллекции смутног�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345761.jpg" />
+  <img src="Z:/picture/008/save_picture_345761.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345759.jpg" />
+  <img src="Z:/picture/008/save_picture_345759.jpg" />
 </div>
 
 
@@ -517,164 +673,6 @@ Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DBB0DD06A8A15E71CE9FA8EF7AF0AC583CD5FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602851   (345274) от 08.10.2019
-
-Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коко Хекматияр, непредсказуемый оружейный дилер, все так же кочует со своей командой по белу свету. Водоворот судьбы, что крутится вокруг главной героини, затягивает коллег и конкурентов, бандитов и клиентов, старых кровников и агентов ЦРУ. Но пока простые люди пытаются выжить, кинуть ближнего и заработать денег, другие, более серьезные, понимают, что в деяниях группы (   Читать дальше...   )Жанр: приключения, боевикРежиссер: Мотонага КэйтароСубтитры: русские отПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8724C5DFB323C368C31E12DBC8B6BC2F044E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299534   (345263) от 08.10.2019
-
-Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [2019, TV, 12 из 12] WEB-DL 1080p Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345263.jpg" />
-</div>
-
-
-###  Подробнее
-
-В суровом японском обществе проблемных сирот выбрасывают из приюта на улицу – живи как хочешь. Именно так юный Ацуси Накадзима отправился «в большую жизнь» без гроша в кармане. Умирающий с голода изгой решил ограбить первого встречного – а вместо того вытащил из реки какую-то подозрительную личность. Спасенный по имени Осаму Дадзай оказался хорошим парнем, суицидальным (   Читать дальше...   )Производство: BONESЖанр: приключения, мистикаРежиссер: Игараси ТакуяСубтитры: Русские | АнглийскиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8004B419FE2D3361B0B5E185665057F18B1B1AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545109   (345125) от 08.10.2019
-
-Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345125.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Господь сотворил людей, а Сэм Кольт сделал их равными», - такой поговоркой руководствуются торговцы оружием. Люди воевали и будут воевать; прогресс идет, а смертельных игрушек нужно все больше. Спрос удовлетворяют транснациональные корпорации, охватившие всю планету, словно мировой змей из легенд. Коко Хекматияр – дочь транспортного магната, работающая под крышей (   Читать дальше...   )Жанр: приключения, экшенРежиссер: Мотонага Кэйтаро ОсамуСубтитры: русские отПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAE03B34A50DFDDE914785561C37A808D0DFB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257827   (343439) от 27.10.2018
-
-Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вакаба – одна из тех несчастных младшеклассниц-духовидиц, которые есть почти во всякой анимешной школе. Она видит призраков и духов, за что единодушно нелюбима классом: считается, что у того, кто позвонит или напишет Вакабе, непременно поднимется температура, а тот, кто сядет с ней на одну парту, сляжет с простудой.
-
-Но вот в один прекрасный (без кавычек) день в (   Читать дальше...   )Производство: студия AIC PLUSЖанр: повседневность, мистика, комедияРежиссер: Судзуки КаоруПеревод: 1) AniPanic; 2) NekoSubs; 3) Sa4ko aka KiyosoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 15 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0618EEE3C45765C0BF0D6C1C8B8371A087A0053B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257824   (343438) от 27.10.2018
-
-Fumikiri Jikan | Crossing Time | Железнодорожный переезд [2018, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся наша жизнь состоит из сплошной суеты. Люди всё время куда-то спешат, торопятся, бегут… В головокружительной будничной суете нам порой некогда даже перевести дух. Но во всём должен существовать баланс. И если мы не можем сами вовремя остановиться, то город сделает это за нас. На то существуют светофоры, на которых можно затормозить и провести минутку в простом (   Читать дальше...   )Производство: студия Ekachi EpilkaЖанр: повседневность, комедияРежиссер: Судзуки ЁсиоПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597AB7604DD3157BD1A9755391FF4BFF96A851D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257841   (343125) от 27.10.2018
-
-Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания вооруженных девушек [2017, TV, 12 эп. + 1 OVA] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В академии сожительства Аичи ношение оружия - дело совершенно обычное. Для девушек. Каждая из них в качестве самообороны носит с собой, например, биту. Когда-то давно в этой элитной академии обучали только девушек, и бояться им было нечего. Но с тех пор, как туда начали зачислять и парней, ситуация изменилась, и из-за страха девушки начали вооружаться. В академии (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Татибана ХидэкиПеревод: 1) AniPlay; 2) SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF5F28B95035058701B65DE5F2E9D4F3CD59E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ viber 6.6.0.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869392.jpg" />
+  <img src="Z:/picture/008/save_picture_869392.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Form Pilot Office 2.52 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869390.jpg" />
+  <img src="Z:/picture/008/save_picture_869390.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869386.jpg" />
+  <img src="Z:/picture/008/save_picture_869386.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CCleaner 5.27.5976 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869381.jpg" />
+  <img src="Z:/picture/008/save_picture_869381.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Reader DC 2015.023.20070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869380.jpg" />
+  <img src="Z:/picture/008/save_picture_869380.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Inner State - Terraforma (2011) [FLAC|Lossless]<Psy-Trance . Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869338.jpg" />
+  <img src="Z:/picture/008/save_picture_869338.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Paul Oakenfold - 26 Albums (1994-2009) [FLAC/APE|Lossless]<Trance, Progressive T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869281.jpg" />
+  <img src="Z:/picture/008/save_picture_869281.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Brian Culbertson - Another Long Night Out (2014) [FLAC|Lossless]<Contemporary Ja
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869276.jpg" />
+  <img src="Z:/picture/008/save_picture_869276.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.03) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869271.jpg" />
+  <img src="Z:/picture/008/save_picture_869271.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869270.jpg" />
+  <img src="Z:/picture/008/save_picture_869270.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869267.jpg" />
+  <img src="Z:/picture/008/save_picture_869267.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869264.jpg" />
+  <img src="Z:/picture/008/save_picture_869264.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DriverPack Solution 17.4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869253.jpg" />
+  <img src="Z:/picture/008/save_picture_869253.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869248.jpg" />
+  <img src="Z:/picture/008/save_picture_869248.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Alcohol 120% 2.0.3.9811 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869245.jpg" />
+  <img src="Z:/picture/008/save_picture_869245.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869240.jpg" />
+  <img src="Z:/picture/008/save_picture_869240.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Alcohol 120% 2.0.3.9811 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869238.jpg" />
+  <img src="Z:/picture/008/save_picture_869238.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869233.jpg" />
+  <img src="Z:/picture/008/save_picture_869233.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869232.jpg" />
+  <img src="Z:/picture/008/save_picture_869232.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869231.jpg" />
+  <img src="Z:/picture/008/save_picture_869231.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BELOFF 2021.09 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869214.jpg" />
+  <img src="Z:/picture/008/save_picture_869214.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869138.jpg" />
+  <img src="Z:/picture/008/save_picture_869138.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869137.jpg" />
+  <img src="Z:/picture/008/save_picture_869137.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Foundry NUKE STUDIO 10.5v2 + HIERO [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869129.jpg" />
+  <img src="Z:/picture/008/save_picture_869129.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869127.jpg" />
+  <img src="Z:/picture/008/save_picture_869127.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Mindjet MindManager 2017 17.1.178 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869126.jpg" />
+  <img src="Z:/picture/008/save_picture_869126.jpg" />
 </div>
 
 

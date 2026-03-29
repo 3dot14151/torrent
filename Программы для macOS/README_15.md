@@ -1,3 +1,135 @@
+###  Публикация: 1482126   (1007907) от 06.07.2021
+
+Joyoshare iPhone Data Recovery 2.3.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надежное программное обеспечение для восстановления данных iPhone и других iDevices
+Имея верный способ восстановления потерянных данных, Joyoshare iPhone Data Recovery способно безопасно восстанавливать все типы потерянных файлов, чтобы исправить возможные проблемы с потерей данных, такие как случайное удаление, сбой системы или обновление сбой, поломка, потеря или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Joyoshare Studio.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087E2E37687810DDE847C913A6CAD04E9B60F6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482032   (1007900) от 06.07.2021
+
+Joyoshare VidiKit 1.3.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joyoshare VidiKit первоклассный универсальный набор инструментов для пользователей мультимедиа и постобработки. Конвертируйте, вырезайте и объединяйте видео легко и быстро.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Joyoshare Studio.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C352730E31348D59E776961D66B4F48DDC24FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481976   (1007887) от 06.07.2021
+
+FX Draw Tools 21.6.25 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный, но простой в использовании FX Draw предоставляет высокопроизводительную среду рисования, разработанную специально для учителей математики. Быстро создавайте редактируемые высококачественные диаграммы для тестов, экзаменов, рабочих листов, веб-сайтов, презентаций и демонстраций.
+FX Sketch, расширение FX Draw, позволяет рисовать математические диаграммы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Efofex SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD89326815A503357E03C00DC9EAEEAC1C79A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482293   (1007765) от 07.07.2021
+
+Fireplace Live HD + Screensaver 4.3.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой экран в красивый камин. Расслабляет бег огоньков в фоновом режиме, пока вы работаете или отдыхаете. Не все мы можем позволить себе роскошь собственного камина дома, но с Fireplace Live HD вы можете наслаждаться визуальными эффектами и звуками настоящего огня в любое время, дома или в любом месте. Включите его, чтобы мгновенно создать теплый, уютный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.07.2021Разработчик: Voros InnovationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2941C646360B03DE472F6FD0180C05B0444FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482263   (1007761) от 07.07.2021
+
+ON1 NoNoise AI 2021 v16.0.0.10747 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.07.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D9DBE6FEAE2D77E8C3AFFC7278E684C974EC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482449   (1007628) от 08.07.2021
 
 EdgeView 2 v2.922 [En]
@@ -6,7 +138,7 @@ EdgeView 2 v2.922 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007628.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Artstudio Pro 3.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007466.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ MacX MediaTrans 7.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005507.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ Downcast 2.10.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005470.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ Luminar AI 1.3.0 Apple Silicon (M1) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005457.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ DjVu Reader Pro 2.5.7 [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005454.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ BluePlum Home Inventory 4 v4.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005229.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ Millumin 3 v3.18.k [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004999.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ Wolf 2 - Responsive Designer Pro 3.03 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004892.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ FileWatcher 1.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004891.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ SerialMailer 8 v8.0.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004773.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ Motrix 1.6.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004588.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ VN - Video Editor 0.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004572.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ HistoryInFilm 1.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004164.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ Mirror - for any device 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004152.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ Mate Translate 7.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004133.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ MWeb: Markdown writing, note taking, static blog generator 4.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003883.jpg" />
 </div>
 
 
@@ -456,7 +588,7 @@ SoundSource 5.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003873.jpg" />
 </div>
 
 
@@ -483,7 +615,7 @@ Wifiry: Wi-Fi Signal Strength 2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003864.jpg" />
 </div>
 
 
@@ -510,7 +642,7 @@ MHT Viewer 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003858.jpg" />
 </div>
 
 
@@ -536,7 +668,7 @@ Ghostnote 2 v2.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003599.jpg" />
 </div>
 
 
@@ -548,142 +680,6 @@ Ghostnote — приложение для OS X, которое позволяе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CDEAB0F2C2C6688C1B94292D014663216CB4EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350322   (1003491) от 05.01.2020
-
-Typeface 2 v2.6.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typeface 2 поможет вам выбрать идеальный шрифт из коллекции.
-
-Хорошая типография прекрасна и является одним из важнейших аспектов дизайна. Но зачастую трудно найти шрифт, который передает только нужные эмоции, особенно если вы не уверены, что ищете.
-С минимальным интерфейсом и полным вниманием к вашим шрифтам Typeface старается сделать просмотр вашей коллекции увлекательным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2020Разработчик: Floor SteegПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C4D0B620A2BE2B5A6AF1E580C9C856C5FED6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351276   (1002508) от 09.01.2020
-
-Enolsoft PDF Converter with OCR 6.8.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enolsoft PDF конвертер с OCR - это эффективный инструмент, который работает для вашего удобства и полностью подходит для получения содержимого из отсканированных PDF или изображений, а также обычных файлов PDF. Он позволяет полностью конвертировать PDF в 15 форматов документов, включая .pages, .key, .pptx, .doc, .docx, .xlsx, .epub, .html, .text, .rtfd, кроме того, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnolsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C572B09B131B5D6FD5945DF8D302949269AABD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351285   (1002481) от 09.01.2020
-
-Enolsoft PDF to Word with OCR 6.8.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко конвертировать PDF в редактируемые файлы DOC / DOCX. Помимо собственных PDF-файлов, PDF в Word с OCR применяет оптическое распознавание символов, чтобы точно идентифицировать текст в отсканированном PDF или изображениях, а затем быстро преобразовать их в Word.
-
-Enolsoft PDF to Word с OCR (оптическое распознавание символов) для Mac может точно распознавать текст, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnoltsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122232790C710AD1D1F74AC14786A4683A384F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351270   (1002470) от 09.01.2020
-
-Enolsoft PDF Creator 4.4.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enolsoft PDF Creator помогает создавать PDF-файлы в течение трех шагов, вы можете быстро конвертировать файлы в PDF, такие как DOCX, EPUB, Text, PPTX, CHM, RTFD, HTML, JPG, PNG, GIF, TIFF и многое другое. Более того, без изменения макета, поэтому файлы с печатью будут более «приятными».Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnolsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB7AD5DB6A366F6F4CCA572E067566FC69EF21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351350   (1002465) от 09.01.2020
-
-Cheetah3D 7 v7.4.2 [Multi]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cheetah3D - программа для 3D моделирования, рендеринга и анимации, являющаяся Cocoa-приложением.
-Программа была написана с нуля в Cocoa и предлагает множество мощных инструментов, в том числе текстуры, импорт PDF, HDRI и многое другое. Cheetah3D - это мощный, интуитивно понятный программный продукт с элегантным и интуитивно понятным пользовательским интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 07.01.2020Разработчик: Dr. Martin WengenmayerПоддерживаемая ОС: macOS 10.8.5+Язык интерфейса: Английский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F092576A317A950C1CCD7100BCA7137260C5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

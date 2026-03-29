@@ -6,7 +6,7 @@ Serif Affinity Publisher 1.10.4.1198 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801451.jpg" />
+  <img src="Z:/picture/008/save_picture_801451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 6.1.1.595 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801448.jpg" />
+  <img src="Z:/picture/008/save_picture_801448.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NoMachine 6.10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801436.jpg" />
+  <img src="Z:/picture/008/save_picture_801436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Realtek Ethernet Driver 11.2.0909 / 10.053 / 8.088  / 7.142 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801396.jpg" />
+  <img src="Z:/picture/008/save_picture_801396.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 95.0.4638.69 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801393.jpg" />
+  <img src="Z:/picture/008/save_picture_801393.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StartAllBack 3.0.2 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801389.jpg" />
+  <img src="Z:/picture/008/save_picture_801389.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ventoy 1.0.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801378.jpg" />
+  <img src="Z:/picture/008/save_picture_801378.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Total Commander Ultima Prime 7.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801354.jpg" />
+  <img src="Z:/picture/008/save_picture_801354.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Illustrator 2022 26.0.0.730 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801338.jpg" />
+  <img src="Z:/picture/008/save_picture_801338.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Realtek High Definition Audio Driver 6.0.9235.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801325.jpg" />
+  <img src="Z:/picture/008/save_picture_801325.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe After Effects 2022 22.0.0.111 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801323.jpg" />
+  <img src="Z:/picture/008/save_picture_801323.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Media Encoder 2022 22.0.0.107 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801308.jpg" />
+  <img src="Z:/picture/008/save_picture_801308.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Photoshop 2020 v21.1.3.190 (x64) RePack by SanLex (2020.05.20) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801305.jpg" />
+  <img src="Z:/picture/008/save_picture_801305.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801304.jpg" />
+  <img src="Z:/picture/008/save_picture_801304.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe Premiere Pro 2022 22.0.0.169 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801296.jpg" />
+  <img src="Z:/picture/008/save_picture_801296.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ USDownloader 1.3.5.9 Portable (01.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801247.jpg" />
+  <img src="Z:/picture/008/save_picture_801247.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Insofta Cover Commander 5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801212.jpg" />
+  <img src="Z:/picture/008/save_picture_801212.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Insofta Cover Commander 5.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801206.jpg" />
+  <img src="Z:/picture/008/save_picture_801206.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BurnAware Professional 10.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801198.jpg" />
+  <img src="Z:/picture/008/save_picture_801198.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PrivaZer 3.0.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801187.jpg" />
+  <img src="Z:/picture/008/save_picture_801187.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Rufus 2.13 (Build 1077) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801177.jpg" />
+  <img src="Z:/picture/008/save_picture_801177.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ UltraUXThemePatcher 3.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801170.jpg" />
+  <img src="Z:/picture/008/save_picture_801170.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ HyperSnap 8.16.00 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801092.jpg" />
+  <img src="Z:/picture/008/save_picture_801092.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Nox App Player 3.8.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801078.jpg" />
+  <img src="Z:/picture/008/save_picture_801078.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Acoustica Premium Edition 7.3.19 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801054.jpg" />
+  <img src="Z:/picture/008/save_picture_801054.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ reaConverter Pro 7.680 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801044.jpg" />
+  <img src="Z:/picture/008/save_picture_801044.jpg" />
 </div>
 
 

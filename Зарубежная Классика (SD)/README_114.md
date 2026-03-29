@@ -1,3 +1,81 @@
+###  Публикация: 1429706   (143878) от 28.12.2020
+
+Дебютантка поневоле / The Reluctant Debutante (1958) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка, американка, приезжает погостить в Лондон к своему отцу и, неожиданно для себя, попадает на «Сезон». Её не интересует эта ярмарка невест и чопорные молодые аристократы. Но встреча с симпатичным молодым человеком обещает стать интересной. Как жаль, что его считают нежелательным субъектом...Производство: США / Avon Productions (II)Жанр: Мелодрама, КомедияРежиссер: Винсент МиннеллиАктеры: Рекс Харрисон, Кэй Кендалл, Джон Сэксон, Сандра Ди, Анджела Лэнсбери, Питер Майерс, Дайан Клер, Рене Аранда, Жорж Билли, Жан-Поль БлондэПеревод: Одноголосый любительский, Игорь КлушинСубтитры: Русские, английскиеПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F415C5EDA218E2E5E6F603B091BE71669354DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194287   (143674) от 28.12.2017
+
+Лесорубы / Les grandes gueules (1965) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эктор возвращается на родину, где он унаследовал лесопилку в труднодоступном месте. Дела его начинаются не ахти, поскольку его конкурент не брезгует никакими средствами, чтобы помешать ему преуспеть. Лоран вместе с товарищем Ролланом нанимаются к нему лесорубами, предложив взять еще кроме них условно освобожденных заключенных, которых не сможет переманить конкурент, (   Читать дальше...   )Производство: Франция, Италия / Alexandra Film, Les Productions Belles Rives, SNCЖанр: Драма, КомедияРежиссер: Робер ЭнрикоАктеры: Бурвиль, Лино Вентура, Мари Дюбуа, Джесс Хан, Жан-Клод Роллан, Эния Сушар, Рейне Куртуа, Роже Жаке, Ник Стефанини, Марк Эйро, Мишель Шаррель, Мишель КонстантенПеревод: АвторскийСубтитры: ОтсутствуютПродолжительность: 02:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC47B46BD61061624A6727D9497BCE58071710AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514948   (143624) от 27.12.2021
+
+Дом о семи фронтонах / The House of the Seven Gables (1940) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм поставлен по одноимённому роману признанного мастера американской литературы XIX века Натаниэля Готорна. В центре внимания картины находится борьба двух братьев Пинченов, Клиффорда и Джеффри, за обладание семейной усадьбой, которая, согласно легендам, хранит тайные сокровища, а также семейное проклятье их рода. В процессе борьбы Джеффри выдвигает против брата (   Читать дальше...   )Производство: США, Universal PicturesЖанр: драма, триллерРежиссер: Джо МэйАктеры: Джордж Сандерс, Маргарет Линдси, Винсент Прайс, Дик Форан, Нэн Грэй, Сесил Келлауэй, Алан Напье, Гилберт Эмери, Майлз Мандер, Чарльз ТроубриджПеревод: любительский одноголосый (Nocknarroys)Субтитры: русские (Conrad_Siegfried), английскиеПродолжительность: 01:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FE12B759DB0A59B640B1F81DA1881C84CA9F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676642   (143280) от 22.11.2023
 
 8 с половиной / 8½ / Otto E Mezzo (1963) BDRip [H.264] [MVO] [Criterion Collection]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143280.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143039.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142870.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142266.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142226.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142091.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141902.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141713.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141463.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141357.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140998.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140412.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140121.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139208.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138835.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138627.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137974.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137647.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137602.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137525.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136864.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136705.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136686.jpg" />
 </div>
 
 
@@ -599,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFA47B5398348271BDA161E92A2C7C9928C8E161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590086   (136401) от 19.12.2012
-
-Приключения на берегах Онтарио / Die Lederstrumpferzahlungen (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охотник Нат Бумпо попадает в тюрьму по вине коварного и подлого шерифа. Его выручает краснокожий друг Чингачгук, и очень скоро Нату приходится защищать форт майора Дунгэма от жестоких индейцев племени сиу. А в форте находится очень симпатичная девушка.Жанр: приключения, вестернРежиссер: Жан Древиль, Серджиу НиколаескуАктеры: Хельмут Ланге, Пьер Массими, Норберт Гастелль, Хольгер Хаген, Александру Давид, Томми Пипер, Манфред Зайпольд, Хельмут Шнайдер, Джульетт Виллар, Текла Карола ВидПеревод: ДублированныйФормат: AVIПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ABBC197E76E91257C7229FFBCCFC70F4BC0146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590093   (136124) от 20.12.2012
-
-Джентльмен из Эпсома / Le gentleman d'Epsom (1962) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Брианд-Чармери, бывший командор кавалерийского эскадрона, находится в отставке и промышляет «советами» на скачках. Он знаток всех лошадей на ипподроме и ловит наивных игроков, которые с охотой готовы заплатить за прогноз, тем более, если его сделал такой статный и солидный игрок, как господин Брианд. Чтобы гарантировано получить свой процент, он советует делать ставки нескольким игрокам одновременно на разных скакунов и сам не остается в накладе. «Командор» привык вести широкий образ жизни, а для этого нужны новые игроки, которых он «научит» и которым он «подскажет». Компаньон афериста, помогающий найти наивных новичков, рассказывает ему о рестораторе мсье Гаспаре Рипе, который имеет неплохой бизнес, но он глуп, жаден и страшно недоверчив. Чтобы уговорить его расстаться с деньгами, необходим человек с большим стажем игры на тотализаторе и великим опытом убеждения. А это, конечно же, «Командор». Одурманенный красивыми рассказами об успехах предсказаний «Командора», Рипе с радостью расстается с крупной суммой (   Читать дальше...   )Жанр: комедия, криминалРежиссер: Жиль ГранжьеВ ролях: Луи де Фюнес, Жан Габен, Мадлен Робинсон, Фрэнк Виллар, Жан Лефевр, Жак Марен, Жан Мартинелли, Жоэлль Бернар, Алин Бертран, Леонс Корн, Мари-Элен Дасте, Альбер ДинанПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1B8CB464B901C464B371C5D12071B504C7819E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590669   (136090) от 20.12.2012
-
-Враг мой / Enemy Mine (1985) HDTVRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136090.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубинах нашей галактики, на огромном расстоянии от Земли люди ведут кровопролитную войну с расой рептилий. Войну, которой Земля отдает последние силы, войну на полное уничтожение.
-В одной из жестоких схваток в окрестностях гористой планеты в системе двойной звезды пилот Виллис Дэвидж сбивает машину чужого, но тут же получает несколько попаданий и выходит из боя.
-Единственное место, где можно выжить после падения — та самая планета. Но упав, он обнаруживает, что сбитый им чужой не погиб. Смертельные враги (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу Майклс, Энди ГирПеревод: Дубляж с многоголосыми вставками + Профессиональный (многоголосый закадровый) - (Украинский - 2+2) + Оригинал (Английский) + Профессиональный (одноголосый закадровый) Юрий Живов (внешняя)Язык субтитров: Русские, Французкие, Английские - полныеПродолжительность: 01:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B31136CA2FA163C3969B351A4E4DFD9A21D18F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

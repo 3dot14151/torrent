@@ -1,3 +1,111 @@
+###  Публикация: 972068   (982616) от 05.01.2016
+
+Проекты - VideoHive - 3D Portrait (v.1) - 13766531 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для лёгкой реализации анимированных портретов. С помощью данного готового проекта вы сможете с лёгкостью анимировать статичные фотографии(портреты) не прилагая особого труда.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C349126FDD3026E937CBBDB1054C9A1A81464B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972429   (982606) от 05.01.2016
+
+IGI 2: Covert Strike / I.G.I. 2: Скрытый удар (2003) [Ru/Multi] (1.3) Rip R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Джонс – бывший десантник специального подразделения SAS, ныне – суперагент секретной организации IGI. Его задача – расстроить планы крупнейшей террористической организации и предотвратить начало Третьей мировой войны. Три его главных союзника – оружие, тактика и маскировка. В его распоряжении – компьютер-картограф из специального оборудования IGI и всевозможные (   Читать дальше...   )Тип издания: RipРазработчик: Innerloop StudiosЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B7B40284EF4A0C8074D4291CD1E71B6006EF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613812   (982145) от 04.02.2013
+
+Vit Registry Fix Pro 12.5.0 RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vit Registry Fix - утилита для устранения ошибок в реестре. Так как после удаления програм в реестре оставляются различные ненужные записи, то со временем этих записей становится все больше и больше и это является причиной долгих задержек перед загрузкой програм, снижение общей производительности системы и других ошибок. Vit Registry Fix находит эти ошибки и разделяет их на категории (ActiveX\COM,Типы файлов, AppPath, автозагрузка, Shared DLL, Uninstall, History list, меню ПУСК, Шрифты, Справка, Звуки, Ключи Software (Deep scan) и дополнительно ищет битые ярлыки на дисках. Также есть возможность ручного удаления ключей из разделов Software (как для HKCU так и для HKLM), создания резервных копий перед удалением ошибок а также можно создать список исключения.
+
+(   Читать дальше...   )Название программы: Vit Registry Fix ProЯзык интерфейса: русский, английский, украинский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613748   (982137) от 04.02.2013
+
+Dead Space 3 [XBOX360] [PAL] [Ru] [LT+2.0] (XGD3 / 15574) 2013 | R.G.X360CLUB
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982137.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Dead Space 3 Айзек Кларк и суровый солдат Джон Карвер отправляются в космическое путешествие, чтобы узнать о происхождении некроморфов. После жесткой посадки на ледяной планете Тау Волантис Айзек прочесывает окрестности в поисках материалов и деталей, чтобы создать и модифицировать оружие и средства выживания.
+
+У Айзека есть возможность навсегда покончить с некроморфами, но для этого нужно пережить лавины, восхождения на ледяные вершины и другие опасности замерзшей планеты. Враги сильны как никогда, но бороться за выживание человечества можно не только в одиночку, но и вместе с другом. В каждом режиме есть свои сюжетные и геймплейные нюансы, а новая технология позволяет быстро войти и выйти из многопользовательской игры. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBCA44CBDD44330C3AE66368F1EB9D43DA62787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 435721   (981960) от 13.01.2012
 
 Специалист | ICND1 1.0: Использование сетевого оборудования Cisco [2011] PCRec
@@ -6,7 +114,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981960.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981875.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Emsisoft Anti-Malware 11.0.0.6054 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981454.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981352.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981351.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Bogatyr (2020) [Ru/En] (1.0) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980743.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980719.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ Photo Mechanic 5.0 (Build 16438) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980580.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980571.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980425.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980349.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ Linux Mint 17.3 Rosa KDE [32bit, 64bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979879.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ The Bat! Professional 7.1.12 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979797.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ Linux Mint 17.3 Rosa XFCE [32bit, 64bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979787.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/dlc) License PROPHET [Collection Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979783.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ The Evil Within (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Repack / 1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979782.jpg" />
 </div>
 
 
@@ -428,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979774.jpg" />
 </div>
 
 
@@ -454,7 +562,7 @@ No One Lives Forever Anthology / Антология No One Lives Forever (2000-2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979439.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978810.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ Call of Cthulhu: Dark Corners of the Earth (2006) [Ru/Multi] (1.0) Repack R.G. C
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978638.jpg" />
 </div>
 
 
@@ -534,7 +642,7 @@ Teleport Pro 1.72 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978630.jpg" />
 </div>
 
 
@@ -560,124 +668,13 @@ Faust: The Seven Games of the Soul / Фауст: Семь ловушек для 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978494.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Игра повествует о некогда процветающем, а ныне заброшенном парке развлечений "Мир Грез", в таинственных событиях прошлого которого игроку необходимо разобраться. Игрок управляет Марселем Фаустом — престарелым чернокожим мужчиной, потерявшим память. По мере развития сюжета открывается прошлое не только жителей парка развлечений, но и самого Марселя.Тип издания: ЛицензияЖанр: Adventure/QuestЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356280   (978447) от 30.01.2020
-
-Kali Linux 2020.1 (ex. BackTrack) [Аудит безопасности, хакинг] [amd64, i386] 4xDVD+2CD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся релиз дистрибутива Kali Linux 2020.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников. Все оригинальные наработки, созданные в рамках дистрибутива, распространяются под лицензией GPL и доступны через публичный Git-репозиторий. Для загрузки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B31E907437C0AF79E3B9E904A5EBB018E998AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398147   (978364) от 16.01.2012
-
-Убежище / Sanctuary (2011) WEB-DLRip [4 сезон, полностью] Gravi-TV
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убежище повествует о истории доктора Хелен Магнус, которая разыскивает разного рода чудовищных созданий (также известных как "абнормалы"). Некоторых из них нужно держать в заперти ради защиты людей, а некоторых - защищать от самих людей. В этом ей помогают её коллега доктор Уилл Зиммерман, бесстрашная и порой безрассудная дочь Эшли, черезчур разговорчивый (   Читать дальше...   )Жанр: ФантастикаРежиссер: Мартин Вуд / Martin WoodАктеры: Аманда Таппинг, Робин Данн, Кристофер Хейердал, Леа Кейрнс, Миранда Фригон, Лаура Меннелл, Райан Роббинс, Питер ДеЛуис.Перевод: Двуголосый закадровый, любительскийОзвучка: Alex White & Irene BlackФормат: AVIПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615413   (978329) от 07.02.2013
-
-Microsoft Security Essentials 4.2.216.0 Prerelease [Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Security Essentials - бесплатный антивирус для базовой защиты вашего компьютера от вирусов, интернет-червей, троянов, программ-шпионов. Усиленная безопасность,
-максимальная производительность, интеграция с фаерволом Windows. Для использования пакета
-MSE не требуется регистрация, отсутствует этап пробного использования, нет ограничений по сроку
-использования – достаточно загрузить и установить.
-
-(   Читать дальше...   )Название программы: Microsoft Security EssentialsЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615075   (978252) от 07.02.2013
-
-Origin Pro 9.0 SR1 b76 [Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший научный пакет для анализа и обработки данных. Считается стандартом де факто во многих научных лабораториях. OriginPro представляет собой универсальное средство обработки статистических и математических функций, обработки массивов данных, построения графиков этих функций и графиков по массивам данных, а также инструмент разработки узкоспециализированных математических программ и средств визуализации графических данных. Интеграция с системами сбора данных таких как LabView, DasyLab, LabWindows... Совместимость с MathLab, MathCad, Microsoft Office... Origin включает в себя полную версию библиотеки численных алгоритмов NAG Mark VII от Numerical Algorithms Group, Inc. (NAG®). Эти отлаженные и проверенные временем алгоритмы предоставляют пользователю широкие возможности для вычислений, начиная от простой статистики и преобразования Фурье, заканчивая линейной алгеброй и многомерным анализом. Все функции библиотеки NAG доступны для вызова через Origin C, тем самым обеспечивая платформу для разработки приложений, требующих сложных численных рассчетов. От себя добавлю что уже 10 лет все знакомые ученые работают именно с этой программой и заставляют студентов рисовать в ней графики к дипломам.
-
-(   Читать дальше...   )Название программы: Origin ProЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash

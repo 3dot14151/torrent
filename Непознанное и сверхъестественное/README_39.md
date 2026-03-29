@@ -1,3 +1,56 @@
+###  Публикация: 1686711   (126499) от 23.12.2023
+
+Экстрасенсы. Битва сильнейших (23.12.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 29)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126499.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
+«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833D00207044E4A04C7C53999CB95D84B3712C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686931   (125759) от 25.12.2023
+
+Искатели. Меч-кладенец. Между былью и вымыслом (2023) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оружие грозное и непобедимое, от одного вида которого противник бежал врассыпную. Согласно легендам и преданиям, послужной список у этого волшебного клинка выглядит более чем внушительно: в 1149 году он помог князю Андрею Боголюбскому одержать победу в бою, чуть позже князь Пётр, верный супруг Февронии, именно мечом-кладенцом зарубил коварного Змея, им же сокрушал (   Читать дальше...   )Производство: Россия, телеканал «КУЛЬТУРА»Жанр: документальный, телепередача, журналистское расследованиеЯзык озвучки: РусскийПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0ACF55FA993C4B1368B934E377ED86F5C0D6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689073   (124925) от 31.12.2023
 
 Экстрасенсы. Битва сильнейших (30.12.2023) WEBRip [H.264/1080p] (Дайджест)
@@ -6,7 +59,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124925.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123161.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121717.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120697.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119501.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118167.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116875.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116565.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115722.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114514.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110190.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108886.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104031.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102213.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102204.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102181.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102158.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102156.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102154.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101827.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101315.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101181.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100614.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96720.jpg" />
 </div>
 
 
@@ -621,61 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE139377BCB733E41CF35D17E69406C52AE833E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480787   (87583) от 10.04.2012
-
-Мессинг. Ванга. Кейси. Секрет ясновидения (2009) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории и факты способны мгновенно перевернуть жизнь каждого из нас. Не раз мы чувствовали что-то необъяснимое для нашего восприятия. И не раз попадали в беду, потому что не прислушивались всерьез к интуиции, которая шептала нам о предстоящих трагедиях…
-Почему одним удается избежать беды, а другим нет?
-Есть целый ряд предсказателей, которые на собственном примере доказали, что феномен под названием "дар предвидения" существует! Баба Ванга, Эдгар Кейси, Вольф Мессинг оставили нам в наследство величайшее знание. И нам еще только предстоит его разгадать! Кто они, эти ясновидящие? Почему они предупреждают нас о будущих несчастьях, болезнях и катаклизмах? И откуда возникает дар предвидения?Жанр: ДокументальныйРежиссер: Алексей ГоровацкийПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3826B7C2B06A926B5D4D2D05D8E024FC96CD5BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480802   (87518) от 10.04.2012
-
-Истории из будущего. Апокалипсис? Как скоро? (2011) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87518.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у передачи академик С.Капица. Перед населением Земли на сегодняшний день стоит глобальная проблема. Смогут ли земельные угодья прокормить больше семи миллиардов человек? Ведь пока относительно благоденствуют около одного миллиарда, хвастливо названный золотым. Учёные подсчитали, что если отказаться от войн и вредоносных технологий, перестать загрязнять природу, заселить неосвоенные пространства, то на Земле смогут проживать около ста миллиардов человек.
-Бывшие колониальные монстры - Англия, Франция, Испания вынуждены были предоставить большинству заморских владений независимость. На карте мира появилось множество независимых государств. Но что делать с этой независимостью они не знали. Психология освободившихся от колониального гнёта африканцев и азиатов за века практически не изменилась. Работать и учиться они не хотели, да и зачем работать, когда прилетит самолёт, и на какое - то время они сыты и одеты, затем прилетит ещё, и ещё. А пока можно размножаться и даже повоевать с соседним племенем, благо (   Читать дальше...   )Жанр: Документальный, ТелепередачаПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A20B3D21121587DE217A501A9FA84CE1FCECDA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

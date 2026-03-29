@@ -1,3 +1,108 @@
+###  Публикация: 1465848   (1018888) от 27.04.2021
+
+BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий и автор документальных фильмов BBC Гордон Бьюкенен решает, что для природы наступили по-настоящему опасные времена, и отправляется в путешествие по воздуху вдоль экватора.
+С высоты птичьего полета зрителю предстоит увидеть не только захватывающие пейзажи, но и стать свидетелем неутешительной картины сегодняшнего состояния дикой природы.Производство: Великобритания, Dragonfly Film and Television Productions, BBC TwoЖанр: Документальный, живая природаРежиссер: Никола ТримейнПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C615C039B0FB84066C387447BE17DB0EDF0EEB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466142   (1018697) от 28.04.2021
+
+PBS: Природа. Природа секса / Nature. The Nature of Sex. Sex and the Human Animal (1993) VHSRip (Сезон 12, эпизод 7) [AVO]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ослепительная красота павлиньего хвоста не выполняет никакой другой функции, кроме привлечения партнера. Мы видим, как люди посылают сексуальные сигналы посредством жестов, одежды, макияжа и духов, и такое поведение имеет свои корни в животном мире. В то время как наши ритуалы ухаживания и демонстрации часто происходят на арене чистой фантазии, с огнями и музыкой, (   Читать дальше...   )Производство: США, Rubin Tarrant Productions, Public Broadcasting Service (PBS)Жанр: Документальный, научно-познавательныйРежиссер: Дэвид Хили, Фред КауфманПеревод: Одноголосый закадровый, авторскийСубтитры: отсутствуютПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8430BCD48505F85347C9ECA46CB8E8751C263D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468414   (1017185) от 07.05.2021
+
+BBC. Google и всемирный мозг / Google and the World Brain (2013) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017185.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В настоящее время не существует никаких практических препятствий для создания полноценного каталога всех человеческих знаний, идей и достижений, а именно для создания полной всепланетной памяти всего человечества." Герберт Уэллс. Это его посетила идея о том, как мы можем преобразовать устройство мировых знаний. Он дал этому название "Всемирный мозг". (   Читать дальше...   )Производство: Испания, Великобритания, Германия, Греция, British Broadcasting Corporation (BBC), Hellenic Radio & Television (ERT), Institut Català de les Empreses Culturals (ICEC), Polar Star Films, B.L.T.V Ltd FilmЖанр: Документальный, познавательный, наука, ITРежиссер: Бен ЛьюисПеревод: Двуголосый закадровый, профессиональный (Глагол)Субтитры: АнглийскиеПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9BBC7898DD9ED91AC43AFD34DE413F064D075C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468203   (1017178) от 07.05.2021
+
+Целитель (Ужас) / El espanto (2017) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медицина в аргентинской глуши очень экзотична. Люди лечат друг друга жабами, веревками и заклинаниями. Только одно заболевание недоступно местным лекарям. Они называют его «ужас».Производство: Аргентина, Bunda Films, Gema Films, Mayra Bottero, Pablo AparoЖанр: ДокументальныйРежиссер: Мартин Бенчимол, Пабло АпароПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59EBC54FD38867E3F72144D1485B479F50089B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468052   (1016207) от 13.05.2021
 
 Космос: Пространство и время / Cosmos: A Spacetime Odyssey (2014) BDRip [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13)
@@ -6,7 +111,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016207.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Animal Planet. Неизведанная Мексика / Wild Mexico (2014) HDTV
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014747.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014617.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ BBC: Шкала времени. Кто убил Сталина? / Time watch. Wh
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014263.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013940.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013450.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013429.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011739.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011221.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010537.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010273.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010094.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010092.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010077.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009757.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ NG: Последствия: Когда Земля перестанет вращ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009071.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008925.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008665.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) HDTV [H.264/1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008646.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007547.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ Discovery. Золотой прииск Фредди Доджа / Gold Rush: Fred
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007246.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007239.jpg" />
 </div>
 
 
@@ -563,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94EF0FC17488AA6D6CEE4040708D37987C9F1E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483479   (1006852) от 13.07.2021
-
-NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 2018 года НАСА запустило первую в истории миссию полета на звезду. Это поистине исторический квест, посвященный исследованию самого крупного объекта нашей солнечной системы - Солнца. Для его реализации был создан самый быстрый из когда-либо созданных на Земле летательных аппаратов, который будет лететь со скоростью 450000 миль в час. Его невероятная по своей (   Читать дальше...   )Производство: Великобритания, Thoroughly Modern Media, National GeographicЖанр: Документальный, научно-популярный, космосРежиссер: Даниэль М. СмитПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E1A293CE3247B2AB5ADFF8BD7383D38277ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483632   (1006717) от 14.07.2021
-
-NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апрель 2019 года: страшный пожар охватил Собор Парижской Богоматери, угрожая разрушить его до основания. Задолго до того, как был потушен последний уголёк, французы поклялись восстановить свой любимый собор, который был олицетворением сердца французской культуры в течение почти 900 лет. Задача, стоящая перед реставраторами, поистине огромна, и те, кому поручена ее (   Читать дальше...   )Производство: Франция, Китай, США, Австралия, GEDEON Programmes, China Media Group CCTV9, INRAP, National GeographicЖанр: Документальный, культураРежиссер: Квентин Домар, Шарлин Гравель, Мишель ХолландерУчастники: Стефан Берн, Патрик Шове, Дидье КюизеПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEFF1F396D99DD3D00A5A7EF489D3A135FCD03F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483993   (1006465) от 16.07.2021
-
-NG. В погоне за равноденствием / Chasing the Equinox (2019) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние скрывали секреты своего невероятного знания астрономии в своих храмах и дворцах, построенных так, что они встречали солнце одновременно, в один и тот же день по всей планете. Это своеобразная архитектурная магия в масштабах всей земли доказывает то значение, которое придавали солнцу люди на протяжении тысячелетий и на всех континентах.Производство: Великобритания, Pioneer Productions, National GeographicЖанр: Документальный, научно-познавательный, историяРежиссер: Кенни СкоттПеревод: Одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9829A8A2DED8B7961CC49B68F1BBB49E55C0787E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484142   (1006345) от 17.07.2021
-
-BBC. Тайные правила современной жизни: Алгоритмы / The Secret Rules of Modern Living: Algorithms (2015) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алгоритмы знают, когда наполнять полки супермаркетов, предсказывать погоду, направлять руку хирурга, создавать произведение искусства и даже зажигать искру любви. Они повсюду, но большинство и не подозревают об их влиянии. Каковы тайные правила современной жизни?Производство: Великобритания, BBC Scotland, The Open UniversityЖанр: Документальный, научно-познавательный, информатикаРежиссер: Дэвид БриггсПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F499E843C025DFF2CC92F64238521BFAFA4C2B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,166 @@
+###  Публикация: 457533   (78456) от 25.02.2012
+
+Windows 7 SP1 x86 Ultimate Standart by keglit 24.02.2012 [Английский,Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального английского образа 7601.17514.101119-1850_x86fre_client_en-us_Retail_Ultimate EN_DVD
+В сборку был интегрирован русский язык
+Установлены все важные и необходимые обновления по 24 февраля включительно.Кроме KB971033! Хотя его тоже можно установить,но на всякий случай не стал устанавливать!
+Папка Backup очищена.
+Контроль учетных записей( UAC) отключен
+После установки вы получаете активированную систему.
+Никаких твиков и сжатий не делалось!!!
+То есть это чистейшая сборка,можно сказать Оригинал только с активацией и с самыми последними обновлениями на 24 февраля 2012 года!!!Название программы: Windows 7 SP1 x86 Ultimate Standart by keglitЯзык интерфейса: Английский,Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457067   (78262) от 24.02.2012
+
+Google Sketchup Pro v8.0.3117 Английский и Русский + Vray 1.49.01  [ENG]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google SketchUp — простой и удобный инструмент для создания, обработки и презентации трёхмерных моделей. Позволяет быстро и качественно создавать практически любые построения различного уровня подачи - от драфт-эскиза, до готового проекта. Хорошо работает в связке с 3ds max, Cinema 4d, Vue xStream, Piranesi, Archicad. Здания, мебель, интерьер, строительные сооружения и многое – многое другое проектируется за считанные минуты. Кроме того, GoogleSketchUP предоставляет возможность создавать многостраничные документы и презентации; раскладывать и аннотировать множество масштабированных моделей на одной странице; создавать, документировать и делать презентацию проекта, используя один единственный чертёж. Pro версия SketchUp содержит дополнительную функциональность для тех, кому необходимо экспоритировать свои работы в CAD, рендеры и другие профессиональные программы. SketchUp Pro также включает LayOut - полностью новую программу, которая позволит вам создавать полные представления - бумажные и цифровые - из ваших SketchUp (   Читать дальше...   )Название программы: Google Sketchup ProЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456612   (78067) от 23.02.2012
+
+Sinclair MacOSX Linux Build v.20120217 [x86] (1xDVD)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта сборка Linux выполнена в стиле Apple MacOSX c наиболее возможным сходством оформления. Включены все эффекты, подобраны программы. Для тех, кто хочет насладиться оболочкой MacOSx на своём обычном компьютере - самое подходящее решение. Кроме того, создав загрузочную флэшку с этой системой, вы получите отличную возможность пользоваться ей когда и где угодно. Выполнено на базе Ubuntu 10.10.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8033CC3B9A6B41C4E5BC395AFA1E800F0D2D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456533   (78066) от 23.02.2012
+
+Хранитель времени / Hugo (2011) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения находчивого мальчика, который должен раскрыть секрет, оставленный его отцом, чтобы найти то место, которое сможет назвать своим домом.Производство: США / Paramount Pictures, GK Films, Infinitum Nihil ProductionЖанр: Драма, Детектив, ПриключенияРежиссер: Мартин СкорсезеАктеры: Хлоя Морец, Эмили Мортимер, Джуд Лоу, Хелен МакКрори, Кристофер Ли, Саша Барон Коэн, Бен Кингсли, Рэй Уинстоун, Ричард Гриффитс, Аса БаттерфилдПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1115326E5E526C66920FFE6DF8CB4D17E4EC6732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416288   (78060) от 23.02.2012
+
+Школа доктора Комаровского (выпуски 1 - 100) (2010/11/12)[H.264] SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя доктора Комаровского многие из нас впервые услышали во время гриппозной лихорадки, когда на фоне всеобщей паники он стал чуть ли не единственным человеком, кто сумел успокоить общественность.Неудивительно, ведь лечением ОРВИ известный харьковский педиатр Евгений Олегович Комаровский занимается без малого 30 лет. А 7 марта 2010 года на "Интере" состоялась (   Читать дальше...   )Производство: Канал Интер >Жанр: Для родителей, Обучающий, Ток-шоуПродолжительность: выпуск ~ 00:26:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456320   (77863) от 22.02.2012
+
+Ржевский против Наполеона (2011) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы развеять скуку, Наполеон Бонапарт затеял мировую войну. Не пропуская ни одной юбки, он оказывается со своей армией у ворот Первопрестольной. Русские полководцы решают внедрить к нему неприступную красавицу, la femme fatal, чтобы отвлечь узурпатора от захватнической деятельности. Только какая настоящая женщина устоит перед обаянием этого великого бабника? Ненастоящая!!! (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Марюс ВайсбергАктеры: Павел Деревянко, Владимир Зеленский, Светлана Ходченкова, Михаил Ефремов, Марат Башаров, Евгений Кошевой, Жан-Клод Ван Дамм, Анна Семенович, Анфиса Чехова, Михаил ГалустянПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308A5FC69736417F4F1FDE083D19BBF45718C73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454313   (77012) от 18.02.2012
 
 Lubuntu 11.10 UALinux OEM (февраль 2012) [i386 + amd64] (2xDVD)
@@ -6,7 +169,7 @@ Lubuntu 11.10 UALinux OEM (февраль 2012) [i386 + amd64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77012.jpg" />
 </div>
 
 
@@ -41,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76420.jpg" />
 </div>
 
 
@@ -67,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76419.jpg" />
 </div>
 
 
@@ -94,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76405.jpg" />
 </div>
 
 
@@ -120,7 +283,7 @@ Alvegia Online / Альвегия Онлайн [Ru] (L) 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76021.jpg" />
 </div>
 
 
@@ -150,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75808.jpg" />
 </div>
 
 
@@ -177,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75801.jpg" />
 </div>
 
 
@@ -203,7 +366,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75408.jpg" />
 </div>
 
 
@@ -234,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75402.jpg" />
 </div>
 
 
@@ -261,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75394.jpg" />
 </div>
 
 
@@ -287,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75352.jpg" />
 </div>
 
 
@@ -314,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75186.jpg" />
 </div>
 
 
@@ -343,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74991.jpg" />
 </div>
 
 
@@ -369,7 +532,7 @@ TrueCrypt 7.1a + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74986.jpg" />
 </div>
 
 
@@ -395,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74374.jpg" />
 </div>
 
 
@@ -425,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74371.jpg" />
 </div>
 
 
@@ -451,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74368.jpg" />
 </div>
 
 
@@ -477,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73966.jpg" />
 </div>
 
 
@@ -503,7 +666,7 @@ Imperium Galactica [Ru] (RePack) 1997 | Pilotus
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73944.jpg" />
 </div>
 
 
@@ -529,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_73934.jpg" />
+  <img src="Z:/picture/005/save_picture_73934.jpg" />
 </div>
 
 
@@ -541,164 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443711   (73144) от 30.01.2012
-
-Заражение / Contagion (2011) BDRip [H.264] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международная организация врачей совместно с Центром по контролю и профилактике заболеваний США пытается помешать распространению смертельного вируса.Производство: Warner Bros. Pictures, США — ОАЭЖанр: Триллер, ДрамаРежиссер: Стивен СодербергАктеры: Мэтт Дэймон, Марион Котийяр, Джуд Лоу, Гвинет Пэлтроу, Кейт Уинслет, Дженнифер Эль, Лоренс Фишбёрн, Брайан Крэнстон, Джон Хоукс, Санаа ЛэтэнПеревод: Профессиональный (полное дублирование)Субтитры: Русские (полные, форсированные), АнглийскиеПродолжительность: 01:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995D0B5DCDA901248009EE661C2BE7A18A112260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444070   (73143) от 30.01.2012
-
-NNM-Club в социальных сетях - присоединяйтесь!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие друзья.Наш клуб стал не просто большим, а очень большим - и во многом благодаря нашим совместным усилиям, ведь клуб - это мы, а не мы и пользователи. Хотя у нас разные жизни и живём мы порой достаточно далеко друг от друга, но нас связывает уже не один год общее для всех нас - это наш "виртуальный дом", куда каждый заходит в поисках новостей, новинок или просто выговориться.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803658   (65802) от 25.06.2025
-
-Очередное достижение: 1000 релизов от kulemin
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное  достижение: 1000 релизов от kuleminУважаемые одноклубники!Дорогие друзья! Мы отмечаем первое, и очень важное достижение Пользователя. Накануне наш Одноклубник, релизёр литературы (в основном презентации аудиокниг) создал 1000-ю раздачу. Преодолев этот рубеж - он не останавливается, и начинает вторую тысячу. Это довольно весомый вклад в развитие трекера (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 10080   (64451) от 26.01.2012
-
-Владимир Высоцкий  "Сборник Века: Полное собрание сочинений" (DVD 4.3 GB)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Сборник имеет удобную навигацию и оболочку, содержит фотографии, полное собрание песен (с текстами) и биографию исполнителя. Так же в сборник вошли ремастированные версии песен.
-Диск содержитЖанр: Хорошая музыкаПродолжительность: 16 : 40 : 00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821531   (63880) от 03.10.2025
-
-Очередное достижение: 2000 релизов от ярусс
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное  достижение: 2000 релизов от яруссУважаемые одноклубники!Дорогие друзья! Мы отмечаем очередное, важное достижение Пользователя. Накануне наш Одноклубник, известный Пользователям в основном как релизёр литературы (презентации аудиокниг) а также видеофильмов - оказался на пороге создания 2050-й раздачи! Преодолев рубеж  в 2000 презентаций - он не останавливается, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687349   (63779) от 07.03.2024
-
-Матрица / The Matrix (1999) HybridRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Томаса Андерсона разделена на две части: днём он — самый обычный офисный работник, получающий нагоняи от начальства, а ночью превращается в хакера по имени Нео, и нет места в сети, куда он не смог бы дотянуться. Но однажды всё меняется — герой, сам того не желая, узнаёт страшную правду: всё, что его окружает — не более, чем иллюзия, Матрица, а люди — всего (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow Pictures, Groucho Film PartnershipЖанр: фантастика, боевикРежиссер: Лана Вачовски, Лилли ВачовскиАктеры: Киану Ривз, Лоуренс Фишборн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантолиано, Маркус Чонг, Пол Годдард, Роберт Тэйлор, Джулиэн АрахангаПеревод: Дублированный (Kinoton)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D679AE58856ABC93007E0A6DF22FA0E0BD98E6DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

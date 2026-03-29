@@ -1,3 +1,82 @@
+###  Публикация: 1674542   (161090) от 05.11.2023
+
+Тесс Герритсен | Сборник произведений [29 книг] (2005-2021) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тесс Герритсен (Tess Gerritsen, 12 июня 1953 года, Сан-Диего, штат Калифорния, США) — американская писательница-прозаик китайского происхождения, создавшая серию бестселлеров в жанрах медицинского триллера и романтического триллера.
+Настоящий успех пришел к писательнице в 1996 г., когда по настоянию литературного агента она решила перенести свой медицинский опыт (   Читать дальше...   )Жанр: Детектив, триллер, медицинский и романтический триллерИздательство: Азбука, Книжный клуб 36.6, ЦентрполиграфФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6067C14D591F02D4927D26741AB3436D3E290C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598882   (160077) от 22.12.2022
+
+Антонио Гарридо (Antonio Garridо) | Сборник произведений [2 книги] (2010-2015) [FB2, EPUB] [Ru, En, Es]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антонио Гарридо (Antonio Garrido),родился 1 января 1963 г., Линарес, Испания - бывший педагог и инженер, а ныне прославленный автор интеллектуальных исторических детективов — мрачных, аутентичных, насыщенных большим количеством исторических деталей. Каждая книга Гарридо является итогом его многолетних исследований политических, правовых, социальных и культурных аспектов (   Читать дальше...   )Жанр: Интеллектуальный, исторический детектив, триллерПеревод: Кирилл Корконосенко. Е. Ф. ТолстаяЯзык: Русский, английский, испанскийФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A6763F500192E75EBC3C68431710B71CF09E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599456   (159554) от 24.12.2022
+
+Питер Акройд (Peter Ackroyd) | Сборник произведений [33 книги] (2000-2022) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Акройд (Peter Ackroyd) – английский прозаик и поэт, литературный критик, лауреат нескольких литературных премий. Питер Акройд родился пятого октября 1949 года в Лондоне (Великобритания). В 1971 году получил степень магистра в Кембриджском университете, затем два года провел в Йельском университете. По возвращении на родину он работал редактором в "The (   Читать дальше...   )Жанр: Исторический детектив, приключения, проза, история, биографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF477EDF95621728100EE9116876234867977C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506105   (158822) от 12.11.2023
 
 Хосе Карлос Сомоса | Сборник произведений [8 книг] (2005-2023) [FB2]
@@ -6,7 +85,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158822.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156120.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153997.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151294.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150086.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149863.jpg" />
 </div>
 
 
@@ -169,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148095.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147917.jpg" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147241.jpg" />
 </div>
 
 
@@ -250,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147063.jpg" />
 </div>
 
 
@@ -278,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146970.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144554.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143276.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135553.jpg" />
 </div>
 
 
@@ -387,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135290.jpg" />
 </div>
 
 
@@ -414,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134504.jpg" />
 </div>
 
 
@@ -442,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134436.jpg" />
 </div>
 
 
@@ -470,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134378.jpg" />
 </div>
 
 
@@ -498,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133790.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132536.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132522.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130431.jpg" />
 </div>
 
 
@@ -609,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125608.jpg" />
 </div>
 
 
@@ -622,87 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF168BECCFC836BCAA166D004CF07380AAD23538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687905   (125464) от 27.12.2023
-
-Пьер Леметр | Сборник произведений [10 книг] (2012-2022) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьер Леметр (фр. Pierre Lemaitre; 19 апреля 1951, Париж) — французский писатель и сценарист, лауреат Гонкуровской премии (2013) за роман «До свидания там, наверху».
-Еще в детстве Пьер Леметр увлёкся чтением карманных изданий, которые чуть ли не каждую неделю покупала его мать. Получив филологическое образование, преподавал французскую и американскую литературу. Впоследствии (   Читать дальше...   )Жанр: Детектив, триллер, историко-психологический романИздательство: Азбука, Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53257D473D26FF7E7BE50699A8F957378780E2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215100   (124148) от 06.01.2024
-
-Нора Робертс | Собрание сочинений [185 книг] (1995-2023) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нора Робертс (Nora Roberts) США, 10.10.1950
-Родилась в Вашингтоне в семье бизнесмена. Работала секретарем, с 1979 года - профессиональный писатель. Начинала как автор дамских романов, в последнее время тяготеет к "мейнстриму".
-Также издавалась под псевдонимом Джей Ди Робб (J.D. Robb).Жанр: Детектив, Триллер, Остросюжетный любовный романФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0C9B6133908E8AA364F09684A2505A62EC9E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 94799   (114242) от 05.03.2024
-
-Роджер Макбрайд Аллен | Собрание сочинений (1985-2008) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роджер Макбрайд Аллен — американский писатель-фантаст. Родился 26.09.1957 в Бриджпорте . Детство провел в пригороде Вашингтона. В 1979 году закончил факультет журналистики Бостонского университета. Затем работал официантом, продавцом пишущих машинок, оператором на телефоне, клерком книжного магазина, и одновременно с этим писал свой первый роман. После нескольких (   Читать дальше...   )Жанр: научная и боевая фантастикаИздательство: РазличныеФормат: FB2Качество: Изначально электронное (EPUB)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C03D104D76F62E4A074D2C915E736A9DAC7EA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

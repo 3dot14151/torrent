@@ -1,3 +1,55 @@
+###  Публикация: 326794   (723650) от 22.04.2011
+
+Конец императора тайги (1978) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1922 год — время, когда в Хакасии шли изнурительные бои красных с бандой атамана Соловьева. Фильм воспроизводит одну из малоизвестных страниц биографии Аркадия Гайдара (Голикова), когда он юношей был назначен командиром отряда ЧОНа (частей особого назначения).Производство: СССР, Киностудия им. М. ГорькогоЖанр: приключения, биографияРежиссер: Владимир СарухановАктеры: Андрей Ростоцкий, Иван Краско, Герман Качин, Юрий Майнагашев, Олег Балакин, Асанкул Куттубаев, Светлана Чебодаева-Чаптыкова, Данута Столярская, Виталий Канзычаков, Нина СарухановаПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B3CED7092804C094397590DD16DA14F4F9BA17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668454   (723563) от 15.06.2013
+
+Песни моря (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самодеятельный музыкальный коллектив румынских студентов всячески стремится попасть на Сочинский фестиваль эстрадной песни. Но чтобы сделать это, им нужно понравиться представителю фестиваля, который должен послушать их песни. Ребята даже не предполагают, что этим представителем окажется очень красивая русская девушка...Производство: СССР, Румыния / Мосфильм, "Бухарест"Жанр: Мьюзикл, комедияРежиссер: Франчиск МунтянуАктеры: Дан Спэтару (Михай), Наталья Фатеева (Нина), Ион Дикисяну, Штефан Бэникэ, Думитру Кесса, Рэка Ногь, Эмиль Хосу, Петер ПаульхоферПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8802FFDB979690842B1E5A9B71A3C26129A54BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218137   (723120) от 09.04.2018
 
 Дом с мезонином (1960) TVRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723120.jpg" />
+  <img src="Z:/picture/008/save_picture_723120.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722180.jpg" />
+  <img src="Z:/picture/005/save_picture_722180.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721833.jpg" />
+  <img src="Z:/picture/008/save_picture_721833.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721826.jpg" />
+  <img src="Z:/picture/008/save_picture_721826.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721656.jpg" />
+  <img src="Z:/picture/008/save_picture_721656.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721278.jpg" />
+  <img src="Z:/picture/008/save_picture_721278.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721276.jpg" />
+  <img src="Z:/picture/008/save_picture_721276.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720791.jpg" />
+  <img src="Z:/picture/008/save_picture_720791.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719469.jpg" />
+  <img src="Z:/picture/008/save_picture_719469.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719353.jpg" />
+  <img src="Z:/picture/008/save_picture_719353.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717820.jpg" />
+  <img src="Z:/picture/008/save_picture_717820.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717735.jpg" />
+  <img src="Z:/picture/008/save_picture_717735.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717258.jpg" />
+  <img src="Z:/picture/008/save_picture_717258.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714614.jpg" />
+  <img src="Z:/picture/008/save_picture_714614.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712943.jpg" />
+  <img src="Z:/picture/008/save_picture_712943.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712873.jpg" />
+  <img src="Z:/picture/008/save_picture_712873.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712867.jpg" />
+  <img src="Z:/picture/008/save_picture_712867.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712720.jpg" />
+  <img src="Z:/picture/008/save_picture_712720.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710816.jpg" />
+  <img src="Z:/picture/008/save_picture_710816.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710548.jpg" />
+  <img src="Z:/picture/008/save_picture_710548.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709373.jpg" />
+  <img src="Z:/picture/005/save_picture_709373.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708966.jpg" />
+  <img src="Z:/picture/008/save_picture_708966.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708554.jpg" />
+  <img src="Z:/picture/008/save_picture_708554.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707827.jpg" />
+  <img src="Z:/picture/008/save_picture_707827.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA081E34FB3F5D2359DA58AAAED5EFC5C582482B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209702   (707607) от 13.06.2010
-
-Черная стрела (1985) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековая Англия, конец XV века. Молодой Дик Шелтон начинает подозревать, что смерть его отца была не случайной: чёрная стрела, пущенная рукой Джона-мщу-за-всех, содержит приписку, гласящую, что убийцы Шелтона-старшего будут наказаны. Однако попытки узнать подробности о смерти отца натыкаются на стену. Более того, опекун Дика, сэр Дэниел, узнав о его расспросах, (   Читать дальше...   )Жанр: Приключения, военный, историяРежиссер: Сергей ТарасовАктеры: Галина Беляева, Игорь Шавлак, Леонид Кулагин, Юрий Смирнов, Альгимантас Масюлис, Борис Химичев, Александр Филиппенко, Сергей Тарасов, Яна Друзь, Борис Хмельницкий, Владимир Разумовский, Николай Дупак, Андрей Юренев, Владимир ЛитвиновПродолжительность: 01:25:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329151   (707536) от 30.04.2011
-
-Зеленые цепочки (1970) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707536.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повестям Г. И. Матвеева «Зелёные цепочки» и «Тайная схватка».
-Двое ленинградских мальчишек в августе 1941 года, во время отступления в Ленинград с группой беженцев случайно познакомились с одноруким фронтовиком, который передал им на сохранение тяжелый чемодан. Уже в осаждённом городе трое друзей - подростков, Миша, Васька и Степка, решили вскрыть чемодан…Производство: СССР, киностудия: «Ленфильм».Жанр: приключения, драма, военныйРежиссер: Григорий АроновАктеры: Павел Луспекаев, Саша Григорьев, Игорь Урумбеков, Володя Лелетко, Олег Белов, Людмила Глазова, Алексей Михайлов, Аристарх Ливанов, Федор Одиноков, Андрей Крупенин, Александр ЛиповСубтитры: отсутствуютПродолжительность: 01:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDD6ECDB6756424FE0FA3EA51EA2CCD20970C04
 ```
 
 https://mybot314.ru/tekegram_catalog/

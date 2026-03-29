@@ -1,3 +1,119 @@
+###  Публикация: 1577146   (357164) от 18.09.2022
+
+Kruger - Бомба (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бомба [00:06:11]
+02 - 2020 [00:05:51]
+03 - Боль и Трон [00:05:24]
+04 - День Гнева [00:04:12](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FD35D5A82C0B40BA85A6FFF048DA7C37D5D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577430   (357043) от 18.09.2022
+
+Демократизатор (Demokratizator) - Пусть будет Пи### (2016) Remastered, 2022, Zymotic Productions [MP3|320 Kbps] <Hardcore Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Бухай за рулём! [00:02:31]
+02-Пи### бабу! [00:02:38]
+03-Водка.Е###.Драка.. [00:03:07]
+04-Глоток [00:02:27](   Читать дальше...   )Жанр: Hardcore Punk RockПродолжительность: 00:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A004BB8BCE91E1908996E89A6369D3DFB14DD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256304   (356785) от 21.10.2018
+
+Alkonost - Октаграмма (2018) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Тропа к весне
+03. Вслед молодой заре
+04. Танец цветенья(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F91C93C82BC93C3F2B19D7920726143E2E0B584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178504   (356110) от 28.10.2017
+
+Алексей Мурашов (Секрет) - LVI (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6,5 евро
+02. Мама, ты сегодня не права
+03. Туз-Пуз (feat. Андрей Заблудовский)
+04. Доброе утро (feat. Александр Зарецкий)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A424A1061991E7B1E272FEE7488A65A1A978930A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952247   (355717) от 01.11.2015
 
 АЛЁNA - Подумаю (2015) [MP3|320 кб/с]<Folk-Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355717.jpg" />
+  <img src="Z:/picture/008/save_picture_355717.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355620.jpg" />
+  <img src="Z:/picture/008/save_picture_355620.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Casual - #Не_Умру_По_Утру (2019) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354592.jpg" />
+  <img src="Z:/picture/008/save_picture_354592.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354591.jpg" />
+  <img src="Z:/picture/008/save_picture_354591.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354541.jpg" />
+  <img src="Z:/picture/008/save_picture_354541.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354446.jpg" />
+  <img src="Z:/picture/008/save_picture_354446.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354434.jpg" />
+  <img src="Z:/picture/008/save_picture_354434.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354306.jpg" />
+  <img src="Z:/picture/008/save_picture_354306.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354252.jpg" />
+  <img src="Z:/picture/008/save_picture_354252.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353963.jpg" />
+  <img src="Z:/picture/008/save_picture_353963.jpg" />
 </div>
 
 
@@ -290,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353264.jpg" />
+  <img src="Z:/picture/008/save_picture_353264.jpg" />
 </div>
 
 
@@ -319,7 +435,7 @@ Biopsyhoz (Биопсихоз) - Касание (2016) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352303.jpg" />
+  <img src="Z:/picture/008/save_picture_352303.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ VA - Воскресение - Юбилейный концерт (10 лет гр�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352210.jpg" />
+  <img src="Z:/picture/008/save_picture_352210.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ LaScala - Repeat (2016) EP [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352010.jpg" />
+  <img src="Z:/picture/008/save_picture_352010.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Z-exit - 3д в кино (2016) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351703.jpg" />
+  <img src="Z:/picture/008/save_picture_351703.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351244.jpg" />
+  <img src="Z:/picture/008/save_picture_351244.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351238.jpg" />
+  <img src="Z:/picture/008/save_picture_351238.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350793.jpg" />
+  <img src="Z:/picture/008/save_picture_350793.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350736.jpg" />
+  <img src="Z:/picture/008/save_picture_350736.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350485.jpg" />
+  <img src="Z:/picture/008/save_picture_350485.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ Hellcord - Digital Murder (2022) [MP3|320 Kbps] <Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350393.jpg" />
+  <img src="Z:/picture/008/save_picture_350393.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350304.jpg" />
+  <img src="Z:/picture/008/save_picture_350304.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7EF52623A3499F9C8FD539812D18CAFFEB065B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073020   (349723) от 14.11.2016
-
-Смех - Импортозамещение (2016) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Члены страны
-02. Их радио
-03. Punk's Not Dead
-04. Я верю(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E31DE624F415C4497D154B2D280BFB73675676A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418377   (349286) от 24.10.2020
-
-CWT - Дайте вакцину! (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349286.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Разрываясь на части
-2. Девочка-радуга
-3. Песня о нелегкой судьбе россиянина
-4. Дайте вакцину!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3705B33D0F5C7B6AF951144CD64081E3673421C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418246   (348942) от 24.10.2020
-
-Коловрат [Kolovrat] - Думая о России (2017) Compilation [MP3|320 Kbps] <Hard Rock, Ballad, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Думая о России [00:05:05]
-02. Гусарская баллада [00:03:53]
-03. 300 лет Питеру [00:04:51]
-04. Надежда ещё жива [00:03:14](   Читать дальше...   )Жанр: Hard Rock, Ballad, Soft RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0490E0E1C350EA535FF312C9C1FBA78F14FA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953436   (348819) от 04.11.2015
-
-Калинов Мост - Циклон (2015) [MP3|320 кб/с]<Folk Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формальной, но знаковой приметой нового альбома является то, что все песни, составившие этот «циклонный» цикл, сочинены Дмитрием Ревякиным на самой восточной окраине нашей необъятной Родины — на терпкой и таинственной Камчатке (или по пути к ней, как открывающая альбом композиция), и все они написаны зимой (часть в декабре 2008 года, часть в феврале 2010). В этом (   Читать дальше...   )01. Boeing
-02. На краю земли
-03. Циклон
-04. Сквозь искушения(   Читать дальше...   )Жанр: Folk Rock, RockПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD70440A998B9C5238F0B5C22C9006CEB5F0547F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1762150   (11371) от 16.07.2025
+
+Ale & Tale Tavern (2024) [Ru/Multi] (1.5.8) Repack Pioneer
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ale and Tale Tavern - это кооперативный фэнтезийный симулятор таверны от первого лица с открытым миром. Геймеры вступают в роль владельца таверны, которому поручено восстановить заброшенное заведение до его былой славы. Тайтл предлагает множество занятий, включая кулинарию, рыбалку, охоту и исследования. Юзеры могут выполнять разнообразные квесты, взаимодействовать (   Читать дальше...   )Тип издания: RepackРазработчик: Scienart GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23138750ED8C78F7D8C8FBF60DE232D2941AFF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807622   (10926) от 20.07.2025
 
 Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
@@ -6,7 +32,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10926.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dust Raiders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10561.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Rooftops & Alleys: The Parkour Game (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10250.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kick'n Hell (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10177.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Starmetal Crusaders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10173.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9922.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9875.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9818.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9794.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Unravel Two (2018) [En] (1.0.0.47008) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9676.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9463.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9378.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9354.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9347.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9270.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Too Many Clothes Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9269.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8993.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (build 19526651) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8846.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Yomi 2 (2023) [Ru/Multi] (2841/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8835.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8734.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8151.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8134.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7912.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7770.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Figment 2: Creed Valley (2023) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7607.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Figment 2: Creed Valley - насыщенное приключение, дейс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F4C981B6FA4D34FC426B167882088A35DB4137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374767   (6873) от 20.08.2025
-
-Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляемая)
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Streets of Rogue – это облегченный роглайк о выборе, свободе и безудержном веселье. Вдохновением для игры послужили быстрые топдаун роглайк-игры вроде Binding of Isaac и Nuclear Throne плюс RPG вроде Deus Ex с их свободой для экспериментов и погружения во вселенную игры. Действие происходит не в привычном подземелье, а в живом процедурно сгенерированном городе, где (   Читать дальше...   )Тип издания: LicenseРазработчик: Matt DabrowskiЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1E849C06E711475C10EC10DE8A3EB9C51A5299
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Linkin Park - From Zero: A Cappellas + Instrumentals (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69947.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Lee Hooker - The Standard School Broadcast Recordings (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69942.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dark Chapel (Часовня Тьмы) - Spirit in The Glass (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69941.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gillan - The Japanese Album (1978) Deluxe Edition. 2025, Edsel [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69929.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gleb Kolyadin (Глеб Колядин) - Mobula (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69920.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Djabe & Steve Hackett - Freya Arctic Jam (2025) [FLAC 16/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69909.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mdou Moctar - Tears of Injustice (2025) Injustice Version, 2025, Matador [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69900.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Beckies - Demos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Pop, Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69899.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69843.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69842.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Morlas Memoria - Adieu (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69824.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gravecloud - A Tear In The Veil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69791.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Years Of Messages - The Bitterness of Love & Obsession (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69787.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Andrew Bird - Collection (2016-2024) [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69786.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stuka - Electronic Body Metal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69784.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tate McRae - So Close To What (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69769.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Destruction - Birth Of Malice (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69759.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Zombie Zombie - Funk Kraut (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69732.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Deathless Legacy - Damnatio Aeterna (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69667.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ros - Salvator (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Gothic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69631.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Surmachina - Хождение за три моря (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69623.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gary Numan - Berserker (1984) Extended; Remaster;  2025; BMG [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69607.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kaiser - 2nd Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69601.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sadist - Something to Pierce (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69597.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Yes - Close to the Edge (1972) Super Deluxe Edition, 2025, Rhino Atlantic [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69582.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Livingston - A Hometown Odyssey (2024) The Story Continues, 2025, Big Up Enterta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69577.jpg" />
 </div>
 
 

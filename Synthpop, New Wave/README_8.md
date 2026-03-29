@@ -1,3 +1,32 @@
+###  Публикация: 1572212   (423517) от 26.08.2022
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move To Memphis
+02. I've Been Losing You
+03. The Living Daylights
+04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325933   (408692) от 17.09.2019
 
 Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [MP3|320 Kbps] <Electronic, Synth-pop, New Wave, EBM>
@@ -6,7 +35,7 @@ Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408692.jpg" />
+  <img src="Z:/picture/008/save_picture_408692.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408022.jpg" />
+  <img src="Z:/picture/008/save_picture_408022.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Laserdance - Future Generation (1987) [OGG Vorbis|485 Kbps] <Synthpop, Electroni
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407539.jpg" />
+  <img src="Z:/picture/008/save_picture_407539.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Pet Shop Boys - Disco (1986) [OGG Vorbis|485 Kbps] <Synthpop, Electro>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407501.jpg" />
+  <img src="Z:/picture/008/save_picture_407501.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Oblivion - Secrets Of Time (The 4-th Album) (2021) [OGG Vorbis|485 Kbps] <Synthp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407499.jpg" />
+  <img src="Z:/picture/008/save_picture_407499.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - BIPPP : French Synth-Wave 1979/85 (2006) CD [MP3|320 Kbps] <Electronic, New
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396682.jpg" />
+  <img src="Z:/picture/008/save_picture_396682.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Art of Noise - Discography (42 Albums) & Anne Dudley (19 Albums) (1983-2010)
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396570.jpg" />
+  <img src="Z:/picture/008/save_picture_396570.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Fad Gadget - 4 Albums (1980 - 1984) Reissue CD, Mute, 1991 [MP3|320 Kbps] <Elect
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394838.jpg" />
+  <img src="Z:/picture/008/save_picture_394838.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Night Runner - Thunderbird (2017) [MP3|320 Kbps] <Synthwave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391236.jpg" />
+  <img src="Z:/picture/008/save_picture_391236.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ OMD (Orchestral Manoeuvres In The Dark) - The Punishment of Luxury (2017) [MP3|3
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388864.jpg" />
+  <img src="Z:/picture/008/save_picture_388864.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ VA - Summer In Space Vol.5 (2022) (2CD) [OGG Vorbis|485 Kbps] <Synthpop, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385699.jpg" />
+  <img src="Z:/picture/008/save_picture_385699.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ VA - Swedish Electro vol. 4: The Unsigned (2016) [MP3|320 Kbps] <Synthpop, EBM, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384774.jpg" />
+  <img src="Z:/picture/008/save_picture_384774.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ VA - The Minimal Wave Tapes (2010, 2012) Volume One & Two [MP3|320 Kbps] <Electr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383565.jpg" />
+  <img src="Z:/picture/008/save_picture_383565.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ The Midnight - Collection (2014-2017) [MP3|320 Kbps] <Synthwave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382844.jpg" />
+  <img src="Z:/picture/008/save_picture_382844.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Hypnotix - Star Gates (2006) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381559.jpg" />
+  <img src="Z:/picture/008/save_picture_381559.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Hypnotix - Star Tracks (1997) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379411.jpg" />
+  <img src="Z:/picture/008/save_picture_379411.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372572.jpg" />
+  <img src="Z:/picture/008/save_picture_372572.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Abbsynth - Space Wanderer (2010) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364162.jpg" />
+  <img src="Z:/picture/008/save_picture_364162.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ The Midnight - Horror Show (2020) EP [MP3|320 Kbps] <Synthwave, New Retrowave, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362846.jpg" />
+  <img src="Z:/picture/008/save_picture_362846.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Alexander Korolev - Cyber Attack (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357040.jpg" />
+  <img src="Z:/picture/008/save_picture_357040.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357026.jpg" />
+  <img src="Z:/picture/008/save_picture_357026.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350166.jpg" />
+  <img src="Z:/picture/008/save_picture_350166.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesyn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349217.jpg" />
+  <img src="Z:/picture/008/save_picture_349217.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342351.jpg" />
+  <img src="Z:/picture/008/save_picture_342351.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Ita
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341079.jpg" />
+  <img src="Z:/picture/008/save_picture_341079.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DCC540160D5CA7745096DF5293BB69A5FDBF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330710   (338969) от 11.10.2019
-
-Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:24)
-02. First Orbit (Around the Earth) (4:57)
-03. Mysterious Universe (Space Music Fest Edit) (3:52)
-04. On the Edge of Infinity (4:51)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF68B71AD6FC9FE270EB4F33A9B5623C134AD1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

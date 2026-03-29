@@ -1,3 +1,61 @@
+###  Публикация: 1322405   (442396) от 01.09.2019
+
+VA - Underworld Collection 1-5 / Другой мир 1-5 (2003-2016) [MP3|128-320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Renholdër - Now I Know (0:59)
+2. Renholdër - Down In The Lab (1:48)
+3. Renholdër - Death Dealer's Descent (0:57)
+4. David Bowie - Bring Me the Disco King (Renholdër Remix) (6:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619513E3A0EDA1BD8E935C578F849755B7BAB008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322247   (442215) от 01.09.2019
+
+VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Ranger - Sister Christian
+02. Bumblebeez - Freak Your Loneliness
+03. Classic - Get Em Up
+04. Living Things - Post Millennium Extinction Blues(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D35822575E6625DA1DD887CDD8A250F06A40600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 181295   (441945) от 05.10.2014
 
 VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
@@ -6,7 +64,7 @@ VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_441945.jpg" />
+  <img src="Z:/picture/005/save_picture_441945.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jana Mashonee - American Indian Story (2006) [MP3|320 кб/с]<Native American E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441904.jpg" />
+  <img src="Z:/picture/008/save_picture_441904.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441901.jpg" />
+  <img src="Z:/picture/008/save_picture_441901.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ Age Of Echoes - Beyond the Farthest Shore (2015) [MP3|320 кб/с]<New Age, Rela
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440382.jpg" />
+  <img src="Z:/picture/008/save_picture_440382.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440343.jpg" />
+  <img src="Z:/picture/005/save_picture_440343.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440334.jpg" />
+  <img src="Z:/picture/005/save_picture_440334.jpg" />
 </div>
 
 
@@ -198,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439982.jpg" />
+  <img src="Z:/picture/008/save_picture_439982.jpg" />
 </div>
 
 
@@ -227,7 +285,7 @@ Jim Brickman - Pure Carpenters (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439860.jpg" />
+  <img src="Z:/picture/008/save_picture_439860.jpg" />
 </div>
 
 
@@ -256,7 +314,7 @@ VA - Ayurveda Lounge - Relaxation & Meditation, Vol. 4 (2014) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439487.jpg" />
+  <img src="Z:/picture/008/save_picture_439487.jpg" />
 </div>
 
 
@@ -285,7 +343,7 @@ Benjamin Wallfisch - It / Оно (Original Motion Picture Soundtrack) (2017) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439051.jpg" />
+  <img src="Z:/picture/008/save_picture_439051.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American E
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438645.jpg" />
+  <img src="Z:/picture/008/save_picture_438645.jpg" />
 </div>
 
 
@@ -340,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438429.jpg" />
+  <img src="Z:/picture/008/save_picture_438429.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438318.jpg" />
+  <img src="Z:/picture/008/save_picture_438318.jpg" />
 </div>
 
 
@@ -398,7 +456,7 @@ David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437870.jpg" />
+  <img src="Z:/picture/008/save_picture_437870.jpg" />
 </div>
 
 
@@ -427,7 +485,7 @@ Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Nat
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437591.jpg" />
+  <img src="Z:/picture/008/save_picture_437591.jpg" />
 </div>
 
 
@@ -456,7 +514,7 @@ Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437174.jpg" />
+  <img src="Z:/picture/008/save_picture_437174.jpg" />
 </div>
 
 
@@ -485,7 +543,7 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436935.jpg" />
+  <img src="Z:/picture/008/save_picture_436935.jpg" />
 </div>
 
 
@@ -514,7 +572,7 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436793.jpg" />
+  <img src="Z:/picture/008/save_picture_436793.jpg" />
 </div>
 
 
@@ -543,7 +601,7 @@ Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, Ne
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436250.jpg" />
+  <img src="Z:/picture/008/save_picture_436250.jpg" />
 </div>
 
 
@@ -578,7 +636,7 @@ VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436080.jpg" />
+  <img src="Z:/picture/008/save_picture_436080.jpg" />
 </div>
 
 
@@ -607,7 +665,7 @@ Garden Of Delight - Back in Ireland (2015) [OGG| 482-555 кб/с]<Alternative, I
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435851.jpg" />
+  <img src="Z:/picture/008/save_picture_435851.jpg" />
 </div>
 
 
@@ -636,7 +694,7 @@ Armik - La Vida (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Nuevo Flamenco, New 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435686.jpg" />
+  <img src="Z:/picture/008/save_picture_435686.jpg" />
 </div>
 
 
@@ -665,7 +723,7 @@ The Smooth Ballroom Band - All Time Favorites: Saxophone Lounge (2015) [MP3|256 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435676.jpg" />
+  <img src="Z:/picture/008/save_picture_435676.jpg" />
 </div>
 
 
@@ -694,7 +752,7 @@ Armik - La Vida (2015) [MP3|320 кб/с]<Instrumental, Nuevo Flamenco, New Age>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435675.jpg" />
+  <img src="Z:/picture/008/save_picture_435675.jpg" />
 </div>
 
 
@@ -708,64 +766,6 @@ Armik - La Vida (2015) [MP3|320 кб/с]<Instrumental, Nuevo Flamenco, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12FFC3A0A15762F69950DCDAC37B1ED002C60CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063204   (435160) от 16.10.2016
-
-Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Abandoned Neighborhood (02:25)
-02. Let’s Do This One (06:31)
-03. Approaching the House (02:38)
-04. The Blindman Liar (03:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845A8107B06EA528F8546D8A044D896433BDAD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063200   (434818) от 16.10.2016
-
-Steve Jablonsky - Deepwater Horizon / Глубоководный горизонт (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taming the Dinosaurs (04:12)
-02. The Rig (04:49)
-03. The Monster (03:01)
-04. Hope Is Not a Tactic (03:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD557C61DCCB515B714E2AEAD1F76920E4BB7843
 ```
 
 https://mybot314.ru/tekegram_catalog/

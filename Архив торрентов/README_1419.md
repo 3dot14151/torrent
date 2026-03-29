@@ -6,7 +6,7 @@ The Bat! Voyager 8.8.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731462.jpg" />
+  <img src="Z:/picture/008/save_picture_731462.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dism++ 10.1.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731429.jpg" />
+  <img src="Z:/picture/008/save_picture_731429.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Старые Песни В Новом Формате (2016) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731428.jpg" />
+  <img src="Z:/picture/008/save_picture_731428.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Wise Data Recovery 3.84.201 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731426.jpg" />
+  <img src="Z:/picture/008/save_picture_731426.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ IP-TV Player 0.28.1.8845 DC 30.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731419.jpg" />
+  <img src="Z:/picture/008/save_picture_731419.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731416.jpg" />
+  <img src="Z:/picture/008/save_picture_731416.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dr.Web Security Space 11.0.3.5270 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731412.jpg" />
+  <img src="Z:/picture/008/save_picture_731412.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731356.jpg" />
+  <img src="Z:/picture/008/save_picture_731356.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Advanced Download Manager Pro 5.1.2 (build 51249) [Rus/Multi] - Менеджер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731353.jpg" />
+  <img src="Z:/picture/008/save_picture_731353.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731331.jpg" />
+  <img src="Z:/picture/005/save_picture_731331.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Emsisoft Internet Security 11.7.0.6394 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731320.jpg" />
+  <img src="Z:/picture/008/save_picture_731320.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ WinRAR 5.40 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731315.jpg" />
+  <img src="Z:/picture/008/save_picture_731315.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ O&O ShutUp10 1.3.1357 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731314.jpg" />
+  <img src="Z:/picture/008/save_picture_731314.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ DAEMON Tools Lite 10.4.0.190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731309.jpg" />
+  <img src="Z:/picture/008/save_picture_731309.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Hand Of Fate (2015) [Ru/Multi] (1.3.10/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731276.jpg" />
+  <img src="Z:/picture/008/save_picture_731276.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731247.jpg" />
+  <img src="Z:/picture/005/save_picture_731247.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731225.jpg" />
+  <img src="Z:/picture/005/save_picture_731225.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731217.jpg" />
+  <img src="Z:/picture/005/save_picture_731217.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Wallpapers - Naked Girls-8 [JPEG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731190.jpg" />
+  <img src="Z:/picture/008/save_picture_731190.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731166.jpg" />
+  <img src="Z:/picture/008/save_picture_731166.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731165.jpg" />
+  <img src="Z:/picture/008/save_picture_731165.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731164.jpg" />
+  <img src="Z:/picture/008/save_picture_731164.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731163.jpg" />
+  <img src="Z:/picture/008/save_picture_731163.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731162.jpg" />
+  <img src="Z:/picture/008/save_picture_731162.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731161.jpg" />
+  <img src="Z:/picture/008/save_picture_731161.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731159.jpg" />
+  <img src="Z:/picture/008/save_picture_731159.jpg" />
 </div>
 
 

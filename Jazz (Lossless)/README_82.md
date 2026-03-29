@@ -1,3 +1,119 @@
+###  Публикация: 1014024   (776927) от 06.05.2016
+
+VA - Smooth Jazz Vocal Grooves (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Cole - So Good 4:16
+02. Lin Rountree - Givin' You Love 4:02
+03. James Vargas - Say You Will 5:34
+04. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A376C4C76108142FC7C284FFFAA4094C75E81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013685   (776923) от 06.05.2016
+
+Allan Holdsworth - One City Night (1995) [FLAC|Lossless|tracks] <Jazz, Fusion, Free Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funnels (06:24)
+02. Looking Glass (08:50)
+03. Auhkukah (05:49)
+04. Low Levels, High Stakes (07:12)(   Читать дальше...   )Жанр: Jazz, Fusion, Free Jazz, Contemporary JazzПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4352A0A157D669C15C3076EBD853BD70C35E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211900   (776912) от 09.03.2018
+
+Jimmy Owens - The Monk Project (2011) IPO Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Mississippi [05:41]
+02. Well You Needn't [06:48]
+03. Blue Monk [08:41]
+04. Stuffy Turkey [06:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EB36931230A8BA438E4A36830BBE6492ADCB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211898   (776911) от 09.03.2018
+
+Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day [04:16]
+02. Angel Eyes [04:07]
+03. Lou's Blues [03:48]
+04. Yesterdays [06:19](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A643B35809656A90226E9C5298E2C82E2B79763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211902   (776900) от 09.03.2018
 
 The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007, Verve [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Vocal Jazz>
@@ -6,7 +122,7 @@ The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776900.jpg" />
+  <img src="Z:/picture/008/save_picture_776900.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776873.jpg" />
+  <img src="Z:/picture/008/save_picture_776873.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Michael Musillami Octet - Spirits (2004) Playscape Recordings [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776579.jpg" />
+  <img src="Z:/picture/008/save_picture_776579.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Timewarp Inc. - Ghetto Drunk (2013) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776566.jpg" />
+  <img src="Z:/picture/008/save_picture_776566.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Eve Seltzer & Terminal Swing - Live at Shapeshifter Lab (2016) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776560.jpg" />
+  <img src="Z:/picture/008/save_picture_776560.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Benny Goodman Quartet - Together Again! (1963) 2016, Sony Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776545.jpg" />
+  <img src="Z:/picture/008/save_picture_776545.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Astrud Gilberto & Walter Wanderley - A Certain Smile A Certain Sadness (1966) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776476.jpg" />
+  <img src="Z:/picture/008/save_picture_776476.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Donald Harrison & Ron Carter, Billy Cobham - Heroes (2004) [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776179.jpg" />
+  <img src="Z:/picture/008/save_picture_776179.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pat Metheny - The Unity Sessions (2016) [FLAC|Lossless|tracks] <Jazz, Experiment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776151.jpg" />
+  <img src="Z:/picture/008/save_picture_776151.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Woody Herman - Jazz Masters 54 (1962 - 1964) 1996, Verve [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776138.jpg" />
+  <img src="Z:/picture/008/save_picture_776138.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Michael Musillami Trio - Old Tea (2010) Playscape Recordings [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776137.jpg" />
+  <img src="Z:/picture/008/save_picture_776137.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Roy Haynes - Roy Haynes' Modern Group (1954) 2017, Sony Music [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776128.jpg" />
+  <img src="Z:/picture/008/save_picture_776128.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Tim Tamashiro - Ai [Love] (2002) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775857.jpg" />
+  <img src="Z:/picture/008/save_picture_775857.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Takana Miyamoto & Kirk Whalum - Promises Made: The Millennium Promise Jazz Proje
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775838.jpg" />
+  <img src="Z:/picture/008/save_picture_775838.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Harry James - Jazz Masters 55 (1959 - 1964) 1996, Verve [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775827.jpg" />
+  <img src="Z:/picture/008/save_picture_775827.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Leo Amuedo - Guitar Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775769.jpg" />
+  <img src="Z:/picture/008/save_picture_775769.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Howard McGhee - Maggie's Back In Town (1961) 1991, Original Jazz Classics [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775225.jpg" />
+  <img src="Z:/picture/008/save_picture_775225.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sonia Cat-Berro - Lonely Siren (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775222.jpg" />
+  <img src="Z:/picture/008/save_picture_775222.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Lyn Stanley - Interludes (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775214.jpg" />
+  <img src="Z:/picture/008/save_picture_775214.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ John Coltrane - Gold (1957 - 1964) 2CD, 2006, Hip-O Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775164.jpg" />
+  <img src="Z:/picture/008/save_picture_775164.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Curtis Fuller - Four On The Outside (1978) Remaster, 2015, Solid Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774995.jpg" />
+  <img src="Z:/picture/008/save_picture_774995.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774409.jpg" />
+  <img src="Z:/picture/008/save_picture_774409.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D767C89CC862763FAE20F1B3D2D5DC34C57BBC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015703   (774362) от 11.05.2016
-
-Booker Ervin, Pony Poindexter, Larry Young - Gumbo! (1963) 1999, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Front O'Town [05:09]
- 02.Happy Strut [02:58]
- 03.Creole Girl (aka Melphamiene) [04:08]
- 04.4-11-44 [03:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5BD275F82B688A6E3742B37D6DA1F97C029676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278001   (774303) от 23.01.2019
-
-Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Runs The Voodoo Down [10:27]
-02. Sanctuary [3:59]
-03. It’s About That Time/The Theme [9:45]
-04. Directions [7:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213040   (774296) от 14.03.2018
-
-VA - Jazz Covers of Pop Songs Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody to Love - Meg Birch 3:40
-02. I’m Not in Love - Olivia Keast 2:51
-03. Lovely Day - Nora & Will 3:44
-04. Sweet Dreams (Are Made of This) - Talisha Karrer 2:36(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F37F54B957FD2AB2D98B5F9699B0EB7DFF2FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125024   (773609) от 13.04.2017
-
-Eric Alexander & Vincent Herring - The Battle: Live At Smoke (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues Up And Down [12:50]
- 02.Road Song [10:49]
- 03.Firm Roots [09:38]
- 04.Ritual Dance [08:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5FF4E7906C420F846C0ABF2A1A286FE0006036
 ```
 
 https://mybot314.ru/tekegram_catalog/

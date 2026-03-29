@@ -1,3 +1,119 @@
+###  Публикация: 1345525   (166736) от 15.12.2019
+
+Bix Beiderbecke & Paul Whiteman - 1927 - 1928 (2001) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Washboard Blues [4:20]
+02. Changes [2:54]
+03. Mary [2:51]
+04. Lonely Melody [2:59](   Читать дальше...   )Жанр: Early JazzПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD7AFCA4BFDB4F3202A19F5F411FF6027805DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345577   (166718) от 15.12.2019
+
+Jazz At Lincoln Center Orchestra - The Abyssinian Mass (2016) 2CD, Blue Engine Records [FLAC|Lossless|tracks + .cue] <Gospel, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166718.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Devotional [8:34]
+02. Call to Worship [5:11]
+03. The Lord's Prayer [4:13](   Читать дальше...   )Жанр: Gospel, Big BandПродолжительность: 02:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E9F525AFADDBDD8C3721ECD50B90083DF01BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343594   (166682) от 15.12.2019
+
+Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daahoud [8:46]
+02. Somewhere in the Night [10:09]
+03. Delilah [13:05]
+04. Brook's Idea [6:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE4F710884917CCED7ADA2B76EE7B59CDF89BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673179   (166506) от 31.10.2023
+
+Toshiyuki Miyama And His New Herd - Tribute (1978) 1991, Teichiku Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrix [4:25]
+02. Seth Song [6:08]
+03. Collins Street [5:09]
+04. For Erroll [5:58](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CA420DAF6BD1EBAA6820ECC87327891F9DCD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673177   (166352) от 31.10.2023
 
 Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 2022, Elemental Music [FLAC|Lossless|tracks + .cue] <Cool>
@@ -6,7 +122,7 @@ Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166352.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166257.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Lee Konitz & The Brazilian Band - Brazilian Serenade (1996) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166233.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Beegie Adair - Winter Wonderland (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166152.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Till Bronner - Christmas (2021) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165988.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ed Neumeister Quartet - New Standards (2005) MeisteroMusic [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165906.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Phil Hey Quartet - Subduction: Live at the Artists' Quarter (2005) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165903.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165837.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165716.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Django Reinhardt - BD Jazz, Vol.2 (1937 - 1953) 2CD, 2006, Nocturne [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165520.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165510.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165493.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165480.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Jimmy Greene - While Looking Up (2020) Mack Avenue [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165373.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Larry Coryell & Philip Catherine - Jazz at Berlin Philharmonic XI: The Last Call
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165341.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Little Violet - Code Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz /Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165322.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Anat Cohen - Claroscuro (2012) Anzic Records [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165304.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Kenny Drew, Jr. - Kenny Drew, Jr. (1991) Antilles [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165303.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165252.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Nat "King" Cole - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165225.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Django Reinhardt - 1941 - 1942 (1996) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165214.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Harry James - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165076.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Harry James - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20B953317EAD9EFD0878818657D8491F69C57CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597634   (165011) от 16.12.2022
-
-Julien Daian Quintet - Cut-Up (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Working (4:28)
-02. Bring Some Love (feat. Luciano & Mikey General) (5:56)
-03. September Nine (5:22)
-04. Trop c'est trop (2:46)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E3E3A817798B3EEE628637366620C1A214E9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346125   (164642) от 18.12.2019
-
-J.J. Johnson - The Total J.J. Johnson 1966 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say When [2:58]
-02. Blue [5:53]
-03. In Walked Horace [4:46]
-04. Short Cake [2:46](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64B65BA42B2CC45992B00260915243637C76D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346224   (164640) от 18.12.2019
-
-Steve Lacy - Duets: Associates 1982 - 1993 (1996) Felmay [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haze (with Masahiko Togashi) [11:33]
-02. Free Point (with Steve Potts) [9:32]
-03. Epistrophy (with Mal Waldron) [7:57]
-04. Train Going By (with Irene Aebi) [3:38](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB866FED459B423B63F92FCF2C9DB488B107550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516881   (164636) от 13.12.2021
-
-Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Moon And Empty Arms [3:18]
-02. Frantonality [2:56]
-03. If I Loved You [2:48]
-04. For You [2:59](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

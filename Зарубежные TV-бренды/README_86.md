@@ -1,3 +1,107 @@
+###  Публикация: 248435   (417292) от 21.10.2010
+
+Современные чудеса. Грузовики-монстры / Modern Marvels. Truck-Monster (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_417292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многолетний цикл "Современные чудеса" - пожалуй, самый популярный на канале "ТВ-3". Цикл посвящен истории практически всего того, что нас окружает. Поэтому тема эта поистине безгранична.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158553   (416653) от 20.09.2017
+
+Animal Planet. Проект Гризли / Project Grizzly (2016) HDTVRip (Сезон 1, серии 1-6 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джефф Уотсон по прозвищу Человек-медведь уже 27 лет ухаживает за медведями в неволе, и все эти годы он мечтает о возвращении величественных животных в дикую природу. Сегодня Джефф пытается обучить навыкам выживания двух взрослых бурых медведей по кличке Боб и Скрич, выросших в неволе, чтобы выпустить их на свободу в глубинке на юге штата Индиана. Ему предстоит провести (   Читать дальше...   )Производство: США, Animal Planet, Discovery Communications, LLC.Жанр: Документальный, животный мир, наблюдениеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E7D7A6622CFA1A91209A72C8E7FC06C6E7FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065959   (416165) от 24.10.2016
+
+Discovery. Дороги России: Уфа - Магнитогорск (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416165.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот раз мы отправимся в путешествие с Discovery Channel по дорогам Башкирии и Южного Урала. Немалая протяженность Урала предполагает большие различия в отдельных районах – климатические условия, рельеф, растительный и животный миры сменяют друг друга здесь почти каждые пару километров. С чем можно столкнуться, преодолевая Уральские горы, какие захватывающие виды (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ТелепередачаПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4439375EC2C17E1C03E52774005FD266662D03A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948033   (415612) от 18.10.2015
+
+Discovery: Разрушители легенд. Взрыв на воде / MythBusters. Blow It Out Of The Water (2015) SATRip  (Сезон 15, эпизод 07) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415612.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3ABAFDFCC45515A0556327BA8334C640B648B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948034   (415491) от 18.10.2015
 
 Discovery: Разрушители легенд. Полёт фантазии / MythBusters. Flights of Fantasy (2015) SATRip  (Сезон 15, эпизод 08) [Discovery]
@@ -6,7 +110,7 @@ Discovery: Разрушители легенд. Полёт фантазии / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415491.jpg" />
+  <img src="Z:/picture/008/save_picture_415491.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Запо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415421.jpg" />
+  <img src="Z:/picture/008/save_picture_415421.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ History Channel. Военное противостояние / Clash of Warriors
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413913.jpg" />
+  <img src="Z:/picture/008/save_picture_413913.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413190.jpg" />
+  <img src="Z:/picture/008/save_picture_413190.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413188.jpg" />
+  <img src="Z:/picture/008/save_picture_413188.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412300.jpg" />
+  <img src="Z:/picture/008/save_picture_412300.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2015-2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412294.jpg" />
+  <img src="Z:/picture/008/save_picture_412294.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411919.jpg" />
+  <img src="Z:/picture/008/save_picture_411919.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411684.jpg" />
+  <img src="Z:/picture/008/save_picture_411684.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Discovery. Взрывное шоу / The Explosion Show (2020) WEB-DL [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411319.jpg" />
+  <img src="Z:/picture/008/save_picture_411319.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411315.jpg" />
+  <img src="Z:/picture/008/save_picture_411315.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Discovery: Охотники за реликвиями / Auction Hunters (2015) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410816.jpg" />
+  <img src="Z:/picture/008/save_picture_410816.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Discovery: Как это сделано ? Как делают спортинве
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409871.jpg" />
+  <img src="Z:/picture/008/save_picture_409871.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409000.jpg" />
+  <img src="Z:/picture/008/save_picture_409000.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408996.jpg" />
+  <img src="Z:/picture/008/save_picture_408996.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408994.jpg" />
+  <img src="Z:/picture/008/save_picture_408994.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408530.jpg" />
+  <img src="Z:/picture/008/save_picture_408530.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG. Суперсооружения: Аэробус BelugaXL / Megastructures. Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408524.jpg" />
+  <img src="Z:/picture/008/save_picture_408524.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) HDTV 1080i
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408033.jpg" />
+  <img src="Z:/picture/008/save_picture_408033.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ BBC: Джек Потрошитель: следствие возобновляе�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407891.jpg" />
+  <img src="Z:/picture/008/save_picture_407891.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Discovery: Смертельный улов / Deadliest Catch (2018) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407801.jpg" />
+  <img src="Z:/picture/008/save_picture_407801.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ DV: Волшебные числа: таинственный мир матема�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407757.jpg" />
+  <img src="Z:/picture/008/save_picture_407757.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ DV: Волшебные числа: таинственный мир матема�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA509D3BF57E943DB8A26F5D3AE59C74488F7317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213882   (407727) от 06.10.2018
-
-NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (2 серии из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это реальные ужасающие свидетельства людей, своими глазами увидевших Челюсти. Они остались в живых, чтобы рассказать нам о том, что они пережили.Производство: США, Nat Geo WildЖанр: Документальный, морская фауна, исследованияРежиссер: Кайл МакКейбПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2 х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABADD7B58AEB9E903F92CB08134214FF551437E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530186   (406926) от 14.10.2012
-
-Наука 2.0. Опыты дилетанта [выпуски 1-14] (2011-2012) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас хотя бы раз мечтал испытать ощущение невесомости. Или – поднять в небо воздушный лайнер. Чтобы эта мечта стала реальностью, нужны годы обучения, изнуряющие тренировки и незаурядные способности. Уникальная возможность на время оказаться в необычной роли предоставлена автору и ведущему Александру Коневичу. На собственном опыте, вместе со зрителем, он узнает все трудности и радости интересных профессий и поделится своими ощущениями.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 14x~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F096EB3E999A9A79F841870DF869861ED7CC2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560231   (406543) от 15.10.2012
-
-Discovery: Мистический мир: Необъяснимое.Неведомое.Сверхъестественное / Discovery: Mysterious Journeys:The Unexplained.The Unknown.The Supernatural (2002) [H.264] DVDRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нам кажется, что мы прекрасно знаем мир, в котором живем, однако нас повсеместно окружают незримые тайны, и в любой момент мы можем столкнуться с необъяснимыми событиями, которые открывают перед нами окошко в иной, неведомый мир мистики. Круги на полях и загадочные исчезновения, призраки в древних замках и таинственные существа – вот лишь некоторые из загадок, о которых мы расскажем в этом захватывающем сериале.Жанр: Научно-популярный фильмРежиссер: Рон ЗиммерманТелекомпания: Discovery CommunicationsПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAA68E0AD090681026CC8AD4423FF9AD337054C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560663   (404428) от 21.10.2012
-
-Прыжок из стратосферы, 14 октября / Red Bull Stratos, 14th October (2012) WEB-DLRip [EN]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня 14 октября австрийский парашютист-экстремал Феликс Баумгартнер побил ряд мировых рекордов "прыжком из космоса". Он стал первым человеком, преодолевшим звуковой барьер без помощи какого-либо транспортного средства. Два с половиной часа он подымался на высоту почти ! 40 км., скорость свободного падения после прыжка достигла почти ! 1200 км\час.
-Прыжок Феликса Баумгартнера транслировался в прямом эфире на YouTube и на сайте www.redbullstratos.com. Число зрителей достигло свыше ! 7 миллионов человек.Жанр: Экстрим, Спорт, ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABCCA21B95AA1C2A807C6346ED024FDCC825B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

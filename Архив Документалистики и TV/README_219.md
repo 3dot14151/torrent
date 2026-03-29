@@ -1,3 +1,171 @@
+###  Публикация: 1054673   (492665) от 20.09.2016
+
+Хоккей. КХЛ 2016-2017. Динамо (Минск) - Авангард (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492665.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2016, понедельник. 19:30 МСК
+
+Стадион: Минск-Арена (Минск, Беларусь) , 11 451 зритель (76 % при вместимости 15 086)
+Главный судья: Михаил Бутурлин (Москва, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Алексей Бадюков)Продолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A258F7F848A1096D5327E69A2EEA401FF8CE28BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054361   (492664) от 20.09.2016
+
+Футбол. Чемпионат Франции 2016-2017. 5-й тур. Обзор матчей (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 5-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Неценко)Продолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B692E154B0C4FF8802BFF391179978AA61638C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054894   (492589) от 20.09.2016
+
+Хоккей. КХЛ 2016-2017. Адмирал - Ак барс (20.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492589.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 сентября 2016, вторник. 12:30 МСК
+
+Стадион: Фетисов-Арена (Владивосток, Россия) , 5 419 зрителей (98 % при вместимости 5 550)
+Главный судья: Эдуард Одиньш (Рига, Латвия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Виталий Магранов, Александр Фомичёв)Продолжительность: 02:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FC7DBECC78E67E15D9F5AA3EBAF19A2CFB5351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054317   (492585) от 20.09.2016
+
+Хоккей. Кубок Мира-2016. Группа B. 1-й тур. Финляндия — Северная Америка(U23) (18.09.2016) HDTV [H.264/1080i][RU/IN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492585.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2016, понедельник. 03:00 МСК
+Кубок Мира-2016. Групповой этап
+Группа B. 1-й тур.
+(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: 1. Русский (Александр Ткачев, Александр Хаванов), 2. ИнтершумПродолжительность: 02:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F51476D74DFA785F52604156597FC40107723A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054360   (492583) от 20.09.2016
+
+Футбол. Чемпионат Италии 2016-2017. 4-й тур. Обзор матчей (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 4-го тура.Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин)Продолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43A16F3E060274213BABB61787B22865B2C8931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054285   (492581) от 20.09.2016
+
+Футбол. Чемпионат России 2016-2017. 7-й тур. Зенит - Рубин (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492581.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2016, понедельник. 19:30 МСК
+7-й тур
+
+Стадион: Петровский (Санкт-Петербург, Россия) , вместимость: 21750(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Геннадий Орлов, Роман Нагучев, Сергей Дерябкин)Продолжительность: 02:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67D43BF03399A80EE4BB0C8B6A09837595EC038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054918   (492577) от 20.09.2016
 
 Хоккей. Кубок мира 2016. Группа B. 2-й тур. Северная Америка - Россия (19.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] (МАТЧ ТВ)
@@ -6,7 +174,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492577.jpg" />
+  <img src="Z:/picture/008/save_picture_492577.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492556.jpg" />
+  <img src="Z:/picture/008/save_picture_492556.jpg" />
 </div>
 
 
@@ -61,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492489.jpg" />
+  <img src="Z:/picture/008/save_picture_492489.jpg" />
 </div>
 
 
@@ -87,7 +255,7 @@ Verizon IndyCar Series 2016. Этап 16. Gopro grand prix of Sonoma (2016.09.18
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492486.jpg" />
+  <img src="Z:/picture/008/save_picture_492486.jpg" />
 </div>
 
 
@@ -113,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492483.jpg" />
+  <img src="Z:/picture/008/save_picture_492483.jpg" />
 </div>
 
 
@@ -139,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492482.jpg" />
+  <img src="Z:/picture/008/save_picture_492482.jpg" />
 </div>
 
 
@@ -165,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492481.jpg" />
+  <img src="Z:/picture/008/save_picture_492481.jpg" />
 </div>
 
 
@@ -191,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492480.jpg" />
+  <img src="Z:/picture/008/save_picture_492480.jpg" />
 </div>
 
 
@@ -217,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492368.jpg" />
+  <img src="Z:/picture/008/save_picture_492368.jpg" />
 </div>
 
 
@@ -243,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492208.jpg" />
+  <img src="Z:/picture/008/save_picture_492208.jpg" />
 </div>
 
 
@@ -272,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492202.jpg" />
+  <img src="Z:/picture/008/save_picture_492202.jpg" />
 </div>
 
 
@@ -301,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492109.jpg" />
+  <img src="Z:/picture/008/save_picture_492109.jpg" />
 </div>
 
 
@@ -330,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492022.jpg" />
+  <img src="Z:/picture/008/save_picture_492022.jpg" />
 </div>
 
 
@@ -359,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492004.jpg" />
+  <img src="Z:/picture/008/save_picture_492004.jpg" />
 </div>
 
 
@@ -385,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491744.jpg" />
+  <img src="Z:/picture/008/save_picture_491744.jpg" />
 </div>
 
 
@@ -415,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491470.jpg" />
+  <img src="Z:/picture/008/save_picture_491470.jpg" />
 </div>
 
 
@@ -444,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491319.jpg" />
+  <img src="Z:/picture/008/save_picture_491319.jpg" />
 </div>
 
 
@@ -473,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491317.jpg" />
+  <img src="Z:/picture/008/save_picture_491317.jpg" />
 </div>
 
 
@@ -502,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491316.jpg" />
+  <img src="Z:/picture/008/save_picture_491316.jpg" />
 </div>
 
 
@@ -531,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491314.jpg" />
+  <img src="Z:/picture/008/save_picture_491314.jpg" />
 </div>
 
 
@@ -545,174 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69447BB2301DDF723E8E304CE0D5D036DD607DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404562   (491313) от 26.08.2020
-
-НХЛ. Кубок Стэнли 2019-2020. 1/4 финала - Запад. 3-й матч. Чикаго Блэкхоукс — Вегас Голден Найтс (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Стэнли 2019-2020. Плей-офф.
-16 августа 2020, воскресенье. 03:00 МСК
-1/4 финала - Запад. 3-й матч
-Чикаго Блэкхоукс — Вегас Голден Найтс(   Читать дальше...   )Телекомпания: Setanta SportsЖанр: Спорт, ХоккейЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B3862274280073148039A76BDFE57A0F367F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404556   (491309) от 26.08.2020
-
-НХЛ. Кубок Стэнли 2019-2020. 1/4 финала - Запад. 3-й матч. Аризона Койотс — Колорадо Эвеланш (2020) IPTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Стэнли 2019-2020. Плей-офф.
-15 августа 2020, суббота. 22:00 МСК
-1/4 финала - Запад. 3-й матч
-Аризона Койотс — Колорадо Эвеланш(   Читать дальше...   )Телекомпания: Setanta SportsЖанр: Спорт, ХоккейЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4492ACEE7CB9821DF6170F1AD3CF0F1CEF37E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404559   (491308) от 26.08.2020
-
-НХЛ. Кубок Стэнли 2019-2020. 1/4 финала - Восток. 3-й матч. Коламбус Блю Джекетс — Тампа-Бэй Лайтнинг (2020) IPTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Стэнли 2019-2020. Плей-офф.
-16 августа 2020, воскресенье. 02:30 МСК
-1/4 финала - Восток. 3-й матч
-Коламбус Блю Джекетс — Тампа-Бэй Лайтнинг(   Читать дальше...   )Телекомпания: Яндекс ЭфирЖанр: Спорт, ХоккейЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6793E5753622B5CA6D28DEF05C699A8FA3FE8E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402761   (491181) от 26.08.2020
-
-Австралийский Чемпионат суперкаров. Этап 5. Дарвин. Гонка 1-3 / Virgin Australia Supercars Championship. BetEasy Darwin Triple Crown. Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2020 года — Этап 5.Жанр: СпортПродолжительность: 01:17:41 + 01:14:48 + 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B38B8AC166621BF02AA8F61452C22005600951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404625   (491099) от 26.08.2020
-
-Убийца внутри него: история Аарона Эрнандеса / Killer Inside: The Mind of Aaron Hernandez (2020) WEB-DLRip [H.264/720p] (серии 1-3 из 3)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный мини сериал о том, как Аарон Эрнандес прошел путь от звезды НФЛ до осужденного убийцы.Производство: США, Blackfin, NetflixЖанр: Документальный, криминал, спортРежиссер: Гено МакДермоттПеревод: Двуголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Русские, английскиеПродолжительность: 3 x ~01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBFE5D9523FE1349D6607F11A4176B82A87390D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055011   (490428) от 21.09.2016
-
-Хоккей. КХЛ 2016-2017. Барыс - ЦСКА (20.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490428.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 сентября 2016, вторник. 16:30 МСК
-
-Стадион: Барыс-Арена (Астана, Казахстан) , 5 134 зрителя (43 % при вместимости 12 000)
-Главный судья: Алексей Васильев (Санкт-Петербург, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Дмитрий Фёдоров, Кирилл Корнилов)Продолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502F01A7E1D57D1CAD0DC7E860005820670B337B
 ```
 
 https://mybot314.ru/tekegram_catalog/

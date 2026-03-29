@@ -1,3 +1,163 @@
+###  Публикация: 528133   (398601) от 27.10.2012
+
+Люди Альфа / Alphas (2012) WEB-DLRip [Season 2] [LostFilm] (Обновляемая раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксперт министерства обороны Ли Розен возглавляет подразделение специалистов, обладающих уникальными способностями. Каждый из пяти членов его команды - человек со сверхразвитыми психофизическими возможностями. В разработку группы Альфа попадают исключительно сверхсложные задания, с которыми не могут справиться американские спецслужбы - ФБР и ЦРУ. По отдельности каждый (   Читать дальше...   )Жанр: Драма, Фантастика, БоевикРежиссер: Мэттью ХастингсАктеры: Дэвид Стрэтэйрн, Райан Картрайт, Уоррен Кристи, Азита Ганизада, Лаура Меннелл, Мэлик Йоба, Джон Пайпер-Фергюсон, Махершалалхашбаз Али, Валери Крус, Кэтлин Гати и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: LostFilmПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565573   (397484) от 28.10.2012
+
+На краю вселенной / Farscape complete seasons (сезоны 1-4 + Галактическая война: Война Миротворцев / The Peacekeepers Wars) (1999-2004) BDRip [720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_397484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Австралия, США |  Jim Henson Productions, Hallmark Entertainment, Sci-Fi ChannelЖанр: Фантастика, Боевик, ПриключенияРежиссер: Тони Тилс, Роуэн Вудс, Эндрю ПроузАктеры: Бен Браудер, Клаудия Блэк, Энтони Симко, Вирджиния Хэй, Гиги Эджли, Уфйн Пигрэм, Лани Тупу, Пол Годдард, Тэмми Макинтош, Мелиса Джаффер, Рейли ХиллПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русские (Проект "Русский Фарскейп"), АнглийскиеФормат: MKVПродолжительность: 2 х ~ 01:28:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061780   (397253) от 03.10.2017
+
+Fallout Shelter (2016) [Ru/Multi] (1.13) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_397253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fallout Shelter дает возможность каждому желающему выступить в роли управляющего убежищем «Волт-Тек». Главная задача – сделать его процветающим, а жителей – счастливыми, защитив их от опасностей пустошей. Геймплей Fallout Shelter позволяет расширять изначально небольшое подземное поселения, пристраивая отдельные модули. Каждый отдельный житель имеет набор характеристик, (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74B795C78126CA85A4BA9F93A23CB9365A0114B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567240   (396509) от 29.10.2012
+
+Medal Of Honor: Warfighter [PS3] [RUSSOUND] [PAL] [FULL] [3.41/3.55] (2012)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_396509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: ЛицензияРазработчик: Danger CloseЖанр: Action, 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C29820A6ED66FAF29C3B0943A10B8B52D1FD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567077   (396508) от 29.10.2012
+
+Medal of Honor Warfighter: Deluxe edition [Ru/En] (RePack/1.0.0.2) 2012 | R.G. Shift
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_396508.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета Medal of Honor Warfighter, новейшего шутера о «реалистичной» войне, лежат воспоминания бойцов элитного подразделения U.S. Tier 1 Operators, не понаслышке знакомых с военными операциями. Вам предстоит на себе ощутить, каково это — сражаться на поле боя в роли солдата самого дисциплинированного и обученного подразделения в мире. Приготовьтесь оказаться в гуще настоящей битвы и сразиться с глобальной угрозой.
+
+Medal of Honor Warfighter продолжает традиции, заложенные в игре 2010 года. Тогда назад разработчики сменили место действия, перенеся игроков из Европы периода Второй мировой в жаркий и опасный Афганистан. Теперь вас ждет череда современных контртеррористических операций в различных горячих точках планеты, куда долг зовет бойцов спецподразделения U.S. Tier 1.
+
+Главный герой Medal of Honor Warfighter — солдат U.S. Tier 1 Operators Проповедник — возвращается домой со службы. Но жизнь на гражданке отнюдь не сахар — брак разваливается, а жизнь лишена цели. Впрочем, бывших солдат не бывает, и когда террористы провозят через границу смертельно опасное вещество PETN, Проповедник оказывается перед выбором между семьей и долгом. И когда он отправляется устранить угрозу, чтобы защитить свой дом и тех, кто ему дорог, в дело вступает игрок.(   Читать дальше...   )Тип издания: RePackРазработчик: Danger CloseЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D666A45BBD7261306E424D3B023A669379C3E5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567327   (396506) от 29.10.2012
+
+Need For Speed: Most Wanted [PS3] [RUSSOUND] [NTSC] [FULL] [3.55] (2012)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_396506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: ЛицензияРазработчик: Criterion GamesЖанр: RacingЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC1E99A4F1BFD084AC6AD2CE1F51D62AB330BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 646040   (396336) от 04.10.2017
 
 Rayman Jungle Run v2.3.3 [EN]
@@ -6,7 +166,7 @@ Rayman Jungle Run v2.3.3 [EN]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396336.jpg" />
+  <img src="Z:/picture/008/save_picture_396336.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Worms 2: Armageddon 1.4.1 [EN] / Обновлено: 03.10.2017 /
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396331.jpg" />
+  <img src="Z:/picture/008/save_picture_396331.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.03) RePack Fenixx [Deluxe E
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396267.jpg" />
+  <img src="Z:/picture/008/save_picture_396267.jpg" />
 </div>
 
 
@@ -85,7 +245,7 @@ A.J. Hoge (San Francisco, California, United States) | Effortless English [2006-
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396056.jpg" />
+  <img src="Z:/picture/005/save_picture_396056.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ Clover 2.0.165.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395566.jpg" />
+  <img src="Z:/picture/008/save_picture_395566.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_395489.jpg" />
+  <img src="Z:/picture/005/save_picture_395489.jpg" />
 </div>
 
 
@@ -164,7 +324,7 @@ Windows 7 SP1 DVD x86 x64 v30.004.12 StartSOFT [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_395418.jpg" />
+  <img src="Z:/picture/005/save_picture_395418.jpg" />
 </div>
 
 
@@ -190,7 +350,7 @@ Gothic / Готика Антология [Ru] (Lossless RePack) 2001-2010 | PURG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394935.jpg" />
+  <img src="Z:/picture/008/save_picture_394935.jpg" />
 </div>
 
 
@@ -216,7 +376,7 @@ Mozilla Firefox 56.0.1 Final RePack (& Portable) by D!akov  [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394504.jpg" />
+  <img src="Z:/picture/008/save_picture_394504.jpg" />
 </div>
 
 
@@ -242,7 +402,7 @@ Adobe Photoshop Elements 2018 (v16.0) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394497.jpg" />
+  <img src="Z:/picture/008/save_picture_394497.jpg" />
 </div>
 
 
@@ -270,7 +430,7 @@ CrossOver Linux 11.3.1 [i386] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_394393.jpg" />
+  <img src="Z:/picture/005/save_picture_394393.jpg" />
 </div>
 
 
@@ -296,7 +456,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l R.G. Torren
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394392.jpg" />
+  <img src="Z:/picture/008/save_picture_394392.jpg" />
 </div>
 
 
@@ -323,7 +483,7 @@ Sorcery [PS3] [RUSSOUND] [PAL] [MOVE] [FULL] [3.55] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394384.jpg" />
+  <img src="Z:/picture/008/save_picture_394384.jpg" />
 </div>
 
 
@@ -349,7 +509,7 @@ Pink Floyd - The Dark Side Of The Moon (2011) 1973 [MLP5.1 96/24|DTS5.1 96/24|DV
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394012.jpg" />
+  <img src="Z:/picture/008/save_picture_394012.jpg" />
 </div>
 
 
@@ -378,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393599.jpg" />
+  <img src="Z:/picture/008/save_picture_393599.jpg" />
 </div>
 
 
@@ -404,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393443.jpg" />
+  <img src="Z:/picture/005/save_picture_393443.jpg" />
 </div>
 
 
@@ -430,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392592.jpg" />
+  <img src="Z:/picture/008/save_picture_392592.jpg" />
 </div>
 
 
@@ -456,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391634.jpg" />
+  <img src="Z:/picture/008/save_picture_391634.jpg" />
 </div>
 
 
@@ -482,7 +642,7 @@ Sleeping Dogs - Limited Edition [Ru/Multi7] (RePack/1.7/20 DLC) 2012 l R.G. Cata
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391392.jpg" />
+  <img src="Z:/picture/008/save_picture_391392.jpg" />
 </div>
 
 
@@ -509,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390591.jpg" />
+  <img src="Z:/picture/005/save_picture_390591.jpg" />
 </div>
 
 
@@ -520,168 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173353   (390156) от 11.10.2017
-
-Windows 7 SP1 x86 x64 DVD Release By StartSoft 63-64 2017 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционной системы Windows 7 SP1 с разной разрядностью. В состав сборки входит два загрузочных образа ISO которые можно записать на стандартный диск DVD размером 4,7 Гигабайта, либо на флешку. Загрузочный сектор флешки создавался при помощи утилиты Diskpart. Один образ ISO предназначен для установки на компьютер (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E18C34F9463FFFB9D47E88A159B01C69BDF56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327149   (389916) от 02.11.2013
-
-Эдуард Суровый [Comedy Club] (2008-2013) SatRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче собраны видео произведения Эдуарда Сурового.
-Релиз состоит из 10 файлов!Жанр: ЮморПродолжительность: 00.08.22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570936   (389670) от 05.11.2012
-
-Call of Duty: Black Ops 2 [Xbox 360] [ENG] (RegionFree) (LT+3.0/15574) (2012)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие второго эпизода Black Ops, посвященного секретным операциям вооруженного до зубов спецназа, развернется в 2025 году. Развитие технологий не сказалось на здравом смысле, а слоган «мир во всем мире» так и остался недостижимой мечтой. Ведущие страны погрязли в новой холодной войне, и отыскать выход из сложившегося тупика способны лишь элитные бойцы особого подразделения. А сверхсовременное оружие, робототехника и дроны станут последней надеждой на победу.
-Помимо основной сюжетной кампании вам станет доступен улучшенный вариант невероятно популярного зомби-апокалипсиса, в котором игрокам вновь предстоит сразиться с безжалостными ордами оживших мертвецов, и различные режимы сетевой игры.Тип издания: ЛицензияРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st PersonЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A1463BEFB5D2F6F732DC786FEA0D3E8603160B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570538   (389668) от 05.11.2012
-
-Корпорация «Святые моторы» / Holy Motors (2012) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неведомое существо перемещается из жизни в жизнь. Обретает форму то мужчины, то женщины, то юноши, то умирающего старика. Он может оказаться нищим или сказочным богачом, плутом или достойным семьянином.
-
-Героя фильма будет кидать по чужим жизням, он будет обнимать чужих жен и детей, убивать чужих врагов. Однако, сам он смертельно одинок. Где его дом, его близкие, что он такое на самом деле?Жанр: ДрамаРежиссер: Леос КараксАктеры: Дени Лаван, Эдит Скоб, Ева Мендес, Кайли Миноуг, Мишель Пикколи, Жанна Диссон, Элис Ломо, Леос Каракс, Настя Голубева Каракс, Реда ОмузунПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CC61C2BC536E2075B547FC77C2BC56CF89FD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173607   (389470) от 12.10.2017
-
-AAct 3.7 Portable  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389470.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FFDD6C8E4BEC3D9037A26A4CFE7C124D9CECEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432711   (389463) от 12.10.2017
-
-Гостья из будущего + Лиловый шар (1984-1987) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм — приемник и продолжатель сериала «Гостья из будущего».
-Сказочная история, произошедшая в 21 веке. Экипаж космического корабля обнаруживает в заброшенной инопланетной станции данные о доставленном на Землю много тысяч лет назад лиловом шаре, в котором находится вирус вражды.
-Этот вирус может привести к гибели людей. Героиня фильма — бесстрашная девочка (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Павел АрсеновАктеры: Наташа Гусева, Саша Гусев, Вячеслав Невинный, Борис Щербаков, Вячеслав Баранов, Светлана Харитонова, Игорь Ясулович, Виктор Павлов, Сергей Никоненко, Владимир Носик, Марина Левтова, Юрий Дубровин.Субтитры: Русские, АнглийскиеПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74E0AB64FDB16974062F390E795FE51440E2F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

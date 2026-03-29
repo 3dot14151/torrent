@@ -1,3 +1,138 @@
+###  Публикация: 1489540   (925308) от 16.08.2021
+
+PictureCode Photo Ninja 1.4.0d Latest pre-release [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Ninja - обработчик файлов в формате Raw.
+Photo Ninja - это RAW конвертер, который обеспечивает высокое внимание к деталям, высокое качество изображения и их естественный вид. Photo Ninja предлагает пользователям целый пакет, с помощью которого вы сможете приводить свои фотографии в естественный вид. Все это и многое другое вы получите вместе с конвертером Photo (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2021Разработчик: PictureCode LLC.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59835EED5D51F4D9287F01E37915BC1DAF884BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987866   (924395) от 18.02.2016
+
+Espionage 3.6.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Espionage - симпатичная и простая в использовании утилита для шифрования папок в OS X.
+Конечно, можно создать специальный защищенный образ средствами самой операционной системы, но весь процесс неудобен при ежедневном использовании.
+
+Espionage работает очень просто, все, что нужно сделать - перенести нужную папку на иконку утилиты, после чего установить пароль. Утилита (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 февраля 2016Разработчик: TAO EffectПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCEAA389272D179DA30AC222F0B1763C68B3A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366468   (924131) от 11.03.2020
+
+A Better Finder Rename 10 v10.46 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924131.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2020Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A59A25E9857ADE3D724D610A545A0B49DCA496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489744   (924074) от 17.08.2021
+
+Video Snapshot&Collage for Mac 2.3 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный, высококачественный и простой в использовании инструмент для создания снимков и монтажа видео.Тип издания: macOS SoftwareРелиз состоялся: 16.08.2021Разработчик: Dummy AppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9902CB40FD7B634E08E3D4BEDA4832B295DF5E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489769   (924069) от 17.08.2021
+
+Cisdem Document Reader 5 v5.5.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem DocumentReader позволяет читать, печатать, сохранять файлы: WPD, WPS, XPS, Visio PDF на Вашем Mac. Приложение позволяет Вам использовать различные стили просмотра с помощью панели инструментов, состоящий из режимов просмотра, панели поиска, навигации по страницам, масштабирования, поворота, а так же функций: сохранить, копировать и т.д. Вы можете персонализировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2021Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788BC838D6E70DDA48ADE52CEA4D3793082A9C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489656   (924068) от 17.08.2021
 
 Dato 3.0.3 [En]
@@ -6,7 +141,7 @@ Dato 3.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924068.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ Moment - Every Day Counts! 1.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924055.jpg" />
 </div>
 
 
@@ -59,7 +194,7 @@ Logoist 3.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924020.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ Cleanup My System 1.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924016.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ Master PDF Editor 5 v5.7.90 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923669.jpg" />
 </div>
 
 
@@ -140,7 +275,7 @@ Temps 1.13.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922751.jpg" />
 </div>
 
 
@@ -169,7 +304,7 @@ Ring Menu 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922690.jpg" />
 </div>
 
 
@@ -196,7 +331,7 @@ Print Selection 1.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922623.jpg" />
 </div>
 
 
@@ -223,7 +358,7 @@ Wise Menu 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922441.jpg" />
 </div>
 
 
@@ -249,7 +384,7 @@ Artlantis 2020 v9.0.2.21736 RedSDK 5.0.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921874.jpg" />
 </div>
 
 
@@ -275,7 +410,7 @@ Cisdem Unarchiver 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920864.jpg" />
 </div>
 
 
@@ -301,7 +436,7 @@ Newsflow v 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920848.jpg" />
 </div>
 
 
@@ -327,7 +462,7 @@ Leaf - RSS News Reader 5.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920789.jpg" />
 </div>
 
 
@@ -355,7 +490,7 @@ Mach Desktop 2.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920767.jpg" />
 </div>
 
 
@@ -381,7 +516,7 @@ Flyingbee PDF Printer – Easily Print to PDF 3.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920706.jpg" />
 </div>
 
 
@@ -407,7 +542,7 @@ JetBrains AppCode 2016.3.1 Build #OC-163.10154.49 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920411.jpg" />
 </div>
 
 
@@ -433,7 +568,7 @@ VMware Fusion Pro 11 v11.5.2 (build 15794494) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918765.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ FileMaker Pro 13.0v5 + FileMaker Server 13.0v5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918252.jpg" />
 </div>
 
 
@@ -488,7 +623,7 @@ Infographics for MS PowerPoint - Template Bundle 1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917051.jpg" />
 </div>
 
 
@@ -514,7 +649,7 @@ Substance Alchemist 2.1.0 Tiramisu [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915640.jpg" />
 </div>
 
 
@@ -540,7 +675,7 @@ A Better Finder Anttributes 6.04 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914494.jpg" />
 </div>
 
 
@@ -552,146 +687,6 @@ A Better Finder Attributes — мощная и полезная утилита �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6FA430063E3C9D56AF65A6F5D30B1670D27317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097671   (914166) от 27.01.2017
-
-Membrane Pro - Cover image maker 1.0.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Membrane Pro представляет собой приложение, которое легко  позволяет создавать обложки для альбомов, Facebook обложки, обложки канала YouTube, и многое другое.
-
-Как это работает.
-• Выберите шаблон: Быстрое начало работы с широким выбором шаблонов предварительно разработанных изображений обложек.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 января 2017Разработчик: Simplest WaysПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50D9F3DA7C51366E09F410DD5D0969BE84C4A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097612   (914154) от 27.01.2017
-
-LensFlare Studio 5.9 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914154.jpg" />
-</div>
-
-
-###  Подробнее
-
-LensFlare Studio послужит основным инструментом для фотографов.
-LensFlare Студия является мощным инструментом манипуляции светом для добавления оптических эффектов к фотографиям. С более чем 100 эффектов, вы можете выбрать один из бликов, световых эффектов, бликами, боке, и многое другое.
-
-Назначение:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 января 2017Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168BA71403E0712369317205601703C68CBD51A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097605   (914075) от 27.01.2017
-
-Superstring 2 Pro - Lyric video maker 2.8.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Superstring 2 Pro - приложение, который позволяет создавать свои собственные Lyric video.
-
-Как это работает.
-• Выберите песню: Выберите и перетащите песню, для которой вы хотите создать Lyric video.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 января 2017Разработчик: Simplest WaysПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9753C2F8BB87312AE4B403FABF522583B4EFE669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491085   (913939) от 23.08.2021
-
-FileMaker Pro 19 v19.3.2.206 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913939.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro - это платформа для разработки и для создания приложений.
-Выполните цифровую трансформацию с Claris FileMaker. Быстро создавайте собственные приложения, которые решат ваши бизнес-задачи сегодня - и завтра. Ускорьте свой бизнес, раскройте творческий потенциал своей команды и добейтесь лучших результатов.Тип издания: macOS SoftwareРелиз состоялся: 06.07.2021Разработчик: Claris International Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC692FCF22CE212E3C9092EE0BAFDF33B6CA033B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367739   (913932) от 17.03.2020
-
-Affinity Photo 1.8.2 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 16.03.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7ED08E8A5D72575790D2542C64823F0505CF6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

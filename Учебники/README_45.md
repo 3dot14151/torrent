@@ -1,3 +1,55 @@
+###  Публикация: 1035587   (626503) от 17.07.2016
+
+Ю.Б. Кудасов | Электрофизические измерения (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются физические основы методов измерения магнитных и электрических полей, токов, а также электрофизических характеристик веществ, включая высокочастотные и сверхвысокочастотные методы. Значительное внимание уделено особенностям измерений в условиях сильных импульсных полей и способам борьбы с электромагнитными помехамиЖанр: Метрология, радиоизмеренияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E3BAF8EEB4B5D63C5EEFE5A3999456C6594A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229610   (624336) от 07.06.2018
+
+А.В. Рудаков,  Г.Н. Федорова | Технология разработки программных продуктов (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624336.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии в систематизированном виде приведены необходимые теоретические сведения, практические задания и примеры их выполнения; представлены задания на построение моделей программных продуктов с использованием как структурного, так и объектно-ориентированного подхода (с применением стандартного языка моделирования UML и современных CASE-средств), задания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234833EA339C51A662E58AEB7CF9464210121EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909346   (624242) от 19.06.2015
 
 С. А. Боголюбов | Экологическое право (2001) [FB2, EPUB]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624242.jpg" />
+  <img src="Z:/picture/008/save_picture_624242.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623940.jpg" />
+  <img src="Z:/picture/008/save_picture_623940.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Tektronix | Генераторы сигналов от А до Я (2008) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623839.jpg" />
+  <img src="Z:/picture/008/save_picture_623839.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Tektronix | Пробники от А до Я (2013) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623546.jpg" />
+  <img src="Z:/picture/008/save_picture_623546.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Tektronix | Осциллографы. Основные принципы изме
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623531.jpg" />
+  <img src="Z:/picture/008/save_picture_623531.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623530.jpg" />
+  <img src="Z:/picture/008/save_picture_623530.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623518.jpg" />
+  <img src="Z:/picture/008/save_picture_623518.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622617.jpg" />
+  <img src="Z:/picture/008/save_picture_622617.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622615.jpg" />
+  <img src="Z:/picture/008/save_picture_622615.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622523.jpg" />
+  <img src="Z:/picture/008/save_picture_622523.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622199.jpg" />
+  <img src="Z:/picture/008/save_picture_622199.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622115.jpg" />
+  <img src="Z:/picture/008/save_picture_622115.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Tektronix | Основные сведения о логических анали
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622109.jpg" />
+  <img src="Z:/picture/008/save_picture_622109.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622017.jpg" />
+  <img src="Z:/picture/008/save_picture_622017.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621775.jpg" />
+  <img src="Z:/picture/008/save_picture_621775.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620596.jpg" />
+  <img src="Z:/picture/008/save_picture_620596.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620243.jpg" />
+  <img src="Z:/picture/008/save_picture_620243.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620238.jpg" />
+  <img src="Z:/picture/008/save_picture_620238.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620107.jpg" />
+  <img src="Z:/picture/008/save_picture_620107.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620045.jpg" />
+  <img src="Z:/picture/008/save_picture_620045.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619973.jpg" />
+  <img src="Z:/picture/008/save_picture_619973.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619902.jpg" />
+  <img src="Z:/picture/008/save_picture_619902.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619704.jpg" />
+  <img src="Z:/picture/008/save_picture_619704.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619697.jpg" />
+  <img src="Z:/picture/008/save_picture_619697.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E083B7147B2A9A0A840C544D1E682EEECB04C67A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036321   (619088) от 21.07.2016
-
-В.А. Гусев | Основы твердотельной электроники (2004) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619088.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебном пособии рассмотрены физика процессов в полупроводниковых устройствах, базовых логичных цифровых интегральных схемах; конструктивно-технологические основы проектирования и изготовления элементов и устройств твердотельной электроники, включая технологии монолитных, гибридных интегральных схем и поверхностного монтажа; основные отрасли использования (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D1C40048F8A3DCD5ADDEC8ADDF45D7EC35F2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036729   (618998) от 21.07.2016
-
-А. В. Носовский и др. | Безопасность атомных станций. Дезактивация (2009) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618998.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии освещены основные теоретические и практические сведения по способам и технологиям дезактивации поверхностей, загрязненных радиоактивными веществами. Обобщены международные знания, а также национальный опыт в этой сфере деятельности. Описаны современные способы дезактивации. Особое внимание уделено вопросам выбора технологий дезактивации, а также правилам (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D206C84454D473E9466D98C770D20E6FC69EB016
 ```
 
 https://mybot314.ru/tekegram_catalog/

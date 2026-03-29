@@ -1,3 +1,232 @@
+###  Публикация: 1696338   (119646) от 02.02.2024
+
+Юрий Гуляев - Ты Моя Мелодия (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119646.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Журавли
+A2 Желаю Вам
+A3 Три Поради
+A4 Дорогая, Сядем Рядом(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696409   (119624) от 02.02.2024
+
+Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chinese Democracy
+02. Shackler's Revenge
+03. Better
+04. Street of Dreams(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696398   (119623) от 02.02.2024
+
+Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since I Don't Have You
+02. New Rose
+03. Down On The Farm
+04. Human Being(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696327   (119620) от 02.02.2024
+
+Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Next Door To Hell
+02. Dust N' Bones
+03. Live And Let Die
+04. Don't Cry (Original)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A95BC5A40D544C64309FE56CC02056CE09A8752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696329   (119615) от 02.02.2024
+
+Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Civil War
+02. 14 Years
+03. Yesterdays
+04. Knockin' On Heaven's Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BB76F9211DE5B98D4792B7E949E952FD25CD1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696713   (119474) от 03.02.2024
+
+Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serenity — австрийская группа, исполняющая музыку в стиле мелодик пауэр-метал с влияниями прогрессивного и симфонического метала.2007 - Words Untold & Dreams Unlived
+2008 - Fallen Sanctuary
+2011 - Death & Legacy
+2013 - War of AgesЖанр: Symphonic/Progressive Power MetalПродолжительность: 07:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B147A7C1CD655A21F2FFA5D8E88F8FE20389CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696883   (119305) от 04.02.2024
+
+Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow - Мелодик-дэт-метал группа из города Осака, Япония.2001 - Shadow
+2008 - Forever ChaosЖанр: Melodic Death MetalПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696910   (119107) от 05.02.2024
+
+Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мельбурнский квинтет Acolyte занимает видное место на австралийской музыкальной сцене как мощный и исследовательский представитель современной прогрессивной музыки, создающий яркий музыкальный ландшафт театральных мелодий, сокрушительных риффов, высоких соло и образцовой технической музыкальности.2016 - Shades of Black
+2021 - Entropy
+.Жанр: Progressive Metal, Prog RockПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697195   (119082) от 05.02.2024
 
 Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
@@ -6,7 +235,7 @@ Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119082.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119079.jpg" />
 </div>
 
 
@@ -63,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118941.jpg" />
 </div>
 
 
@@ -92,7 +321,7 @@ Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118923.jpg" />
 </div>
 
 
@@ -121,7 +350,7 @@ Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118921.jpg" />
 </div>
 
 
@@ -149,7 +378,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118905.jpg" />
 </div>
 
 
@@ -178,7 +407,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118903.jpg" />
 </div>
 
 
@@ -207,7 +436,7 @@ Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Bla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118898.jpg" />
 </div>
 
 
@@ -236,7 +465,7 @@ Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118414.jpg" />
 </div>
 
 
@@ -265,7 +494,7 @@ XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118409.jpg" />
 </div>
 
 
@@ -294,7 +523,7 @@ Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118395.jpg" />
 </div>
 
 
@@ -323,7 +552,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118311.jpg" />
 </div>
 
 
@@ -352,7 +581,7 @@ VA - Песни И Романсы. Поют В. Трошин, З. Невская
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118295.jpg" />
 </div>
 
 
@@ -381,7 +610,7 @@ Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118252.jpg" />
 </div>
 
 
@@ -409,7 +638,7 @@ Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118250.jpg" />
 </div>
 
 
@@ -438,7 +667,7 @@ Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118231.jpg" />
 </div>
 
 
@@ -467,7 +696,7 @@ Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118070.jpg" />
 </div>
 
 
@@ -496,7 +725,7 @@ Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117984.jpg" />
 </div>
 
 
@@ -510,238 +739,6 @@ Anathema — британская рок-группа, образованная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527908   (117589) от 10.10.2025
-
-Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Testament — американская трэш-метал группа из города Беркли (Калифорния).1987 - The Legacy
-1988 - The New Order
-1989 - Practice What You Preach
-1990 - Souls Of BlackЖанр: Thrash MetalПродолжительность: 11:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699585   (117434) от 15.02.2024
-
-Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, Inside Out Music[FLAC|24/192|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Used
-02. In the Flesh
-03. Ashes
-04. Morning on Earth(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699826   (117433) от 15.02.2024
-
-Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Two Beginnings (02:24)
-02. Ending Theme (04:59)
-03. Fandango (05:52)
-04. A Trace of Blood (08:17)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEFC1AEB7FE0CD0F2968C7AD06384A0D8C0702A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700250   (117224) от 16.02.2024
-
-Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Salt Theme (00:43)
-02. Softly She Cries (04:16)
-03. Conditioned (04:17)
-04. Healing Now (04:30)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700149   (117218) от 16.02.2024
-
-Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117218.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 No Way
-A2 She Likes To Hide
-A3 Sisters
-A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700256   (117217) от 16.02.2024
-
-Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Accelerator
-A2 Unfuture
-A3 Restless Boy
-B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700102   (117142) от 16.02.2024
-
-Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
-2009 - Marauders
-2011 - Parasites
-2016 - TyrantsЖанр: Thrash/Death MetalПродолжительность: 03:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700658   (117028) от 17.02.2024
-
-Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
-2003 - Regressus
-2004 - Never Ending
-2006 - Savage SoulsЖанр: Power/Speed/Thrash MetalПродолжительность: 09:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

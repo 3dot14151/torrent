@@ -1,3 +1,136 @@
+###  Публикация: 1779612   (27659) от 14.02.2025
+
+Deworker Pro, Дмитрий Елисеев | Способы ускорения PHP-приложений (2024) WEB-DLRip [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучим методы повышения быстродействия веб-приложения. От простого активации OpCache, кеширования настроек и ленивой инициализации сервисов до применения Preload с JIT и RoadRunner, асинхронности, использования Fibers и других особенностей в различных фреймворках. Выполним практику на проектах с бенчмарками. Обсудим потенциальные проблемы, удобство разработки stateless-сервисов (   Читать дальше...   )Производство: Deworker ProЖанр: СтримЯзык озвучки: РусскийПродолжительность: 11:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779757   (27651) от 14.02.2025
+
+PurpleSchool, Антон Ларичев, Игорь Матюшкин | Основы Swift и iOS (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начнем с основ для новичков, выбравших Swift в качестве первого языка программирования. Изучим типы данных, работу с коллекциями, асинхронные функции и основы объектно-ориентированного программирования - это необходимая база для каждого разработчика. Затем перейдем к созданию пользовательского интерфейса: экраны, текстовые поля, кнопки - на этом этапе у вас будет (   Читать дальше...   )Производство: PurpleSchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2559F3760FDDC3B07C2D5F71A485DF6FE1E22FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779752   (27647) от 14.02.2025
+
+Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "RabbitMQ" от Rebrain состоит из 11 модулей, охватывающих все аспекты работы с RabbitMQ: начиная с основ AMQP, управления очередями и маршрутизацией и заканчивая продвинутыми темами, такими как Dead letter exchange, RPC, TLS, кластеризация, плагины, производительность и мониторинг. Программа курса предназначена для DevOps-инженеров, системных администраторов, (   Читать дальше...   )Производство: RebrainЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9275A300B515FCDC24AF948D9540052EE255A709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724834   (27598) от 15.02.2025
+
+Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайта 15.02.2025]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный дамп laracasts.com за 25 февраля 2025. Все уроки были скачаны напрямую из vimeo в разрешении 2K с сохранением оригинальных кодеков. Уроки, для которых не доступен 2K, были скачаны в следующем доступном разрешении (FHD или HD).
+
+Данный дамп я делал для себя, поэтому сделал так, как удобно мне самому. Но решил поделиться им со всеми.
+На трекере уже имеется полный (   Читать дальше...   )Производство: laracasts.comЖанр: ВидеоурокиЯзык озвучки: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539D9360D67E67781C0DB654F8BE0BBB99E1EA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779761   (27581) от 15.02.2025
+
+Udemy, Андрей Суховицкий | Основы Domain Driven Design (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс по Domain Driven Design (DDD) разработан для разработчиков любого уровня подготовки, архитекторов и проектных менеджеров, желающих углубленно изучить и применять принципы DDD для создания четких и эффективных программных решений. На протяжении курса вы познакомитесь с методами моделирования предметной области, что позволит разрабатывать ПО, идеально соответствующее (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5DC88712C8FF1D26FD9E0D07448A61E2BDB12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779893   (27549) от 15.02.2025
 
 JUG Ru Group | DevOops 2024. Конференция по инженерным решениям и DevOps-культуре (2024) WEB-DL [RU]
@@ -6,7 +139,7 @@ JUG Ru Group | DevOops 2024. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27549.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ David East | Getting Started With React.js (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27382.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Pluralsight | AngularJS for .NET Developers (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27377.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ Skillfactory, Иван Кудрявин | Специалист по киберб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27372.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27359.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Udemy | Шахматы на JavaScript (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27270.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27264.jpg" />
 </div>
 
 
@@ -193,7 +326,7 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27261.jpg" />
 </div>
 
 
@@ -221,7 +354,7 @@ JUG Ru Group | GoFunc 2024 Autumn. Конференция по разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27224.jpg" />
 </div>
 
 
@@ -247,7 +380,7 @@ K-syndicate (Knowledge Syndicate), Анатолий Колесник | Advanced 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27209.jpg" />
 </div>
 
 
@@ -273,7 +406,7 @@ JUG Ru Group | Java-конференция для опытных разрабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27189.jpg" />
 </div>
 
 
@@ -299,7 +432,7 @@ GetAnalyst | Проектирование БД - подходы к решени�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27179.jpg" />
 </div>
 
 
@@ -328,7 +461,7 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27158.jpg" />
 </div>
 
 
@@ -356,7 +489,7 @@ GetAnalyst | Интеграции: подходы к решению практи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27139.jpg" />
 </div>
 
 
@@ -385,7 +518,7 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27137.jpg" />
 </div>
 
 
@@ -411,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27128.jpg" />
 </div>
 
 
@@ -437,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27126.jpg" />
 </div>
 
 
@@ -465,7 +598,7 @@ Systems.Education, Babok School, Анна Вичугова | Паттерны п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27122.jpg" />
 </div>
 
 
@@ -491,7 +624,7 @@ JUG Ru Group | SmartData 2024. Конференция по инженерии д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27117.jpg" />
 </div>
 
 
@@ -517,7 +650,7 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27103.jpg" />
 </div>
 
 
@@ -545,7 +678,7 @@ JUG Ru Group | Flow 2024 Autumn. Конференция по системном�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27077.jpg" />
 </div>
 
 
@@ -558,140 +691,6 @@ Flow - конференция по системному и бизнес-анал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90B6C28786331C5F71371F15444CC0D15088225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780795   (27072) от 20.02.2025
-
-PurpleSchool, Антон Ларичев | Основы тестирования ПО (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для тех, кто стремится освоить основные знания в области тестирования и хочет углубиться в практическое использование разнообразных тестовых методов и артефактов.
-
-На курсе мы рассмотрим ключевые концепции тестирования, а также через практические примеры научим вас работать с различными инструментами тестирования и овладевать базовыми техниками (   Читать дальше...   )Производство: PurpleSchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780976   (27041) от 20.02.2025
-
-Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте свой игровой потенциал с помощью этого комплексного курса по разработке игр на Unity и C# . Независимо от того, являетесь ли вы полным новичком или энтузиастом технологий, этот курс проведет вас через каждый шаг создания захватывающих игр с использованием Unity, одного из самых популярных игровых движков в мире.
-
-Начиная с установки и настройки, вы изучите (   Читать дальше...   )Производство: Udemy, Cipher SchoolsЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 06:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F7635548CC27E2704E601335AA8FD81CF07404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286430   (26857) от 22.02.2025
-
-ProfIT | Ликбез будущего программиста (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс, с которого вам стоит начать, если вы хотите "войти в IT".Производство: ProfITЖанр: ПрограммированиеПродолжительность: 07:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CE60342751AE07607EC37F351063577B201CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263503   (26856) от 22.02.2025
-
-Pluralsight | Penetration Testing in Action / Тестирование на проникновение в действии (2017) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс моделирует реальные атаки, что позволит вам составить более широкое и органичное представление о реально существующих атаках, оценивая риски для бизнеса. В данном курсе мы изучим тестирования на проникновение на практических примерах.Жанр: ПрограммированиеПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12074D828781F8FAA79F2CC62EFFA6C36A14716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211457   (26756) от 23.02.2025
-
-SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - Front-end разработчик, любите JavaScript, и хотите сами создавать backend для ваших приложений? Вы хотите создавать API для ваших мобильных клиентов, веб-приложений или даже роботов? Может быть, вы создаете веб-приложения на других платформах: Java, Python, Ruby, PHP или .NET - и хотите узнать о том, что может предложить вам Node.js? Тогда этот мастер-класс (   Читать дальше...   )Жанр: Программирование, Javascript, Node.jsПродолжительность: 06:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9757B8199D589E1835B29B2E24773B1224B606
 ```
 
 https://mybot314.ru/tekegram_catalog/

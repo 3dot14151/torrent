@@ -1,3 +1,82 @@
+###  Публикация: 489106   (181689) от 30.09.2023
+
+Перри Мейсон / Perry Mason (1958-1959) SATRip (сезон 2, серии 1-30 из 30) СВ-дубль
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перри Мейсон - адвокат, специалист по защите дел, с первого взгляда соврешенно безнадежных. Он крайне редко действует кулаками, хотя уверен в себе и не побоится пойти с голыми руками против вооруженного преступника. Козыри Мейсона – незаурядный, аналитический ум, воля к победе, огромный багаж знаний и блестящее ораторское мастерство.Производство: США, CBS Television Network, Paisano Productions, TCF Television ProductionsЖанр: детектив, криминал, драмаРежиссер: Артур Маркс, Джесси Хиббс, Уильям Д. РасселлАктеры: Рэймонд Берр, Барбара Хейл, Уильям Хоппер, Рэй Коллинз, Уильям Тэлман, Дон Андерсон, Ли Миллер, Уэсли Лау, Джордж Э. Стоун, С. Джон ЛаунерПеревод: Многоголосый профессиональный (Студия "СВ-дубль")Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9180079AAB036D2463B8B2FF465FEA37F9F2BF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666636   (178798) от 05.10.2023
+
+Герои Хогана / Hogan's Heroes (1967-1968) BDRemux [H.264/1080p] (сезон 3, серии 1-30 из 30) Дольский
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о группе американских военнопленных, заключенных в немецкий концлагерь во время Второй мировой войны. Товарищами по несчастью руководит изобретательный полковник Хоган, который даже будучи в плену, находит множество возможностей саботировать врага. Комендант лагеря полковник Клинк хочет только одного — чтобы у него не было проблем с начальством. (   Читать дальше...   )Производство: США / Bing Crosby Productions, Bob Crane EnterprisesЖанр: комедия, военныйРежиссер: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс БилсонАктеры: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс Билсон, Марк Дэниелс, Боб Суини, Ховард Моррис, Ричард Кинон, Джерри Лондон, Роберт Батлер, Джон Рич, Ирвинг Дж. МурПеревод: авторский (А.Дольский)Язык озвучки: русский, английскийСубтитры: английские, немецкиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFC67E45C9B14FE4A1B45E9FB3AD38C96F8CB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586148   (175888) от 04.12.2022
+
+Гонки по вертикали (1982) DVDRemux (серии 1-3 из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остросюжетный детектив по мотивам одноименной повести братьев Вайнеров.
+Психологическая дуэль следователя и обаятельного вора-рецидивиста по кличке Батон...Производство: СССР, к/ст им. ДовженкоЖанр: криминал, детектив, приключенияРежиссер: Александр МуратовАктеры: Андрей Мягков, Валентин Гафт, Владимир Сальников, Николай Засухин, Галина Польских, Ирина Бразговка, Зинаида Дехтярева, Елена Капица, Станислав Чекан, Владимир ДружниковПродолжительность: 03:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AD04C4D2CA395B16CC1A554F01309DD9693DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452397   (175653) от 09.10.2023
 
 Опасный поворот (1972) SATRip [H.264] (серии 1-3 из 3)
@@ -6,7 +85,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175653.jpg" />
+  <img src="Z:/picture/004/save_picture_175653.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174286.jpg" />
+  <img src="Z:/picture/004/save_picture_174286.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172940.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172915.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170043.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169514.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168608.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163700.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163569.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162807.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162020.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158172.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148892.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147677.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147641.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141538.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140193.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137845.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137349.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137128.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136746.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128339.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126392.jpg" />
 </div>
 
 
@@ -592,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902EB37A3C9F7352C648A39B678A2D75FC696116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683947   (124816) от 01.01.2024
-
-Трест, который лопнул (1982) HDTV [H.264/1080i] (серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения двух очаровательных мошенников, живущих за счет доверчивых простаков, знаменитых благодаря великому писателю О.Генри. Не все и не всегда им удается так, как они задумали первоначально, но сколько выдумки в их остроумном поиске хлеба насущного.Производство: СССР / Одесская киностудияЖанр: мюзикл, комедияРежиссер: Александр ПавловскийАктеры: Регимантас Адомайтис, Николай Караченцов, Леонид Куравлёв, Михаил Светин, Ирина Понаровская, Владимир Басов, Юрий Мажуга, Павел Винник, Елена Аминова, Всеволод АбдуловПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63871B977756FB6AB722342C5FD885D8C10073C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448989   (124754) от 02.01.2024
-
-Сага о Форсайтах / The Forsyte Saga (1967) DVDRip (1-26 серии из 26)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полувековая история семьи Форсайтов, начиная с викторианской эпохи до 1920-х годов. Человеческие страсти: ревность, измены, отчуждение, разводы раскрываются на грандиозном фоне культурных, социальных перемен, политического хаоса и личного благоденствия. Форсайты - крепкий клан; страсть, красота, искусство - для них нечто чуждое, даже опасное. Когда все это вторгается (   Читать дальше...   )Жанр: ДрамаРежиссер: Дэвид Джиллз, Джеймс Селлан ДжонсАктеры: Эрик Портер, Маргарет Тайзек, Найри Дон Портер, Кеннет Мур, Сьюзэн Хэмпшир, Джон Уэлш, Джозеф О'Конор, Джун Бэрри, Мэгги Джонс, Сюзанн Нив, Фанни Роу, Фэй Комптон, Николас Пеннелл...Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 26 х ~ 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEDCD783ECC22538BAE00C4DBC730D26BD8EFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548372   (123037) от 14.01.2024
-
-Адъютант его превосходительства (1969) DVDRip (5 серий из 5)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123037.jpg" />
-</div>
-
-
-###  Подробнее
-
-О судьбе красного разведчика Кольцова, который в 1919 году был направлен со спецзаданием в штаб деникинской армии, где стал адъютантом командующего.
-Основанный на реальных событиях, фильм не только рассказывает о блестяще проведенных Кольцовым операциях, но и раскрывает сложный внутренний мир героев, живших в противоречивое, трагическое время.Производство: СССР, МосфильмЖанр: Военный, ПриключенияРежиссер: Евгений ТашковАктеры: Юрий Соломин, Владимир Козел, Татьяна Иваницкая, Владислав Стржельчик, Евгений Шутов, Александр Милокостый, Николай Тимофеев, Андрей Петров, Анатолий Папанов, Виктор ПавловПродолжительность: 01:11:16 + 01:20:57 + 01:15:14 + 01:10:17 + 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9362BC49B9C8131B57B5195F08BBB43532E96EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

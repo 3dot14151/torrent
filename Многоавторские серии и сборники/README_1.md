@@ -1,3 +1,109 @@
+###  Публикация: 1845371   (1050656) от 31.12.2025
+
+Книжная серия | «New Science» [46 книг] (2014-2026) [PDF, FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1050656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия научно-популярной литературы от издательства "Питер", лидера на рынке профессиональной литературы, специализирующегося на выпуске качественных книг для тех, кто хочет чему-то научиться или достичь новых высот мастерства.
+
+Что есть жизнь и смерть, каково наше место во Вселенной, как устроен мир на квантовом, космическом и человеческом уровне, как общечеловеческие (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Научно-популярная литература, Астрономия, Физика, Математика, Биология, Биофизика, Биохимия, ГенетикаИздательство: ПитерФормат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24784391775330A0074A9CDBC6BACF892F7595F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845176   (1050466) от 30.12.2025
+
+Книжная серия | «Метафора здоровья. Книги от ведущих экспертов в области медицины» [7 книг] (2024-2025) [FB2, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной серии подборка лучших книг по укреплению иммунитета и оздоровлению от ведущих экспертов в области медицины. Вы познакомитесь с передовыми исследованиями в области медицины, которые направлены на эффективные способы борьбы с различными заболеваниями, а также оптимизацию физиологических процессов и восстановление сил организма в любом возрасте.Жанр: Здоровье, Патология, Самомассаж,Издательство: ЭксмоФормат: FB2, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E49D660A4907DD836B1291A105A9B4A28E3F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844801   (1050162) от 28.12.2025
+
+Книжная серия | Звезда Рунета [90 книг] (2014-2025) [PDF, FB2, EPUB]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия современных авторов, в которой издаются романы и рассказы популярных блогеров, так называемых «звезд рунета». Тематически серия является смешанной: включает произведения разных жанров, в том числе фантастику.Жанр: РазноеИздательство: АСТ, ХарвестФормат: PDF, FB2, EPUBКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3E85B3A79B1BF32D5D7EBA7E0E88BFCB8DC2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843796   (1049687) от 23.12.2025
+
+Книжная серия | Больше чем книга [13 книг] (2016-2025) [PDF, FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049687.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Больше чем книга» - серия иллюстрированных книг известных писателей, в которых текст и художественное оформление нельзя рассматривать по отдельности, они образуют единый ансамбль. В серии выходят наравне классические произведения, приключения и фантастика. Название серии указано не на всех томах, оформление книг у каждого автора индивидуальное.Жанр: БеллетристикаИздательство: АзбукаФормат: PDF, FB2Качество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842A8FE1475B7A97A651ABB79C969EDA8374C9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843615   (1049618) от 22.12.2025
 
 Книжная серия | Военная фантастика [361 книга] (2011-2025) [FB2]
@@ -6,7 +112,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049618.jpg" />
+  <img src="Z:/picture/005/save_picture_1049618.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049617.jpg" />
+  <img src="Z:/picture/005/save_picture_1049617.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049616.jpg" />
+  <img src="Z:/picture/005/save_picture_1049616.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049473.jpg" />
+  <img src="Z:/picture/005/save_picture_1049473.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049468.jpg" />
+  <img src="Z:/picture/005/save_picture_1049468.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049310.jpg" />
+  <img src="Z:/picture/008/save_picture_1049310.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049306.jpg" />
+  <img src="Z:/picture/008/save_picture_1049306.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049208.jpg" />
+  <img src="Z:/picture/008/save_picture_1049208.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049203.jpg" />
+  <img src="Z:/picture/008/save_picture_1049203.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049198.jpg" />
+  <img src="Z:/picture/008/save_picture_1049198.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049197.jpg" />
+  <img src="Z:/picture/008/save_picture_1049197.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049185.jpg" />
+  <img src="Z:/picture/008/save_picture_1049185.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049124.jpg" />
+  <img src="Z:/picture/008/save_picture_1049124.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049121.jpg" />
+  <img src="Z:/picture/008/save_picture_1049121.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048871.jpg" />
+  <img src="Z:/picture/008/save_picture_1048871.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048679.jpg" />
+  <img src="Z:/picture/008/save_picture_1048679.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048593.jpg" />
+  <img src="Z:/picture/008/save_picture_1048593.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047969.jpg" />
+  <img src="Z:/picture/008/save_picture_1047969.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047968.jpg" />
+  <img src="Z:/picture/008/save_picture_1047968.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047769.jpg" />
+  <img src="Z:/picture/008/save_picture_1047769.jpg" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047764.jpg" />
+  <img src="Z:/picture/008/save_picture_1047764.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047264.jpg" />
+  <img src="Z:/picture/005/save_picture_1047264.jpg" />
 </div>
 
 
@@ -569,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF777350E84869C5989935DF5E331D0AFF736448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840143   (1047198) от 03.12.2025
-
-Книжния серия | Удовольствие от науки [19 книг] (2018-2024) [PDF, FB2, EPUB]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг "Удовольствие от науки" - это интересное развлекательное научное чтение из разных областей знаний. Наука через развлечение. Эти книги расширят ваш научный багаж, не превращая изучение дисциплин в скучное занудное занятие. Наука может и должна приносить удовольствие!
-Для широкого круга читателей.Жанр: Научно-популярная литератураИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF9788594D88D245DAEB960BA4D182645B2D1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840213   (1047162) от 03.12.2025
-
-Книжная серия | Темные архивы. Книги о жутких экспериментах и практиках над людьми [10 книг] (2022-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг про темное прошлое науки, в рамках которой над людьми проводились жестокие эксперименты ради новых открытий.Жанр: Психологические исследования, Психология преступностиИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0826F95941154076CD3BE203C795A292F8070A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840051   (1047008) от 02.12.2025
-
-Книжная серия | «Русская история» [101 книга] (2012-2025) [FB2, PDF]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия "Русская история" посвящена истории России от Киевской Руси до современной России. СССР – большое и сильное государство, разместившееся на 1/6 части суши – был настоящей фабрикой достижений. В любой отрасли, будь то наука, оборона, культура или спорт, в Советском Союзе было кем и чем гордиться!Жанр: История, Политика, Биографии и мемуарыИздательство: Алгоритм, РодинаФормат: FB2, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748FEA7592B12E22243C95D40BA1A562A45687C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839726   (1046810) от 30.11.2025
-
-Книжная серия | «Полная история эпох» [8 книг] (2023-2025) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046810.jpg" />
-</div>
-
-
-###  Подробнее
-
-За всю историю человечества произошло много эпохальных событий. Самым значительным из них и посвящены предлагаемые книги. Читателю предстоит по-новому взглянуть на ход мировой истории и узнать, что же определяло начало, существование и конец той или иной эпохи и как это происходило.Жанр: История, исторические приключения, научно-популярная литератураИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66E06A323206B6B24E19431E4B271EEC6B6C22A
 ```
 
 https://mybot314.ru/tekegram_catalog/

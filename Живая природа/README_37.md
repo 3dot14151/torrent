@@ -1,3 +1,55 @@
+###  Публикация: 1638258   (212067) от 07.06.2023
+
+Змеи. Тайны самых смертоносных созданий на земле / Snakes, Secrets of Nature’s Deadliest Creatures (2014) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_212067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ об удивительных созданиях — змеях. О том, как они приспособились к разным средам обитания и могут жить на суше, в море и даже летать.Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальныйРежиссер: Ли Ён-гюПеревод: Одноголосый профессиональный (по заказу SLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651F132430C5B05998AB4E0DEE73C3E2109193C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638265   (212040) от 07.06.2023
+
+Зов дикой природы / Our Nature (2019) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_212040.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Земле обитает более чем 1,6 миллиона известных видов животных, каждый из которых играет свою роль в природе. Потрясающие пейзажи, многообразие видов птиц, диких кошек, рыб, слонов, китов и многих других, обитающих на семи континентах. Всё это — чудеса голубой планеты, которую мы называем домом.Производство: Германия / Little Brother FilmsЖанр: документальныйРежиссер: Экрем Энгизек, Тимо Дж. МэйерПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876B0D5A2C8D13923BB800A90B830F5F0BCB034A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638876   (211921) от 10.06.2023
 
 Насекомые — гении стратегии / Insects, Geniuses of Strategy (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211921.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211888.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211744.jpg" />
+  <img src="Z:/picture/005/save_picture_211744.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211529.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211246.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210901.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210783.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210725.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210677.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210268.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210209.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209977.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209735.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209453.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209383.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209328.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208458.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207690.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207639.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207401.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207131.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207038.jpg" />
+  <img src="Z:/picture/005/save_picture_207038.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206481.jpg" />
+  <img src="Z:/picture/005/save_picture_206481.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206448.jpg" />
+  <img src="Z:/picture/005/save_picture_206448.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A51DE28186F245A6DE597CCD20BB38AC03BAE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582573   (206240) от 10.10.2022
-
-Сверхъестественное / Super/Natural (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи, полные), английскиеПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91755ADE2AFB5DA67A9B7BE54E4774F475B4A9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582580   (206225) от 10.10.2022
-
-Сверхъестественное / Super/Natural (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последние научные инновации и передовые технологии кинопроизводства, чтобы раскрыть тайные силы и сверхчувства самых необычных животных в мире, зрители сериала смогут увидеть и услышать за пределами обычного человеческого восприятия, чтобы испытать мир природы так, как это делает конкретный вид — от увидеть цветы пчелиным зрением, подслушать разговор морских (   Читать дальше...   )Производство: США, Earthship Productions, National Geographic, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаПеревод: одноголосый профессиональный (NewComers)Субтитры: русские (на надписи), русские, английскиеПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C293601CBE187C7B624E1B5514C79118C81FE1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1290375   (678159) от 20.03.2019
+
+Эмма Милдон | Эволюция богини. Новое практическое руководство по развитию женских сверхспособностей (2019) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678159.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Эволюция богини» Эммы Милдон – современное практическое руководство по обретению внутренней силы, раскрытию женского потенциала, достижению гармонии с собой и миром. Эта книга – бесценный подарок для женщин, занимающихся духовным поиском.Жанр: ЭзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05097E7B3623B0D5EB186FE86C4B51FB8D0F5262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290522   (677987) от 20.03.2019
 
 Сергей Матвеев | Нумерология! Большой понятный самоучитель. Всё подробно и по полочкам (2019) [PDF]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677987.jpg" />
+  <img src="Z:/picture/008/save_picture_677987.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674932.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674018.jpg" />
+  <img src="Z:/picture/008/save_picture_674018.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673943.jpg" />
+  <img src="Z:/picture/008/save_picture_673943.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673932.jpg" />
+  <img src="Z:/picture/008/save_picture_673932.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670353.jpg" />
+  <img src="Z:/picture/008/save_picture_670353.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668505.jpg" />
+  <img src="Z:/picture/008/save_picture_668505.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667695.jpg" />
+  <img src="Z:/picture/008/save_picture_667695.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667632.jpg" />
+  <img src="Z:/picture/008/save_picture_667632.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665830.jpg" />
+  <img src="Z:/picture/008/save_picture_665830.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662998.jpg" />
+  <img src="Z:/picture/008/save_picture_662998.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662659.jpg" />
+  <img src="Z:/picture/008/save_picture_662659.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659826.jpg" />
+  <img src="Z:/picture/008/save_picture_659826.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659731.jpg" />
+  <img src="Z:/picture/008/save_picture_659731.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658949.jpg" />
+  <img src="Z:/picture/008/save_picture_658949.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658903.jpg" />
+  <img src="Z:/picture/008/save_picture_658903.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658800.jpg" />
+  <img src="Z:/picture/008/save_picture_658800.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658687.jpg" />
+  <img src="Z:/picture/008/save_picture_658687.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658580.jpg" />
+  <img src="Z:/picture/008/save_picture_658580.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657671.jpg" />
+  <img src="Z:/picture/008/save_picture_657671.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655297.jpg" />
+  <img src="Z:/picture/008/save_picture_655297.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651970.jpg" />
+  <img src="Z:/picture/008/save_picture_651970.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651818.jpg" />
+  <img src="Z:/picture/008/save_picture_651818.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650259.jpg" />
+  <img src="Z:/picture/008/save_picture_650259.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650057.jpg" />
+  <img src="Z:/picture/008/save_picture_650057.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F81BE399217A18D3993B78D93372A92E56C2F5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227042   (650054) от 24.05.2018
-
-Олег Гор | Просветленные видят в темноте. Как превратить поражение в победу (2018) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен Олег Гор вновь встретился с темной стороной бытия, когда привычная жизнь дала трещину. В одночасье он потерял все, что имел: налаженный бизнес, комфортное жилье, накопления, статус и друзей... и стал объектом внимания тайских бандитов. Самое время впасть в отчаяние, опустить руки и забыть о всякой духовности... Но не тут-то было! На помощь автору в кризисной (   Читать дальше...   )Жанр: Эзотерика, парапсихология, тайеыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F718B89BFC0DA8DACBECE85B4F0B6A781513A6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

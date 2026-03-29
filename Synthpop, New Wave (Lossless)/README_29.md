@@ -1,3 +1,32 @@
+###  Публикация: 1742715   (105482) от 14.08.2024
+
+Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpop, Technopop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cooperation In A Fragmented World [00:04:55]
+02. The Great Reset [00:07:33]
+03. Activity As A Timetrigger [00:03:58]
+04. Happy Nothing [00:05:43](   Читать дальше...   )Жанр: Minimal Electro, Synthpop, TechnopopПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12796BFB556B9A0B9FE98F7C13E9B48F40A61949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743348   (105411) от 16.08.2024
 
 VA - Neon Retro 5Th Anniversary (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -6,7 +35,7 @@ VA - Neon Retro 5Th Anniversary (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105411.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Erasure - Chorus  (1991) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105409.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105352.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Carter the Unstoppable Sex Machine - Post Historic Monsters (1983) Remaster, 202
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105118.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Geneva Jacuzzi - Triple Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <dance-pop, da
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105086.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Leathers - Ultraviolet (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave / Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104650.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Aphelion - Humanoid World (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104557.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Pet Shop Boys - Release (2002) 1st Holland Press [APE|Lossless|image + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103694.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Pet Shop Boys - Alternative (1995) 1st Holland Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103691.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Interface - Zero Sum Equation (2024) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102800.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Karl Bartos (ex-Kraftwerk) - Communication. (Limited Edition) (2003)  [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101225.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101120.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Space - The Very Best Of Space (2011) [FLAC|Lossless|image + .cue] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88430.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70557.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70361.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70198.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69640.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Dream Electric (2018) 2LP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69034.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Apocalypse Domani (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dark-Ele
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68837.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Erasure - Breathe (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68110.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Fractal Age - Energy & Entropy (2025) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67874.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - 12.04, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67858.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Erasure - Freedom (2000) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67799.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Trevor Something - The Shadow (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67790.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67227.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Dark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797598   (66781) от 17.05.2025
-
-Slow Danse With The Dead - Eternl Mourning (2025) Remastered [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Post-Punk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He Speaks Too Much (Remastered) [00:03:27]
-02. I Prefer To Be Alone (Remastered) [00:04:28]
-03. Dream Stalker (Remastered) [00:03:31]
-04. If One Coffin Lod Shuts Another Shall Open (Remastered) [00:03:37](   Читать дальше...   )Жанр: Coldwave, Darkwave, Post-PunkПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A7AA4E9E767E077D7A8D8372F8CC2AB4E542C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

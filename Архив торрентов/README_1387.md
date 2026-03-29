@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740069.jpg" />
+  <img src="Z:/picture/008/save_picture_740069.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LibreOffice 6.0.3.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740054.jpg" />
+  <img src="Z:/picture/008/save_picture_740054.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740040.jpg" />
+  <img src="Z:/picture/008/save_picture_740040.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sketch 53.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740015.jpg" />
+  <img src="Z:/picture/008/save_picture_740015.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740009.jpg" />
+  <img src="Z:/picture/008/save_picture_740009.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Calibre 3.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740004.jpg" />
+  <img src="Z:/picture/008/save_picture_740004.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zoner Photo Studio X 19.1804.2.61 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739999.jpg" />
+  <img src="Z:/picture/008/save_picture_739999.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hetman FAT Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739992.jpg" />
+  <img src="Z:/picture/008/save_picture_739992.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Hetman NTFS Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739950.jpg" />
+  <img src="Z:/picture/008/save_picture_739950.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739939.jpg" />
+  <img src="Z:/picture/008/save_picture_739939.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Adobe XD CC v7.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739932.jpg" />
+  <img src="Z:/picture/008/save_picture_739932.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ EPSViewer Pro 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739913.jpg" />
+  <img src="Z:/picture/008/save_picture_739913.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Posterino 3 v3.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739912.jpg" />
+  <img src="Z:/picture/008/save_picture_739912.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Middle 1.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739911.jpg" />
+  <img src="Z:/picture/008/save_picture_739911.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ IconJar 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739909.jpg" />
+  <img src="Z:/picture/008/save_picture_739909.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ start 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739907.jpg" />
+  <img src="Z:/picture/008/save_picture_739907.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ TablePlus 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739906.jpg" />
+  <img src="Z:/picture/008/save_picture_739906.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Recompress 20.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739905.jpg" />
+  <img src="Z:/picture/008/save_picture_739905.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739901.jpg" />
+  <img src="Z:/picture/008/save_picture_739901.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kiwi for Gmail 2.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739899.jpg" />
+  <img src="Z:/picture/008/save_picture_739899.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ ExactScan Pro 20.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739897.jpg" />
+  <img src="Z:/picture/008/save_picture_739897.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739896.jpg" />
+  <img src="Z:/picture/008/save_picture_739896.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mate Translate 7.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739883.jpg" />
+  <img src="Z:/picture/008/save_picture_739883.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739882.jpg" />
+  <img src="Z:/picture/008/save_picture_739882.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739881.jpg" />
+  <img src="Z:/picture/008/save_picture_739881.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Kenny Segal & Serengeti - AJAI (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739879.jpg" />
+  <img src="Z:/picture/008/save_picture_739879.jpg" />
 </div>
 
 

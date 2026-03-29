@@ -1,3 +1,110 @@
+###  Публикация: 1353073   (991579) от 18.01.2020
+
+Японский миллиардер Маэдзава ищет женщину для полета на Луну
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический турист Юсаку Маэдзава, который должен первым отправиться в полет на космическом корабле Starship компании SpaceX в 2023 году, ищет спутницу жизни, готовую составить ему компанию в туре вокруг спутника Земли.Объявление об этом 44-летний японский миллиардер разместил на своем сайте, указав, что хотел бы разделить это приключение со своей любимой. Заявки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609386   (991437) от 27.01.2013
+
+Diablo 2: Lord of destruction / Median XL Ultimative v6d [Ru] (Mod) 2000/2013
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Median XL - это мод для Diablo II LoD. По сравнению с оригинальной игрой, в нём изменены полностью все навыки, улучшены и добавлены вещи, монстры, а также присутствуют уберквесты - более трудные локации.
+Пользователь MarcoNecroX с официального форума Median XL создал совместно с несколькими другими пользователями глобальную модификацию мода под названием Median XL Ultimative, включающую в себя новые вещи и навыки, новых монстров и парочку новых уберквестов.Тип издания: ModЖанр: RPG (Rogue/Action)Язык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14510294605DFCF852474836FE6496AD08C1226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008692   (991264) от 18.01.2020
+
+Протоиерей Владимир Головин | Проповеди (2008-2019) WEB-DL [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Протоиерей Владимир Головин является священнослужителем Русской Православной Церкви. Из разных частей света паломники приезжают в город Болгар, где живет батюшка, чтобы получить от него наставления в христианской вере, чтобы услышать из его уст глаголы жизни вечной.
+В храме Мученика Авраамия, где служит батюшка Владимир, возрождается многовековой опыт молитвы по (   Читать дальше...   )Жанр: Религия и культыПродолжительность: 374:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B979DC597BD52C4329AB427CEA53F99EEBF9843B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432214   (990529) от 06.01.2012
+
+В Швеции копирование информации признано религией
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведская группа, выступающая за свободный обмен цифровой информацией, получила официальную регистрацию в качестве религиозной организации, передает Би-би-си.Группа, которая называет себя "Церковью Копимизма" (от англ. copy и me - "скопируй меня"), говорит, что официальное признание со стороны государства даст ей правовую защиту и свободу "священнодействия".Шведские СМИ отмечают, что "Церковь Копимизма" тесно связана с "Пиратским движением" Швеции, которое выступает за свободное распространение информации и против защиты авторских прав.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353628   (990357) от 19.01.2020
 
 Windows 10 Pro VL x64 v.1909.18363.592 3in1 OEM Jan2020 by Generation2 [Ru]
@@ -6,7 +113,7 @@ Windows 10 Pro VL x64 v.1909.18363.592 3in1 OEM Jan2020 by Generation2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990357.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990351.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Adobe Acrobat Pro DC 2019.021.20061 RePack by Diakov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990348.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ KMSnano Automatic by Heldigard 19 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989831.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Dead Space 3 [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989791.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ uTorrent 3.5.5 (build 45493) Portable by SanLex (Ad-Free) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989592.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989488.jpg" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_989235.jpg" />
+  <img src="Z:/picture/005/save_picture_989235.jpg" />
 </div>
 
 
@@ -227,7 +334,7 @@ COWBOY WPI DVD Project II StartSoft 15 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988797.jpg" />
 </div>
 
 
@@ -253,7 +360,7 @@ Metro 2033 / Метро 2033 [En/Multi7] (L) 2010 | PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988780.jpg" />
 </div>
 
 
@@ -283,7 +390,7 @@ Macross Frontier / Макросс Фронтир OSTs+OP+ED+Other <mp3 320K>
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_988272.jpg" />
+  <img src="Z:/picture/005/save_picture_988272.jpg" />
 </div>
 
 
@@ -316,7 +423,7 @@ DriverPack Solution 2015 + Драйвер-Паки 15.12.5 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988161.jpg" />
 </div>
 
 
@@ -342,7 +449,7 @@ Kaspersky Internet Security 2016 16.0.1.445 MR1 (Technical Release) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988158.jpg" />
 </div>
 
 
@@ -368,7 +475,7 @@ LoftSchool | Kомплексное обучение разработке на PH
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988152.jpg" />
 </div>
 
 
@@ -397,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988151.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988150.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987816.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987637.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986815.jpg" />
 </div>
 
 
@@ -530,7 +637,7 @@ ABBYY FineReader 15.0.112.2130 Corporate RePack (& Portable) by Diakov [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986724.jpg" />
 </div>
 
 
@@ -556,7 +663,7 @@ Frostpunk (2018) [Ru/Multi] (1.5.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986722.jpg" />
 </div>
 
 
@@ -582,7 +689,7 @@ uTorrent 3.3 build 29038 Stable [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986548.jpg" />
 </div>
 
 
@@ -593,114 +700,6 @@ uTorrent 3.3 build 29038 Stable [MULTi / Русский]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835012   (986505) от 02.01.2016
-
-Приключения Шерлока Холмса и доктора Ватсона: Собака Баскервилей (1981) BDRip [1080p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труп Чарльза Баскервиля обнаруживают неподалеку от его родового поместья. Выражение нечеловеческого ужаса на лице покойника и следы крупной собаки поблизости заставляют вспомнить старинную легенду о проклятии, тяготеющем над родом Баскервилей. Шерлоку Холмсу предстоит докопаться до истины…Жанр: Криминал, ДетективРежиссер: Игорь МасленниковАктеры: Василий Ливанов, Виталий Соломин, Рина Зеленая, Ирина Купченко, Никита Михалков, Алла Демидова, Светлана Крючкова, Александр Адабашьян, Борислав Брондуков, Евгений Стеблов...Продолжительность: 02:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2678780323F16CD1FEF92BF1DFD3FE59A1127E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971303   (986499) от 02.01.2016
-
-Марсианин / The Martian (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного...Производство: США, Великобритания, 20th Century Fox Film Corporation, Genre FilmsЖанр: Фантастика, ПриключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Язык субтитров: Русский (Full, Forced), Украинский (Full, Forced), АнглийскийПродолжительность: 02:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5E56FE63223FF6AA95A34F1E3927992611C56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610115   (986389) от 01.02.2013
-
-MultiBoot USB X8 afin 8 [Русский / Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультизагрузочный USB носитель для сервисного обслуживания, резервного копирования, востановления разделов жестких дисков, лечения от вирусов, сброса "забытых" паролей и др.
-В составе раздачи в папке Tools имеется набор необходимых утилит и инструкция по созданию мультизагрузочной флешки.
-
-Внимание!
-НЕ устанавливается и НЕ запускается из операционной системы! Исключение составляют Startup Tools из состава Hiren's Boot CD.Название программы: MultiBoot USB X8 afinЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612263   (986387) от 01.02.2013
-
-Дублёр (2012) [H.264/720p-LQ] BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой нашей истории — успешный актер, звезда шоу-бизнеса Игорь Успенский. Его жизнь — сплошные съемки, концерты, презентации, корпоративы, интервью и светские тусовки. Он вынужден «крутиться» день и ночь, у него нет выходных и праздников. А его очаровательная жена и прекрасная дочка видят его в лучшем случае поздно ночью, когда он приезжает домой, чтобы поспать (   Читать дальше...   )Производство: Enjoy MoviesЖанр: КомедияРежиссер: Евгений АбызовАктеры: Александр Ревва, Дмитрий Хрусталев, Людмила Артемьева, Кристина Асмус, Татьяна Орлова, Ксения Буравская, Варвара Малкова, Александра Кимаева, Евгений Шиманович, Алексей РязанцевПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E29BA096BFAF8DA8B27CBBE6E0ADF560CBCC1E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

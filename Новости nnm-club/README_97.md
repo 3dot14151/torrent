@@ -1,3 +1,110 @@
+###  Публикация: 1528650   (733891) от 03.02.2022
+
+BELOFF 2022 (Авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_733891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Программ, распределённых по категориям, с Автоматической Установкой в Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также автоматическую установку драйверов с помощью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2A8EE3B1D3F669D63FC5ABCC69D43933854EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787856   (733592) от 23.05.2014
+
+Windows XP SP3 WIM Edition by SmokieBlahBlah 18.05.14 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_733592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка является быстро устанавливающейся заливкой (~10-15 мин), в которую входят 2 редакции Windows XP SP3:
+1) только с .NET Framework 1.1-3.5, VC++ Runtimes, DirectX и RuntimePack
+2) с Office 2003, .NET Framework 1.1-3.5, VC++ Runtimes, DirectX и RuntimePack
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2636CBDC3727572D5254BBD7445A4A06D676E2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762007   (733588) от 23.05.2014
+
+Американцы / The Americans  (2014) WEB-DLRip (Сезон 2, Серия 01-13 (13)) (NewStudio)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_733588.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о сложном браке двух агентов КГБ, которые под видом американцев заселяются в пригород Вашингтона сразу после того, как президентом избирают Рейгана. Подставной брак Филлипа и Элизабет с каждым днем становится все более настоящим и эмоциональным, несмотря на эскалацию холодной войны и опасные отношения, которые они должны поддерживать с сетью шпионов и информаторов. (   Читать дальше...   )Жанр: Боевик, триллер, драма, криминалРежиссер: Адам Аркин, Гэвин О’Коннор, Томас ШламмиАктеры: Мэттью Риз, Кери Рассел, Аннет Махендру, Холли Тейлор, Роман Блат, Пол Джуд Летерски, Марми КосикоПеревод: Многоголосый закадровый, профессиональный (NewStudio)Продолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7A94821DB7F0766DE1F5619148FBC951B8BFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399412   (733248) от 31.07.2020
+
+ABBYY FineReader PDF 15.0.113.3886 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_733248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря внутренним разработкам ABBYY в области искусственного интеллекта и современных методов машинного обучения, новый ABBYY FineReader 15 превратился в многофункциональный редактор для решения любых задач с PDF и бумажными документами. Программа позволяет офисным сотрудникам работать с PDF и сканами так же просто и удобно, как с привычными всем текстовыми документами (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4492177ACBA93A368EDBAFD53D7A4535A04C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399345   (733247) от 31.07.2020
 
 ABBYY FineReader PDF 15.0.113.3886 Corporate Full/Lite RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +113,7 @@ ABBYY FineReader PDF 15.0.113.3886 Corporate Full/Lite RePack by KpoJIuK [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733247.jpg" />
+  <img src="Z:/picture/008/save_picture_733247.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Wolfenstein: The New Order [PS3] [EUR] [Ru] [4.55] [Cobra ODE / E3 ODE PRO ISO] 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733100.jpg" />
+  <img src="Z:/picture/005/save_picture_733100.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ HITMAN 3 (2021) [Ru/Multi] (3.100/upd13/dlc) Repack Other s [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732994.jpg" />
+  <img src="Z:/picture/008/save_picture_732994.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732581.jpg" />
+  <img src="Z:/picture/008/save_picture_732581.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Winstep Nexus Ultimate 16.5 Repack by Nemo [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732377.jpg" />
+  <img src="Z:/picture/008/save_picture_732377.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732296.jpg" />
+  <img src="Z:/picture/008/save_picture_732296.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732290.jpg" />
+  <img src="Z:/picture/008/save_picture_732290.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731495.jpg" />
+  <img src="Z:/picture/005/save_picture_731495.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731467.jpg" />
+  <img src="Z:/picture/008/save_picture_731467.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ Advanced Archive Password Recovery Enterprise Edition 4.54.110 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731455.jpg" />
+  <img src="Z:/picture/008/save_picture_731455.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ Discovery: Крутой тюнинг (52 серии) / OverHaulin (2007-2008) SA
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731454.jpg" />
+  <img src="Z:/picture/008/save_picture_731454.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731367.jpg" />
+  <img src="Z:/picture/008/save_picture_731367.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731364.jpg" />
+  <img src="Z:/picture/008/save_picture_731364.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731361.jpg" />
+  <img src="Z:/picture/008/save_picture_731361.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731348.jpg" />
+  <img src="Z:/picture/008/save_picture_731348.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731342.jpg" />
+  <img src="Z:/picture/008/save_picture_731342.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4366.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731265.jpg" />
+  <img src="Z:/picture/008/save_picture_731265.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731257.jpg" />
+  <img src="Z:/picture/008/save_picture_731257.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ Bakemonogatari / Bake monogatari / Истории чудовищ [2009, 15 из 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731196.jpg" />
+  <img src="Z:/picture/005/save_picture_731196.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731171.jpg" />
+  <img src="Z:/picture/005/save_picture_731171.jpg" />
 </div>
 
 
@@ -531,7 +638,7 @@ NVIDIA отказалась от покупки Arm — разработчик �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730459.jpg" />
+  <img src="Z:/picture/005/save_picture_730459.jpg" />
 </div>
 
 
@@ -557,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730428.jpg" />
+  <img src="Z:/picture/005/save_picture_730428.jpg" />
 </div>
 
 
@@ -568,112 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203050   (730427) от 19.02.2019
-
-Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica - это ролевая игра от создателей Natural Selection 2, в которой авторы пообещали соместить кинематографичность, открытый мир и проработку "больших" RPG. Subnautica – игра-песочница с открытым миром, созданная компанией Unknown Worlds Entertainment.Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6879D690940DA6CA21B811A33BC69D6455DADB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021897   (730422) от 31.05.2016
-
-Очередное достижение: 1000 релизов от хинин
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья!
-Рад сообщить Вам о возможности поздравить новоиспеченного релизера-тысячника.
- Наш одноклубник, активный релизер, участник RG Книги хинин "скромно" перешагнул рубеж 1000 релизов!!!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284034   (730418) от 19.02.2019
-
-Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis Disk Director 12 — это набор мощных инструментов для оптимизации использования дисковых ресурсов и защиты данных. С его помощью можно создавать разделы дисков и управлять ими, чтобы хранить различные файловые или операционные системы на одном диске, быстро восстанавливать потерянные или удаленные данные, сокращать время создания резервных копий образов и (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3790BC42F6231C92824706A0FED1E2A547A34C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520814   (730323) от 09.02.2022
-
-Не смотрите наверх / Don't Look Up (2021) WEB-DL [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астрономы открывают новую комету и, рассчитав её траекторию, узнают, что через полгода она столкнётся с Землёй, что положит конец существованию человечества и всего живого на планете. Двое учёных с трудом добиваются аудиенции у президента США, но там к их предупреждению относятся с недоверием, тогда они выступают в популярной телепередаче, но большинство всё равно (   Читать дальше...   )Производство: CША / Bluegrass Films, Hyperobject IndustriesЖанр: Драма, фантастика, комедияРежиссер: Адам МакКейАктеры: Леонардо ДиКаприо, Дженнифер Лоуренс, Мэрил Стрип, Джона Хилл, Кейт Бланшетт, Роб Морган, Марк Райлэнс, Тайлер Перри, Тимоти Шаламе, Рон ПерлманПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (forced х2, full), украинские (forced х2, full), английские, французские, немецкие, испанские, китайскиеПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6EF035AEED1DD4BDEC24AB2B8A5B7CD29C29CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

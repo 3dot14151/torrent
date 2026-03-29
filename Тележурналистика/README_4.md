@@ -1,3 +1,134 @@
+###  Публикация: 1465081   (1019472) от 24.04.2021
+
+Следствие вели... (24.04.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019472.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 год, Саратов. В тот день пожилая женщина неторопливо шла из магазина домой и даже не догадывалась, что окажется на грани жизни и смерти. Внезапно раздался оглушительный грохот, пенсионерку сбило с ног взрывной волной…Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919CB9E5018418848839EC0CD429F3F7EDB4ED48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465166   (1019322) от 25.04.2021
+
+Чудо техники с Сергеем Малозёмовым (25.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашние тренажеры: их много, и они разные, компактные и не очень, но полезны ли они на самом деле? Можно ли домашними упражнениями заменить походы в спортзал? Помогают ли восстановители цвета вернуть вещам былую яркость и есть ли разница между суперсредством с громкими рекламными обещаниями и обычным порошком? Нейроскакалка, которая развивает не только тело, но (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4E895E66B7DED6241BC17D7E37A3E3265BFAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466606   (1018443) от 30.04.2021
+
+По следу монстра (30.04.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пермский край, город Соликамск. В городе объявился безжалостный охотник. Впоследствии журналисты назвали его «Коллекционер».
+Психологи считают, что в страсти к собирательству есть элемент безумия. Часто такой человек не может ни спать, ни есть, а желание обладать вещью заставляет его идти на любые жертвы. В этой истории эта страсть была настолько сильной, что жертвами (   Читать дальше...   )Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D67D5819670A7915FBB854BB88D485397272D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466742   (1018280) от 01.05.2021
+
+Живая еда с Сергеем Малозёмовым (01.05.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компоты и морсы: не теряют ли свои полезные свойства ягоды и фрукты при варке этих напитков? И почему по некоторым параметрам они ничем не лучше магазинных газировок? Какие картофельные чипсы вкуснее и полезнее — органические испанские или бюджетные русские? Все о кокосовом масле: почему одни его ругают, а другие считают самым полезным? И стоит ли делать блины на (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C0F4B1A536384A015C950684D99AF1B0BA4AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466990   (1018083) от 02.05.2021
+
+Чудо техники с Сергеем Малозёмовым (02.05.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологии против огня: кому понадобилось строить небоскребы и аквапарки из дерева? Что нужно сделать, чтобы древесина не боялась пожара и была прочнее бетона? Стоит ли покупать дорогие кухонные ножи? Прибор против прыщей, ловушка для сбора шерсти в стиральных машинах и перчатка со встроенным фонариком — что из этого действительно «чудо»? В рубрике «Идея недели» (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6677EE7C422EA7DE8016B1FF9E1FEEFD738EFD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467126   (1018068) от 02.05.2021
 
 Следствие вели... (02.05.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +137,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018068.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016510.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015987.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015794.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015457.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014846.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014426.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013561.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ Happy End. Фильм о сериале (2021) WEBRip [H.264/1080p-LQ]
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013370.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013298.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013261.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013239.jpg" />
 </div>
 
 
@@ -322,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012438.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012394.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010343.jpg" />
 </div>
 
 
@@ -405,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010310.jpg" />
 </div>
 
 
@@ -431,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010252.jpg" />
 </div>
 
 
@@ -457,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010156.jpg" />
 </div>
 
 
@@ -483,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009311.jpg" />
 </div>
 
 
@@ -514,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009306.jpg" />
 </div>
 
 
@@ -540,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009155.jpg" />
 </div>
 
 
@@ -551,136 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E3A33D257C57310CA1B29967F0159AFC678B44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481561   (1008313) от 03.07.2021
-
-По следу монстра (03.07.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008313.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Повелитель смерти». Рядом с одним из самых солнечных городов России, Улан-Удэ, однажды появился монстр, из-за которого это место содрогалось годами. Монстр, возомнивший себя богом, но действовавший как дьявол. Он не жалел никого — от друзей и родственников до ни в чем не повинных детей. Кто ему помогал и как убийцу подвела собственная глупость?Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18DAABED82A9BA37E2D9583DAC1B220452162D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481726   (1008139) от 04.07.2021
-
-Следствие вели... (04.07.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008139.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Криминальное трио». 1977 г, Донецкая область. Трое отморозков пытались выхватить у женщины хозяйственную сумку. На помощь подоспел сын, но маму он защитил ценой собственной жизни… В том же году, но чуть ранее, таинственная банда начала терроризировать город Валуйки в Белгородской области. Их дерзость и жестокость поставила на уши всех местных сыщиков. Где еще натворили (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A91EFCADECDA715FB3B518B11CF75FEA76C7468B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484522   (1006012) от 20.07.2021
-
-Воспоминания Победы (2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известные актеры рассказывают о своих родных, прошедших войну, и читают письма неизвестных солдат и тех, кто их ждал с фронта. Письма, которые почти спустя 75 лет были найдены в сумке убитого военного почтальона. Каждый из героев делится трагическими и нежными, доблестными и честными историями своих семей. Историями людей, не щадивших себя ради жизни будущих поколений.Производство: Россия / Русское киноЖанр: Документальный, историяРежиссер: Андрей ГрачевАктеры: Сергей Чонишвили, Владимир Епифанцев, Дарья Повереннова, Денис Семенихин, Михаил Горевой, Олег Фомин, Виктория Полторак,  Дмитрий Белоцерковский, Максим ЛинниковСубтитры: ОтсутствуютПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA7AD536C86B329671E4471A653B2F9097496A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486080   (1004981) от 29.07.2021
-
-Море у порога (2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богудония — район Таганрога, расположенный на побережье юго-западной части города. Когда-то этот рыбацкий поселок защищала волноотбойная стенка. С годами укрепление пришло в негодность. Оставшись без защиты Богудония постепенно разрушается. Не смотря на опасность быть смытыми в море, местные жители любят свой на глазах исчезающий район.Производство: РоссияЖанр: ДокументальныйРежиссер: Станислав ФеофановСубтитры: ОтсутствуютПродолжительность: 00:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C996011B9E75329F3CA19AB640E5DAC6C6692D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349239   (1004484) от 01.01.2020
-
-Секреты стиля (2012) DVB (30 серий)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа рассказывает об истории и современном бытовании архитектурных и дизайнерских стилей. Ведущая программы вместе с хозяевами домов или дизайнерами расскажут о том, как сделать дом или участок стильными.Производство: РоссияЖанр: Документальный, архитектура, дизайнРежиссер: Алиса Пронина, Олеся НовиковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии x ~00:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6E19D262535D6FC7BC17AE99E6C2EA5C7DAF18
 ```
 
 https://mybot314.ru/tekegram_catalog/

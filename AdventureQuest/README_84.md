@@ -1,3 +1,81 @@
+###  Публикация: 1743959   (46428) от 18.08.2024
+
+Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой руки (2002) [Ru] (1.0) License Новый Диск
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокровища Майя станут главной причиной проблем у героини в игре «Нэнси Дрю. Тайна Алой Руки», где её пригласили на подготовку выставки в музее «Бич-Хилл». Она расположен в Вашингтоне, и сюда придут высокопоставленные чиновники и просто много горожан, потому что про эти племена уже все СМИ говорят. И тут привозят старый артефакт истории в виде монолита, который должен (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Квесты, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35F3118A9111DFDB0F6B1CA9977D64B316E3A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744071   (46311) от 19.08.2024
+
+Nancy Drew: Danger on Deception Island / Нэнси Дрю. Туманы острова Лжи (2003) [Ru] (1.0) License Новый Диск
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nancy Drew: Danger on Deception Island - детективный квест про сыщицу Нэнси Дрю. Действия игры разворачиваются на курортном архипелаге Лжи. Героиня посещает бухту Морского дракона. Ее приглашает подруга-океанолог Кейт Файрстоун, занимающаяся изучением китов. Она обнаруживает, что ей мешают с исследованиями и получает письма с угрозами. Протагонистка вызывается помочь (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A3ABFBA9C597B85B7842E71A7939365CFC68E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744172   (46236) от 20.08.2024
+
+Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lifeless Planet - новое трёхмерное приключение для платформы ПК, в котором игрокам предлагается ощутить себя одиноким астронавтом, летящим на способную поддерживать жизнь планету за пределами нашей системы. После аварийной посадки мечта о новой Земле сменяется отчаянием, когда он понимает, что планета, на которой он находится, пуста и безжизненна. В этом запустении (   Читать дальше...   )Тип издания: RepackРазработчик: Stage 2 StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744170   (46217) от 20.08.2024
 
 Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
@@ -6,7 +84,7 @@ Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46217.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Bathhouse (2024) [Multi] (1.03) Scene Tenoke [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46208.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Voidness - Lidar Horror Survival Game (2023) [En] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46207.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46137.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46022.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Delearnia: Fractions of Hope (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46000.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Nightmare Side: The Game (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45988.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45905.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45888.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Homeless (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45832.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45747.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45733.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45719.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45706.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Can't Revert (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45683.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45667.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45622.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45609.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45509.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45471.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45386.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45327.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45322.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECA5CA2700311FDF75B44C94BCE062843DB89B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746092   (45302) от 29.08.2024
-
-Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоррор-игра на выживание от третьего лица. Ищите ключевые объекты, решайте головоломки и сталкивайтесь с опасностями, чтобы спастись. Вдохновленная старым Survival Horror, с двумя игровыми персонажами и современной механикой погрузитесь в повествовательную историю про Селену. Женщина, которую похитили и ее единственная цель - выжить, но вскоре она понимает, что существует (   Читать дальше...   )Тип издания: RepackРазработчик: FarelasЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C527A03CE0EDB948E0F85FC9FD265FC0315D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746058   (45297) от 29.08.2024
-
-Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете за Сэмюэля Джаджа, преданного поклонника таинственного конспирологического подкаста «Dark and Deep». Погрузившись в теневой и опасный ландшафт, вы должны выжить... и вы не один. Используйте магические фоторамки, чтобы сражаться со скрытыми существами и открывать важные предметы. Рамки - это окна в страшный мир, но также и инструменты для изгнания тьмы. (   Читать дальше...   )Тип издания: RepackРазработчик: Walter WoodsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181406E554DF2638E775C010A56ACF95379DDA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746037   (45256) от 29.08.2024
-
-Sunny Cafe (2021) [Multi] (1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45256.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сезон дождей, момент, когда мы встретились. Это ты, позволяешь темным облакам, которые окружали меня, рассеиваться и превращаться в солнечные дни. Поэтому это кафе названо в честь солнечных дней, которые тебе нравятся. Оно называется «Sunny Café».Тип издания: LicenseРазработчик: GameNobility 遊戲貴族Жанр: Приключенческие игры, ИндиЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (традиционный, упрощенный), КорейскийЯзык интерфейса: Английский, Китайский (традиционный, упрощенный), Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
 ```
 
 https://mybot314.ru/tekegram_catalog/

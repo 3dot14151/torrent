@@ -1,3 +1,150 @@
+###  Публикация: 972461   (981983) от 06.01.2016
+
+Nostradamus - Testament (2008) [FLAC|Lossless|image + .cue]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarissimo
+02. Troy
+03. Shadow In The Rain
+04. Divine Comedy(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:04:20
+
+Благодарность
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED78566FED9420FCB66F59E8B8214A9E918E032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973164   (980255) от 08.01.2016
+
+Baris Manco - Sozum Meclisten Disari (1981) Remastered, 1999, Akbas Muzic [FLAC|Lossless|image + .cue]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ademoglu Kizgin Firin Havva Kizi Mercimek
+02. Ali Yazar Veli Bozar
+03. Arkadasim Essek
+04. 2025(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743C8FF97C7E176BD64F97CDD67B839D555AC9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973219   (979975) от 08.01.2016
+
+David Bowie - Blackstar (2016) [FLAC|Lossless|tracks + .cue] <Art Rock, Rock>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blackstar
+2. 'Tis a Pity She Was a Whore
+3. Lazarus
+4. Sue (Or In a Season of Crime)(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC2563295882EFE900E9E37CF3B45CE873D47FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973567   (979144) от 09.01.2016
+
+Genesis - ...And Then There Were Three... (1978) SACD, Remastered, 2007 Virgin [FLAC|Lossless|tracks + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down and Out (5:27)
+02. Undertow (4:47)
+03. Ballad of Big (4:50)
+04. Snowbound (4:31)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB34CFAA79CD67550F459FF384082E1A28B04033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356080   (979119) от 30.01.2020
+
+Alina Orlova (Алина Орлова) - Mutabor (2010) переиздание, 2012, Moon Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Širdis
+02. Šilkas
+03. Лихорадка
+04. Stars(   Читать дальше...   )Жанр: Alternative Rock, Acoustic, FolkПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FAD4067F678A754F709A46BF19231CCDF8E8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973239   (979052) от 09.01.2016
 
 Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Rock>
@@ -6,7 +153,7 @@ Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979052.jpg" />
 </div>
 
 
@@ -35,7 +182,7 @@ Rob Balducci - Balance (1995) [FLAC|Lossless|image + .cue]<Instrumental, Guitar 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978183.jpg" />
 </div>
 
 
@@ -64,7 +211,7 @@ No-Man - Love You To Bits (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977951.jpg" />
 </div>
 
 
@@ -91,7 +238,7 @@ Green Miles - Free’N’Alive (2004) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977946.jpg" />
 </div>
 
 
@@ -120,7 +267,7 @@ David Knopfler - Songs for the Sire (2006) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977506.jpg" />
 </div>
 
 
@@ -149,7 +296,7 @@ Electric Light Orchestra - Face The Music (1975) Limited Edition, 1993, Jet Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976909.jpg" />
 </div>
 
 
@@ -178,7 +325,7 @@ Bryan Ferry - Boys And Girls (1985) SACD, Remastered, 2005 Virgin [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976881.jpg" />
 </div>
 
 
@@ -207,7 +354,7 @@ Eric Clapton - 461 Ocean Boulevard (1974) SACD, Remastered, 2004 Polydor [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976879.jpg" />
 </div>
 
 
@@ -236,7 +383,7 @@ The Moody Blues - On The Threshold Of A Dream (1969) SACD, Remastered, 2006 Dera
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976873.jpg" />
 </div>
 
 
@@ -265,7 +412,7 @@ Elton John - Honky Chateau (1972) SACD, Remastered, 2004 Island Records [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976804.jpg" />
 </div>
 
 
@@ -294,7 +441,7 @@ Simple Minds - The Best Of Simple Minds (2001) 2 SACD, Compilation [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976798.jpg" />
 </div>
 
 
@@ -323,7 +470,7 @@ David Bowie - 6 альбомов (1995-2013) Blu-spec CD2 Collection /2013, Sony
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976508.jpg" />
 </div>
 
 
@@ -352,7 +499,7 @@ Chris Rea - The Best of Chris Rea (1994) Compilation, Japanese Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976480.jpg" />
 </div>
 
 
@@ -381,7 +528,7 @@ Eric Burdon (ex-The Animals) - 'Til Your River Runs Dry - (2013) [FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976248.jpg" />
 </div>
 
 
@@ -416,7 +563,7 @@ Phil Collins - 4 Albums (1981-1989) Audio Fidelity Remaster Collection /2010-201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975774.jpg" />
 </div>
 
 
@@ -445,7 +592,7 @@ Sniff 'n' the Tears - Underground (2000) Remastered, 2013, Chapel Productions [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974585.jpg" />
 </div>
 
 
@@ -474,7 +621,7 @@ Paul Roberts (ex.Sniff'n'the Tears) - Kettle Drum Blues (1987) [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974579.jpg" />
 </div>
 
 
@@ -503,7 +650,7 @@ Pugwash - Play This Intimately: As If Among Friends (2015) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973359.jpg" />
 </div>
 
 
@@ -532,7 +679,7 @@ Elton John With Ray Cooper - Live From Moscow (2019) 2CD [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973087.jpg" />
 </div>
 
 
@@ -561,7 +708,7 @@ London Symphony Orchestra - Simply Orchestral Rock (2013) 4CD [FLAC|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972958.jpg" />
 </div>
 
 
@@ -590,7 +737,7 @@ Detlev Schmidtchen (ex.Eloy) - Vanthasia (2013) [FLAC|Lossless|image + .cue]<Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972180.jpg" />
 </div>
 
 
@@ -604,148 +751,6 @@ Detlev Schmidtchen (ex.Eloy) - Vanthasia (2013) [FLAC|Lossless|image + .cue]<Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F20F96C846473EA83334580584C5871C4EDA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975552   (972029) от 15.01.2016
-
-The Moody Blues - In Search Of The Lost Chord (1968) 2CD, Compilation, Remastered, 2006 Deram [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departure (alternate mix) (0:56)
-02. The Best Way to Travel (Additional vocal mix) (4:04)
-03. Legend of a Mind (alternate mix) (6:45)
-04. Visions of Paradise (instrumental version) (4:31)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Symphonic RockПродолжительность: 01:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321A04E53BDF86A19549D62199CFF6351D9B7B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 167673   (971255) от 19.01.2010
-
-Creedence Clearwater Revival - Chronicle [24-karat Gold Disc] (2CD) (1976, 1986) [FLAC (image+.cue)|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975844   (970816) от 16.01.2016
-
-John Paul Jones - Scream For Help (1985) Unofficial Release, 1998,  Oldis [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spaghetti Junction
- 02. Bad Child
- 03. Silver Train
- 04. CrackBack(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400EF06CB6A146E0544FB7F18108B709E47A2476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976130   (969827) от 17.01.2016
-
-Katrina Barclay - Element (2016) [FLAC|Lossless|tracks] <Indie Pop, Blues Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know Better
-02. Explosions in the Sky
-03. Coward
-04. Ifs & Maybes(   Читать дальше...   )Жанр: Indie Pop, Blues Rock, Pop RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35230540EDFF82CE686083B24129CEDD091F0194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358207   (969647) от 07.02.2020
-
-Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fare Thee Well (04:22)
-02. Three Wishes (04:52)
-03. Perdida (03:29)
-04. I Didn't Know the Time (05:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0AC5A77D1C52D979CB9528D3AFB29B892661DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

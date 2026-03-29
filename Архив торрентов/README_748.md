@@ -6,7 +6,7 @@ Glary Utilities Pro 5.69.0.90 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883199.jpg" />
+  <img src="Z:/picture/005/save_picture_883199.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883194.jpg" />
+  <img src="Z:/picture/005/save_picture_883194.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883193.jpg" />
+  <img src="Z:/picture/005/save_picture_883193.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Readiris Corporate 16.0.22 Build 9591 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883178.jpg" />
+  <img src="Z:/picture/005/save_picture_883178.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883160.jpg" />
+  <img src="Z:/picture/005/save_picture_883160.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883130.jpg" />
+  <img src="Z:/picture/005/save_picture_883130.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - True Uplifting (Mixed by Mhammed El Alami) (2016) [MP3|320 кб/с] <Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883108.jpg" />
+  <img src="Z:/picture/008/save_picture_883108.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883100.jpg" />
+  <img src="Z:/picture/005/save_picture_883100.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883097.jpg" />
+  <img src="Z:/picture/005/save_picture_883097.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Forecast Bar 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883087.jpg" />
+  <img src="Z:/picture/005/save_picture_883087.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883085.jpg" />
+  <img src="Z:/picture/005/save_picture_883085.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883070.jpg" />
+  <img src="Z:/picture/005/save_picture_883070.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ SamDrivers 20.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883061.jpg" />
+  <img src="Z:/picture/005/save_picture_883061.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dism++ 10.1.21.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883056.jpg" />
+  <img src="Z:/picture/005/save_picture_883056.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883037.jpg" />
+  <img src="Z:/picture/005/save_picture_883037.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883035.jpg" />
+  <img src="Z:/picture/005/save_picture_883035.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883014.jpg" />
+  <img src="Z:/picture/005/save_picture_883014.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Buzz Launcher 1.9.6.13 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882988.jpg" />
+  <img src="Z:/picture/005/save_picture_882988.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882954.jpg" />
+  <img src="Z:/picture/005/save_picture_882954.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882952.jpg" />
+  <img src="Z:/picture/005/save_picture_882952.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ChronoSync 4.6.6 & Agent 1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882948.jpg" />
+  <img src="Z:/picture/005/save_picture_882948.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882914.jpg" />
+  <img src="Z:/picture/005/save_picture_882914.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Readiris Pro 16.0.2 Build 9592 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882895.jpg" />
+  <img src="Z:/picture/005/save_picture_882895.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Transmission Remote GUI 5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882887.jpg" />
+  <img src="Z:/picture/005/save_picture_882887.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Microsoft Windows and Office ISO Download Tool 4.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882877.jpg" />
+  <img src="Z:/picture/005/save_picture_882877.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ WinRAR 4.00 Beta 7 (x86+x64) [2011, RUS] RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_882870.jpg" />
+  <img src="Z:/picture/008/save_picture_882870.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Aiseesoft Mac Blu-ray Player 6.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735870.jpg" />
+  <img src="Z:/picture/008/save_picture_735870.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Mac FoneTrans 9.1.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735851.jpg" />
+  <img src="Z:/picture/008/save_picture_735851.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CrystalDiskInfo 8.15.0 Beta1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735842.jpg" />
+  <img src="Z:/picture/008/save_picture_735842.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Audiobook Builder 2 v2.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735833.jpg" />
+  <img src="Z:/picture/008/save_picture_735833.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ UltraUXThemePatcher 4.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735807.jpg" />
+  <img src="Z:/picture/008/save_picture_735807.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ KiCad 6.0.1 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735799.jpg" />
+  <img src="Z:/picture/008/save_picture_735799.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows 10 Manager 3.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735797.jpg" />
+  <img src="Z:/picture/008/save_picture_735797.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Vit Registry Fix Pro 14.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735785.jpg" />
+  <img src="Z:/picture/008/save_picture_735785.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WinRAR 6.10 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735762.jpg" />
+  <img src="Z:/picture/008/save_picture_735762.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Privatus 6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735749.jpg" />
+  <img src="Z:/picture/008/save_picture_735749.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735743.jpg" />
+  <img src="Z:/picture/008/save_picture_735743.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adobe InCopy 2020 15.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735742.jpg" />
+  <img src="Z:/picture/008/save_picture_735742.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735740.jpg" />
+  <img src="Z:/picture/008/save_picture_735740.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735738.jpg" />
+  <img src="Z:/picture/008/save_picture_735738.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Boldy James & The Alchemist - The Price Of Tea In China (2020) [FLAC|Lossless|We
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735736.jpg" />
+  <img src="Z:/picture/008/save_picture_735736.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ reaConverter Pro 7.592 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735701.jpg" />
+  <img src="Z:/picture/008/save_picture_735701.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Adobe Audition 2020 13.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735667.jpg" />
+  <img src="Z:/picture/008/save_picture_735667.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Auslogics BoostSpeed Pro 11.5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735628.jpg" />
+  <img src="Z:/picture/008/save_picture_735628.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735626.jpg" />
+  <img src="Z:/picture/008/save_picture_735626.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adobe After Effects 2020 17.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735614.jpg" />
+  <img src="Z:/picture/008/save_picture_735614.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ AIMP 4.70 build 2224 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735588.jpg" />
+  <img src="Z:/picture/008/save_picture_735588.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Adobe InDesign 2020 15.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735586.jpg" />
+  <img src="Z:/picture/008/save_picture_735586.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735570.jpg" />
+  <img src="Z:/picture/008/save_picture_735570.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Zemana AntiMalware Premium 3.2.15 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735546.jpg" />
+  <img src="Z:/picture/008/save_picture_735546.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ IObit Driver Booster Pro 7.6.0.766 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735545.jpg" />
+  <img src="Z:/picture/008/save_picture_735545.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Adobe Illustrator 2020 24.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735534.jpg" />
+  <img src="Z:/picture/008/save_picture_735534.jpg" />
 </div>
 
 

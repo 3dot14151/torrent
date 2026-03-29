@@ -1,3 +1,90 @@
+###  Публикация: 1376761   (857024) от 19.04.2020
+
+Occultus - Cosmos (2002) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyager [01:17]
+02. Luto perpetuo [02:31]
+03. Gloria al Occultismo [06:15]
+04. Chant of the Souls [03:20](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD4F4700131889A4C9A692E2094DA2A3DB7618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376953   (857022) от 19.04.2020
+
+Talamyus - As Long As It Flows... (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Talamyus (01:03)
+02. Hunger (06:38)
+03. Dark Land (04:22)
+04. In The Name Of Blood (05:21)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BF01C83CA6BB1794E4FFF90386602F6BDCC01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498515   (856268) от 27.09.2021
+
+Lethargus - Eclectia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_856268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destino Cruel (07:00)
+02. A Vida o Muerte (05:14)
+03. Quiero Odiarte (07:35)
+04. Estrella Fugaz (07:59)(   Читать дальше...   )Жанр: Heavy Metal, Power Progressive MetalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E466CFE40D004565553AAF6AA90DEA9C339EDEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498448   (856176) от 27.09.2021
 
 Grafvitnir - Death's Wings Widespread (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
@@ -6,7 +93,7 @@ Grafvitnir - Death's Wings Widespread (2020) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856176.jpg" />
+  <img src="Z:/picture/008/save_picture_856176.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Mordred - The Dark Parade (2021) [FLAC|Lossless|image + .cue] <Thrash Metal, Fun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856169.jpg" />
+  <img src="Z:/picture/008/save_picture_856169.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Norhod - Voices From The Ocean (2016) [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855824.jpg" />
+  <img src="Z:/picture/008/save_picture_855824.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Addict - Bang or Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854646.jpg" />
+  <img src="Z:/picture/008/save_picture_854646.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Tremonti - Marching in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854538.jpg" />
+  <img src="Z:/picture/008/save_picture_854538.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ ShadowQuest - Gallows Of Eden (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854534.jpg" />
+  <img src="Z:/picture/008/save_picture_854534.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Carcass - 15 Studio Albums (1987-2021) 17xCD [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854280.jpg" />
+  <img src="Z:/picture/008/save_picture_854280.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Exoto - Beyond The Depths Of Hate (2014) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853871.jpg" />
+  <img src="Z:/picture/008/save_picture_853871.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Carnival In Coal - Fear Not (2001) [FLAC|Lossless|image + .cue] <Metal Fusion>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853870.jpg" />
+  <img src="Z:/picture/008/save_picture_853870.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Abysmal Dawn - Programmed to Consume (2008) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853869.jpg" />
+  <img src="Z:/picture/008/save_picture_853869.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ewiges Reich - Krieg, Hass, Tod (2005) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853868.jpg" />
+  <img src="Z:/picture/008/save_picture_853868.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Hamelyn - Forjando el Camino (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853866.jpg" />
+  <img src="Z:/picture/008/save_picture_853866.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Ascension - The Dead Of The World (2014) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853865.jpg" />
+  <img src="Z:/picture/008/save_picture_853865.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Gra - Necrology of the Witch (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853817.jpg" />
+  <img src="Z:/picture/008/save_picture_853817.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Behexen - Rituale Satanum (2000) Remastered, 2004 [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853816.jpg" />
+  <img src="Z:/picture/008/save_picture_853816.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Immolation - Atonement (2017) [FLAC|lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853804.jpg" />
+  <img src="Z:/picture/008/save_picture_853804.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Desecrator - Summoning (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853012.jpg" />
+  <img src="Z:/picture/008/save_picture_853012.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Baron Carta - Step Into The Plague / In A Concrete Room (2021) 2EP [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852887.jpg" />
+  <img src="Z:/picture/008/save_picture_852887.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Mental Torment - 2 Albums (2013-2021) [FLAC|Lossless|WEB-DL|image + .cue|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852886.jpg" />
+  <img src="Z:/picture/008/save_picture_852886.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Alefla - Unbreakable (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852883.jpg" />
+  <img src="Z:/picture/008/save_picture_852883.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Brainstorm - 7 Studio Albums (2001-2021) 8xCD [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852732.jpg" />
+  <img src="Z:/picture/008/save_picture_852732.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Surturs Lohe - Wielandstahl (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Vik
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852727.jpg" />
+  <img src="Z:/picture/008/save_picture_852727.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Vindictiv - World of Fear (2015) [FLAC|Lossless|tracks] <Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852295.jpg" />
+  <img src="Z:/picture/008/save_picture_852295.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Vindictiv - World of Fear (2015) [FLAC|Lossless|tracks] <Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFA1D89229191F41FDA6666753D14072AF88C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110319   (852266) от 03.03.2017
-
-Ember Falls - Welcome To Ember Falls (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Modern Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cost Of Doing Business (3:41)
-02. Falling Rain (3:07)
-03. Of Letting Go (4:04)
-04. The Enemy You Need (3:35)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3043AD0BB220A9B7FF0FD1F75147FC771DE1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001851   (850567) от 30.03.2016
-
-Death Penalty - Death Penalty (2014) Japanese Edition [FLAC|Lossless|tracks] <Rock, Doom Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grotesque Horizon    00:47
-02. Howling at the Throne of Decadence    05:49
-03. Eyes of the Heretic    05:13
-04. Eyes of the Heretic    05:50(   Читать дальше...   )Жанр: Rock, Doom Metal, Heavy MetalПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2177CC5641EE7E5DA0D00D526A3AFD161FB8FEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111034   (850436) от 04.03.2017
-
-Xentrix - Scourge (1996) Reissued, 2016 [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 13 Years
-02. Scourge
-03. Incite
-04. Caught You Living(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7924E049D9B7B452E3958B62B0EF0467BEFC3731
 ```
 
 https://mybot314.ru/tekegram_catalog/

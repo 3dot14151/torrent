@@ -1,3 +1,90 @@
+###  Публикация: 1376314   (860705) от 17.04.2020
+
+Vermicide Violence - The Praxis of Prophylaxis (2020) [FLAC|Lossless|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exuberant Sputum [00:03:17]
+02. A Dyspneic Frenzy [00:02:58]
+03. Coronaviscerated (feat. Jared Dines) [00:03:38]
+04. West of the Nile [00:02:52](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6054B3533993663D42D7A5E97B5E01A48C2042BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376363   (860701) от 17.04.2020
+
+Crusher - Unleashed (2020) [FLAC|Lossless|tracks] <Melodic Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violence Stays Violent (5:06)
+02. The Others (4:26)
+03. Time-Leap Pit (6:32)
+04. Downfall (6:15)(   Читать дальше...   )Жанр: Melodic Thrash MetalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF240688610CD1758418A5A471932FD41353826F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376393   (860699) от 17.04.2020
+
+Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Tredje Dagen [09:55]
+02. Hyllningen [11:59]
+03. Domd [15:39]
+04. Den Sista Resan [07:00](   Читать дальше...   )Жанр: Doom Metal, Sludge, Space Rock, StonerПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376385   (860697) от 17.04.2020
 
 Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressive Metal>
@@ -6,7 +93,7 @@ Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860697.jpg" />
+  <img src="Z:/picture/008/save_picture_860697.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Cadaver - D.G.A.F. (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860695.jpg" />
+  <img src="Z:/picture/008/save_picture_860695.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ Aborted - La Grande Mascarade (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860694.jpg" />
+  <img src="Z:/picture/008/save_picture_860694.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ Ignea (ex-Parallax) - The Realms of Fire and Death (2020) [FLAC|Lossless|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860493.jpg" />
+  <img src="Z:/picture/008/save_picture_860493.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ White Stones - Kuarahy (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859897.jpg" />
+  <img src="Z:/picture/008/save_picture_859897.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Stagewar - Danger To Ourselves (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859895.jpg" />
+  <img src="Z:/picture/008/save_picture_859895.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Rivers Of Nihil - The Work (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859894.jpg" />
+  <img src="Z:/picture/008/save_picture_859894.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Thy Row - Unchained (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859893.jpg" />
+  <img src="Z:/picture/008/save_picture_859893.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Tentation - Le berceau des dieux (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859892.jpg" />
+  <img src="Z:/picture/008/save_picture_859892.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ A Pale Horse Named Death - Infernum In Terra (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859891.jpg" />
+  <img src="Z:/picture/008/save_picture_859891.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Rebel's End - Sing To The Devil (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859890.jpg" />
+  <img src="Z:/picture/008/save_picture_859890.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Dream Ocean - The Missing Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859777.jpg" />
+  <img src="Z:/picture/008/save_picture_859777.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Second Reign - Gravity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859536.jpg" />
+  <img src="Z:/picture/008/save_picture_859536.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858926.jpg" />
+  <img src="Z:/picture/008/save_picture_858926.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Virial - Transhumanism (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858185.jpg" />
+  <img src="Z:/picture/008/save_picture_858185.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Brainstorm - Wall Of Skulls (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858071.jpg" />
+  <img src="Z:/picture/008/save_picture_858071.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Rhapsody of Fire - I'll Be Your Hero (2021) EP [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858064.jpg" />
+  <img src="Z:/picture/008/save_picture_858064.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Nanowar Of Steel - Italian Folk Metal (2021) [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858063.jpg" />
+  <img src="Z:/picture/008/save_picture_858063.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ Dream Theater - Lost Not Forgotten Archives: A Dramatic Tour Of Events – Selec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857809.jpg" />
+  <img src="Z:/picture/008/save_picture_857809.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Gloria Morti - Kuebiko (2016) [FLAC|Lossless|image + .cue] <Melodic Death, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857644.jpg" />
+  <img src="Z:/picture/008/save_picture_857644.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Draugnim - Vulturine (2016) [FLAC|Lossless|image + .cue] <Epic Pagan Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857640.jpg" />
+  <img src="Z:/picture/008/save_picture_857640.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Cirith Gorgor - Visions of Exalted Lucifer (2016) 2CD Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857572.jpg" />
+  <img src="Z:/picture/008/save_picture_857572.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Amon Amarth - Jomsviking (2016) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857256.jpg" />
+  <img src="Z:/picture/008/save_picture_857256.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Amon Amarth - Jomsviking (2016) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A40BC48807177B85FA325A1B56460296649C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376761   (857024) от 19.04.2020
-
-Occultus - Cosmos (2002) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyager [01:17]
-02. Luto perpetuo [02:31]
-03. Gloria al Occultismo [06:15]
-04. Chant of the Souls [03:20](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD4F4700131889A4C9A692E2094DA2A3DB7618E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376953   (857022) от 19.04.2020
-
-Talamyus - As Long As It Flows... (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Talamyus (01:03)
-02. Hunger (06:38)
-03. Dark Land (04:22)
-04. In The Name Of Blood (05:21)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BF01C83CA6BB1794E4FFF90386602F6BDCC01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498515   (856268) от 27.09.2021
-
-Lethargus - Eclectia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destino Cruel (07:00)
-02. A Vida o Muerte (05:14)
-03. Quiero Odiarte (07:35)
-04. Estrella Fugaz (07:59)(   Читать дальше...   )Жанр: Heavy Metal, Power Progressive MetalПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E466CFE40D004565553AAF6AA90DEA9C339EDEE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

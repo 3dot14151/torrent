@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776532.jpg" />
+  <img src="Z:/picture/008/save_picture_776532.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anvir Task Manager 8.0.3 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776531.jpg" />
+  <img src="Z:/picture/008/save_picture_776531.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776527.jpg" />
+  <img src="Z:/picture/008/save_picture_776527.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776525.jpg" />
+  <img src="Z:/picture/008/save_picture_776525.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776521.jpg" />
+  <img src="Z:/picture/008/save_picture_776521.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Anvir Task Manager 8.0.3 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776519.jpg" />
+  <img src="Z:/picture/008/save_picture_776519.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ iSoftPhone Pro 4.0128 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776517.jpg" />
+  <img src="Z:/picture/008/save_picture_776517.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Zinovia Arvanitidi - Fluttering (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|trac
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776515.jpg" />
+  <img src="Z:/picture/008/save_picture_776515.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776507.jpg" />
+  <img src="Z:/picture/008/save_picture_776507.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776496.jpg" />
+  <img src="Z:/picture/008/save_picture_776496.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776493.jpg" />
+  <img src="Z:/picture/008/save_picture_776493.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Easy Disc Burner 4.7.9.351 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776492.jpg" />
+  <img src="Z:/picture/008/save_picture_776492.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776489.jpg" />
+  <img src="Z:/picture/008/save_picture_776489.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Firetask - Project-oriented GTD Task Management 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776485.jpg" />
+  <img src="Z:/picture/008/save_picture_776485.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ DJ Quicksilver - DJ At Work Vol. 1 (1997) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776483.jpg" />
+  <img src="Z:/picture/008/save_picture_776483.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776478.jpg" />
+  <img src="Z:/picture/008/save_picture_776478.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ TagScanner 6.0.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776474.jpg" />
+  <img src="Z:/picture/008/save_picture_776474.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ WinSnap 4.6.1 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776462.jpg" />
+  <img src="Z:/picture/008/save_picture_776462.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Training Day, Vol. 1 (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776461.jpg" />
+  <img src="Z:/picture/008/save_picture_776461.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Lacuna Coil - The House Of Shame / Delirium (2016) EP [MP3|320 кб/с] <Gothic 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776456.jpg" />
+  <img src="Z:/picture/008/save_picture_776456.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776454.jpg" />
+  <img src="Z:/picture/008/save_picture_776454.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776453.jpg" />
+  <img src="Z:/picture/008/save_picture_776453.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Alternate File Shredder 1.870 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776451.jpg" />
+  <img src="Z:/picture/008/save_picture_776451.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776450.jpg" />
+  <img src="Z:/picture/008/save_picture_776450.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Q-Dir 6.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776442.jpg" />
+  <img src="Z:/picture/008/save_picture_776442.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Anvir Task Manager 8.0.2 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776441.jpg" />
+  <img src="Z:/picture/008/save_picture_776441.jpg" />
 </div>
 
 

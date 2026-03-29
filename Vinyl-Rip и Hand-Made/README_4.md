@@ -1,3 +1,236 @@
+###  Публикация: 1441372   (1037096) от 23.01.2021
+
+Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037096.jpg" />
+</div>
+
+
+###  Подробнее
+
+-A1 Trapper Man
+-A2 Back On The Dance Floor
+-A3 Nobody's Child
+(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58592041013DB29AC5E67E57DE0393A99BF0E287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615941   (1037002) от 28.02.2023
+
+Dolly Roll - Dolly Roll/Happy Coctail (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037002.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Link A Lany
+A2 Csodalatos Kama Szutra
+A3 Florida Expressz
+A4 Szombatesti Szivtipro(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B531F24191ECDCC901C567BAAC7E3139A07AB739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615897   (1036974) от 28.02.2023
+
+The Verve - Studio Albums (4 releases) (1993-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Britpop, Alternative rock, Neo-psychedelia>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036974.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Verve — британская рок-группа, образованная в 1990 году в Уигане, Большой Манчестер, Англия.1993 - A Storm In Heaven
+1995 - A Northern Soul
+1997 - Urban Hymns
+2008 - ForthЖанр: Britpop, Alternative rock, Neo-psychedeliaПродолжительность: 10:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7786679D3A83B3BCD4A4E9ABA6283C0D5148E3DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615765   (1036917) от 28.02.2023
+
+Квартет Аккорд - Песня О Беспризорном Мальчишке (1974) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня О Беспризорном Мальчишке Из К-ф «Генералы Песчаных Карьеров»
+(Л. Оливейр – русский текст Ю. Цейтлина)
+02. Уйди Сама
+(Д. Джандиэри – И. Кашежева)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C3B4CC76A76978711873EEC5BDD1DE5B869C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616139   (1036717) от 01.03.2023
+
+VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036717.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 В. Бельченко - Признаюсь Я
+А2 Ж. Рождественская – Свет В Окне
+А3 О. Пирагс – Летние Каникулы
+А4 К. Георгиади - Судьба Моя(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616292   (1036682) от 01.03.2023
+
+Dimmu Borgir - Studio Albums (13 releases) (1994-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dimmu Borgir — норвежская группа, играющая в жанре симфонический блэк-метал, образованная в 1993 году. Одна из немногих блэк-метал-групп, достигших серьёзного коммерческого успеха и популярности за пределами поклонников этого жанра.1994 - For All Tid
+1996 - Devil's Path
+1996 - Stormblast
+1997 - Enthrone Darkness Triumphant(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 12:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C81AE2EDE65045BCCE29CDD0DCBF27DE29C0A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618090   (1034398) от 10.03.2023
+
+KYPCK - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034398.jpg" />
+</div>
+
+
+###  Подробнее
+
+KYPCK — финская концептуальная дум-метал-группа, основанная в январе 2007 года.
+Группа известна тем, что исполняет песни на русском языке. Автором текстов является вокалист группы Эркки Сеппянен, лингвист по образованию, который изучал русский язык и литературу, работал в Москве.2008 - Черно
+2011 - Ниже
+2014 - Имена на стене
+2016 - 3epoЖанр: Doom MetalПродолжительность: 03:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FBD0E897F2FA12073D5FEA9203D1DE88BDDD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618344   (1034132) от 11.03.2023
+
+Владимир Пресняков - Папа, Ты Сам Был Таким (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034132.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Недотрога
+А2 Папа, Ты Сам Был Таким
+А3 Белый Снег
+А4 Бабушка(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C2D944B9DAA233782085AFCF9DB5A7BC4EEE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208528   (1034040) от 11.03.2023
 
 VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
@@ -6,7 +239,7 @@ VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034040.jpg" />
 </div>
 
 
@@ -35,7 +268,7 @@ Wisdom - Studio Albums (5 releases) (2004-2016) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033680.jpg" />
 </div>
 
 
@@ -64,7 +297,7 @@ VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032997.jpg" />
 </div>
 
 
@@ -93,7 +326,7 @@ MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032970.jpg" />
 </div>
 
 
@@ -122,7 +355,7 @@ Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031642.jpg" />
 </div>
 
 
@@ -151,7 +384,7 @@ Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030764.jpg" />
 </div>
 
 
@@ -180,7 +413,7 @@ Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030295.jpg" />
 </div>
 
 
@@ -209,7 +442,7 @@ Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029090.jpg" />
 </div>
 
 
@@ -238,7 +471,7 @@ Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028846.jpg" />
 </div>
 
 
@@ -267,7 +500,7 @@ Tango - Electric Ball (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028743.jpg" />
 </div>
 
 
@@ -296,7 +529,7 @@ Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025347.jpg" />
 </div>
 
 
@@ -322,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021778.jpg" />
 </div>
 
 
@@ -351,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021712.jpg" />
 </div>
 
 
@@ -380,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021607.jpg" />
 </div>
 
 
@@ -409,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021538.jpg" />
 </div>
 
 
@@ -438,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020248.jpg" />
 </div>
 
 
@@ -467,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020216.jpg" />
 </div>
 
 
@@ -496,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019903.jpg" />
 </div>
 
 
@@ -510,233 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464927   (1019454) от 24.04.2021
-
-Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019454.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In A Groovy Kind Of Way
-A2 1000000 Miles
-A3 Six String Street
-A4 Freeze-out(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477469   (1010961) от 15.06.2021
-
-Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.0|96/24|tracks|Vinyl] <Dubstep, UK Garage>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saw, Sine, Square (07:00)
- 02. Voices From The Night (05:11)Жанр: Dubstep, UK GarageПродолжительность: 00:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4EA71509EE4AD523827D514A747D8E284248C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478367   (1010281) от 19.06.2021
-
-Хелен Меррилл/Helen Merrill - Песни Р. Роджерса и О. Хаммерштейна (1985) Запись 1982 г. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010281.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Словно Весной = It Might As Well Be Spring
-A2 Привет, Юные Влюбленные! = Hello Young Lovers
-A3 Я Мечтала = I Have Dreamed
-A4 Люди Скажут, Что Мы Влюблены = People Will Say We're In Love(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F12E1FE17E559E2B0A036339AC8F848B74453F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613145   (1009893) от 21.06.2021
-
-Кино (Виктор Цой) - Группа Крови [Groupa Kroovy (Blood Type)] (1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009893.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blood Type 4:45
-A2. Shut the Door Behind Me 4:17
-A3. War 4:04
-A4. Good Night 6:08(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF43C2C09D2D5DE4AE1B6045BDB9D3DD1740964C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478810   (1009773) от 22.06.2021
-
-Jean-Michel Jarre - Oxygene 3 (2016), Europe [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009773.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Oxygene (Part 14)
-A2 Oxygene (Part 15)
-A3 Oxygene (Part 16)
-B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482784   (1007305) от 10.07.2021
-
-Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007305.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Enchanted Mill
-A2 If You Wish
-A3 Return
-A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488224   (1001742) от 12.08.2021
-
-Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist
-A1 I'll Find My Way Home
-A2 Italian Song
-A3 And When The Night Comes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600572   (998808) от 08.01.2013
-
-Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

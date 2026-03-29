@@ -1,3 +1,90 @@
+###  Публикация: 1398948   (734868) от 28.07.2020
+
+Borknagar - Origin (2006) [FLAC|Lossless|image + .cue] <Avantgarde, Folk Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Imagery (04:52)
+02. Grains (03:42)
+03. Oceans Rise (06:05)
+04. Signs (01:17)(   Читать дальше...   )Жанр: Avantgarde, Folk Metal, Black MetalПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89693F047403E54040664AB9EDE27A99642874E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398812   (734860) от 28.07.2020
+
+Eluveitie - Helvetios (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (01:25)
+02. Helvetios (04:01)
+03. Luxtos (03:56)
+04. Home (05:17)(   Читать дальше...   )Жанр: Melodic Death Metal, FolkПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC24AD642798CD35F81DAEB8A2D22FD67CECF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399136   (734382) от 29.07.2020
+
+Longing for Dawn - Between Elation and Despair (2009) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Symbolic Burial (15:19)
+02. A Sunrise At Your Feet (11:01)
+03. Reflective (09:35)
+04. The Piscean Dawn (16:23)Жанр: Funeral Doom, Death MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD8CCBFFFAF923770B817BDC898264FF5160FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399076   (734351) от 29.07.2020
 
 Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
@@ -6,7 +93,7 @@ Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734351.jpg" />
+  <img src="Z:/picture/008/save_picture_734351.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Martriden - The Unsettling Dark (2008) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734346.jpg" />
+  <img src="Z:/picture/008/save_picture_734346.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Saxon - Carpe Diem (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734010.jpg" />
+  <img src="Z:/picture/008/save_picture_734010.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Mastifal - Intermundia (2010) [APE|Lossless|image + .cue] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733469.jpg" />
+  <img src="Z:/picture/005/save_picture_733469.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Saints Everlasting Rest - The Dusk Of Millennium (2005) [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733466.jpg" />
+  <img src="Z:/picture/005/save_picture_733466.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Celtic Frost - Vanity/Nemesis (1990) (1-st US pressing) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733446.jpg" />
+  <img src="Z:/picture/008/save_picture_733446.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Metal Priest - Bursting Out (The Beast Became Human)/Get It Now (2006) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733443.jpg" />
+  <img src="Z:/picture/008/save_picture_733443.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732971.jpg" />
+  <img src="Z:/picture/008/save_picture_732971.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ The Ferrymen - One More River To Cross (2022) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732567.jpg" />
+  <img src="Z:/picture/008/save_picture_732567.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Symphony X - 10 Albums (1994 - 2015) 13 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732479.jpg" />
+  <img src="Z:/picture/008/save_picture_732479.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Nagelfar - Als die Tore sich öffnen... / Jagd (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732230.jpg" />
+  <img src="Z:/picture/008/save_picture_732230.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Chronosphere - Red N' Roll (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732224.jpg" />
+  <img src="Z:/picture/008/save_picture_732224.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Emerald Edge - Surreal (2017) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732222.jpg" />
+  <img src="Z:/picture/008/save_picture_732222.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Arcania - Sweet Angel Dust (2010) [FLAC|Lossless|image + .cue] <Melodic Death, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731118.jpg" />
+  <img src="Z:/picture/008/save_picture_731118.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Veiled In Scarlet - Reborn (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731110.jpg" />
+  <img src="Z:/picture/008/save_picture_731110.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Lacuna Coil - Delirium (2016) Limited Edition [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730366.jpg" />
+  <img src="Z:/picture/008/save_picture_730366.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730100.jpg" />
+  <img src="Z:/picture/008/save_picture_730100.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730082.jpg" />
+  <img src="Z:/picture/008/save_picture_730082.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Labyrinth - Architecture Of A God (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730072.jpg" />
+  <img src="Z:/picture/008/save_picture_730072.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Brymir - Slayer of Gods (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729761.jpg" />
+  <img src="Z:/picture/008/save_picture_729761.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Woe Unto Me - Spiral-Shaped Hopewreck (2021) EP [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729026.jpg" />
+  <img src="Z:/picture/008/save_picture_729026.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Eternity's End - The Fire Within (2016) Japanese EdItion [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729003.jpg" />
+  <img src="Z:/picture/008/save_picture_729003.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Withem - The Unforgiving Road (2016) Japanese EdItion [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729000.jpg" />
+  <img src="Z:/picture/008/save_picture_729000.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Withem - The Unforgiving Road (2016) Japanese EdItion [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C524C515D6E7CF02B2D3B0E7FCF73BFB01BDCCCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022507   (728994) от 02.06.2016
-
-Iron Savior - Titancraft (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Siege (Intro)
-02. Titancraft
-03. Way of the Blade
-04. Seize the Day(   Читать дальше...   )Жанр: Speed Metal, Power MetalПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1726C954D0ADC862E937A9BB4C5606F2E89A46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284357   (728959) от 21.02.2019
-
-A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|tracks + .cue] <Stoner, Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As It Begins (01:44)
-02. When the World Becomes Undone (06:37)
-03. Love the Ones You Hate (03:56)
-04. Fell in My Hole (05:54)(   Читать дальше...   )Жанр: Stoner, Gothic, Doom MetalПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1375E193636E6C3FB64E6DD921EE5F9E517602A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128222   (728873) от 24.04.2017
-
-Aes Dana - La Chasse Sauvage (2001) [FLAC|Lossless|image + .cue] <Celtic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Chasse Sauvage 04:24
-02. La Dernière Marche 03:45
-03. Anwynn 05:25
-04. Les Complaintes De Nemon 03:21(   Читать дальше...   )Жанр: Celtic Black MetalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB8471779AAEEB9C1A993169C9E8FF5CE9BE67C
 ```
 
 https://mybot314.ru/tekegram_catalog/

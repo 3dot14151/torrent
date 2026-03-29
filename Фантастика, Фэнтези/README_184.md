@@ -1,3 +1,55 @@
+###  Публикация: 1330065   (345620) от 08.10.2019
+
+Исай Давыдов | Девушка из Пантикапея [Cборник] (1966) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гигантский болид приближается к Земле и грозит вызвать глобальную катастрофу. Для уничтожения этого болида с Земли поднимаются сотни ядерных ракет, но для наведения их на цель нужен человек. Этим человеком становится советский космонавт Фёдор Веселов...Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE1704CD5963238496EB471A97C92CE44EC896B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330062   (345619) от 08.10.2019
+
+Коллектив авторов | Вас зовут «Четверть третьего»? [Cборник] (1965) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два друга путешествуют по Крыму. Ночью сидя у костра замечают в небе Неопознанный Летающий Обьект. Через некоторое время к костру выходит девушка, говорящая только на латыни. Друзья с трудом понимают её. Девушка рассказывает о своём прошлом и своих необычных странствиях....Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777C7801D978BD673D7D92511FFB798D65ADD32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330154   (345617) от 08.10.2019
 
 Михаил Немченко, Лариса  Немченко | Летящие к братьям [Cборник] (1964) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345617.jpg" />
+  <img src="Z:/picture/008/save_picture_345617.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345611.jpg" />
+  <img src="Z:/picture/008/save_picture_345611.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345605.jpg" />
+  <img src="Z:/picture/008/save_picture_345605.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345499.jpg" />
+  <img src="Z:/picture/008/save_picture_345499.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345494.jpg" />
+  <img src="Z:/picture/008/save_picture_345494.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345487.jpg" />
+  <img src="Z:/picture/008/save_picture_345487.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345456.jpg" />
+  <img src="Z:/picture/008/save_picture_345456.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345429.jpg" />
+  <img src="Z:/picture/008/save_picture_345429.jpg" />
 </div>
 
 
@@ -228,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345371.jpg" />
+  <img src="Z:/picture/008/save_picture_345371.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345356.jpg" />
+  <img src="Z:/picture/008/save_picture_345356.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345153.jpg" />
+  <img src="Z:/picture/008/save_picture_345153.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344785.jpg" />
+  <img src="Z:/picture/008/save_picture_344785.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344509.jpg" />
+  <img src="Z:/picture/008/save_picture_344509.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344370.jpg" />
+  <img src="Z:/picture/008/save_picture_344370.jpg" />
 </div>
 
 
@@ -391,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344333.jpg" />
+  <img src="Z:/picture/008/save_picture_344333.jpg" />
 </div>
 
 
@@ -418,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344227.jpg" />
+  <img src="Z:/picture/008/save_picture_344227.jpg" />
 </div>
 
 
@@ -446,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344134.jpg" />
+  <img src="Z:/picture/008/save_picture_344134.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344119.jpg" />
+  <img src="Z:/picture/008/save_picture_344119.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344072.jpg" />
+  <img src="Z:/picture/008/save_picture_344072.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344065.jpg" />
+  <img src="Z:/picture/008/save_picture_344065.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343927.jpg" />
+  <img src="Z:/picture/008/save_picture_343927.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343918.jpg" />
+  <img src="Z:/picture/008/save_picture_343918.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343814.jpg" />
+  <img src="Z:/picture/008/save_picture_343814.jpg" />
 </div>
 
 
@@ -638,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343569.jpg" />
+  <img src="Z:/picture/008/save_picture_343569.jpg" />
 </div>
 
 
@@ -649,60 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0417DB2E4A409661E7D84A3786594DA7969A5939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330189   (343560) от 09.10.2019
-
-Анатоль Франс | Восстание ангелов (1937) [DJVU]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Восстание ангелов", изданный в 1914 году, описывает захват небес падшими ангелами. Согласно творческому замыслу автора, ангельский бунт имел место в этом же самом 1914 году. Анатоль Франс как бы предвосхитил начало величайших катаклизмов, когда для них не было видно никакого повода, и приурочил апокалиптическую драму на небесах к казалось бы рядовому (   Читать дальше...   )Жанр: История, политология, прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA574787EB3BB4616E2D7989359DB17A7FD2AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330169   (343555) от 09.10.2019
-
-Валентина Журавлева | Снежный мост над пропастью [сборник] (1971) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли лучшие рассказы Валентины Журавлёвой, среди которых особое место занимают истории о психологе Кире Сафрай, составившие впоследствии отдельный цикл рассказов.
-
-Первая встреча читателя с молодой студенткой-психологом Кирой Сафрай и её подругой, студенткой-физиком Настей. Талант психолога ещё в школе помог Кире разбудить в подруге научное воображение (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BFF07A6472C26500C81B3F67F7B859EA603887
 ```
 
 https://mybot314.ru/tekegram_catalog/

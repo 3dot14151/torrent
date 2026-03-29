@@ -6,7 +6,7 @@ Edlan - Lone Pine (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705392.jpg" />
+  <img src="Z:/picture/008/save_picture_705392.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705374.jpg" />
+  <img src="Z:/picture/008/save_picture_705374.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705373.jpg" />
+  <img src="Z:/picture/008/save_picture_705373.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ MaxSnap 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705371.jpg" />
+  <img src="Z:/picture/008/save_picture_705371.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duplicate Photos Fixer Pro 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705370.jpg" />
+  <img src="Z:/picture/008/save_picture_705370.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wondershare AllMyTube 7.3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705368.jpg" />
+  <img src="Z:/picture/008/save_picture_705368.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Internet Status 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705367.jpg" />
+  <img src="Z:/picture/008/save_picture_705367.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ URL Extractor 4 v 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705366.jpg" />
+  <img src="Z:/picture/008/save_picture_705366.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ FileZilla 3.41.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705361.jpg" />
+  <img src="Z:/picture/008/save_picture_705361.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Czarface & Ghostface Killah - Czarface Meets Ghostface (2019) Deluxe Edition, Li
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705359.jpg" />
+  <img src="Z:/picture/008/save_picture_705359.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ KinoScreen 1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705320.jpg" />
+  <img src="Z:/picture/008/save_picture_705320.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ WinToUSB Technician 5.6 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705308.jpg" />
+  <img src="Z:/picture/008/save_picture_705308.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Angry Birds в кино / Angry Birds (2016) TC [H.264/720p]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705276.jpg" />
+  <img src="Z:/picture/008/save_picture_705276.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Ibiza Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705225.jpg" />
+  <img src="Z:/picture/008/save_picture_705225.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705220.jpg" />
+  <img src="Z:/picture/008/save_picture_705220.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705218.jpg" />
+  <img src="Z:/picture/008/save_picture_705218.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705216.jpg" />
+  <img src="Z:/picture/008/save_picture_705216.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Progressive & Psy Trance Pieces Vol.18 (2017) [MP3|320 Kbps] <Psy-Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705215.jpg" />
+  <img src="Z:/picture/008/save_picture_705215.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705214.jpg" />
+  <img src="Z:/picture/008/save_picture_705214.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705213.jpg" />
+  <img src="Z:/picture/008/save_picture_705213.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ UNKLE - The Road: Part II / Lost Highway (2019) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705205.jpg" />
+  <img src="Z:/picture/008/save_picture_705205.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mp3tag 2.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705204.jpg" />
+  <img src="Z:/picture/008/save_picture_705204.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Master PDF Editor 5.3.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705201.jpg" />
+  <img src="Z:/picture/008/save_picture_705201.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Transmit 5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705200.jpg" />
+  <img src="Z:/picture/008/save_picture_705200.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Acoustica Premium Edition 7.1.15 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705196.jpg" />
+  <img src="Z:/picture/008/save_picture_705196.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Total Video Converter Pro 4.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705194.jpg" />
+  <img src="Z:/picture/008/save_picture_705194.jpg" />
 </div>
 
 

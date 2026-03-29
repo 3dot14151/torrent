@@ -1,3 +1,83 @@
+###  Публикация: 1221235   (696639) от 23.04.2018
+
+Amazing Any Data Recovery 8.8.8.9 RePack by вовава [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amazing Any Data Recovery гарантирует безопасное, быстрое и полное восстановление данных без потерь. Это надежное программное обеспечение для восстановления данных станет вашим лучшим помощником.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C2F5596CA0ED12C2357E00F96D89813EEABED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221807   (691049) от 26.04.2018
+
+iCare Data Recovery Pro 8.1.4 RePack by вовава [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_691049.jpg" />
+</div>
+
+
+###  Подробнее
+
+iCare Data Recovery Pro - программа для восстановления удаленных и отформатированных файлов. Утилита идеально работает с RAID-массивами и жесткими дисками, USB-носителями данных, SD-картами, картами памяти и т.д. Программа предоставляет комплексное восстановление данных для пользователей компьютеров.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEF1EC5C333EE92BFFE9D9FA0313440DC2EB316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403542   (690326) от 20.08.2020
+
+Magic Photo Recovery 4.9 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление цифровых изображений и RAW-файлов со всех типов носителей информации. Отформатировали карту памяти фотоаппарата или удалили цифровые изображения с жесткого диска? Magic Photo Recovery поможет быстро и легко восстановить любые удаленные фотографии всего несколькими нажатиями.
+Магическое восстановление изображений
+Новое программное обеспечение для восстановления (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282F8CBF8BE4492831BA0BAC629F23CE5E06D2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403691   (688314) от 21.08.2020
 
 Magic FAT Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
@@ -6,7 +86,7 @@ Magic FAT Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688314.jpg" />
+  <img src="Z:/picture/008/save_picture_688314.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Magic Word Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686182.jpg" />
+  <img src="Z:/picture/008/save_picture_686182.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Magic Excel Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686174.jpg" />
+  <img src="Z:/picture/008/save_picture_686174.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ Magic NTFS Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686044.jpg" />
+  <img src="Z:/picture/008/save_picture_686044.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ Tenorshare Any Data Recovery Pro 6.4.0 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684676.jpg" />
+  <img src="Z:/picture/008/save_picture_684676.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677911.jpg" />
+  <img src="Z:/picture/008/save_picture_677911.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677006.jpg" />
+  <img src="Z:/picture/008/save_picture_677006.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ MiniTool ShadowMaker Pro 3.1.1.2 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673942.jpg" />
+  <img src="Z:/picture/008/save_picture_673942.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ O&O DiskImage Professional + Workstation + Server Edition 14.0 Build 321 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650251.jpg" />
+  <img src="Z:/picture/008/save_picture_650251.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ DiskDigger 1.20.12.2767 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644695.jpg" />
+  <img src="Z:/picture/008/save_picture_644695.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ Rollback Rx Professional 10.3.Build.2700482570 RePack by Kindly [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641138.jpg" />
+  <img src="Z:/picture/008/save_picture_641138.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ DATALABS unCHK free 1.0 Portable [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631265.jpg" />
+  <img src="Z:/picture/008/save_picture_631265.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ Acronis True Image 2017 New Generation 21.0.6209 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624998.jpg" />
+  <img src="Z:/picture/008/save_picture_624998.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ Acronis True Image 2017 20.0.8058 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622999.jpg" />
+  <img src="Z:/picture/008/save_picture_622999.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ Acronis True Image 2017 New Generation 21.0.6209 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621219.jpg" />
+  <img src="Z:/picture/008/save_picture_621219.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ Handy Recovery v5.5 Final + Portable [2012,x86/x64,Eng]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612499.jpg" />
+  <img src="Z:/picture/005/save_picture_612499.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ FileRestorePlus 3.0.19.415 RePack (& Portable) by TryRooM [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606441.jpg" />
+  <img src="Z:/picture/008/save_picture_606441.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ R-Studio Technician 9.0 Build 190312 RePack (& portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603868.jpg" />
+  <img src="Z:/picture/008/save_picture_603868.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ Acronis Snap Deploy 5.0.1924 + BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602575.jpg" />
+  <img src="Z:/picture/008/save_picture_602575.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ CloneApp 1.04.340 Portable [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594337.jpg" />
+  <img src="Z:/picture/008/save_picture_594337.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ Stellar Phoenix Excel Repair 5.5.0.0 RePack by KaktusTV [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583119.jpg" />
+  <img src="Z:/picture/008/save_picture_583119.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ TeraByte Unlimited Image for Windows 2.97а [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582560.jpg" />
+  <img src="Z:/picture/008/save_picture_582560.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ Acronis True Image 2015 18.0 Build 6613 + Media Add-ons [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581651.jpg" />
+  <img src="Z:/picture/008/save_picture_581651.jpg" />
 </div>
 
 
@@ -598,85 +678,6 @@ Acronis True Image — это интегрированный пакет прог
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEFE559AF9235B165BC41F61BFDDEE46CE184458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923255   (564144) от 31.07.2015
-
-R-Undelete 4.9 Build 159222 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564144.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Undelete — мощная утилита для восстановления удаленных или поврежденных файлов в файловых системах FAT, NTFS, NTFS5 и Ext2FS. Программа может обрабатывать целиком любые логические диски, видимые из операционной системы, практически со 100-процентной вероятностью восстанавливать файлы, удаленные в результате вирусной атаки или отключения питания ПК, умеет работать (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398F0EA9739193F6E0F47D66600D5D3038576289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308051   (554343) от 12.06.2019
-
-Apeaksoft Data Recovery 1.1.16 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft Data Recovery это программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные и потерянные файлы, такие как документы, фотографии, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E9DB13977D3C07D9EE01F0E5F02EE523234F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310040   (548303) от 22.06.2019
-
-Laplink PCmover Professional 11.01.1009.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laplink Software PCmover – это программа, которая поможет Вам с переносом данных со старого компьютера на новый. Этот инструмент делает возможным перенос всех программ со старого компьютера, а также файлов и настроек на новый ПК. Для этого вам нужно установить PCmover Professional на оба компьютера и использовать специальный мастер для переноса.
-После установки PCmover (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92F48178E681DE42C5BCE4495C018F8F1894DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

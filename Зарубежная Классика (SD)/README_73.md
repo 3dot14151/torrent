@@ -1,3 +1,82 @@
+###  Публикация: 937494   (470812) от 23.09.2015
+
+Черный Джек / Black Jack (1979) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного романа английского писателя Леона Гарфилда, признанного мастера приключенческих романов. Англия, Йоркшир, середина XVIII века. Миссис Горганди была профессиональной безутешной вдовой - вдовой Тайбернской виселицы. Поскорбев над очередным повешенным и приняв в качестве утешения скромную денежную помощь от сердобольных зрителей, миссис Горганди (   Читать дальше...   )Производство: ВеликобританияЖанр: Комедия, приключения, экранизацияРежиссер: Кен ЛоучАктеры: Стефен Хирст, Луиз Купер, Жан Франваль, Фил Аскэм, Пэт Уоллис, Джон Янг, Уильям Мур, Дорин Мэнтл, Расселл Уотерс, Брайан Хоуксли, Майкл Хинчклифф, Джойс Смит, Малкольм Диксон, Майк Эдмондс, Дэвид Раппапорт, Тайни Росс, Артур Дейвис, Цилла Мэйсон, Мэри Рэй, Брайан Льюис, Дейв Дэниэлс, Патти Николлс, Тед Бейер, Гари Робертс, Джеки ШиннПеревод: Любительский одноголосый (А. Каптелов)Продолжительность: 01:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE35B7A0863432AA7AD794FAEA30EC6D18DB9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723153   (470425) от 05.09.2020
+
+Тайна Эйфелевой башни / Le Mystere De La Tour Eiffel (1927) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что будет, если смешать разные жанры, взять совершенно невероятную историю и добавить немного самоиронии? В истории кино было достаточно фильмов, созданных по этому рецепту, но это один из первых. Двое очень похожих друг на друга мужчин изображают в цирке сиамских близнецов. (Тон фильму задаёт сцена, когда на глазах у публики один из "близнецов", зазевавшись, (   Читать дальше...   )Производство: ФранцияЖанр: Приключения, комедия, триллерРежиссер: Жюльен ДювивьеАктеры: Трамель, Реджин Буайе, Гастон Жаке, Джимми ГэлларПеревод: НемойСубтитры: Русские, отдельным файломПродолжительность: 02:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7D92E0A2999E5922B62B9B9A0DFD881901E15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160696   (470144) от 05.09.2020
+
+Полуночный ковбой / Midnight Cowboy (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Бак, жизнерадостный и наивный парень из крохотного техасского городка, направляется в Нью-Йорк, чтобы использовать свои незаурядные сексуальные способности для удовлетворения потребностей богатых женщин за плату. Но дела у него идут не слишком хорошо, и вскоре уличный бомж-туберкулезник Риццо убеждает Джо, что ему необходим менеджер.
+Первая американская картина (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Джон ШлезингерАктеры: Дастин Хоффман, Джон Войт, Сильвия Майлз, Джон МакГайвер, Бренда Ваккаро и др.Перевод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 1:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B501C7AC4C99F52A80B1E5AF38B03F72F657D164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566222   (470056) от 04.08.2022
 
 Битва за Алжир / La battaglia di Algeri / The Battle of Algiers (1966) BDRip [H.264] [AVO]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470056.jpg" />
+  <img src="Z:/picture/008/save_picture_470056.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469709.jpg" />
+  <img src="Z:/picture/008/save_picture_469709.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469610.jpg" />
+  <img src="Z:/picture/008/save_picture_469610.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468789.jpg" />
+  <img src="Z:/picture/008/save_picture_468789.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468685.jpg" />
+  <img src="Z:/picture/008/save_picture_468685.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468417.jpg" />
+  <img src="Z:/picture/008/save_picture_468417.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468024.jpg" />
+  <img src="Z:/picture/008/save_picture_468024.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466938.jpg" />
+  <img src="Z:/picture/008/save_picture_466938.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466050.jpg" />
+  <img src="Z:/picture/008/save_picture_466050.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465928.jpg" />
+  <img src="Z:/picture/008/save_picture_465928.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465907.jpg" />
+  <img src="Z:/picture/008/save_picture_465907.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465499.jpg" />
+  <img src="Z:/picture/008/save_picture_465499.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465355.jpg" />
+  <img src="Z:/picture/008/save_picture_465355.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464705.jpg" />
+  <img src="Z:/picture/008/save_picture_464705.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464532.jpg" />
+  <img src="Z:/picture/008/save_picture_464532.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464522.jpg" />
+  <img src="Z:/picture/008/save_picture_464522.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464155.jpg" />
+  <img src="Z:/picture/008/save_picture_464155.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463794.jpg" />
+  <img src="Z:/picture/008/save_picture_463794.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463358.jpg" />
+  <img src="Z:/picture/008/save_picture_463358.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462385.jpg" />
+  <img src="Z:/picture/008/save_picture_462385.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461700.jpg" />
+  <img src="Z:/picture/008/save_picture_461700.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461625.jpg" />
+  <img src="Z:/picture/008/save_picture_461625.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461190.jpg" />
+  <img src="Z:/picture/008/save_picture_461190.jpg" />
 </div>
 
 
@@ -596,86 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6BF02EFB5FF1125C9E6606F786580D4F4CDB420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548817   (460008) от 21.09.2012
-
-Приключения Робин Гуда / The Adventures of Robin Hood (1938) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как известно из легенд, добрый король английский Ричард отправился в Крестовый поход и попал там в плен. Принц Джон захватил трон и, движимый жаждой наживы, начал обирать народ.
- Разоренный им сэр Робин Локсли ушел в Шервудский лес и под именем Робин Гуда возглавил банду разбойников, объявив войну прихвостням принца Джона - рыцарю Гаю  Гизборну и трусливому шерифу (   Читать дальше...   )Жанр: Боевик, ПриключенияРежиссер: Майкл Кертиц / Michael Curtiz, Уильям Кайли / William KeighleyАктеры: Эррол Флинн, Оливия Де Хэвиллэнд, Клод Рэйнс, Патрик Ноулз, Юджин Паллет, Алан Хейл, Мелвилл Купер, Йен Хантер, Монтагу Лав, Роберт Ноубл, Кеннет Хантер, Роберт Уорвик, Колин Кенни, Лестер Мэтьюз, Ховард Хилл, Иван Ф. СимпсонПеревод: Многоголосый закадровыйСубтитры: НетПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF838F3416D5AEF163F990886FDFEEAEAE879740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388165   (459996) от 16.09.2011
-
-Звездные войны: Эпизод 1 - Скрытая угроза / Star Wars: Episode I - The Phantom Menace (1999) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирная и процветающая планета Набу. Торговая федерация, не желая платить налоги, вступает в прямой конфликт с королевой Амидалой, правящей на планете, что приводит к войне. На стороне королевы и республики в ней участвуют два рыцаря-джедая: учитель и ученик, Квай-Гон-Джин и Оби-Ван Кеноби…Жанр: Фантастика, Боевик, ПриключенияРежиссер: Джордж Лукас / George LucasАктеры: Лиам Нисон, Юэн МакГрегор, Натали Портман, Джейк Ллойд, Иэн МакДайармид, Пернилла Аугуст, Оливер Форд Дэвис, Хью Куарши, Ахмед Бест, Энтони ДэниелсПеревод: Гоблинский, МногоголосныйСубтитры: нетПродолжительность: 02:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B15963EB9F05ACD239FC221D130CC73A8DC48C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401248   (459785) от 10.09.2020
-
-Под знаком Козерога / Under Capricorn (1949) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралия, 19 век. Сэм, отсидевший срок за убийство, возвращается домой, к своей жене и пытается начать новую жизнь. Сэм усердно работает и вскоре становится богатым, но общество его не принимает - у Сэма небезупречное прошлое.
-Их гость Чарльз влюбляется в хозяйку дома и, пытаясь узнать о ней как можно больше, начинает понимать, что у семьи немало страшных тайн и (   Читать дальше...   )Производство: Великобритания / Transatlantic PicturesЖанр: Драма, Мелодрама, КриминалРежиссер: Альфред ХичкокАктеры: Ингрид Бергман, Джозеф Коттен, Майкл Уайлдинг, Маргарет Лейтон, Сесил Паркер, Денис О’Ди, Джек Уотлинг, Харкорт Уильямс, Джон Руддок, Билл ШайнПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559507EE8BAB7C5CD945B1F858114BA9F33A273B
 ```
 
 https://mybot314.ru/tekegram_catalog/

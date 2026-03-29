@@ -1,3 +1,31 @@
+###  Публикация: 1818370   (2478) от 16.09.2025
+
+DVDFab 13.0.4.8 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2478.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab – мощный, многофункциональный программный продукт для копирования DVD дисков с возможностями гибкой обработки видеопотока.
+Программа является одной из лучших на сегодняшний день, из инструментов для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами.
+Снимает все защиты и ограничения с диска и при желании пережмет диск большой емкости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB161E57C0BC3E2981E7FCFBE85A77FC16011C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819674   (1326) от 23.09.2025
 
 DVDFab 13.0.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +34,7 @@ DVDFab 13.0.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1326.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Flyoobe 1.23.445 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_846.jpg" />
 </div>
 
 

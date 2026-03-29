@@ -1,3 +1,108 @@
+###  Публикация: 1680538   (133691) от 30.11.2023
+
+National Geographic. Подземный мир майя: настоящий конец света / Maya underworld: The real doomsday (2012) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый по имени Диего Бунюэль пытается разгадать загадку таинственного исчезновения целой цивилизации Майя. Для этого он очень много путешествует по разным странам, и странствует по загадочным подземным туннелям. Он также погружается под воду, исследуя загадочную гибель цивилизации майя около 1000 лет назад.Производство: США, National GeographicЖанр: документальный, история, исследованияРежиссер: Рик КингПеревод: профессиональный одноголосый (АРТ-ТВ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105A050AA6E52A2A285BF486B886F53007946E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681449   (132584) от 03.12.2023
+
+Течение времени / Time Flies (2020) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам нравится думать, что мы контролируем все вокруг: поворачиваем реки вспять, осваиваем новые земли, превращаем пустыни в цветущие сады. И только ход времени не подвластен нашему контролю. Мы не может остановить уходящее время, но можем изменить свое видение мира; благодаря видеокамерам мы имеем возможность увидеть окружающий мир в различных временных рамках.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, научно-популярныйПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965B67D20466724A301B0FE940C7624A0623EAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672595   (132485) от 03.12.2023
+
+Взлом кодов / Cracking the Code (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти коды изменили наш мир. Странные знаки, случайные буквы и цифры. Слова, не имеющие смысла. Но их расшифровка способна раскрыть военные секреты, помогает изучать древние цивилизации и обнаруживать врагов среди нас. В этом фильме вы узнаете, как были расшифрованы различные коды, какие гениальные умы смогли это сделать и какие тайны были открыты.Производство: Великобритания, Blink Films, DriveЖанр: документальный, история, научно-популярныйУчастники: Деметрий ГорицасПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C9AF8C229C2E3A6F3B2489B134EAEF03BC04A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642741   (132268) от 04.12.2023
+
+BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [AVO]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132268.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Горькое озеро» — это эпическая документальная картина Адама Кертиса, который объясняет почему истории политиков стали настолько примитивными, что они уже не могут соответствовать реальной картине мира.
+В нем повествуется о всем мире, об Америке, Британии, России и Саудовской Аравии. Но в самом сердце фильма — рассказ об Афганистане. Потому что Афганистан — это место, (   Читать дальше...   )Телекомпания: Великобритания / BBCЖанр: документальный, история, хроника, экономика, философияРежиссер: Адам КертисУчастники: Рональд Рейган, Абдулазиз, Билл Клинтон, Маргарет Тетчер, Джордж Буш мл, Джордж Буш и др.Перевод: Одноголосый любительский (перевод и закадровый голос Денис Чикита)Язык озвучки: русский, английскийСубтитры: english, русскиеПродолжительность: 02:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682344   (131829) от 06.12.2023
 
 BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (сезон 2, серии 1-3 из 3)
@@ -6,7 +111,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131829.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131824.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131823.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131790.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131250.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130984.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130944.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130216.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130197.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130174.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130153.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126985.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126945.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126937.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126164.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125913.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125772.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125239.jpg" />
 </div>
 
 
@@ -568,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDD828669A346EC6DEF512FF61878793E0C13B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688436   (125199) от 29.12.2023
-
-NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один знаменательный день, пять исторических героев и пять моментов высадки союзников в день «Д» - это те события, которые вы увидите глазами тех, кто принимал в то время критически важные решения. С помощью редких архивных материалов, драматических реконструкций тех событий, письменных свидетельств очевидцев и личных впечатлений пяти героев, вы впервые увидите День (   Читать дальше...   )Производство: Великобритания / RARE TV LTD, National GeographicЖанр: документальный, историяРежиссер: Хэрвард ПэллингПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678590   (122819) от 15.01.2024
-
-Discovery: Паранормальная Ирландия / Spooked: Ireland (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) [VO]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вог Уильямс представляет документальный сериал о расследованиях паранормальных явлений. Бывшая модель, а ныне ведущая, возглавляет команду экспертов по паранормальным явлениям, исследующих самые известные паранормальные места Ирландии.Производство: Великобритания, Discovery+, Tern TelevisionЖанр: документальный, история, сверхъестественноеРежиссер: Рут Малкахи, Крис МакМилланУчастники: Вог Уильямс, Крис Флеминг, Эвелин Холлоу, Райан О’НиллПеревод: Одноголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA1CD62C564F715FE2F81E63E9A1620D1FF4C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509796   (121791) от 21.01.2024
-
-Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2015) WEB-DL [H.264/1080p] (сезон 2, серии 1-12 из 12)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в 1969 году Всеобщая организация наблюдения за НЛО (MUFON) сегодня имеет свои представительства в 42 странах мира. В архиве MUFON — более 300 000 документов, связанных с НЛО. Все документы хранятся на закрытом для посторонних складе в Огайо, известном как «Ангар-1».
-Организация предоставила телеканалу неограниченный доступ в Ангар-1 ко всем хранящимся там (   Читать дальше...   )Производство: США, Go Go Luckey Productions, A&E Television Networks, LLC.Жанр: Документальный, история, расследованиеРежиссер: Джули Ауэрбах, Генри КапаннаУчастники: Дуайт Эквиц, Ян Харзан, Корнелл ВомакПеревод: Многоголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75494E7E31F1D618A64A8ED3616D08426C4AFE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509795   (121787) от 21.01.2024
-
-Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2014) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в 1969 году Всеобщая организация наблюдения за НЛО (MUFON) сегодня имеет свои представительства в 42 странах мира. В архиве MUFON — более 300 000 документов, связанных с НЛО. Все документы хранятся на закрытом для посторонних складе в Огайо, известном как «Ангар-1».
-Организация предоставила телеканалу неограниченный доступ в Ангар-1 ко всем хранящимся там (   Читать дальше...   )Производство: США, Go Go Luckey Productions, A&E Television Networks, LLC.Жанр: Документальный, история, расследованиеРежиссер: Джули Ауэрбах, Генри КапаннаУчастники: Дуайт Эквиц, Ян Харзан, Корнелл ВомакПеревод: Многоголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

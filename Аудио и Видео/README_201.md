@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362581.jpg" />
+  <img src="Z:/picture/008/save_picture_362581.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362358.jpg" />
+  <img src="Z:/picture/008/save_picture_362358.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362312.jpg" />
+  <img src="Z:/picture/008/save_picture_362312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362187.jpg" />
+  <img src="Z:/picture/008/save_picture_362187.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361817.jpg" />
+  <img src="Z:/picture/008/save_picture_361817.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361506.jpg" />
+  <img src="Z:/picture/008/save_picture_361506.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361502.jpg" />
+  <img src="Z:/picture/008/save_picture_361502.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361371.jpg" />
+  <img src="Z:/picture/008/save_picture_361371.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361228.jpg" />
+  <img src="Z:/picture/008/save_picture_361228.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361220.jpg" />
+  <img src="Z:/picture/008/save_picture_361220.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Len Sander - Phantom Garden (2015) [AAC|256 кб/с]<Alternative Pop, Indie Pop,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360956.jpg" />
+  <img src="Z:/picture/008/save_picture_360956.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Arcs - Yours, Dreamily, (2015) [AAC|256 кб/с]<Alternative, Garage Rock, S
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360929.jpg" />
+  <img src="Z:/picture/008/save_picture_360929.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360856.jpg" />
+  <img src="Z:/picture/008/save_picture_360856.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Five Finger Death Punch - The Way of the Fist (2007) [AAC|256 кб/с]<Heavy Met
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360766.jpg" />
+  <img src="Z:/picture/008/save_picture_360766.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Five Finger Death Punch - American Capitalist (2011) [AAC|256 кб/с]<Heavy Met
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360698.jpg" />
+  <img src="Z:/picture/008/save_picture_360698.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360636.jpg" />
+  <img src="Z:/picture/008/save_picture_360636.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360590.jpg" />
+  <img src="Z:/picture/008/save_picture_360590.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360586.jpg" />
+  <img src="Z:/picture/008/save_picture_360586.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360566.jpg" />
+  <img src="Z:/picture/008/save_picture_360566.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360554.jpg" />
+  <img src="Z:/picture/008/save_picture_360554.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360406.jpg" />
+  <img src="Z:/picture/008/save_picture_360406.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360399.jpg" />
+  <img src="Z:/picture/008/save_picture_360399.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Nautilus Pompilius - Князь тишины (1989) [AAC|~376 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360385.jpg" />
+  <img src="Z:/picture/008/save_picture_360385.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360380.jpg" />
+  <img src="Z:/picture/008/save_picture_360380.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360376.jpg" />
+  <img src="Z:/picture/008/save_picture_360376.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360150.jpg" />
+  <img src="Z:/picture/008/save_picture_360150.jpg" />
 </div>
 
 

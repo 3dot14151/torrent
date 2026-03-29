@@ -1,3 +1,56 @@
+###  Публикация: 1185130   (294920) от 20.11.2017
+
+Ю. Н. Аронина | Технология выделки и крашения меха (1977) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294920.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены основные принципы построения процесса обработки пушно-мехового сырья, шубной овчины, операции выделки, крашения и отделки, методы оценки качества мехового полуфабриката, вопросы механизации и автоматизации процессов выработки меховых шкурок.
+Книга предназначена в качестве учебника для учащихся профтехучилищ и может быть полезна инженерно-техническим (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A61043DF0A04BE30019146E1C6F267AFDE9B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079212   (294161) от 04.12.2016
+
+С.С. Ананичева, С.Н. Шелюг | Анализ электроэнергетических сетей и систем в примерах и задачах (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294161.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены теоретические положения и рекомендации по решению практических задач в рамках основных разделов дисциплины «Электрические системы и сети». По каждой теме приводятся основные теоретические положения, типовые задачи и излагается методика их решения. Кроме того, приведены задачи для самостоятельного решенияЖанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B274F6DD6510B6D81698895A02C01A6C0D707876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078787   (294157) от 04.12.2016
 
 Н.А. Тиняков, К.Г. Скачко | Основы промышленной электроники (1969) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294157.jpg" />
+  <img src="Z:/picture/008/save_picture_294157.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294154.jpg" />
+  <img src="Z:/picture/008/save_picture_294154.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294148.jpg" />
+  <img src="Z:/picture/008/save_picture_294148.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294143.jpg" />
+  <img src="Z:/picture/008/save_picture_294143.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294094.jpg" />
+  <img src="Z:/picture/008/save_picture_294094.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294090.jpg" />
+  <img src="Z:/picture/008/save_picture_294090.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294088.jpg" />
+  <img src="Z:/picture/008/save_picture_294088.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294011.jpg" />
+  <img src="Z:/picture/008/save_picture_294011.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293999.jpg" />
+  <img src="Z:/picture/008/save_picture_293999.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293901.jpg" />
+  <img src="Z:/picture/008/save_picture_293901.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293890.jpg" />
+  <img src="Z:/picture/008/save_picture_293890.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293762.jpg" />
+  <img src="Z:/picture/008/save_picture_293762.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293156.jpg" />
+  <img src="Z:/picture/008/save_picture_293156.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293143.jpg" />
+  <img src="Z:/picture/008/save_picture_293143.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292840.jpg" />
+  <img src="Z:/picture/008/save_picture_292840.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292650.jpg" />
+  <img src="Z:/picture/008/save_picture_292650.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291989.jpg" />
+  <img src="Z:/picture/008/save_picture_291989.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290835.jpg" />
+  <img src="Z:/picture/008/save_picture_290835.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290251.jpg" />
+  <img src="Z:/picture/008/save_picture_290251.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290247.jpg" />
+  <img src="Z:/picture/008/save_picture_290247.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288962.jpg" />
+  <img src="Z:/picture/008/save_picture_288962.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288958.jpg" />
+  <img src="Z:/picture/008/save_picture_288958.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288953.jpg" />
+  <img src="Z:/picture/008/save_picture_288953.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288947.jpg" />
+  <img src="Z:/picture/008/save_picture_288947.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04A3B2C8DCF76929474676B212788FD304B751FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962599   (288839) от 07.12.2015
-
-С.С. Бодрухина | Правила технической эксплуатации электроустановок потребителей в вопросах и ответах (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные положения Правил технической эксплуатации электроустановок потребителей в виде вопросов и ответов. Пособие поможет специалистам в изучении Правил при приеме на работу и при подготовке к очередной проверке знанийЖанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D972AAC24F48038192B42BB50A158C824A9226D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962943   (288784) от 07.12.2015
-
-Ю.И. Короев | Начертательная геометрия (2015) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены теоретические основы и практическое приложение методов изображений, которые применяются в архитектурном проектировании: ортогональные проекции, аксонометрия, перспектива и приемы построения теней в этих проекциях. Содержит вопросы для самопроверки и задачи с примерами решений.
-Для студентов архитектурных вузов и факультетовЖанр: Начертательная геометрияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1BAC4522A9B22D1021EE96A3A90961EDCE8CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

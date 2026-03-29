@@ -6,7 +6,7 @@ Wirecast Pro 7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801199.jpg" />
+  <img src="Z:/picture/008/save_picture_801199.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Luminar 1.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801180.jpg" />
+  <img src="Z:/picture/008/save_picture_801180.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Geekbench 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801178.jpg" />
+  <img src="Z:/picture/008/save_picture_801178.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Affinity Designer 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801166.jpg" />
+  <img src="Z:/picture/008/save_picture_801166.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Artstudio Pro 3.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801165.jpg" />
+  <img src="Z:/picture/008/save_picture_801165.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Lungo 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801163.jpg" />
+  <img src="Z:/picture/008/save_picture_801163.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Music Tag Editor 5.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801162.jpg" />
+  <img src="Z:/picture/008/save_picture_801162.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Things 3 v3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801158.jpg" />
+  <img src="Z:/picture/008/save_picture_801158.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Exposure Software Blow Up 3 v3.1.4.391 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801156.jpg" />
+  <img src="Z:/picture/008/save_picture_801156.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Viwizard Spotify Music Converter for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801118.jpg" />
+  <img src="Z:/picture/008/save_picture_801118.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Exposure X7 Bundle v7.0.2.68 fix [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801115.jpg" />
+  <img src="Z:/picture/008/save_picture_801115.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Exposure X7 v7.0.2.119 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801106.jpg" />
+  <img src="Z:/picture/008/save_picture_801106.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ KCNcrew Pack 15.01.2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801096.jpg" />
+  <img src="Z:/picture/008/save_picture_801096.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Affinity Publisher 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801058.jpg" />
+  <img src="Z:/picture/008/save_picture_801058.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Viwizard Audio Converter for Mac 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801057.jpg" />
+  <img src="Z:/picture/008/save_picture_801057.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Bartender 4 v4.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801055.jpg" />
+  <img src="Z:/picture/008/save_picture_801055.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Default Folder X 5.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801050.jpg" />
+  <img src="Z:/picture/008/save_picture_801050.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Acon Digital Acoustica Premium Edition 7.3.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801049.jpg" />
+  <img src="Z:/picture/008/save_picture_801049.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ iZotope - RX 9 Audio Editor Advanced v9.1.0 STANDALONE, VST, VST3, AAX [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801047.jpg" />
+  <img src="Z:/picture/008/save_picture_801047.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ ViWizard Audible AA / AAX Converter for Mac 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801039.jpg" />
+  <img src="Z:/picture/008/save_picture_801039.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ RightFont 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801030.jpg" />
+  <img src="Z:/picture/008/save_picture_801030.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sublime Merge Dev Build 20011 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800997.jpg" />
+  <img src="Z:/picture/008/save_picture_800997.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ iA Writer 5.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800996.jpg" />
+  <img src="Z:/picture/008/save_picture_800996.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800994.jpg" />
+  <img src="Z:/picture/008/save_picture_800994.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Dropshare 5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800993.jpg" />
+  <img src="Z:/picture/008/save_picture_800993.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Principle 5.11 (build 5023) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800992.jpg" />
+  <img src="Z:/picture/008/save_picture_800992.jpg" />
 </div>
 
 

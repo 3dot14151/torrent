@@ -1,3 +1,29 @@
+###  Публикация: 1563246   (156319) от 27.12.2022
+
+Люцифер и бисквитный молот | Hoshi no Samidare | Lucifer and the Biscuit Hammer [2022, TV, 24 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амамия Юхи — простой японский школьник, который абсолютно ничем не выделяется среди сверст... Ой, погодите-ка! Это с ним ящерица только что заговорила?! Что-что она там сказала?! Мир может оказаться расколот вдребезги мощью невероятного Бисквитного молота? Звучит совершенно безумно! Особенно та часть, где говорится про какой-то Бисквитный молот... Однако мир нужно (   Читать дальше...   )Производство: Япония / Студия Naz, JumondouЖанр: Приключения, фэнтезиРежиссер: Наканиси НобуакиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E540B08FC1DA1E4F35506600585797118461B8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579992   (156308) от 27.12.2022
 
 Tensei Shitara Ken Deshita | О моём перерождении в меч | Reincarnated as a Sword [2022, TV, 12 из 12 эп] WEBRip 2160p/4K rus
@@ -6,7 +32,7 @@ Tensei Shitara Ken Deshita | О моём перерождении в меч | Re
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156308.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154540.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154466.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154437.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153381.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153351.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153344.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152654.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152141.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152093.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151271.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150857.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147762.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147716.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147645.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146909.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146009.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144181.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142903.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140944.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140005.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140000.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139928.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5817D7A50BD927C71961F66A5163DE90EB897F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679099   (139799) от 24.11.2023
-
-Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамунэ [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макабе Масамуне рос толстым ребёнком, из-за чего его постоянно дразнила и доводила до слёз мерзкая девчонка Адагаки Аки. И так она его достала, что он решил ей страшно отомстить: начал вести здоровый образ жизни, занялся спортом, взялся за учёбу и личностное развитие. Спустя несколько лет обновлённый Масамуне — красивый и популярный отличник-спортсмен-чемпион — переводится (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедия, романтикаРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBFBED6C99163935D5188FD2BC128547F2D13A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

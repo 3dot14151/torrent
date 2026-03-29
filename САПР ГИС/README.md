@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861385   (1062493) от 
+
+Autodesk AutoCAD 2027 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062493.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD – это больше, чем проектирование. Придавайте форму окружающему вас миру с помощью мощных Интернет-ориентированных инструментов AutoCAD – САПР, которая разработана компанией Autodesk. Продукт позволяет создавать впечатляющие 3D-проекты, с высокой скоростью выпускать рабочую документацию и совместно работать в облаке. Доступ к проектам возможен не только с (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31BB30688023581DD2D1F72B01E897DFCE4D6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860703   (1062049) от 
+
+KiCad 10.0.0 Portable by 7997 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062049.jpg" />
+</div>
+
+
+###  Подробнее
+
+KiCad – уникальный в своем роде программный продукт, позволяющий открывать, создавать, разрабатывать электронные схемы для последующего вывода дизайна печатной платы в интерактивном просмотре. По сути, это целый комплекс программ, относящийся к отдельному классу EDA – Автоматизация проектирования электроники. Встроенные компоненты позволят не только создать, но также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF9C43FD5C2402460751EC935054AE0505C09FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860455   (1061809) от 
 
 KiCad 10.0.0 [Multi/Ru]
@@ -7,7 +59,7 @@ KiCad 10.0.0 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061809.jpg" />
+  <img src="Z:/picture/005/save_picture_1061809.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Proteus Professional 9.1 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060802.jpg" />
+  <img src="Z:/picture/005/save_picture_1060802.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ JMAG Designer 18.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056423.jpg" />
+  <img src="Z:/picture/005/save_picture_1056423.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ AVEVA Process Simulation 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056384.jpg" />
+  <img src="Z:/picture/005/save_picture_1056384.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Siemens Solid Edge 2026.2510 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056234.jpg" />
+  <img src="Z:/picture/005/save_picture_1056234.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Siemens Simcenter Amesim 2404 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055824.jpg" />
+  <img src="Z:/picture/005/save_picture_1055824.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ ESI SimulationX 4.1.1.63427 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055714.jpg" />
+  <img src="Z:/picture/005/save_picture_1055714.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ DS DYMOLA 2023x Refresh 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055499.jpg" />
+  <img src="Z:/picture/005/save_picture_1055499.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052506.jpg" />
+  <img src="Z:/picture/005/save_picture_1052506.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052496.jpg" />
+  <img src="Z:/picture/005/save_picture_1052496.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ InfineonSpice 2025.04.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051422.jpg" />
+  <img src="Z:/picture/005/save_picture_1051422.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ QSPICE 2026.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051392.jpg" />
+  <img src="Z:/picture/005/save_picture_1051392.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Missler Topsolid 7.17.400.000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051381.jpg" />
+  <img src="Z:/picture/005/save_picture_1051381.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ DipTrace 5.2.0.4 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050701.jpg" />
+  <img src="Z:/picture/008/save_picture_1050701.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ Altium Designer 26.1.1 Build 7 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050694.jpg" />
+  <img src="Z:/picture/008/save_picture_1050694.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049052.jpg" />
+  <img src="Z:/picture/008/save_picture_1049052.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Altair PSIM 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048994.jpg" />
+  <img src="Z:/picture/008/save_picture_1048994.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Keysight Advanced Design System 2026 Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048988.jpg" />
+  <img src="Z:/picture/008/save_picture_1048988.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Autodesk AutoCAD 2023 Portable by conservator [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041509.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Zuken CADSTAR 16.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036387.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Proteus Professional 8.15 SP1 Build 34318 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035520.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034593.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ OpenSCAD 2021.01 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032443.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Synopsys Synplify 2019.03 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032043.jpg" />
 </div>
 
 
@@ -628,60 +680,6 @@ Synplify - одно из лучших в отрасли средств RTL си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FAB807F89798A0DC0E107DE871CED775A8B7FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453549   (1026864) от 11.03.2021
-
-Golden Software Surfer 20.1.195 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Golden Software Surfer — непревзойдённое средство для моделирования и анализа поверхностей, визуализации ландшафта, генерирования сетки, разработки трехмерных карт и других связанных операций. Мощные интерполяционные функции программы превращают разрозненные данные в великолепные поверхности высочайшего качества.
-
-Golden Software Surfer отличает богатое разнообразие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C31B917A70D20CF4CB53A4F51E5E2462229594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453779   (1026701) от 12.03.2021
-
-Nemetschek Vectorworks 2020 SP1 build 512839 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nemetschek Vectorworks - система для автоматизации работ в области архитектурно-строительного проектирования, ориентированная на пользователей, работающих в сфере ландшафтного дизайна, а так же занимающихся проектированием интерьера, зданий и помещений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A25DFF26B8AADC354ABAADA8AACE7408294BE62
 ```
 
 https://mybot314.ru/tekegram_catalog/

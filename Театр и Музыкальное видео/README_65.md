@@ -1,3 +1,174 @@
+###  Публикация: 807769   (590513) от 26.07.2014
+
+Новая Волна 2014. День третий (2014) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Группа «Блестящие» - «МегаМикс»
+02. Борис Моисеев - «Глухонемая Любовь
+03. Любовь Успенская - «К единственному нежному»
+04. Артур Пирожков - «Я не умею танцевать»(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB40AC58B7ECB4A2772017970894CA6F10983BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915362   (590341) от 09.07.2015
+
+Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальное видео Carousel, Нью-Йоркской Инди-Поп певицы Melanie Martinez. Данный сингл был саундтреком к четвертому сезону сериала "Американские ужасы".Жанр: Indie-PopПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E09270F133AFA2D4E80ACB3E2A15F22D6C7989C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915335   (590321) от 09.07.2015
+
+VA - Летний марафон № 176 / Видеоклипы (Самые Новые Русские Треки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (04.07.2015) поп. новинки русской эстрады.Не пропустите, держите новые треки.1. 4G - Прости меня, мама (ПРЕМЬЕРА!) (00:03:59)
+2. A.R.M.I.A - Другая (ПРЕМЬЕРА!) (00:03:32)
+3. Emin - На краю (ПРЕМЬЕРА!) (00:03:50)
+4. Karen ТУЗ ft. A-Sen - Закрой Глаза (Official Video) (00:02:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7845CCE47042B635FCAA3D8512C37423316C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916507   (589580) от 11.07.2015
+
+Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_589580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
+02 -  Mahk Jchi (W/ Ulali)
+03 -  Golden Feather (W/ Red Road Ensemble)
+04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808627   (589279) от 29.07.2014
+
+Новая Волна 2014. День пятый (2014) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_589279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. A’STUDIO и TOMAS N’EVERGREEN - "FALLING FOR YOU"
+02. Игорь Николаев - "Линия жизни"
+03. Гоша Куценко и Юлия Пак – "Светлый дым"
+04. Артур Пирожков и Вера Брежнева – "LUNA"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46A44C3FB93E35BD097B5B7BAB4357E76BC220B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808629   (589236) от 29.07.2014
+
+Новая Волна 2014. День шестой (2014) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_589236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Леонид Агутин – "Не уходи далеко"
+02. Вера Брежнева – "Доброе утро"
+03. Дима Билан – "Болен тобой"
+04. Николай Басков и Игорь Крутой – "Вишнёвая Любовь"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6291660A3C59B51A7C93E468AF357EB7A98E437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917649   (589019) от 12.07.2015
 
 Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
@@ -6,7 +177,7 @@ Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589019.jpg" />
+  <img src="Z:/picture/008/save_picture_589019.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ Lacrimosa - Live In Mexico City (The First Edition) Bonus DVD (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588764.jpg" />
+  <img src="Z:/picture/008/save_picture_588764.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588621.jpg" />
+  <img src="Z:/picture/008/save_picture_588621.jpg" />
 </div>
 
 
@@ -93,7 +264,7 @@ Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588607.jpg" />
+  <img src="Z:/picture/008/save_picture_588607.jpg" />
 </div>
 
 
@@ -122,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588575.jpg" />
+  <img src="Z:/picture/008/save_picture_588575.jpg" />
 </div>
 
 
@@ -151,7 +322,7 @@ France Gall - видеозаписи (1963 - 1984)/ VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_588165.jpg" />
+  <img src="Z:/picture/005/save_picture_588165.jpg" />
 </div>
 
 
@@ -178,7 +349,7 @@ The Prodigy - World's on Fire (2011) [1080i] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587790.jpg" />
+  <img src="Z:/picture/008/save_picture_587790.jpg" />
 </div>
 
 
@@ -213,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586838.jpg" />
+  <img src="Z:/picture/008/save_picture_586838.jpg" />
 </div>
 
 
@@ -243,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586829.jpg" />
+  <img src="Z:/picture/008/save_picture_586829.jpg" />
 </div>
 
 
@@ -269,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586774.jpg" />
+  <img src="Z:/picture/008/save_picture_586774.jpg" />
 </div>
 
 
@@ -298,7 +469,7 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_586673.jpg" />
+  <img src="Z:/picture/005/save_picture_586673.jpg" />
 </div>
 
 
@@ -324,7 +495,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586050.jpg" />
+  <img src="Z:/picture/008/save_picture_586050.jpg" />
 </div>
 
 
@@ -350,7 +521,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585992.jpg" />
+  <img src="Z:/picture/008/save_picture_585992.jpg" />
 </div>
 
 
@@ -376,7 +547,7 @@ U2: 360° at the Rose Bowl (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585958.jpg" />
+  <img src="Z:/picture/008/save_picture_585958.jpg" />
 </div>
 
 
@@ -402,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585895.jpg" />
+  <img src="Z:/picture/008/save_picture_585895.jpg" />
 </div>
 
 
@@ -428,7 +599,7 @@ Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583628.jpg" />
+  <img src="Z:/picture/008/save_picture_583628.jpg" />
 </div>
 
 
@@ -457,7 +628,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583352.jpg" />
+  <img src="Z:/picture/008/save_picture_583352.jpg" />
 </div>
 
 
@@ -486,7 +657,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582279.jpg" />
+  <img src="Z:/picture/008/save_picture_582279.jpg" />
 </div>
 
 
@@ -515,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581798.jpg" />
+  <img src="Z:/picture/008/save_picture_581798.jpg" />
 </div>
 
 
@@ -544,7 +715,7 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581797.jpg" />
+  <img src="Z:/picture/008/save_picture_581797.jpg" />
 </div>
 
 
@@ -558,172 +729,6 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D6E9D5357B0D52080EF12AD5F5B90E531733E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039449   (581351) от 10.08.2016
-
-Сказки Беатрикс Поттер / Tales of Beatrix Potter (1971) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется удивительный фильм-балет 1971 года “Сказки Беатрис Поттер” по знаменитой истории английской писательницы и художницы Беатрикс Поттер о кролике Питере и других животных. Вся кинокартина - это представление персонажей: танцуют белки, мыши, лягушки и прочие мелкие животные. Уникальная в своём роде постановка, граничащая с кукольным сюрреализмом, (   Читать дальше...   )Производство: Великобритания, GW FilmsЖанр: Мюзикл, балет, фэнтези, семейныйРежиссер: Реджинальд МиллсАктеры: Фредерик Эштон, Александр Грант, Джули Вуд, Энн Ховард, Боб Мид, Гарри Грант, Сэлли Эшби, Бренда Ласт, Майкл Коулмэн, Уэйн СлипПеревод: Не требуетсяПродолжительность: 01:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E140EE64D677A4F57752BA6483856C4AC3C84F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919482   (580975) от 21.07.2015
-
-Принц Наполеон (1969) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль-памфлет. По сатирической пьесе Василия Шкваркина.
-"Все великие исторические события и личности появляются дважды: первый раз - как трагедия, второй раз - как фарс". (Гегель) Пьеса Василия Шкваркина "Принц Наполеон" (1941) - история неожиданного возвышения, падения и достижения власти авантюристом. Луи Наполеоном. Кукла в руках политиканов (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Драма, ТелеспектакльРежиссер: Александр БелинскийАктеры: Сергей Юрский, Игорь Дмитриев, Владислав Стржельчик, Николай Карамышев, Валентина Ковель, Элеонора Гордон, Наталья Тенякова, Николай Боярский, Павел Панков, Георгий Тейх, Леонард Секирин, Валентина Чемберг, В. ШалнтПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E608B5DEBEA3B859AB7B1BF1DFA496CFE4C780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359778   (580788) от 07.07.2011
-
-Линкин парк / Linkin Park - What I've Done (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный клип хотелось не много улучшить, так как в клипах linkin park - what ive done, которые мне попадались в сети,  видео шло рывками, дабы исправить подобную оплошность я попробовал удвоить количество fps, по-моему получилось не плохо.Жанр: МузыкаРежиссер: Warner Bros. RecordsАктеры: группа ЛинкинаПеревод: ОтсутствуетПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0176683F59067692C8BEA5F479C2E17AB3E580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920397   (579924) от 22.07.2015
-
-Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920420   (579921) от 22.07.2015
-
-Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Metallica с классической программой в Мехико в 2009 году. Концертное выступление чередуется общением с фанатами и эпизодами с Мексиканского ТВ.1. The Ecstasy Of Gold
-2. Creeping Death
-3. For Whom The Bell Tolls
-4. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashРежиссер: Wayne IshamПродолжительность: 02:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F115A025896E10D0B8E5EBB4E23787BEF108ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302754   (579075) от 17.05.2019
-
-Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop - Intro
-01. 50 Cent - In Da Club
-02. Xzibit & Snoop Dogg & Dr. Dre - X
-03. Down Low - Potion(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279CA724CFAE2882F6CEC29C1F68C9EEF886FC8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

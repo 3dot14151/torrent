@@ -1,3 +1,107 @@
+###  Публикация: 1276373   (1005952) от 20.07.2021
+
+Улика из прошлого (2019) SATRip (сезон 4, серий 37 из ??)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не может сказать, что это было: случайная смерть или спланированное убийство. Известно одно: эти события потрясли современников и иногда даже повлияли на ход истории. Свидетелей и очевидцев давно нет в живых. И, казалось бы, ничто не может пролить свет на эти загадочные происшествия. Но так ли это? Вооружившись новейшими научными открытиями, попробуем возобновить (   Читать дальше...   )Производство: Россия, ООО «Студия-А» по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, история, криминалПродолжительность: 37 х ~ 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7EA5A1E1776FDDBAACBC3A82A72251D22900FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484552   (1005846) от 21.07.2021
+
+Ага (2021) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бахытжан Абдулаев — бывший меч трех Жузов — после громких дел в прошлом, перенеся утрату близких людей, оставляет криминальный путь. Уединившись в горах, он проживает жизнь отшельником. Однако, весть о жестоком убийстве родного племянника нарушает его спокойствие и идиллию. Баха узнает, что виновником является Сакен — сын местного олигарха Сансызбая, опасного и влиятельного (   Читать дальше...   )Производство: КазахстанЖанр: Боевик, триллерРежиссер: Фархат СеркебаевАктеры: Мурат Бисенбин, Азамат Ибраев, Болат Абдильманов, Фархад Абдраимов, Александр Устюгов, Марйам Сатаева, Руслан Каирбаев, Нурсултан Мухаметжанов, Руслан Акылбаев, Руслан НыгмановПеревод: Не требуется (русский)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392667E5A8E9267FEA1501BCBCC135273D283CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265358   (1005746) от 22.07.2021
+
+Пуаро / Пуаро Агаты Кристи / Poirot (1989-2010) DVDRip (сезон 1-12, серии 1-65 из 65 + дополнения)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неповторимая походка, беспрецедентный педантизм, бельгийский акцент, вечная спутница - трость, особая форма усов... И, конечно же, "серые клеточки", которые не знают покоя и отдыха. Да, это именно он - знаменитый Эркюль Пуаро, сыщик, без которого сложно себе представить классический английский детектив. Найти преступника и вывести его на чистую воду - для (   Читать дальше...   )Производство: Великобритания / Carnival Film & Television, London Weekend Television (LWT), Picture Partnership ProductionsЖанр: триллер, детектив, драма, криминалРежиссер: Эдвард Беннет, Ренни Рай, Эндрю ГривАктеры: Дэвид Суше, Хью Фрейзер, Филип Джексон, Полин Моран, Дэвид Йелленд, Зоэ Уонамейкер, Ричард Бебб, Джордж Литтл, Филип Маникам, Джона ДжонсПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: русские (отдельно)Продолжительность: ~01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214C29CC8F070F33FF72AD5C516915F3D1E0D315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475090   (1005624) от 23.07.2021
+
+Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (1.0.7026711/dlc) Repack Other s [Deluxe Arsenal Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sniper Ghost Warrior Contracts 2 — самая сложная игра в прославленной серии, ведь вам придется поражать цели на невероятном расстоянии больше 1000 метров. Вас ждет захватывающая одиночная кампания, действие которой проходит в наши дни на Ближнем Востоке, и динамичные тактические бои в глубине вражеской территории. Вы — Raven, наемный киллер-снайпер, взявшийся за (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F0DEF7C4202221DA6D53E3C4AE95D0294BC46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548820   (1005353) от 25.07.2021
 
 Left 4 Dead (2008) [Ru/En] (1.0.3.8/dlc) Repack l4dzone.ru
@@ -6,7 +110,7 @@ Left 4 Dead (2008) [Ru/En] (1.0.3.8/dlc) Repack l4dzone.ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005353.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Intel объявила новый план: переименовать техп�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005059.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ VPN-сервис Windscribe не использовал шифрование д�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004914.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 07.2021 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004781.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Ascent (2021) [Ru/Multi] (Build 7106737/dlc/tr) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004780.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004417.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004166.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ MX Player Pro v1.15.9 with AC3/DTS Mod by Balatan, OsitKP [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004165.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003953.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003894.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003890.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003889.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003888.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Microsoft продолжит выпускать обновления для Wind
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003645.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ MultiBoot HDD 2020 31.12.2019 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003637.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003635.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003390.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (1.59641/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003161.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003082.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003031.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Ford против Ferrari / Ford v Ferrari (2019) DVDScr [H.264/1080p-LQ] [MVO] 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002867.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Stand Up (2013-2019) SATRip/WEB-DLRip [Выпуски 1-156] (Обновляем
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002860.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Stand Up (2013-2019) SATRip/WEB-DLRip [Выпуски 1-156] (Обновляем
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60EB524BA732FB0F86AF887737C8FB0EB670A0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865286   (1002609) от 08.01.2020
-
-Camera360 VIP 9.7.5 (Mod) [Ru] - Камера со множеством эффектов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусство в твоих руках. Самая известная и совершенная камера, поможет вашим фотографиям быть более удивительными, забавными и интересными.Тип издания: ПираткаРелиз состоялся: 08.01.20Разработчик: PinGuo Inc.Поддерживаемая ОС: Android. 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81E617B15BBF4524705D83A29806E710182F7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350860   (1002605) от 08.01.2020
-
-Гемини / Gemini Man (2019) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоклассный киллер Генри Броган становится мишенью таинственного оперативника, который, кажется, знает наперёд каждый его шаг.Производство: Китай, США / Skydance Media, Jerry Bruckheimer Films, Fosun Group Forever PicturesЖанр: Боевик, фантастикаРежиссер: Энг ЛиАктеры: Уилл Смит, Мэри Элизабет Уинстэд, Клайв Оуэн, Бенедикт Вонг, Дуглас Ходж, Ральф Браун, Линда Эмонд, Илья Волох, Э.Дж. Бонилья, Виктор ХьюгоПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), украинские (forced, full), английскиеПродолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04EAC9D58B091E2AAF680D0D1D4E27B9FD30B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354528   (1002604) от 08.01.2020
-
-Tension / The Void / Тургор / Тургор: Голос цвета (2008-2009) [Ru] (1.01) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовясь угаснуть, душа проходит через Промежуток - серый лимб, который оживляют лишь редкие капли Цвета. Ненасытные, жуткие Братья жаждут Цвет копить; коварные, упоительные Сёстры мечтают им напиться. Когда вы используете Цвет, Промежуток и его удивительные обитатели меняются. А значит, любое действие игрока меняет весь мир. Быть может, есть и иное применение Цвету. (   Читать дальше...   )Тип издания: Lossless RepackРазработчик: Ice-Pick LodgeЖанр: Экшены, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962D470A8FE2677DF712CEBCB5555A8EE09AFBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487979   (1002444) от 09.08.2021
-
-Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) WEB-DLRip [H.264] [DVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть на земле одно гнилое место, откуда мечтают свалить даже самые отъявленные злодеи. Тюрьма Белль Рив — для преступников со сверхспособностями. Она же — ад. Она же — база рекрутов для суперсекретного проекта «Отряд самоубийц».Производство: США / Atlas Entertainment, DC Comics, DC Entertainment, Safran Company, The, Warner Bros.Жанр: Фантастика, комедия, боевик, приключения, фэнтезиРежиссер: Джеймс ГаннАктеры: Марго Робби, Идрис Эльба, Джон Сина, Юэль Киннаман, Джай Кортни, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Майкл Рукер, Виола ДэвисПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full - без цензуры!), Английские (full, SDH)Продолжительность: 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7472DA9C3A7A5C1D5DED2D6B68029AB70CD2145F
 ```
 
 https://mybot314.ru/tekegram_catalog/

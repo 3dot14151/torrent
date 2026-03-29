@@ -6,7 +6,7 @@ Parrot Security OS 3.5 [Хакинг, аудит, безопасность] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768453.jpg" />
+  <img src="Z:/picture/008/save_picture_768453.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766746.jpg" />
+  <img src="Z:/picture/008/save_picture_766746.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766638.jpg" />
+  <img src="Z:/picture/008/save_picture_766638.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764207.jpg" />
+  <img src="Z:/picture/008/save_picture_764207.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762499.jpg" />
+  <img src="Z:/picture/008/save_picture_762499.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759054.jpg" />
+  <img src="Z:/picture/008/save_picture_759054.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Linux Mint 20.3 Una (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758002.jpg" />
+  <img src="Z:/picture/008/save_picture_758002.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756859.jpg" />
+  <img src="Z:/picture/008/save_picture_756859.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756822.jpg" />
+  <img src="Z:/picture/005/save_picture_756822.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Elementary OS 3 [Freya] [i386,amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756471.jpg" />
+  <img src="Z:/picture/008/save_picture_756471.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Calculate Linux 15.17 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755671.jpg" />
+  <img src="Z:/picture/008/save_picture_755671.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754886.jpg" />
+  <img src="Z:/picture/008/save_picture_754886.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754872.jpg" />
+  <img src="Z:/picture/005/save_picture_754872.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Calculate Linux 15.17 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753546.jpg" />
+  <img src="Z:/picture/005/save_picture_753546.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ ZevenOS 3.1 Neptune [x64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752897.jpg" />
+  <img src="Z:/picture/005/save_picture_752897.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749241.jpg" />
+  <img src="Z:/picture/008/save_picture_749241.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Snowlinux 4.0 Frosty [Cinnamon, Mate] [i386 + amd64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747243.jpg" />
+  <img src="Z:/picture/008/save_picture_747243.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ OSGeo-Live 9.5 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746485.jpg" />
+  <img src="Z:/picture/008/save_picture_746485.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746244.jpg" />
+  <img src="Z:/picture/008/save_picture_746244.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744360.jpg" />
+  <img src="Z:/picture/008/save_picture_744360.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Calculate Linux 14.16 [i686] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741829.jpg" />
+  <img src="Z:/picture/008/save_picture_741829.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Calculate Linux 14.16 [x86-64] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741662.jpg" />
+  <img src="Z:/picture/008/save_picture_741662.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ BlackArch Linux 2015.04.08 [i686, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741576.jpg" />
+  <img src="Z:/picture/008/save_picture_741576.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ArchBang Linux 2015.03.28 (Легкий дистрибутив) [i686, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741444.jpg" />
+  <img src="Z:/picture/008/save_picture_741444.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740605.jpg" />
+  <img src="Z:/picture/008/save_picture_740605.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Sabayon 14.05 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738598.jpg" />
+  <img src="Z:/picture/008/save_picture_738598.jpg" />
 </div>
 
 

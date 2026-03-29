@@ -6,7 +6,7 @@ Rock Band 2 [Wii] [PAL] [Eng] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289568.jpg" />
+  <img src="Z:/picture/008/save_picture_289568.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boom Blox [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289565.jpg" />
+  <img src="Z:/picture/008/save_picture_289565.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Truck Racer (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289013.jpg" />
+  <img src="Z:/picture/008/save_picture_289013.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cars: Mater-National Championship (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288917.jpg" />
+  <img src="Z:/picture/008/save_picture_288917.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kung Fu Panda: Showdown of Legendary Legends (2015) [PS3] [EUR] 3.55 [Cobra ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288648.jpg" />
+  <img src="Z:/picture/008/save_picture_288648.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The History Channel: Battle for the Pacific (2008) [PS3] [EUR] 2.10 [Cobra ODE /
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287348.jpg" />
+  <img src="Z:/picture/008/save_picture_287348.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Winter Sports 2011: Go for Gold [Wii] [PAL] [Multi 3] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287229.jpg" />
+  <img src="Z:/picture/008/save_picture_287229.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Cloudy With a Chance of Meatballs / Облачно, возможны осадк�
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287169.jpg" />
+  <img src="Z:/picture/008/save_picture_287169.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GRID Autosport: Limited Black Edition (2014) [Xbox360] [RegionFree] FreeBoot [Li
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286844.jpg" />
+  <img src="Z:/picture/008/save_picture_286844.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Just Cause 2 (2010) [Xbox360] [RegionFree] FreeBoot [License / DLC / TU] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286838.jpg" />
+  <img src="Z:/picture/008/save_picture_286838.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fishing Resort [Wii] [NTSC] [ENG] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285517.jpg" />
+  <img src="Z:/picture/008/save_picture_285517.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vampyr (2019) [Switch] [USA] 9.0.1 [NSP] [License / 0.4] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283907.jpg" />
+  <img src="Z:/picture/008/save_picture_283907.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ RAD (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283903.jpg" />
+  <img src="Z:/picture/008/save_picture_283903.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Resident Evil 6 (2019) [Switch] [USA] 8.1.0 [NSZ] [License / 1.0.1] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283599.jpg" />
+  <img src="Z:/picture/008/save_picture_283599.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Heroes Over Europe (2009) [PS3] [EUR] 2.80 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282048.jpg" />
+  <img src="Z:/picture/008/save_picture_282048.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281310.jpg" />
+  <img src="Z:/picture/008/save_picture_281310.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Hitman: Absolution (2012) [PS3] [EUR] 4.25 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278911.jpg" />
+  <img src="Z:/picture/008/save_picture_278911.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Phantom Breaker: Battle Grounds Overdrive (2017) [Switch] [USA] 8.1.0 [NSP] [Lic
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278832.jpg" />
+  <img src="Z:/picture/008/save_picture_278832.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Super Neptunia RPG (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / DLC / 1.03] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278705.jpg" />
+  <img src="Z:/picture/008/save_picture_278705.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Resident Evil 5 (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / DLC / 1.0.1] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278452.jpg" />
+  <img src="Z:/picture/008/save_picture_278452.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Mario Party 10 (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278268.jpg" />
+  <img src="Z:/picture/008/save_picture_278268.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ KILL la KILL-IF (2019) [Switch] [JAP] 9.0.1 [NSZ] [License / DLC / 1.10] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275875.jpg" />
+  <img src="Z:/picture/008/save_picture_275875.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Yoshi's Crafted World (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.0.1] [Ru/Mu
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275655.jpg" />
+  <img src="Z:/picture/008/save_picture_275655.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Resident Evil 4 (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / 1.0.1] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275629.jpg" />
+  <img src="Z:/picture/008/save_picture_275629.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275562.jpg" />
+  <img src="Z:/picture/008/save_picture_275562.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274544.jpg" />
+  <img src="Z:/picture/008/save_picture_274544.jpg" />
 </div>
 
 

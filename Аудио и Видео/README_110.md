@@ -6,7 +6,7 @@ VA - Deep-House Fashion Grooves Milano (2022) [AAC|~319 Kbps] <House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718876.jpg" />
+  <img src="Z:/picture/008/save_picture_718876.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chill & Flowers: Chillout Your Mind (2022) [AAC|~315 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718873.jpg" />
+  <img src="Z:/picture/008/save_picture_718873.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Талисман (Песни композитора Дмитрия Прян
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718866.jpg" />
+  <img src="Z:/picture/008/save_picture_718866.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718861.jpg" />
+  <img src="Z:/picture/008/save_picture_718861.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Lounge Jazz In Rome (2022) [AAC|~326 Kbps] <Jazz, Nu Jazz, Lounge, Easy Lis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718852.jpg" />
+  <img src="Z:/picture/008/save_picture_718852.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Lounge Jazz In Madrid (2022) [AAC|~329 Kbps] <Jazz, Nu Jazz, Lounge, Easy L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718747.jpg" />
+  <img src="Z:/picture/008/save_picture_718747.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718670.jpg" />
+  <img src="Z:/picture/008/save_picture_718670.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Новая дискотека шансона (2021) [AAC|~341 Kbps] <Chanso
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718665.jpg" />
+  <img src="Z:/picture/008/save_picture_718665.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Новая дискотека шансона 2 (2022) [AAC|~337 Kbps] <Chan
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718652.jpg" />
+  <img src="Z:/picture/008/save_picture_718652.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718463.jpg" />
+  <img src="Z:/picture/008/save_picture_718463.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718447.jpg" />
+  <img src="Z:/picture/008/save_picture_718447.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718392.jpg" />
+  <img src="Z:/picture/008/save_picture_718392.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718383.jpg" />
+  <img src="Z:/picture/008/save_picture_718383.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718373.jpg" />
+  <img src="Z:/picture/008/save_picture_718373.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718145.jpg" />
+  <img src="Z:/picture/008/save_picture_718145.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718126.jpg" />
+  <img src="Z:/picture/008/save_picture_718126.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717484.jpg" />
+  <img src="Z:/picture/008/save_picture_717484.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717300.jpg" />
+  <img src="Z:/picture/008/save_picture_717300.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717249.jpg" />
+  <img src="Z:/picture/008/save_picture_717249.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716997.jpg" />
+  <img src="Z:/picture/008/save_picture_716997.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716994.jpg" />
+  <img src="Z:/picture/008/save_picture_716994.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716989.jpg" />
+  <img src="Z:/picture/008/save_picture_716989.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716820.jpg" />
+  <img src="Z:/picture/008/save_picture_716820.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Notes from the Depth, Vol. 4 (2019) [AAC|~314 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716772.jpg" />
+  <img src="Z:/picture/008/save_picture_716772.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Notes from the Depth, Vol. 5 (2019) [AAC|~336 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716770.jpg" />
+  <img src="Z:/picture/008/save_picture_716770.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ VA - Iconic Lounge (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716765.jpg" />
+  <img src="Z:/picture/008/save_picture_716765.jpg" />
 </div>
 
 

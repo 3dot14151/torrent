@@ -6,7 +6,7 @@ Sniper Elite Dilogy / Дилогия Sniper Elite [Ru] (RePack) 2005-2012 | Dang
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518680.jpg" />
+  <img src="Z:/picture/008/save_picture_518680.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Iron Brigade [En/Multi6] (P/1.0) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518678.jpg" />
+  <img src="Z:/picture/008/save_picture_518678.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Darksiders: Wrath of War [Ru/Multi4] (L/Steam-Rip/1.0.0.1) 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518628.jpg" />
+  <img src="Z:/picture/008/save_picture_518628.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Warsow [En] (L/1.0) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518624.jpg" />
+  <img src="Z:/picture/008/save_picture_518624.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ The Amazing Spider-Man (NoDVD/1.0) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518623.jpg" />
+  <img src="Z:/picture/008/save_picture_518623.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Terraria [En] (Steam-Rip/1.1.2) 2011 l R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518584.jpg" />
+  <img src="Z:/picture/008/save_picture_518584.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (Steam-Rip) 2012 l R.G. GameWorks [Бе�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518581.jpg" />
+  <img src="Z:/picture/008/save_picture_518581.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517769.jpg" />
+  <img src="Z:/picture/008/save_picture_517769.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Darksiders II Limited Edition (NoDVD/1.0) 2012 | 3DM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517540.jpg" />
+  <img src="Z:/picture/008/save_picture_517540.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (RePack/v.1.06.17.0155-1.03.1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517476.jpg" />
+  <img src="Z:/picture/008/save_picture_517476.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Darksiders II Death Lives [En] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517467.jpg" />
+  <img src="Z:/picture/008/save_picture_517467.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517451.jpg" />
+  <img src="Z:/picture/008/save_picture_517451.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Trine 3: The Artifact of Power (2015) [Ru/Multi] (1.01) Repack U4enik_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517112.jpg" />
+  <img src="Z:/picture/008/save_picture_517112.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Shadowrun: Hong Kong (2015) [En] License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517014.jpg" />
+  <img src="Z:/picture/008/save_picture_517014.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Silent Hill: Alchemilla (2015) [Ru/Multi] (1.1) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516909.jpg" />
+  <img src="Z:/picture/008/save_picture_516909.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516905.jpg" />
+  <img src="Z:/picture/008/save_picture_516905.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.01) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516903.jpg" />
+  <img src="Z:/picture/008/save_picture_516903.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Burnout Paradise: The Ultimate Box [Ru/En] (Repack/1.1.0.0) 2009 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516442.jpg" />
+  <img src="Z:/picture/008/save_picture_516442.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Amazing Spider-Man [Ru] (RePack) 2012 l DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515358.jpg" />
+  <img src="Z:/picture/008/save_picture_515358.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Speed Thief / Угнать за 40 секунд [Ru] (RePack) 2002 | Shmitt
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515337.jpg" />
+  <img src="Z:/picture/008/save_picture_515337.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Ferrum's Secrets: Where Is Grandpa? (2015) [En] License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515150.jpg" />
+  <img src="Z:/picture/008/save_picture_515150.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Darksiders II: Death Lives - Limited Edition [En] (Repack/1.0) 2012 | DangeSecon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514367.jpg" />
+  <img src="Z:/picture/008/save_picture_514367.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Darksiders II: Death Lives - Limited Edition [Ru/En/Multi5] (RePack) 2012 l VANS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514268.jpg" />
+  <img src="Z:/picture/008/save_picture_514268.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514261.jpg" />
+  <img src="Z:/picture/008/save_picture_514261.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Darksiders II: Death Lives - Limited Edition [Ru/En/Multi6] (Repack/1.0) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514230.jpg" />
+  <img src="Z:/picture/008/save_picture_514230.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Expendables 2 Videogame (2012) [Multi] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514188.jpg" />
+  <img src="Z:/picture/008/save_picture_514188.jpg" />
 </div>
 
 

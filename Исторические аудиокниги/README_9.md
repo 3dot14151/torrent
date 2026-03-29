@@ -1,3 +1,55 @@
+###  Публикация: 1110924   (848666) от 05.03.2017
+
+Леонид Бородин | Царица смуты (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марии Мнишек, одной из героинь русского «смутного времени» 17 в. (параллели которого с сегодняшней России у Бородина вполне отчетливы), посвящена историческая повесть Царица Смуты (1996)... Преисполненный неуемной злобы, сотворил сатана степи ногайские, чтобы опорочить великие творения Господа. Только он, хулитель Имени Святого, мог раскатать по тверди земной эту (   Читать дальше...   )Жанр: Исторический романПродолжительность: 11:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F106E17F79E5F6684E2E6F3729BC2AD6FDDE83E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499568   (847820) от 02.10.2021
+
+Говард Роберт | Ястребы востока (сборник) (2021) [MP3, Олег Семилетов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кормак Фицжоффри родился на земле, где балом правили насилие и кровь. Но он смог выжить. Странствующий воин, наемник и мститель. Немного у него друзей, и тот, кто причинит им вред, рискует не дожить до рассвета… Кормак хочет освободить своего суверена из лап врагов, и для этого ему нужно найти выкуп. Причем выкуп королевский. В этом ему может помочь местный царек-разбойник. (   Читать дальше...   )Жанр: Исторические приключения, Классика приключенческой литературыПродолжительность: 10:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF871933BE39078E9DAF2FA9ED948710C2CC4574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111308   (846648) от 06.03.2017
 
 Георгий Тедеев | Черная жемчужина (2015) [MP3]
@@ -6,7 +58,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846648.jpg" />
+  <img src="Z:/picture/008/save_picture_846648.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846613.jpg" />
+  <img src="Z:/picture/008/save_picture_846613.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846458.jpg" />
+  <img src="Z:/picture/008/save_picture_846458.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844914.jpg" />
+  <img src="Z:/picture/008/save_picture_844914.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843221.jpg" />
+  <img src="Z:/picture/008/save_picture_843221.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843217.jpg" />
+  <img src="Z:/picture/008/save_picture_843217.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839995.jpg" />
+  <img src="Z:/picture/008/save_picture_839995.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837570.jpg" />
+  <img src="Z:/picture/008/save_picture_837570.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836271.jpg" />
+  <img src="Z:/picture/008/save_picture_836271.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Robert Conquest | The Harvest of Sorrow / Роберт  Конквест | Жа�
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836088.jpg" />
+  <img src="Z:/picture/008/save_picture_836088.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834532.jpg" />
+  <img src="Z:/picture/008/save_picture_834532.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833179.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832475.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832435.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831446.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831362.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828895.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828147.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826607.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_823489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_823489.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822526.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821413.jpg" />
+  <img src="Z:/picture/008/save_picture_821413.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820424.jpg" />
+  <img src="Z:/picture/008/save_picture_820424.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819752.jpg" />
+  <img src="Z:/picture/008/save_picture_819752.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EB85B3F9D38228DB46CB46AC2001CEDE44FFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007195   (819546) от 16.04.2016
-
-Георгий Вернадский | Русская история (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Г.В. Вернадский, крупнейший историк русского зарубежья, один из основателей евразийства, в 1927 году написал для студентов американских университетов учебник по русской истории, который дорабатывал, включая новейшие материалы, вплоть до 1969 г. Книга выдержала множество переизданий на иностранных языках. В последней редакции охватывается период с Древней Руси до (   Читать дальше...   )Жанр: ИсторияПродолжительность: 27:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C719F89FFFE6C3C3ECE01BC1CD7DB9C3010C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196817   (818768) от 05.01.2018
-
-Виктор Земсков | Сталин и народ. Почему не было восстания (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из главных тем в советской истории – отношение народа к И.В. Сталину. Почему народ поддерживал его, несмотря на жесткую политику в отношении крестьянства, на репрессии, на тяжелые потери в Великой Отечественной войне? Историки либерального толка объясняют это «рабской психологией» русского народа, его привычкой обожествлять верховного правителя. Автор данной (   Читать дальше...   )Жанр: Общая историяПродолжительность: 09:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C50F7B407198813340C56CDDEE92DF403DE80A
 ```
 
 https://mybot314.ru/tekegram_catalog/

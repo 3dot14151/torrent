@@ -1,3 +1,84 @@
+###  Публикация: 1815789   (4976) от 31.08.2025
+
+Елена Журек, Светлана Огнева | Подростки. Как рушится и рождается личность (2025) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга объясняет, почему подростковые проблемы связаны с детскими травмами и упущениями предыдущих этапов развития.
+
+Помогает лучше понять себя и ребёнка, преодолеть кризис и сформировать здоровую личность.
+Выдающиеся психиатры и психологи, классики мировой литературы, учителя и родители – практически все человечество единогласно в одном: подростковый кризис является (   Читать дальше...   )Жанр: О психологии популярно, Детская психологияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26240074E40DF08310DB01A6EC77C517C1E9F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815915   (4833) от 01.09.2025
+
+Патрисия Маккарти | Чтение по лицу. Как определять характер, таланты, совместимость и проблемы людей на основе даосской мудрости (2023) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга ведущего американского эксперта по древнекитайском)'' учению Мянь Сян («чтение лиц») Патрисии Маккарти, иллюстрированная детальными фотографиями, предлагает уникальный инструмент получения информации о характере окружающих, а также самопознания. С помощью рекомендаций, изложенных в этой книге, вы сможете определить скрытые черты характера любого человека, его (   Читать дальше...   )Жанр: Популярная психология, Практическая эзотерикаПеревод: с англ., Егора ОбатуроваИздательство: Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0059A0F8D3C7F298F487369F623179FA4DBA8685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815811   (4820) от 01.09.2025
+
+Джеймс Бьюдженталь | Психотерапия и процесс. Основы экзистенциально-гуманистического подхода (2023) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь — это осознавание. По мнению автора, всё сводится к этому. Автор говорит это как человек и как психолог, а особенно как психолог в экзистенциальном и гуманистическом подходе. Если не существует и не может существовать осознавания — это смерть. Человеческая жизнь — это сознание, а психотерапия — это искусство, наука и практика изучения природы сознания и того, (   Читать дальше...   )Жанр: Зарубежная психология, ПсихотерапияПеревод: С  английского Ольги ТурухинойИздательство: СамадхиФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CE63A5AB25266F1798243A91A2E6CA5C7D8702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816606   (4202) от 06.09.2025
 
 К. Виллемайер, С.Толанд | Нейрохакинг (2022) [PDF]
@@ -6,7 +87,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4202.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3938.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3647.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3382.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3380.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3210.jpg" />
 </div>
 
 
@@ -170,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3042.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3020.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3017.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2701.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2549.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2197.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1701.jpg" />
 </div>
 
 
@@ -358,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1338.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_860.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_825.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84.jpg" />
 </div>
 
 

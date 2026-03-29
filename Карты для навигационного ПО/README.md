@@ -7,7 +7,7 @@ Navitel / Официальные карты релиза Q4 2025 v9 (9.13...) [R
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059927.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Garmin: Дороги России Топо 6.50 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056428.jpg" />
+  <img src="Z:/picture/005/save_picture_1056428.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042423.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Garmin: TOPO Great Britain v2 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042098.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Garmin: Adria TOPO v5 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042089.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Navitel / Навител: Карты Q1-2021 для версий 11.7.61 и вы
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022322.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009741.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Garmin: City Navigator Turkey NTU 2016.30 [Tr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983094.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Garmin: City Navigator Southern Africa NT 2016.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973200.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Garmin: City Navigator India NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971924.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Garmin: City Navigator Middle East & North Africa 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970657.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Garmin: TOPO Norway Premium v2 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969528.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Garmin: City Navigator Israel NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946501.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Garmin: NaviGuide Hungary v2016.01 NT Final [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930735.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Garmin: City Navigator Chile NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930731.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Garmin: City Navigator Argentina NT 2017.10 Proyecto [Es]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928931.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Garmin: City Navigator Australia & New Zealand NT HERE 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928784.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914965.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Garmin TOPO U.S. 100K 5.0 [Карта] (Garmin)
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908754.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Garmin: City Navigator Middle East and North Africa 2017.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898958.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Garmin: City Navigator Thailand 2016.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895700.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888733.jpg" />
+  <img src="Z:/picture/005/save_picture_888733.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875865.jpg" />
+  <img src="Z:/picture/005/save_picture_875865.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875858.jpg" />
+  <img src="Z:/picture/005/save_picture_875858.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863285.jpg" />
+  <img src="Z:/picture/008/save_picture_863285.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Navitel / Навител: «Федеральные округа России» �
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859126.jpg" />
+  <img src="Z:/picture/008/save_picture_859126.jpg" />
 </div>
 
 

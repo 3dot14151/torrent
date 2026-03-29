@@ -1,3 +1,29 @@
+###  Публикация: 1073078   (243917) от 19.11.2016
+
+О. М. Бескин | Кулацкая художественная литература и оппортунистическая критика (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Статьи этой книжки объединены общей литературно-политической задачей: разоблачить кулацкие тенденции в художественной литературе. Написаны они в разное время. Первая, под названием «Россеяне», была опубликована мною в переодической печати в 1928 г. С тех пор имел место целый ряд «вылазок» правооппортунистической критики и анализируемых мною писателей как в связи (   Читать дальше...   )Жанр: История, политология, литературоведение, поэзия, философия, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F582AA0E77F7C0047D78E4153FFEA23BFC97808C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073091   (243891) от 19.11.2016
 
 М. Ф. Быкова | Гегелевское понимание мышления (1990) [DJVU, PDF]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243891.jpg" />
+  <img src="Z:/picture/004/save_picture_243891.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243878.jpg" />
+  <img src="Z:/picture/004/save_picture_243878.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243870.jpg" />
+  <img src="Z:/picture/004/save_picture_243870.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243546.jpg" />
+  <img src="Z:/picture/004/save_picture_243546.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243300.jpg" />
+  <img src="Z:/picture/004/save_picture_243300.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241797.jpg" />
+  <img src="Z:/picture/004/save_picture_241797.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240365.jpg" />
+  <img src="Z:/picture/004/save_picture_240365.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238837.jpg" />
+  <img src="Z:/picture/005/save_picture_238837.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Marcos Mateu-Mestre | Framed Drawing Techniques: Mastering Ballpoint Pen, Graphi
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238345.jpg" />
+  <img src="Z:/picture/005/save_picture_238345.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237526.jpg" />
+  <img src="Z:/picture/004/save_picture_237526.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237474.jpg" />
+  <img src="Z:/picture/004/save_picture_237474.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235165.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232585.jpg" />
+  <img src="Z:/picture/004/save_picture_232585.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232502.jpg" />
+  <img src="Z:/picture/005/save_picture_232502.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231568.jpg" />
+  <img src="Z:/picture/005/save_picture_231568.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230239.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230050.jpg" />
+  <img src="Z:/picture/005/save_picture_230050.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230037.jpg" />
+  <img src="Z:/picture/005/save_picture_230037.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229981.jpg" />
+  <img src="Z:/picture/005/save_picture_229981.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229963.jpg" />
+  <img src="Z:/picture/005/save_picture_229963.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229650.jpg" />
+  <img src="Z:/picture/004/save_picture_229650.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229635.jpg" />
+  <img src="Z:/picture/004/save_picture_229635.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229227.jpg" />
+  <img src="Z:/picture/004/save_picture_229227.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229082.jpg" />
+  <img src="Z:/picture/004/save_picture_229082.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229002.jpg" />
+  <img src="Z:/picture/004/save_picture_229002.jpg" />
 </div>
 
 
@@ -664,34 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A9C87114D461FF0D42C10FDF62F0E31CE0560A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424270   (228908) от 16.11.2020
-
-К. Крауфорд | Методика умственной работы (1928) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необходимость соответствующей тренировки в методах умственной работы была признана уже давно. Сравнительно недавно, однако, пришли к убеждению в том, что одним из существенных недостатков наших программ является отсутствие в них раздела о рацио­нальных методах умственной работы, подлежащих усвоению учащимися наряду с другими школьными навыками.
-
-В целях устранения (   Читать дальше...   )Жанр: История, психология, педагогика, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599B88A0B6A5DAB8AA0E55738899F325F1B06E81
 ```
 
 https://mybot314.ru/tekegram_catalog/

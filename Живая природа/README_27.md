@@ -1,3 +1,57 @@
+###  Публикация: 1069838   (371015) от 05.11.2016
+
+Чудесный лес / Metsan tarina (2012) BDRip3D [H.264/1080p] [вертикальная анаморфная стереопара] [ENG]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371015.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме показана разнообразная и насыщенная жизнь обитателей леса. Красочные пейзажи разных времен года будут фоном интересных событий жизни птиц, насекомых, а также мелких грызунов и крупных хищников.Жанр: Документальный, ВидовойРежиссер: Kim Saarniluoto, Вилле СухоненПеревод: ОтсутствуетЯзык озвучки: английскийПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA3DA57BB5D6A19E750CF5772F01CF5DE93EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534241   (370622) от 05.11.2016
+
+Коралловый риф 3D / Faszination Korallenriff 3D (2011) BDrip [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и расслабляющий фильм в формате 3D приглашает Вас отправится в коралловое путешествие. Яркие краски обитателей кораллового Мира, флора и фауна которую могут увидеть только профессиональные ныряльщики. От шаровых рыб, морских ежей, до гигантский акул. Вы будете удивлены многочисленности глубоководных жителей нашей планеты. Самые современные 3D-технологии (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Бенжамин КраузеПеревод: |Одноголосый закадровый|Субтитры: нет
+
+Похожие раздачиПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A20C58E80036F1235CDDEF81CA29FB3FC4790E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575257   (370431) от 14.11.2012
 
 BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRip [H.264/720p] (Серии 1-5 из 5)
@@ -6,7 +60,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRip [H.264
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370431.jpg" />
+  <img src="Z:/picture/008/save_picture_370431.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368454.jpg" />
+  <img src="Z:/picture/008/save_picture_368454.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRip (Се�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368070.jpg" />
+  <img src="Z:/picture/008/save_picture_368070.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367056.jpg" />
+  <img src="Z:/picture/008/save_picture_367056.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367047.jpg" />
+  <img src="Z:/picture/008/save_picture_367047.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364793.jpg" />
+  <img src="Z:/picture/008/save_picture_364793.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361780.jpg" />
+  <img src="Z:/picture/008/save_picture_361780.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361123.jpg" />
+  <img src="Z:/picture/008/save_picture_361123.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360767.jpg" />
+  <img src="Z:/picture/008/save_picture_360767.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360381.jpg" />
+  <img src="Z:/picture/008/save_picture_360381.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360320.jpg" />
+  <img src="Z:/picture/008/save_picture_360320.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359616.jpg" />
+  <img src="Z:/picture/008/save_picture_359616.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359444.jpg" />
+  <img src="Z:/picture/008/save_picture_359444.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359101.jpg" />
+  <img src="Z:/picture/008/save_picture_359101.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358243.jpg" />
+  <img src="Z:/picture/008/save_picture_358243.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354319.jpg" />
+  <img src="Z:/picture/008/save_picture_354319.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354273.jpg" />
+  <img src="Z:/picture/008/save_picture_354273.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354069.jpg" />
+  <img src="Z:/picture/008/save_picture_354069.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353873.jpg" />
+  <img src="Z:/picture/008/save_picture_353873.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353528.jpg" />
+  <img src="Z:/picture/008/save_picture_353528.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353260.jpg" />
+  <img src="Z:/picture/008/save_picture_353260.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352247.jpg" />
+  <img src="Z:/picture/008/save_picture_352247.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352120.jpg" />
+  <img src="Z:/picture/008/save_picture_352120.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352117.jpg" />
+  <img src="Z:/picture/008/save_picture_352117.jpg" />
 </div>
 
 
@@ -615,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD771C6554641F2B7C06642E63C9F2938D55534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329589   (352114) от 05.10.2019
-
-Коралловый риф 3D: Подводный мир Египта / Adventure coral reef 3D: Under the sea of Egypt (2012) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подводный мир Красного моря в Египте не просто красив - он сказочно красив. Кораллы, гигантские скаты, миллионы рыб самой разнообразной раскраски, затонувшие корабли. Этот мир вас будет тянуть к себе с такой силой, что вы будите возвращаться туда снова и снова, чтобы испытать тот неописуемый восторг, радость первых открытий, ощущения умиротворенности и просто счастья. (   Читать дальше...   )Производство: Германия, KSMЖанр: Документальный, природа, флора, фаунаРежиссер: Питер ЛордПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC329E870E5F927550E72B011A559C574800C657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418139   (351237) от 23.10.2020
-
-Тайны дикой природы Австралии / Secrets of Wild Australia (2016) HDTVRip [H.264/1080p] (Сезон 1, серии 1-7 из 7)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в тайну и удивительные жизни некоторых диких животных Австралии. От миниатюрных сумчатых до летающих лис, присоединяйтесь к этим необычным существам, процветающим в потусторонних ландшафтах этого удивительного острова-континента.Производство: США, Blink FilmsЖанр: Документальный, природа, флора, фаунаРежиссер: Тиффани ДжонсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D12CF60FD1A5B97F3E17F1E5B2977770E40FC2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

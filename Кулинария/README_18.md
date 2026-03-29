@@ -1,3 +1,29 @@
+###  Публикация: 1112747   (841230) от 09.03.2017
+
+А.С. Пирузян (гл. ред.) | Армянская кулинария [Два издания] (1960, 1983) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга « Армянская кулинария» Знакомит читателей с армянской национальной кухней. В ней приведены рецептуры и технологии приготовления разнообразных блюд. Большой интерес представляют некоторые старинные блюда армянской кухни, которые благодаря своим высоким вкусовым качествам и питательной ценности не потеряли значение до настоящего времени и могут быть рекомендованы (   Читать дальше...   )Жанр: КулинарияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B397B598357C2BB2230016B8D98C64F498DF1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112698   (841220) от 09.03.2017
 
 Ника Белоцерковская | Сделано в Италии. Гастрономические рецепты. Книга вторая (2013) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841220.jpg" />
+  <img src="Z:/picture/008/save_picture_841220.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839870.jpg" />
+  <img src="Z:/picture/008/save_picture_839870.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839785.jpg" />
+  <img src="Z:/picture/008/save_picture_839785.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839784.jpg" />
+  <img src="Z:/picture/008/save_picture_839784.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839782.jpg" />
+  <img src="Z:/picture/008/save_picture_839782.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839780.jpg" />
+  <img src="Z:/picture/008/save_picture_839780.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839777.jpg" />
+  <img src="Z:/picture/008/save_picture_839777.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839773.jpg" />
+  <img src="Z:/picture/008/save_picture_839773.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839772.jpg" />
+  <img src="Z:/picture/008/save_picture_839772.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839770.jpg" />
+  <img src="Z:/picture/008/save_picture_839770.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839657.jpg" />
+  <img src="Z:/picture/008/save_picture_839657.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839646.jpg" />
+  <img src="Z:/picture/008/save_picture_839646.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839644.jpg" />
+  <img src="Z:/picture/008/save_picture_839644.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839548.jpg" />
+  <img src="Z:/picture/008/save_picture_839548.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839111.jpg" />
+  <img src="Z:/picture/008/save_picture_839111.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838315.jpg" />
+  <img src="Z:/picture/008/save_picture_838315.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838084.jpg" />
+  <img src="Z:/picture/008/save_picture_838084.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838074.jpg" />
+  <img src="Z:/picture/008/save_picture_838074.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837751.jpg" />
+  <img src="Z:/picture/008/save_picture_837751.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836462.jpg" />
+  <img src="Z:/picture/008/save_picture_836462.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835969.jpg" />
+  <img src="Z:/picture/008/save_picture_835969.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835899.jpg" />
+  <img src="Z:/picture/008/save_picture_835899.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835880.jpg" />
+  <img src="Z:/picture/008/save_picture_835880.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835706.jpg" />
+  <img src="Z:/picture/008/save_picture_835706.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835093.jpg" />
+  <img src="Z:/picture/009/save_picture_835093.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34CC0D4AA6987BB3346AA867559FBF16B0E65D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113971   (835015) от 13.03.2017
-
-Олег Ольхов | Салаты. Закуски на вашем столе (2017) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шеф-повар московского Данилова монастыря предлагает рецепты салатов и закусок. Холодные и теплые салаты, с овощами и грибами, с бобовыми, паштеты из овощей, холодец. К рецептам прилагается время и порции.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F0662882136E3CCCDF0640C1E1B3329FADB6DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Microsoft Windows 10 Enterprise S Technical Preview 10.0.14352 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726892.jpg" />
+  <img src="Z:/picture/008/save_picture_726892.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Dreamweaver CC 2015.3 (7888) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726891.jpg" />
+  <img src="Z:/picture/008/save_picture_726891.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Dreamweaver CC 2015.3 (7888) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726882.jpg" />
+  <img src="Z:/picture/008/save_picture_726882.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DAEMON Tools Lite 10.4.0.190 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726859.jpg" />
+  <img src="Z:/picture/008/save_picture_726859.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Soft4Boost Easy Disc Burner 4.8.3.375 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726702.jpg" />
+  <img src="Z:/picture/008/save_picture_726702.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Free Studio 6.6.19.602 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726682.jpg" />
+  <img src="Z:/picture/008/save_picture_726682.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Soft4Boost Dup File Finder 6.2.5.447 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726675.jpg" />
+  <img src="Z:/picture/008/save_picture_726675.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft4Boost Any Uninstaller 6.9.7.541 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726671.jpg" />
+  <img src="Z:/picture/008/save_picture_726671.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Firefox Quantum ESR 60.5.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726543.jpg" />
+  <img src="Z:/picture/008/save_picture_726543.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Maxthon Browser 5.3.8.300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726536.jpg" />
+  <img src="Z:/picture/008/save_picture_726536.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726526.jpg" />
+  <img src="Z:/picture/008/save_picture_726526.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726515.jpg" />
+  <img src="Z:/picture/008/save_picture_726515.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Soft4Boost Document Converter 4.4.9.347 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726511.jpg" />
+  <img src="Z:/picture/008/save_picture_726511.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bootstrap Studio 5.9.3 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726499.jpg" />
+  <img src="Z:/picture/008/save_picture_726499.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Soft4Boost Secure Eraser 4.0.5.367 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726491.jpg" />
+  <img src="Z:/picture/008/save_picture_726491.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Soft4Boost Toolbar Cleaner 4.5.7.301 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726484.jpg" />
+  <img src="Z:/picture/008/save_picture_726484.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Soft4Boost Update Checker 6.7.5.345 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726468.jpg" />
+  <img src="Z:/picture/008/save_picture_726468.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ K-Lite Codec Pack Update 13.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726451.jpg" />
+  <img src="Z:/picture/008/save_picture_726451.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sumatra PDF 3.4.14270 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726444.jpg" />
+  <img src="Z:/picture/008/save_picture_726444.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Streamlabs OBS 1.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726405.jpg" />
+  <img src="Z:/picture/008/save_picture_726405.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Brave Browser 0.60.45 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726398.jpg" />
+  <img src="Z:/picture/008/save_picture_726398.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Active PKiller 1.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726380.jpg" />
+  <img src="Z:/picture/008/save_picture_726380.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ LibreOffice 5.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726358.jpg" />
+  <img src="Z:/picture/008/save_picture_726358.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ GPU Caps Viewer 1.34.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726348.jpg" />
+  <img src="Z:/picture/008/save_picture_726348.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Icecream Screen Recorder Pro 4.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726347.jpg" />
+  <img src="Z:/picture/008/save_picture_726347.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ ZD Soft Screen Recorder 10.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726345.jpg" />
+  <img src="Z:/picture/008/save_picture_726345.jpg" />
 </div>
 
 

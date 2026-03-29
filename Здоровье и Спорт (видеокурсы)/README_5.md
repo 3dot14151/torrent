@@ -1,3 +1,29 @@
+###  Публикация: 1159470   (483729) от 20.08.2017
+
+Daily Burn | Power Cardio (2017) HDTVRip [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестинедельная программа Power Cardio предлагает восемь новых тренировок, в которой смешиваются  кардио и силовые упражнения. Кроме того, вы получаете смесь кикбоксинга, атлетической тренировки, базовой подготовки и мобильности.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D94BF6DC78BEC26E1ECD52A48E17E0D2F223E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159636   (479515) от 22.08.2017
 
 Ярослав Брин | Фитнес модель за 4 месяца - 3.0 (2016) HDTVRip [H.264]
@@ -6,7 +32,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479515.jpg" />
+  <img src="Z:/picture/008/save_picture_479515.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Frank Sepe | Met-Rx 180 Workout (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478938.jpg" />
+  <img src="Z:/picture/008/save_picture_478938.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478718.jpg" />
+  <img src="Z:/picture/008/save_picture_478718.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Justin Rubin | True Beginner (2017) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473634.jpg" />
+  <img src="Z:/picture/008/save_picture_473634.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Bob Harper | Totally Ripped Core (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470561.jpg" />
+  <img src="Z:/picture/008/save_picture_470561.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466206.jpg" />
+  <img src="Z:/picture/008/save_picture_466206.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Bob Harper | Inside Out Method - Kettlebell Sculpted Body (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457010.jpg" />
+  <img src="Z:/picture/008/save_picture_457010.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Anja Garcia | Inferno Workout Program (2016) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456969.jpg" />
+  <img src="Z:/picture/008/save_picture_456969.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454653.jpg" />
+  <img src="Z:/picture/008/save_picture_454653.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Zuzka Light | ZCUT Power Strength Series (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454617.jpg" />
+  <img src="Z:/picture/008/save_picture_454617.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Bob Harper | Inside Out Method - Pure Burn Super Strength (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450497.jpg" />
+  <img src="Z:/picture/008/save_picture_450497.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Paul Katami | KettleBell Kombos (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448711.jpg" />
+  <img src="Z:/picture/008/save_picture_448711.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Paul Katami | KettleBell Drills Workout (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448089.jpg" />
+  <img src="Z:/picture/008/save_picture_448089.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447551.jpg" />
+  <img src="Z:/picture/008/save_picture_447551.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446544.jpg" />
+  <img src="Z:/picture/008/save_picture_446544.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ Zuzka Light | ZCUT Power Cardio Series (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445857.jpg" />
+  <img src="Z:/picture/008/save_picture_445857.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ Hit | Power from push ups DVD [2006] DVDRip [En]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445762.jpg" />
+  <img src="Z:/picture/008/save_picture_445762.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Alex Isaly | KettleWorX 8 Week Rapid Evolution (2015) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441398.jpg" />
+  <img src="Z:/picture/008/save_picture_441398.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Jillian Michaels | BodyShred (2015) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441393.jpg" />
+  <img src="Z:/picture/008/save_picture_441393.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ BodyRock | HIITMAX 8-14 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434376.jpg" />
+  <img src="Z:/picture/008/save_picture_434376.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ BodyRock | HIITMAX 1-7 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434300.jpg" />
+  <img src="Z:/picture/008/save_picture_434300.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Ido Portal | The Floreio Project (2014) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434244.jpg" />
+  <img src="Z:/picture/008/save_picture_434244.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Jillian Michaels | Killer Buns and Thighs (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434211.jpg" />
+  <img src="Z:/picture/008/save_picture_434211.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ Jillian Michaels | Killer Body (2015) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431957.jpg" />
+  <img src="Z:/picture/008/save_picture_431957.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ Eкaтepинa Mиpимaнoва | Минус 60. Худеем за 21 день (2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430850.jpg" />
+  <img src="Z:/picture/008/save_picture_430850.jpg" />
 </div>
 
 
@@ -666,35 +692,6 @@ Eкaтepинa Mиpимaнoва | Минус 60. Худеем за 21 день (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC137089EBA4AE4E7F2768E3FCF9452640285FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571886   (429308) от 23.08.2022
-
-NSA, Владимир Дадали | Образовательный курс по нутрициологии и диетологии. 22 поток (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образовательный курс по нутрициологии и диетологии "22 ПОТОК"
-Объемно. Фундаментально. Научно. Местами сложно, но захватывающе. Обучение, меняющее взгляд на привычные вещи.
-Длительность курса: 5 месяцев
-Академия Нутрициологии лицензирована Министерством образования РФ(   Читать дальше...   )Производство: NSAЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 125:18:09Реклама: Присутствуют сторонние наложения и вставки в видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEF52583440B888640B964A00B344852167E9F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

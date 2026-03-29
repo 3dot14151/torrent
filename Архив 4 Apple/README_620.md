@@ -1,3 +1,107 @@
+###  Публикация: 1432673   (163333) от 18.12.2020
+
+MarsEdit 4 v4.4.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 13.12.2020Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A845C46E02A85F899CB0695E82DE7CFE2354D8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432853   (163329) от 18.12.2020
+
+Website Watchman 2.12.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мониторинг, архивирование, просмотр сохраненной информации. Website Watchman - это простая в использовании утилита для архивирования веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D4360497C18FF8DAF0131D125F098127DE0645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598303   (163324) от 18.12.2022
+
+AudKit Spotify Music Converter for Mac 2.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без потерь конвертируйте и загружайте треки и плейлисты Spotify для прослушивания в автономном режиме на любом устройстве. AudKit Spotify Converter поддерживает преобразование списка воспроизведения Spotify в MP3, AAC, M4A, M4B, WAV, FLAC и другие распространенные аудиоформаты.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2022 AudKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBCF6818D4EE9885CC463FC6E2ABAE9F0763DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432678   (163322) от 18.12.2020
+
+Timemator 2 v2.7.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоматизируйте отслеживание времени на основе ваших действий на Mac. Timemator позволяет полностью автоматизировать отслеживание времени на основе ваших действий на Mac. Просто укажите Timemator, какие файлы, приложения или веб-сайты вы используете для своей работы, и он автоматически запустит таймер для вас.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: Catforce StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C359B6D94DC92F69E696E22E9CECE162002F9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432666   (163317) от 18.12.2020
 
 Display Maid 3.0 [En]
@@ -6,7 +110,7 @@ Display Maid 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163317.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ iconStiX 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163312.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ NeoOffice 2017.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163307.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163299.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ PowerPhotos 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163283.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ DRmare Music Converter for Spotify 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163276.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Viwizard Spotify Music Converter for Mac 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163269.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163268.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ iVI Video Converter 4 v4.740 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163263.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ RAW Power 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163259.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ ScreenFlow 9 v9.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163254.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ macOS 12 Monterey 12.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163234.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Allegorithmic Substance Alchemist 2020.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163233.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ calibre 6.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163228.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ Rhinoceros 8 v.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163215.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Yate 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163173.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ Allegorithmic Substance Designer 2020.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163171.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ ExactScan Pro 19.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163168.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ Boxy SVG 3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163163.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Persecond 1.4.6 (build 120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163153.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ New File Menu 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163139.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ Deflection 5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163135.jpg" />
 </div>
 
 
@@ -577,112 +681,6 @@ Deflection является наиболее интерактивным, быс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EE8F68C81F2E7EAC7B81D9BE90004183581B8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673831   (163108) от 03.11.2023
-
-Audio Hijack 4.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
-В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 11.0 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8160420A4C9B2F6D7C4A4407B6EA35941E8D5F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673861   (163078) от 03.11.2023
-
-Steinberg Cubase Pro for Mac 13 v.13.0.10 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase 13 поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 Steinberg Media Technologies GmbH.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EA9CD3C8C59AF2F79D2CEA2ECA42D54A1F8612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432816   (163075) от 18.12.2020
-
-Adobe XD 35.2.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3897988A40349AAC08A9541318DF6389AA8980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432664   (163074) от 18.12.2020
-
-Cisdem PDF Password Remover 4 v4.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDF Password Remover - позволяет удалить пароль из PDF-документа и получить доступ к наиболее важным данным.
-Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет запрет на печать, копирование и редактирование. Тем не менее, это не будет проблемой, если у вас есть Cisdem PDF Password (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C40D3DB2ECDBD6DD873BAB266E1C87E32A31EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

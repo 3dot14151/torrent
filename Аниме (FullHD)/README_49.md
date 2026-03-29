@@ -1,3 +1,161 @@
+###  Публикация: 1596797   (169055) от 11.12.2022
+
+Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя девушка не просто милашка [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изуми - школьник, с катастрофически низким уровнем везения. Если он пришел домой только с парой синяков, то день можно считать удачным. То ветка в голову прилетит, то с лестницы упадет. Неизвестно, как долго бы прожил Изуми, если бы в его жизни не появилась Шикимори - красавица, спортсменка, милашка, которая в критических моментах становится невероятно крутой. С (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: комедия, романтикаРежиссер: Ито РётаПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1B028F1BFFD9901AB9F36D1F508BCCEE16988C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596689   (169015) от 11.12.2022
+
+Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого духа (2022) [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169015.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Юринэ Ханадзоно призвала Дзясин. Пока призыватель жив, Дзясин не вернуться в ад. Поэтому она пишет имя Юринэ в «Тетради несмерти» и клянётся наконец обрушить на неё свой дропкик. Тем временем появляется Пино, бывшая подчинённая Пеколы и Попорон. Пекола было обрадовалась, что наконец-то Бог прислал к ней кого-нибудь, да только в руках Пино оружие..."Производство: Студия Nomad / ノーマッドЖанр: комедияРежиссер: Сато ХикаруПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F094332A58DCB6C4E47EC53432EC3B4ABA88CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672297   (168705) от 28.10.2023
+
+Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168705.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далёком будущем, где люди и разумные человекоподобные роботы мирно сосуществуют, некто убивает людей и одного за другим уничтожает семерых величайших в мире роботов, выводя их из строя самым жестоким и бессмысленным образом. Гезихт — робот-детектив из Европола — расследует череду этих загадочных убийств, и дело становится ещё более запутанным, когда он начинает (   Читать дальше...   )Производство: студия Studio M2 / スタジオM2Жанр: триллерРежиссер: Кавагути ТосиоПеревод: NetflixЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-subПродолжительность: 8 эп. по 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B2FE3BDB711827CACA71F4A9303B96C0678CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588385   (168589) от 11.12.2022
+
+Akuyaku Reijou nano de Last Boss o Katte Mimashita | I`m the Villainess, So I`m Taming the Final Boss | Я злодейка, поэтому должна заарканить последнего босса [2022, TV, 12 из 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за болезни молодая девушка провела большую часть жизни в больничной палате, играя в отомэ-игры. И однажды она оказывается посреди сцены из такой игры в роли злодейки — Ирен Лорен д'Отриш. На банкете по случаю окончания зимнего семестра в Академии наследный принц и друг детства Ирен Седрик Жанна Эльмейер публично аннулирует свою помолвку с Ирен и объявляет, что (   Читать дальше...   )Производство: Maho FilmЖанр: Фэнтези, комедия, романтика, сёдзёРежиссер: Хабара КумикоСубтитры: Русские, Английские и другиеПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731714EEC3C61F5EC215B0D025D857FD24419E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516391   (166103) от 11.12.2021
+
+Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр японского театра, в котором роли обоих полов исполняют девушки, вот уже более сотни лет очаровывает многие поколения зрителей. Этой традиции следует и труппа Кока, к игре в которой готовят в музыкальной школе Кока. После тщательного отбора сюда поступает вот уже сотый курс молодых актрис: одна из них, Сараса Ватанабэ, восхищается леди Оскар и мечтает воплотить (   Читать дальше...   )Производство: Студия Pine Jam / パインジャムЖанр: повседневность, драмаРежиссер: Ёнэда КадзухироЯзык озвучки: Японский
+Субтитры: Русские
+Перевод: Wakanim (дехардсаб, оформление, лирика - ваш покорный слуга),Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C02824DFD0820D1962B65E58CBC4403592DF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596959   (165849) от 15.12.2022
+
+Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | Мечты летних дней [2021, OVA, 1 из 5] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гэнсокё – «Страна Фантазия» – с незапамятных времен лежит рядом с нашим миром, отделенная от него таинственным барьером. Издавна в ней мирно уживаются люди и магические существа, в том числе феи, демоны и боги. Барьер между мирами охраняет могущественная жрица Рэйму Хакурэй. Еще одна из ее обязанностей – организация в храме Хакурэй летнего фестиваля, на который собираются (   Читать дальше...   )Производство: Япония / MaikazeЖанр: фэнтези, комедияРежиссер: ТокинэПеревод: Неизвестного Автора, HayanoЯзык озвучки: ЯпонскийСубтитры: Русские(Full), Английские(Full)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AA2EF3E16A182C0786848FC8A4BE5BD0B812D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516810   (165302) от 12.12.2021
 
 Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +164,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165302.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165277.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165144.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165116.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164362.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164092.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162984.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162877.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162819.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162186.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161953.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161176.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161096.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161085.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160950.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157051.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157024.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150320.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149873.jpg" />
 </div>
 
 
@@ -516,165 +674,6 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2A833806C81114EEB56711AAC1E83AA3AB45542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086591   (149831) от 25.12.2016
-
-Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149831.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Японии много благородных воров, но даже среди них Кайто Кид или Малыш был известен ловкостью и неуловимостью. И вот легендарный Кайто Кид явился снова и крадет исключительно крупные драгоценности, мелочь его не интересует. Полицейские и частные детективы многое бы отдали за раскрытие личности звезды преступного мира, а на деле все просто: нынешний Малыш – 17-летний (   Читать дальше...   )Производство: Студия A-1 Pictures Inc.Жанр: приключения, комедияРежиссер: Кудо СусумуЯзык субтитров: Русский (отключаемый)Продолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC87D5DA81580138E473751B61F257A960EED33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271456   (149189) от 23.12.2018
-
-Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвращение и покажи трусики [2018, OVA, 6 из 6] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме для людей с довольно специфическим фетишем.Производство: Студия Uwan PicturesЖанр: эттиРежиссер: Фукасэ СаяПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E41A51549DDCF34064DE613C3D2C8C783DB151E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501384   (146901) от 25.12.2021
-
-Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Чёрной компании" [2021, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киндзи — обычный современный бездельник, для которого рабочая этика или трудолюбие — пустые слова. Но однажды всё меняется: он обнаруживает себя в фэнтезийном мире, но не таком, где героя-попаданца ждут с распростёртыми объятиями. Вместо этого он оказывается под пятой злобной горнодобывающей компании, и ему предстоит на собственной шкуре уяснять значение словосочетания (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедия, фэнтезиРежиссер: Минато МирайПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C287F506741409EC6EADFBBC45EFED22582552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331052   (146813) от 25.12.2019
-
-Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицина бессильна! [ТВ-3] [2019, TV, 12] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон истории, где сестра регулярно молотит своего тупого брата.
-
-Первый сезон
-Второй сезонПроизводство: совместное Япония-Китай (Imagineer, Fanworks, China Wit Media Co, Tencent Punguin Pictures)Жанр: комедия, повседневностьРежиссер: РарэкоПеревод: Наталия ИшоваЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC478403202B57E3376B993114183B44446EC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470624   (146648) от 25.12.2021
-
-Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что? [2021, TV, 24 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я, главная героиня, была обычной школьницей, но неожиданно переродилась в монстра-паука в другом мире. Да ещё и очутилась в подземелье, полном монстров. Мне, вооружённой только смекалкой и безграничным оптимизмом, приходится побеждать монстров намного сильнее себя с помощью ловушек из паутины... Так начинается история выживания одной очень упорной девушки, которая (   Читать дальше...   )Производство: студия Millepensee / ミルパンセЖанр: приключения, комедия, фэнтезиРежиссер: Итагаки СинПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A109AD9939FF799FCB5520702B9195101E0F744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494160   (146640) от 25.12.2021
-
-Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы будут высланы! [2021, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайное общество «Кисараги» — корпорация, которую знают по всей Земле — объявило себя организацией зла и стало творить повсюду свои тёмные делишки. Оно расправилось с героями и практически завоевало мир. Но что делать с комбатантами, верными агентами, когда мир падёт к ногам? В надежде предотвратить глобальные увольнения главы «Кисараги» решают действовать смело и (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, комедия, фэнтезиРежиссер: Акаги ХироакиПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A11D817D2C53E52C73BFC615AAF048EEE44966
 ```
 
 https://mybot314.ru/tekegram_catalog/

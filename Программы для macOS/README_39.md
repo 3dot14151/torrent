@@ -1,3 +1,137 @@
+###  Публикация: 1504415   (812361) от 23.10.2021
+
+EtreCheckPro 6.5.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистичное и очень простое в использовании приложение macOS, которое собирает важную информацию о вашей системе и помогает вам делиться ею с другими.
+Сбор важной информации о ваших аппаратных компонентах Mac, установленном программном обеспечении или запущенных процессах может оказаться довольно сложным для неопытных пользователей или трудоемким временем для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2021Разработчик: Etresoft, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD5916412B32E597638C9DE43E62630C7175108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504454   (812280) от 23.10.2021
+
+Memory Cleaner - Freeup space 1.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение контролирует использование оперативной памяти на вашем компьютере и освобождает неиспользуемую память одним щелчком мыши. С «очистителем» памяти вы можете легко управлять использованием памяти. Анимированный значок состояния в строке меню показывает процент использования используемой памяти, а также выполняемую очистку памяти.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2021Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A84EDCF42124CBA626B8D00FB7E623710FC867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009010   (811914) от 20.04.2016
+
+Squidoo 1.0.9 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Squidoo - простое и мощное приложение для поиска и управления воспроизведением музыки на вашем Mac.
+
+С Squidoo Вы можете:
+- Управлять воспроизведением популярных музыкальных приложений, в том числе iTunes, Spotify и Rdio, все из вашего меню бар(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 апреля 2016Разработчик: Americo Trading, Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CE8FC1F6D3F3B52BA974A4BC93D164F82D4EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009028   (811792) от 20.04.2016
+
+PhotoScissors 3.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811792.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoScissors предоставляет очень простой способ, чтобы избавиться от фона изображения. Вместо того, чтобы точно обводить контур с инструментами Лассо или волшебной палочкой в громоздких профессиональных графических редакторах, вы быстро отмечаете области, которые необходимо вырезать и те области, которые вы хотели бы сохранить и программа автоматически сделает все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 апреля 2016Разработчик: Maxim GapchenkoПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD03A1E56D2320916101B647A59A3BB1703D83EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383343   (811737) от 15.05.2020
+
+Rocket Pro 1.7.4 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rocket - это приложение для Mac, которое позволяет быстрее и проще набирать эмодзи с помощью ярлыков в стиле Slack.Тип издания: macOS SoftwareРелиз состоялся: 14.05.2020Разработчик: Matthew PalmerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89D27AB25D3F08FD2B4DD6715FBC0DDDE9CACD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197943   (811438) от 09.01.2018
 
 JetBrains IntelliJ IDEA Ultimate 2017.3.2 [En]
@@ -6,7 +140,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811438.jpg" />
+  <img src="Z:/picture/008/save_picture_811438.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Noizio 1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811336.jpg" />
+  <img src="Z:/picture/008/save_picture_811336.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ calibre 5 v5.30 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810214.jpg" />
+  <img src="Z:/picture/008/save_picture_810214.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ Next - Track your expenses and finances 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810156.jpg" />
+  <img src="Z:/picture/008/save_picture_810156.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ NetWorker - Advanced Network Information App 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810129.jpg" />
+  <img src="Z:/picture/008/save_picture_810129.jpg" />
 </div>
 
 
@@ -142,7 +276,7 @@ Cal Cat 2.0 (1.95) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810111.jpg" />
+  <img src="Z:/picture/008/save_picture_810111.jpg" />
 </div>
 
 
@@ -170,7 +304,7 @@ Network Utility X 6.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810105.jpg" />
+  <img src="Z:/picture/008/save_picture_810105.jpg" />
 </div>
 
 
@@ -197,7 +331,7 @@ Gemini 1.5.17 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809773.jpg" />
+  <img src="Z:/picture/008/save_picture_809773.jpg" />
 </div>
 
 
@@ -224,7 +358,7 @@ Sony Catalyst Production Suite 2016.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809351.jpg" />
+  <img src="Z:/picture/008/save_picture_809351.jpg" />
 </div>
 
 
@@ -253,7 +387,7 @@ Focused (was Typed) 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809147.jpg" />
+  <img src="Z:/picture/008/save_picture_809147.jpg" />
 </div>
 
 
@@ -280,7 +414,7 @@ PowerPhotos 1.9.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808351.jpg" />
+  <img src="Z:/picture/008/save_picture_808351.jpg" />
 </div>
 
 
@@ -306,7 +440,7 @@ Notability 4.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808338.jpg" />
+  <img src="Z:/picture/008/save_picture_808338.jpg" />
 </div>
 
 
@@ -332,7 +466,7 @@ WidsMob HEIC for Mac 2.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808082.jpg" />
+  <img src="Z:/picture/008/save_picture_808082.jpg" />
 </div>
 
 
@@ -358,7 +492,7 @@ Adobe Animate CC 2015.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807459.jpg" />
+  <img src="Z:/picture/008/save_picture_807459.jpg" />
 </div>
 
 
@@ -384,7 +518,7 @@ Stockfolio - Stocks, Real-Time Stock Portfolio 1.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807231.jpg" />
+  <img src="Z:/picture/008/save_picture_807231.jpg" />
 </div>
 
 
@@ -413,7 +547,7 @@ Tasks 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807229.jpg" />
+  <img src="Z:/picture/008/save_picture_807229.jpg" />
 </div>
 
 
@@ -441,7 +575,7 @@ VMware Fusion Pro 8.1.1 (3771013) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807190.jpg" />
+  <img src="Z:/picture/008/save_picture_807190.jpg" />
 </div>
 
 
@@ -469,7 +603,7 @@ Image Uploader Lite [WineSkin] 1.3 (4222) [Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806466.jpg" />
+  <img src="Z:/picture/008/save_picture_806466.jpg" />
 </div>
 
 
@@ -496,7 +630,7 @@ Myna for Google Translate 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806440.jpg" />
+  <img src="Z:/picture/008/save_picture_806440.jpg" />
 </div>
 
 
@@ -522,7 +656,7 @@ FonePaw Video Converter Ultimate 6.0.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806436.jpg" />
+  <img src="Z:/picture/008/save_picture_806436.jpg" />
 </div>
 
 
@@ -548,7 +682,7 @@ OmniGraffle Pro 7 v7.19 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806394.jpg" />
+  <img src="Z:/picture/008/save_picture_806394.jpg" />
 </div>
 
 
@@ -559,141 +693,6 @@ OmniGraffle Pro - отличный инструмент для создания 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E15FF0A25AE96AC91CA959F38E616C798CABF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505307   (806386) от 26.10.2021
-
-OnyX 4.0.1 for macOS Big Sur 11 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806386.jpg" />
-</div>
-
-
-###  Подробнее
-
-OnyX для macOS Big Sur 11 - отличное приложение для оптимизации macOS, тонкой настройки скрытых возможностей Finder, Dock, Safari, Dashboard, Expose, Disk Utility, очистка системного кэша и кэша приложений, просмотр различных отчетов и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Titanium SoftwareПоддерживаемая ОС: macOS 11.3+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008DC4A4EF4B88399ECCFC1617417E9E4E9E7FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505260   (806300) от 26.10.2021
-
-Pixelmator Pro 2.2 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F688FC531BB1ADDCAC35E39E9BF7B54897D751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384153   (806257) от 18.05.2020
-
-QMidi Pro 2.8.9 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806257.jpg" />
-</div>
-
-
-###  Подробнее
-
-QMidi - проигрыватель MIDI/КАРАОКЕ для Macintosh. Он может организовать и проигрывать  множество типов мультимедийных файлов, включая фильмы и CD + G, и позволяет легко редактировать текст и аккорды, возможна синхронизация. QMidi pro обладает способностью отображать караоке и содержание видео в полноэкранном режиме, даже на второй монитор. У QMidi Pro простой, интуитивный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.05.2020Разработчик: Mixage SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Итальянский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EE751862948329BB2641B0638B1182E6D07FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010100   (806111) от 23.04.2016
-
-Email Archiver Enterprise 3.3.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архивирование электронной почты может быть болезненным опытом. Упростите свою жизнь с Email Archiver
-Email Archiver - с помощью этого приложения вы можете архивировать и хранить всю вашу почту или отдельные письма в формате PDF. Удобство использования такого подхода неоспоримо, т.к. для того, чтобы прочитать почтовые сообщения, не требуется собственно Mail.app.
- (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 апреля 2016Разработчик: Palmer Andersen Design & Development Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3B57FB28B4210D3C073A12D4416A30A8E374DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010071   (805847) от 23.04.2016
-
-Peeler 1.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Извлечение логотипов и других иллюстраций из файлов изображений, делая фон прозрачным и экспорт результата в популярный формат файла. Peeler это графическая программа, которая может отделить логотипы и иллюстрации от фона, создавая прозрачный фон. Peeler является эволюцией давних Photoshop плагинов ... " Peel - Off White" и "Peel-Off Black"
-
-Peeler (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 апреля 2016Разработчик: bergdesign inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF629DFC54DFDA29CEC356AFDEBB94889E429432
 ```
 
 https://mybot314.ru/tekegram_catalog/

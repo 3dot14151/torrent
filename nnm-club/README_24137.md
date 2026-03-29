@@ -1,23 +1,22 @@
-###  Публикация: 1767038   (101204) от 21.12.2024
+###  Публикация: 1760838   (103156) от 16.11.2024
 
-Газета | Невыдуманные истории №50 (454) (декабрь 2024) [PDF]
+Высшая лига / Major League (1989) BDRip [H.264]
 
->>Журналы
->>Другие журналы
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+Профессиональный бейсбол - это серьёзный бизнес. Посмотрим, насколько сможет повредить этой серьёзности команда редкостных остолопов из «Высшей лиги». Итак, что у нас имеется? Самая худшая команда, которую только можно себе представить! Хулиганистый питчер с супермощным броском и постоянными проблемами с законом; потрёпанный кэтчер-ветеран с больными коленями; и (   Читать дальше...   )Производство: США / Paramount Pictures, Morgan Creek, Mirage ProductionЖанр: комедия, спортРежиссер: Дэвид С. УордАктеры: Том Беренджер, Чарли Шин, Корбин Бернсен, Маргарет Уиттон, Джеймс Гэммон, Рене Руссо, Уэсли Снайпс, Чарльз Сайферс, Челси Росс, Дэннис ХэйсбёртПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9DCC38FD6D24F660EFB8AE2B8F12F2F5E40E40A
+magnet:?xt=urn:btih:F68737C0A8CFC0612CAF7DBB25D4DB8380950263
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,55 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767086   (101203) от 21.12.2024
+###  Публикация: 1760861   (103155) от 16.11.2024
 
-игумен Аристарх Лоханов (ред.) | Жития святых избранные по советам Святых Отцов и духовников русских обителей (2004) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге собраны жития, которые великие старцы и духовники русских обителей советовали читать «на потребу» — в трудных жизненных обстояниях: в гонении, обиде, клевете, в унынии, в изнемогающей борьбе с помыслами и грехами, в различных случаях для укрепления духа и веры.
-Этим данное издание принципиально отличается от других сборников житий святых, которые (   Читать дальше...   )Жанр: ПравославиеИздательство: КовчегФормат: DJVU, PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5062C381742251126FA424DB0EA288B47F6A3887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767003   (101202) от 21.12.2024
-
-VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+VA - Best of Celestial (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jack York - New Day (02:59)
-02. Mirko Lovato - Cosmic Galaxy (02:59)
-03. MANESK - We Are Wild (03:33)
-04. Free Mads - Look Inside (Deep House Mix) (05:10)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:19:58
+01. Leo Paoletta - Music (Original Mix) (7:21)
+02. Leo Paoletta - Valles Marineris (Original Mix) (7:26)
+03. VendettaX - Slum (Original Mix) (8:23)
+04. Nbwest - Somebody In Nowhereland (Original Mix) (5:42)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 07:21:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E8F85A16317B54449355ED6ED24580123D59CB5
+magnet:?xt=urn:btih:776988599840400227D28726C98B3DD21905C98D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767103   (101201) от 21.12.2024
+###  Публикация: 1749650   (103154) от 16.11.2024
 
-Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024) [MP3|320 Kbps] <Hard House, Dance>
+As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
 
->>Electronic
->>House
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Effort (3:13)
-02. Adrenaline Rush (3:33)
-03. Feel the beat (2:28)
-04. Barbell Anthem (2:33)(   Читать дальше...   )Жанр: Hard House, DanceПродолжительность: 01:03:00
+As I Lay Dying — американская металкор-группа из Сан-Диего, Калифорния.2001 - Beneath The Encasing Of Ashes
+2003 - Frail Words Collapse
+2005 - Shadows Are Security
+2007 - An Ocean Between UsЖанр: MetalcoreПродолжительность: 07:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD2C38F431CD4EA6A0EBD8539470FD813C14FE27
+magnet:?xt=urn:btih:300CA2D433807EF21D219752DB65180554EBA25B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766800   (101200) от 21.12.2024
+###  Публикация: 1760676   (103153) от 16.11.2024
 
-VA - Synchronized Music: Best of 2024 (2024) [MP3|320 Kbps] <Trance>
+VA - Sahaliittoteoria Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 
 >>Electronic
->>Trance
+>>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tony Irrmani - Road to the Magic Island (05:29)
-02. TONE - In Your Name (04:24)
-03. Gennady Blinkov - Union (05:39)
-04. A.L.Y.S. - Distant Past (03:49)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:03
+01. Igor Swamp feat. Kulkuri & Loitsu - Saihaintai (07:58)
+02. Igor Swamp - Bombuttelu (05:41)
+03. Kulkuri - Ring The Bell (07:58)
+04. Igor Swamp feat. Gallop - Tapbats (06:30)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:05:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9084C98F5E008C4521371008B23EA1AD66951019
+magnet:?xt=urn:btih:8D61F812B99FA4E1D7E3C2BAD844506DCE322503
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767063   (101199) от 21.12.2024
+###  Публикация: 1760785   (103152) от 16.11.2024
 
-VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+Rochelle & the Sidewinders - Soul Kiss (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sandeep Pai - Fade (Jerome Isma-Ae Remix) (04:15)
-02. Airbas - Believers (03:45)
-03. Celeste Siam - You Bring Me Joy (02:34)
-04. Two Minds - My Way to the Skies (03:52)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:21:27
+01. Sinner's Tale (4:43)
+02. Soul Kiss (4:30)
+03. Backseat Driver (4:03)
+04. Maybe Tomorrow (5:07)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66FF8AA676E8F741B22F3FC9B671D7A63FFA40FE
+magnet:?xt=urn:btih:21FE6775551B13FDE45DE4F414017823F00FB10D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,26 +140,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766997   (101198) от 21.12.2024
+###  Публикация: 1760867   (103151) от 16.11.2024
 
-НХЛ 2024-2025. Каролина Харрикейнз - Вашингтон Кэпиталз (20.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Beast - Ancient Powers Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Behead The Dragon
+2. In The Name Of The Horned One
+3. Ancient Powers Rising
+4. Kingdom Of Steel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA7BF8A21725E91FFB811A0A1C38216B9B72DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760805   (103150) от 16.11.2024
+
+Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death/Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Genus Ordinis Dei - итальянская симфоническая дэт-метал/дэткор-группа. Образована в 2009 году.2016 - The Middle
+2017 - Great Olden Dynasty
+2020 - Glare of Deliverance
+2023 - The BeginningЖанр: Symphonic Death/Groove Metal/MetalcoreПродолжительность: 04:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760839   (103149) от 16.11.2024
+
+MotoGP. Этап 20 из 20. Гран-при Барселоны. Квалификация (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
->>Хоккей
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 декабря 2024, суббота. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Питер Макдугалл (Реджайна, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:24
+16 ноября 2024, суббота. 12:50 МСК. Этап 20, Испания. Гран-при Барселоны. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7720521232CC03143BF68CEAE3CC959BD593BCAF
+magnet:?xt=urn:btih:C75AD9DD3C8C86D861078FA9C32C0A70B2FE03B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767079   (101197) от 21.12.2024
+###  Публикация: 1760879   (103148) от 16.11.2024
 
-VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Vito Lalinga (Vi Mode inc project) - Excellence (3:36)
-02.  Funky Destination - Bombshell (Extended) (5:14)
-03.  Funky Destination - God's Children (Extended) (5:12)
-04.  Funk Windows - Blues Fantasy (3:21)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:53:14
+01. Trolls in my head (3:02)
+02. Don't you lie to me (2:29)
+03. A change is gonna come (4:52)
+04. Reelin' and rockin' (1:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22FE1BEB8BA5C53697B514390F707063AEC7471E
+magnet:?xt=urn:btih:A0C0825E92C30D90097549617BE891DCDA640973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +253,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767083   (101196) от 21.12.2024
+###  Публикация: 1760900   (103147) от 16.11.2024
 
-VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
+Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stelae of Vultures (06:20)
+ 02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to Eat Feces by the Four Apes (03:50)
+ 03. To Strike with Secret Fang (01:59)
+ 04. Naqada II Enter the Golden Age (05:28)(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF99235F11BD18B301304EE2F67493BEB485877C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760791   (103146) от 16.11.2024
+
+Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mr. ThruouT - Spiral (5:44)
-02.  Mr. ThruouT - Giving You Four (5:20)
-03.  DJ Mister Funk - Audio Funk (3:42)
-04.  DJ Mister Funk - Dirty Groove (3:16)(   Читать дальше...   )Жанр: Jazz, Funk, R&BПродолжительность: 01:59:21
+01. Better (3:35)
+02. Business (5:51)
+03. Mojo (3:33)
+04. Fat Daddy (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92B78E64CFDBDEDF65C41B45ED51D0D0E08AE8C7
+magnet:?xt=urn:btih:E6FA8A6611C41D2820B92C70F5CA8990C5573A4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,44 +311,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767078   (101195) от 21.12.2024
+###  Публикация: 1760772   (103145) от 16.11.2024
 
-VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Afro Dub - Street Life (3:42)
-02.  Afro Dub - Free Nights (3:31)
-03.  Afro Dub - Speed Day (3:16)
-04.  Afro Dub - Tense Day (3:12)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C464BAD31965B2E22F6228B407E186EBCBE9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766957   (101194) от 21.12.2024
-
-Пятеро на одного (21.12.2024) WEBRip [H.264/720p-LQ]
+Пятеро на одного (16.11.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103145.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D89C849995F9592F46D3A210AC51D31ECFE5B5D
+magnet:?xt=urn:btih:75F621AB052D1D9DA4ED26AB9123C04A1E7AF903
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,25 +337,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767114   (101193) от 21.12.2024
+###  Публикация: 1760888   (103144) от 16.11.2024
 
-Своя игра (21.12.2024) WEBRip [H.264/1080p]
+MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2024 год близится к завершению, как и турнир "Своей игры". 14 декабря начались финальные игры, в которых участников ждут три третьфинала и финал. В финальных играх принимают участие игроки, которые показали лучший результат за год.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
+16 ноября 2024, суббота. 17:00 МСК. Этап 20, Испания. Гран-при Барселоны. Спринт (12кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F5EDE044F4E49279279F8C8D64544280BAFAC13
+magnet:?xt=urn:btih:B52BF9B909408C3E1E1079DA33E67A80E1D7EFAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +363,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766994   (101192) от 21.12.2024
+###  Публикация: 1760812   (103143) от 16.11.2024
 
-Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+Анита Цой - Твоя_А (2011) CD+DVD [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. Разбитая Любовь
+ 03. Твоя_А
+ 04. Ну И Пусть(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45B2509B4BB037370A12E0380C7160FEA639FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760880   (103142) от 16.11.2024
+
+Kenny 'Blues Boss' Wayne - Ooh Yeah! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ooh Yeah! (2:53)
+02. Whatcha Gonna Do Now? (4:28)
+03. Baby, I'm Your Man (2:24)
+04. Sailing With The Sunset (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF3CB348685AF43B664E24E4D8E50925293E95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760821   (103141) от 16.11.2024
+
+Дмитрий Райс - Я счастливчик (2013) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цунами (acoustic)
+02. Капли дождя
+03. Life-Кайф
+04. Не замерзай(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C0C9AA222C14650EC37125FF568E3E5E3EF0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760788   (103140) от 16.11.2024
+
+VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flow Bop - She Is Lovely (6:23)
+02. Pomante - Here We Flow (4:13)
+03. Yurierre - Swung Slap (3:31)
+04. P. A. Jeron - Stranger In Moscow (Instrumental) (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98D5A636FA01394E62AA34716B06055B77D9B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760837   (103139) от 16.11.2024
+
+Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiver
+02. Three Steps Back
+03. Getting Closer
+04. Help Me Brother(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A8E938A00B3EB3D0629D0A9A7776EF307DAD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760759   (103138) от 16.11.2024
+
+Настя Задорожная - 12 Историй (2009) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я С Тобой
+ 02. Ничего Нет Сильнее Любви
+ 03. Гоу-Гоу
+ 04. Зима(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8B684680139EAC6E28EABFE4C5E2AF918BC9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760871   (103137) от 16.11.2024
+
+Тест-драйв Renault KAPTUR 2017 — Минтранс (16.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103137.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Юридические тонкости. Можно ли погасить долги, продав кредитный автомобиль?
+🔸 Тест-драйв Renault KAPTUR 2017: французский долгожитель. Что с ним сделало время?
+🔸 Будь готов! Что делать, если автомобиль неожиданно заглох?
+🔸 Не по уставу. Почему за защитную пленку на машине можно получить штраф?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC00CEF0A20228BB658B87C411C4248703D4DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760857   (103136) от 16.11.2024
+
+Военная тайна с Игорем Прокопенко (16.11.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103136.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57253DA799D9D743408CC3B688FD4CE75AE37514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760825   (103135) от 16.11.2024
+
+Don Henley (Eagles) - Building The Perfect Beast (1984) Remastered 2024 [FLAC 24/192|Lossless|WEB-DL|tracks] <Soft Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-• 01. Odyl (6:46)
-• 02. Reina (5:35)
-• 03. Poseidon (5:02)
-• 04. The Quest (7:30)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:51
+01. The Boys Of Summer (Remastered 2024)
+02. You Can’t Make Love (Remastered 2024)
+03. Man With A Mission (Remastered 2024)
+04. You’re Not Drinking Enough (Remastered 2024)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:47:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
+magnet:?xt=urn:btih:9D8B0807EE653AC114CFE1B567CE40AE015F328A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,295 +621,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767037   (101191) от 21.12.2024
+###  Публикация: 1760815   (103134) от 16.11.2024
 
-Газета | Невыдуманные истории №49 (453) (декабрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101191.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D24385B6833AD16C381CA67B474D4EDAD4A1ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767532   (101190) от 22.12.2024
-
-VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Junkie XL - Come Together (3:14)
-02.  Black Stone Cherry - Rolling in the Deep (Live) (3:48)
-03.  Linkin Park - What I’ve Done (3:26)
-04.  Nickelback - How You Remind Me (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C99400F86DE89E72C857FB75DDA6D870809FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767538   (101189) от 22.12.2024
-
-VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blur - Song 2 (2012 Remaster) (2:01)
-02.  Green Day - American Idiot (2:54)
-03.  Linkin Park - The Emptiness Machine (3:10)
-04.  Nickelback - Never Again (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FEA85750854D9E0A256CB4073D688096A5E797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766818   (101188) от 22.12.2024
-
-Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101188.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Эскапизм (00:05:00)
-✧ 02 - В Моих Руках (00:05:07)
-✧ 03 - Осенняя Печаль (00:05:03)
-✧ 04 - Неуловимое (00:05:26)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145553012E10FFD72BC5E8AFE7956B109EE308BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767495   (101187) от 22.12.2024
-
-Хайп хаус / Buzz House: The Movie (2024) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предстоящий сезон Хайп Хауса - самый амбициозный. Селли приготовила для участников множество сюрпризов: секретные участники, изолированная в лесу вилла, куда можно добраться только на лодке, и костюмированный сотрудник, которому поручено пугать их, сделают это шоу захватывающим. Все тщательно спланировано. Но вот что не предусмотрено, так это появление настоящего (   Читать дальше...   )Производство: Румыния / Viva la VidraЖанр: ужасы, комедияРежиссер: Florin BabeiАктеры: Maya Alessia, Scarlet Andreea, Cristescu Cezara, Dracea, Adrian Elicopter, David Ioan, Iorga, Erika Isac, Costi Max, Vlad Neamtu и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:52Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CE3A987F02592CD24310865D3370892A68EF28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767474   (101186) от 22.12.2024
-
-Героический господин Бонифас / L'heroique Monsieur Boniface (1949) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Бонифас, добрый и рассеянный оформитель витрин, сильно простуженным зашёл в бистро выпить чего-нибудь горяче, и хозяин предложил ему грог. Непьющий Бонифас быстро перешёл в знакомое многим состояние и в весёлом расположении духа отправился в свою гостиницу. А тем временем несколько гангстеров из «Автомобильной банды» выясняли там отношения. Один из них, Джо (   Читать дальше...   )Производство: Франция / Société Française de Cinématographie (SFC), La Société des Films SiriusЖанр: комедияРежиссер: Морис ЛаброАктеры: Фернандель, Андрекс, Ив Деньо, Лилиан Берт, Мишель Ардан, Орбаль, Шарль Буйо, Франсуа Дешамп, МаффреПеревод: любительский одноголосый (Юрий Бибиков, VHS)Язык озвучки: русский, французскийСубтитры: французские SDHПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B161AC02E8F58CA43DAE3931151D0AA39416A8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767505   (101185) от 22.12.2024
-
-Бонифаций-сомнамбула / Boniface somnambule (1951) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонифаций стал детективом в универмаге, где ему поручено следить за ювелирным магазином, который привлекает алчные взгляды грабителей. Однако он имеет привычку ходить по ночам, страдая лунатизмом. И случилось так, что он стал приходить ночью в магазин и похищать дорогие украшения. Трое злоумышленников, узнавшие об этом, решают использовать его для своей выгоды...Производство: Франция / La Société des Films Sirius, La Société Française de CinematographieЖанр: комедияРежиссер: Морис ЛаброАктеры: Фернандель, Луи де Фюнес, Андрекс, Гэби Андре, Рауль Марко, Мишель Ардан, Андре Руан, Андре Жауберт, Жюльен Мафр, Андре Нюмес-мл., Каде Риверз, Матильда Касадесус, Ив Денед, Лейла Лампи, Лилиан БарриалПеревод: любительский одноголосый (Юрий Бибиков, VHS)Язык озвучки: русский, французскийСубтитры: французские SDHПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C9C384A6C039307277F05379AE7287AC71D622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767448   (101184) от 22.12.2024
-
-Журнал | Приусадебное хозяйство №12 (декабрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D88664AE9DEABA68949EDEEBC38C94A04E39FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767492   (101183) от 22.12.2024
-
-Бонифаций-сомнамбула / Boniface somnambule (1951) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонифаций стал детективом в универмаге, где ему поручено следить за ювелирным магазином, который привлекает алчные взгляды грабителей. Однако он имеет привычку ходить по ночам, страдая лунатизмом. И случилось так, что он стал приходить ночью в магазин и похищать дорогие украшения. Трое злоумышленников, узнавшие об этом, решают использовать его для своей выгоды...Производство: Франция / La Société des Films Sirius, La Société Française de CinematographieЖанр: комедияРежиссер: Морис ЛаброАктеры: Фернандель, Луи де Фюнес, Андрекс, Гэби Андре, Рауль Марко, Мишель Ардан, Андре Руан, Андре Жауберт, Жюльен Мафр, Андре Нюмес-мл., Каде Риверз, Матильда Касадесус, Ив Денед, Лейла Лампи, Лилиан БарриалПеревод: любительский одноголосый (Юрий Бибиков, VHS)Язык озвучки: русский, французскийСубтитры: французские SDHПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC875D752E199F8381DF8DBA6EE9B797EBEAB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767530   (101182) от 22.12.2024
-
-И.Ф. Скачков | Антирелигиозная работа на Крайнем Севере (1934) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предназначено главным образом для работников Севера: учителей, ликвидаторов неграмотности, работников красных чумов, культбаз, интегральной кооперации и активистов-безбожников. Автор на основе опыта своей работы дает ряд весьма ценных практических указаний о том, как развертывать антирелигиозную работу. Вместе с тем в брошюре даются и общие установки по антирелигиозной (   Читать дальше...   )Жанр: История, политология, социология, религиоведение, культурология, публицистикаИздательство: ОГИЗ-ГАИЗФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5CD215EA07158DFD0CC2DB371FF32EE9B06DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767454   (101181) от 22.12.2024
-
-Экстрасенсы. Реванш (21.12.2024) WEBRip [H.264/1080p] (сезон 2, выпуск 16)
+Живая еда с Сергеем Малозёмовым (16.11.2024) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:52:21
+Фисташки — чем они полезны и почему стоят так дорого? Команда программы отправилась за этими орехами на границу Турции и Сирии и узнала много удивительного: что объединяет фисташки с манго и абрикосом, зачем их кладут в мясные блюда и почему закрытые фисташки лучше не открывать.
+ Яблочный сок — это просто сладкая водичка или концентрат витаминов домашнего производства? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BF7DD6F623A058CF71BAC882574BD3C719B6FF1
+magnet:?xt=urn:btih:7E0D877614C51D10D63D64449784B136E30D95E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +648,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767500   (101180) от 22.12.2024
+###  Публикация: 1760789   (103133) от 16.11.2024
 
-Plugin Alliance - Karanyi Sounds Wavesufer 1.0.0 VST 3, AAX (x64) [En]
+Blues Rock Generations - Blues Rock Generations No.5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wavesurfer — это революционный процессор мультиэффектов, который сочетает в себе винтажные эффекты, полные аналогового тепла и характера, с передовой нейронной обработкой. Этот модульный плагин эффектов с функцией перетаскивания интуитивно понятен и универсален. Используйте его для любых задач — от тонкого микширования до создания сложных новых звуковых ландшафтов.Язык интерфейса: Английский
+01. Key to the Highway (3:34)
+02. Going Down (3:40)
+03. I'm Your Hoochie Coochie Man (4:54)
+04. Drive (6:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A03C6223A3D4EFE80FB98E79CE2D5430510DEED8
+magnet:?xt=urn:btih:A737285C504CE4334EFFF2D5FB5DCCA913A3974F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +677,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767541   (101179) от 22.12.2024
+###  Публикация: 1760780   (103132) от 16.11.2024
 
-VA - Rock Women & Girls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Колорадо Эвеланш (15.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Linkin Park - The Emptiness Machine (3:10)
-02.  Alannah Myles - Black Velvet (4:47)
-03.  Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-04.  Tina Turner - The Best (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 02:42:05
+16 ноября 2024, суббота. 05:00 МСК. Стадион: Болл-Арена (Денвер, США), 18 083 зрителя (100% при вместимости 18 147)
+Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Трент Кнорр (Пауэлл Ривер, Канада)Телекомпания: ALTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53A8651DBDC641267349ACF082E3904FF716A789
+magnet:?xt=urn:btih:C70AB3021D7ED8C30EBA2026B1D428D6BFFF710D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760786   (103131) от 16.11.2024
+
+070 Shake - Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative R&B, Alternative Pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sin [3:31]
+02 - Elephant [2:48]
+03 - Pieces Of You [2:49]
+04 - Vagabond [3:13](   Читать дальше...   )Жанр: Alternative R&B, Alternative Pop, Indie PopПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39FE98A0B2834126208775A19E977294BD6EF07
 ```
 
 https://mybot314.ru/tekegram_catalog/

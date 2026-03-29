@@ -1,4 +1,110 @@
 https://t.me/izofen
+###  Публикация: 1861529   (1062715) от 
+
+Присяжные признали, что Meta и YouTube обязаны компенсировать ущерб для психики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присяжные в Лос‑Анджелесе вынесли прецедентное решение в пользу молодой женщины, обвиняющей Meta и YouTube в том, что еще в детстве она стала зависимой от соцсетей.Присяжные пришли к выводу, что Meta*, владеющая Instagram, Facebook и WhatsApp, а также Google, которой принадлежит YouTube, намеренно разработали вызывающие зависимость продукты, что в итоге негативно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860760   (1062088) от 
+
+Первый пуск с Байконура после сложной реконструкции стартового комплекса
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062088.jpg" />
+</div>
+
+
+###  Подробнее
+
+С космодрома Байконур готовится запуск ракеты «Союз-2.1a» с грузовым кораблём «Прогресс МС-33». Особенностью миссии станет эмблема «Недели космоса», размещённая на головном обтекателе. Старт запланирован на 22 марта 15:00 мск с площадки №31, которая недавно прошла сложную реконструкцию после аварии.Корабль доставит на Международную космическую станцию около 2 509 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860762   (1062080) от 
+
+Домашний интернет  ограничивать не будут: Минцифры опровергло введение «белого списка» для фиксированного интернета
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минцифры России назвало фейком появившуюся в СМИ информацию о том, что домашние интернет-провайдеры в Москве якобы готовятся ограничивать доступ к сайтам и оставлять пользователям только сервисы из «белого списка».
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859456   (1061897) от 
+
+В топ-10 мировых ИИ-приложений вошли приложения Яндекса с Алисой AI
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировой рынок искусственного интеллекта сегодня формируется вокруг трёх экосистем — Запада, Китая и РФ, который постепенно превратился в самостоятельный центр развития AI-продуктов с собственными сильными игроками, известными на мировом рынке.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859493   (1061260) от 
 
 "Битва за битвой" стал лучшим фильмом по версии "Оскара"
@@ -7,7 +113,7 @@ https://t.me/izofen
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061260.jpg" />
+  <img src="Z:/picture/005/save_picture_1061260.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack seleZen [Premi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060827.jpg" />
+  <img src="Z:/picture/005/save_picture_1060827.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060340.jpg" />
+  <img src="Z:/picture/009/save_picture_1060340.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Enigma - Discography (1990-2008) [mp3|320 kbps]<Enigmatic / New Age>
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060176.jpg" />
+  <img src="Z:/picture/009/save_picture_1060176.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059449.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059400.jpg" />
+  <img src="Z:/picture/005/save_picture_1059400.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059152.jpg" />
+  <img src="Z:/picture/005/save_picture_1059152.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059116.jpg" />
+  <img src="Z:/picture/005/save_picture_1059116.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058778.jpg" />
+  <img src="Z:/picture/005/save_picture_1058778.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057963.jpg" />
+  <img src="Z:/picture/005/save_picture_1057963.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057865.jpg" />
+  <img src="Z:/picture/005/save_picture_1057865.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057797.jpg" />
+  <img src="Z:/picture/005/save_picture_1057797.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057256.jpg" />
+  <img src="Z:/picture/005/save_picture_1057256.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057000.jpg" />
+  <img src="Z:/picture/005/save_picture_1057000.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056907.jpg" />
+  <img src="Z:/picture/005/save_picture_1056907.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056653.jpg" />
+  <img src="Z:/picture/005/save_picture_1056653.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056165.jpg" />
+  <img src="Z:/picture/005/save_picture_1056165.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056133.jpg" />
+  <img src="Z:/picture/005/save_picture_1056133.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056069.jpg" />
+  <img src="Z:/picture/005/save_picture_1056069.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ Windows 10 Pro 22H2 19045.6812 x64 by SanLex [Lightweight] [Ru-En] (2026.02.05) 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055673.jpg" />
+  <img src="Z:/picture/005/save_picture_1055673.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055476.jpg" />
+  <img src="Z:/picture/005/save_picture_1055476.jpg" />
 </div>
 
 
@@ -560,117 +666,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055335.jpg" />
+  <img src="Z:/picture/005/save_picture_1055335.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Google Chrome, Microsoft Edge, Opera и «Яндекс Браузер» вошли в аналитический отчет «Ландшафт ИИ-браузеров 2025», опубликованный AIPort.Международное сообщество проанализировало, как искусственный интеллект трансформирует один из самых привычных цифровых инструментов — веб-браузер.Аналитики отмечают, что за последние 15–20 лет браузеры эволюционировали от простых (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851430   (1055296) от 03.02.2026
-
-Запустилась соцсеть Moltbook, где общаются только ИИ-агенты - нам разрешили только смотреть
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генеральный директор компании Octane AI Мэтт Шлихт (Matt Schlicht) запустил специализированную социальную сеть Moltbook, предназначенную исключительно для общения ИИ-агентов. На данный момент платформой, функционирующей по принципу Reddit, пользуются уже более 30 000 ботов, сообщает The Verge. Они могут создавать ветки обсуждений, публиковать посты и оставлять комментарии.Платформа (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851425   (1055095) от 02.02.2026
-
-Мы победили: Microsoft отказывается от чрезмерного использования ИИ в Windows 11
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft всерьёз пересматривает подход к интеграции в Windows 11 инструментов на базе искусственного интеллекта, включая виртуального помощника Copilot и спорную функцию Recall, которая фиксирует все действия пользователя операционной системы. Софтверный гигант сократит функциональность Copilot и пересмотрит концепцию Recall в рамках серьёзного изменения (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850866   (1054899) от 31.01.2026
-
-Акции Microsoft показали сильнейшее падение с 2020 года
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акции Microsoft упали на 11%, что стало самым сильным падением почти за шесть лет, передает Bloomberg. Снижение произошло после того, как компания отчиталась о рекордных расходах и замедлении роста продаж облачных услуг, отмечает агентство. Это усилило опасения инвесторов по поводу того, что компания не сможет окупить вложения в ИИ так быстро, как ожидалосьАкции (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850916   (1054725) от 01.02.2026
-
-В ответах ChatGPT обнаружили региональную дискриминацию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054725.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChatGPT систематически отдаёт предпочтение богатым западным регионам в ответах на широкий спектр вопросов в диапазоне от «Где люди красивее?» до «Какая страна безопаснее?», и виной всему предубеждения в обучающих массивах. Таким открытием поделились учёные Оксфордского (Великобритания) и Кентуккийского (США) университетов.Исследователи представили анализ 20 млн запросов (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

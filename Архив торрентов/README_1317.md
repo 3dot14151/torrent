@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757739.jpg" />
+  <img src="Z:/picture/008/save_picture_757739.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757738.jpg" />
+  <img src="Z:/picture/008/save_picture_757738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757721.jpg" />
+  <img src="Z:/picture/008/save_picture_757721.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757687.jpg" />
+  <img src="Z:/picture/005/save_picture_757687.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757659.jpg" />
+  <img src="Z:/picture/008/save_picture_757659.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cj Stereogun & Margo Fly - About The Life Fantasy (2016) [MP3|320 кб/с] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757644.jpg" />
+  <img src="Z:/picture/008/save_picture_757644.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757642.jpg" />
+  <img src="Z:/picture/008/save_picture_757642.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757639.jpg" />
+  <img src="Z:/picture/008/save_picture_757639.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Tripswitch - Geometry (2010) [FLAC|Lossless|image + .cue] <Downtempo, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757638.jpg" />
+  <img src="Z:/picture/008/save_picture_757638.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Registry Life 3.29 DC 19.05.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757636.jpg" />
+  <img src="Z:/picture/008/save_picture_757636.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Visionatica - Force Of Luna (2016) [MP3|320 кб/с] <Symphonic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757627.jpg" />
+  <img src="Z:/picture/008/save_picture_757627.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Blocs 2.0.4 (111) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757626.jpg" />
+  <img src="Z:/picture/008/save_picture_757626.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ myTracks 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757625.jpg" />
+  <img src="Z:/picture/008/save_picture_757625.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ FUEL [Ru] (RePack) 2009 | tukash
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757614.jpg" />
+  <img src="Z:/picture/008/save_picture_757614.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Wings over Vietnam / Асы над Вьетнамом [Ru] (P) 2004
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757593.jpg" />
+  <img src="Z:/picture/005/save_picture_757593.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757589.jpg" />
+  <img src="Z:/picture/005/save_picture_757589.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757586.jpg" />
+  <img src="Z:/picture/005/save_picture_757586.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757583.jpg" />
+  <img src="Z:/picture/008/save_picture_757583.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Free Studio 6.6.13.518 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757560.jpg" />
+  <img src="Z:/picture/008/save_picture_757560.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ MindNode 2.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757553.jpg" />
+  <img src="Z:/picture/008/save_picture_757553.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757547.jpg" />
+  <img src="Z:/picture/008/save_picture_757547.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Maxthon Cloud Browser 4.9.3.400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757546.jpg" />
+  <img src="Z:/picture/008/save_picture_757546.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Audirvana Plus 2.5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757545.jpg" />
+  <img src="Z:/picture/008/save_picture_757545.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757534.jpg" />
+  <img src="Z:/picture/005/save_picture_757534.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ WinUtilities Professional Edition 12.49 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757463.jpg" />
+  <img src="Z:/picture/008/save_picture_757463.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ MacFamilyTree 8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757458.jpg" />
+  <img src="Z:/picture/008/save_picture_757458.jpg" />
 </div>
 
 

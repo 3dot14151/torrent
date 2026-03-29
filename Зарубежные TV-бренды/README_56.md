@@ -1,3 +1,107 @@
+###  Публикация: 521870   (624679) от 12.07.2012
+
+BBC: Полет Земли. (Земля с птичьего полёта). Северная Америка [часть 1] / EarthFlight. North America (2011) HDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624679.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Земля с птичьего полёта" - Документальный сериал о том, какой предстаёт нашему взору Земля с высоты птичьего полёта, глазами самих птиц, в грандиозном природном калейдоскопе. Потрясающие виды пяти континентов, поданные в новом ракурсе в этом шести серийном фильме, благодаря которому можно присоединиться к стае лапландских гусей, журавлей, фламинго, пеликанов, орлов и прочей птичьей братии. Для создания фильма были использованы последние технологии воздушных съёмок, чтобы мы смогли в мельчайших деталях увидеть всю мощь природы. Взору зрителя откроется ракурс видимый лишь глазу летящего высоко в небе журавля, который проносится над каналами Венеции или пережить плавное скольжение вместе с белоголовым орланом на фоне Великого Каньона. Фильм «Земля с птичьего полёта» откроет перед вами секреты того что таит в себе голубизна неба, показывая мир в совершенно новой и захватывающей перспективе. Комментирует фильм Давид Теннант.Жанр: ДокументальныйПеревод: Юрий Онищенко (Logos71)Язык субтитров: русскиеПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319EE249EC5E565C29FDFA6A1BF37A947E043B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521697   (624611) от 12.07.2012
+
+NG: Суперсооружения: Мегазаводы. MV Agusta / MegaStructures. Megafactories: MV Agusta (2011) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624611.jpg" />
+</div>
+
+
+###  Подробнее
+
+MV Agusta – производитель мотоциклов, расположенный в городе Касцина Коста близ Милана, Италия. Образована 12 февраля 1945 года как ответвление авиационной компании Agusta, учрежденной в 1923 году графом Джованни Агуста (Giovanni Agusta). Основатель авиастроительной фирмы умер в 1927 году, оставив её на попечение своих вдовы Гуссепины и сыновей – Доменико, Винченцо, Марио и Коррадо. Винченцо и Доменико Агуста (Vincenzo & Domenico Agusta) в конце Второй мировой войны с целью сохранения рабочих мест в своей компании учредили MV Agusta. Братья учли, что в трудное послевоенное время на рынке будут востребованы дешевые и действенные транспортные средства. Литеры MV были взяты как начальные буквы слов Meccanica Verghera («Механика Вергера», где Verghera – город, в котором было начато производство мотоциклов). Компания начала выпускать мотоциклы стиля Café racer, преимущественно с двигателями рабочим объемом 125 – 150 кубических сантиметров. Когда же в 1960-х годах продажи такой техники стали падать, фирма начала (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84337DD354FA4F45F7BABEF409A1D6F909BE3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035642   (624574) от 18.07.2016
+
+Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/1080i-LQ] (Сезон 1 Серии 1-4 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверка экспертов по ядовитым змеям ловит грозных созданий в болотах Флориды и в пустынях Аризоны, рискуя своей жизнью. Кстати говоря, профессия охотника за ядом входит в десятку самых опасных в мире, и это неудивительно, ведь стоит чуть-чуть зазеваться, и можно попрощаться с жизнью. К тому же противника нужно знать в лицо и уметь безошибочно отличать ядовитую рептилию (   Читать дальше...   )Телекомпания: США / Authentic Entertainment, Discovery ChannelЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 4 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6830BA4F53F389971528A816788D83DAC9BEDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229625   (624435) от 07.06.2018
+
+NGW: Последний рай орангутанов / The Last Orangutan Eden (2015) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Морган посетит удалённый заболоченный лес, в котором живут орангутаны, а также питомник для молодняка приматов.Производство: США, Rubin Tarrant Productions, National Geographic StudiosЖанр: Документальный, фауна, защита животныхПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED853BB31592F4DE953A9B60AD5D068650AE50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035691   (624382) от 18.07.2016
 
 Тайны прошлого / Secrets in the Dust (2010) HDTVRip [H.264/720p] (2 сезон, 1-6 серия из 6)
@@ -6,7 +110,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624382.jpg" />
+  <img src="Z:/picture/008/save_picture_624382.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Гризли Аляски бросают вызов. Арктические
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624369.jpg" />
+  <img src="Z:/picture/008/save_picture_624369.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624365.jpg" />
+  <img src="Z:/picture/008/save_picture_624365.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624338.jpg" />
+  <img src="Z:/picture/008/save_picture_624338.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624335.jpg" />
+  <img src="Z:/picture/008/save_picture_624335.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ DV: Невероятное вокруг нас. Биоэнергия [8 из 28]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624300.jpg" />
+  <img src="Z:/picture/008/save_picture_624300.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624231.jpg" />
+  <img src="Z:/picture/008/save_picture_624231.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624161.jpg" />
+  <img src="Z:/picture/008/save_picture_624161.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NGW: Дикая природа: Остров Воскресения / Wild Life:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623978.jpg" />
+  <img src="Z:/picture/008/save_picture_623978.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623935.jpg" />
+  <img src="Z:/picture/008/save_picture_623935.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Веллингтон - железный герцог без маски / We
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623774.jpg" />
+  <img src="Z:/picture/008/save_picture_623774.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623539.jpg" />
+  <img src="Z:/picture/008/save_picture_623539.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623201.jpg" />
+  <img src="Z:/picture/008/save_picture_623201.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623163.jpg" />
+  <img src="Z:/picture/008/save_picture_623163.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622869.jpg" />
+  <img src="Z:/picture/008/save_picture_622869.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622564.jpg" />
+  <img src="Z:/picture/008/save_picture_622564.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622535.jpg" />
+  <img src="Z:/picture/008/save_picture_622535.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622519.jpg" />
+  <img src="Z:/picture/008/save_picture_622519.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622434.jpg" />
+  <img src="Z:/picture/008/save_picture_622434.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622348.jpg" />
+  <img src="Z:/picture/008/save_picture_622348.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Animal Planet: Живой или вымерший. Гигант Мадагаск
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622181.jpg" />
+  <img src="Z:/picture/008/save_picture_622181.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621561.jpg" />
+  <img src="Z:/picture/008/save_picture_621561.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF57EF5B443754FAB3D68A42CE4869753D29E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036011   (621008) от 20.07.2016
-
-NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 2010. Наводнение в Австралии и Пакистане, экстремальная жара и лесные пожары в России, снежные бури в США. Аномальные проявления погоды будут усиливаться с каждым годом, пока каждый не осознает, что мы все живём на одной планете.Телекомпания: США, National Geographic TelevisionЖанр: ДокументальныйПеревод: Одноголосый закадровый профессиональныйПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAB8709AC11C5C5F6F2F12C5D5409924548CBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036012   (620928) от 20.07.2016
-
-NG: Когда сталкиваются континенты / When Continents Collide (2010) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два континента. Разные и незнакомые миры. На каждом из них обитали странные и экзотические существа. За миллионы лет геологические силы образовали перемычку между ними. Там, где сейчас походит Панамский канал, раньше плескалось море. Северная и Южная Америки столкнулись. Сегодня ученые изучают это столкновение, собирая обломки и изучая следы. Доисторические хищники (   Читать дальше...   )Телекомпания: New Pony Productions, National Geographic TelevisionЖанр: ДокументальныйРежиссер: Рон БоуманПеревод: Одноголосый закадровый профессиональныйПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DEE6CF55655BA65DC61A1729F2A4F3178F15051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229903   (620777) от 09.06.2018
-
-BBC: Захватывающая история криминалистики / Catching History's Criminals: The Forensics Story (2015) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительный мир криминалистики оказывается под микроскопом доктора Габриэлы Вестон, которая решает изучить историю науки, стоящей за борьбой с преступностью. От использования ДНК для реконструкции лица убийцы до волосинки, рассказывающей о том, где жила жертва. Благодаря современным технологиям и историческим материалам, мы увидим полицейские дела и узнаем о культуре, (   Читать дальше...   )Производство: Великобритания, BBC Scotland, Open University PartnershipЖанр: Документальный, история, криминалистикаРежиссер: Грэхам РасселПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5AC01E4BCD5E5D5DB439546E2211311A082331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702568   (620738) от 20.07.2016
-
-NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes) / Tauchen im Labyrinth (2010) BDRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620738.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Багамских островах лучшие пещерные дайверы погружаются в голубую бездну... Они исследуют подводные пещеры, наполненные загадками и дайверами, которым не удалось их покинуть живыми. В расчете на количество попыток, дайвинг - самый опасный спорт на земле. Им грозят обрушения скал, потеря сознания и паника. Они делают это ради острых ощущений, для того чтобы быть (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA40F33208C409B7D1E586539ED4D824A4A727
 ```
 
 https://mybot314.ru/tekegram_catalog/

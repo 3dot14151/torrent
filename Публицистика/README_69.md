@@ -1,3 +1,81 @@
+###  Публикация: 1338621   (268831) от 16.11.2019
+
+Н. П. Васильев, Ф. Д. Хрустов (ред.) | О советском патриотизме. Сборник статей (1950) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпускаемый сборник не претендует на исчерпывающее освещение темы о советском патриотизме. Он призван помочь читателю уяснить основные положения Ленина и Сталина о советском патриотизме.Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B3BC2BE0AA593DE688530B963ECC152EB25E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190354   (268034) от 09.12.2017
+
+Е. М. Ярославский | Биография В. И. Ленина. 1870-1924 (1940) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_268034.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге мы расскажем про жизнь Владимира Ильича Ленина, про его борьбу. В этой книге мы расскажем о том великом и прекрасном, что сделал Ленин и что он завещал нам — его последователям и ученикам.Жанр: История, политология, биография, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B26BDA4528A61E23AFF404329F8C0168936DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190593   (267106) от 10.12.2017
+
+Р. А. Фарамазян (общ. ред.) | Милитаризм: Цифры и факты (1983) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, подготовленной группой ученых Института мировой экономики и международных отношений Академии наук СССР, рассматриваются сущность современного милитаризма и особенности его развития в главных империалистических странах. В ней приводятся высказывания классиков марксизма-ленинизма, политических деятелей о милитаризме, данные о колоссальных затратах людских, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852E0381777A10D9B4C7DAD8F156B0C2AA28BF00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190690   (266991) от 10.12.2017
 
 Ирина Сергиевская | Москва таинственная. Все сакральные и магические, колдовские и роковые, гиблые и волшебные места (2017) [PDF, FB2, RTF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266991.jpg" />
+  <img src="Z:/picture/008/save_picture_266991.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266567.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265986.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265973.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265689.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265134.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265079.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264959.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264258.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263554.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263544.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263501.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263290.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263288.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262829.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262345.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261825.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259992.jpg" />
+  <img src="Z:/picture/005/save_picture_259992.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257899.jpg" />
+  <img src="Z:/picture/005/save_picture_257899.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250060.jpg" />
+  <img src="Z:/picture/004/save_picture_250060.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249630.jpg" />
+  <img src="Z:/picture/004/save_picture_249630.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243593.jpg" />
+  <img src="Z:/picture/004/save_picture_243593.jpg" />
 </div>
 
 
@@ -595,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243127.jpg" />
+  <img src="Z:/picture/004/save_picture_243127.jpg" />
 </div>
 
 
@@ -606,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD154FA2F2442543A43359F7802173FD5ADFE7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360527   (242867) от 15.02.2020
-
-Вадим Верник | Книга победителей (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вадим Верник – известный журналист, автор и ведущий программы «2 ВЕРНИК 2» на телеканале «Культура», главный редактор журнала ОК! собрал самые дорогие для него беседы и эссе в отдельную книгу. Собеседники Вадима Верника – звезды театра и кино, музыки и спорта.Жанр: Биографии и Мемуары, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A874D177C4343C81927D01546E4DFE49FB9FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360253   (242747) от 15.02.2020
-
-Янина Жеймо | Длинный путь от барабанщицы в цирке до Золушки в кино (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242747.jpg" />
-</div>
-
-
-###  Подробнее
-
-В почти уже бесклассовом обществе строителей коммунизма каждая школьница, как ни парадоксально, мечтала стать принцессой. Именно так вознаграждались трудолюбие и доброта в сказке Шарля Перро и в ее советской киноверсии. И вера в светлое будущее и торжество справедливости приходила в каждый дом в образе ясноглазой и белокурой Янины Жеймо, сыгравшей роль Золушки. Более (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF34A044B5C9F2DA5AA5B00768DC8CFFEE99DB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362624   (242484) от 24.02.2020
-
-Ю. А. Поляков | Революция защищается (1978) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга повествует о славных страницах героической истории Советских Вооруженных Сил.
-
-Борьба советского народа против интервентов и белогвардейцев в 1918—1920 гг. составила яркую страницу в героической летописи отечественной истории.
-(   Читать дальше...   )Жанр: История, политология, публицистика, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F719F26CA22F63BB3942FBB2A70694241DC72CBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

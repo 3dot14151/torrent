@@ -1,3 +1,32 @@
+###  Публикация: 1420346   (333998) от 31.10.2020
+
+Валентина Дмитриева (сост.) | Волк и семеро козлят. Три поросёнка (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаем маленьких читателей в волшебный мир сказок. Слушая и читая любимые сказки, дети сопереживают героям, учатся понимать, что такое добро и зло, знакомятся с окружающим миром.
+
+А интересные задания, собранные в книге, развивают мышление, внимание и речь, помогают научиться рисовать и подготовить руку к письму.
+(   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F777C5929753A7B94BADA6AA9601E49F2F7411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955516   (333914) от 11.11.2015
 
 Павел Вишнев | Юнги (1966) [FB2]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333914.jpg" />
+  <img src="Z:/picture/008/save_picture_333914.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333907.jpg" />
+  <img src="Z:/picture/008/save_picture_333907.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333889.jpg" />
+  <img src="Z:/picture/008/save_picture_333889.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333837.jpg" />
+  <img src="Z:/picture/008/save_picture_333837.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333790.jpg" />
+  <img src="Z:/picture/008/save_picture_333790.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333154.jpg" />
+  <img src="Z:/picture/008/save_picture_333154.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332605.jpg" />
+  <img src="Z:/picture/008/save_picture_332605.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332323.jpg" />
+  <img src="Z:/picture/008/save_picture_332323.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331366.jpg" />
+  <img src="Z:/picture/008/save_picture_331366.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331358.jpg" />
+  <img src="Z:/picture/008/save_picture_331358.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331353.jpg" />
+  <img src="Z:/picture/008/save_picture_331353.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330398.jpg" />
+  <img src="Z:/picture/008/save_picture_330398.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330123.jpg" />
+  <img src="Z:/picture/008/save_picture_330123.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329480.jpg" />
+  <img src="Z:/picture/008/save_picture_329480.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329402.jpg" />
+  <img src="Z:/picture/008/save_picture_329402.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329401.jpg" />
+  <img src="Z:/picture/008/save_picture_329401.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329363.jpg" />
+  <img src="Z:/picture/008/save_picture_329363.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329311.jpg" />
+  <img src="Z:/picture/008/save_picture_329311.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328384.jpg" />
+  <img src="Z:/picture/008/save_picture_328384.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328335.jpg" />
+  <img src="Z:/picture/008/save_picture_328335.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327657.jpg" />
+  <img src="Z:/picture/008/save_picture_327657.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327622.jpg" />
+  <img src="Z:/picture/008/save_picture_327622.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327552.jpg" />
+  <img src="Z:/picture/008/save_picture_327552.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327136.jpg" />
+  <img src="Z:/picture/008/save_picture_327136.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326784.jpg" />
+  <img src="Z:/picture/008/save_picture_326784.jpg" />
 </div>
 
 
@@ -651,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A552D92D058BB27CDAED74D598427D720DB2389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957604   (326783) от 18.11.2015
-
-Василий Юксерн | Воды текут, берега остаются (1979) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Василия Юксерна «Воды текут, берега остаются» — благодарная память безвременно ушедшему из жизни выдающемуся ученому-агроному. В то же время для юных читателей она — советчик и друг в учебе и делах жизненных, будничных, черты характера молодого Мосолова достойны подражания.
-
-У марийского народа есть незабываемая, передающаяся из поколения в поколение задушевная (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5509C2B271ABE2C16BF52875882932F164555833
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1567364   (474548) от 02.08.2022
+
+Turbo - Tozsamosc (2004) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Powitanie
+02. Ach! Nie badz taki smialy
+03. Wszystko bedzie OK
+04. Kawaleria Szatana II(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5358DB5C86541093B3966644F086F41E27892B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567345   (474543) от 02.08.2022
+
+Mordred - The Noise Years (2021) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Thrash Metal, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474543.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Fool's Game (1989):
+01. State Of Mind
+02. Spectacle Of Fear
+03. Every Day's A Holiday(   Читать дальше...   )Жанр: Thrash Metal, Funk MetalПродолжительность: 02:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795A780DA199B7D82976307D97A6AB1BD03C3386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547318   (473733) от 15.09.2012
+
+Dio - Singles Box Set (2012) Anthology [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of Rock 'N' Roll (Live at Intermission, 1986)
+02. Rainbow In The Dark (Live at Intermission, 1986)
+03. Sacred Heart (Live at Intermission, 1986)
+04. Time To Burn (Live at Intermission, 1986)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 03:31:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320256   (473382) от 17.08.2019
 
 Tetrafusion - Altered State (2010) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Tetrafusion - Altered State (2010) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473382.jpg" />
+  <img src="Z:/picture/008/save_picture_473382.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Panzerfaust - Тhе Suns Оf Реrditiоn: Сhарtеr II  (2020) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473201.jpg" />
+  <img src="Z:/picture/008/save_picture_473201.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|image + .cue] <Moder
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472759.jpg" />
+  <img src="Z:/picture/008/save_picture_472759.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Sinsaenum - Echoes Of The Tortured (2016) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472478.jpg" />
+  <img src="Z:/picture/008/save_picture_472478.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Kadaverficker - Kaos Nekros Kosmos (2020) [APE|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472477.jpg" />
+  <img src="Z:/picture/008/save_picture_472477.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ A Taste of Fear - God's Design (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472473.jpg" />
+  <img src="Z:/picture/008/save_picture_472473.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Acanthosis - Scriptures of the Accursed (2022) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472470.jpg" />
+  <img src="Z:/picture/008/save_picture_472470.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Schandmaul - Knuppel Aus Dem Sack (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472390.jpg" />
+  <img src="Z:/picture/008/save_picture_472390.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Abigail - Intercourse & Lust (1996) Reissue, 2018, Fallen-Angels Productions [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472232.jpg" />
+  <img src="Z:/picture/008/save_picture_472232.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Detritus - If But for One (1993) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472002.jpg" />
+  <img src="Z:/picture/008/save_picture_472002.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ DoomSword - DoomSword (1999) [APE|Lossless|image + .cue] <Heavy, Epic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472000.jpg" />
+  <img src="Z:/picture/008/save_picture_472000.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Last Days of Eden - Ride the World (2015) [FLAC|Lossless|image + .cue] <Epic Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471984.jpg" />
+  <img src="Z:/picture/008/save_picture_471984.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Hellion - Hellion (1983) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471886.jpg" />
+  <img src="Z:/picture/008/save_picture_471886.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Taake - Nattestid Ser Porten Vid (1999) [APE|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471176.jpg" />
+  <img src="Z:/picture/008/save_picture_471176.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Onslaught - Generation Antichrist (2020) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471002.jpg" />
+  <img src="Z:/picture/008/save_picture_471002.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - A Tribute To Slayer (2016) [FLAC|Lossless|image + .cue] <Deathcore, Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470944.jpg" />
+  <img src="Z:/picture/008/save_picture_470944.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Accuracy - Absolut 100% (1996) [FLAC|Lossless|image + .cue] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470321.jpg" />
+  <img src="Z:/picture/008/save_picture_470321.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) 2xCD [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470186.jpg" />
+  <img src="Z:/picture/008/save_picture_470186.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Dream Theater - Dream Theater (2013) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469496.jpg" />
+  <img src="Z:/picture/008/save_picture_469496.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Miasthenia - Supremacia Ancestral (2008) [FLAC|image +.cue]<Pagan Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469422.jpg" />
+  <img src="Z:/picture/008/save_picture_469422.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Midwinter - Between Wisdom And Lunacy (2006) [FLAC|image +.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469421.jpg" />
+  <img src="Z:/picture/008/save_picture_469421.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Bifrost - The Wildest Fire (1996) [APE|image +.cue]<Pagan / Thrash / Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469356.jpg" />
+  <img src="Z:/picture/008/save_picture_469356.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Love Lies Bleeding - Clinamen (2006) [FLAC|image +.cue]<Atmospheric Black Metal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469342.jpg" />
+  <img src="Z:/picture/008/save_picture_469342.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Love Lies Bleeding - Clinamen (2006) [FLAC|image +.cue]<Atmospheric Black Metal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44E2D9B3BCEF2E710A5283C2942896A4C613B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940223   (469332) от 24.09.2015
-
-Love Lies Bleeding - S.I.N. (2001) [FLAC|image +.cue]<Atmospheric Black Metal / Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ante-Persistence I
-02. Ante-Persistence II
-03. Frygt Og Baeven
-04. Bringer of Redemption(   Читать дальше...   )Жанр: Atmospheric Black Metal / Doom MetalПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A07504570E053DAF7AF1E9DBE1E77B1D051EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940244   (469329) от 24.09.2015
-
-Love Lies Bleeding - Behold My Vain Sacrifice (2000) [FLAC|image +.cue]<Atmospheric Black Metal / Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Who Didn't Want to Be
-02. The Flowers of Nevermore
-03. Virtue's Dusk
-04. I Drown in Existence(   Читать дальше...   )Жанр: Atmospheric Black Metal / Doom MetalПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3685AE62907B1CBF94B0986C982156637A9F124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567872   (468135) от 05.08.2022
-
-Abhorer - Zygotical Sabbatory Anabapt (1996) [APE|Lossless|image + .cue] <Black Metal, Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invoking Nana Sahib, Satyrical Goat of Mendes (1:01)
-02. Concubinal Celibatic Myrmidonian Whores (3:59)
-03. Abandonment of Chastity (3:06)
-04. Hymeneal Altar of Messianic Salacitation (4:45)(   Читать дальше...   )Жанр: Black Metal, Death Metal, Thrash MetalПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720FE93F39151763CFF1AE3E9C1EEF39DB662593
 ```
 
 https://mybot314.ru/tekegram_catalog/

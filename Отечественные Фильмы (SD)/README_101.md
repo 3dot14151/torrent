@@ -1,3 +1,29 @@
+###  Публикация: 962465   (292253) от 05.12.2015
+
+Дороги (2015) WEBRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о дорогах, как об автомобильных так и о жизненных, а еще о друзьях, которые друг другу дороги! Руся, Саня и Макс дружат с детства, но силой обстоятельств их дороги расходятся. Через несколько лет они встречаются и решают зарабатывать не честным путем. Почувствовав вкус денег, Руся пристрастился к наркотикам, Саня как и мечтал открыл спорт зал, а Макс увлечен (   Читать дальше...   )Производство: Россия/ МечтаЖанр: Драма, КриминалРежиссер: Андрей ГавриловАктеры: Иван Шаповалов, Владимир Заболотский, Константин Авдеев, Сергей Гореликов, Владимир Сычёв, Марина Федункив, Максим Коновалов, Артем Карокозян, Артем Калайджян и др.Продолжительность: 01:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95AF6E1F4488D7820CED380D25E71E707290F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846257   (292113) от 07.12.2014
 
 Ты будешь моей (2013) HDTVRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292113.jpg" />
+  <img src="Z:/picture/008/save_picture_292113.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291937.jpg" />
+  <img src="Z:/picture/008/save_picture_291937.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291886.jpg" />
+  <img src="Z:/picture/008/save_picture_291886.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291462.jpg" />
+  <img src="Z:/picture/008/save_picture_291462.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291377.jpg" />
+  <img src="Z:/picture/008/save_picture_291377.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290951.jpg" />
+  <img src="Z:/picture/008/save_picture_290951.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290944.jpg" />
+  <img src="Z:/picture/008/save_picture_290944.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290468.jpg" />
+  <img src="Z:/picture/008/save_picture_290468.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290465.jpg" />
+  <img src="Z:/picture/008/save_picture_290465.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289842.jpg" />
+  <img src="Z:/picture/008/save_picture_289842.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289696.jpg" />
+  <img src="Z:/picture/008/save_picture_289696.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289614.jpg" />
+  <img src="Z:/picture/008/save_picture_289614.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289527.jpg" />
+  <img src="Z:/picture/008/save_picture_289527.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289207.jpg" />
+  <img src="Z:/picture/008/save_picture_289207.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289188.jpg" />
+  <img src="Z:/picture/008/save_picture_289188.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288804.jpg" />
+  <img src="Z:/picture/008/save_picture_288804.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288799.jpg" />
+  <img src="Z:/picture/008/save_picture_288799.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288767.jpg" />
+  <img src="Z:/picture/008/save_picture_288767.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288731.jpg" />
+  <img src="Z:/picture/008/save_picture_288731.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288665.jpg" />
+  <img src="Z:/picture/008/save_picture_288665.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288641.jpg" />
+  <img src="Z:/picture/008/save_picture_288641.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288640.jpg" />
+  <img src="Z:/picture/008/save_picture_288640.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288636.jpg" />
+  <img src="Z:/picture/008/save_picture_288636.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288632.jpg" />
+  <img src="Z:/picture/008/save_picture_288632.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287244.jpg" />
+  <img src="Z:/picture/008/save_picture_287244.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4C549F994F8CD642C5F1DF58014A5C4CA6D3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335446   (287190) от 02.11.2019
-
-Женская версия. Чисто советское убийство (2019) SATRip [H.264] (фильм 4, серии 1-4 из 4)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287190.jpg" />
-</div>
-
-
-###  Подробнее
-
-При загадочных обстоятельствах погибают два сотрудника патрульно-постовой службы. Причиной смерти оказывается яд. Единственный свидетель преступления – задержанный погибшими полицейскими студент – заперт в отсеке патрульного УАЗа. Раскрыть преступление в очередной раз помогает старое советское дело следователя Васильева.Производство: Россия / Аквилон МедиаЖанр: детективРежиссер: Валерия ИвановскаяАктеры: Галина Сазонова, Софья Ардова, Кирилл Жандаров, Илья Коробко, Анатолий Котенёв, Евгения Ахременко, Андрей Грачев, Александр Коротков , Ксения Кастор, Александр Мякушко и др.Продолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585018CBE5F214BBEE7FBF0B5460AB1C86521389
 ```
 
 https://mybot314.ru/tekegram_catalog/

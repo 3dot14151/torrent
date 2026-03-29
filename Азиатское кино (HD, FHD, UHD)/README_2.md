@@ -1,3 +1,109 @@
+###  Публикация: 1608590   (1043532) от 31.01.2023
+
+Ода Нобунага / Fuunji Oda Nobunaga / Lucky Adventurer Oda Nobunaga (1959) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043532.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти старого князя в Овари, главой клана становится его сын - Ода Нобунага. Нобунага довольно беспечный молодой человек, ведущий, так сказать разгульный образ жизни, а всеми делами управляет за него "дедушка" Хирате Масахидэ. Однако враг не дремлет: соседний князь Имагава Ёсимото, обладающий значительной силой и завышенными амбициями, стремится (   Читать дальше...   )Производство: Япония / Toei CompanyЖанр: драма, историяРежиссер: Тосикадзу КоноАктеры: Kyoko Mitsui, Кацуо Накамура, Кинносукэ Накамура, Эитаро Синдо, Рюносукэ Цукигата, Эидзиро ЯнагиПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, японскийСубтитры: английские, русские (forced-Song)Продолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2249462CD126337A607C5786B468AAC16F870C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608777   (1043507) от 31.01.2023
+
+Поварское Кунг-фу / Gong fu chu shen / Kung fu Chefs (2009) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деревенский повар Бин обучает молодого для поединка с главным поваром в Имперском дворце за звание старшего повара.Производство: Китай / My Way Film Co, Brilliant Emperor ProductionЖанр: боевик, комедияРежиссер: Кен ИпАктеры: Саммо Хун, Ванесс У, Черри Ин, Аи Каго, Тимми Хун, Лам Цзэ-Чун, Луис Фань, Брюс Люн, Син Юй, Джерри УПеревод: Двуголосый профессиональныйЯзык озвучки: русский, китайский, английскийСубтитры: китайские (PGS), английские (PGS)Продолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCDC63DC3101D00F247611C0C415B2155E39CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838567   (1042713) от 02.01.2021
+
+Звонок 2 / Ringu 2 (1999) BDRip [720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертоносная пленка снова затягивает в свои сети доверчивых людей. Зловещий призрак из телевизора, Садако Имамура, возвращается! Перед вами — продолжение мегахита японского кинопроката «Звонок», одной из самых страшных кинокартин всех времен.
+
+На этот раз главным персонажем становится девушка погибшего в первой части репортера. Она пытается выйти на след того, что (   Читать дальше...   )Производство: Japan / Kadokawa Shoten Publishing Co., Ring 2 Production Group, Asmik Ace EntertainmentЖанр: ужасыРежиссер: Хидео НакатаАктеры: Мики Накатани, Хитоми Сато, Кёко Фукада, Фумиё Кохината, Кендзиро Ишимару, Юрэй Янаги, Рикия Отака, Ёити Нумата, Масако, Мивако КадзиПеревод: авторский (одноголосый закадровый)Язык субтитров: русские, английскиеПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F702C0EA70022B8AEB03BE205D7B24BAF65868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610202   (1042652) от 06.02.2023
+
+Один день / One Day / Eoneunal (2017) WEBRip [H.264/1080p] ViruseProject [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042652.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти жены следователь из страхового агентства Кан-су медленно и мучительно возвращается к трудовым будням. Начальник даёт ему задание побыстрее разобраться с делом слепой женщины Ми-со, попавшей в аварию. Кан-су приходит в больницу, чтобы проверить лежащую в коме клиентку, и встречает её же живой и невредимой. Точнее, её дух, который способен видеть и слышать (   Читать дальше...   )Производство: Корея Южная / Invent StoneЖанр: драма, фэнтезиРежиссер: Ли Юн-гиАктеры: Ким Нам-гиль, Чхон У-хи, Чон Сон-гён, Лим Хва-ён, Пак Хи-бон, Чон Сун-вон, Ким Джон-хён, Ли Су-ин, Ли Сын-ён, Чон Ю-рим и др.Перевод: Профессиональный (многоголосый, закадровый) (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, японскиеПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE6160B08BA7CC46503D85B71A9C0F56788E98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610205   (1042590) от 06.02.2023
 
 Легендарный убийца / Long nga / Legendary Assassin (2008) BDRemux [H.264/1080p] [AVO] [FRA Transfer]
@@ -6,7 +112,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042590.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042571.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042381.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042349.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042342.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042310.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042077.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041928.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041799.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041784.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041651.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041593.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041294.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041287.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040334.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040087.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039713.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038874.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038435.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038427.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038198.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037972.jpg" />
 </div>
 
 
@@ -565,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B230D94E358DB1B04A57935B1C7248992A2FE548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615241   (1037831) от 25.02.2023
-
-Полицейский спецназ / PTU / PTU: Police Tactical Unit (2003) BDRip [H.265/1080p] [10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037831.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночном кафе ударом ножа убит бандит-отморозок. А вскоре в темном переулке совершено нападение на сотрудника отдела по борьбе с организованной преступностью — у него украли табельное оружие. Полицейский патруль во главе с Майком Хо, подозревая, что эти преступления связаны, вышел на охоту, но кто-то постоянно на полшага их опережает.Производство: Гонконг / Mei Ah Films Production Co. Ltd., Milky Way Image CompanyЖанр: триллер, криминал, детектив, драмаРежиссер: Джонни ТоАктеры: Саймон Ям, Мэгги Сиу, Лам Сует, Руби Вонг, Рэймонд Вон, Эдди Ко, Ло Хой-Пан, Джером Фанг, Чунг Кеи Лау, Чи Пинг ЧунгПеревод: Многоголосый профессиональный, Авторский, Одноголосый любительскийЯзык озвучки: русский, китайскийСубтитры: русские, китайскиеПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2B9A8C773535BF82B303328DC6B55300FC2D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615519   (1037148) от 27.02.2023
-
-В поисках тела / Karada Sagashi / Re/Member (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Асука Морисаки, у которой совсем нет друзей, в полночь вместе пятью другими учениками внезапно оказывается в здании школьной часовни. Им нужно отыскать все части тела убитой здесь 30 лет назад девочки, и, пока они это не сделают, на них будет охотиться злобное сверхъестественное существо в красном. В первую ночь все погибают, но приходят в себя тем (   Читать дальше...   )Производство: Япония / Darkness, Discovery Next, FutabashaЖанр: ужасыРежиссер: Эйитиро ХасумиАктеры: Канна Хасимото, Гордон Маэда, Майка Ямамото, Фудзю Камио, Котаро Дайго, Тасуку Эмото, Юки Луна, Сюнтаро Янаги, Наоми НисидаПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, японский, английскийСубтитры: английские, испанские, португальские и др.Продолжительность: 01:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C592EFBCF4D770763F345B5168090634AD0912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615986   (1036656) от 01.03.2023
-
-Пропавший / Sagasu / Missing / (2021) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сантоши, отец-одиночка, в депрессии и в долгах. Однажды он рассказывает дочери, что видел разыскиваемого серийного убийцу и хочет получить за это награду, а на следующий день исчезает. Девочка начинает поиски папы, но ни учителя, ни полиция не верят, что он попал в неприятности, все считают, что он просто сбежал...Производство: Япония, Корея Южная, Asmik AceЖанр: драма, криминал, детективРежиссер: Синдзо КатаямаАктеры: Дзиро Сато, Мисато Морита, Хироя Симидзу, Аои Ито, Сётаро Исии, Идзуми Мацуока, Токо Нарусима, Тору Синагава, Масаки Наито, Кацуки СудзукиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C478FE0B5D7CDA854FAEA7B9587CC82419613FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616229   (1036382) от 02.03.2023
-
-Огромная акула / Ju sha zhi duo ming sha tan / Huge Shark (2021) WEBRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за изменения климата акулы вблизи прибрежных вод начали проявлять повышенную активность. Голодная акула готова начать охоту.Производство: Китай / Booming Studios, New Studio PicturesЖанр: ужасыРежиссер: Хуан ЧжаошэнАктеры: Хлоя Чжао, Хуан Тао, Хун Шуан, Луань Минъюань, Се Ицин, Чжан ЛэйПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E91F7CD67BCB05C7342B386CEA5A5500E77722E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1201954   (694658) от 24.04.2018
+
+Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцатилетняя Мичиру Амацуки только что сменила работу и переехала жить в Токио. Так уж получилось, что поселилась она в доме под названием «Stella House Haruno», в котором живут одни только женщины. У соседей Амацуки разные профессии и все они разных возрастов, но её это не волнует до тех пор, пока есть хорошая еда и алкоголь, жить в такой кампании будет всегда (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Кобаяси ТомокиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 12 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB10E49069684AE83FDE17D5ED8B3CFCD0F88CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201471   (694652) от 24.04.2018
 
 Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +32,7 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694652.jpg" />
+  <img src="Z:/picture/008/save_picture_694652.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694650.jpg" />
+  <img src="Z:/picture/008/save_picture_694650.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694648.jpg" />
+  <img src="Z:/picture/008/save_picture_694648.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694644.jpg" />
+  <img src="Z:/picture/008/save_picture_694644.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Sanrio Danshi / Sanrio Boys / Парни из «Санрио» [2018, TV, 12 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692893.jpg" />
+  <img src="Z:/picture/008/save_picture_692893.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] BDRip 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691997.jpg" />
+  <img src="Z:/picture/008/save_picture_691997.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690243.jpg" />
+  <img src="Z:/picture/008/save_picture_690243.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686011.jpg" />
+  <img src="Z:/picture/008/save_picture_686011.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Gakusen Toshi Asterisk / The Asterisk War / Боевая академия гор
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685766.jpg" />
+  <img src="Z:/picture/008/save_picture_685766.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682007.jpg" />
+  <img src="Z:/picture/008/save_picture_682007.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671566.jpg" />
+  <img src="Z:/picture/008/save_picture_671566.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671564.jpg" />
+  <img src="Z:/picture/008/save_picture_671564.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671556.jpg" />
+  <img src="Z:/picture/008/save_picture_671556.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Mayoiga / The Lost Village / Пристанище потерянных [2016, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669744.jpg" />
+  <img src="Z:/picture/008/save_picture_669744.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Bishoujo Senshi Sailor Moon R: The Movie / Sailor Moon R: The Movie - Promise of
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669688.jpg" />
+  <img src="Z:/picture/008/save_picture_669688.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668808.jpg" />
+  <img src="Z:/picture/008/save_picture_668808.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что дев
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668690.jpg" />
+  <img src="Z:/picture/008/save_picture_668690.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Gake no ue no Ponyo / Рыбка Поньо на утесе [2008] BDRip 720p ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665542.jpg" />
+  <img src="Z:/picture/008/save_picture_665542.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Howl's Moving Castle / Ходячий замок [2004] BDRip 384p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665539.jpg" />
+  <img src="Z:/picture/008/save_picture_665539.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Ao no Exorcist: Kyoto Fujouou Hen / Синий Экзорцист: Нечест�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660799.jpg" />
+  <img src="Z:/picture/008/save_picture_660799.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Mitsuboshi Colors / Трехцветные звездочки [2018, TV, 12 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658498.jpg" />
+  <img src="Z:/picture/008/save_picture_658498.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Slow Start / Медленный старт [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658456.jpg" />
+  <img src="Z:/picture/008/save_picture_658456.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656834.jpg" />
+  <img src="Z:/picture/008/save_picture_656834.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Ansatsu Kyoushitsu: Second Season / Assassination Classroom: Second Season / К�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652943.jpg" />
+  <img src="Z:/picture/008/save_picture_652943.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651251.jpg" />
+  <img src="Z:/picture/008/save_picture_651251.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC54D8815BC7F3A6B11BBC095F87093B2004C9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946460   (651030) от 04.07.2016
-
-Garo: Guren no Tsuki / Garo: Crimson Moon / Гаро: Кровавая луна [2015, TV, 23 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651030.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где обычные люди остерегаются живущих бок о бок с ними ведьм, истинными врагами человечества являются бесплотные демоны, питающиеся живой плотью и черпающие силу из страха. Ведьмы же и так называемые рыцари Макаи, обладающие могущественными магическими доспехами, - единственные защитники мирных людей от происков нечисти, способные изгнать ее и уничтожить. (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Вакабаяси АцусиСубтитры: ASS, Встроенные, Полные | Надписи «Shift» (01-02),  «AniLibria» (03-23)Формат: MKVПродолжительность: 23 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6A1AE70AF2550943E6878B99FE869F7AFAA376
 ```
 
 https://mybot314.ru/tekegram_catalog/

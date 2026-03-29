@@ -1,3 +1,231 @@
+###  Публикация: 1017131   (612792) от 20.04.2022
+
+Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612792.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
+A2	Освободись • Kom Loss
+A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
+A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017177   (612789) от 20.04.2022
+
+Раймондс Паулс - Мой Путь (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612789.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Увеселитель · The Entertainer
+A2	Как Велика Твоя Любовь · How Deep Is Your Love
+A3	Здравствуй! · Salut!
+A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instrumental, Ragtime, Disco, Easy ListeningПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947912   (611135) от 21.04.2022
+
+VA - Fantastic Rio Carnaval (1976) [FLAC 2.0 24/96|Limage+.cue (Vinyl-Rip)]<Latin, Samba>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611135.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Gres Acadêmicos Do Salgueiro - Nossa Madrinha, Mangueira Querida-Tengo Tengo
+A2	Gres Mocidade Independente De Padre Miguel - Rio Zê Pereira
+A3	Gres Imperatriz Leopoldinense - Martin Cererê
+A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De CordelЖанр: Latin, SambaПродолжительность: 01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993458   (611043) от 21.04.2022
+
+Hana & Dana, ORM - Talisman (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611043.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Ciao Pepino	3:36
+A2	My Summer Holidays	3:22
+A3	Sad Old Clown	3:54
+A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991825   (611041) от 21.04.2022
+
+Валерий Леонтьев - По вашим письмам: Горькие яблоки (1985) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горькие яблоки
+02. Конь мой, коньЖанр: PopПродолжительность: 00:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991818   (611029) от 21.04.2022
+
+Валерий Леонтьев - Ненаглядная сторона (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ненаглядная сторона
+02. Бреду по жёлтым склонамЖанр: PopПродолжительность: 00:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146955   (610991) от 01.07.2017
+
+VA - Rock Remakes - Non Stop Part three (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Beatles Meets Michael - Way You Make Me Feel (Michael Jackson)
+02. Therion - Summer Night City (Abba)
+03. Roxette - Help! (The Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912639   (610613) от 26.06.2015
+
+Roger Hodgson - In The Eye Of The Storm (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинать сольную карьеру в 80-х годах минувшего столетия в прогрессивном роке было делом заведомо неблагодарным. Тем не менее, многих музыкантов это не останавливало, и они наперекор всем начинали выпускать сольные альбомы, нередко вызывая тем самым досаду поклонников и злорадство критиков. Роджер Ходжсон (Roger Hodgson) – один из основателей Supertramp – также не (   Читать дальше...   )A1. Had A Dream (Sleeping With The Enemy) (8:28)
+A2. In Jeopardy (5:58)
+A3. Lovers In The Wind (4:15)
+A4. Hooked On A Problem (4:59)(   Читать дальше...   )Производство: A&M RecordsЖанр: Soft RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296653   (610045) от 18.04.2019
 
 Кино - Легенды Русского Рока (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock, New Wave>
@@ -6,7 +234,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610045.jpg" />
+  <img src="Z:/picture/008/save_picture_610045.jpg" />
 </div>
 
 
@@ -35,7 +263,7 @@ Pet Shop Boys - Behaviour (1990) Unofficial Release, Reissue 1992 [FLAC 2.0|192/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609500.jpg" />
+  <img src="Z:/picture/008/save_picture_609500.jpg" />
 </div>
 
 
@@ -64,7 +292,7 @@ Herbie Hancock - Empyrean Isles / Maiden Voyage (1964-1965) 2015, Remastered [DT
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608085.jpg" />
+  <img src="Z:/picture/008/save_picture_608085.jpg" />
 </div>
 
 
@@ -93,7 +321,7 @@ Steven Wilson - 4 ½ (2016) [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive 
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607945.jpg" />
+  <img src="Z:/picture/008/save_picture_607945.jpg" />
 </div>
 
 
@@ -122,7 +350,7 @@ Harry Secombe - At Your Request (1958) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607676.jpg" />
+  <img src="Z:/picture/008/save_picture_607676.jpg" />
 </div>
 
 
@@ -151,7 +379,7 @@ VA - Soul Meeting Vol. II - The Sound Of Young America (1966) [FLAC 2.0 24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607675.jpg" />
+  <img src="Z:/picture/008/save_picture_607675.jpg" />
 </div>
 
 
@@ -180,7 +408,7 @@ Al Martino - Spanish Eyes (1965) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607671.jpg" />
+  <img src="Z:/picture/008/save_picture_607671.jpg" />
 </div>
 
 
@@ -209,7 +437,7 @@ VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607553.jpg" />
+  <img src="Z:/picture/008/save_picture_607553.jpg" />
 </div>
 
 
@@ -238,7 +466,7 @@ VA - Послушай музыку (1983) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607552.jpg" />
+  <img src="Z:/picture/008/save_picture_607552.jpg" />
 </div>
 
 
@@ -267,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607549.jpg" />
+  <img src="Z:/picture/008/save_picture_607549.jpg" />
 </div>
 
 
@@ -296,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607458.jpg" />
+  <img src="Z:/picture/008/save_picture_607458.jpg" />
 </div>
 
 
@@ -323,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607453.jpg" />
+  <img src="Z:/picture/008/save_picture_607453.jpg" />
 </div>
 
 
@@ -352,7 +580,7 @@ Glenn Miller And His Orchestra - Glenn Miller Plays Selections From The Glenn Mi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607448.jpg" />
+  <img src="Z:/picture/008/save_picture_607448.jpg" />
 </div>
 
 
@@ -381,7 +609,7 @@ The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxs
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606596.jpg" />
+  <img src="Z:/picture/008/save_picture_606596.jpg" />
 </div>
 
 
@@ -410,7 +638,7 @@ Supertramp - Crime of the Century (1974) 2014, Reissue [DTS-HD MA, LPCM, Dolby T
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606203.jpg" />
+  <img src="Z:/picture/008/save_picture_606203.jpg" />
 </div>
 
 
@@ -441,7 +669,7 @@ The Rolling Stones - Exile On Main Street (1972) 2013 [DTS-HD MA, LPCM, Dolby Tr
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606201.jpg" />
+  <img src="Z:/picture/008/save_picture_606201.jpg" />
 </div>
 
 
@@ -471,7 +699,7 @@ Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606196.jpg" />
+  <img src="Z:/picture/008/save_picture_606196.jpg" />
 </div>
 
 
@@ -500,7 +728,7 @@ VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606113.jpg" />
+  <img src="Z:/picture/008/save_picture_606113.jpg" />
 </div>
 
 
@@ -514,240 +742,6 @@ VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038340   (606068) от 28.07.2016
-
-Bon Jovi - Slippery When Wet (1986) 2015,  Mercury [DTS-HD MA, Dolby TrueHD 5.1|96/24|BD-Audio] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slippery When Wet — третий студийный альбом группы Bon Jovi, выпущенный в августе 1986 года на Vertigo Records. Альбом включает в себя песни, которые сейчас считаются самыми известными песнями Bon Jovi, например «You Give Love a Bad Name», «Livin' on a Prayer» и «Wanted Dead Or Alive». Альбом провёл восемь недель на 1 месте The Billboard 200.
-
-Slippery When Wet является (   Читать дальше...   )01. Let It Rock
-02. You Give Love A Bad Name
-03. Livin' On A Prayer
-04. Social Disease(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAB18CE42DE92A5A0606CD96ADA91A48D5EA4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038353   (606058) от 28.07.2016
-
-George Michael - Symphonica (2014) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|BD-Audio] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through
-02. My Baby Just Cares For Me
-03. A Different Corner
-04. Praying For Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A66957B1ECBB571D882CEDB7FC5B879B99DD9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059832   (605809) от 24.04.2022
-
-Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Post Bop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лебедь
-02. Не Для Меня
-03. Присмотри За Мной, Мой Пастушок
-04. Будьте Добры(   Читать дальше...   )Жанр: Jazz, Post BopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059823   (605808) от 24.04.2022
-
-Sy Oliver/Сай Оливер - Только Для Танцоров (1990) Переписи с пластинок 1940-х годов [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только Для Танцоров
-02. Четыре Или Пять Раз
-03. Ничего, Кроме Любви
-04. Шарманщик(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54A5A8CB9938DBFD862DCBF68C914F74853E951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059782   (605675) от 24.04.2022
-
-Олег Газманов, Родион Газманов - Эскадрон (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605675.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Эскадрон
-A2 Свежий Ветер
-A3 Есаул
-A4 Путана(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58CD0C02A4F4A8AECE95C3A27EBE9158D999559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059562   (605672) от 24.04.2022
-
-Вальдо де лос Риос (Waldo De Los Rios) - Волшебная Музыка (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Easy Listening,  Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605672.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Все Говорят · Everybody's Talkin'
-A2 Жан · Jean
-A3 Капли Дождя Продолжают Падать На Мою Голову · Unas Gotas De Lluvia Sobre Mi Cabeza
-A4 Химена · Jimena(   Читать дальше...   )Жанр: Easy Listening,  RomanticПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0498125CF5859DAA37F01F967D1187657E18F26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546722   (604588) от 25.04.2022
-
-Ольга Вардашева и Людмила Невзгляд - Холодный Вечер (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Холодный Вечер
-(А. Морозов, обработка В. Литвиненко - М. Рябинин)
-02. Как Забыть Тебя
-(музыка и слова В. Литвиненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F38F28C330AEAE26BED0BF0C52988A91D6394A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546708   (604420) от 25.04.2022
-
-Акварели - Рыжее Лето (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рыжее Лето
-(Ю. Антонов - Л. Дербенёв)
-02. Потеряешь — Я Найду
-(Ю. Саульский - В. Харитонов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD25BA8D42890F5564D5324E60A5077B89E5F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

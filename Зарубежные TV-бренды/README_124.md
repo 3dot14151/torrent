@@ -1,3 +1,110 @@
+###  Публикация: 1224679   (58902) от 22.04.2024
+
+BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58902.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подводном мире киты и дельфины ведут необычный образ жизни. Их мир совершенно отличен от нашего, и мы можем лишь заглянуть туда. Синий кит - крупнейшее животное на планете. Более того, это крупнейшее животное из когда-либо живших на Земле. Миллионы лет эти гигантские киты и их сверхразумные братья - дельфины, царили в подводном мире.
+Наши отношения с ними не всегда (   Читать дальше...   )Производство: Великобритания, BBC Bristol, Thirteen / WNETЖанр: Документальный, природа, фаунаРежиссер: Ингрид Квале, Аннушка Скофилд, Эллен ХусейнУчастники: Стивен Фрай, Даг Аллен, Дидье Нуаре, Эндрю Армор, Вера Да Силва, Джим Дарлинг, Аша Де Воз и др.Перевод: Двуголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 3 х 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D861216A1BB38FD5F3EC21B27615BBB1BDE9D630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132236   (58822) от 23.04.2024
+
+BBC: История древней Британии / A History of Ancient Britain (2011-2012) HDTVRip  [H.264/720p] (сезоны 1-2, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ультрасовременное путешествие и открытие загадок - через мир доисторической Британии, от Ледниковой пустоши 12000 г. до н.э. до Каменного века. В фильме рассказано о последней научной работе детектива в экспериментальной археологии, популярного писателя и телеведущего Нила Оливера.
+Как наши предки вышли из последнего ледникового периода, как сельское хозяйство действительно (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, научно-познавательный, история, археология, палеонтологияРежиссер: Ариф Нурмухаммед, Саймон Уинчкомб, Дик ТейлорУчастники: Нил Оливер (ведущий)Перевод: Одноголосый закадровый, профессиональныйСубтитры: НетПродолжительность: 8x~ 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2206EB236563799D46119FFFDCCA16F4CA172CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294774   (58821) от 23.04.2024
+
+BBC: Поразительные чудеса мира / Weird Wonders of the World (2015) HDTV [H.264/1080p-LQ] (Сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский натуралист Крис Пэкхем, исследует самые странные природные явления:
+Как солнце изменило пейзаж классической музыки? Что общего у коз и пауков? Может ли шелк паука помочь нам создать пуленепробиваемую кожу? «Поразительные чудеса света» - это увлекательное путешествие, для поиска ответов на некоторые из самых странных вопросов на планете. С помощью ведущих (   Читать дальше...   )Производство: США, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Андреа БаффериУчастники: Крис ПэкхемПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB49386E79CE113E7802DF831B9C0BD3407EC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144169   (58814) от 23.04.2024
+
+BBC: Звуковые волны: симфония физики / Sound Waves: The Symphony Of Physics (2016) SATRip [H.264] (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - путешествие через мир тайных звуков Вселенной. Физика звука дает нам понимание того, как устроен мир. Мы воспринимаем его как само собой разумеющееся. Но звук может открыть нам массу секретов, от устройства вселенной до способов взаимодействия животных, находящихся в тысячах километров друг от другаПроизводство: Великобритания, BBC Studios The Open University PartnershipЖанр: Документальный, научно-популярныйРежиссер: Дэвид БриджгсУчастники: Д-р Хелен Кзерски (ведущая), Тревор Кокс , Мартин Кокрилл...Перевод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 2x~00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D284E5A183F6D5D5CEE8BACFBDBFD6C03BB7B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147493   (58746) от 24.04.2024
 
 BBC: Удивительный мир крови / The Wonderful World of Blood with Michael Mosley (2015) HDTV [H.264/1080i-LQ]
@@ -6,7 +113,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58746.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58724.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ BBC: Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58718.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ BBC: Царство Растений / Kingdom of Plants (2012) HDTVRip [H.264/7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58570.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ History Channel. Заговор НЛО: в поисках правды / UFO Con
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58534.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58466.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ BBC: Чудеса заводного мира / Mechanical Marvels. Clockwork Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58389.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58358.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58277.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ Discovery. Железная дорога Австралии / Railroad Australia
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57790.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57694.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57670.jpg" />
 </div>
 
 
@@ -450,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57669.jpg" />
 </div>
 
 
@@ -476,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57651.jpg" />
 </div>
 
 
@@ -502,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57639.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57430.jpg" />
 </div>
 
 
@@ -566,110 +673,6 @@ NG: Самые страшные стихийные бедствия: Земле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E10148CC63D51A2BE25CD171A3D2BFF61ACEC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433499   (57429) от 06.05.2024
-
-NG: Самые страшные стихийные бедствия: Торнадо / Ultimate Disaster: Tornado (2006) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя архивные кадры, компьютерную графику и мнения специалистов, серия фильмов канала National Geographic "Самые страшные стихийные бедствия" рассказывает о наиболее грозных силах природы - вулаканах, землетрясениях, цунами, торнадо. Каждая серия прослеживает их силу и последствия - от самых слабых до тех, которые могут привести к невиданной доныне (   Читать дальше...   )Производство: США, Новая Зеландия, Natural History New Zealand Ltd., National GeographicЖанр: Документальный, природа, катаклизмыРежиссер: Jeff SwimmerПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCE833179667AD783FC47A8087348D8F62F750A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316558   (56180) от 18.05.2024
-
-BBC: Луи Теру. Разговоры с анорексией / Talking to Anorexia (2019) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документалист Луи Теру пытается разобраться в сути анорексии, психического расстройства с самым высоким уровнем смертности. Луи посещает два крупнейших лондонских стационара для взрослых пациентов с расстройствами пищевого поведения, где он встречается с женщинами всех возрастов с разной степенью тяжести заболевания. Открывая для себя то, какую ужасающую власть имеет (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, исследованиеРежиссер: Эллена ВудУчастники: Луи Теру, Фрэнсис Коннан, Джеймс КеллиПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725615   (55457) от 25.05.2024
-
-NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2024) WEBRip [H.264/720p] (сезон 24, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реконструкция реальных воздушных катастроф, интервью с авиационным специалистами и очевидцами происшествий.Производство: Канада / Cineflix Productions, National GeographicЖанр: документальный, история, катастрофыРежиссер: Тим Волочатюк, Марк Мэйнгай, Джордж Д’АматоУчастники: Джонатан Арис, Стивен Богарт, Джон Кокс, David и др.Перевод: Двухголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B831E6B6ADA84C599E57843A8818D528957452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689074   (55251) от 27.05.2024
-
-PBS. Экспедиция со Стивом Бакшоллом / Expedition with Steve Backshall (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Pazl Voice
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал знакомит с британским натуралистом и исследователем Стивом Бакшоллом, который вместе со съемочной командой отправляется в самые удаленные и еще неизученные уголки планеты, чтобы бросить вызов своей удаче и навыкам выживания в дикой природе. Его путешествия охватывают весь земной шар: непролазные джунгли Южной Америки, заснеженные леса России, (   Читать дальше...   )Производство: Великобритания, True To Nature, UKTVЖанр: документальный, природа, приключения, путешествияРежиссер: Али МэйУчастники: Стив Бакшолл, Aldo Kane, Katy Fraser, Tamsin Gay, Anna Place, Кит Патридж, Nick Allinson, Libby Peter, Sarah McNair-Landry, Guillermo de AndaПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245D3DD0A400217516C91A62E32DCF38D089ECD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1338939   (268231) от 17.11.2019
+
+DropDMG 3.5.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_268231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Голландский, Датский и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167EE73DD236F1C64C41A4FECD91F000E010E564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338997   (268230) от 17.11.2019
+
+EazyDraw 9 v9.5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_268230.jpg" />
+</div>
+
+
+###  Подробнее
+
+EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2019Разработчик: Dekorra Optics, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856A0894246A4C743DE81A0EFC6EA9EFE5E789C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338957   (268229) от 17.11.2019
+
+Folder Tidy 2.7.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_268229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно часто бывает так, что на рабочем столе скапливается большое количество файлов и папок, которые хочется всегда иметь под рукой и до которых не "доходят руки", чтобы навести порядок.
+Утилита Folder Tidy предназначена именно для таких пользователей, помогая навести порядок на вашем рабочем столе.Тип издания: OS X SoftwareРелиз состоялся: 16.11.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: MacOS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D019B45E1C338659F8AE4BD522D6E5D2836AAA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339097   (268227) от 17.11.2019
+
+Check Off- A Task Manager 5.7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_268227.jpg" />
+</div>
+
+
+###  Подробнее
+
+CheckOff- приложение для управления задачами, которое работает как автономное приложение или приложение меню бар.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: ChromeDome SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68C4A4794C0B9230E878D434211C0ED4DCFE7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339013   (268226) от 17.11.2019
 
 Cisdem Duplicate Finder 5.0.0 [En]
@@ -6,7 +112,7 @@ Cisdem Duplicate Finder 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268226.jpg" />
+  <img src="Z:/picture/008/save_picture_268226.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ DSSW Power Manager 5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268225.jpg" />
+  <img src="Z:/picture/008/save_picture_268225.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Navicat Premium 15.0.1 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268224.jpg" />
+  <img src="Z:/picture/008/save_picture_268224.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Switch 4 Pro 4.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268221.jpg" />
+  <img src="Z:/picture/008/save_picture_268221.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ Comic Life 3 v3.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268220.jpg" />
+  <img src="Z:/picture/008/save_picture_268220.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.2 (build 224) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268212.jpg" />
+  <img src="Z:/picture/008/save_picture_268212.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ Newsflow v 1.4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268211.jpg" />
+  <img src="Z:/picture/008/save_picture_268211.jpg" />
 </div>
 
 
@@ -199,7 +305,7 @@ GPG Suite 2019.2 (build 1587) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268209.jpg" />
+  <img src="Z:/picture/008/save_picture_268209.jpg" />
 </div>
 
 
@@ -225,7 +331,7 @@ iFlicks 3 v3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268203.jpg" />
+  <img src="Z:/picture/008/save_picture_268203.jpg" />
 </div>
 
 
@@ -253,7 +359,7 @@ Movavi Slideshow Maker 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268194.jpg" />
+  <img src="Z:/picture/008/save_picture_268194.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ CrossOver 19.0 beta 1 (build 32154) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268132.jpg" />
+  <img src="Z:/picture/008/save_picture_268132.jpg" />
 </div>
 
 
@@ -307,7 +413,7 @@ Unclutter 2.1.20d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268127.jpg" />
+  <img src="Z:/picture/008/save_picture_268127.jpg" />
 </div>
 
 
@@ -335,7 +441,7 @@ ExpanDrive 6.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268037.jpg" />
+  <img src="Z:/picture/008/save_picture_268037.jpg" />
 </div>
 
 
@@ -364,7 +470,7 @@ Coda 2 v2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267976.jpg" />
+  <img src="Z:/picture/008/save_picture_267976.jpg" />
 </div>
 
 
@@ -391,7 +497,7 @@ MovieMator Video Editor Pro 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267895.jpg" />
+  <img src="Z:/picture/008/save_picture_267895.jpg" />
 </div>
 
 
@@ -417,7 +523,7 @@ Hedge 17.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267865.jpg" />
+  <img src="Z:/picture/008/save_picture_267865.jpg" />
 </div>
 
 
@@ -444,7 +550,7 @@ Airmail 3 3.6.51 (533) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267800.jpg" />
+  <img src="Z:/picture/008/save_picture_267800.jpg" />
 </div>
 
 
@@ -472,7 +578,7 @@ SketchUp Pro 2019 v19.3.252 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267755.jpg" />
+  <img src="Z:/picture/008/save_picture_267755.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ Serial Box 12.2018 + SerialSeeker 1.3.15 (191) + iSerial Reader 2.0.21 (build 01
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267279.jpg" />
+  <img src="Z:/picture/008/save_picture_267279.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ ABBYY Lingvo Dictionary для Mac 1.10 [Eni/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267278.jpg" />
+  <img src="Z:/picture/008/save_picture_267278.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ Folder-Factory 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267154.jpg" />
+  <img src="Z:/picture/008/save_picture_267154.jpg" />
 </div>
 
 
@@ -583,7 +689,7 @@ Multitouch 1.16.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267153.jpg" />
+  <img src="Z:/picture/008/save_picture_267153.jpg" />
 </div>
 
 
@@ -596,116 +702,6 @@ Multitouch позволяет связать пользовательское д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C72096B21DE2794AF23BF721F82FFA483A91458E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339140   (267152) от 18.11.2019
-
-Gifox 2 – Gif Recording & Sharing v2.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gifox - это прекрасно разработанное и мастерски созданное приложение, которое записывает ваш экран в анимированные gifs - отличную альтернативу статическим изображениям и полноразмерным видео.
-
-Gifox вводит совершенно новый способ непрерывного захвата экрана с режимом выбора окна - вы выбираете окно, и Gifox точно записывает его, даже когда он перемещается или закрывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Interactive Works LTDПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27648F706C1043F0B5A9D712350723DB7E90D78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339267   (267151) от 18.11.2019
-
-KCNcrew Pack 11-15-19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267151.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.11.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE507967C5368001450C98C6B36523905259C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339161   (267150) от 18.11.2019
-
-Amadine 1.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
-
-Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2019Разработчик: Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B33B04866BB34FDCFE609E03A6F714EDFB5E945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339248   (267149) от 18.11.2019
-
-Movist Pro 2.2.12 (134) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7133F762DECE2494480A1C4A771B05B384AB5255
 ```
 
 https://mybot314.ru/tekegram_catalog/

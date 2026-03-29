@@ -1,3 +1,67 @@
+###  Публикация: 931742   (510852) от 27.08.2015
+
+VA - Beatport Top 100 Hits August [edited by ZIMIANDR] (2015) [MP3|320 кб/с]<House, Jungle, House & Future House, Trance, Drum and Bass, Trap, Techno, DrumStep & Glitch Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Electro House 
+01. Zedd - Addicted to a Memory (feat. Bahari)
+02. Tove Lo - Talking Body (Lionhead Bootleg)
+03. Aftershock - Blackscrap (Original Mix)(   Читать дальше...   )Жанр: House, Jungle, House & Future House, Trance, Drum and Bass, Trap, Techno, DrumStep & Glitch HopПродолжительность: 09:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F433FEFB34BF2C41D39DB6228B49CCC26B4E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538183   (510573) от 22.08.2012
+
+VA - In Da Club Vol.65 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510573.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Reverse - Endless Journey (Original Mix)
+002. Moonbeam feat. Avis Vox - Star Way (Big Room Original Mix)
+003. Markus Schulz Presents Dakota - Katowice (Mr Pit Remix)
+004. Rex Mundi - Valley Of Dreams (Original mix)
+005. Norin & Rad vs. Recurve - The Gift (Original mix)
+006. Myon feat. Shane 54 & Carrie Skipper - Vampire (Club Mix)
+007. Orjan Nilsen - Between The Rays (Original)
+008. Miroslav Vrlik feat. Martin Jurenka - Join Together (Hoyaa Rising Remix)
+009. Rainbow Addict - Solar Spin (Not Okay Mix)
+010. Nash & Pepper - Aftersun (Mike Foyle Full Moon Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF3AE7E6E17E643DFF44CDB154D1D5BA551DAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537792   (510485) от 22.08.2012
 
 VA - Record Super Chart № 254 (18.08.2012) [MP3|320 кб/с]<Club, Dance>
@@ -6,7 +70,7 @@ VA - Record Super Chart № 254 (18.08.2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510485.jpg" />
+  <img src="Z:/picture/008/save_picture_510485.jpg" />
 </div>
 
 
@@ -41,7 +105,7 @@ VA - A Chill House Affair Vol. 2 (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510337.jpg" />
+  <img src="Z:/picture/008/save_picture_510337.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ VA - A Chill House Affair Vol. 4 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510333.jpg" />
+  <img src="Z:/picture/008/save_picture_510333.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ VA - A Chill House Affair Vol. 3 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510199.jpg" />
+  <img src="Z:/picture/008/save_picture_510199.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ VA - A Chill House Affair Vol. 5 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510191.jpg" />
+  <img src="Z:/picture/008/save_picture_510191.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - Beatport Top 100 Techno July [edited by ZIMIANDR] (2015) [MP3|320 кб/с]<
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510115.jpg" />
+  <img src="Z:/picture/008/save_picture_510115.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ VA - Sunset Soul (Ministry Of Sound) (2015) [MP3|320 кб/с]<Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510109.jpg" />
+  <img src="Z:/picture/008/save_picture_510109.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ VA - TOP 20 Energy Trance - Melody Center (2015) [MP3|320 кб/с]<Harmonic, Emo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509538.jpg" />
+  <img src="Z:/picture/008/save_picture_509538.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ VA - Extra House (episode 5) (2015) [MP3|320 кб/с]<Deep House, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509472.jpg" />
+  <img src="Z:/picture/008/save_picture_509472.jpg" />
 </div>
 
 
@@ -273,7 +337,7 @@ VA - Ibiza DJ Compilation Summer 2016 (2015) [MP3|320 кб/с]<Funky, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509470.jpg" />
+  <img src="Z:/picture/008/save_picture_509470.jpg" />
 </div>
 
 
@@ -302,7 +366,7 @@ VA - Electrozombies Dance House (2019) [MP3|320 Kbps] <House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508799.jpg" />
+  <img src="Z:/picture/008/save_picture_508799.jpg" />
 </div>
 
 
@@ -331,7 +395,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 150 (2015) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508399.jpg" />
+  <img src="Z:/picture/008/save_picture_508399.jpg" />
 </div>
 
 
@@ -360,7 +424,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 151 (2015) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508327.jpg" />
+  <img src="Z:/picture/008/save_picture_508327.jpg" />
 </div>
 
 
@@ -389,7 +453,7 @@ VA - Lounge At The Seashore 21 (2015) [MP3|320 кб/с]<Lounge, Electronic, Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508326.jpg" />
+  <img src="Z:/picture/008/save_picture_508326.jpg" />
 </div>
 
 
@@ -418,7 +482,7 @@ VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508324.jpg" />
+  <img src="Z:/picture/008/save_picture_508324.jpg" />
 </div>
 
 
@@ -447,7 +511,7 @@ VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508316.jpg" />
+  <img src="Z:/picture/008/save_picture_508316.jpg" />
 </div>
 
 
@@ -476,7 +540,7 @@ VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508165.jpg" />
+  <img src="Z:/picture/008/save_picture_508165.jpg" />
 </div>
 
 
@@ -505,7 +569,7 @@ VA - Bizarre Del Mar Top 30 Downbeat Moments and Best of Deluxe Erotic Bar and L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507247.jpg" />
+  <img src="Z:/picture/008/save_picture_507247.jpg" />
 </div>
 
 
@@ -534,7 +598,7 @@ VA - Deep House and Techno - Dream Selection 2010-2015 vol.1 (2010-2015) [MP3|24
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507241.jpg" />
+  <img src="Z:/picture/008/save_picture_507241.jpg" />
 </div>
 
 
@@ -563,7 +627,7 @@ VA - Extra Trance (episode 6) (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507180.jpg" />
+  <img src="Z:/picture/008/save_picture_507180.jpg" />
 </div>
 
 
@@ -592,7 +656,7 @@ VA - Record Super Chart 596 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506870.jpg" />
+  <img src="Z:/picture/008/save_picture_506870.jpg" />
 </div>
 
 
@@ -621,7 +685,7 @@ VA - Soul of Ibiza Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506796.jpg" />
+  <img src="Z:/picture/008/save_picture_506796.jpg" />
 </div>
 
 
@@ -656,7 +720,7 @@ VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Br
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506729.jpg" />
+  <img src="Z:/picture/008/save_picture_506729.jpg" />
 </div>
 
 
@@ -691,7 +755,7 @@ VA - Sexy Trance #45 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506703.jpg" />
+  <img src="Z:/picture/008/save_picture_506703.jpg" />
 </div>
 
 
@@ -709,64 +773,6 @@ VA - Sexy Trance #45 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4AE6D0F74111310FC1A46A56E14F54F70E0DA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933350   (506325) от 01.09.2015
-
-VA - Trance Traveling 68 (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eskova & 2Loop - Raindrops (Original Mix) (07:07)
-02. Jody Wisternoff feat. Sian Evans - The Bridge (Chicane Rework) (04:49)
-03. Lana Del Rey - High By The Beach (Blake Jarrell Remix) (04:58)
-04. Faithless - Salva Mea 2.0 (Above & Beyond Remix) (05:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854D27484FAA9C7AC13B9929E59308CCBA036844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933346   (506256) от 01.09.2015
-
-VA - Color Dance Expansion (2015) [MP3|320 кб/с]<Club, Minimal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Rigi - Tell Me
-002. Glimpse - Work That Body (Shinedoe Remix)
-003. Sebastian Coste - Garden (Folic State Remix)
-004. Motel 21 - Husslin(   Читать дальше...   )Жанр: Club, Minimal HouseПродолжительность: 10:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAA26E600EFECF1B79294D7CECDADA8702929CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1176630   (369835) от 22.10.2017
+
+Fenetre 0.4.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Держите окно открытым, всегда поверх всего остального.
+Картинка в картинке теперь доступно на вашем Mac.
+Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 октября 2017Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06B8FC01D8AAD97CD647590403713570C9679E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254721   (369796) от 15.10.2018
+
+Dropshare 5.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369796.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2018Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EFF5DBCFC376ECEEEE94CA06338DC10E276704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950461   (369742) от 26.10.2015
+
+Hands Off! 3.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2015Разработчик: One Periodic Inc.Поддерживаемая ОС: Mac OS X 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D546C667BDD1C43D0666356CC8B31C496E29C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176542   (369646) от 22.10.2017
+
+Navicat Premium 12.0.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
+
+Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2017Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB361382957F7E4C9B87E9066D4940D195A0C488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176629   (369526) от 22.10.2017
 
 Liquid | Flow Pro 14 [En]
@@ -6,7 +118,7 @@ Liquid | Flow Pro 14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369526.jpg" />
+  <img src="Z:/picture/008/save_picture_369526.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369479.jpg" />
+  <img src="Z:/picture/008/save_picture_369479.jpg" />
 </div>
 
 
@@ -59,7 +171,7 @@ Business Mix for Pages 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369377.jpg" />
+  <img src="Z:/picture/008/save_picture_369377.jpg" />
 </div>
 
 
@@ -88,7 +200,7 @@ OCRKit Pro 16.11.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369373.jpg" />
+  <img src="Z:/picture/008/save_picture_369373.jpg" />
 </div>
 
 
@@ -116,7 +228,7 @@ Easy Data Transform 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369367.jpg" />
+  <img src="Z:/picture/008/save_picture_369367.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ ExactScan Pro 16.11.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369269.jpg" />
+  <img src="Z:/picture/008/save_picture_369269.jpg" />
 </div>
 
 
@@ -168,7 +280,7 @@ Elements for iWork 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369255.jpg" />
+  <img src="Z:/picture/008/save_picture_369255.jpg" />
 </div>
 
 
@@ -194,7 +306,7 @@ August Burns Red - Leveler (2011) [ALAC|Lossless]<Metalcore>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_368419.jpg" />
+  <img src="Z:/picture/005/save_picture_368419.jpg" />
 </div>
 
 
@@ -229,7 +341,7 @@ Lyn 1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368201.jpg" />
+  <img src="Z:/picture/008/save_picture_368201.jpg" />
 </div>
 
 
@@ -255,7 +367,7 @@ Aimersoft Video Converter Ultimate for Mac 10.1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368198.jpg" />
+  <img src="Z:/picture/008/save_picture_368198.jpg" />
 </div>
 
 
@@ -281,7 +393,7 @@ TechTool Pro 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368083.jpg" />
+  <img src="Z:/picture/008/save_picture_368083.jpg" />
 </div>
 
 
@@ -308,7 +420,7 @@ MediaHuman Youtube Downloader 3.9.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367959.jpg" />
+  <img src="Z:/picture/008/save_picture_367959.jpg" />
 </div>
 
 
@@ -337,7 +449,7 @@ Money Pro - Personal Finance 2.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367835.jpg" />
+  <img src="Z:/picture/008/save_picture_367835.jpg" />
 </div>
 
 
@@ -365,7 +477,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1867 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367830.jpg" />
+  <img src="Z:/picture/008/save_picture_367830.jpg" />
 </div>
 
 
@@ -393,7 +505,7 @@ GoodNotes 5.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367826.jpg" />
+  <img src="Z:/picture/008/save_picture_367826.jpg" />
 </div>
 
 
@@ -420,7 +532,7 @@ WinX HD Video Converter for Mac 6.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367824.jpg" />
+  <img src="Z:/picture/008/save_picture_367824.jpg" />
 </div>
 
 
@@ -446,7 +558,7 @@ Serial Box 10.2020 + iSerial Reader 2.0.24 + SerialSeeker 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367663.jpg" />
+  <img src="Z:/picture/008/save_picture_367663.jpg" />
 </div>
 
 
@@ -475,7 +587,7 @@ Bartender 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367565.jpg" />
+  <img src="Z:/picture/008/save_picture_367565.jpg" />
 </div>
 
 
@@ -502,7 +614,7 @@ Airflow 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367503.jpg" />
+  <img src="Z:/picture/008/save_picture_367503.jpg" />
 </div>
 
 
@@ -528,7 +640,7 @@ Audiobook Builder 2.1.1 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367497.jpg" />
+  <img src="Z:/picture/008/save_picture_367497.jpg" />
 </div>
 
 
@@ -556,7 +668,7 @@ Dash 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367493.jpg" />
+  <img src="Z:/picture/008/save_picture_367493.jpg" />
 </div>
 
 
@@ -582,7 +694,7 @@ Sketch 3.4 (15588) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367435.jpg" />
+  <img src="Z:/picture/008/save_picture_367435.jpg" />
 </div>
 
 
@@ -594,110 +706,6 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31327E9ECFDE7AC8A3A241F3BCAB12EDC962A884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416573   (367349) от 16.10.2020
-
-Audirvana 3.5.41 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2020Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBBC8FB7E1DB6EC1BAA197015BA228AA9997778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416610   (367250) от 16.10.2020
-
-Navicat Premium 15.0.22 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E90483881E84A5EA3E3D123276FDDD32A2EC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176620   (367235) от 23.10.2017
-
-Ветреная река / Wind River (2016) WEB-DLRip [480p] iPod
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367235.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пустыне на территории индейской резервации «Ветреная река» егерь Кори Ламберт находит изувеченное тело молодой девушки. Опытный охотник с трагическим прошлым, он берется помочь в расследовании этого дела агенту ФБР Джейн Бэннер, которая оказывается в мире, полном загадок и насилия. Но смогут ли они противостоять зловещим силам этих мест, где сама природа пропитана (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, криминал, детективРежиссер: Тейлор ШериданАктеры: Джереми Реннер, Элизабет Олсен, Джон Бернтал, Келси Эсбиль, Джулия Джонс, Тео Брионес, Апесанахкват, Грэм Грин, Танту Кардинал, Эрик ЛанжПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A1A5862FEAB14B0E02C5F1C7CE4620D2D4C467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416572   (367184) от 16.10.2020
-
-Native Instruments Kontakt 6 v6.4.0 Fixed [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D41C3CAB5FDBB8EB1A88B772072E073745BFCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

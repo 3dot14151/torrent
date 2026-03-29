@@ -1,3 +1,29 @@
+###  Публикация: 838928   (344900) от 08.11.2014
+
+Охота жить (1991) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344900.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому рассказу Василия Шукшина. История случайной встречи таежного охотника Никитича и молодого парня, бежавшего из мест заключения...Жанр: драма, короткометражныйРежиссер: Борис ТокаревАктеры: Юрий Назаров, Борис Бачурин, Владимир Трещалов, Михаил Чигарев, Анатолий ВеденкинПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735AEB388EF8A2C81056B166F5B163BE9DDE6C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073439   (344788) от 16.11.2016
 
 Пейзаж с тремя купальщицами (1995) VHSRip [H.264]
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344788.jpg" />
+  <img src="Z:/picture/008/save_picture_344788.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344374.jpg" />
+  <img src="Z:/picture/008/save_picture_344374.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344142.jpg" />
+  <img src="Z:/picture/005/save_picture_344142.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344140.jpg" />
+  <img src="Z:/picture/005/save_picture_344140.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343721.jpg" />
+  <img src="Z:/picture/008/save_picture_343721.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343271.jpg" />
+  <img src="Z:/picture/008/save_picture_343271.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343266.jpg" />
+  <img src="Z:/picture/008/save_picture_343266.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342865.jpg" />
+  <img src="Z:/picture/008/save_picture_342865.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342471.jpg" />
+  <img src="Z:/picture/008/save_picture_342471.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342258.jpg" />
+  <img src="Z:/picture/008/save_picture_342258.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341758.jpg" />
+  <img src="Z:/picture/008/save_picture_341758.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341728.jpg" />
+  <img src="Z:/picture/005/save_picture_341728.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341724.jpg" />
+  <img src="Z:/picture/008/save_picture_341724.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341618.jpg" />
+  <img src="Z:/picture/008/save_picture_341618.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341603.jpg" />
+  <img src="Z:/picture/005/save_picture_341603.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341601.jpg" />
+  <img src="Z:/picture/005/save_picture_341601.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341471.jpg" />
+  <img src="Z:/picture/005/save_picture_341471.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340335.jpg" />
+  <img src="Z:/picture/008/save_picture_340335.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339760.jpg" />
+  <img src="Z:/picture/008/save_picture_339760.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339757.jpg" />
+  <img src="Z:/picture/008/save_picture_339757.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339710.jpg" />
+  <img src="Z:/picture/008/save_picture_339710.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339518.jpg" />
+  <img src="Z:/picture/008/save_picture_339518.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339491.jpg" />
+  <img src="Z:/picture/008/save_picture_339491.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339181.jpg" />
+  <img src="Z:/picture/008/save_picture_339181.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338841.jpg" />
+  <img src="Z:/picture/008/save_picture_338841.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C45EA4302164254135F5B292C2882CA9BAE225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330688   (338543) от 11.10.2019
-
-Московские тайны. Проклятие мастера (2019) SATRip [H.264] (фильм 5,серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Москве, на Патриарших прудах, снимается экранизация романа «Мастер и Маргарита». Прямо во время съемки погибает артист, играющий роль Воланда, и Настю Вяземскую привлекают к расследованию этой странной смерти. Есть подозрение, что некто решил таким чудовищным способом сорвать проект: либо конкуренты продюсера, либо жители Патриарших, чей покой нарушило появление (   Читать дальше...   )Производство: Россия / Приор ПродакшнЖанр: детективРежиссер: Артем НасыбулинАктеры: Александра Богданова, Евгений Пронин, Иван Жвакин, Екатерина Семенова, Владислав Ветров, Александр Робак, Алексей Лонгин, Алексей Тахаров и др.Продолжительность: ~00:44:08 +00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2AB247AF0C1FC9261564B957C52AC9BF6F3E6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

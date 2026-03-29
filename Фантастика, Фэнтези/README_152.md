@@ -1,3 +1,58 @@
+###  Публикация: 1245195   (473865) от 05.09.2018
+
+Абдул аль-Хазред | Некрономикон. Аль-Азиф, или Шепот ночных демонов (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля, оказавшаяся в силу своего происхождения уникальным миром, хранящим великую мудрость бытия в наиболее полном виде, неудержимо влечет к себе познающих со всех концов Вселенной. Накопленная за бесконечные времена и записанная энергетическим кодом, эта мудрость заключена во всем, но особенно в «венце развития» – разумных существах. Она являет собой бесценное сокровище, (   Читать дальше...   )Жанр: Героическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEB71067BAABBCCDED718B099BE1857988DF326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160643   (473763) от 25.08.2017
+
+Йон Колфер | Ученик убийцы (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «ПАУКС».
+
+Райли четырнадцать, он живет в Лондоне конца XIX века. Он сирота, и вырастил его наемный убийца, решивший передать ученику все секреты своего мрачного ремесла… Но Райли не хочет идти по стопам учителя! Мальчик мечтает сбежать, и однажды ему предоставляется возможность ускользнуть… в XXI век.
+Шеврон Савано семнадцать, и она – самый юный, (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Историческая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E47CEF095311FA96D76ED5F19F4C5E8C1D6864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245203   (473754) от 05.09.2018
 
 Джозеф Дилейни | Месть Ведьмака (2018) [FB2]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473754.jpg" />
+  <img src="Z:/picture/008/save_picture_473754.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473719.jpg" />
+  <img src="Z:/picture/008/save_picture_473719.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473671.jpg" />
+  <img src="Z:/picture/008/save_picture_473671.jpg" />
 </div>
 
 
@@ -91,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473656.jpg" />
+  <img src="Z:/picture/008/save_picture_473656.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473648.jpg" />
+  <img src="Z:/picture/008/save_picture_473648.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473541.jpg" />
+  <img src="Z:/picture/008/save_picture_473541.jpg" />
 </div>
 
 
@@ -175,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473222.jpg" />
+  <img src="Z:/picture/008/save_picture_473222.jpg" />
 </div>
 
 
@@ -203,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473087.jpg" />
+  <img src="Z:/picture/008/save_picture_473087.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473032.jpg" />
+  <img src="Z:/picture/008/save_picture_473032.jpg" />
 </div>
 
 
@@ -260,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471918.jpg" />
+  <img src="Z:/picture/008/save_picture_471918.jpg" />
 </div>
 
 
@@ -286,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471793.jpg" />
+  <img src="Z:/picture/008/save_picture_471793.jpg" />
 </div>
 
 
@@ -314,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471703.jpg" />
+  <img src="Z:/picture/008/save_picture_471703.jpg" />
 </div>
 
 
@@ -342,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471702.jpg" />
+  <img src="Z:/picture/008/save_picture_471702.jpg" />
 </div>
 
 
@@ -368,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471699.jpg" />
+  <img src="Z:/picture/008/save_picture_471699.jpg" />
 </div>
 
 
@@ -394,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471575.jpg" />
+  <img src="Z:/picture/008/save_picture_471575.jpg" />
 </div>
 
 
@@ -422,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471566.jpg" />
+  <img src="Z:/picture/008/save_picture_471566.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471245.jpg" />
+  <img src="Z:/picture/008/save_picture_471245.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471243.jpg" />
+  <img src="Z:/picture/008/save_picture_471243.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471232.jpg" />
+  <img src="Z:/picture/008/save_picture_471232.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471229.jpg" />
+  <img src="Z:/picture/008/save_picture_471229.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471071.jpg" />
+  <img src="Z:/picture/008/save_picture_471071.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470971.jpg" />
+  <img src="Z:/picture/008/save_picture_470971.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470922.jpg" />
+  <img src="Z:/picture/008/save_picture_470922.jpg" />
 </div>
 
 
@@ -637,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470912.jpg" />
+  <img src="Z:/picture/008/save_picture_470912.jpg" />
 </div>
 
 
@@ -648,62 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3A81D87DEC3E82450D2CA7B76562E72B577DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940143   (470810) от 23.09.2015
-
-Джон Толкин | Хоббит (2014) [PDF]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Рональд Руэл Толкин – писатель, поэт, филолог, профессор Оксфордского университета, родоначальник современной фэнтези. В 1937 году был написан «Хоббит», а в середине 1950-х годов увидели свет три книги «Властелина колец», повествующие о Средиземье – мире, населенном представителями волшебных рас со сложной культурой, историей и мифологией.
-
-В последующие годы (   Читать дальше...   )Жанр: ФэнтезиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CF4DB503790A676A80B44DAC96D830855F7870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406689   (470583) от 05.09.2020
-
-Ричард Матесон | Куда приводят мечты (2016) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе, что вы умерли! Но, как выясняется, жизнь продолжается и за порогом смерти. Более того, впереди ждет бесконечное странствие по неизведанным мирам и вселенным. Именно в такое путешествие суждено отправиться Крису Нильсену, чтобы спастись от отчаяния и вновь обрести надежду и любовь.
-
-Сразу же после публикации роман Р. Матесона стал бестселлером и (   Читать дальше...   )Жанр: Литература 20 века, МистикаПеревод: Ирина В. ИванченкоФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D09B13689C0D9BC9660AC646F41A35D593AC91
 ```
 
 https://mybot314.ru/tekegram_catalog/

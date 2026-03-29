@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 20.009.20074 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734561.jpg" />
+  <img src="Z:/picture/008/save_picture_734561.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UctoX 2 v2.9 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734468.jpg" />
+  <img src="Z:/picture/008/save_picture_734468.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ProFind 1.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734464.jpg" />
+  <img src="Z:/picture/008/save_picture_734464.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Cycling'74 Max 8 v8.2.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734459.jpg" />
+  <img src="Z:/picture/008/save_picture_734459.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Duplicate Photos Fixer Pro 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734458.jpg" />
+  <img src="Z:/picture/008/save_picture_734458.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AirMail Pro 5 v5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734456.jpg" />
+  <img src="Z:/picture/008/save_picture_734456.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Things 3 v3.15.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734451.jpg" />
+  <img src="Z:/picture/008/save_picture_734451.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Wondershare Repairit 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734444.jpg" />
+  <img src="Z:/picture/008/save_picture_734444.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Xfer Records OTT 1.31 VST, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734435.jpg" />
+  <img src="Z:/picture/008/save_picture_734435.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ableton Live Suite 11 v11.1 CR2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734425.jpg" />
+  <img src="Z:/picture/008/save_picture_734425.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ KLS Backup 2021 Professional 11.0.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734407.jpg" />
+  <img src="Z:/picture/008/save_picture_734407.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Corel Painter 2022 + Corel Premium Brush Packs v22.0.1.171  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734393.jpg" />
+  <img src="Z:/picture/008/save_picture_734393.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Windows 11 Manager 1.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734388.jpg" />
+  <img src="Z:/picture/008/save_picture_734388.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ MarsEdit 4 v4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734380.jpg" />
+  <img src="Z:/picture/008/save_picture_734380.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Privatus 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734379.jpg" />
+  <img src="Z:/picture/008/save_picture_734379.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Soulver 3 v3.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734378.jpg" />
+  <img src="Z:/picture/008/save_picture_734378.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734369.jpg" />
+  <img src="Z:/picture/008/save_picture_734369.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Graphic Inspector 2 v2.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734347.jpg" />
+  <img src="Z:/picture/008/save_picture_734347.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ExLibris 10.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734336.jpg" />
+  <img src="Z:/picture/008/save_picture_734336.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734335.jpg" />
+  <img src="Z:/picture/008/save_picture_734335.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Allavsoft Video Downloader Converter 3.22.8.7514 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734333.jpg" />
+  <img src="Z:/picture/008/save_picture_734333.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ OmniFocus Pro 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734317.jpg" />
+  <img src="Z:/picture/008/save_picture_734317.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Morph Age 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734316.jpg" />
+  <img src="Z:/picture/008/save_picture_734316.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ HazeOver 1.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734312.jpg" />
+  <img src="Z:/picture/008/save_picture_734312.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Ultra Mood - Angry Clown (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734310.jpg" />
+  <img src="Z:/picture/008/save_picture_734310.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.2 (build 60) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734309.jpg" />
+  <img src="Z:/picture/008/save_picture_734309.jpg" />
 </div>
 
 

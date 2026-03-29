@@ -1,3 +1,82 @@
+###  Публикация: 1630231   (196558) от 26.06.2023
+
+Плохая мать / Плохая мамочка / Nappeun eomma / The Good Bad Mother (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-14 из 14) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деревенская женщина Ён-сун растила сына одна — Кан-хо вырос и стал прокурором. Но однажды с ним происходит несчастный случай, и его интеллектуальное и психическое развитие откатывается до уровня ребёнка. Парню приходится вернуться домой и жить с мамой на свиной ферме.Производство: Южная Корея, Drama House, Film Monster, jTBC, Studio LuluLalaЖанр: комедия, драмаРежиссер: Щим На-ёнАктеры: Ра Ми-ран, Ли До-хён, Ан Ын-джин, Ю Ин-су, Чон Ун-ин, Чхве Му-сон, Со И-сук, Ким Вон-хэ, Чо Джин-ун, Чан Вон-ёнПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: русские, украинские, английские, французскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD71F8AB1191578B8084C27999C533BA07FBD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628237   (196481) от 26.06.2023
+
+Доктор Чха / Доктор Чха Чон Сук / Dakteo Cha Jeongsuk / Doctor Cha (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox (обновляемая)
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чха Чон Сук замужем за Со Ин Хо, который работает главным хирургом в университетской больнице. У него строгий, чувствительный и основательный характер. Чха Чон Сук последние 20 лет была домохозяйкой после того, как отказалась от карьеры врача во время учебы в резидентуре. После стольких лет она решает возобновить обучение в ординатуре.Производство: Южная Корея, jTBC, Studio LuluLalaЖанр: комедия, мелодрама, драмаРежиссер: Ким Дэ-джин, Ким Джон-укАктеры: Ом Джон-хва, Ким Бён-чхоль, Мён Сэ-бин, Мин У-хёк, Сон Джи-хо, Ким Ми-гёнПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: русские, украинские, английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1111710E66D3C0702F5EEC4D5886B5DF8ABA880B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631766   (196290) от 02.07.2023
+
+Мы встретились случайно / Eojjeoda majuchin, geudae / Run Into You / My Perfect Stranger (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочная история о мужчине, который путешествует в прошлое, чтобы найти правду о серийных убийствах. Он встречает женщину, которая путешествует во времени, надеясь предотвратить свадьбу родителей. В самый разгар их скитаний они застревают в 1987 году.
+Юн Хэ Джун (Ким До-ук) – ведущий новостей, уравновешенный и прямолинейный, красив, к тому же имеет теплое сердце. (   Читать дальше...   )Производство: Южная Корея, Arc Media, Korean Broadcasting System (KBS)Жанр: детектив, фэнтези, мелодрамаРежиссер: Кан Су-ён, Ли Ун-хиАктеры: Ким Дон-ук, Чин Ги-джу, Со Джи-хе, Ли Вон-джон, Ким Джон-су, Ли Гю-хве, Лим Джон-юн, Ким Хе-ын, Ким Джон-ён, Чхве Ён-уПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42FF2EF7EC12ACB05407C2593A648D2D3B6A2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646445   (195519) от 19.07.2023
 
 Параллельные миры / Меж двух миров / W Du gaeui segye (2016) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16) Мобильное Телевидение
@@ -6,7 +85,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195519.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190791.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189320.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188719.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188705.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187359.jpg" />
+  <img src="Z:/picture/005/save_picture_187359.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186754.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184968.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184726.jpg" />
+  <img src="Z:/picture/004/save_picture_184726.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182823.jpg" />
+  <img src="Z:/picture/004/save_picture_182823.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181940.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181872.jpg" />
+  <img src="Z:/picture/005/save_picture_181872.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180979.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180491.jpg" />
+  <img src="Z:/picture/005/save_picture_180491.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180459.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179303.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178935.jpg" />
+  <img src="Z:/picture/005/save_picture_178935.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177320.jpg" />
+  <img src="Z:/picture/005/save_picture_177320.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173819.jpg" />
+  <img src="Z:/picture/004/save_picture_173819.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169982.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169671.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169501.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169497.jpg" />
 </div>
 
 
@@ -593,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2871374274947C4E79BA87BA5B7B9B24192C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596627   (168829) от 11.12.2022
-
-Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 12) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168829.jpg" />
-</div>
-
-
-###  Подробнее
-
-2025 год. Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех: социальное расслоение увеличилось, богатые стали богаче, а бедные — беднее. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон из монетного двора, расположенного в объединённой экономической зоне, и берёт (   Читать дальше...   )Производство: Южная Корея / BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: триллер, криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, английский, корейскийСубтитры: русские, украинские, английскиеПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7690970BE55E39870FE5C6E2AAE8453525F97E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596623   (168792) от 11.12.2022
-
-Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 12) HDRezka, TVShows
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168792.jpg" />
-</div>
-
-
-###  Подробнее
-
-2025 год. Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех: социальное расслоение увеличилось, богатые стали богаче, а бедные — беднее. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон из монетного двора, расположенного в объединённой экономической зоне, и берёт (   Читать дальше...   )Производство: Южная Корея / BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: триллер, криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Многоголосый профессиональный (HDRezka, TVShows)Язык озвучки: русский, корейскийПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3CE5BF563BF1B18B1693C340ED448DDDCA6426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596633   (168712) от 11.12.2022
-
-Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEB-DL [H.264/1080p] (сезон 1, серии 7-12 из 12) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168712.jpg" />
-</div>
-
-
-###  Подробнее
-
-2025 год. Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех: социальное расслоение увеличилось, богатые стали богаче, а бедные — беднее. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон из монетного двора, расположенного в объединённой экономической зоне, и берёт (   Читать дальше...   )Производство: Южная Корея / BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: триллер, криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: русские, украинские, английские, французскиеПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A2D008E96EEEF692BCA0631825426E33FEA718
 ```
 
 https://mybot314.ru/tekegram_catalog/

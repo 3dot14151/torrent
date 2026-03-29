@@ -1,3 +1,134 @@
+###  Публикация: 1641161   (235476) от 21.06.2023
+
+Chaotica 2.2.3 Beta [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chaotica - это приложение фрактального искусства нового поколения, предназначенное как для начинающих, так и для профессиональных художников. Начинающие пользователи могут наслаждаться редактированием рандомизированных фракталов для создания потрясающих HD-обоев и анимации. Профессиональные пользователи особенно оценят быстрый современный движок рендеринга. Высококачественные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2013 - 2023 Glare Technologies Limited.Поддерживаемая ОС: macOS 10.13.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034629791194CFABAD1CAEA189752D752E782903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530771   (235417) от 12.02.2022
+
+ApolloOne - Photo Video Viewer 3.0.2 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235417.jpg" />
+</div>
+
+
+###  Подробнее
+
+ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36696404003C4CAF5F5669AD79223B025277CF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530791   (235400) от 12.02.2022
+
+BluePlum Home Inventory 4 v4.6.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235400.jpg" />
+</div>
+
+
+###  Подробнее
+
+BluePlum Home Inventory - наиболее полное приложение для инвентаризации дома, которое поможет вам составлять и поддерживать инвентарь для любой собственности, какой вы владеете. Оно позволяет вам организовать свои вещи в коллекциях, комнатах, местах и ​​/ или присвоить каждому из них один или несколько тегов. ПО позволяет добавлять фотографии, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2022Разработчик: © 2021 The Blue Plum Software Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F092B2C49C54356F632A868F427238D4B8C114A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642626   (235372) от 28.06.2023
+
+Battery Indicator for Mac 2.16.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: © 2023 Sindre SorhusПоддерживаемая ОС: macOS 13.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BBCCDA423368C1D068583DC1B8C7B705F635FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530822   (235288) от 12.02.2022
+
+Labels and Databases 1.7.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235288.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Labels and Databases — это приложение для создания и дизайна этикеток со сложной поддержкой баз данных. Он помогает вам создавать этикетки, конверты и открытки с использованием различных встроенных форматов этикеток и заполнять их информацией, содержащейся в пользовательских базах данных, то есть создавать и печатать этикетки с помощью слияния.
+Различные объекты, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2021Разработчик: © 2004-2021 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D100F2B14F0EAF69FB8E391DB01E56923EEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641704   (235272) от 23.06.2023
 
 ColoFolXS 2.2.2 [En]
@@ -6,7 +137,7 @@ ColoFolXS 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235272.jpg" />
 </div>
 
 
@@ -35,7 +166,7 @@ Disk PLUS 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235261.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ mcZoomOn 5 v5.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235171.jpg" />
 </div>
 
 
@@ -87,7 +218,7 @@ Transfer 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235074.jpg" />
+  <img src="Z:/picture/005/save_picture_235074.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ Audio Ease Snapper 3.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234908.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ Script Debugger 8 v.8.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234882.jpg" />
 </div>
 
 
@@ -166,7 +297,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234829.jpg" />
 </div>
 
 
@@ -193,7 +324,7 @@ Graphic Inspector 2 v.2.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234771.jpg" />
 </div>
 
 
@@ -219,7 +350,7 @@ Irvue 2.7.14 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234659.jpg" />
 </div>
 
 
@@ -245,7 +376,7 @@ Workspaces 2 v.2.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234616.jpg" />
 </div>
 
 
@@ -272,7 +403,7 @@ TG Pro (Temperature Gauge Pro) 2.81 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234613.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ Memoires 5 v.5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234602.jpg" />
 </div>
 
 
@@ -326,7 +457,7 @@ Cisdem Duplicate Finder 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234598.jpg" />
 </div>
 
 
@@ -353,7 +484,7 @@ Art Text 4 v.4.3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234544.jpg" />
 </div>
 
 
@@ -380,7 +511,7 @@ BetterSnapTool 1.9.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234505.jpg" />
 </div>
 
 
@@ -407,7 +538,7 @@ Steinberg Dorico Pro for Mac 5 v.5.0.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234479.jpg" />
 </div>
 
 
@@ -433,7 +564,7 @@ Gas Mask 0.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234365.jpg" />
 </div>
 
 
@@ -460,7 +591,7 @@ Seasonality Core 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234364.jpg" />
 </div>
 
 
@@ -486,7 +617,7 @@ Texifier 1.9.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234356.jpg" />
 </div>
 
 
@@ -512,7 +643,7 @@ JustStream PRO 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234335.jpg" />
 </div>
 
 
@@ -538,7 +669,7 @@ ForkLift 3.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234126.jpg" />
 </div>
 
 
@@ -550,139 +681,6 @@ ForkLift – это альтернативный файловый менедже
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D2E11F0C137378E0DBD19231EECEF477C2E4B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622994   (234094) от 31.03.2023
-
-UctoX 2.9.8 U2B [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234094.jpg" />
-</div>
-
-
-###  Подробнее
-
-UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
-Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
-Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5413BB28ED43C68E23119EA7021D0990991728F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640579   (234076) от 18.06.2023
-
-Website Watchman 3.3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мониторинг, архивирование, просмотр сохраненной информации. Website Watchman - это простая в использовании утилита для архивирования веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: 01.06.2023Разработчик: ©2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7205C365E2C7FD9A5E5C17EF40D4977F13D0D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622998   (234059) от 31.03.2023
-
-Memory Pictures 4.3.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотографии, снятые с цифровых камер, сопровождаются большим объемом информации обо всех настройках, используемых для создания изображения, с заголовком EXIF. В заголовок EXIF ​​вложены настройки GPS-координат и комментария пользователя. Memory Pictures — это приложение для OS X, которое позволяет вам делать именно это.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2023Разработчик: © 2016-2022 Complete Magic AppsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E721766FFF18085C99CED13454DDBB02DF988D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577836   (234027) от 20.09.2022
-
-Nik Complete 5 Collection by DxO v.5.2.0 U2B [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
-Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.09.2022Разработчик: © DxOПоддерживаемая ОС: macOS 10.15.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE98DBC5F6A7C5ED5109026612AEA0341F38666E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578053   (233938) от 21.09.2022
-
-RAR Extractor - Unzip ZIP 7Z 7.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте любой формат файла архива. Поддержка извлечения RAR, ZIP, 7Z, TAR, GZIP, GZ, BZIP2, LZIP, ACE, ISO, PAX, PKG, APK, LBR, MSI, JAR, XZ, LZMA, BZ, LZH, CAB, CPIO, SWF, SPK, MSI, SEA, NRG, MDF, TAZ, ACE, LBR, RPM, CPT и т. д.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022 ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91177A520FB29E49C722D1A8598C9ED6215796A
 ```
 
 https://mybot314.ru/tekegram_catalog/

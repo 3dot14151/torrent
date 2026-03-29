@@ -6,7 +6,7 @@ Cisdem PDF to Word Converter 7.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313982.jpg" />
+  <img src="Z:/picture/008/save_picture_313982.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Habitify: Habit Tracker 6.0 (3001) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313886.jpg" />
+  <img src="Z:/picture/008/save_picture_313886.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Adobe Acrobat X Pro [En, Fr, De]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312800.jpg" />
+  <img src="Z:/picture/008/save_picture_312800.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Delicious Library 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312477.jpg" />
+  <img src="Z:/picture/008/save_picture_312477.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Apple iWork Pages 6.3.1, Numbers 4.3.1, Keynote 7.3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311291.jpg" />
+  <img src="Z:/picture/008/save_picture_311291.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tyme 2 v1.9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309796.jpg" />
+  <img src="Z:/picture/008/save_picture_309796.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Templates for Numbers 4.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306800.jpg" />
+  <img src="Z:/picture/008/save_picture_306800.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ uTorrent 1.8.7 (43001) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306079.jpg" />
+  <img src="Z:/picture/008/save_picture_306079.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Password Vault Manager Enterprise 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303519.jpg" />
+  <img src="Z:/picture/008/save_picture_303519.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Spillo 1.9.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303001.jpg" />
+  <img src="Z:/picture/008/save_picture_303001.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Templates for Pages 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302840.jpg" />
+  <img src="Z:/picture/008/save_picture_302840.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Diagrammix 2.15 (3013) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301493.jpg" />
+  <img src="Z:/picture/008/save_picture_301493.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Infographics 3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300300.jpg" />
+  <img src="Z:/picture/008/save_picture_300300.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Cisdem PDFCreator 7.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299118.jpg" />
+  <img src="Z:/picture/008/save_picture_299118.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Anatomy III by 3D4Medical (Bundle) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299029.jpg" />
+  <img src="Z:/picture/008/save_picture_299029.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VoodooPad 5 v5.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298764.jpg" />
+  <img src="Z:/picture/008/save_picture_298764.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Orion PDF Author 2 v2.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298762.jpg" />
+  <img src="Z:/picture/008/save_picture_298762.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PDF Expert 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298722.jpg" />
+  <img src="Z:/picture/008/save_picture_298722.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298691.jpg" />
+  <img src="Z:/picture/008/save_picture_298691.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Framer Studio v123 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298523.jpg" />
+  <img src="Z:/picture/008/save_picture_298523.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Debit & Credit - Учет финансов 2.5.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297433.jpg" />
+  <img src="Z:/picture/008/save_picture_297433.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ MiniNote Pro 5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297018.jpg" />
+  <img src="Z:/picture/008/save_picture_297018.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Touch Forms Pro 7 v7.27.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297016.jpg" />
+  <img src="Z:/picture/008/save_picture_297016.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Curio 10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296991.jpg" />
+  <img src="Z:/picture/008/save_picture_296991.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ PDFPen 11.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296927.jpg" />
+  <img src="Z:/picture/008/save_picture_296927.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Things 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294728.jpg" />
+  <img src="Z:/picture/008/save_picture_294728.jpg" />
 </div>
 
 

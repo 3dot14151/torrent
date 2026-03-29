@@ -1,3 +1,81 @@
+###  Публикация: 1822576   (100939) от 07.10.2025
+
+Звуковые библиотеки - Producer Loops - Kryptic Samples - Calydon [WAV, MID]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100939.jpg" />
+</div>
+
+
+###  Подробнее
+
+«CALYDON» — это инновационный и свежий микс хард- и дарк-трэпа и городской музыки. Это коллекция сэмплов, до краев наполненная самыми смелыми и глубокими звуками, созданная Crude Sounds, новым дочерним лейблом Kryptic Samples для продюсеров трэп-музыки, стремящихся окунуться в тёмную сторону трэпа и городской музыки.Формат: WAV, MID
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF37D1B0A66F61FFEC1E50B2B2348AB847094FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822648   (100905) от 07.10.2025
+
+Звуковые библиотеки - Amazon - Fire & Fireworks Sound Effects [FLAC]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обширная звукотека эффектов на тему огня: здесь вы встретите звуки пожаров, огненных взрывов, услышите потрескивающий огонь, доносящийся из камина, интенсивное вспыхивание и шипящее горение бензина, разжигание огня взятой из коробки спичкой с интенсивным пламенем, большой фейерверк с финальной овацией, взрывы петард, звук воспламеняющегося пороха, многократные взрывы, (   Читать дальше...   )Формат: FLAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292CE449A42EA8FE46C8AB9F811A3C083F1DD04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822321   (100797) от 06.10.2025
+
+Звуковые библиотеки - Bigcitiloops - Ghetto Gospel 4 [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100797.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ghetto Gospel 4» содержит десять самых вдохновляющих индивидуальных сэмплов госпел-музыки. Эта проникновенная музыка — настоящий шедевр среди госпел-сэмплов для нарезки. Эти комплекты вдохновлены такими артистами, как Андре Крауч, Смоки Норфул, Марта Муницци, Кирк Франклин и многими другими.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822103   (94601) от 05.10.2025
 
 Звуковые библиотеки - Producer Loops - Norah [WAV, ALP, AIF, RFL, MID, REX]
@@ -6,7 +84,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94601.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94536.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91211.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91152.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88933.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88729.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Organic Loops - Real Strings Vol. 2 Disco Strings by Pete Whitfield (Wav | Rex2 
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87631.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Organic Loops - Live Dubstep Strings (Wav|Rex2) by KRock-Studio[английск
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87593.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ MIDI Pack - Collection ONE Part 6 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86848.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ MIDI Pack - Collection ONE (MIDI) Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86839.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ MIDI Pack - Collection ONE (MIDI) Part 3 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86809.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ MIDI Pack - Collection ONE (MIDI) Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86804.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ MIDI Pack - Collection ONE (MIDI) Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86783.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ MIDI Pack - Collection ONE Part 5 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86777.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ MIDI Pack - Collection TWO Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86580.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86549.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ MIDI Pack - Collection TWO Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86547.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85826.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ Dance Midi Samples Darwins Piano Sessions Vol.1 [MIDI, WAV Samles][англий�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81905.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ SR5 Rock Bass 1.01 [English]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81092.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70549.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70301.jpg" />
 </div>
 
 
@@ -601,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70300.jpg" />
 </div>
 
 
@@ -612,85 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7FC6D5A5313ABC8739805357CCDBDE79C3A468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780547   (70298) от 22.02.2025
-
-Звуковые библиотеки - Pro Sound Effects - Sonomar Collection: Trains [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция Sonomar: Trains — это коллекция из 53 записей поездов, которая наверняка придаст смелости вашим проектам с помощью необузданной мощи 200-тонного тепловоза. Изучите широкий спектр парового шипения, металлического лязга и визга, которые может предложить эта библиотека. Используйте эту универсальную коллекцию, чтобы снабдить свои сцены прибытием, отправлением (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DD257E8B6EDED2C91A9A8CC62F1B3F9A457615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780567   (70297) от 22.02.2025
-
-Звуковые библиотеки - Pro Sound Effects - Borneo Rainforest [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организуйте пышную композицию джунглей с помощью библиотеки звуковых эффектов Borneo Rainforest. С более чем 120 записями из Borneo Rainforest в Индонезии, эти звуковые эффекты джунглей изобилуют жизнью - включая хоры сверчков, цикад, птиц, лягушек, пчел, сов и многого другого.
-Записанные в первозданном качестве полевым звукорежиссером и звукорежиссером Крисом Диболдом (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B33B34264CF4F4706964C74BA5F99DD3C63A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781248   (70276) от 22.02.2025
-
-Звуковые библиотеки - Pro Sound Effects - Metallik [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Металломорфоз, исполняемый и записанный с использованием специально сконструированной металлической скульптуры, содержит 600 высококачественных звуков, идеально подходящих для добавления драматизма и тревожности в ваши проекты. Эта коллекция, включающая гулкие металлические стоны, блуждающие вопли и пронзительные визги, стремится придать вашему звуковому дизайну (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86033B0C977FD157C63BD0337B0B68429FF7C2A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

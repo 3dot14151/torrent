@@ -6,7 +6,7 @@ Blender 2.83.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716852.jpg" />
+  <img src="Z:/picture/008/save_picture_716852.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ NetLimiter Pro 4.0.68.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716849.jpg" />
+  <img src="Z:/picture/008/save_picture_716849.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ SupRemo 4.1.3.2348 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716848.jpg" />
+  <img src="Z:/picture/008/save_picture_716848.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ K-Lite Codec Pack 15.6.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716847.jpg" />
+  <img src="Z:/picture/008/save_picture_716847.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CoolUtils PDF Combine 6.1.0.144 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716824.jpg" />
+  <img src="Z:/picture/008/save_picture_716824.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716822.jpg" />
+  <img src="Z:/picture/008/save_picture_716822.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Twinkstar 4.11.2000.1901 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716819.jpg" />
+  <img src="Z:/picture/008/save_picture_716819.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Super PhotoCut Pro 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716818.jpg" />
+  <img src="Z:/picture/008/save_picture_716818.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ SRWare Iron 72.0.3750.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716817.jpg" />
+  <img src="Z:/picture/008/save_picture_716817.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - The Secret Garden 2 (2013) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716814.jpg" />
+  <img src="Z:/picture/008/save_picture_716814.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Live Home 3D Pro 3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716812.jpg" />
+  <img src="Z:/picture/008/save_picture_716812.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716803.jpg" />
+  <img src="Z:/picture/008/save_picture_716803.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716769.jpg" />
+  <img src="Z:/picture/005/save_picture_716769.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ PotPlayer 200730 (1.7.21280) + bonus (780+ skins KpoJIuK collection) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716713.jpg" />
+  <img src="Z:/picture/008/save_picture_716713.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Microsoft Windows 10 Core + Pro + Enterprise Technical Preview 10.0.10061 (esd) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716705.jpg" />
+  <img src="Z:/picture/008/save_picture_716705.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ GPU-Z 2.17.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716682.jpg" />
+  <img src="Z:/picture/008/save_picture_716682.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ AirBuddy 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716678.jpg" />
+  <img src="Z:/picture/008/save_picture_716678.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Navicat Premium 12 v12.1.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716677.jpg" />
+  <img src="Z:/picture/008/save_picture_716677.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Loaris Trojan Remover 3.0.80.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716671.jpg" />
+  <img src="Z:/picture/008/save_picture_716671.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wise Data Recovery 4.13.217 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716670.jpg" />
+  <img src="Z:/picture/008/save_picture_716670.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Microsoft Visual C++ 2017 Redistributable 14.20.27404.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716668.jpg" />
+  <img src="Z:/picture/008/save_picture_716668.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ M.i.k.e. Push - From Beyond (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716663.jpg" />
+  <img src="Z:/picture/008/save_picture_716663.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ TaskPaper 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716662.jpg" />
+  <img src="Z:/picture/008/save_picture_716662.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Serial Box 05-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716657.jpg" />
+  <img src="Z:/picture/008/save_picture_716657.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Multitouch 1.26.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716643.jpg" />
+  <img src="Z:/picture/008/save_picture_716643.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Movavi Slideshow Maker 5.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716567.jpg" />
+  <img src="Z:/picture/008/save_picture_716567.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1092597   (937426) от 13.01.2017
+
+Red Rodney - "Live" at the Village Vanguard (1980) 1999, 32 Jazz[FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lodgellian Mode [08:58]
+ 02.A Time for Love [05:50]
+ 03.Mr. Oliver [08:54]
+ 04.What Can We Do [10:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAE09B58410C611B899A90D1952739EA1EEE842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092587   (937423) от 13.01.2017
+
+Coleman Hawkins - Alive! At the Village Gate 1962 (2013) 2CD, Fresh Sound Records[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937423.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.All the Things You Are [08:25]
+02.Joshua Fit the Battle of Jericho [10:35]
+03.Mack the Knife [09:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36566B8A671DB09ED471AF4A1EB7E1F59A70829A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092887   (937422) от 13.01.2017
+
+Anita O'Day with Billy May and His Orchestra - Swings Cole Porter And Rodgers & Hart (1959, 1960) 2011, Fresh Sound[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just One of Those Things [02:12]
+ 02.Love for Sale [02:47]
+ 03.All of You [01:46]
+ 04.Easy to Love [02:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75561F952AC911986E83B25E1B9977A4668C3D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984997   (937344) от 10.02.2016
+
+Phil Woods & Donald Byrd - The Young Bloods (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dewey Square [07:50]
+ 02.Dupeltook [06:47]
+ 03.Once More [05:07]
+ 04.House Of Chan [05:53](   Читать дальше...   )Жанр: BopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AE07F0C051DEA1CEE3DF53307EB20CA7D4DC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984908   (937259) от 10.02.2016
 
 Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Charlie Rouse & Seldon Powell - We Paid Our Dues! (1961) Remaster, 2014, Sony Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937259.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Coleman Hawkins - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936495.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Karen Souza - Language Of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936206.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Billy Taylor - With Four Flutes (1959) Remaster, 2006, Victor [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935568.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dave Douglas Quintet - Brazen Heart (2015) Greenleaf Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935567.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Seamus Blake & Chris Cheek - Let's Call The Whole Thing Off (2016) WEB [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935437.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935435.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935430.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935428.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Dave Brubeck - Time Out / Gone With The Wind (1959) 2CD, 2010, Not Now Music[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935358.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Hal Galper - Ivory Forest 1979 (2013) P-Vine Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935038.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tom Harrell - The Art Of Rhythm (1998) RCA Victor [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935037.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Lena Horne - Stormy Weather (1993) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935036.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dexter Gordon - Clubhouse 1965 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934653.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Elvin Jones & Masabumi Kikuchi - Hollow Out (1972) Remaster, 2015, Universal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934138.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Christian McBride Trio - Live At The Village Vanguard (2015) Mack Avenue Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934120.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Erik Truffaz Quartet - Doni Doni (2016) Foufino Productions[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934117.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Natalie Cole - Sophisticated Lady (1996) MCPS[APE|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934023.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Sounds Of ‘94 (1994) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934022.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Sarah McKenzie - Paris In The Rain (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934011.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Chet Baker - Sings and Plays with Bud Shank, Russ Freeman and Strings 1955 (1987
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933820.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Lonnie Liston Smith & The Cosmic Echoes - Astral Traveling (1973) 2014,  BGP Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933817.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Lonnie Liston Smith & The Cosmic Echoes - Astral Traveling (1973) 2014,  BGP Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC3EB0773524CE799F7D0ACC6DA24AA9141C23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986109   (932644) от 13.02.2016
-
-Dave McKenna & Hal Overton - Dual Piano Jazz (1960) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Keepin' Out Of Mischief [04:43]
- 02.Monk's Mood [04:22]
- 03.Dizzy Atmosphere [04:17]
- 04.Baubles, Bangles And Beads [05:15](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591AFC6EE451D8612CB8A07C375AFDE7A045672C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986113   (932632) от 13.02.2016
-
-Tete Montoliu - Blues For Myself (1977) Remaster, 2015, DiscMedi Blau[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues for Corien [05:15]
- 02.You've Changed [07:36]
- 03.It Could Happen to You [06:12]
- 04.Blues for Myself [06:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3B6F3C2A45CA074241FB9F4D03A167F5F2207E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986055   (932589) от 13.02.2016
-
-Datura - Datura (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Jazz-Pop, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil's Tune
-02. One Sorry Boy
-03. Restless Heart
-04. Two Guns(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, BluesПродолжительность: 00:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D62B15F5D2522DF3A878E4466E91CB83AB02BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093864   (932545) от 16.01.2017
-
-Dusko Goykovich - Bebop City (1995) Enja[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sunrise In St. Petersburg [07:42]
- 02.In The Sign Of Libra [07:02]
- 03.Bebop City [07:08]
- 04.Lament [06:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7935C3A07EF68EE13CAD320057CA040D3144922
 ```
 
 https://mybot314.ru/tekegram_catalog/

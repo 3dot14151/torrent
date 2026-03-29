@@ -1,3 +1,107 @@
+###  Публикация: 1193856   (158131) от 23.12.2017
+
+Тайна 7 сестер / Seven Sisters / What Happened to Monday  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158131.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек. Родители решают сохранить всех и дают малышкам имена в честь дней недели. Так девочки и появляются на людях - каждая в свой день. Но однажды Понедельник пропадает...Производство: Великобритания, Франция, Бельгия / Nexus Factory, Raffaella Productions, SND, Title Media, uMedia Family, VendГґme PicturesЖанр: фантастика, боевик, триллерРежиссер: Томми ВирколаАктеры: Нуми Рапас, Гленн Клоуз, Уиллем Дефо, Марван Кензари, Кристиан Рубек, Пол Сверре Валхейм Хаген, Адетомива Едун, Кэсси Клер, Камерон Джек, Клара Рид, Кирсти ЭвертонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E133BDE4D8DA862DB692824B6812BF35FC1FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193978   (158118) от 23.12.2017
+
+Убить Гюнтера / Killing Gunther  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света - хакера, взрывника, (   Читать дальше...   )Производство: США / Folktale Productions, Ingenious Media, Miscellaneous Entertainment,  Rookfield Productions, Rowdy Row Productions, RuYi Media, StarStream Media, WWKG ProductionsЖанр: боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив Бачич, Скотт МакНил, Амир ТалайПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554EB29D486013A27E0BB92A230CAFEBB3C10FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193738   (158022) от 23.12.2017
+
+Лига справедливости / Justice League (2017) WEBRip [H.264/1080p-LQ] [EN / KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс Уэйн, вдохновленный самопожертвованием Супермена, вновь обретает веру в человечество. Он заручается поддержкой новой союзницы, Дианы Принс, чтобы сразиться с еще более могущественным противником. Бэтмен и Чудо-Женщина быстро набирают команду сверхлюдей для борьбы с пробудившейся угрозой. Но несмотря на уникальный состав отряда супергероев — Бэтмен, Чудо-Женщина, (   Читать дальше...   )Производство: США, Великобритания, Канада / Atlas Entertainment, Cruel & Unusual Films, DC ComicsЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Зак СнайдерАктеры: Бен Аффлек, Генри Кавилл, Эми Адамс, Галь Гадот, Эзра Миллер, Джейсон Момоа, Рэй Фишер, Джереми Айронс, Дайан Лэйн, Конни НильсенПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, неотключаемые)Продолжительность: 01:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651227117915BA07B62CC9956D967EF57BF249BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194414   (156745) от 24.12.2017
+
+За пропастью во ржи / Rebel in the Rye  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156745.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как родился Холден Колфилд, герой культового для многих поколений романа «Над пропастью во ржи», и как его автор - Джером Сэлинджер - стал величайшим писателем Америки, выбравшим удивительную судьбу.Производство: США / Black Label Media, West Madison EntertainmentЖанр: драма, биографияРежиссер: Дэнни СтронгАктеры: Николас Холт, Зои Дойч, Кевин Спейси, Сара Полсон, Брайан Д’Арси Джеймс, Люси Бойнтон, Виктор Гарбер, Хоуп Дэвис, Эми Рутберг, Кэйтлин Менер, Джеймс Урбаняк, Эрик БогосянПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB09AA8CB5C61B228DE8FAC8AE96CA63BDB270E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346695   (156379) от 20.12.2019
 
 Аэронавты / The Aeronauts (2019) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156379.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156359.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156325.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156108.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155124.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155090.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154924.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154907.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153939.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153166.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153149.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152873.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152669.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152020.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151194.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151105.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150815.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150798.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150142.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149821.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148932.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147126.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAC6221FE741339B925C4BE2A038160655AA8D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969472   (146546) от 27.12.2015
-
-Тупик / Standoff (2016) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран войны Картер с дробовиком наперевес вынужден защищать двенадцатилетнюю девочку, ставшую свидетелем убийства.Производство: Goldrush Entertainment, First Point Entertainment, Maple Leaf FilmsЖанр: ТриллерРежиссер: Адам АллекаАктеры: Томас Джейн, Лоренс Фишбёрн, Элла Бэллентайн, Джим Уотсон,
-Джон Тенч, Лаура ДеКартере, Тед Атертон, Джоанна ДугласПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E7268B9143CDFC59F330B8084E114EC9137116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087375   (146390) от 27.12.2016
-
-Повесть о любви и тьме / A Tale of Love and Darkness (2015) WEB-DL [H.264/1080p-LQ] [HEB / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнометражный дебют Натали Портман в качестве режиссёра. Фильм основан на одноимённом автобиографическом романе израильского писателя и журналиста Амоса Оза (род. 1939), опубликованном в 2002 году. Его воспоминания о детстве, прошедшем в Иерусалиме 1940-х годов в период становления Израильского государства.Производство: Израиль, США / Avi Chai fund, Gesher Fund, Handsomecharlie Films, Israel Film Council, Israel Fund for Film Production, Jerusalem Film and Television FundЖанр: Драма, БиографияРежиссер: Натали ПортманАктеры: Натали Портман, Шира Хаас, Томер Капон, Амир Тесслер, Макрам Хури, Охад Кноллер, Джилад Кахана, Мони Мошонов, Ротем Кейнан, Нета Рискин ...Перевод: ОтсутствуетЯзык озвучки: ИвритЯзык субтитров: АнглийскийПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB18FF1A9313EA113FF90ED67F110CF5450A2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271723   (146199) от 25.12.2018
-
-Братья Систерс / The Sisters Brothers (2018) WEB-DL [H.264/1080p-LQ] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-беспредельщики по фамилии Систерс по заданию таинственного Командора должны прикончить некоего Уорма, золотоискателя-авантюриста. Фартовые по жизни охотники за головами гонятся за новой жертвой, не подозревая, что их разведчик не так-то прост… Начинается игра на выживание: острый ум против безбашенной силы.Производство: Франция, Испания, Румыния, США, Бельгия / Why Not Productions, Annapurna Pictures, Page 114 ProductionsЖанр: Драма, Комедия, Криминал, Вестерн, ПриключенияРежиссер: Жак ОдиарАктеры: Джон Си Райли, Хоакин Феникс, Джейк Джилленхол, Риз Ахмед, Ребекка Рут, Эллисон Толман, Рутгер Хауэр, Кэрол Кейн, Патрис Коссоно, Зак Эбботт и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69705A953AB8A603C3B0A6EF58129D7A1C936255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434833   (145341) от 27.12.2020
-
-Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/720p-LQ] [EN / EN Sub] [IMAX Edition]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, Боевик, ПриключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа Ротуэлл и другиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B88B326699C353DAE70BC56E94BA6DB32A5507
 ```
 
 https://mybot314.ru/tekegram_catalog/

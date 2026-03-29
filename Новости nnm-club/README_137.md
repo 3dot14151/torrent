@@ -1,3 +1,161 @@
+###  Публикация: 1552480   (586513) от 21.05.2022
+
+Windows 11 Pro x64 21Н2 (build 22000.675) by ivandubskoj 20.05.2022 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6548A358E185AE7B458087D9FF2EAA79C08D05C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 225334   (586495) от 21.05.2022
+
+Три идиота / 3 Idiots (2009) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое друзей отправляются на поиски пропавшего приятеля. В этом путешествии им предстоит постоянно ввязываться в уже давно забытые споры, расстроить чужую свадьбу и побывать на похоронах. Их дорога проходит через опасные места. И тут начинается еще одно не совсем обычное путешествие друзей дорогами их памяти.
+ Они вспоминают своего приятеля, неудержимого и свободомыслящего (   Читать дальше...   )Производство: ИндияЖанр: Комедия, Мелодрама, ДрамаРежиссер: Раджкумар ХираниАктеры: Аамир Кхан, Карина Капур, Мадхаван, Шарман Джоши, Боман Ирани, Оми Вайдя, Али Фазал, Джавед Джеффри, Rajeev Ravindranathan, Акил Мишра и др.Перевод: Одноголосый закадровыйФормат: AVIПродолжительность: 02:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0798D0EE2D2474B95B9A548663E3C1B11C91AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040444   (586091) от 05.08.2016
+
+Тарзан. Легенда / The Legend of Tarzan (2016) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все истории о Тарзане рассказывают нам одинаковый сюжет о взрослении в джунглях маленького мальчика – выросший в окружении горилл, он постепенно становится могучим воином. Но что произошло потом, когда Джон Клейтон покинул тропический лес и вернулся в Лондон? Под именем лорда Грейстока наш герой мирно живет в британской столице, войдя в высшее общество Англии. Но (   Читать дальше...   )Производство: США, Dark Horse Entertainment, Jerry Weintraub Productions, Riche ProductionsЖанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Дэвид ЙэтсАктеры: Александр Скарсгард, Рори Дж. Сапер, Кристоф Вальц, Сэмюэл Л. Джексон, Марго Робби, Ози Икхайл, Менс-Сана Тамакло, Энтони АчеампонгПеревод: Многоголосый закадровый, любительский (СПД)Субтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:49:28Реклама: Присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A2CA24016072EB900C2C0FF423DD035715EB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301235   (585979) от 10.05.2019
+
+Nvidia DriverPack v.430.64 RePack by CUTA [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nvidia DriverPack - это единый пакет с драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
+Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80688FD854A105DD790958DF999317B46A5F3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241431   (585913) от 10.05.2019
+
+Graveyard Keeper (2018) [Ru/Multi] (1.123) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graveyard Keeper - самый недостоверный симулятор средневекового кладбища этого года. Строй и управляй кладбищем, пытайся сэкономить, развивай сторонний бизнес и заботься, чтобы ни один ценный ресурс не пропал без дела. Не забывай, тут игра про капитализм, где все способы получения прибыли хороши. Да, кстати, еще это - история любви.Тип издания: LicenseРазработчик: Lazy Bear GamesЖанр: Simulation, Role-playing, ManagerialЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FA3E6C86EED58BD1B1811A197EC45FABEB53CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918905   (585577) от 16.07.2015
+
+Google Nik Software Complete Collection 1.2.11 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Nik Collection — это наиболее полная коллекция плагинов от одного из лучших производителей плагинов для Adobe Photoshop. Complete Collection включает в себя полный набор плагинов для Adobe Photoshop®, Lightroom® and Aperture® including: Dfine® , Viveza® , HDR Efex Pro™, Color Efex Pro™, Silver Efex Pro™and Sharpener Pro™ . С помощью этих плагинов вы сможете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8832721E36778EB267AD7E3C3B6F3AF405AD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918664   (585575) от 16.07.2015
 
 Бармен (2015) WEB-DLRip
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585575.jpg" />
+  <img src="Z:/picture/008/save_picture_585575.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585503.jpg" />
+  <img src="Z:/picture/008/save_picture_585503.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_585059.jpg" />
+  <img src="Z:/picture/005/save_picture_585059.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_585057.jpg" />
+  <img src="Z:/picture/005/save_picture_585057.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585045.jpg" />
+  <img src="Z:/picture/008/save_picture_585045.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025/hf5) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584894.jpg" />
+  <img src="Z:/picture/008/save_picture_584894.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584891.jpg" />
+  <img src="Z:/picture/008/save_picture_584891.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584728.jpg" />
+  <img src="Z:/picture/005/save_picture_584728.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584611.jpg" />
+  <img src="Z:/picture/008/save_picture_584611.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584610.jpg" />
+  <img src="Z:/picture/008/save_picture_584610.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares (16.07.2015) [
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584585.jpg" />
+  <img src="Z:/picture/008/save_picture_584585.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ Mafia 2/II (2010) [Ru] (1.0.0.1u5/8dlc) Repack YelloSOFT
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584234.jpg" />
+  <img src="Z:/picture/008/save_picture_584234.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584208.jpg" />
+  <img src="Z:/picture/005/save_picture_584208.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584065.jpg" />
+  <img src="Z:/picture/008/save_picture_584065.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584064.jpg" />
+  <img src="Z:/picture/008/save_picture_584064.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_583873.jpg" />
+  <img src="Z:/picture/005/save_picture_583873.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Slimjet 4.0.14.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583800.jpg" />
+  <img src="Z:/picture/008/save_picture_583800.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ RACE 07: Official WTCC Game + 5 Addon Pack [Ru/En] (Repack/1.2.1.9) 2007-2011 | 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583579.jpg" />
+  <img src="Z:/picture/008/save_picture_583579.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ System Shock 2 [Ru] (RePack) 1999 | MOP030B
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583575.jpg" />
+  <img src="Z:/picture/008/save_picture_583575.jpg" />
 </div>
 
 
@@ -507,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583570.jpg" />
+  <img src="Z:/picture/008/save_picture_583570.jpg" />
 </div>
 
 
@@ -518,163 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFAD5D3179CBEBD6EA3E08EBB345E876F9195301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552703   (583549) от 24.05.2022
-
-Любовь, смерть и роботы / Love, Death & Robots (2022) WEB-DLRip [H.265/2160p] (сезон 3, серии 1-9 из 9) [Handmade upscale AI] Coldfilm, Animount, HDrezka, RuDub
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Любовь, смерть и роботы - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США / Blur Studio, NetflixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал, для взрослыхРежиссер: Тим МиллерАктеры: Нолан Норт, Мэттью Кинг, Джош Бренер, Генри Даутуэйт, Грэхэм Хэмилто, Эмили О’Брайэн, Хелен Сэдлер, Илэйн ТанПеревод: Многоголосый профессиональный (Coldfilm, Animount, HDrezka, RuDub)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA7BB554DCEDCF4679AD91466CF67F1D3899000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 152909   (583547) от 24.05.2022
-
-Дживс и Вустер (полные 4 сезона) / Jeeves and Wooster (1990-1993) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англия. Начало века. Берти Вустер - легкомысленный, невоспитанный молодой человек аристократического происхождения. Решением суда Великобритании, к нему приставлен слуга Дживс - джентльмен из джентльменов.
-Дживсу предстоит не только присматривать за своим незадачливым хозяином, но и научить его настоящим английским манерам.Жанр: КомедияРежиссер: Фердинанд Фэйрфакс, Саймон Лэнгон, Роберт ЯнгАктеры: Стивен Фрай, Хью Лори, Ричард Диксон, Роберт Доуз, Майкл Риппер, Мэри Вимбуш, John Woodnutt, Джон Тернер, Франческа Фолан, Элизабет МортонПеревод: Многоголосый закадровыйЯзык субтитров: Русские, АнглийскиеПродолжительность: 19:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112590990481003C04B77B9BEC9C936D23B4EC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919095   (583521) от 18.07.2015
-
-Специалист | HTML и CSS. Уровень 3. Продвинутые методологии и инструменты верстки (2015) PCRec [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583521.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данном курсе вы научитесь работать с большим объемом кода, получите необходимое представление о том, как пишется быстрый, эффективный и качественный код HTML/CSS. Узнаете о возможностях использования 3D на страницах, а также о том как можно быстро разрабатывать HTML-код.Жанр: Веб-дизайн, версткаПродолжительность: 11:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCECBD101C9F932F9F368D80D5BA6AD19D30603F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041295   (583106) от 08.08.2016
-
-Adobe After Effects CC 2015.3 13.8.1.38 RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583106.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AA9FFAEC625C3B78F2DD3282007173855F7A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553175   (582760) от 25.05.2022
-
-Генпрокурор Вашингтона подал в суд на Цукерберга из-за скандала с Cambridge Analytica
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_582760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карл Расин обвиняет главу компании Meta в участии в принятии решений, которые привели к утечке персональных данных миллионов пользователей FacebookГенеральный прокурор столичного округа Колумбия Карл Расин подал в понедельник в суд на главу компании Meta (признана в РФ экстремистской) Марка Цукерберга в связи с передачей данных пользователей аналитической фирме Cambridge (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919432   (582618) от 19.07.2015
-
-Пираты копирайта
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_582618.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Что охраняешь, то и имеешь». Афоризм сатирика-классика относится не только к банальным складам и магазинам, но также к неосязаемым культурным явлениям. Он, например, про авторские права.Организация Российское авторское общество (РАО) по идее призвана охранять авторские права — собирать отчисления от исполнения музыки, проката фильмов и так далее. И перечислять их авторам. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

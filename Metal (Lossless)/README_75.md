@@ -1,3 +1,90 @@
+###  Публикация: 1120750   (801286) от 01.04.2017
+
+Muro - Pacto De Sangre (1992) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desengancha (3:35)
+02. Lujuria (4:08)
+03. Voy a Por Tí (4:28)
+04. Pacto De Sangre (5:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486D64848C346264580BC03AC772CA21E87B0F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120723   (801279) от 01.04.2017
+
+Hitten - State Of Shock (2016) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Side of Heaven
+02. Don't Be Late
+03. Can't Bring Me Down
+04. Victim of the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C527E45B6C11D133AD6176A09E2489E8FCCD575A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120753   (801276) от 01.04.2017
+
+Negator - Die eisernen Verse (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eisen wider Siechtum
+02. Old Stigma
+03. Türme
+04. Answer to All Questions(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751453B29D640D130AF0B5E333E58678E844D9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120759   (801263) от 01.04.2017
 
 Iced Earth - Days Of Purgatory (1997) Japan Ed. [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Iced Earth - Days Of Purgatory (1997) Japan Ed. [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801263.jpg" />
+  <img src="Z:/picture/008/save_picture_801263.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Arch Enemy - As The Stages Burn! (Live At Wacken 2016) (2017) [FLAC|lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801218.jpg" />
+  <img src="Z:/picture/008/save_picture_801218.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Rotting Christ - Non Serviam (1994) Remastered, 2020, Kattran Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801155.jpg" />
+  <img src="Z:/picture/008/save_picture_801155.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801056.jpg" />
+  <img src="Z:/picture/008/save_picture_801056.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Netherbird - Arete (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801046.jpg" />
+  <img src="Z:/picture/008/save_picture_801046.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Mercenary - The Hours That Remain (2006) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800995.jpg" />
+  <img src="Z:/picture/008/save_picture_800995.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Golgotha - Elemental Changes (1998) [APE|Lossless|image + .cue] <Death Metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800711.jpg" />
+  <img src="Z:/picture/008/save_picture_800711.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Demented Ted - Promises Impure (1993) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800658.jpg" />
+  <img src="Z:/picture/008/save_picture_800658.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Golgotha - Melancholy (1995) [FLAC|Lossless|image + .cue] <Death Metal, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800656.jpg" />
+  <img src="Z:/picture/008/save_picture_800656.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ In Mourning - Shrouded Divine (2008) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800648.jpg" />
+  <img src="Z:/picture/008/save_picture_800648.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Zaratustra - It Was A Night (1999) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800400.jpg" />
+  <img src="Z:/picture/008/save_picture_800400.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800253.jpg" />
+  <img src="Z:/picture/008/save_picture_800253.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800249.jpg" />
+  <img src="Z:/picture/008/save_picture_800249.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Testament - Titans Of Creation (2020) 2CD, Japanese, Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800195.jpg" />
+  <img src="Z:/picture/008/save_picture_800195.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Selfaware - Entropy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800188.jpg" />
+  <img src="Z:/picture/008/save_picture_800188.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|image + .cue] <Power Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800182.jpg" />
+  <img src="Z:/picture/008/save_picture_800182.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Sammy Berell - Beyond the Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800181.jpg" />
+  <img src="Z:/picture/008/save_picture_800181.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ The Grandmaster - Skywards (2021) [FLAC|Lossless|image + .cue] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800180.jpg" />
+  <img src="Z:/picture/008/save_picture_800180.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Death SS - Ten (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800171.jpg" />
+  <img src="Z:/picture/008/save_picture_800171.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Mastodon - Hushed and Grim (2021) 2xCD [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800104.jpg" />
+  <img src="Z:/picture/008/save_picture_800104.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ U.D.O. - Game Over (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800000.jpg" />
+  <img src="Z:/picture/008/save_picture_800000.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Killers - Danger de vie (1986) Reissued, 1997 [APE|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799905.jpg" />
+  <img src="Z:/picture/008/save_picture_799905.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799903.jpg" />
+  <img src="Z:/picture/008/save_picture_799903.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A80933DB47AB616DFD51B4AE8B966218BD466D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273570   (799902) от 02.01.2019
-
-Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:39
-02. Heroes to the Gallows 05:57
-03. Animal Killstinct 05:16
-04. Rise of the Cobra 04:42(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273562   (799901) от 02.01.2019
-
-Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Queen
-02. A Kiss And A Rose
-03. Fate's Introduction
-04. The Lonely Warrior's Fate(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273566   (799900) от 02.01.2019
-
-Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Chaos to Murder
-03. Fallen One
-04. My Dominion(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

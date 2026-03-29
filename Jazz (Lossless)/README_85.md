@@ -1,3 +1,119 @@
+###  Публикация: 1278866   (767743) от 27.01.2019
+
+Barnaby Finch - Digital Madness (1986) 2014, Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Don't Be So) Marxist in Bed [5:07]
+02. Where's the Hook [7:08]
+03. Don't Touch My Moustache [5:20]
+04. What Came Before [5:46](   Читать дальше...   )Жанр: Jazz Fusion, Smooth JazzПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A1352B983AD050DFAD562EC5E878A593824C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493592   (767676) от 27.01.2019
+
+Lena Horne & Michel Legrand - Lena & Michel (1975) [FLAC|Lossless]<Vocal Jazz, Traditional Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_767676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait for You (Je Ne Pourrai Jamais Vivre Sans Toi) (Jacques Demy, Norman Gimbel, Michel Legrand) (3:48)
+02. I Got a Name (Charles Fox, Gimbel) (3:52)
+03. Nobody Knows (Alan Bergman, Marilyn Bergman, Legrand) (3:39)
+04. Being a Woman (Larry Grossman, Hal Hackaday) (3:22)(   Читать дальше...   )Жанр: Vocal Jazz, Traditional PopПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212393   (767669) от 27.01.2019
+
+Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .cue] <Jazz, Pop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Windmills Of Your Mind (3:35)
+02. The Summer Of 42 (2:44)
+03. I Still See You (2:49)
+04. Sea And Sky (vocal by Dusty Springfield) (2:15)(   Читать дальше...   )Жанр: Jazz, Pop, Big BandПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC79913BB953DD9B16CC7D6A808AFE1BE78CEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200868   (767545) от 27.01.2019
+
+Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Continental Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_767545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parlez-moi d'amour (Speak To Me Of Love) (4:59)
+02. C'est si bon (4:06)
+03. Les feuilles mortes (Autumn Leaves) (3:43)
+04. Theme From Summer of '42 (The Summer Knows-un ete 42) (5:22)(   Читать дальше...   )Жанр: Continental JazzПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213745   (767414) от 18.03.2018
 
 Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless|image + .cue] <Bop>
@@ -6,7 +122,7 @@ Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767414.jpg" />
+  <img src="Z:/picture/008/save_picture_767414.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Esther Marrow - Sister Woman (1972) Remaster 2010 [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767203.jpg" />
+  <img src="Z:/picture/008/save_picture_767203.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Fleurine - Meant To Be! (1995) 2000, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767196.jpg" />
+  <img src="Z:/picture/008/save_picture_767196.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Chet Baker - Live At New Morning (1983) 1992, Century Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767195.jpg" />
+  <img src="Z:/picture/008/save_picture_767195.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Colette Cassidy & Nigel Clark - Confetti Falling In The Rain (2017) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767194.jpg" />
+  <img src="Z:/picture/008/save_picture_767194.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ John Coltrane - Giant Steps & Lush Life (1957 - 1959) 2CD, 2011, Not Now Music [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767137.jpg" />
+  <img src="Z:/picture/008/save_picture_767137.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kirk Lightsey Quartet - Everything Is Changed (1990) Sunnyside [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766993.jpg" />
+  <img src="Z:/picture/008/save_picture_766993.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Hank Crawford - South-Central (1993) Milestone Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766991.jpg" />
+  <img src="Z:/picture/008/save_picture_766991.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ David Hazeltine - I Remember Cedar (2014) Sharp Nine Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766990.jpg" />
+  <img src="Z:/picture/008/save_picture_766990.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Hank Crawford - Wildflower (1973) 2002, Epic [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766988.jpg" />
+  <img src="Z:/picture/008/save_picture_766988.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The James Moody And Hank Jones Quartet - Our Delight (2006) 2008, IPO [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766982.jpg" />
+  <img src="Z:/picture/008/save_picture_766982.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ray Charles Orchestra - Swiss Radio Days Jazz Series, Vol.41: Zurich 1961 (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766949.jpg" />
+  <img src="Z:/picture/008/save_picture_766949.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766563.jpg" />
+  <img src="Z:/picture/008/save_picture_766563.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jimmy Forrest - Black Forrest (1959) 1999, Delmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766426.jpg" />
+  <img src="Z:/picture/008/save_picture_766426.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ John Coltrane - Soultrane & Coltrane (First Trane) (1957, 1958) 2CD, 2010, Not N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766418.jpg" />
+  <img src="Z:/picture/008/save_picture_766418.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Toots Thielemans & Thierry Lang Trio - Swiss Radio Days Jazz Series, Vol.44: Cul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766416.jpg" />
+  <img src="Z:/picture/008/save_picture_766416.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Freddy Cole - He Was The King (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766379.jpg" />
+  <img src="Z:/picture/008/save_picture_766379.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Rob Parton's Jazztech Big Band - The Count Is In! (1993) Sea Breeze Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766224.jpg" />
+  <img src="Z:/picture/008/save_picture_766224.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Hank Crawford - Don't You Worry 'Bout A Thing (1974) 2011, Masterworks Jazz ‎ 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766196.jpg" />
+  <img src="Z:/picture/008/save_picture_766196.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bo Ramsey - Wildwood Calling (2016) [FLAC|Lossless|tracks + .cue] <Chicago Blues
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766187.jpg" />
+  <img src="Z:/picture/008/save_picture_766187.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766185.jpg" />
+  <img src="Z:/picture/008/save_picture_766185.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766120.jpg" />
+  <img src="Z:/picture/008/save_picture_766120.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3029531CF19B6C31A7C8EC322A3F67BB8BBA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521216   (766087) от 01.01.2022
-
-Noah Haidu - Slowly: Song For Keith Jarrett (2021) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Dancing [10:38]
-02. Duchess [9:14]
-03. What a Difference a Day Makes [10:08]
-04. Rainbow/Keith Jarrett [12:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78926D39B7637D13122835EE0A58E377DF56DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279459   (766046) от 29.01.2019
-
-Michael Arthur Holloway (Michael A Holloway) - Guilt Noir (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Doom Jazz, Dark Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lift Your Curtain (7:48)
-02. Exposure (5:07)
-03. Dead Weight (6:06)
-04. Bottom Feeder Blues (4:51)(   Читать дальше...   )Жанр: Dark Ambient, Doom Jazz, Dark Jazz, Jazz Noir, CinematicПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A7B2005CB3169084C5EAF96D48EE04B25D7C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214247   (765811) от 20.03.2018
-
-Frank Minion - The Forward Sound (1958) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The “A” Train [03:09]
-02. But Not For Me [03:17]
-03. I've Done My Share [03:58]
-04. Watermelon [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEF83278D1D561D5289B27D7BE5333C3E5770D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214244   (765809) от 20.03.2018
-
-Frank Minion - The Soft Land Of Make Believe (1960) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soft Land Of Make Believe [01:35]
-02. Knowbody Knows [03:33]
-03. Autobiography Of A Musician [01:26]
-04. Bongo Blues [02:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB76AA27A3B5774EA3022EB8ED1B9BE28A0AA702
 ```
 
 https://mybot314.ru/tekegram_catalog/

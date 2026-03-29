@@ -6,7 +6,7 @@ Microsoft Visual Studio 2019 Community 16.5.1 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846446.jpg" />
+  <img src="Z:/picture/008/save_picture_846446.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Unity Pro 2019.3.10f1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846439.jpg" />
+  <img src="Z:/picture/008/save_picture_846439.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DAEMON Tools Ultra 4.1.0.0489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846428.jpg" />
+  <img src="Z:/picture/008/save_picture_846428.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846418.jpg" />
+  <img src="Z:/picture/008/save_picture_846418.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Daum PotPlayer 1.7.661 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846413.jpg" />
+  <img src="Z:/picture/008/save_picture_846413.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wise Care 365 Pro 4.57.432 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846408.jpg" />
+  <img src="Z:/picture/008/save_picture_846408.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PassMark BurnInTest Pro 8.1 Build 1020 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846407.jpg" />
+  <img src="Z:/picture/008/save_picture_846407.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hex Editor Neo Ultimate Edition 6.25.00.5960 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846403.jpg" />
+  <img src="Z:/picture/008/save_picture_846403.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DiskDigger 1.31.43.3019 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846384.jpg" />
+  <img src="Z:/picture/008/save_picture_846384.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ESET Endpoint Security 5.0.2260.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846344.jpg" />
+  <img src="Z:/picture/008/save_picture_846344.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ESET Endpoint Antivirus 5.0.2260.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846339.jpg" />
+  <img src="Z:/picture/008/save_picture_846339.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AutoCAD Design Suite Ultimate 2017 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846335.jpg" />
+  <img src="Z:/picture/008/save_picture_846335.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinToUSB Enterprise 3.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846304.jpg" />
+  <img src="Z:/picture/008/save_picture_846304.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Media Player Classic Home Cinema 1.7.11 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846301.jpg" />
+  <img src="Z:/picture/008/save_picture_846301.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz Gigapixel AI 4.7.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846286.jpg" />
+  <img src="Z:/picture/008/save_picture_846286.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WSCC (Windows System Control Center) 4.0.5.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846284.jpg" />
+  <img src="Z:/picture/008/save_picture_846284.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Topaz DeNoise AI 2.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846283.jpg" />
+  <img src="Z:/picture/008/save_picture_846283.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ HP Service Pack for ProLiant 2020.03.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846280.jpg" />
+  <img src="Z:/picture/008/save_picture_846280.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ XnView Classic 2.49.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846278.jpg" />
+  <img src="Z:/picture/008/save_picture_846278.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Microsoft Windows 10 Enterprise 10.0.14295 Insider Preview - Оригиналь�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846210.jpg" />
+  <img src="Z:/picture/008/save_picture_846210.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft Windows 10 Multiple Editions 10.0.14295 Insider Preview - Оригин
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846205.jpg" />
+  <img src="Z:/picture/008/save_picture_846205.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Reg Organizer 7.35 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846203.jpg" />
+  <img src="Z:/picture/008/save_picture_846203.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft Visual Studio 2015 14.0.25123.00 Update 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846192.jpg" />
+  <img src="Z:/picture/008/save_picture_846192.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ EASEUS Partition Master 14.0 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846146.jpg" />
+  <img src="Z:/picture/008/save_picture_846146.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Topaz Video Enhance AI 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846136.jpg" />
+  <img src="Z:/picture/008/save_picture_846136.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Freemake Video Converter 4.1.13.93 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846041.jpg" />
+  <img src="Z:/picture/008/save_picture_846041.jpg" />
 </div>
 
 

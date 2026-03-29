@@ -1,3 +1,107 @@
+###  Публикация: 507001   (685472) от 07.06.2012
+
+NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы увидите Землю так, как прежде никогда не видели... С помощью рентгеновского зрения мы увидим планету, которую нельзя увидеть никак иначе. Сейчас армада датчиков, расположенных под землей, в небе, в океане и даже в наших городах, исследуют планету. Они видят тайные области планеты, это очень похоже на томографию. Сканируя Землю, мы сможем увидеть планету - ту, (   Читать дальше...   )Производство: США, BASE Productions, Inc. for National Geographic Channel, NGC Network International, LLC and NGC Network US, LLCЖанр: Документальный, научно-познавательныйРежиссер: Джон Бренкус, Микки Стерн, Робберт КурранПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886421B781325D7C1E2005DB1C58E5ABB35D565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222519   (685171) от 29.04.2018
+
+NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685171.jpg" />
+</div>
+
+
+###  Подробнее
+
+В любое время суток животные используют свет и темноту для охоты, отдыха или любовных игр. Морские черепахи откладывают яйца только ночью, а большие тигровые акулы охотятся за сардинами и морскими котиками только при ярком освещении на рассвете.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C433AA2404169C7C418878C3283AEE2000722AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222517   (685158) от 29.04.2018
+
+NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Львы - это единственные животные из семейства кошачьих, которые охотятся группами. Они составляют естественную и жесткую конкуренцию таким хищникам, как леопарды и гепарды, которые охотятся в одиночку.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D8D6C083115AC6596E317BCEFCCFFA6683A9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222528   (685157) от 29.04.2018
+
+NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серые морские котики, обитающие в ледяных водах северной Атлантики, прекрасно приспособились к охоте за своей быстрой и верткой добычей и являются одними из крупнейших в Европе хищников.Производство: Франция, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Бертран ЛойерПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D714707F425BFBBC482F82C0FBD0588E5C78C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222524   (685054) от 29.04.2018
 
 NGW: Амазонская электрическая рыба / Amazon's electric fish (2015) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685054.jpg" />
+  <img src="Z:/picture/008/save_picture_685054.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685048.jpg" />
+  <img src="Z:/picture/008/save_picture_685048.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685033.jpg" />
+  <img src="Z:/picture/008/save_picture_685033.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684945.jpg" />
+  <img src="Z:/picture/008/save_picture_684945.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681681.jpg" />
+  <img src="Z:/picture/008/save_picture_681681.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679277.jpg" />
+  <img src="Z:/picture/008/save_picture_679277.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Путешествие короля джунглей / The jungle king (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679257.jpg" />
+  <img src="Z:/picture/008/save_picture_679257.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NGW: Самые опасные животные Америки / America's deadl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679248.jpg" />
+  <img src="Z:/picture/008/save_picture_679248.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679183.jpg" />
+  <img src="Z:/picture/008/save_picture_679183.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NGW: Море надежды. Подводные сокровища Америк
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679173.jpg" />
+  <img src="Z:/picture/008/save_picture_679173.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679171.jpg" />
+  <img src="Z:/picture/008/save_picture_679171.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679163.jpg" />
+  <img src="Z:/picture/008/save_picture_679163.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: Год диких животных. Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679151.jpg" />
+  <img src="Z:/picture/008/save_picture_679151.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678998.jpg" />
+  <img src="Z:/picture/008/save_picture_678998.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NG: Подъем Атлантиды (Открытая Атлантида) / Atla
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678449.jpg" />
+  <img src="Z:/picture/008/save_picture_678449.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NGW: Прирождённые монстры. Змееголовая рыба / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677279.jpg" />
+  <img src="Z:/picture/008/save_picture_677279.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NGW: Человек и природа / Man and the Wild (2014) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677275.jpg" />
+  <img src="Z:/picture/008/save_picture_677275.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NGW: Морские котики: битва за выживание / Fur Seals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677271.jpg" />
+  <img src="Z:/picture/008/save_picture_677271.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Дикая природа Аргентины. Убийственное по
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677135.jpg" />
+  <img src="Z:/picture/008/save_picture_677135.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NGW: Глубоководные киты / Whales of the deep (2017) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677132.jpg" />
+  <img src="Z:/picture/008/save_picture_677132.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676482.jpg" />
+  <img src="Z:/picture/008/save_picture_676482.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673298.jpg" />
+  <img src="Z:/picture/008/save_picture_673298.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC43F35BB91890219D342975DEF5F26C2059A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223512   (673197) от 05.05.2018
-
-NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes (2015) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американские документалисты National Geographic во главе с режиссёром Брайаном Тервиллигером, композитором Джеймсом Хорнером и закадровым голосом Харрисона Форда создали окрыляющий фильм об авиации, окружающей нас и делающей нашу жизнь столь захватывающей. Съёмки проходили в 18 странах. Создатели фильма перенесут зрителей в крупнейшие и самые живописные аэропорты (   Читать дальше...   )Производство: USA, Antarctica, Argentina, Australia, Brazil, Cambodia, Chile, China, Costa Rica, Egypt, France, Italy, Kenya, Maldives, Mexico, Netherlands, Terwilliger Productions, Periscope Film, National GeographicЖанр: Документальный, познавательный, путешествие, авиацияРежиссер: Брайан ТервиллигерПеревод: Одноголосый закадровый, профессиональный (RusFilm)Субтитры: русские, английскиеПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8FA26AEAF8C904EFA783D0AB4B0FEFC17945B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134746   (672423) от 23.05.2017
-
-NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672423.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пустынное море" - это двухсерийный сериал, снятый для ТВ сверхвысокой четкости, знакомит нас с пустыней Сонора в Северной Америке. Это Запад во всей своей дикости - самая жаркая пустыня в Северной Америке, а также самая влажная. Она является домом для большего количества видов животных чем любая другая пустыня на континенте. Все, кто хотят здесь выжить, (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zeland LtdЖанр: Документальный, фауна, флораРежиссер: Дэвид С. ФальконеПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 2x~00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A28D79D8DB2E370CFA4D5C839F48FAE453960D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509904   (672390) от 13.06.2012
-
-NG: Известная Вселенная. От атома до космоса / The Known Universe. Sizing up the Universe (2009) [H.264/1080p-LQ] HDTV
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672390.jpg" />
-</div>
-
-
-###  Подробнее
-
-В огромной вселенной, в которой мы существуем крошечные атомы составляют строительные блоки всего вокруг нас. Размер имеет значение, когда речь заходит о понимании космоса. Начиная с нашей Солнечной системы, мы рассмотрим истинном значении слова "большой". Добро пожаловать в путешествие по Вселенной.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3798807D6D50F2C5265F0544651531E4845781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525815   (672187) от 13.03.2022
-
-NG: Расследования авиакатастроф / Air Crash Investigation (2022) HDTV [H.264/1080i] (сезон 22, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Двуголосый профессиональныйПродолжительность: серии по ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5733AD1676267FD59CF0477C48D189C70F8CDF03
 ```
 
 https://mybot314.ru/tekegram_catalog/

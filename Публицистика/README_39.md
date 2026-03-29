@@ -1,3 +1,83 @@
+###  Публикация: 1038004   (610113) от 26.07.2016
+
+Максим Чертанов | Эйнштейн (2015) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что Эйнштейн был великим физиком (хотя сейчас модно в этом сомневаться). О нем изданы прекрасные, хотя теперь уже чуточку устаревшие книги. Сам Эйнштейн не хотел, чтобы о нем знали что-то еще. Зачем же о нем пишут снова и снова? Почему не оставить его частную жизнь в покое? Увы, об этой жизни опубликовано столько оскорбительной лжи и в то же время существует (   Читать дальше...   )Жанр: БиографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E5F38E9D6A9E436B17A058792C8F394F9ECEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038107   (610106) от 26.07.2016
+
+Максим Чертанов | Эйнштейн (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что Эйнштейн был великим физиком (хотя сейчас модно в этом сомневаться). О нем изданы прекрасные, хотя теперь уже чуточку устаревшие книги. Сам Эйнштейн не хотел, чтобы о нем знали что-то еще. Зачем же о нем пишут снова и снова? Почему не оставить его частную жизнь в покое? Увы, об этой жизни опубликовано столько оскорбительной лжи и в то же время существует (   Читать дальше...   )Жанр: БиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C026679B300F2A06DFD686BE01C6895504571FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296766   (608723) от 19.04.2019
+
+К. Маркс | 18-е Брюмера Луи Бонапарта (1905) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_608723.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе на основе материалистической диалектики дан анализ основных этапов французской революции 1848 года, объясняются причины контрреволюционного переворота Луи Бонапарта в декабре 1851 года. На конкретном примере Франции классовая борьба рассматривается как движущая сила истории.
+
+Маркс подчёркивает глубокое различие между фразами и иллюзиями тех или иных политических (   Читать дальше...   )Жанр: История, политология, социология, правоведение, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA979DB4A4A9124355E4A8B3FAAF24878CB4D0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912919   (608590) от 27.06.2015
 
 Пьер Байяр | Искусство рассуждать о книгах, которых вы не читали (2013) [PDF, DOCX, EPUB]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608590.jpg" />
+  <img src="Z:/picture/008/save_picture_608590.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608491.jpg" />
+  <img src="Z:/picture/008/save_picture_608491.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608347.jpg" />
+  <img src="Z:/picture/008/save_picture_608347.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608283.jpg" />
+  <img src="Z:/picture/008/save_picture_608283.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608055.jpg" />
+  <img src="Z:/picture/008/save_picture_608055.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606594.jpg" />
+  <img src="Z:/picture/008/save_picture_606594.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604937.jpg" />
+  <img src="Z:/picture/008/save_picture_604937.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604823.jpg" />
+  <img src="Z:/picture/008/save_picture_604823.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604144.jpg" />
+  <img src="Z:/picture/008/save_picture_604144.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604140.jpg" />
+  <img src="Z:/picture/008/save_picture_604140.jpg" />
 </div>
 
 
@@ -272,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603906.jpg" />
+  <img src="Z:/picture/008/save_picture_603906.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603804.jpg" />
+  <img src="Z:/picture/008/save_picture_603804.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603768.jpg" />
+  <img src="Z:/picture/008/save_picture_603768.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603675.jpg" />
+  <img src="Z:/picture/008/save_picture_603675.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603606.jpg" />
+  <img src="Z:/picture/008/save_picture_603606.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603595.jpg" />
+  <img src="Z:/picture/008/save_picture_603595.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603046.jpg" />
+  <img src="Z:/picture/008/save_picture_603046.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602892.jpg" />
+  <img src="Z:/picture/008/save_picture_602892.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602502.jpg" />
+  <img src="Z:/picture/008/save_picture_602502.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601903.jpg" />
+  <img src="Z:/picture/008/save_picture_601903.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600856.jpg" />
+  <img src="Z:/picture/008/save_picture_600856.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600755.jpg" />
+  <img src="Z:/picture/008/save_picture_600755.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600752.jpg" />
+  <img src="Z:/picture/008/save_picture_600752.jpg" />
 </div>
 
 
@@ -604,86 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481F76E655C3E53836462DBFD7C26950A14A8A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299104   (600748) от 30.04.2019
-
-Владимир Воронов | Рассекречено. Правда об острых эпизодах советской эпохи (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600748.jpg" />
-</div>
-
-
-###  Подробнее
-
-За десятилетия самые острые эпизоды советской эпохи обросли множеством мифов.
-Убийство советских дипкурьеров в феврале 1926 года, которые везли крупную партию фальшивых фунтов стерлингов. Попытка военного мятежа в августе 1934 года, подготовку к которому прозевали чекисты.
-«Операция Х» – участие советских спецслужб в Гражданской войне в Испании. Угрозы, подстерегавшие (   Читать дальше...   )Жанр: Биографии и мемуары, Спецслужбы, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697C1DFD341F5AC32A513CDA4487B3CBE2B60FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299042   (600669) от 30.04.2019
-
-Наталья Лэнг | Англия, которую вы не знали (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы знаете, что five o’clock на самом деле начинается в 16.00, а типичный завтрак англичанина – это не овсянка. Откуда взялось блюда Fish & Chips? Почему традиционные английские пудинги и пироги не сладкие? Как есть Жабу-в-норке? Что такое «время пиммса»? Почему город стоит на сэндвичах с беконом? Как выглядит купальная машина, и зачем принимать душ с друзьями? (   Читать дальше...   )Жанр: Публицистика, Путеводители, ЭтнографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52EEC4D40B1B3C4B0EC94D266F85F7E032F77ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913904   (600419) от 01.07.2015
-
-Григорий Луговский | О природе сакрального. К истокам духовного опыта (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обращаясь к истокам идеи сакрального, обнаружим, что она далеко не позитивна. Архаические традиции понимали сакральное двояко: как благое, так и опасное; как носитель силы творения и изобилия, так и чреватое смертью, или разрушением. Из этой амбивалентности вытекало, что общение с сакральным требует специфической практики и может быть поручено лишь специалистам. (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC99B14C98CB87CB3394AA174121F23C832D2244
 ```
 
 https://mybot314.ru/tekegram_catalog/

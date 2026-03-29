@@ -6,7 +6,7 @@ VA - Neew More Music from AGR (2011) [MP3|256 kbps]<Pop/Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837912.jpg" />
+  <img src="Z:/picture/008/save_picture_837912.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Antimateria (Compiled by F-Zero) - (2011) [MP3|~202 kbps] <Psytrance, Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837909.jpg" />
+  <img src="Z:/picture/008/save_picture_837909.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Mynastic - Building Dreams (2011) [MP3|320 kbps]<Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837905.jpg" />
+  <img src="Z:/picture/008/save_picture_837905.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837903.jpg" />
+  <img src="Z:/picture/008/save_picture_837903.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837899.jpg" />
+  <img src="Z:/picture/008/save_picture_837899.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837897.jpg" />
+  <img src="Z:/picture/008/save_picture_837897.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Visual Studio Code 1.61.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837872.jpg" />
+  <img src="Z:/picture/008/save_picture_837872.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ FurMark 1.28.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837871.jpg" />
+  <img src="Z:/picture/008/save_picture_837871.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ NetBalancer 10.3.4.2834 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837868.jpg" />
+  <img src="Z:/picture/008/save_picture_837868.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rainlendar Lite 2.17.1 Build 170 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837867.jpg" />
+  <img src="Z:/picture/008/save_picture_837867.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Rainmeter 4.5.4 Build 3550 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837866.jpg" />
+  <img src="Z:/picture/008/save_picture_837866.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Google Chrome Enterprise 94.0.4606.81 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837865.jpg" />
+  <img src="Z:/picture/008/save_picture_837865.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WinTools.net Premium 21.9.0 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837863.jpg" />
+  <img src="Z:/picture/008/save_picture_837863.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837857.jpg" />
+  <img src="Z:/picture/008/save_picture_837857.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Animate CC 2017.1 16.1.0.86 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837846.jpg" />
+  <img src="Z:/picture/008/save_picture_837846.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837845.jpg" />
+  <img src="Z:/picture/008/save_picture_837845.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Clipsal 500 Adelaide. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837844.jpg" />
+  <img src="Z:/picture/008/save_picture_837844.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Nachtmahr - Kampfbereit (2016) [MP3|320 кб/с] <Industrial, EBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837841.jpg" />
+  <img src="Z:/picture/008/save_picture_837841.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Icecream Ebook Reader Pro 2.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837833.jpg" />
+  <img src="Z:/picture/008/save_picture_837833.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Display Driver Uninstaller 15.7.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837831.jpg" />
+  <img src="Z:/picture/008/save_picture_837831.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VSDC Free Video Editor 3.3.5.411 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837825.jpg" />
+  <img src="Z:/picture/008/save_picture_837825.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ WindowsPlayer 3.2.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837823.jpg" />
+  <img src="Z:/picture/008/save_picture_837823.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Skype 7.22.32.108 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837815.jpg" />
+  <img src="Z:/picture/008/save_picture_837815.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Sisulizer 2010 build 311 Enterprise Edition [многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837807.jpg" />
+  <img src="Z:/picture/008/save_picture_837807.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Dour Speak - Фальшивая Жизнь (2010) [MP3|320 kbps]<Альтерн�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837799.jpg" />
+  <img src="Z:/picture/008/save_picture_837799.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ SaveGameBackup Version:1.0.3.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837795.jpg" />
+  <img src="Z:/picture/008/save_picture_837795.jpg" />
 </div>
 
 

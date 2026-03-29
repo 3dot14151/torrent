@@ -6,7 +6,7 @@ LDPlayer 4.0.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766014.jpg" />
+  <img src="Z:/picture/008/save_picture_766014.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Wireshark 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766013.jpg" />
+  <img src="Z:/picture/008/save_picture_766013.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Notepad++ 8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766009.jpg" />
+  <img src="Z:/picture/008/save_picture_766009.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ TreeSize Professional 8.2.1.1622 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766008.jpg" />
+  <img src="Z:/picture/008/save_picture_766008.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ High Contrast - 5 Albums (2002-2012) [FLAC|Lossless|tracks+.cue] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_766000.jpg" />
+  <img src="Z:/picture/005/save_picture_766000.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ PhotoFiltre Studio X 10.14.1 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765981.jpg" />
+  <img src="Z:/picture/008/save_picture_765981.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765976.jpg" />
+  <img src="Z:/picture/008/save_picture_765976.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765973.jpg" />
+  <img src="Z:/picture/008/save_picture_765973.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Advanced SystemCare Pro 13.6.0.291 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_765972.jpg" />
+  <img src="Z:/picture/005/save_picture_765972.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.233 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765963.jpg" />
+  <img src="Z:/picture/008/save_picture_765963.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Bluebeam Revu eXtreme 2018.3.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765957.jpg" />
+  <img src="Z:/picture/008/save_picture_765957.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Run-Command 3.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765955.jpg" />
+  <img src="Z:/picture/008/save_picture_765955.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765948.jpg" />
+  <img src="Z:/picture/008/save_picture_765948.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ History Eraser Pro 6.2.0 [Ru] - Стиратель истории
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765937.jpg" />
+  <img src="Z:/picture/008/save_picture_765937.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Volume2 1.1.7.449 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765930.jpg" />
+  <img src="Z:/picture/008/save_picture_765930.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ FFmpeg Media Encoder v4.4.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765924.jpg" />
+  <img src="Z:/picture/008/save_picture_765924.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Maxthon Browser 6.1.3.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765921.jpg" />
+  <img src="Z:/picture/008/save_picture_765921.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Iridium Browser 2021.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765905.jpg" />
+  <img src="Z:/picture/008/save_picture_765905.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Movavi Video Editor Plus 2020 20.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765888.jpg" />
+  <img src="Z:/picture/008/save_picture_765888.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ OfficeSuite Premium 10.18.28692 Mod by GhostRider [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765882.jpg" />
+  <img src="Z:/picture/008/save_picture_765882.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ TechSmith Camtasia Studio v2018.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765873.jpg" />
+  <img src="Z:/picture/008/save_picture_765873.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VirtualBox 6.0.4 Build 128413 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765868.jpg" />
+  <img src="Z:/picture/008/save_picture_765868.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ PDF-XChange Editor Plus 7.0.328.2 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765864.jpg" />
+  <img src="Z:/picture/008/save_picture_765864.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Adobe Illustrator CC 2019 23.0.2.565 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765863.jpg" />
+  <img src="Z:/picture/008/save_picture_765863.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765808.jpg" />
+  <img src="Z:/picture/008/save_picture_765808.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765807.jpg" />
+  <img src="Z:/picture/008/save_picture_765807.jpg" />
 </div>
 
 

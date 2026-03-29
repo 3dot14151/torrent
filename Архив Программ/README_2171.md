@@ -1,3 +1,289 @@
+###  Публикация: 1734125   (51273) от 02.07.2024
+
+Media Player Classic Home Cinema (MPC-HC) 2.3.2 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C6CEA6C78AE40D097EBF8405AC9DC2BD0083D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734310   (51270) от 02.07.2024
+
+WinToUSB Free / Pro / Enterprise / Technician 8.9.1 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51270.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB — лучший Windows To Go (WTG) Creator, который позволяет вам устанавливать и запускать полнофункциональную Windows на внешнем жестком диске, USB-накопителе или диске Thunderbolt. Это так просто и эффективно: всего за 3 шага и несколько минут вы можете создать свой первый портативный Windows 11/10/8/7 или Windows Server прямо из файла ISO, WIM, ESD, SWM, VHD, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7D30DC63717E13EA1306C1B8711BBBCAF54559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734135   (51269) от 02.07.2024
+
+Media Player Classic Home Cinema (MPC-HC) 2.3.2.1 + Portable (unofficial) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF620C29DE80FDA592E3A5DE72D84CD249FBF7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734357   (51265) от 03.07.2024
+
+Corona Renderer 12.0 for 3ds Max 2016-2025 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный рендер-движок для 3ds Max и Cinema 4D. Хорошая альтернатива V-ray.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010F2B2DC17995A32D674227F8E9648A9AF26B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734482   (51258) от 03.07.2024
+
+Cent Browser 5.1.1130.129 Portable by Cento8 [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7AF6B0D972236231ABBC7A71704BEAB617ECC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734375   (51235) от 03.07.2024
+
+Snappy Driver Installer Origin R766 | Драйверпаки 24.07.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snappy Driver Installer Origin (SDI Origin) - главная ветвь портативной программы SDI для установки и обновления драйверов, не требующей подключения к интернету. SDIO является лидером среди программ этого класса по точности подбора драйверов и скорости работы. При ранжировании драйверов отдает приоритет более подходящим драйверам (невзирая на наличие более новых (   Читать дальше...   )Язык интерфейса: Русский, Английский, и ещё 37 языков.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F516C9A17D8887CF62B0A41A01A88C21B66C3B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734346   (51224) от 03.07.2024
+
+VueScan Pro 9.8.35 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51224.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40BF2AA2690AD9F1F25D8A1CB8027BD6A67BE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734345   (51221) от 03.07.2024
+
+CCleaner 6.25.11131 Free / Pro / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51221.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8668D9D3028102488D8610BDF474ED77B2231D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734429   (51216) от 03.07.2024
+
+AOMEI Backupper Technician Plus 7.3.5 WinPE by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51216.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DE4126E9612C4F709A3036332B276388E48ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734398   (51205) от 03.07.2024
+
+Topaz Photo AI 3.0.5 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271B5E8BE813C96C0561BAFDF84600E1D25CD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734507   (51201) от 03.07.2024
+
+4K Video Downloader 4.31.1.0092 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51201.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51972735BDF355EBC646CEC76333450EBAA381D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734458   (51198) от 03.07.2024
 
 Zettlr 3.2.0 [Multi/Ru]
@@ -6,7 +292,7 @@ Zettlr 3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51198.jpg" />
 </div>
 
 
@@ -32,7 +318,7 @@ Opera GX 111.0.5168.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51184.jpg" />
 </div>
 
 
@@ -60,7 +346,7 @@ Wise Care 365 Pro 6.7.4.649 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51178.jpg" />
 </div>
 
 
@@ -86,7 +372,7 @@ Microsoft PowerToys 0.82.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51175.jpg" />
 </div>
 
 
@@ -112,7 +398,7 @@ AOMEI Backupper Technician Plus 7.3.5 WinPE by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51173.jpg" />
 </div>
 
 
@@ -138,7 +424,7 @@ Bandicam 7.1.2.2451 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51167.jpg" />
 </div>
 
 
@@ -164,7 +450,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.11.0 (04.07.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51143.jpg" />
 </div>
 
 
@@ -190,7 +476,7 @@ Dr.Web CureIt! (04.07.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51142.jpg" />
 </div>
 
 
@@ -216,7 +502,7 @@ AIDA64 Extreme Edition 7.30.6914 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51138.jpg" />
 </div>
 
 
@@ -242,7 +528,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51137.jpg" />
 </div>
 
 
@@ -268,7 +554,7 @@ Advanced SystemCare Pro 17.5.0.255 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51115.jpg" />
 </div>
 
 
@@ -294,7 +580,7 @@ Topaz Gigapixel AI 7.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51113.jpg" />
 </div>
 
 
@@ -321,7 +607,7 @@ Windows Repair Toolbox 3.0.4.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51108.jpg" />
 </div>
 
 
@@ -347,7 +633,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51101.jpg" />
 </div>
 
 
@@ -373,7 +659,7 @@ Opera One 111.0.5168.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51099.jpg" />
 </div>
 
 
@@ -384,293 +670,6 @@ Opera One 111.0.5168.61 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243B75D50603ACA5BBB0E6A755E14D3C02D053B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734556   (51098) от 04.07.2024
-
-WinToUSB Technician 8.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51098.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80824CD28255FA0DC93070A09452134E77D9A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734738   (51090) от 04.07.2024
-
-Auslogics Windows Slimmer 4.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.
-Windows Slimmer поможет вам в удалении ненужных компонентов Windows, деинсталляции приложений и оптимальной настройки параметров, чтобы снизить размер операционной системы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFC60527D8460963475DFEE6390DDEC09F38F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734560   (51084) от 04.07.2024
-
-FolderSizes Enterprise 9.6.490 (Repack & Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51084.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью программы FolderSizes вы сможете определить количество свободного места на жестком диске. FolderSizes предоставляет подробную информацию о размере папок и файлов по каждому разделу жесткого диска. Кроме этого, программа использует диаграммы для наглядности. Используя данный программный продукт, вы сможете найти файлы, удаление которых позволит освободить (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B409D2676D3C077E9B942CA23F1468FCA5D3069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734720   (51083) от 04.07.2024
-
-MiniTool Power Data Recovery 12.0 Full (Standard-Deluxe-Enterprise-Technician) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51083.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DFC297D61560907E33502448863E81351BA832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734582   (51077) от 04.07.2024
-
-RegCool 2.006 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41C8F55C868095EA82ED65B41EEFB3D2D74F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734704   (51076) от 04.07.2024
-
-KMPlayer 4.2.3.13 Plus (x86) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51076.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756FED6EBBEEAC5B4C2970FE3B9AF7D028B98631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734743   (51074) от 04.07.2024
-
-Auslogics Registry Cleaner Pro 10.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Registry Cleaner поможет вам избавиться от ошибок в реестре, удалить неиспользуемые ключи. Реестр Windows - один из самых важных и в тоже время самый уязвимый компонент системы. Каждый раз, когда вы устанавливаете или удаляете программы, в реестре создаются ключи, которые могут там оставаться и приводить к системным сбоям, зависаниям и нестабильной работе (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5329A0284ECC42EF18248E0AF712B5A8C794761C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734722   (51072) от 04.07.2024
-
-Auslogics Duplicate File Finder 10.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Duplicate File Finder поможет Вам избавиться от ненужных дубликатов. С помощью этой бесплатной программы Вы сможете очистить до 50% дополнительного пространства на жестком диске! Сколько абсолютно одинаковых файлов хранится на Вашем компьютере? Вы, возможно, удивитесь, как много места они занимают. Файлы-дубликаты могут накапливаться вследствие повседневного (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D341B0A0CFCFBB4369DDAB4901E5F4E98E042D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734672   (51068) от 04.07.2024
-
-Skype 8.123.0.203 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F92DEBD26014E9AB3F8869341FCA4CC4AC95C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734703   (51067) от 04.07.2024
-
-KMPlayer 2024.6.25.17 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51067.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6421C8A3CD7F21D0AE1F01EC0BDD6CA23C70537C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734592   (51066) от 04.07.2024
-
-R-Studio Network 9.4 Build 191329 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021968F0A5F8579DCF5BB2E7719FA1B761E264DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

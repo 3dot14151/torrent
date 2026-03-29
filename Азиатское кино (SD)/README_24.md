@@ -1,3 +1,29 @@
+###  Публикация: 1529223   (733084) от 05.02.2022
+
+Дверь в лето / Natsu e no Tobira: Kimi no Iru Mirai e / The Door Into Summer (2021) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_733084.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995 год. Молодой учёный Соитиро Такакура занимается созданием робота и разработкой плазменного аккумулятора. Вне работы у парня есть кот Пито и невеста Рико. Но однажды его предают партнер по бизнесу и невеста. В отчаянии Соитиро решает заморозить себя в криокамере, надеясь, что когда он проснется, мир будет лучше. Придя в себя ото сна, он понимает, что оказался (   Читать дальше...   )Производство: Япония, TohoЖанр: Фантастика, драмаРежиссер: Такахиро МикиАктеры: Кэнто Ямадзаки, Кая Киёхара, Наохито Фудзики, Бекон, Кэнта Хамано, Таидзо Харада, Хидэкадзу Масима, Нацуна Ватанабэ, Томорово Тагути, Рин ТаканасиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B62C24A40BC8FEA297C44AA4CD8095658AAF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399574   (732908) от 01.08.2020
 
 Прощальная песня / Sayonara kuchibiru / Farewell Song (2019) HDRip [DVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732908.jpg" />
+  <img src="Z:/picture/008/save_picture_732908.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732700.jpg" />
+  <img src="Z:/picture/008/save_picture_732700.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732674.jpg" />
+  <img src="Z:/picture/008/save_picture_732674.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732483.jpg" />
+  <img src="Z:/picture/008/save_picture_732483.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731866.jpg" />
+  <img src="Z:/picture/008/save_picture_731866.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731758.jpg" />
+  <img src="Z:/picture/008/save_picture_731758.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730658.jpg" />
+  <img src="Z:/picture/008/save_picture_730658.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728240.jpg" />
+  <img src="Z:/picture/008/save_picture_728240.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728230.jpg" />
+  <img src="Z:/picture/008/save_picture_728230.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727728.jpg" />
+  <img src="Z:/picture/008/save_picture_727728.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727276.jpg" />
+  <img src="Z:/picture/008/save_picture_727276.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726893.jpg" />
+  <img src="Z:/picture/008/save_picture_726893.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726841.jpg" />
+  <img src="Z:/picture/008/save_picture_726841.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725351.jpg" />
+  <img src="Z:/picture/008/save_picture_725351.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725069.jpg" />
+  <img src="Z:/picture/008/save_picture_725069.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724569.jpg" />
+  <img src="Z:/picture/008/save_picture_724569.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722603.jpg" />
+  <img src="Z:/picture/008/save_picture_722603.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720279.jpg" />
+  <img src="Z:/picture/008/save_picture_720279.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720165.jpg" />
+  <img src="Z:/picture/008/save_picture_720165.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719719.jpg" />
+  <img src="Z:/picture/008/save_picture_719719.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717680.jpg" />
+  <img src="Z:/picture/005/save_picture_717680.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716993.jpg" />
+  <img src="Z:/picture/008/save_picture_716993.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716853.jpg" />
+  <img src="Z:/picture/008/save_picture_716853.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714731.jpg" />
+  <img src="Z:/picture/008/save_picture_714731.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714643.jpg" />
+  <img src="Z:/picture/008/save_picture_714643.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8EEDDE5AFC9852D770BCAEC7847F07B2B1045C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532329   (714636) от 19.02.2022
-
-Пепел - самый чистый белый / Jiang hu er nu / Ash Is Purest White (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714636.jpg" />
-</div>
-
-
-###  Подробнее
-
-2001 год, индустриальный округ Датун провинции Шаньси. Молодая танцовщица Цяо влюбляется в местного гангстера Биня. Во время одной из бандитских разборок, чтобы защитить любимого, девушка делает выстрел, и впоследствии садится в тюрьму на 5 лет. Выйдя из заключения, Цяо отправляется на поиски Биня.Производство: Китай, Франция, Япония, Arte France Cinéma, Beijing Runjin Investment, Enchant Film and Televisione CultureЖанр: Драма, мелодрама, криминалРежиссер: Цзя ЧжанкэАктеры: Чжао Тао, Ляо Фань, Дяо Инань, Дин Цзяли, Дун Цзыцзянь, Фэн Цзямэй, Фэн Сяоган, Кан Кан, Ли Сюань, Каспер ЛянПеревод: Двуголосый профессиональный (Студия "Позитив")Субтитры: Русские, английские, французскиеПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E33AEC41C91BE22D5A3EF3EDB61248D1805C81
 ```
 
 https://mybot314.ru/tekegram_catalog/

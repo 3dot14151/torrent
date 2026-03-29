@@ -1,3 +1,29 @@
+###  Публикация: 1313700   (522692) от 10.07.2019
+
+Kingdom Wars 2: Definitive Edition (2019) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522692.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kingdom Wars 2: Definitive Edition» — это увлекательная стратегическая игра, сюжет которой разворачивается в мире темного фэнтези с орками, эльфами и драконами. Она сочетает в себе лучшие признаки жанров выживания среди зомби и градостроительства. В ней вам предстоит выживать, мастерить предметы и возводить города, а также вступать в яростные схватки, превращая (   Читать дальше...   )Тип издания: LicenseРазработчик: Reverie World StudiosЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B0A0AB3CE6A78E8DB8BB4F021B00F74818CC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534149   (520716) от 12.08.2012
 
 WarCraft: Orcs and Humans [En] (RePack/1.22) | RG games/Pilotus
@@ -6,7 +32,7 @@ WarCraft: Orcs and Humans [En] (RePack/1.22) | RG games/Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520716.jpg" />
+  <img src="Z:/picture/008/save_picture_520716.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ The Lord of the Rings Антология [Ru/En] (RePack/v.1.0-2.1) 2003-2011 | 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518580.jpg" />
+  <img src="Z:/picture/008/save_picture_518580.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.1.1/dlc) Repack R.G. Catalyst [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515806.jpg" />
+  <img src="Z:/picture/008/save_picture_515806.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ The Hive (2016) [En] (1.108) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515703.jpg" />
+  <img src="Z:/picture/008/save_picture_515703.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513193.jpg" />
+  <img src="Z:/picture/008/save_picture_513193.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Age of Empires 2: The Age Of Kings и Age of Empires 2: The Conquerors [Ru] (ReP
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513138.jpg" />
+  <img src="Z:/picture/008/save_picture_513138.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (1.0.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506788.jpg" />
+  <img src="Z:/picture/008/save_picture_506788.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Heroes of Might and Magic 5 / Герои Меча и Магии 5 (2006) [Ru] (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505810.jpg" />
+  <img src="Z:/picture/008/save_picture_505810.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Nobunaga's Ambition: Sphere of Influence (2015) [En] (1.0) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503946.jpg" />
+  <img src="Z:/picture/008/save_picture_503946.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Heroes of Annihilated Empires / Герои уничтоженных импери
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502960.jpg" />
+  <img src="Z:/picture/008/save_picture_502960.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Naval War: Arctic Circle [Ru/Multi5] (Steam-Rip/1.0.8.1) 2012 | R.G. Игром�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498788.jpg" />
+  <img src="Z:/picture/008/save_picture_498788.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Legends of Pegasus [Ru/En/Multi4] (Repack/1.0.0.4115) 2012 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496909.jpg" />
+  <img src="Z:/picture/008/save_picture_496909.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19581/dlc) Repack R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491349.jpg" />
+  <img src="Z:/picture/008/save_picture_491349.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Act of War Дилогия [Ru/En] (Lossless RePack/1.06.9/1.1.7) 2005-2006 | R.G
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490547.jpg" />
+  <img src="Z:/picture/008/save_picture_490547.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487418.jpg" />
+  <img src="Z:/picture/008/save_picture_487418.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Act of Aggression (2015) [En/Multi] (770000573) SteamRip R.G. Игроманы
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487189.jpg" />
+  <img src="Z:/picture/008/save_picture_487189.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Stronghold Crusader HD (2012) [Ru/Multi] (1.4/1.4.1-Е) SteamRip R.G. Origins
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466871.jpg" />
+  <img src="Z:/picture/008/save_picture_466871.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Hegemony Rome: The Rise of Caesar (2014) [Ru/En] (2.2.1/dlc) Repack =nemos=
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466055.jpg" />
+  <img src="Z:/picture/008/save_picture_466055.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Heroes of Annihilated Empires / Герои Уничтоженных Импери
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464928.jpg" />
+  <img src="Z:/picture/008/save_picture_464928.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Anomaly Anthology (2011-2014) [Ru/Multi] (19.09.2015) RePack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463865.jpg" />
+  <img src="Z:/picture/008/save_picture_463865.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Star Hammer: The Vanguard Prophecy (2015) [En] (1.0.9) Repack leve1ord
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463759.jpg" />
+  <img src="Z:/picture/008/save_picture_463759.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Lords of the Realm 3 / Властители земель 3 (2004) [Ru/En] (1.01)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463599.jpg" />
+  <img src="Z:/picture/008/save_picture_463599.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Age of Empires (2019) [Ru/En] (27805) Repack R.G. Механики [Definitive E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462674.jpg" />
+  <img src="Z:/picture/008/save_picture_462674.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны [Ru/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459262.jpg" />
+  <img src="Z:/picture/008/save_picture_459262.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458682.jpg" />
+  <img src="Z:/picture/008/save_picture_458682.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665201   (457065) от 29.09.2015
-
-Endless Space / Бесконечный космос (2012) [Ru/Multi] (1.1.58/dlc) SteamRip Let'sРlay [Gold Edition]
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первой разумной жизнью в Галактике была цивилизация, которую мы сейчас называем «Бесконечные». Задолго до того, как мы впервые увидели звезды, они уже летали к ним – но сейчас от них осталась только лишь Пыль. Эта странная субстанция, рассеянная по всей Галактике, когда-то давно наделяла властью и силой величайших правителей и адмиралов древности. Тот, кто сможет (   Читать дальше...   )Тип издания: SteamRipРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based / Grand strategy) / 3D / IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88F63F38228F5843B12F4ABFF444D262856A902
 ```
 
 https://mybot314.ru/tekegram_catalog/

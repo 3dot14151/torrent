@@ -1,3 +1,29 @@
+###  Публикация: 1406896   (470564) от 05.09.2020
+
+Кристин Франс | Новая книга о вкусной и здоровой пище (1998) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит более 200 рецептов простых в приготовлении и вкусных блюд с малым содержанием холестерина и жиров на все случаи жизни. Каждое готовое блюдо изображено на красочной цветной фотографии. Приводятся сведения о составе, питательности и энергетической ценности пищи. Книга будет полезна не только людям, которым показана низкокалорийная диета, но и всем, кто (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D9CEA900A0A7FDBADF3A98A0292F57C90C808D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406914   (470524) от 05.09.2020
 
 Лиза Глузская | Идеальные завтраки (2020) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470524.jpg" />
+  <img src="Z:/picture/008/save_picture_470524.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468677.jpg" />
+  <img src="Z:/picture/008/save_picture_468677.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467365.jpg" />
+  <img src="Z:/picture/008/save_picture_467365.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467109.jpg" />
+  <img src="Z:/picture/008/save_picture_467109.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464857.jpg" />
+  <img src="Z:/picture/008/save_picture_464857.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464499.jpg" />
+  <img src="Z:/picture/008/save_picture_464499.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463183.jpg" />
+  <img src="Z:/picture/008/save_picture_463183.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463057.jpg" />
+  <img src="Z:/picture/008/save_picture_463057.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460135.jpg" />
+  <img src="Z:/picture/008/save_picture_460135.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458967.jpg" />
+  <img src="Z:/picture/008/save_picture_458967.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458945.jpg" />
+  <img src="Z:/picture/008/save_picture_458945.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458914.jpg" />
+  <img src="Z:/picture/008/save_picture_458914.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458876.jpg" />
+  <img src="Z:/picture/008/save_picture_458876.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458818.jpg" />
+  <img src="Z:/picture/008/save_picture_458818.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458768.jpg" />
+  <img src="Z:/picture/008/save_picture_458768.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457677.jpg" />
+  <img src="Z:/picture/008/save_picture_457677.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454725.jpg" />
+  <img src="Z:/picture/008/save_picture_454725.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452698.jpg" />
+  <img src="Z:/picture/008/save_picture_452698.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451991.jpg" />
+  <img src="Z:/picture/005/save_picture_451991.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451485.jpg" />
+  <img src="Z:/picture/008/save_picture_451485.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451190.jpg" />
+  <img src="Z:/picture/008/save_picture_451190.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450713.jpg" />
+  <img src="Z:/picture/008/save_picture_450713.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447244.jpg" />
+  <img src="Z:/picture/008/save_picture_447244.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447229.jpg" />
+  <img src="Z:/picture/008/save_picture_447229.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447143.jpg" />
+  <img src="Z:/picture/008/save_picture_447143.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E4003DD73A8CD9EFE4F65ABEBBF4F96C588E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409305   (447140) от 16.09.2020
-
-С. Иванова (сост.) | Запеканки в мультиварке (2014) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запеканки и мультиварка созданы друг для друга: идеальная форма, идеальные блюда без подгоревших корочек. В этой книге вы найдете сладкие и острые, мясные, рыбные и овощные, легкие и сытные запеканки.
-«Маленькие хитрости» раскроют секреты всевозможных сочетаний продуктов. Соусы и подливы – важные дополнения к этому блюду, также предложены в ней. Манные и рисовые (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4489361E269DB47EA0344FE3CB5AC513B5A464D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

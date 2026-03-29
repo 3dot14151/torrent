@@ -1,3 +1,116 @@
+###  Публикация: 1129224   (723724) от 27.04.2017
+
+Ленинград - Экстаз (2017) Single [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЭкстазЖанр: Rock, SkaПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65722650D0156CEC38356BEEB47392D77B1C97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218533   (723125) от 09.04.2018
+
+Достучаться до небес - Все твои мечты (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Встречай
+02. Не сдавайся
+03. 1+1
+04. Рулетка(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A7C7D94A0D32E01199A8147341DC768C57F89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399927   (722952) от 03.08.2020
+
+Kiara - Storyteller (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Space Dust (03:01)
+ 02. Sacred Promise (03:46)
+ 03. Birth and Death (04:19)
+ 04. Curse (04:05)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC7CBA390FCCA293FC4D533A7BA04AB8419AA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218372   (722933) от 09.04.2018
+
+Би-2 - Би-2 с симфоническим оркестром в Кремле (2018) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro + Шар Земной
+2. Последний герой
+3. Забрали в армию
+4. Реки любви(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D3C1FAB6A46E129F8E43887FEFAC58943EA052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400050   (722860) от 03.08.2020
 
 Александр Барыкин - Лучшее для друзей (1981-1989) (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722860.jpg" />
+  <img src="Z:/picture/008/save_picture_722860.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721774.jpg" />
+  <img src="Z:/picture/005/save_picture_721774.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720941.jpg" />
+  <img src="Z:/picture/008/save_picture_720941.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720865.jpg" />
+  <img src="Z:/picture/008/save_picture_720865.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Охота 73 (2017) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720569.jpg" />
+  <img src="Z:/picture/008/save_picture_720569.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Aeterna - Легенда Начинается (2018) [MP3|320 Kbps] <Folk Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719514.jpg" />
+  <img src="Z:/picture/008/save_picture_719514.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719148.jpg" />
+  <img src="Z:/picture/008/save_picture_719148.jpg" />
 </div>
 
 
@@ -208,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718925.jpg" />
+  <img src="Z:/picture/008/save_picture_718925.jpg" />
 </div>
 
 
@@ -237,7 +350,7 @@ Aella - Четвертая Высота (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718619.jpg" />
+  <img src="Z:/picture/008/save_picture_718619.jpg" />
 </div>
 
 
@@ -266,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718344.jpg" />
+  <img src="Z:/picture/008/save_picture_718344.jpg" />
 </div>
 
 
@@ -292,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717758.jpg" />
+  <img src="Z:/picture/008/save_picture_717758.jpg" />
 </div>
 
 
@@ -321,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717481.jpg" />
+  <img src="Z:/picture/008/save_picture_717481.jpg" />
 </div>
 
 
@@ -350,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717168.jpg" />
+  <img src="Z:/picture/008/save_picture_717168.jpg" />
 </div>
 
 
@@ -379,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716810.jpg" />
+  <img src="Z:/picture/008/save_picture_716810.jpg" />
 </div>
 
 
@@ -408,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716427.jpg" />
+  <img src="Z:/picture/008/save_picture_716427.jpg" />
 </div>
 
 
@@ -437,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716387.jpg" />
+  <img src="Z:/picture/008/save_picture_716387.jpg" />
 </div>
 
 
@@ -466,7 +579,7 @@ Margenta & Андрей Кустарёв - Дым. Крепости. Волк (2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715949.jpg" />
+  <img src="Z:/picture/008/save_picture_715949.jpg" />
 </div>
 
 
@@ -495,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715734.jpg" />
+  <img src="Z:/picture/008/save_picture_715734.jpg" />
 </div>
 
 
@@ -524,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715620.jpg" />
+  <img src="Z:/picture/008/save_picture_715620.jpg" />
 </div>
 
 
@@ -553,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715073.jpg" />
+  <img src="Z:/picture/008/save_picture_715073.jpg" />
 </div>
 
 
@@ -582,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714961.jpg" />
+  <img src="Z:/picture/008/save_picture_714961.jpg" />
 </div>
 
 
@@ -611,7 +724,7 @@ Jane Air - ДЕТИ АТОМНЫХ СТАНЦИЙ (2019) EP [MP3|320 Kbps] <Alte
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714917.jpg" />
+  <img src="Z:/picture/008/save_picture_714917.jpg" />
 </div>
 
 
@@ -625,121 +738,6 @@ Jane Air - ДЕТИ АТОМНЫХ СТАНЦИЙ (2019) EP [MP3|320 Kbps] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74032BD183F92DB3ABCC12C595478BDA6D4BEEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286166   (714710) от 01.03.2019
-
-Пикник - Сияние (2019) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714710.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем поется в новой песне под названием Сияние группы Пикник?
-Вы, наверное, будете немного шокированы, но там поётся именно о Сиянии! Вопрос только в том, что это за Сияние? То ли это свечение загадочных огней над ночным городом? То ли тревожное мерцание далеких звёзд? Или же это внутреннее Сияние, которое ещё только зарождается в душе человека?
-Пусть на этот (   Читать дальше...   )1. СияниеЖанр: RockПродолжительность: 00:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829341A9369C371DF6BDC1ADD437E346E5F682F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286139   (714626) от 01.03.2019
-
-Би-2 - Нечётный воин 4. Часть 2 (Retro Edition) (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сон про снег (feat. Настя Полева)
-02. Песня для героя (памяти Пипа) (feat. Варя Демидова)
-03. Унисон
-04. Для тех, кто в танке(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2F1F0DB5701EE162BD52385D18C7208744B126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130518   (714226) от 02.05.2017
-
-Ломовой - Лирика (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каяться - маяться (Олег Ломовой & Юлия Пересильд)
-02. Разобрали всех девок
-03. Девочка с глазами ангела
-04. Погибаю без тебя(   Читать дальше...   )Жанр: RockПродолжительность: 00:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71707B07D9448434926395028562DCE8B786133E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130726   (714124) от 02.05.2017
-
-Abyssphere - На Пути К Забвению (2017) [MP3|320 Kbps] <Dark Metal, Doom Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Двери
-2. Прозрение
-3. Один Во Тьме
-4. Carthago Delenda Est(   Читать дальше...   )Жанр: Dark Metal, Doom Metal, Melodic MetalПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC6A6443EE541AAB4646F810A0800192F997C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

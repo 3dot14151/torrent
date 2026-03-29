@@ -1,3 +1,149 @@
+###  Публикация: 1339041   (267981) от 17.11.2019
+
+VA - The Hits Album: The Rock Album (2019) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Rock, Soft-Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267981.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комментах к выложенной ранее версии этого альбома в мп3 один из членов клуба написал: "Хорошая подборка. Чел душу вложил."
+Не согласиться с тем, что чел в лице Sony Music UMC вложил действительно душу в эту подборку нельзя. Не смотря на то, что она уже была на трекере, выкладываю её еще раз теперь уже в lossless формате. Думаю, истинные ценители рока (   Читать дальше...   )CD1:
+01. Meat Loaf - Bat Out Of Hell  (4:53)
+02. Toto - Hold The Line  (3:55)
+03. Reo Speedwagon - Keep On Loving You  (3:21)(   Читать дальше...   )Релиз состоялся: 01 ноября 2019 г.Жанр: Rock, Soft-Rock, Pop-RockПродолжительность: 05:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99767A3B2C71FBCD1988B8F4CA9995A3E8C17E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190594   (266903) от 10.12.2017
+
+U2 - Songs of Experience (2017) Japan Release [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is All We Have Left (02:41)
+02. Lights Of Home (04:17)
+03. You're The Best Thing About Me (03:45)
+04. Get Out Of Your Own Way (03:58)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45821BD7962C29D2B9F881349B00BDCDB115360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191022   (265091) от 12.12.2017
+
+U2 - U218 Singles (Vol.1,2) (2006) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo (2005 Live From Milan) (3:54)
+02. I Will Follow (2005 Live From Milan) (4:27)
+03. Elevation (2005 Live From Milan) (5:52)
+04. I Still Haven't Found What I'm Looking For (2005 Live From Milan) (5:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A3F44AE1462B078A81669975FA6614F900386A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339835   (264629) от 21.11.2019
+
+Chris Rea - Dancing With Strangers (1987) 2CD, Deluxe Edition, Reissue, 2019, Magnet Records [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Joys Of Christmas [5:15]
+ 02 - I Can't Dance To That [4:19]
+ 03 - Windy Town [4:24]
+ 04 - Gonna Buy a Hat [4:24](   Читать дальше...   )Жанр: Blues Rock, Pop Rock, Country RockПродолжительность: 02:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6138757319D7B614C975B0505DDF75BD5F893B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191197   (264515) от 13.12.2017
+
+Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise 03:42
+02. Pinball King 03:19
+03. Ruthless 03:25
+04. You Get High 03:26(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741B38B4B68828C4C40E1A007090332864BC1F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340126   (264256) от 22.11.2019
 
 Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orchestra) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
@@ -6,7 +152,7 @@ Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264256.jpg" />
 </div>
 
 
@@ -35,7 +181,7 @@ Chris Rea - Auberge (1991) 2CD, Deluxe Edition, Remastered 2019 [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264246.jpg" />
 </div>
 
 
@@ -64,7 +210,7 @@ Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264003.jpg" />
 </div>
 
 
@@ -93,7 +239,7 @@ Birtha - Birtha / Can't Stop The Madness (1997) [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263611.jpg" />
 </div>
 
 
@@ -122,7 +268,7 @@ Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263486.jpg" />
 </div>
 
 
@@ -151,7 +297,7 @@ Yes - Close To The Edge (1972) Reissue, Remastered, 1998, Atlantic [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263447.jpg" />
 </div>
 
 
@@ -180,7 +326,7 @@ Bryan Adams - Ultimate (2017) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263394.jpg" />
 </div>
 
 
@@ -209,7 +355,7 @@ Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262804.jpg" />
 </div>
 
 
@@ -238,7 +384,7 @@ Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262797.jpg" />
 </div>
 
 
@@ -267,7 +413,7 @@ The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262632.jpg" />
 </div>
 
 
@@ -296,7 +442,7 @@ The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_262629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262629.jpg" />
 </div>
 
 
@@ -325,7 +471,7 @@ Alannah Myles - Alannah Myles (1989) [FLAC|Lossless|image + .cue] <Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262110.jpg" />
 </div>
 
 
@@ -354,7 +500,7 @@ Queen - Queen On Fire (Live At The Bowl) (2004) 2 x CD, SHM-CD, Reissue, 2024, E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261628.jpg" />
 </div>
 
 
@@ -383,7 +529,7 @@ Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261299.jpg" />
+  <img src="Z:/picture/005/save_picture_261299.jpg" />
 </div>
 
 
@@ -412,7 +558,7 @@ The Beatles - Anthology Collection (2025) 8CD Boxset [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260786.jpg" />
 </div>
 
 
@@ -441,7 +587,7 @@ Garrison - The Final Chapter (2025) [FLAC|Lossless|tracks] <AOR, Arena Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260785.jpg" />
 </div>
 
 
@@ -470,7 +616,7 @@ Vanessa Peters & Ice Cream On Mondays - 3 альбома [FLAC|Lossless]<Rock, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260483.jpg" />
+  <img src="Z:/picture/005/save_picture_260483.jpg" />
 </div>
 
 
@@ -505,7 +651,7 @@ The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260070.jpg" />
+  <img src="Z:/picture/005/save_picture_260070.jpg" />
 </div>
 
 
@@ -534,7 +680,7 @@ Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259593.jpg" />
+  <img src="Z:/picture/005/save_picture_259593.jpg" />
 </div>
 
 
@@ -569,7 +715,7 @@ Andwella - World's End (1970) & People's People (1971) Remastered /2002, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259355.jpg" />
+  <img src="Z:/picture/005/save_picture_259355.jpg" />
 </div>
 
 
@@ -604,7 +750,7 @@ Pee Wee Bluesgang - Our Blue Side (1979) - Our Blue Side /2003, Sireena Records/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259322.jpg" />
+  <img src="Z:/picture/005/save_picture_259322.jpg" />
 </div>
 
 
@@ -619,175 +765,6 @@ Pee Wee Bluesgang - Our Blue Side (1979) - Our Blue Side /2003, Sireena Records/
 07. The Seeker  (03:50)
 08. Bad Bad Woman  (04:36)
 09. Heavy's Blues  (04:10)Жанр: Rock, Blues Rock, Modern Electric BluesПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502086   (258861) от 27.05.2012
-
-Chris Rea - Hofner Blue Notes (2003) [FLAC|Lossless]<Rock, Blues, Louisiana Blues, Modern Electric Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spy  (05:05)
-02. Expectations  (03:58)
-03. Hofner Blue Notes  (02:51)
-04. Paris in Minneapolis  (05:05)
-05. Sвo Paulo Blue  (04:59)
-06. What Became  (04:43)
-07. Detroit  (03:54)
-08. Goodnight Joe  (04:14)
-09. Take The Mingus Train  (04:23)
-10. Alone  (03:39)(   Читать дальше...   )Жанр: Rock, Blues, Louisiana Blues, Modern Electric BluesПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500785   (258648) от 26.05.2012
-
-VA - Return To The Dark Side Of The Moon - A Tribute To Pink Floyd (2006) Limited Edition [WavPack|Lossless]<Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malcolm McDowell, Adrian Belew - Speak To Me, Breathe
-02. Larry Fast, Alan White - On The Run
-03. Gary Green, Billy Sherwood - Time
-04. C.C. White, Billy Sherwood - The Great Gig In The Sky
-05. Tommy Shaw, Billy Sherwood - Money
-06. John Wetton, Dweezil Zappa - Us And Them
-07. Robben Ford, Billy Sherwood - Any Colour You Like
-08. Robbie Krieger, Billy Sherwood - Brain Damage
-09. Billy Sherwood, C.C. White - Eclipse
-10. Billy Sherwood, Robbie Krieger - Where We BelongЖанр: Psychedelic Rock, Prog RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500546   (258150) от 24.05.2012
-
-The Rolling Stones - 8 альбомов (1971 - 1981) Remastered, Collector's Edition / 1994, Virgin / [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Me Up [03:34]
-02. Hang Fire [02:21]
-03. Slave [06:32]
-04. Little T & A [03:23]
-05. Black Limousine [03:34]
-06. Neighbours [03:33]
-07. Worried About You [05:17]
-08. Tops [03:48]
-09. Heaven [04:22]
-10. No Use In Crying [03:26](   Читать дальше...   )1994Жанр: RockПродолжительность: 00: 44:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837823   (257635) от 19.11.2025
-
-Cheap Trick - All Washed Up (2025) [FLAC|Lossless|image + .cue] <Rock, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногие группы, приближающиеся к своему 50-летию, продолжают постоянно гастролировать, устраивать потрясающие концерты и записывать новые альбомы с таким же дерзким, энергичным энтузиазмом, как Cheap Trick. Выпустив 14 ноября альбом с дерзким названием All Washed Up (альбом номер 21!), они доказывают, что возраст только делает человека лучше. Четыре стиральные машины, (   Читать дальше...   )01. All Washed-Up (3:35)
-02. All Wrong Long Gone (4:08)
-03. The Riff That Won't Quit (2:48)
-04. Bet It All (2:35)(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6DD56B66FAAA71C482FF214607F50C9EF586D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499482   (256442) от 21.05.2012
-
-Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Bill Hubbard (4:19)
-02. What God Wants, part I (6:02)
-03. The Tide Is Turning (afer live aid) (5:45)
-04. The Pros And Cons Of Hitch Hiking (4:40)
-05. Sexual Revolution (4:49)
-06. The Remains Of Our Love (3:10)
-07. Radio Waves (4:58)
-08. Who Needs Information (5:56)
-09. Me Or Him (5:21)
-10. Apparently They Were Travelling (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:33
 
 ## Скачать торент
 ```bash

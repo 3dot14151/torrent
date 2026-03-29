@@ -7,7 +7,7 @@ Uncom 2.5 LTS [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060789.jpg" />
+  <img src="Z:/picture/005/save_picture_1060789.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GreenLinux 22.3.0 Kursk [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060753.jpg" />
+  <img src="Z:/picture/005/save_picture_1060753.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058107.jpg" />
+  <img src="Z:/picture/005/save_picture_1058107.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055098.jpg" />
+  <img src="Z:/picture/005/save_picture_1055098.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053828.jpg" />
+  <img src="Z:/picture/005/save_picture_1053828.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ EN-OS 1.0 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051008.jpg" />
+  <img src="Z:/picture/005/save_picture_1051008.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049589.jpg" />
+  <img src="Z:/picture/005/save_picture_1049589.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032951.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032942.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Debian Edu - Skolelinux 10.8.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032919.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WifiSlax 3.3 [Аудит безопасности, хакинг] [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031529.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mageia 8 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028870.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mageia 8 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028816.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Mathlinux 2011 alpha (Дистрибутив для математиков, фи
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024795.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024003.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023757.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Parrot OS Security 4.11 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020750.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Calculate Linux 21 [x86_64] 8xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017485.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Debian Edu - Skolelinux 10.9.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012356.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011032.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010103.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010102.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.3 [x86_64, aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008661.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Linux Mint 20.2 Uma (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007343.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kali Linux 2021.2 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006207.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ EuroLinux 8.3 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005771.jpg" />
 </div>
 
 

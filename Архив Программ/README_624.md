@@ -6,7 +6,7 @@ PortableApps.com Platform 17.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736565.jpg" />
+  <img src="Z:/picture/008/save_picture_736565.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Light Image Resizer 6.0.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736564.jpg" />
+  <img src="Z:/picture/008/save_picture_736564.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PrivaZer 4.0.40 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736400.jpg" />
+  <img src="Z:/picture/008/save_picture_736400.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ PC Cleaner Pro 8.2.0.13 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736382.jpg" />
+  <img src="Z:/picture/008/save_picture_736382.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WSCC (Windows System Control Center) 7.0.0.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736381.jpg" />
+  <img src="Z:/picture/008/save_picture_736381.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Volume2 1.1.8.456 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736378.jpg" />
+  <img src="Z:/picture/008/save_picture_736378.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MAGIX SOUND FORGE Audio Studio 16.0.0.39 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736376.jpg" />
+  <img src="Z:/picture/008/save_picture_736376.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v3.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736365.jpg" />
+  <img src="Z:/picture/008/save_picture_736365.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ mp3DirectCut 2.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736360.jpg" />
+  <img src="Z:/picture/008/save_picture_736360.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Auslogics Windows Slimmer 3.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736357.jpg" />
+  <img src="Z:/picture/008/save_picture_736357.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736332.jpg" />
+  <img src="Z:/picture/008/save_picture_736332.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ MediaHuman YouTube Downloader 3.9.9.68 (2801) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736330.jpg" />
+  <img src="Z:/picture/008/save_picture_736330.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Foxit Reader 11.2.1.53537 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736293.jpg" />
+  <img src="Z:/picture/008/save_picture_736293.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Windows Update Blocker 1.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736252.jpg" />
+  <img src="Z:/picture/008/save_picture_736252.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Zver Windows 10 Enterprise LTSC x64 v.2022.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736250.jpg" />
+  <img src="Z:/picture/008/save_picture_736250.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe Illustrator 2022 26.0.3.778 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736246.jpg" />
+  <img src="Z:/picture/008/save_picture_736246.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ The Bat! Voyager 9.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736115.jpg" />
+  <img src="Z:/picture/008/save_picture_736115.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Kerish Doctor 2020 4.80 [DC 21.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736108.jpg" />
+  <img src="Z:/picture/008/save_picture_736108.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Windows 10 Manager 3.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736080.jpg" />
+  <img src="Z:/picture/008/save_picture_736080.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Hetman Partition Recovery 3.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736075.jpg" />
+  <img src="Z:/picture/008/save_picture_736075.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BELOFF [dp] 2020.07.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736074.jpg" />
+  <img src="Z:/picture/008/save_picture_736074.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ EaseUS Data Recovery Wizard Technician 13.5 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735989.jpg" />
+  <img src="Z:/picture/008/save_picture_735989.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735947.jpg" />
+  <img src="Z:/picture/008/save_picture_735947.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ CrystalDiskInfo 8.15.0 Beta1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735842.jpg" />
+  <img src="Z:/picture/008/save_picture_735842.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ UltraUXThemePatcher 4.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735807.jpg" />
+  <img src="Z:/picture/008/save_picture_735807.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ KiCad 6.0.1 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735799.jpg" />
+  <img src="Z:/picture/008/save_picture_735799.jpg" />
 </div>
 
 

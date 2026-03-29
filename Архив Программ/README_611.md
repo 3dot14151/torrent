@@ -6,7 +6,7 @@ oCam Screen Recorder 273.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743330.jpg" />
+  <img src="Z:/picture/008/save_picture_743330.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ultra Adware Killer 4.2.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743327.jpg" />
+  <img src="Z:/picture/008/save_picture_743327.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ R.saver 9.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743324.jpg" />
+  <img src="Z:/picture/008/save_picture_743324.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1466]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743308.jpg" />
+  <img src="Z:/picture/008/save_picture_743308.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nvidia DriverPack v.418.91 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743266.jpg" />
+  <img src="Z:/picture/008/save_picture_743266.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ashampoo Burning Studio 20.0.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743265.jpg" />
+  <img src="Z:/picture/008/save_picture_743265.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Download Master 6.3.1.1457 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743257.jpg" />
+  <img src="Z:/picture/008/save_picture_743257.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ BurnAware Professional 8.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743253.jpg" />
+  <img src="Z:/picture/008/save_picture_743253.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Image Uploader 1.3.1 Build 4316 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743251.jpg" />
+  <img src="Z:/picture/008/save_picture_743251.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Auslogics Disk Defrag Free 8.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743241.jpg" />
+  <img src="Z:/picture/008/save_picture_743241.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Comodo IceDragon 58.0.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743240.jpg" />
+  <img src="Z:/picture/008/save_picture_743240.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Prelude CC 2018 7.1.0.107 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743228.jpg" />
+  <img src="Z:/picture/008/save_picture_743228.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 13551 (май 2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743209.jpg" />
+  <img src="Z:/picture/008/save_picture_743209.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Tor Browser Bundle 11.0.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743197.jpg" />
+  <img src="Z:/picture/008/save_picture_743197.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Total Commander 10.00 LitePack & PowerPack & ExtremePack + Portable 2021.12 by S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743188.jpg" />
+  <img src="Z:/picture/008/save_picture_743188.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows 7 SP1 6.1 (Build 7601.25829) (13in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743182.jpg" />
+  <img src="Z:/picture/008/save_picture_743182.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 11 21Н2 (Build 22000.434) (20in1) (x64) by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743181.jpg" />
+  <img src="Z:/picture/008/save_picture_743181.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Adobe Acrobat Pro DC 2019.010.20091 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743171.jpg" />
+  <img src="Z:/picture/008/save_picture_743171.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Reg Organizer 8.26 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743170.jpg" />
+  <img src="Z:/picture/008/save_picture_743170.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mozilla Firefox 37.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743135.jpg" />
+  <img src="Z:/picture/008/save_picture_743135.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ XnViewMP 0.90 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743126.jpg" />
+  <img src="Z:/picture/008/save_picture_743126.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Avast Internet Security 18.3.2333 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743117.jpg" />
+  <img src="Z:/picture/008/save_picture_743117.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Windows Firewall Control 4.7.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743107.jpg" />
+  <img src="Z:/picture/008/save_picture_743107.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Freemake Video Converter 4.1.9.12 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743092.jpg" />
+  <img src="Z:/picture/008/save_picture_743092.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ SoftColor PhotoEQ 1.2.6.0 RePack (& Portable) by Dinis124-78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743077.jpg" />
+  <img src="Z:/picture/008/save_picture_743077.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Alcohol 52% 2.0.3 Build 7612 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743075.jpg" />
+  <img src="Z:/picture/008/save_picture_743075.jpg" />
 </div>
 
 

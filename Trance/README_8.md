@@ -1,3 +1,206 @@
+###  Публикация: 976708   (827615) от 17.03.2017
+
+Ahmed Romel - 2 Compilations, 39 Singles, 62 Remixes, 3 Tracks (2010 - 2017) [MP3|320 Kbps] <Trance , Uplifting Trance>
+
+>>След.
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A & Z - Gloom (Ahmed Romel Remix) (8:14)
+02. Ahmed Helmy Feat. Love Dimension - Follow Your Heart (Ahmed Romel Remix) (7:35)
+03. Aiera - Dunes (Ahmed Romel Remix) (8:55)
+04. Alexandre Bergheau - Colors of Persia (Ahmed Romel Pres. Merove Remix) (8:59)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22529D95E5641822A9FDEBEF5B678A5107974418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006843   (825578) от 13.04.2016
+
+VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage & Morelli & Arielle Maren - Sweet Surrender (Original Mix) 08:06
+02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
+03. Tom Fall - Dive (Tom Fall Remode) 07:36
+04. Schodt - Wild at Heart Feat. Aida Fenhel (Schodt M1dn1t3 Mix) 05:40(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502714   (824851) от 16.10.2021
+
+VA - Black Hole Trance Music 10-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Diana Miro - Nothing To Hide (Extended Mix) [6:32]
+02. Steve Brian - Half Moon Bay (Extended Mix) [6:43]
+03. Cold Blue - Shine (Alex Di Stefano Extended Remix) [8:33]
+04. Richard Durand & Sarah De Warren - Made Of Stone (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733CFAC62FA0FA9C85E98CFC7595FEE2B9525D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116425   (823101) от 20.03.2017
+
+VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mike Demirele - The Chosen One (James Kitcher Remix)  8:42
+02.  Frainbreeze - Black Eagle (Original Mix)  5:25
+03.  Olegkooo - 7Sky (Original Mix)  7:40
+04.  InnerSync - Synergy (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6C66B4EE5103A2492D19681D271A63A4C55FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196704   (822554) от 03.01.2018
+
+VA - Transire Recordings Best Of 2017 (Mixed by Lightform) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nakhiya - Ephemeral (Abide Remix)
+02. Aldo Moro - Bahamontes (Imida Remix)
+03. Abide - Him (Lightform Remix)
+04. Dawid Jurzyk - Flying Green (Alex DJohn Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B2C5D66BF4EBF38E882CDDB15C3A2DAF4B0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196660   (822547) от 03.01.2018
+
+Mi Chan - In The Night (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Morning (Original Mix)
+02. Way (Original Mix)
+03. Where I Am (Original Mix)
+04. Sunrise (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FA6244A845E584C45A950F854111C2190992FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196861   (819214) от 05.01.2018
+
+VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Guerra - Genesis (Original Mix)
+02. Bigtopo & Omar Diaz - Exoplanets (Original Mix)
+03. Deeprog & Matteo Marini - Bakku-Shan (Original Mix)
+04. Alex Leavon - Cyclops (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196416   (819200) от 05.01.2018
 
 VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -6,7 +209,7 @@ VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819200.jpg" />
+  <img src="Z:/picture/008/save_picture_819200.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Abora Recordings: Best Of 2017 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819195.jpg" />
+  <img src="Z:/picture/008/save_picture_819195.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Vocal Trance 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Trance,Vocal Trance,Uplifti
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817714.jpg" />
+  <img src="Z:/picture/008/save_picture_817714.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817291.jpg" />
+  <img src="Z:/picture/008/save_picture_817291.jpg" />
 </div>
 
 
@@ -119,7 +322,7 @@ VA - Grotesque Essentials Spring 2017 Edition (Mixed by ReOrder & Ciaran McAuley
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815489.jpg" />
+  <img src="Z:/picture/008/save_picture_815489.jpg" />
 </div>
 
 
@@ -148,7 +351,7 @@ VA - The Ultimate Euphoric Trance Vol. 2 (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814827.jpg" />
+  <img src="Z:/picture/008/save_picture_814827.jpg" />
 </div>
 
 
@@ -177,7 +380,7 @@ VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813929.jpg" />
+  <img src="Z:/picture/008/save_picture_813929.jpg" />
 </div>
 
 
@@ -206,7 +409,7 @@ VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813928.jpg" />
+  <img src="Z:/picture/008/save_picture_813928.jpg" />
 </div>
 
 
@@ -235,7 +438,7 @@ VA - Trance (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813927.jpg" />
+  <img src="Z:/picture/008/save_picture_813927.jpg" />
 </div>
 
 
@@ -264,7 +467,7 @@ VA - Total Trance Selections Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813926.jpg" />
+  <img src="Z:/picture/008/save_picture_813926.jpg" />
 </div>
 
 
@@ -293,7 +496,7 @@ VA - The Best Of Silent Shore Records 2017 (2018) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812137.jpg" />
+  <img src="Z:/picture/008/save_picture_812137.jpg" />
 </div>
 
 
@@ -322,7 +525,7 @@ VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812136.jpg" />
+  <img src="Z:/picture/008/save_picture_812136.jpg" />
 </div>
 
 
@@ -351,7 +554,7 @@ VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812132.jpg" />
+  <img src="Z:/picture/008/save_picture_812132.jpg" />
 </div>
 
 
@@ -380,7 +583,7 @@ Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812131.jpg" />
+  <img src="Z:/picture/008/save_picture_812131.jpg" />
 </div>
 
 
@@ -409,7 +612,7 @@ VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812130.jpg" />
+  <img src="Z:/picture/008/save_picture_812130.jpg" />
 </div>
 
 
@@ -438,7 +641,7 @@ VA - Trance Classics Collection (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812105.jpg" />
+  <img src="Z:/picture/008/save_picture_812105.jpg" />
 </div>
 
 
@@ -467,7 +670,7 @@ VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812021.jpg" />
+  <img src="Z:/picture/008/save_picture_812021.jpg" />
 </div>
 
 
@@ -496,7 +699,7 @@ VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812019.jpg" />
+  <img src="Z:/picture/008/save_picture_812019.jpg" />
 </div>
 
 
@@ -525,7 +728,7 @@ VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804503.jpg" />
+  <img src="Z:/picture/008/save_picture_804503.jpg" />
 </div>
 
 
@@ -539,209 +742,6 @@ VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198634   (804407) от 13.01.2018
-
-VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Estiva & Justin Oh  -  Reach For The Sky (feat. Abby Rae) (Original Mix)  6:49
-02.  Chris Schambacher  -  Chasing Stars (Extended Mix)  5:36
-03.  Max Freegrant  -  War Goes On (feat. Brandon Hills) (Sodality Remix)  6:00
-04.  The Thrillseekers  -  For All That You Are (Extended Club Mix)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 03:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096C9E8A43B27DDCD1D3BD64ADE271EB85D0D3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198745   (802949) от 14.01.2018
-
-VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
-02.  Alex Karweit  -  Choosing His Angels (Extended Club Mix)  7:33
-03.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
-04.  Dirkie Coetzee  -  Nymeria (Extended Mix)  5:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EF61E892EE5A96184BAD86229C6201E78918C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198757   (802830) от 14.01.2018
-
-VA - EDM Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer, DJ Xquizit & OSITO  -  Empire Of Our Own (Original Mix)  3:56
-02.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
-03.  Mantra, Ruslan Radriges & Lucid Blue  -  Take Me Higher (Original Mix)  3:33
-04.  LTN  -  Wind & Cloud (Original Mix)  3:21(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EA59DA79D1F782FFAAB378CE0E0544348A7222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120587   (802122) от 31.03.2017
-
-VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. - Spirit Of The Dragon (Original Mix) (06:02)
-02. Claus Backslash - Quasarworld (Radio Edit) (03:59)
-03. Derek Ryan - Ripples (feat Melissa R Kaplan - Skyline Remix) (06:16)
-04. Symon & Jay - Blind Mind (Extended Mix) (06:52)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CDB7F602092BF9CC1A088426F9ADB02E35F0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199348   (801689) от 15.01.2018
-
-VA - Trance Winter Essentials Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage & Morelli  -  While The Earth Sleeps (David Broaders Remix)  5:30
-02.  Dezza  -  Deja Vu (Original Mix)  7:02
-03.  Eleven.Five & Incognito Soul  -  Disguise (Mizar B Remix)  5:54
-04.  Catherine feat. Blugazer & Blue Symmetry  -  Vertigo (Eleven.Five Remix)  7:49(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7550E5B06861A15CBBF50A8BF29CAB44FABC7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199517   (801143) от 16.01.2018
-
-VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nygma - See The Sea (Remaster) (Seif & Paula Remix)
-02. DJ Geri - All The Way (Original Mix)
-03. Highforcer - Dark Knight (Jens Jakob Remix)
-04. Robert Reazon - My October (Sebastian Montano pres. Scherzo Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19C48D010C5BBD86841E56C1820B11560243DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199506   (801139) от 16.01.2018
-
-Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Atragun - The Long Journey (Original Mix)
-02.Atragun -  Sunrise Boulevard (Original Mix)
-03.Atragun -  Haven (Original Mix)
-04.Atragun & Tom Bro -  Lost In Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6ED602BEEF930771F90DE25C45D0B0D6448F5CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

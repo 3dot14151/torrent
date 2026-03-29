@@ -1,3 +1,109 @@
+###  Публикация: 673188   (627043) от 17.06.2015
+
+Книжная серия | Библиотека приключений продолжается [19 книг. Обновляемая] (1993-1997) [FB2, DJVU]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627043.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1993—1995 годах московское издательство «Диамант» выпустило серию Библиотека приключений продолжается.
+Примерно в эти же годы (1993-1997) ярославское издательство «Нюанс» выпускало похожую серию, которая называлась Новая библиотека приключений.
+В сериях печатались приключенческие романы советских и зарубежных авторов.Жанр: Фантастика, ПриключениеФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1874436DFC28BF21AE8C5E06C8967549EB29E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802851   (624265) от 07.07.2014
+
+Книжные серии | "Альтернатива" и "Альтернатива. Фантастика" [280 книг] (2002-2014) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная раздача объединяет две серии издательской группы АСТ, разделить  которые довольно трудно, поскольку тесная связь «Альтернативы» и «Альтернативы - Фантастика» наблюдалась в течение всего времени существования серий. В частности в обеих издавались отдельные произведения Ф. Дика и Б. Олдисса, Н. Геймана, а связанные между собой романы У. Гибсона «Распознавание (   Читать дальше...   )Жанр: Современная проза, Контркультура, Зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7930AC5943EC36AA9239EC7A1A0E8761B15E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910075   (623096) от 19.06.2015
+
+Книжная серия | Англо-американская фантастика XX века [77 книг] (1992-1997) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англо-американская фантастика XX века - серия, в которой издавались собрания сочинений Андрэ Нортон, Абрахама Меррита, Пола Андерсона, Фредерика Пола, Фрэнка Херберта, Альфреда Ван Вогта.Жанр: Фантастика, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAFFA0551468AFB32AAB8F76F733E8B356F1E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843811   (621276) от 20.06.2015
+
+Книжная серия | Мировая сенсация [23 книги. Обновляемая ] (2012-2015) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621276.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мировая сенсация» - серия книг, которые поразили весь мир. Или часть мира, например "Amazon". Что, вас не поразили?! Наверное вы живете в другом, параллельном мире.Жанр: Современная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C468CFB0D74ED7E941F7093F36C9063BA038F530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522967   (620825) от 14.07.2012
 
 Книжная серия «Спектр» в 17 томах [1995] [FB2]
@@ -6,7 +112,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620825.jpg" />
+  <img src="Z:/picture/008/save_picture_620825.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616898.jpg" />
+  <img src="Z:/picture/008/save_picture_616898.jpg" />
 </div>
 
 
@@ -66,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614204.jpg" />
+  <img src="Z:/picture/008/save_picture_614204.jpg" />
 </div>
 
 
@@ -94,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610043.jpg" />
+  <img src="Z:/picture/008/save_picture_610043.jpg" />
 </div>
 
 
@@ -121,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610040.jpg" />
+  <img src="Z:/picture/008/save_picture_610040.jpg" />
 </div>
 
 
@@ -147,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607161.jpg" />
+  <img src="Z:/picture/008/save_picture_607161.jpg" />
 </div>
 
 
@@ -174,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603645.jpg" />
+  <img src="Z:/picture/008/save_picture_603645.jpg" />
 </div>
 
 
@@ -201,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600924.jpg" />
+  <img src="Z:/picture/008/save_picture_600924.jpg" />
 </div>
 
 
@@ -227,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599204.jpg" />
+  <img src="Z:/picture/008/save_picture_599204.jpg" />
 </div>
 
 
@@ -253,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594296.jpg" />
+  <img src="Z:/picture/008/save_picture_594296.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592206.jpg" />
+  <img src="Z:/picture/008/save_picture_592206.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587725.jpg" />
+  <img src="Z:/picture/008/save_picture_587725.jpg" />
 </div>
 
 
@@ -332,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586365.jpg" />
+  <img src="Z:/picture/008/save_picture_586365.jpg" />
 </div>
 
 
@@ -360,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585821.jpg" />
+  <img src="Z:/picture/008/save_picture_585821.jpg" />
 </div>
 
 
@@ -387,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585670.jpg" />
+  <img src="Z:/picture/008/save_picture_585670.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584587.jpg" />
+  <img src="Z:/picture/008/save_picture_584587.jpg" />
 </div>
 
 
@@ -440,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583928.jpg" />
+  <img src="Z:/picture/008/save_picture_583928.jpg" />
 </div>
 
 
@@ -466,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581692.jpg" />
+  <img src="Z:/picture/008/save_picture_581692.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580663.jpg" />
+  <img src="Z:/picture/008/save_picture_580663.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577551.jpg" />
+  <img src="Z:/picture/008/save_picture_577551.jpg" />
 </div>
 
 
@@ -545,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576253.jpg" />
+  <img src="Z:/picture/008/save_picture_576253.jpg" />
 </div>
 
 
@@ -580,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574973.jpg" />
+  <img src="Z:/picture/008/save_picture_574973.jpg" />
 </div>
 
 
@@ -592,113 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:198022914475F9D795511A16287794A46ED6B92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234048   (574090) от 03.07.2018
-
-Книжная серия | Мастера приключений [14 книг] (2015-2018) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия в которую включены лучшие романы мировой литературы, принадлежащие перу мастеров приключенческого жанра. В коллекцию включены иллюстрации старых мастеров книжной графики. Кроме того, книги указанных мастеров выходят каждый в своей цветовой гамме, тем самым, коллекционер сможет сформировать как коллекцию мастеров приключений, так и отдельные собрания сочинений (   Читать дальше...   )Жанр: Исторические приключения, Остросюжетные романы, Классика приключенческой литературыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5476C78E5BCB953A4B40BE57280761E3141BACF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529405   (566894) от 31.07.2012
-
-Книжная серия | Лучшее предложение (5 книг) [2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее предложение - это серия остросюжетных книг популярных жанров в мягком переплете. Так сказать, остросюжетный покетбук.
-Серия делится на разделы: Детектив, Боевик, Воровской роман и т.д.
-Печатаются как переиздания, так и новые вещи известных авторов.Жанр: Детектив, БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C12E8392B0FC0182DFF17DC66631C5DA7EC98E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232958   (566455) от 05.06.2022
-
-"Боевая магия" Серия издательства Эксмо из 86 томoв|Перезалив |2006-2011|[FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год открытия: 2006
-В серии издаются фэнтези произведения русскоязычных авторов — как новинки, так и переиздания книг.2006-2011Жанр: фэнтезиФормат: fb2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E61F5177C1E8D8B81809E86DA8BB835ACF59CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847977   (566399) от 19.08.2016
-
-Книжная серия | The Big Book [131 книга. Обновляемая] (2007-2016) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566399.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Big Book» - серия больших книг, но не только в смысле формата или объема. Это большие книги по интеллектуальному наполнению, по высокому качеству прозы, по таланту авторов. А в каком жанре работает настоящий мастер - абсолютно не важно. Все равно будет интересно. Книги - лидеры всевозможных рейтингов, авторы - лауреаты разнообразных премий.Жанр: Современная проза, детектив, триллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D2B92EA357A5CE5F0F69272979A7550121A5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1844068   (1049913) от 24.12.2025
+
+Татьяна Демидова | Финансовый навигатор. От хаоса к системе что нужно знать, чтобы бизнес работал и зарабатывал (2025) [MP3, Нона Трояновская]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть деньги в бизнесе, но нет прибыли, эта книга поможет вам навести порядок в финансовых делах, превращая хаос в управляемую и прибыльную систему. Скучные отчёты больше не будут вас утомлять. "Финансовый навигатор: от хаоса к системе" предлагает осмысленный подход без занудства, с реальными примерами и здравым смыслом. Экономист и бизнес-ментор (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 09:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68186609B9B3B7A7EBF24B3E0CBA47C8C2C1D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843809   (1049780) от 23.12.2025
+
+Максим Котин | И ботаники делают бизнес (2018) [MP3, Сергей Казаков]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то предпринимателями в России становились авантюристы и бюрократы, если не просто бандиты. Теперь в бизнес идут обыкновенные люди, менеджеры среднего звена и интеллигенты, которых предшественники назвали бы, наверное, мечтателями и «ботаниками». Каждый из них ищет ответ на вопрос: а что будет со мной, если я в условиях современной России, которой правят олигархи, (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 09:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976D0CEFBB6D25703B9B16D864EC66D4F7310328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843958   (1049769) от 24.12.2025
+
+Джош Берсин | Непревзойденные. Семь принципов менеджмента, которые выведут компанию на запредельно высокий уровень (2025) [MP3, Пётр Каледин]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и Джим Коллинз в своем бестселлере «От хорошего к великому», Джош Берсин задался вопросом: что отличает хорошие компании от выдающихся?В поисках ответа он изучил опыт Microsoft, Google, Unilever, IKEA и других лидеров мирового рынка. Много лет Берсин занимался исследованием их методов управления, HR-практик и подходов к лидерству. Он провел более тысячи глубинных (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 07:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7429681B534F611C70ADABD28DC631CE5B3307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843623   (1049497) от 21.12.2025
+
+Татьяна Другова | Бизнес в свою пользу. Фокус на экспертность (2025) [MP3, Наталия Урбанская]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспертность – это не просто профессионализм, а осознанное стремление к росту. Метод ролевых трансформаций от Татьяны Друговой поможет вам выстроить фундамент успеха, освободиться от внутренних ограничений и понять, как сделать ваше знание востребованным продуктом.
+Татьяна Другова – обладательница титула «Миссис Россия Гранд», психолог, автор собственного метода (   Читать дальше...   )Жанр: БизнесИздательство: АСТПродолжительность: 07:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A52BADD95593950723CFEDE45586D8F74A65F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843179   (1049252) от 19.12.2025
 
 Владимир Моженков | Бизнес по чуть-чуть (2025) [MP3, Владимир Моженков]
@@ -6,7 +111,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049252.jpg" />
+  <img src="Z:/picture/008/save_picture_1049252.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048557.jpg" />
+  <img src="Z:/picture/008/save_picture_1048557.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048426.jpg" />
+  <img src="Z:/picture/008/save_picture_1048426.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048073.jpg" />
+  <img src="Z:/picture/008/save_picture_1048073.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047973.jpg" />
+  <img src="Z:/picture/008/save_picture_1047973.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047900.jpg" />
+  <img src="Z:/picture/008/save_picture_1047900.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047766.jpg" />
+  <img src="Z:/picture/008/save_picture_1047766.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047516.jpg" />
+  <img src="Z:/picture/008/save_picture_1047516.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046751.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046469.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045827.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045192.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044520.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044132.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044046.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043845.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043830.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043806.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043686.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041323.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041127.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037858.jpg" />
 </div>
 
 
@@ -577,114 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A07987E5AEB1BCE274C7F43B7447046FDDE7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614988   (1037849) от 25.02.2023
-
-Мэрилин Аткинсон, Рае Т. Чойс | Мастерство жизни. Внутренняя динамика развития (2018) [MP3, Элнара Салимова]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэрилин Аткинсон в соавторстве с Рае Т. Чойс являются последователями всемирно известного Милтона Эриксона. В книге «Мастерство жизни» (первой из трилогии «Трансформационный коучинг: Наука и искусство») авторы делают акцент на собственном «Я» человека. В книге описаны научные исследования в данном направлении, а также открытия в области человеческого мозга, сделанные (   Читать дальше...   )Жанр: зарубежная деловая литература, коучинг, личная эффективность, менеджмент и кадры, просто о бизнесе, саморазвитие / личностный ростПеревод: Международный Эриксоновский Университет КоучингаПродолжительность: 05:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2407CA531CD11A09BE1829A31CBFD268C2B4179C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614994   (1037846) от 25.02.2023
-
-Валера Разгуляев | Бирюзовое управление на практике. Опыт российских компаний (2020) [MP3, Валера Разгуляев, Никита Петров (Петроник)]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы понимаете, что прежние способы управления вашей компанией неэффективны или безнадёжно устарели, подумайте о бирюзовом управлении.
-
-Бирюзовые организации — новый, формирующийся сейчас тип, основанный на принципах контролируемого самоуправления и отсутствии вертикальной иерархии. Огромный плюс «бирюзы» в том, что каждый сотрудник может проявить свои лучшие (   Читать дальше...   )Жанр: организационный менеджмент, российская практика, управление бизнесом, управление персоналомПродолжительность: 06:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51FC9263625F28E0121D670CFCCD18DF7819F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615231   (1037839) от 25.02.2023
-
-Майкл Льюис | Покер лжецов (2018) [MP3, BIGBAG]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037839.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Покер лжецов" - документальный вариант истории об инвестиционных банках, раскрывающий подоплеку повести Тома Вулфа "Bonfire of the Vanities" ("Костер тщеславия"). Льюис описывает головокружительный путь своего героя по торговым площадкам фирмы Salomon Brothers в Лондоне и Нью-Йорке в середине бурных 1980-х годов, когда фирма являлась (   Читать дальше...   )Жанр: ФинансыПродолжительность: 13:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBEB55610ADEB8C5688654D9CF46505522A381F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615354   (1037824) от 25.02.2023
-
-Свен Карлcсон, Юнас Лейонхуфвуд | Против гигантов. Как Spotify подвинул Apple и изменил музыкальную индустрию (2020) [MP3, Михаил Мурзаков]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037824.jpg" />
-</div>
-
-
-###  Подробнее
-
-За несколько лет компания Spotify буквально трансформировала музыкальную индустрию: спасла звукозаписывающие корпорации от пиратов, заставила содрогнуться Apple и эффектно появилась на Уолл-стрит. А в 2020 году она запустила свой сервис и в России. Ещё ни одной шведской компании не удавалось завоевать такой авторитет в мировой поп-культуре.
-
-Авторы этой книги Свен (   Читать дальше...   )Жанр: интернет-бизнес, истории успеха, стартапы и создание бизнесаПеревод: Ася ЛаврушаПродолжительность: 08:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3920AF7EB009A042BEACEFCC6F95E843D91C6002
 ```
 
 https://mybot314.ru/tekegram_catalog/

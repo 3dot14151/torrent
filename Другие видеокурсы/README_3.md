@@ -1,3 +1,30 @@
+###  Публикация: 1498217   (859301) от 25.09.2021
+
+Правое полушарие интроверта, Никита Добряков и др. | Станьте искусствоведом. Расцвет искусства (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_859301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите профессионально разбираться в искусстве, но на переобучение или поступление в университет нет времени и ресурсов? Мы уверены: каждый, кто любит искусство, может стать искусствоведом. И для этого совсем не обязательно 4-6 лет учиться в университете.
+В этом блоке: Поговорим о классической живописи и ее направлениях. Обсудим основных художников и их главные шедевры.Производство: Правое полушарие интровертаЖанр: ИскусствоПродолжительность: 29:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02B2A57C698E78279AD9EAF6E65F3742FE5EC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108814   (858664) от 27.02.2017
 
 Ярослав Бодунков | Работа с Предметами (2015) WEBRip
@@ -6,7 +33,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858664.jpg" />
+  <img src="Z:/picture/008/save_picture_858664.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856820.jpg" />
+  <img src="Z:/picture/008/save_picture_856820.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856814.jpg" />
+  <img src="Z:/picture/008/save_picture_856814.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853512.jpg" />
+  <img src="Z:/picture/008/save_picture_853512.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851806.jpg" />
+  <img src="Z:/picture/008/save_picture_851806.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850985.jpg" />
+  <img src="Z:/picture/008/save_picture_850985.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845777.jpg" />
+  <img src="Z:/picture/008/save_picture_845777.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844631.jpg" />
+  <img src="Z:/picture/008/save_picture_844631.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840944.jpg" />
+  <img src="Z:/picture/008/save_picture_840944.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837923.jpg" />
+  <img src="Z:/picture/008/save_picture_837923.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835711.jpg" />
+  <img src="Z:/picture/008/save_picture_835711.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835693.jpg" />
+  <img src="Z:/picture/008/save_picture_835693.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832831.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829541.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816947.jpg" />
+  <img src="Z:/picture/008/save_picture_816947.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815253.jpg" />
+  <img src="Z:/picture/008/save_picture_815253.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813076.jpg" />
+  <img src="Z:/picture/008/save_picture_813076.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811533.jpg" />
+  <img src="Z:/picture/008/save_picture_811533.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809483.jpg" />
+  <img src="Z:/picture/008/save_picture_809483.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ Numerolog club, Анастасия Данилова | Цвета и цифры: 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798425.jpg" />
+  <img src="Z:/picture/008/save_picture_798425.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797750.jpg" />
+  <img src="Z:/picture/008/save_picture_797750.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ top3travel | Путешествие в Лаос (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793368.jpg" />
+  <img src="Z:/picture/008/save_picture_793368.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ top3travel | Самостоятельное путешествие в Мьянм
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793365.jpg" />
+  <img src="Z:/picture/008/save_picture_793365.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ top3travel | Самостоятельное путешествие в Малай
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793315.jpg" />
+  <img src="Z:/picture/008/save_picture_793315.jpg" />
 </div>
 
 
@@ -666,7 +693,7 @@ top3travel | Путешествие на Филиппины (2014) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793313.jpg" />
+  <img src="Z:/picture/008/save_picture_793313.jpg" />
 </div>
 
 
@@ -680,35 +707,6 @@ top3travel | Путешествие на Филиппины (2014) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:395922A8DD356D86DDD9420BEF8CD5B933F17AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122702   (793310) от 06.04.2017
-
-top3travel | Путешествие в Камбоджу (2015) PCRec
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные пляжи, 1000-летние храмы кхмерской империи, нетронутая природа.
-А самое главное – цены на отели, еду и транспорт на порядок ниже, чем в соседних странах
-Автор видеогида – Максим Шаинский – опытный путешественник, который объездил более 70 стран.
-Автор многих видеогидов, путеводителей и телепередач про путешествия.(   Читать дальше...   )Производство: top3travelЖанр: Путешествие, видеогидПродолжительность: 05:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB5FC1F0AF87EDE39BE047CB603705EC97A525F
 ```
 
 https://mybot314.ru/tekegram_catalog/

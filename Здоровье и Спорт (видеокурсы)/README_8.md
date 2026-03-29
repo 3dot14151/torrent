@@ -1,3 +1,29 @@
+###  Публикация: 1076976   (304176) от 29.11.2016
+
+Jillian Michaels | Kickbox FastFix (2012) DVDRip [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_304176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kickbox FastFix — это жиросжигающая кардио-тренировка от Джиллиан Майклс, основанная на упражнениях из кикбоксинга.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D928D1942FFA959DF5626BD0E8A4C6AB4416A8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078244   (302037) от 30.11.2016
 
 Mike Donavanik | Xtreme Burn (2016) HDTVRip [H.264/1080p-LQ] [EN]
@@ -6,7 +32,7 @@ Mike Donavanik | Xtreme Burn (2016) HDTVRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302037.jpg" />
+  <img src="Z:/picture/008/save_picture_302037.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Daily Burn | 8 эффективных тренировок от различны
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293754.jpg" />
+  <img src="Z:/picture/008/save_picture_293754.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292393.jpg" />
+  <img src="Z:/picture/008/save_picture_292393.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286845.jpg" />
+  <img src="Z:/picture/008/save_picture_286845.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Lisa Kinder | 10 Minute Solution - High Intensity Interval Training (2013) DVDRi
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281879.jpg" />
+  <img src="Z:/picture/008/save_picture_281879.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278913.jpg" />
+  <img src="Z:/picture/008/save_picture_278913.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278170.jpg" />
+  <img src="Z:/picture/008/save_picture_278170.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277407.jpg" />
+  <img src="Z:/picture/008/save_picture_277407.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275063.jpg" />
+  <img src="Z:/picture/008/save_picture_275063.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272816.jpg" />
+  <img src="Z:/picture/008/save_picture_272816.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272808.jpg" />
+  <img src="Z:/picture/008/save_picture_272808.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ BeFit | In 30 Extreme Workouts (2016) HDTVRip [H.264/1080p] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272074.jpg" />
+  <img src="Z:/picture/008/save_picture_272074.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266223.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Steve Cotter | Extreme Kettlebell Workout (2007) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262043.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251864.jpg" />
+  <img src="Z:/picture/004/save_picture_251864.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251287.jpg" />
+  <img src="Z:/picture/004/save_picture_251287.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229692.jpg" />
+  <img src="Z:/picture/004/save_picture_229692.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218060.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216648.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216631.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ Regina Doctor | Все, что нужно знать про анализы (2022
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213144.jpg" />
+  <img src="Z:/picture/005/save_picture_213144.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210267.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209562.jpg" />
+  <img src="Z:/picture/005/save_picture_209562.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199684.jpg" />
+  <img src="Z:/picture/005/save_picture_199684.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ PSY2.0 | Основы сексуального здоровья (2023) WEB-DL [A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197645.jpg" />
 </div>
 
 
@@ -673,35 +699,6 @@ PSY2.0 | Основы сексуального здоровья (2023) WEB-DL [A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3583F5814A6A1B0574B72380FCCDE6AB4158AE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636745   (197643) от 31.05.2023
-
-Александр Шишонин | Секреты здорового похудения от доктора Шишонина (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197643.jpg" />
-</div>
-
-
-###  Подробнее
-
-С чего начинали разговор - с мотивации.
-Ради чего/для кого Вы хотите постройнеть?
-Какой должна быть идеальная стройность?
-С кубиками на прессе, с пропорциямитела, как у модели или все-таки стоит ориентироваться на что-то другое?(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:31:55Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4636756592CC3F238F665433CE0A0CF1D465B02
 ```
 
 https://mybot314.ru/tekegram_catalog/

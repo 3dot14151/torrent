@@ -1,3 +1,82 @@
+###  Публикация: 1569219   (453819) от 12.08.2022
+
+Жан-Клод Ларше | Патриарх Павел. Святой наших дней (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патриарх Павел (1914-2009) еще при жизни почитался многими как святой. О его духовных прозрениях знали современники, о нестяжательстве его слагали легенды.
+Великому служителю Божию и посвятил свою книгу современный французский богослов, исследователь Церкви Жан-Клод Ларше.Жанр: ПравославиеПеревод: перевод с французского С. Чернов, П. ДоброцветовФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5A839D36797822563569D19C586E59B52E1E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408602   (453785) от 13.09.2020
+
+Игумен Нектарий (Морозов) | Простая тайна. Заметки о современном христианстве (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453785.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом светский человек, журналист, а сегодня монах, игумен Нектарий прекрасно знает жизнь, которая кипит вокруг нас. «Простая тайна» — своего рода дневник священника, затрагивающий острый вопрос: как сегодня, в бешеном темпе современности, суметь остановиться, вглядеться в себя самого? Действительно ли это так важно и необходимо? После «Простой тайны» на многое (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89E5D53CDB0830910C0C0E40E780405B10E5F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060925   (453726) от 08.10.2016
+
+Филип Пономарев | Христианство и спорт: размышления на тему (2010) [PDF, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный спорт ставит все более и более сложные вопросы, требующие осмысления. Есть в нем вещи, которые христиане принять никак не могут: культ денег, допинг, идея национального престижа, дух вражды и соперничества, спортивные хулиганы. Должно ли быть так? И может ли быть иначе? Неужели современный спорт - дело богопротивное? Если да, то любое дальнейшее обсуждение (   Читать дальше...   )Жанр: Духовная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237388DC4FBBF2BE62FEF279FD8B39435DF9BB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060867   (453724) от 08.10.2016
 
 И. П. Цамерян и др. (ред.) | Основы научного атеизма (1961) [DJVU]
@@ -6,7 +85,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453724.jpg" />
+  <img src="Z:/picture/008/save_picture_453724.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453717.jpg" />
+  <img src="Z:/picture/008/save_picture_453717.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453674.jpg" />
+  <img src="Z:/picture/008/save_picture_453674.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453551.jpg" />
+  <img src="Z:/picture/008/save_picture_453551.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453543.jpg" />
+  <img src="Z:/picture/008/save_picture_453543.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451885.jpg" />
+  <img src="Z:/picture/008/save_picture_451885.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451884.jpg" />
+  <img src="Z:/picture/008/save_picture_451884.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451883.jpg" />
+  <img src="Z:/picture/008/save_picture_451883.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451588.jpg" />
+  <img src="Z:/picture/008/save_picture_451588.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451496.jpg" />
+  <img src="Z:/picture/008/save_picture_451496.jpg" />
 </div>
 
 
@@ -274,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451218.jpg" />
+  <img src="Z:/picture/008/save_picture_451218.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450975.jpg" />
+  <img src="Z:/picture/008/save_picture_450975.jpg" />
 </div>
 
 
@@ -329,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450788.jpg" />
+  <img src="Z:/picture/008/save_picture_450788.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450605.jpg" />
+  <img src="Z:/picture/008/save_picture_450605.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450473.jpg" />
+  <img src="Z:/picture/008/save_picture_450473.jpg" />
 </div>
 
 
@@ -411,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450469.jpg" />
+  <img src="Z:/picture/008/save_picture_450469.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449585.jpg" />
+  <img src="Z:/picture/008/save_picture_449585.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449457.jpg" />
+  <img src="Z:/picture/008/save_picture_449457.jpg" />
 </div>
 
 
@@ -491,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449331.jpg" />
+  <img src="Z:/picture/008/save_picture_449331.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449300.jpg" />
+  <img src="Z:/picture/008/save_picture_449300.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449057.jpg" />
+  <img src="Z:/picture/008/save_picture_449057.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448695.jpg" />
+  <img src="Z:/picture/008/save_picture_448695.jpg" />
 </div>
 
 
@@ -598,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448673.jpg" />
+  <img src="Z:/picture/008/save_picture_448673.jpg" />
 </div>
 
 
@@ -609,88 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A48471734C6E676013BC14D200C13F98A39F807F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248036   (448493) от 17.09.2018
-
-Никольское Евангелие (XIV в.) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никольское Евангелие - рукописная книга на пергаменте в конце 14 - го или начале 15-го века (хотя не исключено, что она была создана в 13 веке) размером 16x10,5 см с 144 листами и 17 строками текста на каждой странице, украшенная иллюминациями, инициалами, с золотыми и серебряными деталями.
-
-Никольское Евангелие написано на сербском языке с элементами народной речи. (   Читать дальше...   )Жанр: Евангелие, рукописьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8ECAC1868205D26CA00EBCAA6640A6F4DB46DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943638   (447213) от 04.10.2015
-
-Ричард Суинберн | Есть ли Бог? (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447213.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современной массовой культуре распространено мнение, что бытие Бога нельзя подтвердить или опровергнуть рациональными средствами, а религиозная вера не является делом разума. Между тем в последние десятилетия на самом высоком интеллектуальном уровне среди ученых, философов, богословов и религиоведов возобновились дискуссии о существовании Бога. Философ и православный (   Читать дальше...   )Жанр: Философия религииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A434116559A5E0D07E5A0DBBE048F604ED30091B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248069   (446536) от 18.09.2018
-
-Московская Патриархия Русской Православной Церкви (изд.) | Пассия [Чинопоследование с акафистом Божественным Страстем Христовым] (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пассия — особая служба, совершаемая несколько раз во время Великого Поста. Последование такой службы состоит из песнопений Страстной седмицы, чтения евангельских повествований о Страстях Христовых, а также, иногда, Акафиста Страстям Господним и поучения о спасительном значении искупительных страданий Господа нашего Иисуса Христа.
-
-В Типиконе Русской Православной (   Читать дальше...   )Жанр: Богослужебная книгаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C983D8BC3150473BA182771AE5FDC1BCA3C3DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

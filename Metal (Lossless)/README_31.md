@@ -1,3 +1,90 @@
+###  Публикация: 1471532   (1015006) от 21.05.2021
+
+Agent Steel - No Other Godz Before Me (2021) [FLAC|Lossless|image + .cue] <Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage to Afron-V (2:15)
+02. Crypts of Galactic Damnation (4:11)
+03. No Other Godz Before Me (4:37)
+04. Trespassers (4:01)(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3517BCAF4C69E71F879572F1F4A64422B49112AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471619   (1015003) от 21.05.2021
+
+Herman Frank - Two For A Lie (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teutonic Order
+02. Venom
+03. Hate
+04. Eye Of The Storm(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D17A38792ED35A49FED91E42C156A6CF4C399E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471484   (1015001) от 21.05.2021
+
+Artem Illusio - Artem Illusio (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast (04:16)
+02. The Temple of My Soul (03:49)
+03. Pharaoh (04:58)
+04. Forgiven by the Sun (05:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A96C0E1404056B99D69834746CF9DA582D255F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471610   (1014989) от 21.05.2021
 
 Solstice - Casting The Die (2021) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Solstice - Casting The Die (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014989.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Sonic Haven - Vagabond (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014986.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Nergard - Eternal White (2021) [FLAC|Lossless|WEB-DL] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014964.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Amorphis - Live at Helsinki Ice Hall (2021) [FLAC|Lossless|WEB-DL|tracks] <Melan
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014963.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Hatecraft - Hear The Winds (feat. Bjorn Strid) (2021) EP [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014700.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Debauchery - Monster Metal (2021) 3xCD [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014696.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Attack - Destinies Of War (1989) Reissue, 1993, Victor Entertainment, Japanese E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014683.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Attack - Seven Years In The Past (1992) Reissue, 1993, Victor Entertainment, Jap
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014681.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Attack - The Secret Place (1995) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014680.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Borealis - The Offering (2018) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014511.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Virgin Steele - Seven Devils Moonshine (2018) Box Set, 5xCD [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014468.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Autopsy - Tourniquets, Hacksaws And Graves (2014) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014385.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Arcana Elysium - Corpus Callosum (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014234.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Sacred Gate - Tides Of War (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014059.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Cardynal - Intro (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014054.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Silench Crew - Trajan (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013893.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013887.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Trick Or Treat - The Legend of the XII Saints (2020) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013886.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Trick Or Treat - The Unlocked Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013877.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Burning Witches - The Witch Of The North (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013866.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Silver Talon - Decadence and Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013850.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Hellryder - The Devil Is A Gambler (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013840.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Apophis - I Am Your Blindness (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013731.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Apophis - I Am Your Blindness (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49809FAC84623CCD9D392D7A63EF5F5A02BE14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473440   (1013730) от 29.05.2021
-
-Estrella Negra - Estrella Negra (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brujas de Salem
-02. El Enviado
-03. Nazi
-04. El Regreso(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0D797F200285BBCFEC38AD403377D6929D38D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473456   (1013728) от 29.05.2021
-
-Iron Jaws - Declaration Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan's Bride
-02. Speed Metal Commando
-03. The Brawl
-04. The Hell Of Boiling Metal (Big Trouble In Chinatown)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893B1B7FDDA6FC2A41F6D70E03A1D59901BC9983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473433   (1013726) от 29.05.2021
-
-Slizard - Slizard (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monsters
-02. Mr. Hyde
-03. Caught up in the Gears
-04. Crack the Whip(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2802F84A03092FCAB945774773D0B0801F6D9915
 ```
 
 https://mybot314.ru/tekegram_catalog/

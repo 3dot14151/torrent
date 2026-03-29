@@ -6,7 +6,7 @@ Windows 10 Manager 3.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735797.jpg" />
+  <img src="Z:/picture/008/save_picture_735797.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vit Registry Fix Pro 14.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735785.jpg" />
+  <img src="Z:/picture/008/save_picture_735785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinRAR 6.10 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735762.jpg" />
+  <img src="Z:/picture/008/save_picture_735762.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ reaConverter Pro 7.592 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735701.jpg" />
+  <img src="Z:/picture/008/save_picture_735701.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Auslogics BoostSpeed Pro 11.5.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735628.jpg" />
+  <img src="Z:/picture/008/save_picture_735628.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AIMP 4.70 build 2224 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735588.jpg" />
+  <img src="Z:/picture/008/save_picture_735588.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Zemana AntiMalware Premium 3.2.15 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735546.jpg" />
+  <img src="Z:/picture/008/save_picture_735546.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ IObit Driver Booster Pro 7.6.0.766 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735545.jpg" />
+  <img src="Z:/picture/008/save_picture_735545.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ KRT CLUB ATB 3.1.0.29 v5.5 RePack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735498.jpg" />
+  <img src="Z:/picture/008/save_picture_735498.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sandboxie 5.55.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735383.jpg" />
+  <img src="Z:/picture/008/save_picture_735383.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Firefox Browser 91.5.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735381.jpg" />
+  <img src="Z:/picture/008/save_picture_735381.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ RegCool 1.309 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735377.jpg" />
+  <img src="Z:/picture/005/save_picture_735377.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ HDCleaner 2.016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735375.jpg" />
+  <img src="Z:/picture/008/save_picture_735375.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ GeoGebra 6.0.686.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735374.jpg" />
+  <img src="Z:/picture/008/save_picture_735374.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735364.jpg" />
+  <img src="Z:/picture/008/save_picture_735364.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ ApowerREC 1.5.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735357.jpg" />
+  <img src="Z:/picture/008/save_picture_735357.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PreSonus Studio One 5 Professional 5.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735355.jpg" />
+  <img src="Z:/picture/008/save_picture_735355.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ WinTools.net Premium 22.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735351.jpg" />
+  <img src="Z:/picture/008/save_picture_735351.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Sandboxie 5.55.9 / Sandboxie Plus 1.0.9 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735341.jpg" />
+  <img src="Z:/picture/008/save_picture_735341.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.1 Build 6845 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735338.jpg" />
+  <img src="Z:/picture/008/save_picture_735338.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ USB Image Tool 1.82 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735337.jpg" />
+  <img src="Z:/picture/008/save_picture_735337.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Wallpaper Engine 2.0.98 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735291.jpg" />
+  <img src="Z:/picture/008/save_picture_735291.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ FL Studio Producer Edition 20.8.3.2304 + FLEX Extensions RePack by Zom [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735290.jpg" />
+  <img src="Z:/picture/008/save_picture_735290.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ V-Ray 5.20.02 for 3ds Max 2016-2022 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735283.jpg" />
+  <img src="Z:/picture/008/save_picture_735283.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Slimjet 27.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735262.jpg" />
+  <img src="Z:/picture/005/save_picture_735262.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ XYplorer 20.90.0800 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735260.jpg" />
+  <img src="Z:/picture/008/save_picture_735260.jpg" />
 </div>
 
 

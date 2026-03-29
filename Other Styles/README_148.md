@@ -1,3 +1,61 @@
+###  Публикация: 1628842   (237108) от 02.05.2023
+
+ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sunken Paths, Towering Vines (08:02)
+2.Glimmering Depths Below (05:26)
+3.Restoration Magic (07:52)
+4.A Change in the Weather (06:13)(   Читать дальше...   )Жанр: Dungeon Synth,  Medieval AmbientПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574437   (236915) от 06.09.2022
+
+VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souk Criminals - Moroccan Heaven (Arabesque Rework) (4:17)
+02. Bedouin Spirit - Infidel (Jah Debda Sunset Mix) (3:10)
+03. T.I.A.C. - Camel Train (Marrakesh Mix) (4:44)
+04. DJ Ahmed - Nomad's Chant (4:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573649   (236886) от 06.09.2022
 
 VA - Stranger Things: Season 4 (2022) Soundtrack from the Netflix Series [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
@@ -6,7 +64,7 @@ VA - Stranger Things: Season 4 (2022) Soundtrack from the Netflix Series [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236886.jpg" />
+  <img src="Z:/picture/005/save_picture_236886.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235970.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Vitaly Kis (Виталий Кись) - Chromatic Dreams (2007) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235780.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional M
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235120.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ Dropkick Murphys - Turn Up That Dial (2021) Expanded Version [FLAC 2.0|96/44.1/2
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234871.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234170.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossov
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234118.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233762.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233688.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232236.jpg" />
+  <img src="Z:/picture/004/save_picture_232236.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231510.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231073.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231026.jpg" />
+  <img src="Z:/picture/004/save_picture_231026.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230963.jpg" />
+  <img src="Z:/picture/004/save_picture_230963.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230094.jpg" />
+  <img src="Z:/picture/005/save_picture_230094.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Fausto Papetti - Isn't it Saxy? (1988) 2CD [FLAC|image + .cue]<Jazz, Easy Listen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229967.jpg" />
+  <img src="Z:/picture/005/save_picture_229967.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229768.jpg" />
+  <img src="Z:/picture/004/save_picture_229768.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Dolly Parton - Dumplin' (2018) Original Motion Picture Soundtrack [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229679.jpg" />
+  <img src="Z:/picture/004/save_picture_229679.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229245.jpg" />
+  <img src="Z:/picture/004/save_picture_229245.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228782.jpg" />
+  <img src="Z:/picture/005/save_picture_228782.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228780.jpg" />
+  <img src="Z:/picture/005/save_picture_228780.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228730.jpg" />
+  <img src="Z:/picture/005/save_picture_228730.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228439.jpg" />
+  <img src="Z:/picture/005/save_picture_228439.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ VA - Late Night Piano Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228302.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ VA - Late Night Piano Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2851C47D9AB1658B4EAD8113ACA70700378896F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424682   (227805) от 17.11.2020
-
-Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка из моей любимой игры в детстве01. Intro
-02. Ice World
-03. Jungle World
-04. Dream World(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FCB57CDDE32F241BC607C16A98CB620554DF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341646   (227411) от 30.11.2019
-
-Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rudolph The Red Nosed Reindeer
-2. Nine Little Reindeer
-3. Jingle Bells
-4. Here Comes Santa Claus(   Читать дальше...   )Жанр: CountryПродолжительность: 00:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

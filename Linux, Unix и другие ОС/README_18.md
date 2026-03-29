@@ -1,3 +1,57 @@
+###  Публикация: 1315083   (515870) от 17.07.2019
+
+Mageia 7.1 [x86-64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В текущей версии 7.1 исправлен systemd, также проведены обновления безопасности и исправлены замеченные ошибки.
+
+Спустя два года с момента прошлого значительного выпуска опубликован релиз Linux-дистрибутива Mageia 7, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (4 Гб), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1F8579171E30EE35DA3652E9DAA1A080497ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932001   (509954) от 28.08.2015
+
+Tor Browser 5.0.2 [анонимный доступ в сети] [х86, x64] (bundle)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F378E3701EF4250514BB63C76B15C19AAC66EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933240   (506080) от 01.09.2015
 
 Manjaro Linux 0.8.13.1 (Arch + несколько рабочих столов) [i686] 4xDVD, 1xCD
@@ -6,7 +60,7 @@ Manjaro Linux 0.8.13.1 (Arch + несколько рабочих столов) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506080.jpg" />
+  <img src="Z:/picture/008/save_picture_506080.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Debian Linux 8.2 Jessie [i386] 3xDVD + 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499149.jpg" />
+  <img src="Z:/picture/008/save_picture_499149.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Slackel Openbox 6.0.7 Live (Легкий дистрибутив) [x86, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496250.jpg" />
+  <img src="Z:/picture/008/save_picture_496250.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ FreeNAS 8.2.0 [x86, x64] (2xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492820.jpg" />
+  <img src="Z:/picture/008/save_picture_492820.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Debian GNU/Linux 8.6.0 Jessie [i386] 3xDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492169.jpg" />
+  <img src="Z:/picture/008/save_picture_492169.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ GhostBSD 10.1 Ève (Xfce; MATE) [i386, amd64] 4xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491336.jpg" />
+  <img src="Z:/picture/008/save_picture_491336.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ FreeBSD 10.2 [i386, amd64, ia64, powerpc, powerpc64, sparc64] 3xDVD 26xCD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491321.jpg" />
+  <img src="Z:/picture/008/save_picture_491321.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ BackBox Linux v6 [Аудит безопасности, хакинг] [i386, amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490505.jpg" />
+  <img src="Z:/picture/008/save_picture_490505.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ MKVToolNix v6.4.1 ('Omega Point') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478480.jpg" />
+  <img src="Z:/picture/008/save_picture_478480.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ Sabayon 15.09 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477681.jpg" />
+  <img src="Z:/picture/008/save_picture_477681.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Manjaro Linux 2015.9 MATE [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477558.jpg" />
+  <img src="Z:/picture/008/save_picture_477558.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ Pinguy OS 14.04.3 [i686] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477556.jpg" />
+  <img src="Z:/picture/008/save_picture_477556.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ Pinguy OS 14.04.3 [x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477419.jpg" />
+  <img src="Z:/picture/008/save_picture_477419.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ Bodhi Linux 2.4.0 [x86, x86-64] (3xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476115.jpg" />
+  <img src="Z:/picture/008/save_picture_476115.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ Linux Mint 21 Custom Xfce с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475889.jpg" />
+  <img src="Z:/picture/008/save_picture_475889.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ Ubuntu*Pack 20.04 GNOME (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472639.jpg" />
+  <img src="Z:/picture/008/save_picture_472639.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ Ubuntu*Pack 20.04 GNOME Classic (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472637.jpg" />
+  <img src="Z:/picture/008/save_picture_472637.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Ubuntu*Pack 20.04 Budgie (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472545.jpg" />
+  <img src="Z:/picture/008/save_picture_472545.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ Ubuntu*Pack 20.04 (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472542.jpg" />
+  <img src="Z:/picture/008/save_picture_472542.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Ubuntu*Pack 20.04 Cinnamon (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472538.jpg" />
+  <img src="Z:/picture/008/save_picture_472538.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Ubuntu*Pack 20.04 DDE (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472530.jpg" />
+  <img src="Z:/picture/008/save_picture_472530.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ Proxmox VE 4.3 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472503.jpg" />
+  <img src="Z:/picture/008/save_picture_472503.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Tor Browser 5.0.3 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470689.jpg" />
+  <img src="Z:/picture/008/save_picture_470689.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ Debian GNU/Linux 8.2.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470616.jpg" />
+  <img src="Z:/picture/008/save_picture_470616.jpg" />
 </div>
 
 
@@ -632,60 +686,6 @@ Debian GNU/Linux 8.2.0 Jessie Live [i386] 7xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48E5A3AC842DC6EA159C0251A1A59D5562607C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406898   (470519) от 05.09.2020
-
-Ubuntu*Pack 20.04 GNOME Flashback (сентябрь 2020) [amd64] DVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB0CCE60C6EB6D06F9AFEB1427C27BE588E6599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406983   (470424) от 05.09.2020
-
-Ubuntu*Pack 20.04 LXqt / Lubuntu (сентябрь 2020) [amd64] DVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A399D7721D5EA56308B9CD9C334F3C2C2EDBB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

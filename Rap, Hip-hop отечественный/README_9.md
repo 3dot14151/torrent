@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440455.jpg" />
+  <img src="Z:/picture/008/save_picture_440455.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430038.jpg" />
+  <img src="Z:/picture/008/save_picture_430038.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427345.jpg" />
+  <img src="Z:/picture/008/save_picture_427345.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nekby - Алхимия (2015) [MP3|320 кб/с]<Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427304.jpg" />
+  <img src="Z:/picture/008/save_picture_427304.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jahmal TGK, Регион снега - Бархатный сезон (2020) [MP3|
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425475.jpg" />
+  <img src="Z:/picture/008/save_picture_425475.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425192.jpg" />
+  <img src="Z:/picture/008/save_picture_425192.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421400.jpg" />
+  <img src="Z:/picture/005/save_picture_421400.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ N1NT3ND0 (Nintendo) - N1NT3NDO (2011) [MP3|320 kbps]<Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420154.jpg" />
+  <img src="Z:/picture/008/save_picture_420154.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419090.jpg" />
+  <img src="Z:/picture/008/save_picture_419090.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415037.jpg" />
+  <img src="Z:/picture/008/save_picture_415037.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413603.jpg" />
+  <img src="Z:/picture/008/save_picture_413603.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bahh Tee - Осенний Блюз (2011) [MP3|320 kbps]<Rap, Hip-Hop, Lirycs>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413563.jpg" />
+  <img src="Z:/picture/008/save_picture_413563.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410201.jpg" />
+  <img src="Z:/picture/008/save_picture_410201.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408441.jpg" />
+  <img src="Z:/picture/008/save_picture_408441.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408439.jpg" />
+  <img src="Z:/picture/008/save_picture_408439.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408423.jpg" />
+  <img src="Z:/picture/008/save_picture_408423.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Pra(Killa'Gramm) - УЛИЦА ГОВОРИТ (2020) [MP3|320 Kbps] <Hip-Hop, Rap
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408194.jpg" />
+  <img src="Z:/picture/008/save_picture_408194.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408096.jpg" />
+  <img src="Z:/picture/008/save_picture_408096.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407976.jpg" />
+  <img src="Z:/picture/008/save_picture_407976.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Noize MC - Коррозия хип-хопа (2017) Single [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386794.jpg" />
+  <img src="Z:/picture/008/save_picture_386794.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383624.jpg" />
+  <img src="Z:/picture/008/save_picture_383624.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Plc - Новый (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383619.jpg" />
+  <img src="Z:/picture/008/save_picture_383619.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383410.jpg" />
+  <img src="Z:/picture/008/save_picture_383410.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381316.jpg" />
+  <img src="Z:/picture/008/save_picture_381316.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378490.jpg" />
+  <img src="Z:/picture/008/save_picture_378490.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Anacondaz - Я тебя никогда (2018) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377053.jpg" />
+  <img src="Z:/picture/008/save_picture_377053.jpg" />
 </div>
 
 

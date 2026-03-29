@@ -1,3 +1,57 @@
+###  Публикация: 1127495   (731599) от 21.04.2017
+
+Вячеслав Ликсо | Как устроено всё. Детская энциклопедия (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летающие машины тяжелее воздуха невозможны!» – заявил однажды один известный математик, а всего через полтора года оторвался от земли первый самолет братьев Райт. И это лишь один из множества примеров технического прогресса, который не останавливается ни на минуту. Так, на смену простому ножу пришел кухонный комбайн, вентилятор заменили кондиционером, метлу усовершенствовали (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5413737EAAA11C4B0D02CAD95319F1CFACB3ECFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305972   (729083) от 18.04.2011
+
+Disney | DeAgostini | Энциклопедия. Открой мир вокруг себя [2010-2011] [PDF/DJVU] [Обновлено 18.04.2011]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш ребенок хочет узнать, почему больше не существует динозавров? Как извергаются вулканы? Что происходит на Луне? Как летает самолет? Как дышат рыбы? Ему скучно читать об этом в учебниках? «Энциклопедия Disney» докажет, что обучение может быть увлекательным.
+
+В 39 томах энциклопедии, каждый из которых посвящён определённой теме, вас будут сопровождать любимые персонажи. (   Читать дальше...   )Жанр: Энциклопедия, Детская, ПознавательнаяФормат: PDF / DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7747105D42FB604FB24ACD9124912A9672CDD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527793   (728561) от 11.02.2022
 
 А.И. Маркушевич | Что такое? Кто такой? Том 2 (1968) [PDF]
@@ -6,7 +60,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728561.jpg" />
+  <img src="Z:/picture/008/save_picture_728561.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728446.jpg" />
+  <img src="Z:/picture/008/save_picture_728446.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705031.jpg" />
+  <img src="Z:/picture/008/save_picture_705031.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681945.jpg" />
+  <img src="Z:/picture/008/save_picture_681945.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679242.jpg" />
+  <img src="Z:/picture/008/save_picture_679242.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675896.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660915.jpg" />
+  <img src="Z:/picture/008/save_picture_660915.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660116.jpg" />
+  <img src="Z:/picture/008/save_picture_660116.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659922.jpg" />
+  <img src="Z:/picture/008/save_picture_659922.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659918.jpg" />
+  <img src="Z:/picture/008/save_picture_659918.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657263.jpg" />
+  <img src="Z:/picture/008/save_picture_657263.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656300.jpg" />
+  <img src="Z:/picture/008/save_picture_656300.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654032.jpg" />
+  <img src="Z:/picture/008/save_picture_654032.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654012.jpg" />
+  <img src="Z:/picture/008/save_picture_654012.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647309.jpg" />
+  <img src="Z:/picture/008/save_picture_647309.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647173.jpg" />
+  <img src="Z:/picture/008/save_picture_647173.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645230.jpg" />
+  <img src="Z:/picture/008/save_picture_645230.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643551.jpg" />
+  <img src="Z:/picture/008/save_picture_643551.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642852.jpg" />
+  <img src="Z:/picture/008/save_picture_642852.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642848.jpg" />
+  <img src="Z:/picture/008/save_picture_642848.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641630.jpg" />
+  <img src="Z:/picture/008/save_picture_641630.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640895.jpg" />
+  <img src="Z:/picture/008/save_picture_640895.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640508.jpg" />
+  <img src="Z:/picture/008/save_picture_640508.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639778.jpg" />
+  <img src="Z:/picture/008/save_picture_639778.jpg" />
 </div>
 
 
@@ -634,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C2554565AB0747F7EF856B280EE770C0174AF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907027   (639631) от 11.06.2015
-
-Галина Шалаева и др. | Мир животных (2010) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярная энциклопедия «Мир животных» – это сокровищница занимательных и удивительных фактов. Книга содержит ответы на множество вопросов в различных областях знаний, отличается оригинальностью подачи излагаемого материала и большим количеством интересных иллюстраций. Издание рассчитано на широкий круг читателей.Жанр: Биология, ЭнциклопедииФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE4E1B2144F57869D75B479675658064F23B003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907060   (639543) от 11.06.2015
-
-Диана Романовская | Как я устроен (2015) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петя – обыкновенный мальчик. Также как и остальные дети, он иногда болеет. Однажды Петя попал в больницу и там подружился с доктором Толей, который рассказал о захватывающем мире внутри тела и показал этот мир на рисунках. И Петя захотел поделиться своими знаниями со всеми ребятами. На страницах книги мальчик рассказывает, как они – дети – устроены, описывает все (   Читать дальше...   )Жанр: Учебная литература, ЭнциклопедииФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE6151E20DF2ED041373720A83C472AEC72FC13
 ```
 
 https://mybot314.ru/tekegram_catalog/

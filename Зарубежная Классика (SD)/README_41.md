@@ -1,3 +1,81 @@
+###  Публикация: 1391473   (737474) от 22.07.2020
+
+Представитель закона / Lawman (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шериф приезжает в маленький городок, намереваясь арестовать нескольких ковбоев, пристреливших по пьяной лавочке несчастного старика. И, хотя все население городка встречает его с ненавистью и проклятиями, это лишь вызывает улыбку на его лице.Производство: США / Scimitar FilmsЖанр: ВестернРежиссер: Майкл УиннерАктеры: Берт Ланкастер, Роберт Райан, Ли Дж. Кобб, Роберт Дювалл, Шири Норт, Альберт Сэлми, Ричард Джордан, Джон МакГайвер, Ральф Уэйт, Джон БекПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD380C58EC9BA536EA06E26C36D674302F533F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521110   (737263) от 27.01.2022
+
+Девушка в розовом платье / The Girl in the Red Velvet Swing / Девушка на красных бархатных качелях (1955) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатый и знаменитый нью-йоркский 47-летний архитектор Стэнфорд Уайт кладет глаз на 16-летнюю модель и певичку кабаре Эвелин Несбит. Но по достижении девушки 20-летнего возраста на ней женится молодой миллионер Гарри Тау. Но Гарри никак не может обуздать свою ревность, зная о влечении Уайта к его жене. Однажды Гарри замечает в кафе, как Уайт вожделенно смотрит на (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, Криминал, Биография, ИсторияРежиссер: Ричард ФлайшерАктеры: Рэй Милланд, Джоан Коллинз, Фарли Грейнджер, Лютер Эдлер, Корнелия Отис Скиннер, Гленда Фаррелл, Фрэнсис Фуллер, Филип Рид, Гэйл Роббинс, Джеймс ЛаморПеревод: Авторский, Юрий МедведевСубтитры: ОтсутствуютПродолжительность: 01:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6822FABC63C0FE4B78511A429DEE4AC78A6A223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521265   (736860) от 28.01.2022
+
+Навахо Джо / Navajo Joe (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Навахо - единственный выживший в кровавой резне, устроенной в поселении бандой Дункана. В числе прочих жителей была и жена Джо. Он клянется отомстить за смерть любимой и вступает в схватку с Дунканом и его людьми.Производство: Италия, Испания / C.B. Films S.A., Dino de Laurentiis CinematograficaЖанр: ВестернРежиссер: Серджио КорбуччиАктеры: Берт Рейнолдс, Альдо Самбрель, Николетта Макиавелли, Фернандо Рей, Таня Лопер, Франка Полезелло, Лючия Модуньо, Пьер Крессуа, Роберто Паолетти, Нино ИмпаратоПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A6DFC8F36BE6B44805FD07D1B34F28BFF58052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 219932   (735307) от 31.01.2022
 
 Крылышко или ножка / L'aile ou la cuisse / The Wing or The Thigh? (1976) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735307.jpg" />
+  <img src="Z:/picture/008/save_picture_735307.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735170.jpg" />
+  <img src="Z:/picture/008/save_picture_735170.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734412.jpg" />
+  <img src="Z:/picture/008/save_picture_734412.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734374.jpg" />
+  <img src="Z:/picture/008/save_picture_734374.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733917.jpg" />
+  <img src="Z:/picture/008/save_picture_733917.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732865.jpg" />
+  <img src="Z:/picture/008/save_picture_732865.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732860.jpg" />
+  <img src="Z:/picture/008/save_picture_732860.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732441.jpg" />
+  <img src="Z:/picture/008/save_picture_732441.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732426.jpg" />
+  <img src="Z:/picture/008/save_picture_732426.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731874.jpg" />
+  <img src="Z:/picture/008/save_picture_731874.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731730.jpg" />
+  <img src="Z:/picture/008/save_picture_731730.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731637.jpg" />
+  <img src="Z:/picture/008/save_picture_731637.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731443.jpg" />
+  <img src="Z:/picture/008/save_picture_731443.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731255.jpg" />
+  <img src="Z:/picture/008/save_picture_731255.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730587.jpg" />
+  <img src="Z:/picture/008/save_picture_730587.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730488.jpg" />
+  <img src="Z:/picture/008/save_picture_730488.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730472.jpg" />
+  <img src="Z:/picture/008/save_picture_730472.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730371.jpg" />
+  <img src="Z:/picture/008/save_picture_730371.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729682.jpg" />
+  <img src="Z:/picture/008/save_picture_729682.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729387.jpg" />
+  <img src="Z:/picture/008/save_picture_729387.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729384.jpg" />
+  <img src="Z:/picture/008/save_picture_729384.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728804.jpg" />
+  <img src="Z:/picture/008/save_picture_728804.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728581.jpg" />
+  <img src="Z:/picture/008/save_picture_728581.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E920B3619DCD2D6221396A460C81D77886D4E68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018950   (728165) от 02.06.2016
-
-Серафино / Serafino (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728165.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме Челентано создал близкий своему имиджу образ простого деревенского парня, прячущего под напускной дурашливостью, неотесанностью природный острый ум, насмешливую иронию, благородство. Получив наследство, Серафино (Адриано Челентано) раздает деньги односельчанам, спускает с откоса автомобиль, приводит в дом не расчетливую невесту, зарящуюся на наследство, (   Читать дальше...   )Производство: Италия, ФранцияЖанр: КомедияРежиссер: Пьетро ДжермиАктеры: Адриано Челентано, Оттавия Пикколо, Лючана Турино, Саро Урци, Бенжамин Лев, Наццарено Натале, Эрмелинда Де ФеличеПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9449FD7A3A1C41D959BD8C12EBA68A7B3870531C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018916   (728080) от 02.06.2016
-
-Женщины / Les femmes (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый писатель Жером Эрве всю жизнь пишет романы о своих женщинах. Женщинам он посвятил лучшие часы своей жизни. Женщины принесли ему славу, богатство и приключения. Но однажды Жером понимает, что ему осточертели все его женщины. Они его обожают. Они хотят замуж. Они все время доступны. И Жорж бежит, прихватив с собой новую секретаршу. Мог ли он знать, что Клара (   Читать дальше...   )Производство: Италия, ФранцияЖанр: КомедияРежиссер: Жан ОрельАктеры: Брижит Бардо, Морис Роне, Жан-Пьер Марьель, Анни Дюпере, Кристина Холм, Жоель Лятур, Таня Лоперт ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB587EC7DDCD6C78264649900D1A3BF4981428E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019016   (727350) от 03.06.2016
-
-Белые телефоны / Telefoni bianchi (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ироническая комедия о симпатичной и доступной Мачелле, которая, в погоне за счастьем и в стремлении стать кинозвездой, готова стать любовницей самого Муссолини. Но до этого ей придется переспать не с одним негодяем продюсером, побывать в доме терпимости и научиться петь...Производство: ИталияЖанр: КомедияРежиссер: Дино РизиАктеры: Агостина Белли, Коки Понзони, Маурицио Арена, Вильям Бергер, Лино Тоффоло, Витторио Гассман, Уго Тоньяцци, Паоло Барони, Карла Терлицци, Элеонора Морана, Марселло Фуско, Лаура Троттер, Энрико Марчани, Джованни БрусадориПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8341B1ADDEAADA0B7A5FFC1BCE250D3FBA4DDFB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

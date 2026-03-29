@@ -1,3 +1,29 @@
+###  Публикация: 1781237   (26789) от 22.02.2025
+
+Patephone / Патефон v14.6.3 Mod by OsitKP [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26789.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашем приложении для ценителей литературы вы найдете тысячи аудиокниг и радиоспектаклей зарубежных и отечественных авторов. У нас есть аудиокниги любых жанров — это фантастика и триллеры, мистика и приключения, детективы и классика. Нами собрана великолепная коллекция аудиоспектаклей и сказок для детей, книги для детей на ночь, аудиосказки и веселые истории — приглашение (   Читать дальше...   )Тип издания: Mod LiteРелиз состоялся: 19.02.2025Разработчик: AnyreadsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A774452B2CCD68C31DED819F011EB99E21A26424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744286   (26761) от 23.02.2025
 
 Худеем дома за 30 дней v3.06 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26761.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.43.8 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26705.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Rosetta Stone: Learn, Practice 8.31.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26657.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ HiPER Calc Pro v11.0.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26569.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ IPTV Pro v9.0.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26497.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26470.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ TikTok 38.8.3 Mod by Dmitry Nechiporenko + Plugin 1.71 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26457.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Polarr v6.10.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26039.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Shazam v15.11.0-250220 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26031.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NewPipe v0.27.6 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25979.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ GPS Compass Navigator v2.20.28 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25975.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Solid Explorer File Manager v2.8.59 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25943.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25899.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.60
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25886.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Folder Player Pro v5.31 b338 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25869.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Shazam v15.11.0-250225 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25829.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25790.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Jigsawscapes® - Пазлы v3.7.10 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25609.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ GPS Compass Navigator v2.20.33 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25559.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.15 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25549.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Magic Eraser / Магический ластик v2.20.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25519.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Smart AudioBook Player Pro v11.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25388.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25380.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Screenshot touch v2.4.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25345.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25330.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.7 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA6BF63AB18525E886D78482EA9A3EB5E152CA0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772856   (25328) от 08.03.2025
-
-Photo Editor v11.4 Pro Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Editor - уникальная программа для обработки качественных фотографий. Настройка цвета, различные эффекты, поворот, обрезка, изменение размера, рамки, а также возможность рисовать прямо на фото. Настройка цвета включает в себя тон, насыщенность, контраст, яркость. Вдобавок Photo Editor предлагает множество эффектов для фотографий, включая гамма-коррекцию, автоконтраст, (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 05.03.2025Разработчик: dev.macgyverПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAE708B564087EA71842662B9AA02ED15E7F3F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

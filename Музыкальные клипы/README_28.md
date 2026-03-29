@@ -1,3 +1,81 @@
+###  Публикация: 577908   (358028) от 19.11.2012
+
+Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577501   (357663) от 19.11.2012
+
+Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A5DA3D1739FC818788EA452AD3B9B2C8C19ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577872   (357517) от 19.11.2012
+
+Игорь Горин (Сhiliбомберс) - Дед Лосось (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B938B13A4FACA98A15F43F61570A2694822BB88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577867   (357402) от 19.11.2012
 
 Иван Дорн - Идолом (2012)  [H.264/1080p] WEB-DLRip
@@ -6,7 +84,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357402.jpg" />
+  <img src="Z:/picture/008/save_picture_357402.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357396.jpg" />
+  <img src="Z:/picture/008/save_picture_357396.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357388.jpg" />
+  <img src="Z:/picture/008/save_picture_357388.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355490.jpg" />
+  <img src="Z:/picture/008/save_picture_355490.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ VA - Осенний марафон № 201 / Видеоклипы (Популя�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353150.jpg" />
+  <img src="Z:/picture/008/save_picture_353150.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350586.jpg" />
+  <img src="Z:/picture/008/save_picture_350586.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350427.jpg" />
+  <img src="Z:/picture/008/save_picture_350427.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348212.jpg" />
+  <img src="Z:/picture/008/save_picture_348212.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347839.jpg" />
+  <img src="Z:/picture/008/save_picture_347839.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345434.jpg" />
+  <img src="Z:/picture/008/save_picture_345434.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345255.jpg" />
+  <img src="Z:/picture/008/save_picture_345255.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ VA - Осенний марафон № 202 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344068.jpg" />
+  <img src="Z:/picture/008/save_picture_344068.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ ZAZ (2010-2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342779.jpg" />
+  <img src="Z:/picture/008/save_picture_342779.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341230.jpg" />
+  <img src="Z:/picture/008/save_picture_341230.jpg" />
 </div>
 
 
@@ -390,7 +468,7 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340940.jpg" />
+  <img src="Z:/picture/008/save_picture_340940.jpg" />
 </div>
 
 
@@ -416,7 +494,7 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340462.jpg" />
+  <img src="Z:/picture/008/save_picture_340462.jpg" />
 </div>
 
 
@@ -442,7 +520,7 @@ Suzi Quatro (vol.1) (2012) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340453.jpg" />
+  <img src="Z:/picture/008/save_picture_340453.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ Suzi Quatro (vol.2) (2012) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340347.jpg" />
+  <img src="Z:/picture/008/save_picture_340347.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Leanna Decker - Killer (2011) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340212.jpg" />
+  <img src="Z:/picture/008/save_picture_340212.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338054.jpg" />
+  <img src="Z:/picture/008/save_picture_338054.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337927.jpg" />
+  <img src="Z:/picture/008/save_picture_337927.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337699.jpg" />
+  <img src="Z:/picture/008/save_picture_337699.jpg" />
 </div>
 
 
@@ -604,7 +682,7 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336896.jpg" />
+  <img src="Z:/picture/008/save_picture_336896.jpg" />
 </div>
 
 
@@ -618,88 +696,6 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D93412983FD35869BBD634A350AA84010B587A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416369   (335342) от 30.10.2020
-
-Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клипа) <Nu-Metal> [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Korn - Can You Hear Me
-02 Korn - Finally FreeЖанр: ChansonПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC25F87ED6F0612E3F993200236CA166EDA42AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955961   (330833) от 13.11.2015
-
-VA - Осенний марафон № 204 / Видеоклипы (Дискотека с размахом № 3) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (12.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Do It For Love (Official Video) (00:03:11)
-02. Alexander Rybak ft. Pernille Hogstad Stene - Venner fra fortellingen om Trolle (Official Video) (00:03:29)
-03. Betta - Maria Magdalena (Official Video) (00:03:49)
-04. Chris Largo ft. Orry Jackson - I Want U Now (Official Video) (00:03:36)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Rap, Indie, RockПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44FD63235359B20973236D7159B5ABDED14C12C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412703   (328500) от 23.11.2011
-
-Виктория Дайнеко - Видеография (2005 - 2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальное видео, клипы, концерт, POPПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEB12717970C0C8FE091A3924DA8FF058D4BF6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ RogueKiller Anti-Malware 15.3.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716389.jpg" />
+  <img src="Z:/picture/008/save_picture_716389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Exif Pilot 6.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716384.jpg" />
+  <img src="Z:/picture/008/save_picture_716384.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ K-Lite Codec Pack Update 13.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716330.jpg" />
+  <img src="Z:/picture/008/save_picture_716330.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Remote Desktop Manager Enterprise 2022.1.12.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716325.jpg" />
+  <img src="Z:/picture/008/save_picture_716325.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Blackmagic Design Fusion Studio 17.4.4 Build 5 (x64) Portable by rsloadNET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716321.jpg" />
+  <img src="Z:/picture/008/save_picture_716321.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Extreme Picture Finder 3.34.1.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716315.jpg" />
+  <img src="Z:/picture/008/save_picture_716315.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FreeCommander XE 2022 Build 865 donor x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716314.jpg" />
+  <img src="Z:/picture/008/save_picture_716314.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SSDReporter 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716311.jpg" />
+  <img src="Z:/picture/008/save_picture_716311.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Disk Drill Entreprise 3.1.817 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716306.jpg" />
+  <img src="Z:/picture/008/save_picture_716306.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Notability 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716304.jpg" />
+  <img src="Z:/picture/008/save_picture_716304.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Boom 2 v1.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716279.jpg" />
+  <img src="Z:/picture/008/save_picture_716279.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Waltr 2 v2.6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716273.jpg" />
+  <img src="Z:/picture/008/save_picture_716273.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ SQLPro Studio 1.0.419 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716266.jpg" />
+  <img src="Z:/picture/008/save_picture_716266.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Internet Download Manager 6.28 Build 8 RePack by KpoJIuK (01.05.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716252.jpg" />
+  <img src="Z:/picture/008/save_picture_716252.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tweetbot for Twitter 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716244.jpg" />
+  <img src="Z:/picture/008/save_picture_716244.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Wondershare Filmora 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716241.jpg" />
+  <img src="Z:/picture/008/save_picture_716241.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ DesktopDigitalClock 4.1.6 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716237.jpg" />
+  <img src="Z:/picture/008/save_picture_716237.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Display Driver Uninstaller 18.0.4.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716234.jpg" />
+  <img src="Z:/picture/008/save_picture_716234.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ One Commander 3.4.36.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716225.jpg" />
+  <img src="Z:/picture/008/save_picture_716225.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Digital Clock 4.7.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716221.jpg" />
+  <img src="Z:/picture/008/save_picture_716221.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716217.jpg" />
+  <img src="Z:/picture/008/save_picture_716217.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716216.jpg" />
+  <img src="Z:/picture/008/save_picture_716216.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Blocs 2.0.7 (116) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716211.jpg" />
+  <img src="Z:/picture/008/save_picture_716211.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716181.jpg" />
+  <img src="Z:/picture/008/save_picture_716181.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716160.jpg" />
+  <img src="Z:/picture/008/save_picture_716160.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Ish - Structures of Mind (2017) [MP3|320 Kbps] <IDM, Electro, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716156.jpg" />
+  <img src="Z:/picture/008/save_picture_716156.jpg" />
 </div>
 
 

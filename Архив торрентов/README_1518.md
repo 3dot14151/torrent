@@ -6,7 +6,7 @@ EZ CD Audio Converter 10.0.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707049.jpg" />
+  <img src="Z:/picture/008/save_picture_707049.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GForce Software Oberheim OB-E 2.0 Standalone, VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707044.jpg" />
+  <img src="Z:/picture/008/save_picture_707044.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sine Mora 1.33 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707029.jpg" />
+  <img src="Z:/picture/008/save_picture_707029.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Vince Watson - Moments In Time (2002) [MP3|320 Kbps] <Techno, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707027.jpg" />
+  <img src="Z:/picture/008/save_picture_707027.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Positive Prototype (2005) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707025.jpg" />
+  <img src="Z:/picture/008/save_picture_707025.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ VueScan Pro 9.6.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707021.jpg" />
+  <img src="Z:/picture/008/save_picture_707021.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Pepakura Designer 4.1.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707015.jpg" />
+  <img src="Z:/picture/008/save_picture_707015.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alien Skin Exposure X4 Bundle 4.0.7.179 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707008.jpg" />
+  <img src="Z:/picture/008/save_picture_707008.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Save.Me 2.2.0 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707005.jpg" />
+  <img src="Z:/picture/008/save_picture_707005.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lyn 1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706992.jpg" />
+  <img src="Z:/picture/008/save_picture_706992.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mirillis Splash v2.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706982.jpg" />
+  <img src="Z:/picture/008/save_picture_706982.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ uTorrent 3.5.5 Build 45776 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706975.jpg" />
+  <img src="Z:/picture/008/save_picture_706975.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ GeoGebra 6.0.526 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706970.jpg" />
+  <img src="Z:/picture/008/save_picture_706970.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706960.jpg" />
+  <img src="Z:/picture/008/save_picture_706960.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706957.jpg" />
+  <img src="Z:/picture/008/save_picture_706957.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Nelver - Morning Jam (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706951.jpg" />
+  <img src="Z:/picture/008/save_picture_706951.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Macca & Loz Contreras - Better World (2017) LP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706950.jpg" />
+  <img src="Z:/picture/008/save_picture_706950.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706946.jpg" />
+  <img src="Z:/picture/008/save_picture_706946.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706944.jpg" />
+  <img src="Z:/picture/008/save_picture_706944.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Actraiser - Focal Point / Galactic Tides (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706943.jpg" />
+  <img src="Z:/picture/008/save_picture_706943.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706940.jpg" />
+  <img src="Z:/picture/008/save_picture_706940.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706939.jpg" />
+  <img src="Z:/picture/008/save_picture_706939.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706936.jpg" />
+  <img src="Z:/picture/008/save_picture_706936.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SiSoftware Sandra Lite 20/21-R10 (версия 31.76) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706926.jpg" />
+  <img src="Z:/picture/008/save_picture_706926.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Mirillis Splash 2.6.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706911.jpg" />
+  <img src="Z:/picture/008/save_picture_706911.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Viber 10.2.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706909.jpg" />
+  <img src="Z:/picture/008/save_picture_706909.jpg" />
 </div>
 
 

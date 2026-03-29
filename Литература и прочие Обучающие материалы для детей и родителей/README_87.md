@@ -1,3 +1,134 @@
+###  Публикация: 988741   (919248) от 21.02.2016
+
+Бранко Чопич | Ноги в поле, голова на воле (1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга югославского писателя Бранко Чопича с его воспоминаниями о далеком детстве, проведенном им в маленькой глухой деревушке, о деревенской школе, о друзьях детства и одноклассниках. Повесть написана очень живо, с большим юмором и любовью к народным обрядам и обычаям, и давно стала любимым чтением югославских ребят. Перевод выполнен по изданию 1971 года.Жанр: Детская прозаПеревод: Татьяна ВиртаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542C7D9C062E22D129FDEF6B5B00A535C33CD073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096509   (919243) от 24.01.2017
+
+Светлана Воронцова, Александр Лавров | Грибы в лукошке (1987) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие ребята! Эта книжка познакомит вас с грибами - съедобными и ядовитыми. Вы узнаете, как они выглядят и где любят расти. Раскрашивая рисунки, запоминайте, какие грибы можно положить в корзинку, а какие нельзя.Жанр: Образование, обучение и развитие детейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7905F42EB937A3AC44BD014A24D610EB85539DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989085   (919177) от 21.02.2016
+
+А. Дорохов | Сто послушных рук (1954) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о чудесах техники. Только чудом это казалось во времена выхода книги из печати. Телевизор, холодильник, пылесос и двухколесный детский велосипед для большинства были несбыточной мечтой.
+   А о таком агрегате, как бытовая стиральная машина, автор тогда похоже вообще не слышал. Тем не менее, именно тогда были осуществлены проекты, которые и сейчас поражают своим (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC66E211FEE03C4EA1574396A0EC3625F87528AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490430   (919010) от 20.08.2021
+
+Алла Пономарева | Готовим руку к письму: для детей 4-5 лет (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга составлена в соответствии с новым Федеральным государственным образовательным стандартом дошкольного образования и воспитания и станет отличным помощником в обучении и развитии детей 4–5 лет. Занимаясь по книге, малыш будет рисовать наклонные, волнообразные и спиралевидные линии, что подготовит его руку к выполнению более сложных заданий, таких как «дорисуй (   Читать дальше...   )Жанр: Рабочая тетрадь/Развивающая литература для дошкольниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE1D99DFF270446A985C61EE6E21E970C044235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864676   (918834) от 30.01.2015
+
+Борис Алмазов | Я иду искать (1982) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой приключенческой повести, посвященной славному юбилею пионерии, рассказывается о красных следопытах, о том, как разыскивая героев, ребята взрослеют, набираются знаний, становятся патриотами своей Родины.Жанр: Детская проза, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A0D07013CD43270637BBCAC6ABA9B8B1D23596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367035   (918764) от 14.03.2020
 
 Вячеслав Волков | Ножи. Иллюстрированный путеводитель (2016) [PDF]
@@ -6,7 +137,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918764.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918637.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918631.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918429.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_918341.jpg" />
+  <img src="Z:/picture/008/save_picture_918341.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918186.jpg" />
 </div>
 
 
@@ -167,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917976.jpg" />
 </div>
 
 
@@ -193,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917724.jpg" />
 </div>
 
 
@@ -220,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917659.jpg" />
 </div>
 
 
@@ -247,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917574.jpg" />
 </div>
 
 
@@ -274,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917568.jpg" />
 </div>
 
 
@@ -300,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917537.jpg" />
 </div>
 
 
@@ -326,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917402.jpg" />
 </div>
 
 
@@ -353,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917395.jpg" />
 </div>
 
 
@@ -382,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917394.jpg" />
 </div>
 
 
@@ -408,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917363.jpg" />
 </div>
 
 
@@ -434,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917351.jpg" />
 </div>
 
 
@@ -461,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917338.jpg" />
 </div>
 
 
@@ -488,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917317.jpg" />
 </div>
 
 
@@ -517,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917273.jpg" />
 </div>
 
 
@@ -543,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917260.jpg" />
 </div>
 
 
@@ -554,138 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797DA6506358836D3FB5C86E801291FD42E89681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096837   (917257) от 25.01.2017
-
-Детская литература | Русские народные сказки (1971) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Особенности русских народных сказок.
-Сказки на Руси известны с древних времен. В древней письменности есть сюжеты, мотивы и образы, напоминающие сказочные. Рассказывание сказок – старый русский обычай. Еще в давние времена исполнение сказок было доступно каждому: и мужчинам, и женщинам, и детям, и взрослым. Были такие люди, которые берегли и развивали свое сказочное (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D7C44208C474D032E2908D4FFF34C732D63AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367482   (917148) от 15.03.2020
-
-Ханс Кристиан Андерсен | Сказки. Истории (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917148.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли сказки и истории великого датского писателя Х. К. Андерсена, принесшие ему мировую славу.Жанр: Зарубежная литература для детей, Сказки народов мираФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70E32688D7ADABDB89AE37CDDAA45C084DD0C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989495   (916983) от 22.02.2016
-
-В.В Богданов, С.Н. Попова | Истории обыкновенных вещей (1992) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга в увлекательной форме рассказывает обо всех тех вещах, которые стали неотъемлемой частью нашей повседневной жизни. Десятки, сотни вещей вокруг. Одни сопровождают нас всю жизнь, другие — только ее маленький отрезок. Многие вещи настолько сживаются с нами, что по ним можно определить наши привычки. Цель книги — расширить представление детей об окружающем мире, (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A8FC17383556FA60D4CF5E6EFA843054049343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490635   (916970) от 21.08.2021
-
-Е. Комиссарова (отв.ред.) | Игрополис. Самые знаменитые игры для веселой компании (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собираешься в путешествие с друзьями? Устраиваешь большую вечеринку? Или просто ждешь гостей? Захвати с собой эту книгу! В ней собраны самые знаменитые игры для веселой компании. Это настоящая классика жанра. Тебя ждут самые убойные фанты, оригинальные задания для игры «Правда или вызов», таинственные загадки-данетки и многое другое! Хорошее настроение гарантировано!Жанр: Игры/ГоловоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB2720A263D4D17DD1BD3D5075DA0F7CB526388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989654   (915911) от 23.02.2016
-
-Семен Григорьев | Этиккан и Селиме (1962) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок.
-Для детей дошкольного и младшего школьного возраста.Жанр: СказкаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC89F989109DCC78FC3075C56ECCE5E34DD83371
 ```
 
 https://mybot314.ru/tekegram_catalog/

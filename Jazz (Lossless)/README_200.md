@@ -1,3 +1,119 @@
+###  Публикация: 1068697   (378527) от 02.11.2016
+
+John Hicks, Elise Wood, Walter Booker - Single Petal of a Rose (1994) Mapleshade Productions[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sometime Ago [05:27]
+ 02.Infant Eyes [08:46]
+ 03.Yes or No [04:17]
+ 04.Ballad of Black Man [03:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E738D7D9B051EEE4ABA0596479F3A19AE6AF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068704   (378525) от 02.11.2016
+
+Ernestine Anderson - Nightlife: Live at Dizzy's Club Coca-Cola (2011) HighNote Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Love Being Here with You [05:59]
+ 02.Since I Fell for You [05:23]
+ 03.All Blues [07:28]
+ 04.Goin' to Chicago Blues [05:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067204E6685BEBF43754F7DA0853C5914589930F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068692   (378457) от 02.11.2016
+
+Andre Previn - Alone: Ballads For Solo Piano (2007) Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Angel Eyes [03:43]
+ 02.Second Time Around [03:20]
+ 03.André's Blues [02:22]
+ 04.Darkest Before The Dawn [02:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6775F1FA86B1CDFEA5752C7BC80D5BF92B63B7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068838   (378456) от 02.11.2016
+
+Art Pepper & Conte Candoli - Mucho Calor (1957) 1987, V.S.O.P. Records[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mucho Calor [06:56]
+ 02.Autumn Leaves [03:08]
+ 03.Mambo de la Pinta [05:31]
+ 04.I'll Remember April [02:23](   Читать дальше...   )Жанр: West Coast Jazz, Latin JazzПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08563470E7062DB50304A1FC01B1CA6F3BC62A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068693   (378453) от 02.11.2016
 
 Wild Carrot with Hank Ross - I've Heard That Song Before (2008) Falling Mountain Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -6,7 +122,7 @@ Wild Carrot with Hank Ross - I've Heard That Song Before (2008) Falling Mountain
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378453.jpg" />
+  <img src="Z:/picture/008/save_picture_378453.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Paolo Fresu & Omar Sosa - Eros (2016) Tuk Music[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378449.jpg" />
+  <img src="Z:/picture/008/save_picture_378449.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jeanne Lee & Ran Blake - The Legendary Duets (1961) 1987, Bluebird[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378448.jpg" />
+  <img src="Z:/picture/008/save_picture_378448.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sir Roland Hanna Trio - Milano, Paris, New York finding John Lewis (2003) Venus 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378315.jpg" />
+  <img src="Z:/picture/008/save_picture_378315.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Coltrane - Lush Life (1957) Reissue, Remastered, 1997, DCC [WavPack|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_378260.jpg" />
+  <img src="Z:/picture/005/save_picture_378260.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377754.jpg" />
+  <img src="Z:/picture/005/save_picture_377754.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Seri
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377705.jpg" />
+  <img src="Z:/picture/008/save_picture_377705.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377695.jpg" />
+  <img src="Z:/picture/008/save_picture_377695.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ The Four Freshmen - Day By Day (1962) 1994, Hindsight Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377630.jpg" />
+  <img src="Z:/picture/008/save_picture_377630.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Sainkho / Ned Rothenberg - Amulet (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377629.jpg" />
+  <img src="Z:/picture/008/save_picture_377629.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Dan Siegel - Indigo (2014) /M&I Jazz/[FLAC|tracks+.cue]<Smooth Jazz, Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377587.jpg" />
+  <img src="Z:/picture/008/save_picture_377587.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - Smooth Jazz Relaxing (2015) [FLAC|tracks]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377417.jpg" />
+  <img src="Z:/picture/008/save_picture_377417.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Stan Getz - The Girl from Ipanema - The Bossa Nova Years (1984) 4CD, 1989, Verve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377387.jpg" />
+  <img src="Z:/picture/008/save_picture_377387.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Grant Green - Slick! Live At Oil Can Harry's (1975) 2018, Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376848.jpg" />
+  <img src="Z:/picture/008/save_picture_376848.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Kei Kobayashi - Softly (2002) Somethin' Else [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376784.jpg" />
+  <img src="Z:/picture/008/save_picture_376784.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Sammy Davis, Jr. - The Definitive Collection (1950-e - 1970-e) 2006, Hip‐O Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376781.jpg" />
+  <img src="Z:/picture/008/save_picture_376781.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Jimmy Smith - The Fantastic Jimmy Smith (1953, 1954) 2002, Empire Music Group [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376780.jpg" />
+  <img src="Z:/picture/008/save_picture_376780.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Jazz Grooves: Best of MapleShade, vol.3 (2010) MapleShade Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376779.jpg" />
+  <img src="Z:/picture/008/save_picture_376779.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376774.jpg" />
+  <img src="Z:/picture/008/save_picture_376774.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376635.jpg" />
+  <img src="Z:/picture/008/save_picture_376635.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Simone Kopmajer - Moonlight Serenade (2004) Venus Records[FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375953.jpg" />
+  <img src="Z:/picture/008/save_picture_375953.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375443.jpg" />
+  <img src="Z:/picture/005/save_picture_375443.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575576   (375407) от 10.09.2022
-
-Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakfast at the Epiphany [0:16]
-02. Cafe Reggio [6:06]
-03. I Told You [4:30]
-04. Never Can Say Goodbye [5:06](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1C65F12C24033E95D61034F699318654297D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575439   (375403) от 10.09.2022
-
-Catherine Russell - Send For Me (2022) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Did I Remember [3:27]
-02. Send for Me [4:44]
-03. At the Swing Cats Ball [3:04]
-04. Make It Last [4:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFFEC2C85CFA7586D6FB652048F9CDEB0EEC6FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254281   (375085) от 13.10.2018
-
-Paul Hardcastle - Hardcastle 8 (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill'n'Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amber Sky
-02. Turn Down The Heat
-03. Happy Go Lucky
-04. Stay In The Moment(   Читать дальше...   )Жанр: Smooth Jazz, Chill'n'LoungeПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D7FD10BE29DFE00A9169B9931B60DB2FBF6B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175995   (374571) от 20.10.2017
-
-Ernestine Anderson - Blues, Dues & Love News (1996) Qwest Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me [04:31]
-02. All Blues [07:34]
-03. How Can I Sing a Love Song [04:27]
-04. You Were Always on My Mind [04:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665638F573A14E7C6FB0C78CCF45AC91EFA19E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1408432   (455903) от 12.09.2020
+
+Битва дизайнеров (12.09.2020) WEB-DL [H.264/1080p-LQ] (выпуск 10)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайнеры со всей страны соберутся, чтобы выяснить, кто из них лучший! У каждого будет комната площадью 5 квадратных метров, двое рабочих, бюджет 70 тысяч рублей и 8 часов, чтобы реализовать свой проект. Тех дизайнеров, которые пройдут проверку, будет ждать второе задание – ремонт в настоящей квартире. Кто из дизайнеров лучше других справится с задачей? Кому доверят (   Читать дальше...   )Телекомпания: ИП «Кочуков Станислав Андреевич» по заказу АО «ТНТ-Телесеть»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E2919394F56495DAFA7EA02EDE02F86615A454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060567   (455305) от 07.10.2016
 
 Вечерний Ургант (2016.10.07) SATRip (cезон 10, выпуск 25)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455305.jpg" />
+  <img src="Z:/picture/008/save_picture_455305.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454959.jpg" />
+  <img src="Z:/picture/008/save_picture_454959.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454052.jpg" />
+  <img src="Z:/picture/008/save_picture_454052.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453965.jpg" />
+  <img src="Z:/picture/008/save_picture_453965.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453538.jpg" />
+  <img src="Z:/picture/008/save_picture_453538.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453394.jpg" />
+  <img src="Z:/picture/008/save_picture_453394.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453233.jpg" />
+  <img src="Z:/picture/008/save_picture_453233.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453082.jpg" />
+  <img src="Z:/picture/008/save_picture_453082.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452619.jpg" />
+  <img src="Z:/picture/008/save_picture_452619.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451749.jpg" />
+  <img src="Z:/picture/008/save_picture_451749.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451743.jpg" />
+  <img src="Z:/picture/008/save_picture_451743.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450978.jpg" />
+  <img src="Z:/picture/008/save_picture_450978.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450449.jpg" />
+  <img src="Z:/picture/008/save_picture_450449.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448702.jpg" />
+  <img src="Z:/picture/008/save_picture_448702.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447460.jpg" />
+  <img src="Z:/picture/008/save_picture_447460.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447459.jpg" />
+  <img src="Z:/picture/008/save_picture_447459.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447209.jpg" />
+  <img src="Z:/picture/008/save_picture_447209.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446350.jpg" />
+  <img src="Z:/picture/008/save_picture_446350.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446207.jpg" />
+  <img src="Z:/picture/008/save_picture_446207.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445502.jpg" />
+  <img src="Z:/picture/008/save_picture_445502.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445459.jpg" />
+  <img src="Z:/picture/008/save_picture_445459.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444632.jpg" />
+  <img src="Z:/picture/008/save_picture_444632.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444468.jpg" />
+  <img src="Z:/picture/008/save_picture_444468.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444296.jpg" />
+  <img src="Z:/picture/008/save_picture_444296.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444286.jpg" />
+  <img src="Z:/picture/008/save_picture_444286.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A357EFEA324ADA0B148402CFA6BA32CF603F9355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944210   (443097) от 06.10.2015
-
-Вечерний Ургант. Сезон №8. Выпуск №20 (2015.10.05) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED85EE6A1F98A5A6DBC449F1772651ECB2070BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

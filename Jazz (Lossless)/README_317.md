@@ -1,3 +1,119 @@
+###  Публикация: 1710264   (112716) от 26.03.2024
+
+Antonio Sanchez - Live In New York At Jazz Standard (2008) 2CD, 2010, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Will Be Better (Once People Get Here) [13:36]
+02. Did You Get It [17:53]
+03. The Forgotten Ones [7:35]
+04. Challenge Within [20:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23132ACAEB3C14BC1E6111AD12FCF8887B24FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710494   (112642) от 27.03.2024
+
+Ramsey Lewis - Sky Islands (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julia [5:21]
+02. Apres Vous [4:15]
+03. Who Are You [7:22]
+04. Suavecito [4:55](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5E703C8DB01416BAEAA70F30402DCCEA776FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710798   (112567) от 28.03.2024
+
+Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus One [3:45]
+02. Honeysuckle Rose [3:49]
+03. Sweet Georgia Brown [5:11]
+04. Four Brothers/P Town [4:10](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A28FF6B0466BE1FE38F6DA54EBD5CC6A51FC48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710801   (112566) от 28.03.2024
+
+Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [3:25]
+02. Coquette [3:33]
+03. I'm in the Mood for Love [7:13]
+04. It Don't Mean a Thing [3:08](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DFD54935687B3977F39A37FF958EFB7F8961B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711272   (112531) от 29.03.2024
 
 Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
@@ -6,7 +122,7 @@ Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112531.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112530.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112451.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112436.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Mop Mop - Ritual Of The Savage (2010) [FLAC|Lossless|image + .cue] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112435.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112333.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112329.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112252.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ben Webster - Live! Providence, Rhode Island (1963) 1994, Storyville Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112170.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Grover Washington, Jr. - Time Out Of Mind (1989) [FLAC|Lossless|image + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112165.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112072.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112003.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111986.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Chris Standring - As We Think (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111890.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Rob Van Bavel Trio - The Ghost, The King And I (2010) 2CD, 2023, Apollon & Evter
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111876.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Gene Krupa - 1940, Vol. 2 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111869.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tadaaki Misago & Tokyo Cuban Boys - Holiday in Tsugaru / Memories of Japan (1966
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111861.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111800.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111780.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111778.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Melody Gardot - Sayonara Meu Amor (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111775.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111761.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Makoto Ozone - Spring Is Here (1987) Sony [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC05A7BB1668BDDCBA9FE988E844387005A8627C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714071   (111759) от 08.04.2024
-
-Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Time for Love [4:24]
-02. The Girl Next Door [5:33]
-03. Emily [4:17]
-04. My One and Only Love [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6ABC329504B29B921CD9B65590EC47C3246F0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714379   (111730) от 09.04.2024
-
-Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Road (Olee, Variations and Song, Open Road) [16:00]
-02. Lament [5:04]
-03. We'll Be Together Again [5:05]
-04. You Don't Know What Love Is [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714377   (111728) от 09.04.2024
-
-Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon and Sand [6:30]
-02. My Ship [6:37]
-03. For Once in My Life [4:23]
-04. U.M.M.G. [3:01](   Читать дальше...   )Жанр: Latin Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C552D6D5FDA144C253CB795453A49C35C3C65E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714382   (111719) от 09.04.2024
-
-Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Birdland [2:23]
-02. What Is There to Say [2:54]
-03. Try a Little Tenderness [3:05]
-04. Spring Is Here [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D76761384FB677759CFD6B0FA8CFE7ECF6F4F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1319549   (480920) от 13.08.2019
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (262) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D1C67DDC00155208C9A83C3AD546555EC03B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546154   (480745) от 12.09.2012
 
 Водопады и Город Будущего (11.09.12) [Wallpapers]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480745.jpg" />
+  <img src="Z:/picture/008/save_picture_480745.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480456.jpg" />
+  <img src="Z:/picture/008/save_picture_480456.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sandra Duchiewicz — концептуальная художница и илл�
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480454.jpg" />
+  <img src="Z:/picture/008/save_picture_480454.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480393.jpg" />
+  <img src="Z:/picture/008/save_picture_480393.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480382.jpg" />
+  <img src="Z:/picture/008/save_picture_480382.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480284.jpg" />
+  <img src="Z:/picture/008/save_picture_480284.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480218.jpg" />
+  <img src="Z:/picture/008/save_picture_480218.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480214.jpg" />
+  <img src="Z:/picture/008/save_picture_480214.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ LEV Icons Pack by KSV [Графика]
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480198.jpg" />
+  <img src="Z:/picture/008/save_picture_480198.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ SGX Icons pack by KSV [Графика]
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480194.jpg" />
+  <img src="Z:/picture/008/save_picture_480194.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480132.jpg" />
+  <img src="Z:/picture/008/save_picture_480132.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480014.jpg" />
+  <img src="Z:/picture/008/save_picture_480014.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479905.jpg" />
+  <img src="Z:/picture/008/save_picture_479905.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479882.jpg" />
+  <img src="Z:/picture/008/save_picture_479882.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479876.jpg" />
+  <img src="Z:/picture/008/save_picture_479876.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479870.jpg" />
+  <img src="Z:/picture/008/save_picture_479870.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479792.jpg" />
+  <img src="Z:/picture/008/save_picture_479792.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479686.jpg" />
+  <img src="Z:/picture/008/save_picture_479686.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479683.jpg" />
+  <img src="Z:/picture/008/save_picture_479683.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479678.jpg" />
+  <img src="Z:/picture/008/save_picture_479678.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478869.jpg" />
+  <img src="Z:/picture/008/save_picture_478869.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478433.jpg" />
+  <img src="Z:/picture/008/save_picture_478433.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478314.jpg" />
+  <img src="Z:/picture/008/save_picture_478314.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477767.jpg" />
+  <img src="Z:/picture/008/save_picture_477767.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Nature Wallpapers (14.09.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477059.jpg" />
+  <img src="Z:/picture/008/save_picture_477059.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Nature Wallpapers (14.09.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:766C826848A923148F0F17EF8AE86D61A4E9BF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547177   (476621) от 14.09.2012
-
-Best HD Wallpapers Pack (14.09.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0380081A8FF6DC4D9B6870802DF76784999BBF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

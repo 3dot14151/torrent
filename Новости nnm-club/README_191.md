@@ -1,3 +1,160 @@
+###  Публикация: 1028835   (368962) от 22.10.2017
+
+Grim Dawn (2016) [Ru/En] (1.0.2.1/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grim Dawn - духовный наследник Titan Quest, который создается усилиями молодой студии Crate Entertainment основанной выходцами из Iron Lore Entertainment. Игра представляет из себя экшен/RPG выполненной в фэнтезийной стилистике. Действие сюжета Grim Dawn разворачивается в империи Каирн, ставшей полем битвы двух потусторонних сил. Одна собирается использовать людей (   Читать дальше...   )Тип издания: RepackРазработчик: Crate EntertainmentЖанр: RPG, Rogue, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DE194CDFE7783C1DF0F9D21E4D9B20C956CDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070249   (368235) от 06.11.2016
+
+foobar2000 1.3.13 Stable Portable by LUR (06.11.16) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368235.jpg" />
+</div>
+
+
+###  Подробнее
+
+foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многоих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75F6A2BFEE7EBD22A64D725EDBA0AD08B9163E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138196   (368134) от 29.10.2014
+
+Петя по дороге в Царствие Небесное [лицензия] (2009) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_368134.jpg" />
+</div>
+
+
+###  Подробнее
+
+1953 год, поселок Кандалакша. Городской дурачок Петя вообразил, что он милиционер, поборник справедливости и порядка, более того, он инспектор ГАИ. У него есть казенная портупея и милицейская фуражка, а в настоящей кобуре пусть и деревянный, но все-таки пистолет. Никто не пытается разубедить его в таком безобидном посягательстве на власть. Даже машины начальника (   Читать дальше...   )Производство: Россия, СтеллаЖанр: Комедия, ДрамаРежиссер: Николай ДостальАктеры: Егор Павлов, Мария Звонарева, Артем Кобзев, Юрий Пономаренко, Захар Ронжин, Константин Быков, Александр Коршунов, Роман Мадянов, Светлана Тимофеева-Летуновская, Евгений РедькоПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 835479   (368127) от 29.10.2014
+
+Геракл / Hercules (2014) BDRip [H.264] [Extended Cut] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более тысячи лет назад измученная душа скиталась по Земле, полубог, получеловек — Геракл — могучий сын царя богов Зевса, совершив все 12 подвигов, потерял семью и теперь находит утешение только в кровавых битвах. За эти годы он собирает вокруг себя шестерых таких же потерянных воинов, единственным смыслом жизни для которых стали сражения и присутствие смертельной (   Читать дальше...   )Производство: США, Flynn Picture Company, Metro-Goldwyn-Mayer (MGM), Paramount Pictures, Radical StudiosЖанр: Фэнтези, Приключения, БоевикРежиссер: Бретт РэтнерАктеры: Дуэйн Джонсон, Иэн МакШейн, Руфус Сьюэлл, Джозеф Файнс, Питер Муллан, Джон Херт, Исаак Эндрюс, Ингрид Болсай Бердал, Ирина Шейк, Ребекка Фергюсон, Аксель Хенни, Рис Ричи, Тобиас Зантелман.Перевод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced), Английский (Full, SDH)Продолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0507A90D82F754652D065AD6542EDD2F796D0870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070142   (368103) от 06.11.2016
+
+Adobe Premiere Pro CC 2017 (11.0.0) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте превосходные видеоролики, где бы вы ни находились. Лучший в отрасли набор инструментов для производства видеоматериалов помогает работать быстрее и удобнее, объединяя настольные и мобильные приложения с ресурсами для дизайна.
+Adobe Premiere Pro - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2016Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAD36E1EA5551720F02A266C88D279F2351A9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070122   (368100) от 06.11.2016
+
+Еще один мальчишник / The night before (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аарон — красавчик с внешностью голливудской звезды. В общении с женщинами он придерживается четких правил: знакомства максимум на одну ночь, никаких совместных завтраков — сделал дело, вызвал ей такси. Вдруг совершенно с неожиданной стороны подстава: его лучший друг явно сошел с ума, потому что заявил, что встретил свою единственную и покидает клуб мачо. Последний (   Читать дальше...   )Производство: США, James Young EntertainmentЖанр: КомедияРежиссер: Кенни ЯнгАктеры: Крис Оуэн, Колин Эглсфилд, Дэвид Фаустино, Анна Хатчисон, Дрю Фуллер, Ноэль Гульеми, Брайан Дж. Уайт, Каришма Ахлувалиа, Фред Уиллард, Марианн ГавелоПеревод: Дублированный (iTunes)Продолжительность: 01:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5FC0A82DD4D56B0E76E4B14E23E8D66429957A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575544   (367966) от 13.09.2022
 
 Там, где раки поют / Where the Crawdads Sing (2022) BDRip [H.264] [MVO]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367966.jpg" />
+  <img src="Z:/picture/008/save_picture_367966.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367616.jpg" />
+  <img src="Z:/picture/008/save_picture_367616.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367526.jpg" />
+  <img src="Z:/picture/008/save_picture_367526.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367377.jpg" />
+  <img src="Z:/picture/008/save_picture_367377.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ Acronis BootCD Collection 2012 Grub4Dos Edition 10 in 1 v5 (11.2012) [Русск
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_367362.jpg" />
+  <img src="Z:/picture/005/save_picture_367362.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ Panzer Corps Afrika Korps [En] (L) 2012 l FLT
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367355.jpg" />
+  <img src="Z:/picture/008/save_picture_367355.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_367193.jpg" />
+  <img src="Z:/picture/005/save_picture_367193.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ Commandos Anthology (1998-2006) [Ru/En] (1.0/1.1/1.20/1.42/1.1) Repack/Rip R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367117.jpg" />
+  <img src="Z:/picture/008/save_picture_367117.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367115.jpg" />
+  <img src="Z:/picture/008/save_picture_367115.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366527.jpg" />
+  <img src="Z:/picture/005/save_picture_366527.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365785.jpg" />
+  <img src="Z:/picture/008/save_picture_365785.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365776.jpg" />
+  <img src="Z:/picture/005/save_picture_365776.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ MAGIX Video Pro X8 15.0.3.107 (x64) + Content [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365736.jpg" />
+  <img src="Z:/picture/008/save_picture_365736.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365422.jpg" />
+  <img src="Z:/picture/005/save_picture_365422.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ Respawn возрождает Medal of Honor — это полноценный ш
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365363.jpg" />
+  <img src="Z:/picture/005/save_picture_365363.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ Cooking Simulator (2019) [Ru/Multi] (1.8.0.4) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365083.jpg" />
+  <img src="Z:/picture/008/save_picture_365083.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ GRAPHISOFT ARCHICAD 23 (Build 3003) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365076.jpg" />
+  <img src="Z:/picture/008/save_picture_365076.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ Call of Duty: Black Ops 2 (Русификатор) [Ru] 2012 l Новый Дис
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364840.jpg" />
+  <img src="Z:/picture/008/save_picture_364840.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364713.jpg" />
+  <img src="Z:/picture/008/save_picture_364713.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ XCOM 2 (2016) [Ru/Multi] (29.08.2017/dlc) License CODEX [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364677.jpg" />
+  <img src="Z:/picture/008/save_picture_364677.jpg" />
 </div>
 
 
@@ -517,166 +674,6 @@ XCOM 2 – это продолжение полюбившейся игрокам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F33CD503B0AAD120B9BD0E027C93AA762022B473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416711   (364509) от 17.10.2020
-
-Mortal Kombat 11 (2019) [Ru/Multi] (0.318/dlc) SteamRip =nemos= [Ultimate Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mortal Kombat 11 – продолжение культовой серии файтингов Mortal Kombat, в котором игроков ждут широкие возможности кастомизации бойцов благодаря новой системе Custom Character Variations. Новый графический движок переместит вас в гущу боев, заставляя буквально прочувствовать каждую ломающуюся кость и вылетающие из обрит глаза. В Mortal Kombat 11 представлены классические (   Читать дальше...   )Тип издания: SteamRipРазработчик: NetherRealm Studios, QLOC, ShiverЖанр: Action, Arcade (Fighting)Язык озвучки: Английский, французский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D841A924B67664D15AA6453AE450A2203D02BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849206   (364505) от 17.10.2020
-
-Paint.NET plugins pack 17.10.2020 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка плагинов к Paint.NET .
-Paint.NET — бесплатный растровый графический редактор рисунков и фотографий для Windows.Paint.NET является отличной заменой редактору графических изображений, входящему в состав стандартных программ операционных систем Windows. Эффекты и плагины значительно расширяют возможности Paint.NET . Некоторые плагины имеют русский интерфейс.Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851818F998A9190ACAAF27706C4A35D97997FCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836232   (363549) от 31.10.2014
-
-NBA 2K15 [PS3] [USA] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363549.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2013 году симулятор баскетболаТип издания: ЛицензияРазработчик: Visual ConceptsЖанр: Sport (Basketball) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7AC5A6D9F23FC80789B01430C56517B7EE459E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154379   (363492) от 22.11.2009
-
-King's Bounty: Armored Princess / King's Bounty: Принцесса в доспехах [Ru] (RePack) 2009 | a1chem1st
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая приключенческая ролевая игра — долгожданное продолжение саги «King's Bounty. Легенда о рыцаре». В роли принцессы Амели игрок отправится в мир Теаны, где героине предстоит отыскать прославленного рыцаря и своего наставника Билла Гилберта.
-
-Новый мир полон неведомых опасностей: на пути принцессы станут армии ужасных монстров, огромные чудовища-боссы и раса кровожадных (   Читать дальше...   )Тип издания: LРазработчик: Katauri InteractiveЖанр: Add-on (Standalone) / RPG / Strategy (Turn-based) / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255233   (363452) от 18.10.2018
-
-Председатель Комитета Госдумы по культуре Елена Ямпольская призвала "топить" интернет-пиратов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Е. Ямпольская сравнила пиратство в сети с морским и призвала «топить интернет-корабли»
-Председатель комитета Госдумы по культуре Елена Ямпольская («Единая Россия») сравнила интернет-пиратство с морским и призвала «топить корабли» на просторах интернета. Об этом она заявила в ходе проводимого в нижней палате парламента круглого стола «Совершенствование законодательных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571536   (363288) от 15.09.2022
-
-VPN Russia - VPN сервера в России v1.133 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРелиз состоялся: 10 сент. 2022 г.Разработчик: AltAppsПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5854E3D0D60C73446FAE72BC88D6E99BB485AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

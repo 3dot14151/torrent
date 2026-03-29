@@ -1,3 +1,148 @@
+###  Публикация: 1419799   (337698) от 29.10.2020
+
+Rick Miller - Unstuck In Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Plague (12:21)
+02. State Of Emergency (5:13)
+03. Covid Concerto (3:18)
+04. Fateful Apparitions (7:13)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42573D9D03076B76E37182AE7D3EBC16FBA99CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419715   (337681) от 29.10.2020
+
+Thin Lizzy - Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey In The Jar
+ 02. Randolph's Tango
+ 03. The Rocker
+ 04. Little Darling(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F3CF28FA0EEA9EC9BCCC4C982612E9126BACDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579272   (336615) от 27.09.2022
+
+Band of Spice - 5 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone Insane [00:05:32]
+02. Demonized [00:04:25]
+03. My Game [00:05:27]
+04. Below the Sun [00:02:56](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 5 CD, 03:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B5D12A71B8C81D43877C27F32A5862EAB44F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578787   (336612) от 27.09.2022
+
+Spellbook -  Magick & Mischief (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wands to the Sky [00:03:47]
+02. Black Shadow [00:03:51]
+03. Ominous Skies [00:04:44]
+04. Not Long for This World [00:08:37](   Читать дальше...   )Жанр: Heavy Rock, Doom MetalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C09E6CF558C021F9A9C3EF3A8A5F03E9D83899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258601   (336541) от 30.10.2018
+
+Rascal Flatts - Greatest Hits Volume 1 (2008) [FLAC|Lossless|tracks + .cue] <Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayin' For Daylight (3:38)
+ 02. I'm Movin' On (3:52)
+ 03. These Days (4:16)
+ 04. I Melt (3:55)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1F718BE90C94B1C48C67C56C589EE6888D9B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258566   (336527) от 30.10.2018
 
 VA - Hair - The Original Broadway Cast Recording (1968) 1988, RCA Victor, BMG Classics [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Pop Rock>
@@ -6,7 +151,7 @@ VA - Hair - The Original Broadway Cast Recording (1968) 1988, RCA Victor, BMG Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336527.jpg" />
+  <img src="Z:/picture/008/save_picture_336527.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Beatles / The Beatles with Tony Sheridan / Tony Sheridan And The Beat Brothe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336428.jpg" />
+  <img src="Z:/picture/008/save_picture_336428.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ U2 - U218 Singles (2006) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336422.jpg" />
+  <img src="Z:/picture/008/save_picture_336422.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335838.jpg" />
+  <img src="Z:/picture/008/save_picture_335838.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ David Bowie - Legacy (2016) Compilation, Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335828.jpg" />
+  <img src="Z:/picture/008/save_picture_335828.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ David Cross and Robert Fripp - Starless Starlight (2015) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335593.jpg" />
+  <img src="Z:/picture/008/save_picture_335593.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Colour Haze - Temple (2006) Remastered, 2022, Electrohasch [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334719.jpg" />
+  <img src="Z:/picture/008/save_picture_334719.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Zumpano - Goin' Through Changes (1996) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334716.jpg" />
+  <img src="Z:/picture/008/save_picture_334716.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Psycada - Hiking Lung (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334709.jpg" />
+  <img src="Z:/picture/008/save_picture_334709.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Yo La Tengo - Upside-Down (1992) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334699.jpg" />
+  <img src="Z:/picture/008/save_picture_334699.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Passion Pit - Manners (2009) 2010, Limited Edition [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334594.jpg" />
+  <img src="Z:/picture/008/save_picture_334594.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Prince - 4Ever (2016) 2CD [FLAC|Lossless|tracks + .cue] <Rock, Funk, Soul>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334584.jpg" />
+  <img src="Z:/picture/008/save_picture_334584.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ VA - 100 Greatest Soft Rock Anthems Ever.. (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334541.jpg" />
+  <img src="Z:/picture/008/save_picture_334541.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ Grateful Dead - The Best of the Grateful Dead Live (2018) 2CD, HDCD [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334440.jpg" />
+  <img src="Z:/picture/008/save_picture_334440.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ Robert Palmer - Collected (2016) 3CD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334233.jpg" />
+  <img src="Z:/picture/008/save_picture_334233.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Ring Van Mobius - The 3rd Majesty (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333994.jpg" />
+  <img src="Z:/picture/008/save_picture_333994.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ World Trade - Unify (2017) [FLAC|Lossless|image + .cue] <AOR, Progressive rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333504.jpg" />
+  <img src="Z:/picture/008/save_picture_333504.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ The Rolling Stones - Honk (Deluxe Edition) (2019) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333392.jpg" />
+  <img src="Z:/picture/008/save_picture_333392.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ Queen - A Night At The Odeon: Hammersmith 1975 (2015) Live [FLAC|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332400.jpg" />
+  <img src="Z:/picture/008/save_picture_332400.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Twenty Four Hours - Ladybirds (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331846.jpg" />
+  <img src="Z:/picture/008/save_picture_331846.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331367.jpg" />
+  <img src="Z:/picture/008/save_picture_331367.jpg" />
 </div>
 
 
@@ -602,149 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A4FC92AA897DFFDE1B93F06F0BDFB75D28E6407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420820   (331199) от 02.11.2020
-
-Bruce Springsteen - Letter To You (2020) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Heartland Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute You're Here
-02. Letter To You
-03. Burnin' Train
-04. Janey Needs A Shooter(   Читать дальше...   )Жанр: Rock, Folk Rock, Heartland RockПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F664C2D8A03FF7FD23A3295124C5B6F1A7349AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956273   (330985) от 13.11.2015
-
-Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Deluxe Edition [FLAC|image + .cue] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Was a Boy
-02. Love and Rain
-03. Dirty to the Bone
-04. When the Night Comes(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CF4D5B9F3CF68DE853F1448B17CACD43B8C06E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580494   (330890) от 01.10.2022
-
-Imaginaerium - The Rise Of Medici (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Rock-Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Festina Lente (2:28)
-02. Duty Of Love (4:45)
-03. House Of Dreams (4:10)
-04. The Tide Will Change (5:08)(   Читать дальше...   )Жанр: Progressive Rock, Rock-OperaПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8506E2157BB396B35E5AA3809D97154A4C7354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580499   (330887) от 01.10.2022
-
-Robot God - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330887.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 - Silver Buddha Dreaming
-2022 - Worlds CollideЖанр: Heavy Psych, Stoner, SpaceПродолжительность: 01:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3392CF7603FB7C0E9B2E772FE8D9418B9BAC1824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580297   (330882) от 01.10.2022
-
-Marenna - Voyager (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Chains
-02. Out Of Line
-03. Gotta Be Strong
-04. Wait(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B519DC953ADE492A4A6941BA95D019947EA46EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

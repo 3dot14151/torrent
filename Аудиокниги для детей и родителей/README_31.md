@@ -1,3 +1,84 @@
+###  Публикация: 1032682   (644113) от 08.07.2016
+
+Альберт Иванов | Обычные приключения «олимпийца» Михаила Енохина (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о ребятах, увлеченных парусным спортом. На своей шлюпке они собираются отправиться в дальнее плавание: от берегов Черного моря до Таллина, мечтая побывать на олимпийской регате. Много приключений выпадает на их долю. Мечта пока не осуществилась, но зная настойчивость и упорство этих мальчишек, мы верим в их будущую удачу.Жанр: ПриключенияПродолжительность: 05:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD999A48FB33CDB06713E7D17E4C09704DB5F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032691   (643797) от 08.07.2016
+
+Библиотека Почемучки: Энциклопедия юного изобретателя (2010) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ребенок растет, его интересует все вокруг: что, почему и из-за чего происходит. И порой случается так, что казалось бы на самый простой и наивный детский вопрос оказывается не так-то просто найти правильный ответ. Для того чтобы подобные ситуации происходили как можно реже, мы советуем прослушать аудиокнигу "Энциклопедия юного изобретателя".
+
+Уверены, (   Читать дальше...   )Жанр: Познавательная литератураПродолжительность: 02:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E20DE15D9EC5D6722507739006EE96EAA5CF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346810   (643600) от 06.06.2011
+
+Оскар Уайльд | Кентервильское привидение [2006] [MP3, Наталья Варлей и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643600.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной повести Оскара Уайльда. Рассказ об одной американской семье, которая становится владельцем старинного замка и покупает его вместе с привидением...
+Замок Кентервиль, над которым тяготеет древнее проклятие в виде привидения сэра Симона де Кентервиля, убившего свою высокородную супругу леди Элеонору в 1575 году, покупает американский посол в Великобритании (   Читать дальше...   )Жанр: Детская литератураИздательство: ВИМБОПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F1283A944BA06B7D6DEE674F92D8CCDFCC7D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292887   (643182) от 31.03.2019
 
 Марина Аромштам | Когда отдыхают ангелы (2017) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643182.jpg" />
+  <img src="Z:/picture/008/save_picture_643182.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643075.jpg" />
+  <img src="Z:/picture/008/save_picture_643075.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641543.jpg" />
+  <img src="Z:/picture/008/save_picture_641543.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639803.jpg" />
+  <img src="Z:/picture/008/save_picture_639803.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639235.jpg" />
+  <img src="Z:/picture/008/save_picture_639235.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638812.jpg" />
+  <img src="Z:/picture/008/save_picture_638812.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636141.jpg" />
+  <img src="Z:/picture/008/save_picture_636141.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636137.jpg" />
+  <img src="Z:/picture/008/save_picture_636137.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635337.jpg" />
+  <img src="Z:/picture/008/save_picture_635337.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632213.jpg" />
+  <img src="Z:/picture/008/save_picture_632213.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632128.jpg" />
+  <img src="Z:/picture/008/save_picture_632128.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632047.jpg" />
+  <img src="Z:/picture/008/save_picture_632047.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631916.jpg" />
+  <img src="Z:/picture/008/save_picture_631916.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631899.jpg" />
+  <img src="Z:/picture/008/save_picture_631899.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631621.jpg" />
+  <img src="Z:/picture/008/save_picture_631621.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631328.jpg" />
+  <img src="Z:/picture/008/save_picture_631328.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630210.jpg" />
+  <img src="Z:/picture/008/save_picture_630210.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629935.jpg" />
+  <img src="Z:/picture/008/save_picture_629935.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629828.jpg" />
+  <img src="Z:/picture/008/save_picture_629828.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627643.jpg" />
+  <img src="Z:/picture/008/save_picture_627643.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625945.jpg" />
+  <img src="Z:/picture/008/save_picture_625945.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623917.jpg" />
+  <img src="Z:/picture/008/save_picture_623917.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623759.jpg" />
+  <img src="Z:/picture/008/save_picture_623759.jpg" />
 </div>
 
 
@@ -603,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4B68DA28CBDAD184206F5C2569D7AE75B98356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035980   (622820) от 19.07.2016
-
-Серж Брюссоло | Сон демона (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не успела Пегги Сью перевести дух после победы над коварными и злобными Невидимками, как самолет уносит ее навстречу новым приключениям — в удивительную и загадочную страну миражей. С некоторых пор все в ней пошло наперекосяк: одни ее жители становятся меньше муравья, другие превращаются в спелые помидоры, третьи ищут защиты от хищных цветов и садовников-убийц. А (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 09:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E827B0C79020657F5B6F9515EC40FEC40AA21CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035978   (622808) от 19.07.2016
-
-Серж Брюссоло | День синей собаки (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ровным счетом ничего не происходило в тихом сонном городке, пока над ним не повисло знойное, обжигающее солнце… синего цвета! Казалось бы, чего уж еще ожидать после такого, но именно с этой минуты двоечники выводят хитроумные формулы, собаки играют в шахматы, а по улицам носятся взбесившиеся башмаки и кресла. И только Пегги Сью знает, что все это — дело рук невидимых (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 07:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088813D59AB69FDAFC93C850D3EFC1944EB2AE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035986   (622806) от 19.07.2016
-
-Серж Брюссоло | Бабочка из бездны (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мимо этой маленькой деревушки поезда ходят без остановки. Но если кто-то по странной случайности решил там сойти, то делать это надо поскорее, потому что, ни один пассажир не хочет задерживаться в краю гроз, взрывоопасных яблонь, красных тигров и колдунов. Именно туда, в гости к бабушке Кэтти, отправилась Пегги Сью со своим другом — синим псом. Им предстоит разгадать (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 07:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99507A5F005325A61589F44C6D0B34837CBB1221
 ```
 
 https://mybot314.ru/tekegram_catalog/

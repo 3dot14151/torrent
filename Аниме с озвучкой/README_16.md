@@ -1,3 +1,29 @@
+###  Публикация: 1504094   (813542) от 22.10.2021
+
+Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 1036p 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_813542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дамы и господа! Добро пожаловать на карнавал роботов — праздник смерти, радости, печали и любви, разрушений и новой жизни. Карнавал пронесет вас через пространство и время, закружит в танце фантастической робототехники и покажет различные варианты событий, последующие за созданием жизни человеческими руками. Люди жаждут развлечений и опасаются собственных созданий, (   Читать дальше...   )Производство: A.P.P.P.Жанр: фантастика, меха, драмаПеревод: MolchoonЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 9 эп. по 5-20 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D7C5036EBB1D9D4FF18BA5E64AAB08CDD16029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383196   (812815) от 14.05.2020
 
 Pet Shop of Horrors | Магазинчик ужасов [1999, OVA, 4 эп.] DVDRip 528p raw+rus
@@ -6,7 +32,7 @@ Pet Shop of Horrors | Магазинчик ужасов [1999, OVA, 4 эп.] DVD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812815.jpg" />
+  <img src="Z:/picture/008/save_picture_812815.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Nanako Kaitai Shinsho | Amazing Nurse Nanako | Изумительная медс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812813.jpg" />
+  <img src="Z:/picture/008/save_picture_812813.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Minami Kamakura Koukou Joshi Jitensha Bu / Женский велоклуб ст�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812543.jpg" />
+  <img src="Z:/picture/008/save_picture_812543.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shoujo Shuumatsu Ryokou / Girls' Last Tour / Последнее путешест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811295.jpg" />
+  <img src="Z:/picture/008/save_picture_811295.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Kaguya Hime no Monogatari / The Tale of the Princess Kaguya / Сказание �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810490.jpg" />
+  <img src="Z:/picture/008/save_picture_810490.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь Смертных Грехо�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810485.jpg" />
+  <img src="Z:/picture/008/save_picture_810485.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810484.jpg" />
+  <img src="Z:/picture/008/save_picture_810484.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809627.jpg" />
+  <img src="Z:/picture/008/save_picture_809627.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809623.jpg" />
+  <img src="Z:/picture/008/save_picture_809623.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809231.jpg" />
+  <img src="Z:/picture/008/save_picture_809231.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809230.jpg" />
+  <img src="Z:/picture/008/save_picture_809230.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809229.jpg" />
+  <img src="Z:/picture/008/save_picture_809229.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Konohana Kitan | Загадочная история Коноханы [2017, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807815.jpg" />
+  <img src="Z:/picture/008/save_picture_807815.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Boku no Hero Academia | Моя геройская академия OVA [2016-201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807814.jpg" />
+  <img src="Z:/picture/008/save_picture_807814.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Eikyuu Kazoku | Eternal Family | Вечная семейка [1997, Movie] DVDRi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807812.jpg" />
+  <img src="Z:/picture/008/save_picture_807812.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807793.jpg" />
+  <img src="Z:/picture/008/save_picture_807793.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807419.jpg" />
+  <img src="Z:/picture/008/save_picture_807419.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Angel Beats! | Ангельские Ритмы! [2010, TV, 13 ep + 3 sp] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807415.jpg" />
+  <img src="Z:/picture/008/save_picture_807415.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806767.jpg" />
+  <img src="Z:/picture/008/save_picture_806767.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ BECK: Mongolian Chop Squad | БЕК: Восточная Ударная Груп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805877.jpg" />
+  <img src="Z:/picture/008/save_picture_805877.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Tattoon Master | Мастер Таттун [1996, OVA, 2 из 2] DVDRip 480p 10-
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805870.jpg" />
+  <img src="Z:/picture/008/save_picture_805870.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Honoo no Labyrinth | Labyrinth of Flames | Пламенный лабиринт [
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805713.jpg" />
+  <img src="Z:/picture/008/save_picture_805713.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Jungle de Ikou! | В джунгли! [1997, OVA, 3 из 3] DVDRip 480p 10-bit ra
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803997.jpg" />
+  <img src="Z:/picture/008/save_picture_803997.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Gokushufudou | Путь домохозяина [2021, Web, 10 из 10] WEB-DLRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803994.jpg" />
+  <img src="Z:/picture/008/save_picture_803994.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802836.jpg" />
+  <img src="Z:/picture/008/save_picture_802836.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6DD69EAA773E26590EFD061538BF822059805D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506177   (800760) от 30.10.2021
-
-Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | Махороматик: Еще больше прекрасного! [2002, TV, 14 из 14] BDRip 1070p 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отношения между Махоро, Сугуру и его одноклассниками продолжают развиваться. Между тем, ещё одна девушка-андроид появляется в их жизни и привязывается к Махоро. А количество дней до полной разрядки Махоро неуклонно уменьшается...Производство: Gainax / ガイナックス, Shaft / シャフトЖанр: приключения, комедия, романтика, эттиРежиссер: Ямага ХироюкиПеревод: Pika4YЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 14 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62F04AA73BA339EBE38DB0080DAA1C35F19B95E
 ```
 
 https://mybot314.ru/tekegram_catalog/

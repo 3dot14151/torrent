@@ -6,7 +6,7 @@ Wise Care 365 Pro 4.56.431 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850195.jpg" />
+  <img src="Z:/picture/008/save_picture_850195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Extreme Picture Finder 3.33.1.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850193.jpg" />
+  <img src="Z:/picture/008/save_picture_850193.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 DC 23.04.2020 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850162.jpg" />
+  <img src="Z:/picture/008/save_picture_850162.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mirillis Splash 2.0.3.0 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850123.jpg" />
+  <img src="Z:/picture/008/save_picture_850123.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850106.jpg" />
+  <img src="Z:/picture/008/save_picture_850106.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ GPU Caps Viewer 1.33.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850103.jpg" />
+  <img src="Z:/picture/008/save_picture_850103.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BestReminder v2020.04.22.22 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850087.jpg" />
+  <img src="Z:/picture/008/save_picture_850087.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ GeoGebra 6.0.578.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850080.jpg" />
+  <img src="Z:/picture/008/save_picture_850080.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Q-Dir 8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850078.jpg" />
+  <img src="Z:/picture/008/save_picture_850078.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Vivaldi 3.0.1874.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850077.jpg" />
+  <img src="Z:/picture/008/save_picture_850077.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850056.jpg" />
+  <img src="Z:/picture/008/save_picture_850056.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gilisoft RAMDisk 6.6.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850055.jpg" />
+  <img src="Z:/picture/008/save_picture_850055.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Vit Registry Fix Pro 12.7 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850054.jpg" />
+  <img src="Z:/picture/008/save_picture_850054.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ GoldWave 6.27 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850027.jpg" />
+  <img src="Z:/picture/008/save_picture_850027.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Opera 68.0.3618.46 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849998.jpg" />
+  <img src="Z:/picture/008/save_picture_849998.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Cent Browser 4.2.10.169 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849995.jpg" />
+  <img src="Z:/picture/008/save_picture_849995.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Vit Registry Fix Pro 12.7 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849946.jpg" />
+  <img src="Z:/picture/008/save_picture_849946.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Clipdiary 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849917.jpg" />
+  <img src="Z:/picture/008/save_picture_849917.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ qBittorrent 3.3.11 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849908.jpg" />
+  <img src="Z:/picture/008/save_picture_849908.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Auslogics Anti-Malware 2017 1.9.1.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849906.jpg" />
+  <img src="Z:/picture/008/save_picture_849906.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Kinza Browser 6.2.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849899.jpg" />
+  <img src="Z:/picture/008/save_picture_849899.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ LibreOffice 6.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849893.jpg" />
+  <img src="Z:/picture/008/save_picture_849893.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Topaz Mask AI 1.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849886.jpg" />
+  <img src="Z:/picture/008/save_picture_849886.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ MediaMonkey Gold 4.1.28.1905 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849885.jpg" />
+  <img src="Z:/picture/008/save_picture_849885.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ashampoo Photo Commander 16.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849830.jpg" />
+  <img src="Z:/picture/008/save_picture_849830.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849826.jpg" />
+  <img src="Z:/picture/008/save_picture_849826.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Wise Auto Shutdown 1.52.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728462.jpg" />
+  <img src="Z:/picture/008/save_picture_728462.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Audition 2022 22.2.0.61 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728456.jpg" />
+  <img src="Z:/picture/008/save_picture_728456.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Media Encoder 2022 22.2.0.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728455.jpg" />
+  <img src="Z:/picture/008/save_picture_728455.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe After Effects 2022 22.2.0.120 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728442.jpg" />
+  <img src="Z:/picture/008/save_picture_728442.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UNetbootin 6.38 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728423.jpg" />
+  <img src="Z:/picture/008/save_picture_728423.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AOMEI Partition Assistant Technician Edition 8.0.0 DC 20.02.2019 RePack by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728416.jpg" />
+  <img src="Z:/picture/008/save_picture_728416.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Movavi Video Suite 18.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728407.jpg" />
+  <img src="Z:/picture/008/save_picture_728407.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ IObit Driver Booster Pro 6.3.0.276 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728392.jpg" />
+  <img src="Z:/picture/008/save_picture_728392.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 19.2.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728375.jpg" />
+  <img src="Z:/picture/008/save_picture_728375.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Google Chrome 51.0.2704.79 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728351.jpg" />
+  <img src="Z:/picture/008/save_picture_728351.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Avira Antivirus Free 15.0.17.273 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728348.jpg" />
+  <img src="Z:/picture/008/save_picture_728348.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ System Ninja 3.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728341.jpg" />
+  <img src="Z:/picture/008/save_picture_728341.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5278.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728328.jpg" />
+  <img src="Z:/picture/008/save_picture_728328.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5423.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728326.jpg" />
+  <img src="Z:/picture/008/save_picture_728326.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Premiere Pro 2022 22.2.0.128 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728313.jpg" />
+  <img src="Z:/picture/008/save_picture_728313.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Auslogics BoostSpeed 9.1.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728295.jpg" />
+  <img src="Z:/picture/008/save_picture_728295.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728242.jpg" />
+  <img src="Z:/picture/008/save_picture_728242.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Reg Organizer 7.36 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728236.jpg" />
+  <img src="Z:/picture/008/save_picture_728236.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Vivaldi 1.2.490.35 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728234.jpg" />
+  <img src="Z:/picture/008/save_picture_728234.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Krita 3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728228.jpg" />
+  <img src="Z:/picture/008/save_picture_728228.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VueScan Pro 9.5.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728210.jpg" />
+  <img src="Z:/picture/008/save_picture_728210.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Artensoft Photo Collage Maker 2.0.109 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728206.jpg" />
+  <img src="Z:/picture/008/save_picture_728206.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ASAP Utilities for Excel 7.3.1 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728189.jpg" />
+  <img src="Z:/picture/008/save_picture_728189.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ AusLogics BoostSpeed 9.1.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728101.jpg" />
+  <img src="Z:/picture/008/save_picture_728101.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Autodesk AutoCAD LT 2018.0.2 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728095.jpg" />
+  <img src="Z:/picture/008/save_picture_728095.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Adobe Acrobat Reader DC 2015.016.20045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728070.jpg" />
+  <img src="Z:/picture/008/save_picture_728070.jpg" />
 </div>
 
 

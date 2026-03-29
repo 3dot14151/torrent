@@ -6,7 +6,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746534.jpg" />
+  <img src="Z:/picture/008/save_picture_746534.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VirtualBox 6.1.12 Build 139181 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746527.jpg" />
+  <img src="Z:/picture/008/save_picture_746527.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SideFx Houdini FX 18.0.499 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746526.jpg" />
+  <img src="Z:/picture/008/save_picture_746526.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GridinSoft Anti-Malware 4.1.53.4986 RePack & Portable by 9649 (14.07.2020) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746524.jpg" />
+  <img src="Z:/picture/008/save_picture_746524.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Total Commander 9.51 64bit 32bit VIM 40 Portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746523.jpg" />
+  <img src="Z:/picture/008/save_picture_746523.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mozilla FireFox 96.0.1.8048 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746514.jpg" />
+  <img src="Z:/picture/008/save_picture_746514.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Acoustica Premium Edition 7.3.24 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746508.jpg" />
+  <img src="Z:/picture/008/save_picture_746508.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Files Inspector Pro 3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746504.jpg" />
+  <img src="Z:/picture/008/save_picture_746504.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ AdwCleaner 5.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746502.jpg" />
+  <img src="Z:/picture/008/save_picture_746502.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746496.jpg" />
+  <img src="Z:/picture/008/save_picture_746496.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kodak Preps 8.0.0 (223) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746493.jpg" />
+  <img src="Z:/picture/008/save_picture_746493.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Capture One Pro 9.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746484.jpg" />
+  <img src="Z:/picture/008/save_picture_746484.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Templates for Keynote - DesiGN 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746430.jpg" />
+  <img src="Z:/picture/008/save_picture_746430.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Calibre 3.39.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746422.jpg" />
+  <img src="Z:/picture/008/save_picture_746422.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Q-Dir 7.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746419.jpg" />
+  <img src="Z:/picture/008/save_picture_746419.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe Bridge 2020 10.1.1.166 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746418.jpg" />
+  <img src="Z:/picture/008/save_picture_746418.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Basilisk 2019.02.11 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746414.jpg" />
+  <img src="Z:/picture/008/save_picture_746414.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ IDPhotoStudio + Portable 2.15.3.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746410.jpg" />
+  <img src="Z:/picture/008/save_picture_746410.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ CorelDRAW Graphics Suite 2020 22.1.0.517 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746402.jpg" />
+  <img src="Z:/picture/008/save_picture_746402.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ EZ CD Audio Converter 9.5.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746379.jpg" />
+  <img src="Z:/picture/008/save_picture_746379.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746376.jpg" />
+  <img src="Z:/picture/008/save_picture_746376.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ FXSound Pro 1.1.13.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746371.jpg" />
+  <img src="Z:/picture/008/save_picture_746371.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ TweakPower 2.006 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746370.jpg" />
+  <img src="Z:/picture/008/save_picture_746370.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PotPlayer 220106 (1.7.21590) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746367.jpg" />
+  <img src="Z:/picture/008/save_picture_746367.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Firefox Browser 96.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746364.jpg" />
+  <img src="Z:/picture/008/save_picture_746364.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Glary Utilities Pro 5.180.0.209 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746362.jpg" />
+  <img src="Z:/picture/008/save_picture_746362.jpg" />
 </div>
 
 

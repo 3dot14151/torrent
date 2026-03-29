@@ -1,3 +1,61 @@
+###  Публикация: 1194296   (154514) от 25.12.2017
+
+VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Disco House, Dance, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154514.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Preparty
+01-Gloria Gaynor  - I Will Survive (Yuriy Poleg Remix - Dj V Edit)
+02-Block & Crown - Good Night (Club Mix)
+03-Stefan Rio Feat. Franca Morgano - Ai No Corrida (Extended Mix)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Deep HouseПродолжительность: 03:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5D005CFCD80AB96AA2A206CF971749A7AC2B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433846   (154495) от 22.12.2020
+
+VA - Ремиксы от MGDC FM Vol 8 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navai - Зачем Ты Врёшь (Vadim Adamov & Hardphol Radio Edit) (2:14)
+02. Ханна - Навсегда твоя (Alex Shik & Kirill Duck Radio Edit) (2:22)
+03. Artik & Asti - Все мимо (Chad & Eugene Star Radio Edit) (2:25)
+04. KARA KROSS - Поколение (Ramirez & Yudzhin Radio Edit) (2:13)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3A9C4AC68A7E752EB19DC43740907CDD9DA3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270978   (154375) от 21.12.2018
 
 VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -6,7 +64,7 @@ VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154375.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Record Super Chart 618 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154029.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Корпоратив 2017 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153624.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153586.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153535.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153528.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ VA - My Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153504.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153443.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153361.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153284.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153172.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153138.jpg" />
 </div>
 
 
@@ -364,7 +422,7 @@ Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152763.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152729.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ VA - Лучшие клубные новинки Vol.7 (2017) [MP3|320 Kbps] <Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152655.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ VA - Chingona: Psychedelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152600.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ VA - Beautiful Light: New Trance Music (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152452.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ VA - Корпоратив 2019 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152178.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ VA - 60 minutes. Old School Dance Music vol.28 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151687.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ VA - D.Trance 104 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151106.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ VA - Club Hits 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151062.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ VA - Авто. Музыка. Дорога (Sound Clinic - Special Edition) (2015
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150835.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150676.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150185.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271473   (150180) от 23.12.2018
-
-VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Emperor Of China (Original Mix) 7:36
-02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
-03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
-04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271464   (150014) от 23.12.2018
-
-VA - Tranceformation 2018 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-02. Rene Ablaze & Tiff Lacey - Tonight
-03. FloE & Alex Byrka - Intuition (Extended Mix)
-04. HyperPhysics - Starlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 13:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3C7CC2F9E1EE7420CDC854240570142562012F
 ```
 
 https://mybot314.ru/tekegram_catalog/

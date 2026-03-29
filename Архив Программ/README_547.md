@@ -6,7 +6,7 @@ Any Video Converter Professional 6.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774089.jpg" />
+  <img src="Z:/picture/008/save_picture_774089.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MKVToolNix 30.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774085.jpg" />
+  <img src="Z:/picture/008/save_picture_774085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Just Color Picker 5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774081.jpg" />
+  <img src="Z:/picture/008/save_picture_774081.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ System Ninja 3.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774078.jpg" />
+  <img src="Z:/picture/008/save_picture_774078.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Punto Switcher 4.4.2 Build 334 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774073.jpg" />
+  <img src="Z:/picture/008/save_picture_774073.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent 3.5.3 Build 44358 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774072.jpg" />
+  <img src="Z:/picture/008/save_picture_774072.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Dreamweaver CC 2018 18.1.0.10155 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774059.jpg" />
+  <img src="Z:/picture/008/save_picture_774059.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Razer Cortex 7.2.16.12597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774053.jpg" />
+  <img src="Z:/picture/008/save_picture_774053.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774041.jpg" />
+  <img src="Z:/picture/008/save_picture_774041.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare Filmora 9.0.5.1 (x64) Repack by elchupacabra (22.01.2019) + Effect P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774025.jpg" />
+  <img src="Z:/picture/008/save_picture_774025.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Foxit Reader 9.4.1.16828 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774019.jpg" />
+  <img src="Z:/picture/008/save_picture_774019.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ TeamViewer 13.1.1548 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774013.jpg" />
+  <img src="Z:/picture/008/save_picture_774013.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CCleaner 5.41.6446 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774009.jpg" />
+  <img src="Z:/picture/008/save_picture_774009.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ R-Studio 8.0 Build 164541 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773989.jpg" />
+  <img src="Z:/picture/008/save_picture_773989.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773988.jpg" />
+  <img src="Z:/picture/008/save_picture_773988.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ AdFender 2.25 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773986.jpg" />
+  <img src="Z:/picture/008/save_picture_773986.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Daum PotPlayer 1.6.60136 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773983.jpg" />
+  <img src="Z:/picture/008/save_picture_773983.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ EZ CD Audio Converter 4.0.4.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773982.jpg" />
+  <img src="Z:/picture/008/save_picture_773982.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WinToUSB Enterprise 3.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773978.jpg" />
+  <img src="Z:/picture/008/save_picture_773978.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773976.jpg" />
+  <img src="Z:/picture/008/save_picture_773976.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Google Chrome 50.0.2661.102 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773935.jpg" />
+  <img src="Z:/picture/008/save_picture_773935.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773919.jpg" />
+  <img src="Z:/picture/008/save_picture_773919.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Revo Uninstaller Pro 3.1.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773915.jpg" />
+  <img src="Z:/picture/008/save_picture_773915.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mirillis Splash 2.0.4.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773832.jpg" />
+  <img src="Z:/picture/008/save_picture_773832.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Soft Organizer 4.0 Final DC 06.04.2015 RePacK by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773689.jpg" />
+  <img src="Z:/picture/008/save_picture_773689.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Display Driver Uninstaller 14.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773682.jpg" />
+  <img src="Z:/picture/008/save_picture_773682.jpg" />
 </div>
 
 

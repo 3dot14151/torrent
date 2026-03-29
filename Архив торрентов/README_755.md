@@ -6,7 +6,7 @@ DAEMON Tools Lite 10.5.1.230 Unlocked [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881071.jpg" />
+  <img src="Z:/picture/005/save_picture_881071.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Driver Updater 1.1.0.22990 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881069.jpg" />
+  <img src="Z:/picture/005/save_picture_881069.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881062.jpg" />
+  <img src="Z:/picture/005/save_picture_881062.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Noraus - Type 1 Civilization (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Dow
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881059.jpg" />
+  <img src="Z:/picture/005/save_picture_881059.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881058.jpg" />
+  <img src="Z:/picture/005/save_picture_881058.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ TagScanner 6.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881056.jpg" />
+  <img src="Z:/picture/005/save_picture_881056.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881017.jpg" />
+  <img src="Z:/picture/005/save_picture_881017.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880970.jpg" />
+  <img src="Z:/picture/005/save_picture_880970.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Aiseesoft Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880968.jpg" />
+  <img src="Z:/picture/005/save_picture_880968.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ AOL Shield 1.0.21.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880966.jpg" />
+  <img src="Z:/picture/005/save_picture_880966.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ FlylinkDC++ r503 build 19542 Stable Portable (x64/x86) + Хаблист [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880962.jpg" />
+  <img src="Z:/picture/008/save_picture_880962.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cyberfox 45.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880951.jpg" />
+  <img src="Z:/picture/005/save_picture_880951.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Red Giant Magic Bullet Suite 13.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880941.jpg" />
+  <img src="Z:/picture/005/save_picture_880941.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880939.jpg" />
+  <img src="Z:/picture/005/save_picture_880939.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ SwimCues v1.0 [En/Ru] - техника и анимация стилей плав
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880938.jpg" />
+  <img src="Z:/picture/008/save_picture_880938.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CCleaner 5.27.5976 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880932.jpg" />
+  <img src="Z:/picture/005/save_picture_880932.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880931.jpg" />
+  <img src="Z:/picture/005/save_picture_880931.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880920.jpg" />
+  <img src="Z:/picture/005/save_picture_880920.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Hamster Free ZIP Archiver 2011  [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_880896.jpg" />
+  <img src="Z:/picture/009/save_picture_880896.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tails 0.17.2 [анонимный доступ в сети] [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880872.jpg" />
+  <img src="Z:/picture/005/save_picture_880872.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ PCLinuxOS 2013.04 (KDE&KDE mini) [i586] (1xDVD + 1xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880868.jpg" />
+  <img src="Z:/picture/005/save_picture_880868.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ AnyMP4 iPhone Transfer Pro for Mac 8.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880839.jpg" />
+  <img src="Z:/picture/005/save_picture_880839.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880837.jpg" />
+  <img src="Z:/picture/005/save_picture_880837.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880830.jpg" />
+  <img src="Z:/picture/005/save_picture_880830.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880829.jpg" />
+  <img src="Z:/picture/005/save_picture_880829.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880828.jpg" />
+  <img src="Z:/picture/005/save_picture_880828.jpg" />
 </div>
 
 

@@ -1,3 +1,109 @@
+###  Публикация: 1373421   (876214) от 08.04.2020
+
+Рассказы из Петли / Tales from the Loop (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) HDREZKA
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории об обитателях городка, расположенного над Петлёй — специальной машиной, созданной для изучения и раскрытия секретов Вселенной. Из-за этого жители получают доступ к вещам и событиям, о которых они раньше слышали разве что в фантастике.Производство: США / 6th & Idaho Productions, Amazon Studios, Fox 21 Television StudiosЖанр: драма, фантастика, мелодрамаРежиссер: Джоди Фостер, Ким Со-ён, Чарли МакДауэллАктеры: Дэниэл Золгадри, Ребекка Холл, Пол Шнайдер, Дункан Джойнер, Ато Эссандо, Николь Ло, ДжонатанПрайс, Джейн Александр, Тайлер Барнхардт, Роджер Клаун и др.Перевод: Многоголосый профессиональный (HDREZKA.STUDIO)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D7CBAC212B8E85F8EB122AF743DEE065EECFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372994   (876211) от 08.04.2020
+
+Комплекс программ для восстановления данных 20.04.05 Portable by DrJayZi [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное каждый, рано или поздно, сталкивается с потерей данных на HDD или переносном устройстве. Начинает искать программу, при помощи которой можно восстановить утраченную информацию, но беда в том, что программа, которая помогла прошлый раз, может быть бессильна в данной ситуации. Начинается перебор программ, установка и удаление и в конечном итоге ОС превращается (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3FF420236511F3C4D959E475FF0AF88308F02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105389   (875873) от 17.02.2017
+
+Ubuntu 16.04.2 LTS Xenial Xerus [i386, amd64] 2xDVD, 2xCD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_875873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущен релиз Ubuntu 16.04.2 LTS, вместе которым можно скачать также релизы: Xubuntu, Ubuntu MATE, Ubuntu GNOME, Kubuntu, Lubuntu. Все указанные производные релизы, кроме Kubuntu, получили срок поддержки 3 года, Ubuntu и Kubuntu будут поддерживаться 5 лет от момента выхода версии 16.04.
+
+Среди новшеств в этом релизе: новый формат пакетов «Snap»; новая версия контейнерной (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0A3386C0769A7CB233A13E8051BEF172A226C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105241   (875872) от 17.02.2017
+
+AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_875872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3AD70B4C1254350733406D46D5A8B36479159F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105237   (875868) от 17.02.2017
 
 HitmanPro 3.7.15 Build 281 [x64] [Multi/Ru]
@@ -6,7 +112,7 @@ HitmanPro 3.7.15 Build 281 [x64] [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875868.jpg" />
+  <img src="Z:/picture/008/save_picture_875868.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875864.jpg" />
+  <img src="Z:/picture/005/save_picture_875864.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ iGO Primo NextGen 9.18.27.687519 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875856.jpg" />
+  <img src="Z:/picture/005/save_picture_875856.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875495.jpg" />
+  <img src="Z:/picture/005/save_picture_875495.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875493.jpg" />
+  <img src="Z:/picture/005/save_picture_875493.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875452.jpg" />
+  <img src="Z:/picture/005/save_picture_875452.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875447.jpg" />
+  <img src="Z:/picture/005/save_picture_875447.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875432.jpg" />
+  <img src="Z:/picture/005/save_picture_875432.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875431.jpg" />
+  <img src="Z:/picture/005/save_picture_875431.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ Adobe Photoshop 2021 22.5.1.441 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875430.jpg" />
+  <img src="Z:/picture/005/save_picture_875430.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875336.jpg" />
+  <img src="Z:/picture/005/save_picture_875336.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875257.jpg" />
+  <img src="Z:/picture/005/save_picture_875257.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ Fallout New Vegas: Ultimate Edition (2012) [PS3] [EUR] 4.21+ [Repack / ALL DLC +
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874589.jpg" />
+  <img src="Z:/picture/005/save_picture_874589.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Discovery: Эд Стаффорд: Выживание без купюр (Голо
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874408.jpg" />
+  <img src="Z:/picture/005/save_picture_874408.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ Symantec Endpoint Protection 14.0 MP1 Build 2332 (14.0.2332.0100) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874291.jpg" />
+  <img src="Z:/picture/005/save_picture_874291.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874275.jpg" />
+  <img src="Z:/picture/005/save_picture_874275.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ Unlocker 1.9.2 Final RePack (& Portable) by NEO [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874271.jpg" />
+  <img src="Z:/picture/005/save_picture_874271.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874209.jpg" />
+  <img src="Z:/picture/005/save_picture_874209.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ S.W.A.T.: Огненная буря / S.W.A.T.: Firefight (2011) HDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874046.jpg" />
+  <img src="Z:/picture/005/save_picture_874046.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874041.jpg" />
+  <img src="Z:/picture/005/save_picture_874041.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ Paragon NTFS for Mac 15.5.106 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874014.jpg" />
+  <img src="Z:/picture/005/save_picture_874014.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873429.jpg" />
+  <img src="Z:/picture/005/save_picture_873429.jpg" />
 </div>
 
 
@@ -569,112 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845904   (873133) от 25.02.2015
-
-Менталист / The Mentalist (2014) WEB-DL [H.264/720p-LQ] (Сезон 7, серии 1-13 из 13) (BaibaKo)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрик Джейн — детектив и независимый консультант из Калифорнийского Бюро Расследований (CBI), он использует свои отточенные, как лезвие, навыки наблюдения для раскрытия тяжких преступлений. В самом Бюро Джейн известен за частые нарушения протокола, а также за его звездное прошлое: он работал медиумом, однако теперь сам признает, что симулировал паранормальные способности. (   Читать дальше...   )Производство: СШАЖанр: Драма, криминалРежиссер: Рэндалл Зиск, Крис Лонг, Саймон Бейкер, Роберт Данкан МакНилАктеры: Саймон Бейкер, Робин Танни, Аманда Риджетти, Тим Кенг, Овайн Йомен, Эммануэль Шрики и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Елена Григорьева, Татьяна Оболевич, Алексей Кузнецов, Виталий Ткаченко и Александр ФурманФормат: MKVПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A3D0ABB093B99F692C4B45D879690F7396554D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997728   (873103) от 17.03.2016
-
-UC Browser 5.6.10764.1009 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873103.jpg" />
-</div>
-
-
-###  Подробнее
-
-UC Browser - мировой лидер среди мобильных браузеров, работающий в 150 странах мира, на всех основных операционных системах на 11 языках. Теперь же он работает и на ПК!
-Браузер использует в работе 2 движка - Chromium и Trident, позволяя при необходимости быстро переключаться между ними.
-UC Browser полностью настраивается на индивидуальные предпочтения пользователя: (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA70FAC828171CD6DD48EB9CCF36ADD695DFF1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996384   (872956) от 17.03.2016
-
-Cornacchia | Как создавался фотоарт "Сесиль до Воланж" (2015) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уроке подробно показана техника, с помощью которой я создаю из подручного материала наряд в духе прошлых столетий, прическу, цветочные и драгоценные аксессуары из самых обыкновенных доступных каждому исходников. Вы увидите, как я рисую золотую вышивку и украшения, обрабатываю полупрозрачные ткани и работаю с элементами фона, создающего необходимую атмосферу. Наблюдение (   Читать дальше...   )Жанр: Обучающий видеоурокПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED60CF7FCEE28821CC85665769CC7C5471EA0667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997442   (872789) от 17.03.2016
-
-Adobe Photoshop Lightroom CC 2015.5 (6.5) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA61C79BA2913083A9B59604324CF56D9FD51B3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

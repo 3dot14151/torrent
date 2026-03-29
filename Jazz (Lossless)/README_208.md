@@ -1,3 +1,119 @@
+###  Публикация: 1072626   (352281) от 13.11.2016
+
+Paolo Conte - Psiche (2008) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psiche (3:17)
+02. Il quadrato e il cerchio (3:17)
+03. Intimita' (3:28)
+04. Big Bill (3:44)(   Читать дальше...   )Жанр: Jazz-Pop, VocalПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2295AF55F6999040D2BCEB1872347857DCFD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072641   (352277) от 13.11.2016
+
+Papik - Papik Presents: Cocktail Martino (2013) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabato Sera
+02. Soli Tra la Gente
+03. The Girls From Ipanema
+04. Estate(   Читать дальше...   )Жанр: Vocal Jazz, Nu JazzПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F9EFB69238690CF44DF9B81E70492A6C029BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072453   (352012) от 13.11.2016
+
+Dexter Gordon - Dexter Rides Again (1945-1947) 1992, Savoy Jazz[FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dexter's Riff [02:47]
+ 02.Settin' the Pace - Part 1 & 2 [05:56]
+ 03.So Easy [03:44]
+ 04.Long Tall Dexter [03:06](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2D726EB7008417F51FA9E78E6F8F6731CBA069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256742   (351995) от 23.10.2018
+
+Barney Kessel - Modern Jazz Performances From Bizet's Carmen (1958) 1986, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' The Toreador [5:52]
+02. A Pad On The Edge Of Town [6:46]
+03. If You Dig Me [4:04]
+04. Free As A Bird [5:00](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D86429667A46EBE92B88A05CA7B313D17236CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953119   (351796) от 03.11.2015
 
 Andrew Hill - Compulsion (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz>
@@ -6,7 +122,7 @@ Andrew Hill - Compulsion (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351796.jpg" />
+  <img src="Z:/picture/008/save_picture_351796.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Erroll Garner - Long Ago And Far Away (1950-1951) /1987, Columbia/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351794.jpg" />
+  <img src="Z:/picture/008/save_picture_351794.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Warren Vache Quintet - remembers Benny Carter (2015) /Arbors Records/[FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351782.jpg" />
+  <img src="Z:/picture/008/save_picture_351782.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Wolverines Big Band - Shanghai Shuffle (1986) ProJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351529.jpg" />
+  <img src="Z:/picture/008/save_picture_351529.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Benny Goodman - Live At Basin Street, Vol.2 (1955) 1988, Amreco, Inc. (c) Musicm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351528.jpg" />
+  <img src="Z:/picture/008/save_picture_351528.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ramsey Lewis & Nancy Wilson - The Two Of Us (1984) CBS [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351527.jpg" />
+  <img src="Z:/picture/008/save_picture_351527.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Phil Woods Quintet - American Songbook (2002) 2006, Kind Of Blue [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351526.jpg" />
+  <img src="Z:/picture/008/save_picture_351526.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Martial Solal & Johnny Griffin - In & Out (2000) Dreyfus Jazz [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351491.jpg" />
+  <img src="Z:/picture/008/save_picture_351491.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Melody Gardot - Sunset In The Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351229.jpg" />
+  <img src="Z:/picture/008/save_picture_351229.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_351037.jpg" />
+  <img src="Z:/picture/005/save_picture_351037.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Red Holloway - Legends Of Acid Jazz (1963, 1965) 1998, Prestige [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350395.jpg" />
+  <img src="Z:/picture/008/save_picture_350395.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Wes Montgomery - Back On Indiana Avenue: The Carroll DeCamp Recordings (1950-e) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350285.jpg" />
+  <img src="Z:/picture/008/save_picture_350285.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sonny Rollins - Global Warming (1998) Milestone Records[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350135.jpg" />
+  <img src="Z:/picture/008/save_picture_350135.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Perrine Mansuy - Rainbow Shell (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350124.jpg" />
+  <img src="Z:/picture/008/save_picture_350124.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Stan Getz - Desafinado (1952 - 1963) 3CD, 2014, Le Chant du Monde [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350044.jpg" />
+  <img src="Z:/picture/008/save_picture_350044.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Patrick Lamb - Soul of a Free Man (2009) [APE|Lossless|image + .cue] <Smooth-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349994.jpg" />
+  <img src="Z:/picture/008/save_picture_349994.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Parma Brass Quintet - Swing, Amore & Fantasia (2015) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349986.jpg" />
+  <img src="Z:/picture/008/save_picture_349986.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Roy Ayers - West Coast Vibes (1963) /2011, EMI Music/[FLAC|tracks+.cue]<Straight
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349659.jpg" />
+  <img src="Z:/picture/008/save_picture_349659.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Claudio Roditi - Double Standards (1997) Reservoir [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349443.jpg" />
+  <img src="Z:/picture/008/save_picture_349443.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Eric Dolphy Septet with Donald Byrd - Paris '64 (2018) Hi Hat [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349417.jpg" />
+  <img src="Z:/picture/008/save_picture_349417.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Lars Gullin - Portrait of My Pals (1964) 1989, EMI Svenska AB [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349358.jpg" />
+  <img src="Z:/picture/008/save_picture_349358.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dinah Washington - The Swingin' Miss "D" (1956) 2000, Азбука Звука [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349356.jpg" />
+  <img src="Z:/picture/008/save_picture_349356.jpg" />
 </div>
 
 
@@ -629,127 +745,6 @@ Dinah Washington - The Swingin' Miss "D" (1956) 2000, Азбука Звука [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5305E2099E5DF2EBC571DCB8FBFCDF10131A7FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179394   (349342) от 31.10.2017
-
-Camille Thurman - Inside The Moment (2017) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Has a Thousand Eyes [07:22]
-02. Sassy's Blues [07:41]
-03. Road Song [06:14]
-04. Detour Ahead [07:44](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C266B8F253757EDD735A2508664472F8CF1EE9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579176   (348199) от 23.11.2012
-
-Al Di Meola - The Grande Passion (2000) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_348199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misterio (7:54)
-02. Double Concerto (5:58)
-03. Prelude: Adagio for Theresa (1:22)
-04. The Grande Passion (9:05)
-05. Asia de Cuba (8:59)
-06. Soledad (7:38)
-07. Opus in Green (10:21)
-08. Libertango (5:08)
-09. Azucar (3:13)Жанр: JazzПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578303   (348161) от 22.09.2022
-
-Ellis Marsalis - Whistle Stop (1994) Columbia [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whistle Stop [4:58]
-02. Dee Wee [6:33]
-03. A Moment Alone [4:18]
-04. Magnolia Triangle [6:07](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D51D56FD7674E99B40B63CFC863BD4009931A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329933   (348013) от 07.10.2019
-
-Tubby Hayes Quartet - Grits, Beans and Greens: The Lost Fontana Sessions (1969) 2CD, 2019, Fontana [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Where Am I Going? (take 1) [8:30]
-02. Where Am I Going? (take 2) [7:40]
-03. Where Am I Going? (take 3) [8:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A54029B17FF4B74D4A281709A62FA77F53BEF26
 ```
 
 https://mybot314.ru/tekegram_catalog/

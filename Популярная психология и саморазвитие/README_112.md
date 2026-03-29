@@ -1,3 +1,83 @@
+###  Публикация: 1767628   (33279) от 23.12.2024
+
+К. Николаева, Ф. Жевлаков | Злятся ли буддийские монахи. Помогающая книга по работе с эмоциями через психологию и творчество (2024) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с самим собой на страницах этой книги!
+
+«Злятся ли буддийские монахи» — это помогающая книга, которая расскажет, как справляться со своими эмоциями и чувствами, почему важно слушать свое тело и желания и как стать своим лучшим другом. Авторы книги, практикующие психологи Кристина Николаева и Филипп Жевлаков, простыми словами объяснят, как работать с (   Читать дальше...   )Жанр: Психология, саморазвитиеИздательство: БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C1A2ED625511AD65BF451F377A7CA338D5EDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767623   (33276) от 23.12.2024
+
+Энтони де Мелло | Сон наяву. Размышления, притчи, медитации (2024) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священник, чьи работы были ограничены для издания католической церковью. Мистик и психотерапевт, умело вплетающий в свои размышления притчи, медитации и наставления. Многогранность и восточная мудрость Энтони де Мелло сделали его книги мировыми бестселлерами — близкими, доступными и широко распространенными. «Сон наяву» — одна из последних рукописей де Мелло, изданная (   Читать дальше...   )Жанр: Саморазвитие и личностный ростИздательство: Азбука-АттикусФормат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FEB253826F6274BFE65C5D3660B13990F27B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768561   (33069) от 25.12.2024
+
+Майкл Джеймс Вонг | Искусство маленьких шагов. Заботливое руководство по обретению радости для тех, кто устал (2022) [PDF, FB2, MOBI, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33069.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете практики, истории и медитации, которые бережно направят вас на путь более осмысленной и радостной жизни. Они помогут сбавить темп и в суете дней обрести покой и умиротворение. Учитель медитации Майкл Джеймс Вонг также познакомит вас с необычной, но действенной практикой осознанности – искусством оригами, для которого требуются настойчивость (   Читать дальше...   )Жанр: Саморазвитие, популярная психологияПеревод: Оксана МедведьИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, MOBI, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A94DC923DD8D087757289B0238488C90E56CB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768726   (32973) от 26.12.2024
 
 Патрик Кинг | Социальные уравнения (2024) [PDF]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32973.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32960.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32152.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32148.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31946.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ VLASVET | Код реальности. Переписать жизненный �
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31933.jpg" />
 </div>
 
 
@@ -172,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31932.jpg" />
 </div>
 
 
@@ -200,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31927.jpg" />
 </div>
 
 
@@ -226,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31399.jpg" />
 </div>
 
 
@@ -255,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30659.jpg" />
 </div>
 
 
@@ -282,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30539.jpg" />
 </div>
 
 
@@ -308,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30349.jpg" />
 </div>
 
 
@@ -334,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30249.jpg" />
 </div>
 
 
@@ -361,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29827.jpg" />
 </div>
 
 
@@ -390,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29707.jpg" />
 </div>
 
 
@@ -416,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29519.jpg" />
 </div>
 
 
@@ -442,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29494.jpg" />
 </div>
 
 
@@ -469,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29416.jpg" />
 </div>
 
 
@@ -496,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28687.jpg" />
 </div>
 
 
@@ -522,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28550.jpg" />
 </div>
 
 
@@ -549,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28501.jpg" />
 </div>
 
 
@@ -577,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28084.jpg" />
 </div>
 
 
@@ -603,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28080.jpg" />
 </div>
 
 
@@ -616,86 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2E378EEB13679156A5EC32A28BB5EE62BEC192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778948   (28051) от 10.02.2025
-
-Виенна Фараон | Откуда это в тебе взялось. Найти истоки своих ран, чтобы исцелиться (2024) [PDF, EPUB, FB2, FB3, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему мы замыкаемся в себе или вступаем в конфликты? Не доверяем или угождаем другим? В одних и тех же ситуациях не можем контролировать свои эмоции? Не смеем отстаивать свои личные границы? Как избавиться от разрушительных паттернов, которые мешают здоровому общению? Психотерапевт и популярный эксперт по взаимоотношениям Виенна Фараон предлагает погрузиться в прошлое (   Читать дальше...   )Жанр: популярная психология, психотерапия, саморазвитиеПеревод: Е. ЦветковаИздательство: БомбораФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B606C568AAB33A154C0D9BF37C3D39C2CF3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779281   (27771) от 13.02.2025
-
-А.В. Филатов | Записки профайлера. Искусство менталиста (2023) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Филатов — врач-психиатр, эксперт в области поведенческой психологии, признанный специалист в оценке лица и детекции лжи.
-Книга «Записки профайлера. Искусство менталиста» сборник лучших статей, посвященных профайлингу от эксперта международного уровня. Профайлинг — это дисциплина, изучающая человека с разных сторон. Профайлер способен не только объяснить, (   Читать дальше...   )Жанр: психология, саморазвитие для взрослыхИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B803C97BD30AB75657E8ABBB1C5BC1275CF120C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779470   (27744) от 13.02.2025
-
-Кэрол Пирсон | Пробуждение внутреннего героя. 12 архетипов, которые помогут раскрыть свою личность и найти путь (2024) [PDF, EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из основополагающих книг по архетипической психологии. Система профессора, доктора философии Кэрол Пирсон много лет используется в индивидуальной и групповой терапии, в маркетинге, дизайне, образовании и других сферах. Уникальное сочетание психологии, культурологии и практик саморазвития.
-12 архетипов – 12 этапов развития, которые проходит человек на протяжении (   Читать дальше...   )Жанр: психология общения, социальные навыкиИздательство: МИФФормат: PDF, EPUB, FB2, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02182C4F7C39C9E8D8BA052A63055FDC53EEFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787800.jpg" />
+  <img src="Z:/picture/008/save_picture_787800.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bandicam 5.3.2.1889 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787795.jpg" />
+  <img src="Z:/picture/008/save_picture_787795.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787789.jpg" />
+  <img src="Z:/picture/008/save_picture_787789.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VirtualBox 6.1.30 Build 148432 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787782.jpg" />
+  <img src="Z:/picture/008/save_picture_787782.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VueScan Pro 9.7.68 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787781.jpg" />
+  <img src="Z:/picture/008/save_picture_787781.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ MCS Drivers Disk 21.11.2.1645 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787765.jpg" />
+  <img src="Z:/picture/008/save_picture_787765.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Malwarebytes AdwCleaner 8.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787760.jpg" />
+  <img src="Z:/picture/008/save_picture_787760.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ MiniTool Partition Wizard Technician 12.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787751.jpg" />
+  <img src="Z:/picture/008/save_picture_787751.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Tidy Up 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787724.jpg" />
+  <img src="Z:/picture/008/save_picture_787724.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CoolUtils Total PDF Converter 6.1.0.142 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787709.jpg" />
+  <img src="Z:/picture/008/save_picture_787709.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швей�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787708.jpg" />
+  <img src="Z:/picture/008/save_picture_787708.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787706.jpg" />
+  <img src="Z:/picture/008/save_picture_787706.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dolly Deluxe - Label 4 Releases (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787703.jpg" />
+  <img src="Z:/picture/008/save_picture_787703.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787702.jpg" />
+  <img src="Z:/picture/008/save_picture_787702.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787698.jpg" />
+  <img src="Z:/picture/008/save_picture_787698.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Coolutils Total Excel Converter 5.1.0.245 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787685.jpg" />
+  <img src="Z:/picture/008/save_picture_787685.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Privacy Eraser Free 4.33.0 Build 2496 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787670.jpg" />
+  <img src="Z:/picture/008/save_picture_787670.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1149 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787667.jpg" />
+  <img src="Z:/picture/008/save_picture_787667.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Icecream Slideshow Maker PRO 3.17 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787666.jpg" />
+  <img src="Z:/picture/008/save_picture_787666.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ GoodSync Enterprise 10.7.6.6 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787661.jpg" />
+  <img src="Z:/picture/008/save_picture_787661.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Scrutiny 8 v8.1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787660.jpg" />
+  <img src="Z:/picture/008/save_picture_787660.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ QLab Pro 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787654.jpg" />
+  <img src="Z:/picture/008/save_picture_787654.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787650.jpg" />
+  <img src="Z:/picture/008/save_picture_787650.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Waterfox 56.0.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787649.jpg" />
+  <img src="Z:/picture/008/save_picture_787649.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Viber 8.0.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787644.jpg" />
+  <img src="Z:/picture/008/save_picture_787644.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Coolmuster Android Assistant 4.1.32 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787643.jpg" />
+  <img src="Z:/picture/008/save_picture_787643.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1325047   (416233) от 13.09.2019
+
+Мария-Луиза фон Франц | О снах и о смерти (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — одна из последних, написанных Марией-Луизой фон Франц (почти перед смертью). Так что это некий общий итог её долгих исследований и размышлений в области психологии.
+Последовательница Карла Юнга, Мария-Луиза посвятила жизнь анализу сновидений, изучению бессознательного, механизмов его проявления в жизни человека… В книге она фокусируется на взаимосвязи (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F82619AFAF8F7B31FE9F1F8A42DC04478968A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066123   (415765) от 24.10.2016
+
+Джо Марчант | Сила самовнушения. Как наш разум влияет на тело. Наука и вымысел (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415765.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Можно ли победить болезнь силой мысли? Этот вопрос только кажется простым. Общеизвестно, что тему «исцеляющего разума» крепко оседлали гуру, хилеры и прочие шаманы; по логике, в силу одного этого обстоятельства серьезные ученые не могут снисходительно относиться к «нетрадиционной медицине».Но вот парадокс: именно серьезные ученые, видные представители (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F82FF51468AEBE1A50BEAD20FBA44986FB9663B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947884   (415310) от 18.10.2015
+
+Гэвин Кеннеди | Переговоры. Полный курс (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о ведении переговоров в любых ситуациях. Это увлекательный, доступный и надежный путеводитель по лучшим работам в области обучения переговорному искусству. Используя свой 25-летний опыт переговорщика и бизнес-тренера, Кеннеди критически анализирует самые популярные переговорные практики, помогая читателю взять на вооружение наиболее эффективные из них. Книга (   Читать дальше...   )Жанр: Психология, конфликтологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E49074471C3B7EC0BA68C9FB278F3211E22706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325420   (414488) от 14.09.2019
 
 Лада Лапина | Счастье сильнее страха. Книга поддержки родителей особых детей (2019) [FB2]
@@ -6,7 +85,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414488.jpg" />
+  <img src="Z:/picture/008/save_picture_414488.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414328.jpg" />
+  <img src="Z:/picture/008/save_picture_414328.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413684.jpg" />
+  <img src="Z:/picture/008/save_picture_413684.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413496.jpg" />
+  <img src="Z:/picture/008/save_picture_413496.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413494.jpg" />
+  <img src="Z:/picture/008/save_picture_413494.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413484.jpg" />
+  <img src="Z:/picture/008/save_picture_413484.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413450.jpg" />
+  <img src="Z:/picture/008/save_picture_413450.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413347.jpg" />
+  <img src="Z:/picture/008/save_picture_413347.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410712.jpg" />
+  <img src="Z:/picture/008/save_picture_410712.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410099.jpg" />
+  <img src="Z:/picture/008/save_picture_410099.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409955.jpg" />
+  <img src="Z:/picture/008/save_picture_409955.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409781.jpg" />
+  <img src="Z:/picture/008/save_picture_409781.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409121.jpg" />
+  <img src="Z:/picture/008/save_picture_409121.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409032.jpg" />
+  <img src="Z:/picture/008/save_picture_409032.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409006.jpg" />
+  <img src="Z:/picture/008/save_picture_409006.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408992.jpg" />
+  <img src="Z:/picture/008/save_picture_408992.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407628.jpg" />
+  <img src="Z:/picture/008/save_picture_407628.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407585.jpg" />
+  <img src="Z:/picture/008/save_picture_407585.jpg" />
 </div>
 
 
@@ -488,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406910.jpg" />
+  <img src="Z:/picture/008/save_picture_406910.jpg" />
 </div>
 
 
@@ -514,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404939.jpg" />
+  <img src="Z:/picture/008/save_picture_404939.jpg" />
 </div>
 
 
@@ -542,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404936.jpg" />
+  <img src="Z:/picture/008/save_picture_404936.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404933.jpg" />
+  <img src="Z:/picture/008/save_picture_404933.jpg" />
 </div>
 
 
@@ -597,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404894.jpg" />
+  <img src="Z:/picture/008/save_picture_404894.jpg" />
 </div>
 
 
@@ -611,86 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE45CEDB1EF1C66F3C6031478F139D87088A15D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168715   (404892) от 25.09.2017
-
-Светлана Пилюгина | Привычка стройности. 50 секретов похудения (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая женщина хочет быть стройной: ведь стройность сегодня – это признак не только красоты, но и успешности. Со страниц журналов на вас смотрят потрясающие длинноногие красотки. А вы совсем не такая, вы обычная женщина, не похожая на них. Но вам очень хочется быть такой! Да, вы действительно не похожи на них, но у вас свои ценности, своя неповторимая индивидуальность. (   Читать дальше...   )Жанр: Психология, Здоровье, Личностные тренингиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E430856A18650833016541BD5C488D365535D763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168729   (404848) от 25.09.2017
-
-Алексей Чернозем | Большая книга женского влияния. За спиной успешного мужчины всегда стоит женщина! (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь влиять на мужчин! На мужа, делового партнера, клиента или начальника!
-Это жизненно важно… для самих мужчин! Муж «вдруг» сам поймет, какой путь приведет его к успеху. Партнер «неожиданно» найдет нужную идею, которая принесет выгоду всем. Клиент никогда не вернется к вам недовольным, а начальник будет ощущать себя самой значимой персоной во всем мире!
-В этой (   Читать дальше...   )Жанр: Психология, СамосовершенствованиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D597659AF48E0FCDCA27B0F1A491CD5A288FD62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168757   (404788) от 25.09.2017
-
-Наталья Грэйс | Работа, деньги и любовь. Путеводитель по самореализации (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый бизнес-тренеров, харизматичная женщина, автор пятнадцати книг, популярный блогер Наталья Грэйс предлагает в этой книге технологию раскрытия талантов и способностей! Множество людей живет, не замахиваясь «на большее». Они ничего не достигают, смиряются с тем, что есть. Живут серой жизнью, где нет места настоящему счастью, радостям свершений, пьянящему азарту (   Читать дальше...   )Жанр: Психология, СамосовершенствованиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F54A2AF3A65F60DB6D075F247575D0A6A249926
 ```
 
 https://mybot314.ru/tekegram_catalog/

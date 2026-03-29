@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756983.jpg" />
+  <img src="Z:/picture/008/save_picture_756983.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756982.jpg" />
+  <img src="Z:/picture/008/save_picture_756982.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Get Backup Pro 3.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756981.jpg" />
+  <img src="Z:/picture/008/save_picture_756981.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756980.jpg" />
+  <img src="Z:/picture/008/save_picture_756980.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756979.jpg" />
+  <img src="Z:/picture/008/save_picture_756979.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Dropshare 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756977.jpg" />
+  <img src="Z:/picture/008/save_picture_756977.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756976.jpg" />
+  <img src="Z:/picture/008/save_picture_756976.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Hello Meteor - Dusk Aquarium (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756973.jpg" />
+  <img src="Z:/picture/008/save_picture_756973.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Delicious Library 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756970.jpg" />
+  <img src="Z:/picture/008/save_picture_756970.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Goliath (2016) [Ru/En] (1.0.2) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756968.jpg" />
+  <img src="Z:/picture/008/save_picture_756968.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756964.jpg" />
+  <img src="Z:/picture/008/save_picture_756964.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756951.jpg" />
+  <img src="Z:/picture/008/save_picture_756951.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756933.jpg" />
+  <img src="Z:/picture/008/save_picture_756933.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Wondershare Data Recovery 4.8.0.4 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756912.jpg" />
+  <img src="Z:/picture/008/save_picture_756912.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Remote Desktop Manager Enterprise 10.5.4.0 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756908.jpg" />
+  <img src="Z:/picture/008/save_picture_756908.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Data Guardian 7 v7.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756900.jpg" />
+  <img src="Z:/picture/008/save_picture_756900.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ XCOrganizer 1.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756899.jpg" />
+  <img src="Z:/picture/008/save_picture_756899.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Animated Wallpapers 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756895.jpg" />
+  <img src="Z:/picture/008/save_picture_756895.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Bigasoft Audio Converter for Mac 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756892.jpg" />
+  <img src="Z:/picture/008/save_picture_756892.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Downie 4 v4.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756891.jpg" />
+  <img src="Z:/picture/008/save_picture_756891.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Bigasoft Total Video Converter for Mac 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756884.jpg" />
+  <img src="Z:/picture/008/save_picture_756884.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MusicBee 3.3.7491 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756856.jpg" />
+  <img src="Z:/picture/008/save_picture_756856.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ K-Lite Codec Pack 15.6.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756854.jpg" />
+  <img src="Z:/picture/008/save_picture_756854.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NVIDIA GeForce Desktop 451.67 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756850.jpg" />
+  <img src="Z:/picture/008/save_picture_756850.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Aeonian Sorrow - Into The Eternity A Moment We Are (2018) [FLAC|Lossless|Web-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756843.jpg" />
+  <img src="Z:/picture/008/save_picture_756843.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ GoodSync Enterprise 10.9.23.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756839.jpg" />
+  <img src="Z:/picture/008/save_picture_756839.jpg" />
 </div>
 
 

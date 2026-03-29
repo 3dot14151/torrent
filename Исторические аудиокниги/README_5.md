@@ -1,3 +1,55 @@
+###  Публикация: 1089493   (941436) от 10.01.2017
+
+Пьер Алексис Понсон дю Террайль | Похождения валета треф (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочинения французского беллетриста Пьера Алексиса Понсона дю Террайля (1829—1871) с шумным успехом обошли многие страны мира, соперничали в популярности и тиражах с книгами классика занимательного жанра Александра Дюма. Роман "Любовные похождения Трефового Валета" посвящен событиям, предшествовавшим знаменитой Варфоломеевской ночи. Заговоры, дуэли, любовные (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 03:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2638302229E08817BB8B0471CDA9343E5C0BF30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089908   (941432) от 10.01.2017
+
+Пьер Алексис Понсон дю Террайль | Варфоломеевская ночь (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понсон дю Террайль Пьер Алексис (1829-1879) - французский романист, автор сенсационных романов, преимущественно на уголовные сюжеты. Цикл рассказывает о борьбе за французскую корону в XVI веке и заканчивается вступлением на престол короля Генриха IV. Резня в день Святого Варфоломея была кульминацией ряда событий: Жерменский мирный договор, положивший конец третьей (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 03:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8068A414B8B5EC94C5460C7D2ECF9091AD2BE79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090841   (941430) от 10.01.2017
 
 Пьер Алексис Понсон дю Террайль | Сокровище гугенотов (2017) [MP3]
@@ -6,7 +58,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941430.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940266.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940119.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939388.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_938422.jpg" />
+  <img src="Z:/picture/009/save_picture_938422.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_938413.jpg" />
+  <img src="Z:/picture/009/save_picture_938413.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934080.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933999.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930935.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929295.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929268.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929170.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929159.jpg" />
 </div>
 
 
@@ -360,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929053.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927653.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926902.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925902.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924590.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924500.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924498.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924482.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921013.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921008.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921002.jpg" />
 </div>
 
 
@@ -634,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B440E026638AD36B3E7F7A158E767BBBCE22682E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988783   (920959) от 20.02.2016
-
-Сергей Марков | Люди великой цели (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920959.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первый том избранной прозы Сергея Маркова вошли широкоизвестный у нас и за рубежом роман «Юконский ворон» – об исследователе Аляски Лаврентии Загоскине. Примыкающая к роману «Летопись Аляски» – оригинальное научное изыскание истории Русской Америки. Представлена также книга «Люди великой цели», которую составили повести о выдающемся мореходе Семене Дежневе и знаменитых (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 14:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00524C77484F5A8C32DCBF5AEFE36FD43FF2D21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988482   (920697) от 20.02.2016
-
-Исай Калашников | Жестокий век (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман Исая Калашникова - широкое художественное полотно, выдержанное в традициях русской реалистической прозы. Оно воссоздает красочную картину жизни монголов в конце XII - начале XIII века. В центре романа образ Тэмуджина - Чингисхана. На глазах читателя происходит разрушение личности. Мстительность и злоба, характерные для Чингисхана, с годами проявляются все острее. (   Читать дальше...   )Жанр: Исторический романПродолжительность: 48:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53449F33E85911091ECE580443436E9144AB1A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

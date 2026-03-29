@@ -1,3 +1,247 @@
+###  Публикация: 1769354   (100683) от 28.12.2024
+
+Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right On Track for the Trainwreck (2:55)
+02. When Questionable People Have the Answers (3:36)
+03. Overpoured (I've Had It and I've Had It) (2:49)
+04. Patterning (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE0D0769339590C417306B2FCBA26FEF87F0500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769349   (100682) от 28.12.2024
+
+The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raiders (3:25)
+02. Smoke (4:14)
+03. Yeah-Yeah (3:18)
+04. Body on the Floor (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A87A77C4431002D56BEEF41162AB032B2B58DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769355   (100680) от 28.12.2024
+
+Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinta Kali Ini (4:23)
+02. Take It Easy (4:41)
+03. Worries (5:02)
+04. In My Veins (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CEE1724B6F478EAD8DD779D3CFCA6A71182F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769346   (100678) от 28.12.2024
+
+The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Water Blues (2:55)
+02. White Trash Mind (3:08)
+03. Mississippi Mud (2:55)
+04. Corn Liquor (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615DBBED15049262CDF43AF609187028797CD826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769352   (100675) от 28.12.2024
+
+The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No Money (1:56)
+02. Back Door Blues (3:24)
+03. Bad Luck (2:47)
+04. Bad Time Blues (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1739C4EDC5F896F18236377706E6CA446806692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483079   (99801) от 16.04.2012
+
+Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_99801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Glad
+02. Why Are People Like That?
+03. Soulful Dress
+04. Blues Go Walking
+05. I Done Made It Up in My Mind
+06. Walk by Faith
+07. As an Eagle Stirreth in Her Nest
+08. Rain Down Tears
+09. Get You Next to Me
+10. Steady Love(   Читать дальше...   )2011Жанр: BluesПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477752   (98648) от 04.04.2012
+
+Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossless]<Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_98648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sweet Georgia Brown (5:06)
+2.Black Velvet (5:22)
+3.Blue Sermon (7:43)
+4.Georgia On My Mind (6:55)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476300   (98460) от 02.04.2012
+
+Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_98460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Good Drinkin' Do
+02. Victory of Flying
+03. Only God Knows When
+04. St. Marks
+05. Golden Stairs
+06. Dust My Broom
+07. I Can Tell
+08. Usurper
+09. No Exeption
+10. Meet Me In The Morning(   Читать дальше...   )2011Жанр: Blues-RockПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476653   (98447) от 02.04.2012
 
 Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
@@ -6,7 +250,7 @@ Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98447.jpg" />
+  <img src="Z:/picture/005/save_picture_98447.jpg" />
 </div>
 
 
@@ -41,7 +285,7 @@ The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98436.jpg" />
+  <img src="Z:/picture/005/save_picture_98436.jpg" />
 </div>
 
 
@@ -76,7 +320,7 @@ Carl Martin - Crow Jane Blues (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98430.jpg" />
+  <img src="Z:/picture/005/save_picture_98430.jpg" />
 </div>
 
 
@@ -111,7 +355,7 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98081.jpg" />
+  <img src="Z:/picture/005/save_picture_98081.jpg" />
 </div>
 
 
@@ -144,7 +388,7 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98077.jpg" />
+  <img src="Z:/picture/005/save_picture_98077.jpg" />
 </div>
 
 
@@ -179,7 +423,7 @@ Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98057.jpg" />
+  <img src="Z:/picture/005/save_picture_98057.jpg" />
 </div>
 
 
@@ -214,7 +458,7 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98052.jpg" />
+  <img src="Z:/picture/005/save_picture_98052.jpg" />
 </div>
 
 
@@ -249,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98040.jpg" />
+  <img src="Z:/picture/005/save_picture_98040.jpg" />
 </div>
 
 
@@ -284,7 +528,7 @@ The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96820.jpg" />
+  <img src="Z:/picture/005/save_picture_96820.jpg" />
 </div>
 
 
@@ -317,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96320.jpg" />
+  <img src="Z:/picture/005/save_picture_96320.jpg" />
 </div>
 
 
@@ -352,7 +596,7 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95619.jpg" />
+  <img src="Z:/picture/005/save_picture_95619.jpg" />
 </div>
 
 
@@ -387,7 +631,7 @@ Terry Quiett Band - Just My Luck (2011) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95022.jpg" />
+  <img src="Z:/picture/005/save_picture_95022.jpg" />
 </div>
 
 
@@ -422,7 +666,7 @@ Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93712.jpg" />
 </div>
 
 
@@ -457,7 +701,7 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93555.jpg" />
 </div>
 
 
@@ -492,7 +736,7 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93550.jpg" />
 </div>
 
 
@@ -527,7 +771,7 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93428.jpg" />
 </div>
 
 
@@ -562,7 +806,7 @@ Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93319.jpg" />
 </div>
 
 
@@ -597,7 +841,7 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93299.jpg" />
 </div>
 
 
@@ -613,277 +857,6 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 08. The Game Is Over (2:41)
 09. Woman's Man (9:32)
 10. My Baby Gone Walking (3:01)(   Читать дальше...   )2011Жанр: Blues-RockПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440838   (91421) от 24.01.2012
-
-Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues, Soul, GospelПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485063   (89372) от 19.04.2012
-
-Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brand New Ride (4:21)
-02. One Minute Love (4:21)
-03. Touch My Blues Away (5:10)
-04. Little Mama Don't Play (4:00)
-05. Hey Mister (4:07)
-06. Undone (3:59)
-07. Forever Mine (3:34)
-08. Marry Me (4:25)
-09. Hands Up (3:47)
-10. Fool 4U (4:21)2012Жанр: Blues, Blues-RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477597   (86079) от 03.04.2012
-
-Houston Person - In A Sentimental Mood (2000) [FLAC|Lossless]<Hard-Bop, Post-Bop, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Don't Get Around Much Anymore (to New York City) (4:10)
-2.Tenderly (to St.Louis, MO) (6:39)
-3.Skylark (to Washington, DC) (5:36)
-4.You Don't Know What Love Is (to New York City) (4:31)
-5.The Way We Were (to Chicago, IL&Brooklyn, NY) (5:15)
-6.My Funny Valentine (to Hartford, CT) (4:59)
-7.All The Things You Are (to Rio de Janeiro, Brazil) (4:53)
-8.Good Morning Heartache (to San Diego,CA) (4:58)
-9.Without A Song (to New York City) (4:20)
-10.In A Sentimental Mood (to Berkeley,CA) (3:38)(   Читать дальше...   )Жанр: Hard-Bop, Post-Bop, SoulПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476329   (85880) от 02.04.2012
-
-Mario Biondi And The Unexpected Glimpses - Due (2011) [FLAC|Lossless]<Jazz, Soul, Bossa>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother Earth (6:31)
-02. All I Really Want (3:16)
-03. Do You Want Me To Stay (4:57)
-04. All You Have To Do (3:21)
-05. More Than You Could Ever Know (4:49)
-06. Where Are You (5:23)
-07. Lullaby (5:22)
-08. Everytime I Think Of You (4:42)
-09. Under That Sky (4:02)
-10. Finale In Dissolvenza (3:47)2011Жанр: Jazz, Soul, BossaПродолжительность: 01:26:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276723   (85253) от 30.03.2012
-
-Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There It Is (3:30)
-02. I Won't Cry (3:51)
-03. Make It Rain (3:46)
-04. Whistlin' In The Dark (3:06)
-05. I'm Alive (3:50)
-06. Ragged Company (3:31)
-07. You Got What You Wanted (3:35)
-08. I Don't Want To Do Wrong (4:01)
-09. Thought I Knew You (4:03)
-10. Dirty Water (4:55)(   Читать дальше...   )2010 - 2012Жанр: BluesПродолжительность: 01:26:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473721   (84489) от 26.03.2012
-
-Кроссроудз - Между... (1994) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blues Lives In Russia
-2. Diamond Rain
-3. Сколько можно терпеть
-4. Fool Boy
-5. By My Hand
-6. Be What You Are
-7. Вио
-8. Can`t Get Away
-9. We Are Still Around
-10. Miracle(   Читать дальше...   )1994Жанр: BluesПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472152   (83850) от 23.03.2012
-
-VA - We Got The Funk (2002) [FLAC|Lossless]<Funk, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Sequence - Funk You Up (feat. Angie Brown) (6:49)
-02.Johnny "Guitar" Watson - I Need It (4:42)
-03.Roy Ayers - Running Away (live) (5:04)
-04.Wood, Brass & Steel - Funkanova (5:32)
-05.Brother to Brother - In the Bottle (3:17)
-06.Rhythm Makers - Zone (5:20)
-07.Parliament - I Call My Baby Pussycat (4:25)
-08.Fatback Band - Goin' to See My Baby (3:18)
-09.Communicators & Black Experience Band - Is It Funky Enough? (2:40)
-10.Julius Brockington - Rock Steady (3:34)(   Читать дальше...   )2002Жанр: Funk, Soul, R&BПродолжительность: 03:48:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469903   (82808) от 18.03.2012
-
-Contino - Back Porch Dogma (2012) [WavPack|Lossless]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rotgut Run (4:23)
-02. Big Tent (5:06)
-03. V-8 Ford (3:46)
-04. Temptation (4:39)
-05. Zydeco Train (4:30)
-06. Dog Days (4:50)
-07. One Thing (3:29)
-08. Three Cool Cats (3:26)
-09. Tain’t (4:06)
-10. Nothin’ You Can Do (4:32)(   Читать дальше...   )2012Жанр: Modern Electric BluesПродолжительность: 00:55:09
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,107 @@
+###  Публикация: 869137   (893793) от 13.02.2015
+
+Левиафан (2014) BDRip [1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893793.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский) (Лицензия FRE)Субтитры: ОтсутствуютПродолжительность: 02:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9BE157BAAE394D0761C4A1F8DC072BBDA7FC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101792   (893783) от 07.02.2017
+
+ESET NOD32 Antivirus 10.0.390.0 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антивирус NOD32 - новое антивирусное решение от ESET, предлагающее улучшенный эвристический анализ неизвестных угроз, "облачные" технологии ESET Live Grid для определения репутации файлов и обновленный интерфейс. Включает возможности автоматического сканирования компьютера во время его простоя, проверки файлов непосредственно во время загрузки и возможность (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8612244326D814F5DD583D13083BBA65C16A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101752   (893772) от 07.02.2017
+
+DLL Suite 9.0.0.14 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893772.jpg" />
+</div>
+
+
+###  Подробнее
+
+DLL Suite позволяет поддерживать в актуальном состоянии весь набор необходимых динамических библиотек DLL в системах Windows. Благодаря встроенному инструментарию, приложение может автоматически скачивать из сети интернет и устанавливать в систему отсутствующие и поврежденные файлы библиотек. DLL Suite дает возможность исправить "ошибки отсутствующих .dll", (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37D2BAE550F0A4AF52FF15B673E9BA70AD894CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493411   (893686) от 04.09.2021
+
+Россия и Япония объединились для борьбы с мировой катастрофой
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893686.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках VI Восточного экономического форума (ВЭФ) Россия и Япония решили объединить усилия для борьбы с глобальным потеплением. Чтобы предотвратить мировую катастрофу, страны будут сотрудничать в производстве альтернативного топлива и устранении вредных выбросов, пишет Reuters.Договор подписали министр промышленности Японии Хироси Кадзияма и министр энергетики России (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993566   (893111) от 06.03.2016
 
 Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893111.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893073.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893063.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892972.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Windows 8 занимает 3,2 % рынка настольных ОС
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892439.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Symantec Endpoint Protection 12.1.6 MP7 Build 7166 (12.1.7166.6700) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891837.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Windows 10 Cloud - первая информация о новой систем�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891836.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip R.G. Revenants [Digi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891834.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891829.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891827.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Sea Dogs: City of Abandoned Ships / Корсары: Город потерянн�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891826.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891761.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Classic Albums: Nirvana - Nevermind (2005) DVDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891726.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891720.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891711.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891710.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891709.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891708.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ Carbon Based Lifeforms - Discography 27 Releases (1998-2021) Ultimae Records, Le
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891707.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ CRSED: FOAD (2018) [Ru/Multi] (2.0.4.171) License (обновляемая)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891705.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ NASA показало полностью электрический самоле
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891553.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 эп.] HDTV 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891315.jpg" />
 </div>
 
 
@@ -570,111 +674,6 @@ Dorohedoro | Дорохедоро [2020, TV, 12 эп.] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C88137F52C5EC27283FC68DA9CF39CD9288AC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370223   (891305) от 30.03.2020
-
-Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bright Memory — это сверхскоростной микс из жанров FPS и экшен, созданный студией разработки FYQD, за которой стоит всего один человек, на базе движка Unreal Engine. Объединяйте широкий спектр умений и способностей, чтобы обрушить на врагов умопомрачительные комбо-атаки. Приключение Шелии, агента SRO (Организации Сверхестественных Научных Исследований) вот-вот начнется.Тип издания: RepackРазработчик: FYQD-StudioЖанр: Action, Adventure, 1st Person, 3DЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2327D9891276AAFDA0E8F7EC26103A759B96FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371406   (891300) от 30.03.2020
-
-Зов предков / The Call of the Wild (2020) WEB-DL [H.264/720p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891300.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Бака, дружелюбного пса, чья размеренная домашняя жизнь перевернулась с ног на голову во времена золотой лихорадки в 1880-х, когда его вырвали из дома в Калифорнии и перевезли в дикую и холодную Аляску. Будучи новичком в упряжке почтовой службы, а впоследствии лидером, Бак попадает в невероятное приключение, находит свое место в мире и становится хозяином (   Читать дальше...   )Производство: США, Канада / 3 Arts Entertainment, TSG EntertainmentЖанр: Драма, Приключения, СемейныйРежиссер: Крис СандерсАктеры: Харрисон Форд, Омар Си, Кара Ги, Дэн Стивенс, Брэдли Уитфорд, Джин Луиса КеллиПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCDD6E7C8FFD972166EF8E065488CE4FAD97A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994231   (890805) от 07.03.2016
-
-Waterfox 44.0.3 x64 Final RePack (& Portable) by D!akov [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05E54AFFFEC872C24A797584323A8F281C36861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994273   (890772) от 07.03.2016
-
-Хакеры создали первый вирус-вымогатель для компьютеров Apple
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователи продукции Apple, прежде считавшиеся практически неуязвимой для вирусов, оказались беззащитны перед новой программой, которую специалисты в области кибербезопасности классифицировали как "вымогатель", сообщает Рейтер.App Store подвергся первой крупной атаке хакеров
-Вирус-вымогатель, один из наиболее быстро растущих видов кибер-угроз, шифрует (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

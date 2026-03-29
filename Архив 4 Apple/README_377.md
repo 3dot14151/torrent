@@ -1,3 +1,114 @@
+###  Публикация: 1248522   (442673) от 20.09.2018
+
+Calendar 366 II 2.3.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
+
+Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: n.spektorПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F20C30894D12C16CEB21793CDD3EEB699948967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944221   (442658) от 06.10.2015
+
+Mail Designer Pro 2 (2.5.1) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mail Designer Pro позволяет создавать информационные бюллетени с гибкой конструкцией для настольных и мобильных устройств. Мобильный просмотр делает его легче и позволит оптимизировать ваш дизайн бюллетеня для целого ряда различных мобильных устройств.
+
+С Mail Designer Pro Вы сможете оптимизировать ваш контент для мобильных телефонов и просмотреть все изменения на (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 октября 2015Разработчик: equinux AGПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50137252F5DC0F2D9FB35B8F521AD225F5B15964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248517   (442561) от 20.09.2018
+
+PopChar X 8.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE09209E66803CC3131069E46489FDEA396D423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409812   (442543) от 18.09.2020
+
+DaVinci Resolve Studio 16 v16.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
+В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+
+Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2020Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDC2B28FC467450AD1886E2C93D069D8A5842BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248629   (442536) от 20.09.2018
 
 Macsome iTunes Converter 2.4.0 [En]
@@ -6,7 +117,7 @@ Macsome iTunes Converter 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442536.jpg" />
+  <img src="Z:/picture/008/save_picture_442536.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Camtasia v2018.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442531.jpg" />
+  <img src="Z:/picture/008/save_picture_442531.jpg" />
 </div>
 
 
@@ -59,7 +170,7 @@ SiteSucker 2.11.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442414.jpg" />
+  <img src="Z:/picture/008/save_picture_442414.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ Adobe Illustrator 2020 24.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442362.jpg" />
+  <img src="Z:/picture/008/save_picture_442362.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ Adobe Photoshop Lightroom Classic 2020 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442227.jpg" />
+  <img src="Z:/picture/008/save_picture_442227.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ Lyn 1.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442159.jpg" />
+  <img src="Z:/picture/008/save_picture_442159.jpg" />
 </div>
 
 
@@ -168,7 +279,7 @@ Sketch 57.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442012.jpg" />
+  <img src="Z:/picture/008/save_picture_442012.jpg" />
 </div>
 
 
@@ -194,7 +305,7 @@ CheckBook Pro 2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441028.jpg" />
+  <img src="Z:/picture/008/save_picture_441028.jpg" />
 </div>
 
 
@@ -220,7 +331,7 @@ GroupsPro 5.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441027.jpg" />
+  <img src="Z:/picture/008/save_picture_441027.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ MediaHuman Youtube Downloader 3.9.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440968.jpg" />
+  <img src="Z:/picture/008/save_picture_440968.jpg" />
 </div>
 
 
@@ -276,7 +387,7 @@ FontExplorer X Pro 7 v7.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440951.jpg" />
+  <img src="Z:/picture/008/save_picture_440951.jpg" />
 </div>
 
 
@@ -304,7 +415,7 @@ TwistedWave 24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440886.jpg" />
+  <img src="Z:/picture/008/save_picture_440886.jpg" />
 </div>
 
 
@@ -331,7 +442,7 @@ TablePlus 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440885.jpg" />
+  <img src="Z:/picture/008/save_picture_440885.jpg" />
 </div>
 
 
@@ -358,7 +469,7 @@ LaunchBar 6.13.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440881.jpg" />
+  <img src="Z:/picture/008/save_picture_440881.jpg" />
 </div>
 
 
@@ -384,7 +495,7 @@ BlueHarvest 8 v8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440880.jpg" />
+  <img src="Z:/picture/008/save_picture_440880.jpg" />
 </div>
 
 
@@ -411,7 +522,7 @@ Integrity Pro 12.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440805.jpg" />
+  <img src="Z:/picture/008/save_picture_440805.jpg" />
 </div>
 
 
@@ -437,7 +548,7 @@ One Switch 1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440800.jpg" />
+  <img src="Z:/picture/008/save_picture_440800.jpg" />
 </div>
 
 
@@ -463,7 +574,7 @@ Scrutiny 12 v 12.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440796.jpg" />
+  <img src="Z:/picture/008/save_picture_440796.jpg" />
 </div>
 
 
@@ -490,7 +601,7 @@ Theine 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440742.jpg" />
+  <img src="Z:/picture/008/save_picture_440742.jpg" />
 </div>
 
 
@@ -516,7 +627,7 @@ Affinity Designer Beta 1.9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440738.jpg" />
+  <img src="Z:/picture/008/save_picture_440738.jpg" />
 </div>
 
 
@@ -543,7 +654,7 @@ Adguard 2.5.0 (879) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440735.jpg" />
+  <img src="Z:/picture/008/save_picture_440735.jpg" />
 </div>
 
 
@@ -569,7 +680,7 @@ Wondershare UniConverter 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440725.jpg" />
+  <img src="Z:/picture/008/save_picture_440725.jpg" />
 </div>
 
 
@@ -582,111 +693,6 @@ Wondershare UniConverter - это полный набор инструменто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A8B37C8DB76233ABACF5E1C7DA75E417C361616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570764   (440655) от 18.08.2022
-
-4K Tokkit Pro 1.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: © 2022 Open Media OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410B42FDC417470A7A132980F885D45EEBA09DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570807   (440645) от 18.08.2022
-
-Permute 3 v 3.9.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D601ED2301A5A5BB37FBCFEEBD806C96563B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570799   (440625) от 18.08.2022
-
-FontLab 8 v 8.0.1.8249 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440625.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
-По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: © 2015–2021 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D190278D2C5A929E6FAEB2CC5ADAADC546D199C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570789   (440491) от 18.08.2022
-
-ApolloOne - Photo Video Viewer 3.1.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440491.jpg" />
-</div>
-
-
-###  Подробнее
-
-ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 04.08.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E695A482283B30A3787EC79983FF705968AEFBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

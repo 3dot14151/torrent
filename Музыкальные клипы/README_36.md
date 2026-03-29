@@ -1,3 +1,84 @@
+###  Публикация: 469028   (82706) от 17.03.2012
+
+UK Top 40 Music Video Hits Febuary 2012 (DVD5)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Gotye Feat Kimbra - Somebody That I Used To Know
+02 David Guetta Feat Sia - Titanium
+03 Will.I.Am Feat Mick Jagger & Jennifer Lopez - T.H.E. (The Hardest Ever)
+04 Jessie J - Domino(   Читать дальше...   )Жанр: Музыка (видеоклипы)Перевод: ОтсутствуетЯзык субтитров: нетПродолжительность: 02:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468309   (82271) от 15.03.2012
+
+Приключения Электроников - Клипы [2001-2011, Pop-Punk, DVDRip,TVRip,WEBRip] [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключе́ния Электро́ников — российская панк-рок-супергруппа. «Приключения Электроников» не исполняют собственных песен (за исключением песни "Уходит детство") — исключительно кавер-версии песен из советских детских фильмов, мультфильмов и просто хиты тех лет.Жанр: РоссияПродолжительность: 00:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467194   (81908) от 13.03.2012
+
+Душевные песни, знакомые с детства / THE OLD [Part 1] (2007) SATRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A44EF3144AD22A850E8C0CA96C57BEE972DD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467198   (81897) от 13.03.2012
 
 Душевные песни, знакомые с детства / THE OLD [Part 4] (2010) SATRip
@@ -6,7 +87,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81897.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81846.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81791.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81068.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80619.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79575.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78735.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ NikitA - Машина (2009) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78394.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78191.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77057.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_76803.jpg" />
+  <img src="Z:/picture/005/save_picture_76803.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76719.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76578.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76550.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76301.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75086.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74681.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74540.jpg" />
 </div>
 
 
@@ -495,7 +576,7 @@ VA/Сборник видеоклипов / HD клипы для хорошего
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74367.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74169.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70742.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70711.jpg" />
 </div>
 
 
@@ -605,7 +686,7 @@ Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69173.jpg" />
 </div>
 
 
@@ -617,84 +698,6 @@ Don Juan Dracula вернулись! Когда-то их называли од�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3EBE4EBDD19608B5DFF673C95849DFF10A20D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793467   (66805) от 16.05.2025
-
-NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: ЯпонияЖанр: JpopРежиссер: NiziUАктеры: Мако, Рио, Майя, Рику, Аяка, Маюка, Рима, Миихи и НинаПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7324F2FBAFD25697EAAB7EE7E6D876AA2ED8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796491   (66749) от 18.05.2025
-
-Suzy - Come back (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: Ballad / KpopРежиссер: Suzy KangПродолжительность: 00:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797649   (66745) от 18.05.2025
-
-Юлия Савичева x TRITIA – Каплями (2025) WEBRip [H.264/1080p/1440/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера клипа. Юлия Савичева, TRITIA – Каплями (Official video)Производство: РоссияЖанр: Поп-рокРежиссер: Андрей АкутинПродолжительность: 00:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF57D9181F0CEF6433A87A02938E28CFBE3DD093
 ```
 
 https://mybot314.ru/tekegram_catalog/

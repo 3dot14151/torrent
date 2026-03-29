@@ -1,3 +1,107 @@
+###  Публикация: 462619   (31558) от 09.01.2025
+
+Известная Вселенная. Сезон 3 (8 из 8) / Known Universe. Season 3 (2011) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались о том, что было бы с нами, если бы Земля попала в Черную дыру? Или о том, что путешествие по туннелям временного пространства стало бы реальностью? Может ли наша планета выдержать столкновение с крупным метеоритом, подобное тому, что уничтожило динозавров в доисторические времена? Из цикла программ "Известная Вселенная" вы сможете (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 8 серий по ~ 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BF565C5349ADB79245D10D37449B1963E800A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774591   (30144) от 22.01.2025
+
+NG. Приключения настоящего Флика / A Real Bug's Life (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 5) LE-Production
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30144.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизнь жука» возвращается с захватывающим вторым сезоном, который масштабнее и смелее, чем когда-либо. Вдохновлённый фильмом «Жизнь жука» от Disney и Pixar, оригинальный сериал Disney+ от National Geographic отправляет нас в очередное невероятное приключение в мир микробов, где силы природы действуют в совершенно ином масштабе, а миниатюрные существа полагаются на (   Читать дальше...   )Производство: США / National Geographic, Plimsoll ProductionsЖанр: документальный, природа, путешествия, исследование, флораРежиссер: Нат Шарман, Джон Кэйпенер, Алекс ХемингуэйУчастники: Аквафина, Will Foster-GrundyПеревод: многоголосый (LE-Production)Субтитры: английские (SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEEAF687D635AE0AD0473FAFA82C5BAE0375B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774587   (29966) от 24.01.2025
+
+NG. Приключения настоящего Флика / A Real Bug's Life (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) Jaskier
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29966.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Жизнь настоящего жука" - это приключение в мире, находящемся за пределами вашего воображения, где жизнь имеет совершенно другой масштаб, а маленькие существа живут под постоянной угрозой и им необходимо полагаться на свои феноменальные силы, чтобы дожить до конца дня.Производство: США / National Geographic, Plimsoll ProductionsЖанр: документальный, природа, путешествия, исследование, флораРежиссер: Нат Шарман, Джон Кэйпенер, Алекс ХемингуэйУчастники: Аквафина, Will Foster-GrundyПеревод: одноголосый профессиональный (Jaskier)Субтитры: английскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BF988886D678FD8ADF3AB18BA2AB226347D728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217566   (27570) от 15.02.2025
+
+NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p-LQ] (серии 4 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите нырнуть в ледяной бассейн с температурой воды минус 14 градусов? Без проблем, поезжайте в Северный Китай и... ныряйте себе в удовольствие! Ну, а как насчет идеи поиграть в поло с обезглавленным козлом? Легко... И вот уже власти провинции Ганьсу быстро выдворяют вас за пределы ее территории. И все это происходит в один день. Но, не спешите прощаться, это пока (   Читать дальше...   )Производство: National GeographicЖанр: ДокументальныйРежиссер: Питер и Джеф ХатченсПеревод: Одноголосый профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 4 х~00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335E4285F3218D22ECD7A74041706A177FD255F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643150   (19076) от 07.05.2025
 
 Нацисты в Нюрнберге: Утраченные свидетельства / Nazis at Nuremberg: The Lost Testimony (2022) WEBRip [H.264/720p] [DVO]
@@ -6,7 +110,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19076.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14525.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14315.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13943.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13925.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12988.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12867.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9132.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9106.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6138.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6105.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3727.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3425.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_342.jpg" />
 </div>
 
 

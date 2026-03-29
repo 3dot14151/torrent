@@ -6,7 +6,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip [H.264/1080p]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606049.jpg" />
+  <img src="Z:/picture/008/save_picture_606049.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Angry Birds в кино / Angry Birds (2016) HDRip
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605909.jpg" />
+  <img src="Z:/picture/008/save_picture_605909.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip [H.264/720p]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605908.jpg" />
+  <img src="Z:/picture/008/save_picture_605908.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604202.jpg" />
+  <img src="Z:/picture/008/save_picture_604202.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600782.jpg" />
+  <img src="Z:/picture/008/save_picture_600782.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599734.jpg" />
+  <img src="Z:/picture/008/save_picture_599734.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598090.jpg" />
+  <img src="Z:/picture/008/save_picture_598090.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597867.jpg" />
+  <img src="Z:/picture/008/save_picture_597867.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRemux [H.264/1080p]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596997.jpg" />
+  <img src="Z:/picture/008/save_picture_596997.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596522.jpg" />
+  <img src="Z:/picture/008/save_picture_596522.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596462.jpg" />
+  <img src="Z:/picture/008/save_picture_596462.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595665.jpg" />
+  <img src="Z:/picture/008/save_picture_595665.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip [H.264]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595533.jpg" />
+  <img src="Z:/picture/008/save_picture_595533.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593857.jpg" />
+  <img src="Z:/picture/008/save_picture_593857.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593666.jpg" />
+  <img src="Z:/picture/008/save_picture_593666.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592827.jpg" />
+  <img src="Z:/picture/008/save_picture_592827.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591771.jpg" />
+  <img src="Z:/picture/008/save_picture_591771.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591736.jpg" />
+  <img src="Z:/picture/008/save_picture_591736.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591039.jpg" />
+  <img src="Z:/picture/008/save_picture_591039.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591015.jpg" />
+  <img src="Z:/picture/008/save_picture_591015.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590030.jpg" />
+  <img src="Z:/picture/008/save_picture_590030.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589036.jpg" />
+  <img src="Z:/picture/008/save_picture_589036.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589035.jpg" />
+  <img src="Z:/picture/008/save_picture_589035.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588985.jpg" />
+  <img src="Z:/picture/008/save_picture_588985.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588487.jpg" />
+  <img src="Z:/picture/008/save_picture_588487.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587317.jpg" />
+  <img src="Z:/picture/008/save_picture_587317.jpg" />
 </div>
 
 

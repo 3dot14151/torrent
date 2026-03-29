@@ -1,3 +1,59 @@
+###  Публикация: 983364   (943409) от 06.02.2016
+
+Антон Брежестовский | Руббенгоушнигфардель и еще 40 красочных, точных и сочных уроков английского на каждый день (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943409.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уникальном учебном пособии ключевые грамматические темы и лексические тонкости представлены в виде мини-уроков, которые можно освоить за 10–15 минут. Многолетний преподавательский опыт и тонкое чувство юмора позволяют автору просто и занятно рассказывать обо всем, что нужно знать, чтобы свободно говорить по-английски.
+
+Понятные объяснения и запоминающиеся (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45CEB5EA4ACEA11152B3265868688A6F79DC6F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091570   (942624) от 09.01.2017
+
+Светлана Шишкова | Буквограмма. В школу с радостью. Коррекция и развитие письменной и устной речи. От 5 до 14 лет (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ищете проверенное пособие, которое поможет вашему ребенку быстро развить навыки чтения и письма? Десятки тысяч родителей уже воспользовались удивительной методикой, которая получила название «Буквограмма»! И она действительно помогла: дети не только быстро освоили навыки чтения, но и полюбили это занятие!
+
+Эта книга поможет родителям, воспитателям, учителям и (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E44B26A26CE63965D31E344038CEE5E301E74B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984219   (940221) от 08.02.2016
 
 Лев Токмаков | Потешные прогулки по Москве (2010) [FB2]
@@ -6,7 +62,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940221.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938369.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936538.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935771.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934412.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933264.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933260.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931405.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930341.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929997.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929829.jpg" />
 </div>
 
 
@@ -300,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929072.jpg" />
 </div>
 
 
@@ -326,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928783.jpg" />
 </div>
 
 
@@ -352,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927587.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927183.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925477.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920941.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920808.jpg" />
 </div>
 
 
@@ -486,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920654.jpg" />
 </div>
 
 
@@ -512,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920546.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920519.jpg" />
 </div>
 
 
@@ -564,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920405.jpg" />
 </div>
 
 
@@ -591,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919747.jpg" />
 </div>
 
 
@@ -617,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919655.jpg" />
 </div>
 
 
@@ -628,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF1189542C418E83A0B245ECEE4772B36CE19F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096509   (919243) от 24.01.2017
-
-Светлана Воронцова, Александр Лавров | Грибы в лукошке (1987) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие ребята! Эта книжка познакомит вас с грибами - съедобными и ядовитыми. Вы узнаете, как они выглядят и где любят расти. Раскрашивая рисунки, запоминайте, какие грибы можно положить в корзинку, а какие нельзя.Жанр: Образование, обучение и развитие детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7905F42EB937A3AC44BD014A24D610EB85539DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989085   (919177) от 21.02.2016
-
-А. Дорохов | Сто послушных рук (1954) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о чудесах техники. Только чудом это казалось во времена выхода книги из печати. Телевизор, холодильник, пылесос и двухколесный детский велосипед для большинства были несбыточной мечтой.
-   А о таком агрегате, как бытовая стиральная машина, автор тогда похоже вообще не слышал. Тем не менее, именно тогда были осуществлены проекты, которые и сейчас поражают своим (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC66E211FEE03C4EA1574396A0EC3625F87528AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

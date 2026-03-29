@@ -1,3 +1,35 @@
+###  Публикация: 1268230   (230009) от 09.12.2018
+
+VA - Der deutsche Schlager Winter (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230009.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+Продолжительность: 00:49:19
+01. Eloy de Jong - Regenbogen
+02. Anni Perka - Du bist für mich nicht alles(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:50:31
+
+01. Calimeros - Ich küsse einen Engel
+02. Simone & Charly Brunner - Wahre Liebe(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A935C34B67D2FDC538ABC5A898C1822E839D09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268076   (229812) от 09.12.2018
 
 VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
@@ -6,7 +38,7 @@ VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229812.jpg" />
+  <img src="Z:/picture/004/save_picture_229812.jpg" />
 </div>
 
 
@@ -35,7 +67,7 @@ Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229423.jpg" />
+  <img src="Z:/picture/004/save_picture_229423.jpg" />
 </div>
 
 
@@ -70,7 +102,7 @@ Amanda Lear - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229246.jpg" />
+  <img src="Z:/picture/004/save_picture_229246.jpg" />
 </div>
 
 
@@ -105,7 +137,7 @@ VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229009.jpg" />
+  <img src="Z:/picture/004/save_picture_229009.jpg" />
 </div>
 
 
@@ -134,7 +166,7 @@ MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228645.jpg" />
 </div>
 
 
@@ -163,7 +195,7 @@ Various Artists - NOW #1s - 70 Years Of The Official Singles Chart (5 CD Box Set
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228544.jpg" />
 </div>
 
 
@@ -192,7 +224,7 @@ VA - 100 Greatest Christmas Songs Ever (Top Xmas Pop Hits) (2019) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228524.jpg" />
 </div>
 
 
@@ -221,7 +253,7 @@ Prince - HITnRUN Phase Two (2015) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228221.jpg" />
+  <img src="Z:/picture/005/save_picture_228221.jpg" />
 </div>
 
 
@@ -250,7 +282,7 @@ Andrea Berg (Andrea Zellen) - 2 Albums (2022-2023) [MP3|320 Kbps] <Dance Pop, Sc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227636.jpg" />
 </div>
 
 
@@ -279,7 +311,7 @@ VA - Diskoteka в стиле O-Zone (2005) [MP3|320 Kbps] <Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227455.jpg" />
+  <img src="Z:/picture/005/save_picture_227455.jpg" />
 </div>
 
 
@@ -308,7 +340,7 @@ Power Music Workout - Workout Top Songs 2023 - Summer Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227416.jpg" />
 </div>
 
 
@@ -337,7 +369,7 @@ VA - Italian Golden Ballads (2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226829.jpg" />
+  <img src="Z:/picture/005/save_picture_226829.jpg" />
 </div>
 
 
@@ -372,7 +404,7 @@ VA - Schlager Club 2019 (63 Discofox Party Hits) (2018) 3CD [MP3|320 Kbps] <Schl
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226808.jpg" />
+  <img src="Z:/picture/005/save_picture_226808.jpg" />
 </div>
 
 
@@ -401,7 +433,7 @@ Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226624.jpg" />
 </div>
 
 
@@ -430,7 +462,7 @@ VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226523.jpg" />
 </div>
 
 
@@ -459,7 +491,7 @@ Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226477.jpg" />
 </div>
 
 
@@ -488,7 +520,7 @@ VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226386.jpg" />
+  <img src="Z:/picture/005/save_picture_226386.jpg" />
 </div>
 
 
@@ -517,7 +549,7 @@ Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226142.jpg" />
+  <img src="Z:/picture/005/save_picture_226142.jpg" />
 </div>
 
 
@@ -551,7 +583,7 @@ VA - Hot Parade Winter 2016 (2015) [MP3|320 кб/с] <Dance, House, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225640.jpg" />
+  <img src="Z:/picture/005/save_picture_225640.jpg" />
 </div>
 
 
@@ -580,7 +612,7 @@ Groove Armada - Twenty One (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225339.jpg" />
+  <img src="Z:/picture/005/save_picture_225339.jpg" />
 </div>
 
 
@@ -609,7 +641,7 @@ VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Vi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225154.jpg" />
+  <img src="Z:/picture/005/save_picture_225154.jpg" />
 </div>
 
 
@@ -638,7 +670,7 @@ VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225146.jpg" />
+  <img src="Z:/picture/005/save_picture_225146.jpg" />
 </div>
 
 
@@ -667,7 +699,7 @@ Sarah Connor - Bounce (2004) [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224717.jpg" />
+  <img src="Z:/picture/005/save_picture_224717.jpg" />
 </div>
 
 
@@ -696,7 +728,7 @@ Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224535.jpg" />
+  <img src="Z:/picture/005/save_picture_224535.jpg" />
 </div>
 
 
@@ -725,7 +757,7 @@ Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224514.jpg" />
+  <img src="Z:/picture/005/save_picture_224514.jpg" />
 </div>
 
 
@@ -739,35 +771,6 @@ Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D82959A2E28A82A626E587936842D95A75514F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269134   (223263) от 13.12.2018
-
-VA - 90's Running Songs (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sledge - We Are Family (Sure Is Pure Remix)
-02. Deee-Lite - Runaway
-03. The Supernaturals - Smile
-04. Kym Sims - Take My Advice(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5098310A4EF064537127C7C18C41C15FE7804212
 ```
 
 https://mybot314.ru/tekegram_catalog/

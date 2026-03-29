@@ -1,3 +1,83 @@
+###  Публикация: 1741370   (47673) от 06.08.2024
+
+Уильям У. Хьюитт | Гипноз для начинающих (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга содержит двадцатилетний опыт автора - гипнотизера-профессионала. Создавая ее, Уильям Хьюитт ставил перед собой цель описать гипноз как нормальный, здоровый и естественный феномен, как полезное и достойное уважения искусство. В книге представлено все для овладения навыками гипноза и самогипноза, включая подробное описание методов гипнотического внушения (   Читать дальше...   )Жанр: Общая психологияПеревод: К. СавельевИздательство: Москва: группа "Гранд-фаир"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2215FA2B3A30DA537E064C137D6B950B737FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744075   (46349) от 19.08.2024
+
+Алексей Филатов | Ловушки и иллюзии мозга (2021) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когнитивные искажения – это определенные шаблоны мышления, которые изменяют восприятие реальности. Чаще всего – в сторону негатива. Задумывались ли вы о том, как часто мозг вводит нас в заблуждение? Почему нам в принципе свойственно шаблонное мышление? Почему многие становятся жертвами мошенников или ведутся на маркетинговые манипуляции в стиле «Только на этой неделе! (   Читать дальше...   )Жанр: Психология, КогнитивистикаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE6A9E21EF1C087A5367438CF6D3CE61A657258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744086   (46134) от 21.08.2024
+
+Патрик Кинг | Как убеждать людей. Скрытые психологические стратегии, позволяющие влиять, убеждать и добиваться своего без манипуляций (2025) [DOCX, EPUB, FB2, MOBI, PDF, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как добиться от людей того, что вам нужно,  изящно и незаметно? Какие фразы и слова убеждают, направляют и защищают? Если хотите получить поддержку, успешно вести переговоры, отстоять свое мнение и стать авторитетным лидером, эта книга поможет вам одержать победу и занять то положение, которого вы достойны. Вы овладеете явными и скрытыми методами убеждения.
+
+Большинство (   Читать дальше...   )Жанр: СаморазвитиеИздательство: БиблосФормат: DOCX, EPUB, FB2, MOBI, PDF, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300BB1AB754D47BFD50BE75C63F49FD78190198A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745007   (45834) от 24.08.2024
 
 Алексей Филатов | Карты «Шизофреногенные паттерны» (2018) [PDF, DOCX, JPG]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45834.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45391.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45360.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45040.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44988.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44438.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44337.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44257.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44002.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43683.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43495.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43439.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43388.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43304.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43297.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43284.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43280.jpg" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43258.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43207.jpg" />
 </div>
 
 
@@ -514,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43185.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43077.jpg" />
 </div>
 
 
@@ -568,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42746.jpg" />
 </div>
 
 
@@ -595,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42570.jpg" />
 </div>
 
 
@@ -606,87 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C02B42DCF7531F1FA96512381CFFE2F47ED3456D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751470   (42445) от 25.09.2024
-
-Андрей Соколов | Как научиться острословию (2024) [DOCX, EPUB, PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите узнать, как при помощи острословия защититься от агрессивных высказываний, не позволять собой манипулировать и правильно мыслить, откройте эту книгу. Методы ответов на упреки и насмешки появились в результате обобщения опыта высказываний известных и выдающихся людей, философов. В книге вы найдете много примеров, взятых из различных источников. Ее можно (   Читать дальше...   )Жанр: Юмор и сатираИздательство: Самиздат в системе RideroФормат: DOCX, EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B04AD9D7DB857FC04CECC419E4392E4EF039BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751589   (42341) от 26.09.2024
-
-Наполеон Хилл, Джордж Клейсон | Думай и богатей! Самый богатый человек в Вавилоне (2024) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думай и богатей. Самый богатый человек в Вавилоне. Два бестселлера под одной обложкой. Подарочное издание
-Перед вами две главные книги по психологии успеха и финансового благополучия. Они остаются в топе продаж почти сотню лет. Их авторы помогут ответить на вопрос: что отличает богатых людей от обычных и как изменить свое мышление, чтобы стать одним из них.
-
-«Думай (   Читать дальше...   )Жанр: Личная эффективностьИздательство: БомбораФормат: FB2, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94E218ECF0EADAB851FD0F138C0EA9BB33AC270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751885   (42260) от 27.09.2024
-
-Алексей Ярцев | Эффективное общение. Ораторское искусство (2023) [EPUB, PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публичные споры для многих сродни кошмарному сну. Мы часами думаем «Надо было ему ответить так», но уже поздно. Книга «Эффективное общение. Ораторское искусство. Саморазвитие. Этика. Упражнения. Искусство спора. Конфликты» содержит ответы, которые надо успеть сказать в лицо оппоненту. Публичные выступления, ораторское мастерство и устная речь - на новом уровне даже (   Читать дальше...   )Жанр: СаморазвитиеИздательство: СамиздатФормат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C599DB1428FD0DD3346BCDA81A712A88BCCE78
 ```
 
 https://mybot314.ru/tekegram_catalog/

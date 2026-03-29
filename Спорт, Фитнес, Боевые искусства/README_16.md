@@ -1,3 +1,57 @@
+###  Публикация: 1084130   (271996) от 17.12.2016
+
+Иоганн Петер Мюллер | Моя система: Пять минут в день (2014) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мюллер Иоганнес Петер (1801-1858) - естествоиспытатель, иностранный член-корреспондент Петербургской АН (1832). Автор трудов по физиологии центральной нервной системы и органов чувств, сравнительной анатомии; описал ранние этапы развития зародыша человека.
+Вашему вниманию предлагается книга "Моя система: Пять минут в день", в которой доходчиво описана авторская (   Читать дальше...   )Жанр: Физкультура, фитнес, бодибилдингФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71C85602F3D64FC57B5B00D493521B2033DD99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215107   (271672) от 30.11.2018
+
+А. А. Кадочников | Сборник книг по Системе Кадочникова [PDF/DOC]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский рукопашный бой-система, созданная на базе народных видов борьбы и под незначительным влиянием лучших достижений зарубежных систем самозащиты, вместе с тем органически отличается от всех других систем, главным образом тем, что она основана на знании анатомического строения человека,
+на умении переходить с приема на прием, на знании равновесия человеческого (   Читать дальше...   )Формат: PDF/DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43723CF7D38A73C2BFDB312CBC9B0A5B50B96B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 669453   (269419) от 15.11.2019
 
 Денис Борисов | Анаболикум: Темная Сторона Силы! [2013] [HTML]
@@ -6,7 +60,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269419.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269345.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263764.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263725.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258906.jpg" />
+  <img src="Z:/picture/005/save_picture_258906.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258119.jpg" />
+  <img src="Z:/picture/005/save_picture_258119.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258084.jpg" />
+  <img src="Z:/picture/005/save_picture_258084.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253520.jpg" />
+  <img src="Z:/picture/005/save_picture_253520.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253496.jpg" />
+  <img src="Z:/picture/005/save_picture_253496.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253492.jpg" />
+  <img src="Z:/picture/005/save_picture_253492.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253289.jpg" />
+  <img src="Z:/picture/005/save_picture_253289.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253288.jpg" />
+  <img src="Z:/picture/005/save_picture_253288.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234249.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223180.jpg" />
+  <img src="Z:/picture/005/save_picture_223180.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223137.jpg" />
+  <img src="Z:/picture/005/save_picture_223137.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220575.jpg" />
+  <img src="Z:/picture/005/save_picture_220575.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220434.jpg" />
+  <img src="Z:/picture/005/save_picture_220434.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220058.jpg" />
+  <img src="Z:/picture/005/save_picture_220058.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219095.jpg" />
+  <img src="Z:/picture/005/save_picture_219095.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219043.jpg" />
+  <img src="Z:/picture/005/save_picture_219043.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219012.jpg" />
+  <img src="Z:/picture/005/save_picture_219012.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218285.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218193.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217924.jpg" />
 </div>
 
 
@@ -633,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B0AE20BA35770A18D48DE4863D0C0192363CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085448   (214454) от 21.12.2016
-
-Леонид Волков | Физические способности детей и подростков (1981) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214454.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены вопросы о формировании физических способностей, развития и воспитания таковых у детей и подростков. Центральное место в книге занимает вопрос распределения средств педагогического воздействия на разных этапах возрастного развития.
-Книга ориентирована на инструкторов физической культуры, тренеров, учителей, врачей-специалистов.Жанр: Физкультура, СпортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82529B3F36111DD8B40C90C7A00A84EAA4F0CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529167   (213237) от 19.06.2022
-
-Грегуар Гибо | Главное движение. 10 ключей для здорового и красивого тела (2021) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто-то хочет похудеть при помощи спорта, но, не увидев желаемый результат через месяц, сдается и бросает занятия. Кто-то боится, что физические нагрузки плохо скажутся на суставах и спровоцируют их болезни. А некоторые не могут найти в себе силы хотя бы на 15-минутную прогулку или легкую гимнастику, потому что эмоциональное состояние оставляет желать лучшего. Грегуар (   Читать дальше...   )Жанр: Здоровье, Спорт / фитнесПеревод: Денис БондаревскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5FB76C00B301613E6DB645C38FACF4FA1E9BAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

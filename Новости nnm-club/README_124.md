@@ -1,3 +1,160 @@
+###  Публикация: 952964   (629792) от 15.07.2016
+
+Singularity (2010) [Ru] (1.1) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами. Оказавшись в этом странном, постоянно меняющемся месте, где внезапно происходят скачки во времени, игроки пройдут серьезные испытания. Используя (   Читать дальше...   )Тип издания: RepackРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E696B20CF8333EA9474138E5E869DD291AF043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035213   (629790) от 15.07.2016
+
+Navitel / Навител Навигатор v9.6.2674 Full и другие  [Ru/Multi] - только программа навигации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 15.07.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B77F3862654BF10B7E2BEFB619448F48857E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909007   (629129) от 16.06.2015
+
+Kerish Doctor 2015 4.60 DC 20.04.2015 RePack by D!akov (Upd. 16.06.2015) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerish Doctor 2015 — комплексное решение для ухода за компьютером, которое содержит наиболее перспективные разработки в данной области. Благодаря уникальной системе Kerish Doctor 2015 предотвращает сбои Windows в реальном времени, а также надежно исправляет ошибки системного реестра. Приложение регулярно производит наиболее совершенную и безопасную очистку системы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C717A23E688E72F93D803149112448F9424885B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787126   (629119) от 16.06.2015
+
+Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/Multi] (3.126.0/dlc) SteamRip Let'sPlay [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой стратегии «В тылу врага 2: Штурм» предлагает новые режимы одиночной игры, в которых вам предстоит принять участие в разнообразных военных операциях – от грандиозных танковых сражений до скрытных снайперских диверсий.
+В мультиплеере вы сможете помериться силами с соперниками на новых многопользовательских картах форматов от «1 на 1» до «4 на (   Читать дальше...   )Тип издания: SteamRipРазработчик: DigitalmindsoftЖанр: Add-on (Standalone) / Strategy (Real-time) / 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий, Французский, Испанский, ПольскийЯзык интерфейса: Русский, Английский, Итальянский, Немецкий, Французский, Испанский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB43FD5106A28BB4EACD145AB1D103592548BA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534724   (629026) от 11.04.2022
+
+ELEX II (2022) [Ru/Multi] (1.03) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629026.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELEX II – продолжение ELEX, винтажной ролевой игры с открытым миром от знаменитой студии Piranha Bytes, разработчиков Gothic и Risen. В ELEX II вам предстоит вернуться в постапокалиптический мир Магалана – благодаря реактивному ранцу вам откроется небывалая свобода в исследовании его многоликих просторов. Не прошло и нескольких лет с победы Джакса над Гибридом, как (   Читать дальше...   )Тип издания: RepackРазработчик: Piranha BytesЖанр: Action, RPG, Adventure, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6BD04171EBDC58D05634ABF5E721410880C9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144202   (628910) от 21.06.2017
+
+CyberLink PowerDVD Ultra 17.0.1808.60 RePack by qazwsxe [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628910.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink PowerDVD - один из самых мощных на данный момент программных проигрывателей, позволяющий просматривать DVD-Video и Video-CD на вашем компьютере. Главными преимуществами этого проигрывателя можно назвать высокое качество изображения, удобный интерфейс с возможностью смены скинов и лёгкую настройку. Кроме просмотра фильмов с компакт-дисков (DVD и Video-CD), (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38C4B987BD3A9CA66E5A3313809DB19475E66B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144197   (628904) от 21.06.2017
 
 Adobe After Effects CC 2017 (v14.2.1) Multilingual Update 3
@@ -6,7 +163,7 @@ Adobe After Effects CC 2017 (v14.2.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628904.jpg" />
+  <img src="Z:/picture/008/save_picture_628904.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628896.jpg" />
+  <img src="Z:/picture/008/save_picture_628896.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628088.jpg" />
+  <img src="Z:/picture/008/save_picture_628088.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Profileschool | Adobe Photoshop. Коммерческая ретушь (2013) PC
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628086.jpg" />
+  <img src="Z:/picture/008/save_picture_628086.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627824.jpg" />
+  <img src="Z:/picture/008/save_picture_627824.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Ryse: Son of Rome (2014) [Ru] (1.0.0.153/upd3/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627823.jpg" />
+  <img src="Z:/picture/008/save_picture_627823.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ Navitel / Навител Навигатор v9.6.2674 RePack [Ru/En] - толь�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627822.jpg" />
+  <img src="Z:/picture/008/save_picture_627822.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627821.jpg" />
+  <img src="Z:/picture/008/save_picture_627821.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627628.jpg" />
+  <img src="Z:/picture/008/save_picture_627628.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_627387.jpg" />
+  <img src="Z:/picture/005/save_picture_627387.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ Phase One Capture One Pro 12.0.3.22 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627335.jpg" />
+  <img src="Z:/picture/008/save_picture_627335.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Norton Security 22.5.0.120 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627157.jpg" />
+  <img src="Z:/picture/008/save_picture_627157.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ Realtek High Definition Audio Driver 6.0.9273.1 WHQL (x64) (Unofficial) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627077.jpg" />
+  <img src="Z:/picture/008/save_picture_627077.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Hearthstone Heroes of Warcraft-v2.7.9166 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627041.jpg" />
+  <img src="Z:/picture/008/save_picture_627041.jpg" />
 </div>
 
 
@@ -376,7 +533,7 @@ Garmin: City Navigator Europe NT 2016.10 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627039.jpg" />
+  <img src="Z:/picture/008/save_picture_627039.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ System Shock 2 (1999) [Multi] (2.4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627038.jpg" />
+  <img src="Z:/picture/008/save_picture_627038.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ Pybursa.com | Профессиональные Python курсы online (2014) P
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627033.jpg" />
+  <img src="Z:/picture/008/save_picture_627033.jpg" />
 </div>
 
 
@@ -457,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627027.jpg" />
+  <img src="Z:/picture/008/save_picture_627027.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ V-Ray 3.50.04 for 3ds Max 2015-2017 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626912.jpg" />
+  <img src="Z:/picture/008/save_picture_626912.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626873.jpg" />
+  <img src="Z:/picture/005/save_picture_626873.jpg" />
 </div>
 
 
@@ -522,167 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350832   (626861) от 14.06.2011
-
-Alice: Madness Returns [Multi6-] (DL) 2011
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice: Madness Returns является сиквелом первой части игры, в котором вас ждет захватывающий сюжет, увлекательный игровой процесс и красивая графика.
-
-События в Alice: Madness Returns развернутся спустя 10 лет после окончания сюжета оригинала. Проведя 10 лет в психиатрической лечебнице, Алиса наконец-то выходит на свободу. Под надзором психиатра она должна избавиться (   Читать дальше...   )Тип издания: Лицензия (цифровая)Разработчик: Spicy HorseЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский, Итальянский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6759D158F7BC59A6C7524511B65E91586286BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 134098   (626792) от 17.07.2010
-
-Бумбокс - 7 Альбомов + Графiт + DJ Valik + Acoustic Swing Band (2003 - 2010) [MP3|128 - 320 kbps]<Reggae>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626792.jpg" />
-</div>
-
-
-###  Подробнее
-
-История группы Бумбокс начинается, конечно, не в Киеве, а в Черкассах. В 1999 году я, Алексей Согомонов и Андрей Хлывнюк познакомились при смешных обстоятельствах.Список альбомов:
-2005 - Меломанія
-2006 - Family Бiзнес
-2007 - Тримай(   Читать дальше...   )Жанр: ReggaeПродолжительность: Кодек: MP3
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229232   (626035) от 06.06.2018
-
-В Госдуме обсуждают запрет на отслеживание интернет-запросов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парламентарии озаботились тем, что многие интернет-сервисы используют определенные алгоритмы, которые запоминают определенные предпочтения пользователей во время онлайн-поиска, чтения новостей и т.д.Заместитель председателя комитета Госдумы по информационной политике Андрей Свинцов предложил запретить сервисам контекстной рекламы и новостным агрегаторам отслеживание (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937272   (625897) от 17.07.2016
-
-Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (1.24.4.3s/dlc) SteamRip R.G. Origins [Collector's Bundle]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще до выхода этой второй части игры пользователи создали ажиотаж вокруг нее. Ждали с нетерпением. Что нового в данной версии суперпопулярного симулятора? Окружающий мир создан очень основательно, прекрасно можно наблюдать достопримечательности, пролетающие в окне, все пейзажи созданы с высокой детализацией. Конечно, проехать на грузовике по улицам, скажем, Лондона, (   Читать дальше...   )Тип издания: SteamRipРазработчик: SCS SoftwareЖанр: Racing, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083399507E0CD1A3B5067DB92A10C990EBCC67CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209674   (625855) от 06.06.2018
-
-Gravel (2018) [Multi] (1.0/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gravel – динамичная гоночная игра, где пользователям предлагается сесть за руль внедорожников. Проект создан на движке Unreal Engine 4, что позволило добиться картинки высокого качества, геймплей сделан с упором на динамику и фан, а не симуляцию реального управления автомобилем по пересеченной местности.Тип издания: LicenseРазработчик: Milestone S.r.l.Жанр: Racing, Simulation, SportsЯзык озвучки: Английский, Испанский и другиеЯзык интерфейса: Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1753E5562354DCB88A42EB8747C032124C5C418D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294753   (625575) от 09.04.2019
-
-Opera 60.0.3255.27 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A94878841186824029B6CE93295C3925602A845
 ```
 
 https://mybot314.ru/tekegram_catalog/

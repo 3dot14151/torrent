@@ -1,3 +1,111 @@
+###  Публикация: 304701   (164072) от 02.11.2023
+
+Иван Тургенев | Старые портреты (2009) [MP3, Александр Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164072.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске представленные повести И.С. Тургенева погружают слушателя в историческое прошлое России. Героем в них зачастую выступает разночинец с его практичностью и осмотрительностью, чуждый чрезмерной восторженности и неумеренных порывов, или же наоборот - неистовый кутила, не знающий меры ни в чем - ни в отчаянном бесстрашии, ни в вине («Отчаянный»). В рассказе (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-МПродолжительность: 05:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5374F957D2D5A2FDBB6F953F0430ED5658736F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304709   (164058) от 02.11.2023
+
+Иван Тургенев | Степной король Лир (Радиоспектакль) (2008) [MP3, Максим Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
+В девятнадцатом веке И.С. Тургенев показал, что не только «быстрых разумом Невтонов» может рождать российская земля, но и своих Гамлетов, Фаустов и королей Лиров. Эти вечные образы, архетипы и сверхтипы, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио РоссииПродолжительность: 03:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68795358F0A1A447CF0F9351E79CCBCE615E5B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304814   (164052) от 02.11.2023
+
+Иван Тургенев | Песнь торжествующей любви (2003) [MP3, Алексей Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская фантастическая повесть.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
+«Песнь торжествующей любви» (1881) - одна из поздних повестей Ивана Сергеевича Тургенева, рассказывающая о дружбе, любви и слабости человека, подвластного игре (   Читать дальше...   )Жанр: Русская литература, классика, фантастическая повестьИздательство: ИД «Союз», «Книга вслух»Продолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193EB4F9A3E9065D5E3464EDEE3F68A2978E968D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305061   (164015) от 02.11.2023
+
+Иван Тургенев | Накануне (2007) [MP3, Радик Мухаметзянов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Русская классика.
+«Накануне» (1860) — один из лучших романов автора, известный читателям со школьных лет. В нем отражены идеи и настроения, царившие в стране накануне эпохи больших перемен. Елена, героиня романа, новый человек эпохи — и в лице ее новая Россия — ищет прежде всего нравственного обаяния и практического осуществления идеалов. Пренебрегая приличиями, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ИД «Равновесие»Продолжительность: 07:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16264D08E0B75B8D7D24B4541582C5C8EB15C33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304367   (163989) от 02.11.2023
 
 Иван Тургенев | Несчастная (2009) [MP3, Александр Разбаш]
@@ -6,7 +114,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163989.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163975.jpg" />
 </div>
 
 
@@ -63,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163712.jpg" />
 </div>
 
 
@@ -90,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163493.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163274.jpg" />
 </div>
 
 
@@ -144,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162939.jpg" />
 </div>
 
 
@@ -171,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162878.jpg" />
 </div>
 
 
@@ -200,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162425.jpg" />
 </div>
 
 
@@ -229,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162356.jpg" />
 </div>
 
 
@@ -257,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162113.jpg" />
 </div>
 
 
@@ -285,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162061.jpg" />
 </div>
 
 
@@ -312,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160860.jpg" />
 </div>
 
 
@@ -341,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160859.jpg" />
 </div>
 
 
@@ -369,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160851.jpg" />
 </div>
 
 
@@ -395,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160782.jpg" />
 </div>
 
 
@@ -423,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160780.jpg" />
 </div>
 
 
@@ -450,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160772.jpg" />
 </div>
 
 
@@ -476,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160771.jpg" />
 </div>
 
 
@@ -502,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160767.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160765.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160744.jpg" />
 </div>
 
 
@@ -582,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160732.jpg" />
 </div>
 
 
@@ -593,113 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214BC94F4DFFB47390E88549CEFA2C86305D28C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422082   (160725) от 06.11.2023
-
-Александр Дюма (отец) | Три мушкетера (2009) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика в пересказе (сокращенная версия).
-«Один за всех и все за одного!» – этот призыв всегда волновал и будет волновать сердца юных читателей. Пылкий Д'Артаньян, коварная миледи, строящий козни кардинал и беззащитная королева...
-Предлагаем вашему вниманию одну из самых знаменитых приключенческих книг в сокращенном пересказе, который полностью сохраняет (   Читать дальше...   )Жанр: Классика, романПродолжительность: 08:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3420085120F4AE56BBCC2A627E5DC8490D0EB8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674420   (160649) от 07.11.2023
-
-Лонг | Дафнис и Хлоя (2013) [MP3, Надежда Прокма]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовный аудио роман древнегреческого писателя 2 - 3 веков н. э. Лонга, сказка о любви, "ДАФНИС И ХЛОЯ". Автор ставит основной задачей своей книги - показать торжество любви. Он переносит в прозу традиции буколической поэзии (БУКОЛИКА - жанр античной поэзии, идеализированно изображавшей деревенскую жизнь, быт пастухов; разновидности буколики - идиллия, (   Читать дальше...   )Жанр: пасторальный романИздательство: Аудиокнига своими рукамиПродолжительность: 04:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB97911EE368AA71200CB14396116A0F1980C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358238   (160525) от 07.11.2023
-
-Артюр Рембо | Избранное (2008) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артюр Рембо (1854–1891) французский поэт, один из основоположников символизма, представитель группы «проклятых поэтов». Верлен и Рембо, Тристан Корбьер, Шарль Кро, Морис Роллина, Жан Ришпен и Жермен Нуво – французские поэты, тесно связанные с эпохой 1870-1890-х годов, декаданса, наследники Бодлера и предшественники поэтов-символистов. Для их творчества характерно, (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50A00D5111D975147997DDC152E78AFC8155344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675228   (160459) от 08.11.2023
-
-Фридрих Шиллер | Коварство и любовь. Радиоспектакль (2008) [MP3, Сергей Богомолов, Николай Комиссаров и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива «Гостелерадиофонда».
-«Коварство и любовь» — мещанская трагедия (1784). Миллер Луиза, согласно первоначальному замыслу Шиллера, который относится к лету 1782 г., должна была стать главной героиней его «мещанской драмы». Луиза — сильный женский характер, что отличает ее от предшествующих героинь драматургии Шиллера: Амалии («Разбойники»), Леоноры («Заговор (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E225DEE75FD2AC0560BB380818E3BC572C69E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

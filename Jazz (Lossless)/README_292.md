@@ -1,3 +1,119 @@
+###  Публикация: 1519421   (147467) от 25.12.2021
+
+Dave McKenna & Buddy DeFranco - You Must Believe In Swing (1997) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Must Believe In Swing [6:08]
+02. Invitation [8:24]
+03. The Song Is You [6:31]
+04. If You Could See Me Now [5:42](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BEB9DB925BA4953A4F451E9D19382C31904241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519509   (147461) от 25.12.2021
+
+Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:18]
+02. Up on the Housetop [2:59]
+03. Jolly Old St. Nicholas [2:35]
+04. I'll Be Home for Christmas [4:16](   Читать дальше...   )Жанр: Swing, Big Band, ChristmasПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519714   (147456) от 25.12.2021
+
+Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Second Time You Meet That Matters [2:19]
+02. New Fangled Tango [2:18]
+03. What Can I Say, After I Say I'm Sorry [2:19]
+04. Love and Marriage [2:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78FD560239AA1144C8B14394F687330FA8EFF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678125   (147397) от 20.11.2023
+
+VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - You Are The Best Thing (4:18)
+02. Papik - Wave (3:15)
+03. Papik - Sweet Love (3:37)
+04. Soulstance - Je Sto Vicino A te (4:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519711   (147134) от 25.12.2021
 
 Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147134.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147114.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147109.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147067.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147066.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147059.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ella Fitzgerald & Duke Ellington - Ella & Duke At The Cote D'Azur (1966) 2CD, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146707.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - The Beatles in Jazz (1999) Unofficial Release [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146623.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Michael Buble (Bublé) - Love (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL 24Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146586.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Peggy Lee - The Essential Collection 1946 - 1953 (2007) 2CD, Avid Entertainment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146418.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Dinner for One - Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146134.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tom Braxton - Comfort and Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146016.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146002.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Cookin' Jazz vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145998.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Balatonica Chillout: Autumn Edition 2023 (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145977.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Smooth Jazz Band - Raggae Rhythm of The Night 2023 (2023) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145970.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Artie Shaw - 1939-1940 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145906.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Stanley Turrentine - Don't Mess With Mister T. (1973) 1987, EPC [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145871.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145837.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145750.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145736.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Karl Berger - Conversations (1994) In & Out Records [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145339.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Karl Berger - Conversations (1994) In & Out Records [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90DF7CB6E7E28B2A85ADDE076F5841B4E0131AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348326   (145330) от 27.12.2019
-
-Joe Negri - Guitars For Christmas (2003) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [3:43]
-02. Christmas Time Is Here [2:27]
-03. We Three Kings of Orient Are [2:33]
-04. We Wish You a Merry Christmas/Happy Holidays [2:01](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar Jazz, ChristmasПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D346FA8E095693FDBBE151A7B1FCCF795C60BC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348325   (145328) от 27.12.2019
-
-Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [4:56]
-02. How My Heart Sings [4:59]
-03. It's a Beautiful Day in the Neighborhood [3:04]
-04. The Best Thing for You [3:51](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Guitar JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3E13999A302CF3AAB1F969BF6117B05F33D4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087661   (145263) от 28.12.2016
-
-Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145263.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Worktime:
-01.There's No Business Like Show Business [06:21]
-02.Paradox [05:01]
-03.Raincheck [06:01](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272381   (144838) от 27.12.2018
-
-Lionel Hampton And His All-Stars - Complete Jazztone Recordings (1956) 2CD, 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144838.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Romeo's Gone Now [6:30]
-02. Over the Rainbow [11:09]
-03. Dark Eyes [5:00](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

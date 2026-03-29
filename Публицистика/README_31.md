@@ -1,3 +1,82 @@
+###  Публикация: 1287151   (707093) от 05.03.2019
+
+Ю. Е. Ивонин, Н. А. Гусакова (ред.) | И живы памятью столетий. Очерки о вождях народных движений в средневековой Европе (1987) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_707093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сквозь столетия угнетения и мрака пронесло человечество память о смелых и мужественных борцах, не мирившихся с эксплуатацией человека и засильем церкви. Среди них мы видим вождей народных движений в средневековой Европе. Из средневекового крестьянства и городского плебса выдвигались свои самобытные народные идеологи — пророки, страстно обличавшие феодальное неравенство (   Читать дальше...   )Жанр: История, политология, публицистика, биографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FF35150F43D49B88F60CDA54BD7B374B860555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026299   (705866) от 14.06.2016
+
+Эмиль Фаге | Культ некомпетентности (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705866.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя:
+"Культ некомпетентности" - книга о демократии, в которой демократия увидена не в том или ином дефекте, а как дефект. Дефект назван по имени: некомпетентность. Не просто некомпетентность, как неизбежное зло, с которым мирятся, потому что не могут от него избавиться, а зло позволенное, систематически порождаемое и культивируемое. Ничего удивительного, (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88B486EC6B212A9AA98ACE96F186AEBA832EAE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402011   (705607) от 12.08.2020
+
+Анатолий Терещенко | Переосмысление. Историческое попурри (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана с целью показа переоценки некоторых устоявшихся в сознании современников исторических событий и явлений. Понятие правды у каждого свое. Нет пророка без порока. Истина где-то посередине, она вечна и однозначна. Эта книга и есть попытка подобраться к ней. А жанр короткого повествования может заинтересовать пытливого читателя.Жанр: Популярно об истории, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29939D8AF411999557D63A8E79677A7A1CB459BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132124   (705223) от 07.05.2017
 
 Ю. Г. Перель | Выдающиеся русские астрономы (1951) [PDF]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705223.jpg" />
+  <img src="Z:/picture/008/save_picture_705223.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704956.jpg" />
+  <img src="Z:/picture/008/save_picture_704956.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704711.jpg" />
+  <img src="Z:/picture/008/save_picture_704711.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704502.jpg" />
+  <img src="Z:/picture/008/save_picture_704502.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704310.jpg" />
+  <img src="Z:/picture/008/save_picture_704310.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703549.jpg" />
+  <img src="Z:/picture/008/save_picture_703549.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703542.jpg" />
+  <img src="Z:/picture/008/save_picture_703542.jpg" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703468.jpg" />
+  <img src="Z:/picture/008/save_picture_703468.jpg" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702448.jpg" />
+  <img src="Z:/picture/008/save_picture_702448.jpg" />
 </div>
 
 
@@ -251,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701892.jpg" />
+  <img src="Z:/picture/008/save_picture_701892.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701886.jpg" />
+  <img src="Z:/picture/008/save_picture_701886.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701769.jpg" />
+  <img src="Z:/picture/008/save_picture_701769.jpg" />
 </div>
 
 
@@ -331,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701488.jpg" />
+  <img src="Z:/picture/008/save_picture_701488.jpg" />
 </div>
 
 
@@ -360,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701483.jpg" />
+  <img src="Z:/picture/008/save_picture_701483.jpg" />
 </div>
 
 
@@ -386,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701352.jpg" />
+  <img src="Z:/picture/008/save_picture_701352.jpg" />
 </div>
 
 
@@ -412,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700723.jpg" />
+  <img src="Z:/picture/008/save_picture_700723.jpg" />
 </div>
 
 
@@ -438,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700302.jpg" />
+  <img src="Z:/picture/008/save_picture_700302.jpg" />
 </div>
 
 
@@ -464,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699769.jpg" />
+  <img src="Z:/picture/008/save_picture_699769.jpg" />
 </div>
 
 
@@ -492,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699324.jpg" />
+  <img src="Z:/picture/008/save_picture_699324.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699253.jpg" />
+  <img src="Z:/picture/008/save_picture_699253.jpg" />
 </div>
 
 
@@ -547,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698712.jpg" />
+  <img src="Z:/picture/008/save_picture_698712.jpg" />
 </div>
 
 
@@ -575,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698705.jpg" />
+  <img src="Z:/picture/008/save_picture_698705.jpg" />
 </div>
 
 
@@ -604,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698700.jpg" />
+  <img src="Z:/picture/008/save_picture_698700.jpg" />
 </div>
 
 
@@ -615,88 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55EE37E7B6040CE410D2C3F88AB5EC4E8840DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288246   (697864) от 10.03.2019
-
-Ц. Фридлянд (ред.) | Атеизм и борьба с церковью в эпоху Великой французской революции [Часть 1] (1933) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697864.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гораздо большей степени историки изучали великие революции последних трех столетий с социально-политической, чем с идеологической стороны. Идеология борющихся классов в революции должна стать предметом специального изучения. Ленин показал нам то огромное творческое значение, какое имеет революция для воспитания и перевоспитания классов. Революция творит, и в революции (   Читать дальше...   )Жанр: История, политология, публицистика, религиоведение, социологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E45090C371ED249A5707449739304BADD8FDEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402775   (697811) от 16.08.2020
-
-В. В. Маяковский | Маяковский об Америке (1952) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1925 года Владимир Маяковский совершил длительную поездку в Соединенные Штаты Америки. Результатом этой поездки явилось значительное количество стихотворений, вошедших затем в сборник «Испания. Океан. Гаванна. Мексика. Америка» и путевые очерки «Мое открытие Америки».
-
-Стихи и путевые очерки Маяковского показывают заокеанскую капиталистическую державу во всеоружии (   Читать дальше...   )Жанр: История, политология, искусство, поэзия, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77D064713B671A50DFEEA1BF734EF72E1E30FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288154   (697765) от 10.03.2019
-
-А. А. Строков (ред.) | Уроки истории неопровержимы (1964) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697765.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Некоторые современные империалистические деятели, — говорил в докладе о 45-й годовщине Советских Вооруженных Сил Министр обороны СССР Маршал Советского Союза Р. Я. Малиновский, — с раздражением вспоминают наши напоминания о прошлом. Но что поделаешь? Страниц правды из истории не вычеркнешь!»
-
-Настоящая книга — это еще одно напоминание об уроках минувшей войны. Измышлениям (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4C882B832B419C041F4150715BC194CC197F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

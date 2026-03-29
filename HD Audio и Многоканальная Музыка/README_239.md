@@ -1,3 +1,235 @@
+###  Публикация: 1773048   (31050) от 13.01.2025
+
+The Last Sentinel - Riftborn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ignite the Night (3:58)
+02.  Fire in my Veins (3:33)
+03.  Eletric Pulse (3:22)
+04.  Ride or Die (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7BCB2A56FB6B58944115DA670AD4DF554401FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772989   (31043) от 13.01.2025
+
+Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Victim of Changes [7:54]
+02 - The Ripper [2:51]
+03 - Dreamer Deceiver [5:54]
+04 - Deceiver [2:47](   Читать дальше...   )Жанр: Metal, Heavy Metal, Hard RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F789F2A7F5B01444961C5574CC4C9F9412915C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773193   (30992) от 14.01.2025
+
+VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30992.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Toto Cutugno - l'Italiano
+02. Collage - Donna Musica'99
+03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770369   (30932) от 14.01.2025
+
+The Smoothies - The Sound of 70s (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Second Chance (3:21)
+02.  After You've Gone (2:59)
+03.  Waiting for Spring's Call (3:36)
+04.  Forever Us (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40851206D92577BDB3F0C460C871A036F338F317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773415   (30848) от 15.01.2025
+
+Carl Allen - Tippin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Parker's Mood (6:15)
+02.  Carl Allen feat. Chris Potter - Happy Times (5:35)
+03.  A Morning Story (6:06)
+04.  Hidden Agenda (5:55)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDF3E26269133C243E9C71D56BD7E40EE832DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773429   (30847) от 15.01.2025
+
+Nikki Jones Band - Battle Me Up (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On The Pedal (4:13)
+02.  Rough And Tumble (4:28)
+03.  Look Into The Mirror (5:48)
+04.  Deadbeat Dad (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC0D88AF9326D5D07A302BD22F6E6E89368049F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773410   (30844) от 15.01.2025
+
+Allison Miller & One O'Clock Lab Band - Big & Lovely (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Big and Lovely (7:34)
+02.  Fuster (9:33)
+03.  Dan Dan (5:43)
+04.  Potomac (7:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73EA5BFF29422E20EF33CB10502FAF8C44E6EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773452   (30842) от 15.01.2025
+
+Zed Charles - Hear My Word (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anytime (3:34)
+02.  Nobody Has To Know (4:04)
+03.  Hear My Word (3:19)
+04.  Love You More (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729280D012FF31295B876FDAD5FBA0599609B1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773420   (30840) от 15.01.2025
 
 From. ____ - Coffee for two (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +238,7 @@ From. ____ - Coffee for two (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30840.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Sangin Nam - Timeless Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30839.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ David Rose - Songs for You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30834.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Monk Rules the Rhino - Fuzzy Unicorn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30833.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ David Rose - The Night Is Ours - David Rose - The Night Is Ours (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30824.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30568.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30322.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30315.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30139.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Brad Goode - Polytonal Big Band: The Snake Charmer (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30112.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ David Rodgers - Home (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30111.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Andrea Longato - Thinking Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30110.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Evan Oberla - Canal Street Revolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30109.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Davy Mooney & Ko Omura - The Word (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30108.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Alex McLaughlin - A Brand New State (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30107.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ D. Heywood - Winelight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30106.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Fabienne Ambuehl - Thrive (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30105.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30104.jpg" />
 </div>
 
 
@@ -513,235 +745,6 @@ Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12807BC19A474DC769966F7FE7706E8106B7C8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774742   (30103) от 22.01.2025
-
-Javier Rojo - Música Para Amansar Fieras (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black, White and Colours (6:00)
-02.  Late April (2:23)
-03.  Lonely Night (7:11)
-04.  Riba (6:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9008660D3F797EBD4F7CA4723AAAD8EA6D28D84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774471   (30102) от 22.01.2025
-
-Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30102.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Take Them To Mars (Vsechno Na Mars)
-A2 Try To Be A Man (V Parku, V Herne)
-A3 Lookin' On The Tiger Eyes (Nejvic)
-A4 Poor Old Tricks (Znam Tvuj Trik)(   Читать дальше...   )Жанр: Europop, Pop RockПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1D1DEE9A309A7FC723CEDD073740B72BBC576F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774905   (30002) от 23.01.2025
-
-Dream Theater - Midnight Messiah (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Messiah (07:58)
-02. Midnight Messiah (Radio Edit) (05:13)
-03. A Broken Man (08:29)
-04. Night Terror (09:55)Жанр: Progressive MetalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7312A4E88751A46172364A5C1B53B5ED069AE3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625216   (29938) от 24.01.2025
-
-Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOBHM, Speed/Thrash/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Venom — британская метал-группа, образованная в 1979 году. Наряду с Motörhead, оказавшими на Venom самое непосредственное влияние, считается одной из прото-трэшевых команд, но при этом, как и Mercyful Fate, относится к первой волне блэк-метала.1997 - Cast In Stone
-2000 - Resurrection
-2006 - Metal Black
-2008 - Hell(   Читать дальше...   )Жанр: NWOBHM, Speed/Thrash/Black MetalПродолжительность: 11:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFEC495EA2D2F3C2B314D4991DC7E058269ABFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775165   (29797) от 25.01.2025
-
-Linkin Park - From Zero: A Cappellas (2025) [FLAC 24/48,96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Zero (Intro) (A Cappella) (0:22)
-02. The Emptiness Machine (A Cappella) (3:05)
-03. Cut the Bridge (A Cappella) (3:21)
-04. Heavy Is the Crown (A Cappella) (2:18)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2AAC9E4056685705D5EBF042A60F4E225B6B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776211   (29233) от 31.01.2025
-
-VA & Atomic Heart - Atomic Heart, Vol. 5 (2025) Original Game Soundtrack [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Orchestra, Phonk, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлия Коган, Frenetic Virtual Orchestra, Geoffplaysguitar, Atomic Heart - В синем море, в белой пене (Оставайся, мальчик, с нами)Жанр: Rock, Orchestra, Phonk, AmbientПродолжительность: 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03728DA8AAB64857181DECD845ED571D3B801EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776581   (28881) от 02.02.2025
-
-The Weeknd - Hurry Up Tomorrow (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wake Me Up (05:09)
-2. Cry For Me (03:44)
-3. I Can't Fucking Sing (00:12)
-4. São Paulo (05:02)(   Читать дальше...   )Жанр: Soul/Funk/R&BПродолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F156327CAB96E623E2F9F029B52E617D96EC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776702   (28862) от 02.02.2025
-
-Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dark Knight: Why Do We Fall? [00:04:31]
-02. Part 1 [00:02:40]
-03. Part 2 [00:06:48]
-04. Part 3, Now We Are Free [00:03:57](   Читать дальше...   )Жанр: ClassicalПродолжительность: 2 CD, 01:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2909BEF43E5B2C029776B3B713D5AABD426B8A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1387162   (792441) от 31.05.2020
+
+Валерий Шамбаров | Гибель советской империи (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский Союз был мощнейшей сверхдержавой, – он успешно противостоял не только США, но всей западной коалиции. СССР динамично развивал экономику, добился грандиозных достижений в области науки и техники; что касается благ, доступных для населения, Советский Союз в чем-то уступал капиталистическим странам, но во многом и превосходил их.
+Как же произошло, что он рухнул? (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07760DC2CFCEC45F50B2CC82A7F0D861B72B0ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201656   (791629) от 26.01.2018
+
+С. Б. Четвериков | Кто и как делает политику США (1974) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена роли американской бюрократии и государственного аппарата, занимающего ключевое положение в практической разработке и осуществлении внешней и внутренней политики США. Автор показывает, что углубляющийся процесс сращивания государственного аппарата с монополиями приводит к тому, что правящие монополистические круги получают все большие возможности определения (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F82D47A541E3BE10D06033A7BA5FBBB054751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201528   (791627) от 26.01.2018
+
+А. М. Борщаговский | Толпа одиноких (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Александр Борщаговский показывает в этой книге некоторые стороны жизни современной молодежи буржуазного Запада. Он рассказывает о трагическом положении значительной части молодого поколения, о сознательных попытках так называемой «деполитизации» молодежи со стороны правящей верхушки, приводит примеры моральной деградации буржуазной молодежи, повествует о (   Читать дальше...   )Жанр: История, политология, экономика, психология, публицистика, журналистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911F53482BEB6DB478040099395D42EDAD161FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201654   (791623) от 26.01.2018
 
 А. М. Борщаговский | Тревожные облака (1984) [PDF]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791623.jpg" />
+  <img src="Z:/picture/008/save_picture_791623.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791298.jpg" />
+  <img src="Z:/picture/008/save_picture_791298.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791253.jpg" />
+  <img src="Z:/picture/008/save_picture_791253.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791216.jpg" />
+  <img src="Z:/picture/008/save_picture_791216.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791203.jpg" />
+  <img src="Z:/picture/008/save_picture_791203.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790473.jpg" />
+  <img src="Z:/picture/008/save_picture_790473.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790080.jpg" />
+  <img src="Z:/picture/008/save_picture_790080.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789904.jpg" />
+  <img src="Z:/picture/008/save_picture_789904.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789900.jpg" />
+  <img src="Z:/picture/008/save_picture_789900.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789848.jpg" />
+  <img src="Z:/picture/008/save_picture_789848.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789086.jpg" />
+  <img src="Z:/picture/008/save_picture_789086.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788642.jpg" />
+  <img src="Z:/picture/008/save_picture_788642.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788212.jpg" />
+  <img src="Z:/picture/008/save_picture_788212.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788162.jpg" />
+  <img src="Z:/picture/008/save_picture_788162.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787115.jpg" />
+  <img src="Z:/picture/008/save_picture_787115.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786877.jpg" />
+  <img src="Z:/picture/008/save_picture_786877.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786845.jpg" />
+  <img src="Z:/picture/008/save_picture_786845.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786841.jpg" />
+  <img src="Z:/picture/008/save_picture_786841.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786730.jpg" />
+  <img src="Z:/picture/008/save_picture_786730.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786726.jpg" />
+  <img src="Z:/picture/008/save_picture_786726.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785450.jpg" />
+  <img src="Z:/picture/008/save_picture_785450.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785449.jpg" />
+  <img src="Z:/picture/008/save_picture_785449.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785419.jpg" />
+  <img src="Z:/picture/008/save_picture_785419.jpg" />
 </div>
 
 
@@ -601,85 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277313   (785367) от 20.01.2019
-
-К. А. Попов (ред.) | Допрос Колчака (1925) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикуемые Центрархивом протоколы заседаний Чрезвычайной Следственной Комиссии по делу Колчака воспроизводятся по стенографической записи, заверенной заместителем председателя Следственной Комиссии, К. А, Поповым, и хранящейся в Архиве Октябрьской Революции (Фонд LXXV, арх. № 51). Некоторые места стенограммы и отдельные слова, не поддававшиеся прочтению, в подлиннике (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA41D519DF47878F642ECDD86C0C50E32604DF19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388986   (785142) от 08.06.2020
-
-Ян Стокласса | Стиг Ларссон: человек, который играл с огнем (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ян Стокласса – шведский дипломат, журналист и писатель. Публикация его первой книги привела к международному скандалу, связанному с разоблачением коррупционных схем: уголовные дела были открыты в семи странах. Книга, которую вы держите в руках, пролила свет на события 30-летней давности, что позволило возобновить расследование убийства премьер-министра.
-Таинственный (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаПеревод: Александр МурашовФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B00922E49ACC9D6F7CBC0E9610CAF93CD4476B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204184   (784988) от 05.02.2018
-
-В. В. Маевский | Сражения мирных дней (1975) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга адресована массовому читателю. Ее автор В. Маевский - политический обозреватель газеты «Правда» - рассказывает об идеологических сражениях наших дней. Многие страницы книги посвящены полемике с буржуазными деятелями США, Англии, Японии но вопросам войны и мира, национально-освободительной борьбы, демократии, сосуществования государств с различным социальным (   Читать дальше...   )Жанр: История, политология, экономика, журналистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6E6730951969DB9E61C72F8EC592D824A10419
 ```
 
 https://mybot314.ru/tekegram_catalog/

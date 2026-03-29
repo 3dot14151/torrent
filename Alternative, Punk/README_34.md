@@ -6,7 +6,7 @@ Guitar Instrumentals - Deepest Guitar Blues & Stories (2023) [MP3|320 Kbps] <Ins
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188203.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nickelback - Get Rollin' (2022) [MP3|320 Kbps] <Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187438.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Soffía Björg - Soffía Björg (2017) [MP3|320 Kbps] <Alternative Rock, America
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187137.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Smashing Pumpkins - CYR (2020) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185241.jpg" />
+  <img src="Z:/picture/004/save_picture_185241.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Across The Divide - Disarray (2020) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180162.jpg" />
+  <img src="Z:/picture/005/save_picture_180162.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hollywood Undead - New Empire, Vol. 2 (2020) [MP3|320 Kbps] <Alternative, Rapcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179115.jpg" />
+  <img src="Z:/picture/005/save_picture_179115.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Another Day Dawns - Finding Peace Through All The Noise (2023) [MP3|320 Kbps] <A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178923.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kody West - Circles (2022) [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178129.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Annisokay - Aurora (2021) [MP3|320 Kbps] <Alternative Metal, Hardcore, Post-Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176609.jpg" />
+  <img src="Z:/picture/004/save_picture_176609.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paramore - Re: This Is Why (2023) [MP3|320 Kbps] <Alt. Rock, Pop Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175148.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173361.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Poppy - Zig (2023) [MP3|256 Kbps] <Electro-Industrial / Electropop / Female Voca
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173174.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Haxans - The Dead And Restless (2023) [MP3|320 Kbps] <Alternative Rock, Goth
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172103.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170008.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Vella - 3 Albums (2020-2022) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169295.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Famous Last Words - 3 альбома + 3 EP (2012-2021) [MP3|320 кб/с]<Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169053.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Severals - Algorithm (2022) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163953.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ TrineATX - Haunt Me Slowly (2020) [MP3|320 Kbps] <Alternative Metal, Modern Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163178.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Beartooth - Aggressive (2016) Remixed, Remastered, 2020, Red Bull Records [MP3|3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162852.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Glass Beads - Therapy (2020) [MP3|~245 Kbps (V0)] <Alternative, Coldwave>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162275.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Hate Priest - Hate Priest / Lillins Currents (2019-2020) [MP3|320 Kbps] <Deathco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162171.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Future Faces - Euphoria (2020) [MP3|320 Kbps] <Alternative, EBM, Coldwave, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162081.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162073.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161401.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Weezer - 4 EP (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160162.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157465.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 533894   (530130) от 11.08.2012
+
+Рейд / Serbuan maut / The Raid: Redemption (2011) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд спецназовцев получает задание проникнуть в многоэтажный дом, расположенный в самом сердце трущоб Джакарты, и арестовать обосновавшегося там наркобарона, которого охраняет целая армия вооруженных до зубов головорезов. Операцию нужно провести без лишнего шума, но нелепая случайность нарушает планы служителей закона. Теперь бойцам негде спрятаться и некуда бежать. Перед ними 30 этажей ада, где смертью грозит каждый неверный шаг. Война по правилам кончилась. Выживает сильнейший!Жанр: Боевик, Триллер, КриминалРежиссер: Гарет ЭвансАктеры: Ико Ювайс, Джо Таслим, Дони Аламсях, Яян Рухьян, Пьер Грюно, Рэй Сахетапи, Тегар Сатрия, Ианг Дармаван, Эка «Пиранья» Рахмадия, Верди СолайманПеревод: ДублированныйЯзык субтитров: Русский (форс. + полные)Продолжительность: 01:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D976F234D9D83588F435C8D77947B24E6E7B75B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533703   (530034) от 11.08.2012
 
 Рейд / Serbuan maut / The Raid: Redemption (2011) HDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530034.jpg" />
+  <img src="Z:/picture/008/save_picture_530034.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529104.jpg" />
+  <img src="Z:/picture/008/save_picture_529104.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529100.jpg" />
+  <img src="Z:/picture/008/save_picture_529100.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529093.jpg" />
+  <img src="Z:/picture/008/save_picture_529093.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529092.jpg" />
+  <img src="Z:/picture/008/save_picture_529092.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528892.jpg" />
+  <img src="Z:/picture/008/save_picture_528892.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527206.jpg" />
+  <img src="Z:/picture/008/save_picture_527206.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525888.jpg" />
+  <img src="Z:/picture/008/save_picture_525888.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524777.jpg" />
+  <img src="Z:/picture/008/save_picture_524777.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524774.jpg" />
+  <img src="Z:/picture/008/save_picture_524774.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524451.jpg" />
+  <img src="Z:/picture/008/save_picture_524451.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524428.jpg" />
+  <img src="Z:/picture/008/save_picture_524428.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524337.jpg" />
+  <img src="Z:/picture/008/save_picture_524337.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523573.jpg" />
+  <img src="Z:/picture/008/save_picture_523573.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522916.jpg" />
+  <img src="Z:/picture/008/save_picture_522916.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522913.jpg" />
+  <img src="Z:/picture/008/save_picture_522913.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522648.jpg" />
+  <img src="Z:/picture/008/save_picture_522648.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520857.jpg" />
+  <img src="Z:/picture/008/save_picture_520857.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520791.jpg" />
+  <img src="Z:/picture/008/save_picture_520791.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519167.jpg" />
+  <img src="Z:/picture/008/save_picture_519167.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519160.jpg" />
+  <img src="Z:/picture/008/save_picture_519160.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517883.jpg" />
+  <img src="Z:/picture/008/save_picture_517883.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515970.jpg" />
+  <img src="Z:/picture/008/save_picture_515970.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515946.jpg" />
+  <img src="Z:/picture/008/save_picture_515946.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515887.jpg" />
+  <img src="Z:/picture/008/save_picture_515887.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1C412A6AF8E56EF36B65C2331856CB0052C5AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315051   (515696) от 17.07.2019
-
-Большой брат / Dai si hing (2018) HDRip [MVO]
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непростой школьный учитель обладает полезными умениями, и, как водится в таких случаях, темным прошлым в придачу. Необычными методами преподавания он борется с неуспеваемостью и хромающей дисциплиной в классе, чем завоевывает любовь и уважение своих подопечных. Однажды в поисках пропавшего ученика он столкнется с преступной бандой и продемонстрирует им свои навыки (   Читать дальше...   )Производство: Гонконг / Bullet Films, Mega-Vision Pictures (MVP)Жанр: Боевик, комедияРежиссер: Кам Ка-ВайАктеры: Донни Йен, Джо Чэнь, Кан Юй, Брахим Ачаббаке, Альфред Чун, Джей Дэй, Семиквавер ИафетаПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7011C5271568E0A68DDD3BC0F7679633250DE7CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

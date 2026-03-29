@@ -1,3 +1,81 @@
+###  Публикация: 1475678   (1007662) от 07.07.2021
+
+Overboard! (2021) [En] (1.3.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Июль 1935. Совершено убийство на борту корабля SS Hook, в восьми часах пути от Нью-Йорка. Только одна проблема: это сделали Вы. Сможете ли Вы избежать наказания за убийство? Overboard! - напряжённая детективная игра от создателей 80 Days и Heaven's Vault. Шантажировать шпиона. Влюбиться. Убить соперника. Обманывать в карточных играх. Введите наркотики свидетелю. (   Читать дальше...   )Тип издания: LicenseРазработчик: inkle LtdЖанр: Adventure, DetectiveЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06DD0651EB86D0483E6EF3E8C3861E95DD536A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483770   (1006566) от 15.07.2021
+
+Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернативная история Кореи 1920-х годов. Главная героиня, погибшая во время нападения на деревню, заключает сделку с Богом Смерти. Он наделяет девочку способностью превращаться в призрака и вселяться в живых существ, подчиняя себе их волю. Взамен она соглашается успокоить души умерших, выполняя их последние желания.Тип издания: RepackРазработчик: BUSAN SANAI GAMESЖанр: Adventure (Top-Down), Action, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F3C2F6F11E485A080BC18576FC46D053BDD31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483892   (1006448) от 16.07.2021
+
+Lona: Realm of Colors (2021) [En] (0.1.23) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lona: Realm of Colors – это приключение в естественной среде, в котором основное внимание уделяется искусству и повествованию, а не головоломкам и диалогам. Каждый следующий уровень – абстракция истории Лоны, а вам предстоит привнести мир и равновесие в её картины и выяснить, что же случилось с юной девушкой.Тип издания: LicenseРазработчик: SpaceFox StudioЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E69B8FE485EEE5558116003DEEA3A86F96019E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484229   (1006238) от 18.07.2021
 
 Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
@@ -6,7 +84,7 @@ Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006238.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Last Stop (2021) [Ru/Multi] (7027314) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005650.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005539.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005034.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004806.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004670.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004650.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Night Delivery (2021) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004537.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004398.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004186.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003974.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003925.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003752.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003701.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003386.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003361.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003210.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003100.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002752.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002709.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002251.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Mythic Ocean (2020) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002114.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001661.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDCF3BAA471A49C32ED4E616BFB081FE05A37B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351909   (1001503) от 12.01.2020
-
-Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к всенощному бдению призраков в Харвуд-Хаусе. В составе группы по расследованию паранормальных явлений " ОПГ " исследуйте здания с привидениями и расследуйте случаи появления призраков, о которых давно сообщалось в районе Вольфендена. Возьмите призрачные охотничьи гаджеты и разгадайте тайну, окружающую это заброшенное здание. Добро пожаловать (   Читать дальше...   )Тип издания: LicenseРазработчик: Darkling RoomЖанр: ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C10048F2B2956EA78274293051B0E026C5CCF52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330222   (1001491) от 12.01.2020
-
-Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8236/dlc) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров. Trine 4 предложит вам как одиночное, так и кооперативное прохождение с множеством (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Action, Adventure, PlatformerЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D71685A21631128857CE89BF111935F43C739F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489109   (1001105) от 14.08.2021
-
-Demon's Residence (2021) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас позвали оценить дом до того, как его выставят на продажу. Судя по тому, что вы слышали, резиденция была построена в 1800-х годах, но за эти годы она претерпела значительные изменения. Вы согласились на работу и отправляетесь в старые тихие деревни. Пожилая женщина, которая запросила вашу оценку, живет в другой стране и намекнула вам, где находится ключ от входной (   Читать дальше...   )Тип издания: RepackРазработчик: Morning Shift StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D7CD5C60A774E538BCB923A2F2CE13475F6F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

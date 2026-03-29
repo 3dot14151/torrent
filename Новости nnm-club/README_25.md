@@ -1,3 +1,113 @@
+###  Публикация: 975501   (970190) от 16.01.2016
+
+VA - Большая коллекция клипов в авто (2DIN) (2000-2016) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rap, Club, Pop, Trance, Metal и др.Продолжительность: 71:31:32сек
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDC7D253C9A16C2854E4F01C249F0779FEA9983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237590   (970169) от 13.02.2013
+
+Chris Spheeris - 22 albums (1987 - 2013) [MP3|160-320 kbps] <New age, World, Smooth Jazz, Neoclassical, Ambient>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970169.jpg" />
+</div>
+
+
+###  Подробнее
+
+(19:02) 01. Respect 1
+(15:21) 02. Respect 2
+(14:42) 03. Respect 3
+(18:12) 04. Respect 4Жанр: New age, World, Smooth Jazz, Neoclassical, AmbientПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743381   (969911) от 12.01.2014
+
+Дримс (2013) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн — уличный музыкант-неудачник, живущий воспоминаниями о временах своей молодости. Он ловит попутные машины, намеренно превращая свою жизнь в бесконечный роад-муви, Одиссею на руинах своих грёз. Его путь — это рокерская «мечта с кровью», мечта мальчишек перестройки, звучащая из подворотен голосами Цоя и Шевчука, Башлачёва и Летова… Ему уже под сорок, а он всё ещё (   Читать дальше...   )Производство: Россия, Wise VisionЖанр: Драма, Комедия, МузыкальныйРежиссер: Антон СухаревАктеры: Дэн Дягилев, Анна Иванина, Юозас Будрайтис, Александр Баширов, Игорь Скляр, Ольга Альбанова, Татьяна Рябоконь, Хельга Филиппова, Вадим Сквирский, Сергей УмановПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F722562C32857673DE82AA258C2A805FF88324E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742280   (969910) от 12.01.2014
+
+VA - Жажда Скорости. Дискотека Казанова (1998-2006) [MP3|112-320 кб/с]<Eurodance, Rave, Club, Techno, House, Trance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_969910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия "Казанова Рекордс" - это вымышленное название. Выпускалась она конгломератом, известным как "НОВАЯ СТУДИЯ" ("Арлекина" и "Русская Студия").01 Scooter - One (Club mix)
+02 DJ Aligator - Music is my language (feat. Arash)
+03 Eddy Wata feat Evanescence - Bring Me To Life (remix)
+04 Alex M Vs. Mark Van Damme - Technodisco (R.Mayth Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Rave, Club, Techno, House, TranceПродолжительность: 88:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F6E1631458847294832D376A9BE216B2726A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358147   (969290) от 07.02.2020
 
 Windows 10 Enterprise LTSC 2019 x64 Rus by OneSmiLe [17763.1012]
@@ -6,7 +116,7 @@ Windows 10 Enterprise LTSC 2019 x64 Rus by OneSmiLe [17763.1012]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969290.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969289.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969246.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ MAGIX Movie Edit Pro 2016 Premium 15.0.0.90 (x64) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969164.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ AusLogics BoostSpeed 8.2.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969155.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ Total Commander 8.52a LitePack | PowerPack | ExtremePack 2016.1 Final + Portable
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969152.jpg" />
 </div>
 
 
@@ -165,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969145.jpg" />
 </div>
 
 
@@ -191,7 +301,7 @@ COWBOY WPI DVD Project III StartSoft 17 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969087.jpg" />
 </div>
 
 
@@ -217,7 +327,7 @@ T-Flex CAD 12 12.0.57 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969080.jpg" />
 </div>
 
 
@@ -244,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968876.jpg" />
 </div>
 
 
@@ -273,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968582.jpg" />
 </div>
 
 
@@ -299,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968527.jpg" />
 </div>
 
 
@@ -325,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968348.jpg" />
 </div>
 
 
@@ -351,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968327.jpg" />
 </div>
 
 
@@ -377,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968326.jpg" />
 </div>
 
 
@@ -403,7 +513,7 @@ BSPlayer Pro 3.06.220 Mod by Dymonyxx [Ru] - Универсальный муль
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968324.jpg" />
 </div>
 
 
@@ -429,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968190.jpg" />
 </div>
 
 
@@ -455,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968181.jpg" />
 </div>
 
 
@@ -481,7 +591,7 @@ ArchiCAD 19 Build 4013 + Add-Ons [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968176.jpg" />
 </div>
 
 
@@ -507,7 +617,7 @@ Far Cry 3 [Ru] (Repack/1.0.4.0) 2012 | z10yded
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968071.jpg" />
 </div>
 
 
@@ -535,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967887.jpg" />
 </div>
 
 
@@ -561,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967881.jpg" />
 </div>
 
 
@@ -572,113 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:499C1D9D52327F9AE30124FED932869548B06E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976881   (967304) от 19.01.2016
-
-Slax 7.0.8 [i486+x86_64] [EN+RU] 4xCD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slax — это портативная, компактная и быстрая операционная система Linux с модульной структурой и отличным дизайном. Несмотря на скромный размер, Slax содержит в себе широкий набор предустановленного программного обеспечения для ежедневного использования, включая хорошо организованный графический пользовательский интерфейс и полезные средства восстановления для системных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A808A554B984B62CCD20DE4AEBB2424D20552410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808098   (967291) от 19.01.2016
-
-Сурен Цормудян | Последняя тщетность [1-10 гл из ?? ] (2014) [MP3] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современность человечества. Мир надрывно стонет от проблем.
-Хаос окутывает цивилизацию.
-Но кто-то находит в этом хаосе золотую жилу, а кто-то предчувствуя возможную катастрофу, пытается ее предотвратить.
-Будут ли эти попытки тщетны?Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C8F251C3E6EC58C8C28775318956D57265D7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977134   (967290) от 19.01.2016
-
-Auslogics BoostSpeed 8.2.0.0 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231399ECB5AF37EF2E91934AB5D39EC3D04E406D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619560   (967051) от 16.02.2013
-
-Impire [En/Gr] (L/1.0.1.1) 2013 | FLT
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Impire – стратегия, в которой вы выступаете правителем живущих в подземном мире импов. Выполняя всяческие задания, необходимо помочь Bjal-Abaddon'у обрести былое могущество повелителя подземного царства. Воевать придется против постоянно ищущих приключений героев, хотя при желании всегда можно предпринять вылазку на поверхность, совершив рейд на какое-то из поселений людей. (   Читать дальше...   )Тип издания: ЛицензияЖанр: StrategyЯзык озвучки: Английский / НемецкийЯзык субтитров: Английский / НемецкийЯзык интерфейса: Английский / Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632FB4F01D58D61D1C51E2231F731A7A71E64573
 ```
 
 https://mybot314.ru/tekegram_catalog/

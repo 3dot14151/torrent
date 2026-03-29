@@ -1,3 +1,56 @@
+###  Публикация: 1517803   (161476) от 17.12.2021
+
+Нина Трамунтани | Ярость воды (2022) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тессарект – город, разделенный на четыре части, где живут народы воды, огня, земли и воздуха. Отношения людей, принадлежащих к разным стихиям, строго запрещены. Но родители Кианы нарушили закон. Еще ребенком девочку спрятали в мире людей, чтобы скрыть преступление. Существование Кианы до последнего пытались держать в тайне, но потерпели неудачу. И теперь за ней охотятся (   Читать дальше...   )Жанр: Зарубежное фэнтезиПеревод: Н. БеляеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D570C3BF4F6C8714872B7D022B40B9B0CB64E5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517917   (161396) от 17.12.2021
+
+Давид Муате | Проект «Новая Земля» (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161396.jpg" />
+</div>
+
+
+###  Подробнее
+
+2125 год. Уровень мирового океана поднялся на десятки метров. Сохранившиеся клочки суши перенаселены. Лишь немногие избранные – Неприкосновенные – живут под куполом, не знают нужды, любуются растениями и питаются свежими овощами. Остальные – Серые, обитатели трущоб, мечтают лишь о выигрыше в лотерею, гарантирующем место на «Новой Земле».
+Каждую неделю миллион счастливчиков (   Читать дальше...   )Жанр: Социально-психологическая фантастикаПеревод: Наталья КлючарёваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986C291BA0EF0718B5023CF96A53E5DE41B54D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674780   (160794) от 06.11.2023
 
 Роберт МакКаммон | Они жаждут (2022) [FB2]
@@ -6,7 +59,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160794.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160152.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160129.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160121.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160055.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160012.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159501.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159208.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158934.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158873.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158680.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158619.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158554.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158391.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158388.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158163.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157951.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157854.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157852.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157823.jpg" />
 </div>
 
 
@@ -550,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157724.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157516.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157500.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157461.jpg" />
 </div>
 
 
@@ -643,58 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01D03CBC2C245319528F0CCA01EABAB665E14F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346642   (157279) от 20.12.2019
-
-Николай Эдельман | Звездный час (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1941 года. Крым, параллельная реальность. Президент Врангель, сверхбомба, шпионы, заговорщики-монархисты, немецкие десантники… И в самом центре этого клубка – киноактриса Лиза Тургенева. Еще утром, отправляясь на пляж, она не подозревала, какие испытания ее ожидают, а сейчас от ее решений зависят судьбы страны и мира. Станут ли эти события ее звездным часом? (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B38677E96AE44C513A1F7D75B5877F0DC5AB270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346647   (157232) от 20.12.2019
-
-Анна Платунова | Твое имя (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это страшная сказка, рассказанная ночью у костра. Если вы боитесь оживших мертвецов и смертельных тварей, что разгуливают в темноте леса, то лучше не слушайте. Отвернитесь, закройте глаза. Если вы боитесь предательства и смерти, то не переворачивайте первой страницы. У вас есть выбор. Но у Мары — прирожденной некромантки — его никогда не было. И она не боится посмотреть (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E9B324A8F6838CAD217C592695D3B11842CD96
 ```
 
 https://mybot314.ru/tekegram_catalog/

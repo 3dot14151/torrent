@@ -6,7 +6,7 @@ Product Key Explorer 4.2.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699344.jpg" />
+  <img src="Z:/picture/008/save_picture_699344.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OCCT 10.1.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699319.jpg" />
+  <img src="Z:/picture/008/save_picture_699319.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Dreamweaver 2021 v21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699315.jpg" />
+  <img src="Z:/picture/008/save_picture_699315.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SamDrivers 22.1 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699301.jpg" />
+  <img src="Z:/picture/008/save_picture_699301.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Notepad++ 8.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699295.jpg" />
+  <img src="Z:/picture/008/save_picture_699295.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rainmeter 4.3.0 Build 3296 RC2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699278.jpg" />
+  <img src="Z:/picture/008/save_picture_699278.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MAGIX Samplitude Pro X4 Suite 15.0.2.141 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699272.jpg" />
+  <img src="Z:/picture/008/save_picture_699272.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wirecast Pro 12.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699266.jpg" />
+  <img src="Z:/picture/008/save_picture_699266.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Auslogics BoostSpeed 11.5.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699260.jpg" />
+  <img src="Z:/picture/008/save_picture_699260.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Elektroanschlag 2015 (2015) [FLAC|Lossless]<Dark Ambient, Industrial, Rhyth
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699222.jpg" />
+  <img src="Z:/picture/008/save_picture_699222.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Fish Farm 2 1.3.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699211.jpg" />
+  <img src="Z:/picture/008/save_picture_699211.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ One Commander 3.4.38.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699209.jpg" />
+  <img src="Z:/picture/008/save_picture_699209.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ StartAllBack 3.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699203.jpg" />
+  <img src="Z:/picture/008/save_picture_699203.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Wondershare UniConverter 13.6.0.140 (х64) Repack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699194.jpg" />
+  <img src="Z:/picture/008/save_picture_699194.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699163.jpg" />
+  <img src="Z:/picture/008/save_picture_699163.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Comedy Баттл (2019.03.08) WEB-DLRip (сезон 9, выпуск 8)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699161.jpg" />
+  <img src="Z:/picture/008/save_picture_699161.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ uTorrent Stable 3.5.5 (build 45146) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699154.jpg" />
+  <img src="Z:/picture/008/save_picture_699154.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ TTS Informer 1.0.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699095.jpg" />
+  <img src="Z:/picture/008/save_picture_699095.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ CallerID 1.2.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699094.jpg" />
+  <img src="Z:/picture/008/save_picture_699094.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699084.jpg" />
+  <img src="Z:/picture/008/save_picture_699084.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699083.jpg" />
+  <img src="Z:/picture/008/save_picture_699083.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699082.jpg" />
+  <img src="Z:/picture/008/save_picture_699082.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699081.jpg" />
+  <img src="Z:/picture/008/save_picture_699081.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699080.jpg" />
+  <img src="Z:/picture/008/save_picture_699080.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699079.jpg" />
+  <img src="Z:/picture/008/save_picture_699079.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699078.jpg" />
+  <img src="Z:/picture/008/save_picture_699078.jpg" />
 </div>
 
 

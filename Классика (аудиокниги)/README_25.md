@@ -1,3 +1,107 @@
+###  Публикация: 1153524   (557980) от 27.07.2017
+
+Эдгар Аллан По | Ворон (2017) [MP3, Николай Станишевский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдгар Алан По – поэт середины ΧΙΧ века, создатель символической поэзии, основанной на психологическом анализе. Ярким примером является поэма «Ворон», написанная в 1844 – 1849 годах. Чтобы лучше понять смысл данного произведения, обратимся к истории его создания. Прототипом лирической героини поэмы стала Вирджиния Клемм, жена Эдгара По. Она умерла в (   Читать дальше...   )Жанр: Классика, мистикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146B4814B8865A596B312309767619EB73BA5D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045503   (557934) от 24.08.2016
+
+Александр Пушкин, Михаил Лермонтов | Великие исполнители [Том 19] (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557934.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Комсомольская правда» представляет цикл аудиоспектаклей «Великие исполнители». Вашему вниманию предлагается послушать поэмы «Медный всадник» и «Мцыри» в исполнении Народного артиста СССР (1949) Михаила Царева. Записи 1978 года.Жанр: Отечественная классика, литературные чтенияПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107A8CAC2B1FB99D0E8460CD6E85BDCBEF933BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814855   (557779) от 21.08.2014
+
+Николай Гоголь и др. | Классика русского рассказа №6 (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатели, аудиоверсии произведений которых представлены в шестом сборнике «Классика русского рассказа», продолжают развивать в своих повестях и рассказах лучшие идеи русской классики.Жанр: Русская классика, рассказы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D6AEF3FAC4697B39F709E78F31478376B681D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237033   (553244) от 22.07.2018
+
+Леонид Андреев | Жизнь Человека (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_553244.jpg" />
+</div>
+
+
+###  Подробнее
+
+В произведении на суд публики представлена вся жизнь Человека. Действие разворачивается от момента рождения Человека до самой смерти. Он будет идти по жизни, как по лестнице, каждый раз поднимаясь на новую ступеньку. При этом Человек не знает, что ждет его на следующем уровне, он не может разгадать подсказок, дарованных ему судьбой. Все проходит, все меняется, но (   Читать дальше...   )Жанр: ДраматургияПродолжительность: 03:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9240B626193B4ED3ACCF373EEB9DD665E4C56D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045846   (552791) от 26.08.2016
 
 Ги де Мопассан | Милый друг (1981) [MP3]
@@ -6,7 +110,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552791.jpg" />
+  <img src="Z:/picture/008/save_picture_552791.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550929.jpg" />
+  <img src="Z:/picture/008/save_picture_550929.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550169.jpg" />
+  <img src="Z:/picture/008/save_picture_550169.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549364.jpg" />
+  <img src="Z:/picture/008/save_picture_549364.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547925.jpg" />
+  <img src="Z:/picture/008/save_picture_547925.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547422.jpg" />
+  <img src="Z:/picture/008/save_picture_547422.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546528.jpg" />
+  <img src="Z:/picture/008/save_picture_546528.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542774.jpg" />
+  <img src="Z:/picture/008/save_picture_542774.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542583.jpg" />
+  <img src="Z:/picture/008/save_picture_542583.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542249.jpg" />
+  <img src="Z:/picture/008/save_picture_542249.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542102.jpg" />
+  <img src="Z:/picture/008/save_picture_542102.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541857.jpg" />
+  <img src="Z:/picture/008/save_picture_541857.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537704.jpg" />
+  <img src="Z:/picture/008/save_picture_537704.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535199.jpg" />
+  <img src="Z:/picture/008/save_picture_535199.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534541.jpg" />
+  <img src="Z:/picture/008/save_picture_534541.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534216.jpg" />
+  <img src="Z:/picture/008/save_picture_534216.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533771.jpg" />
+  <img src="Z:/picture/008/save_picture_533771.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530069.jpg" />
+  <img src="Z:/picture/008/save_picture_530069.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528861.jpg" />
+  <img src="Z:/picture/008/save_picture_528861.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528013.jpg" />
+  <img src="Z:/picture/008/save_picture_528013.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527843.jpg" />
+  <img src="Z:/picture/008/save_picture_527843.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527793.jpg" />
+  <img src="Z:/picture/008/save_picture_527793.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F7B50C9A752753E9C2014914240B954576DCD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559551   (524413) от 25.06.2022
-
-Антон Чехов | Зеленая коса (2022) [MP3, Джахангир Абдуллаев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ повествуется от первого лица, бывшего репетитора Оли, дочки хозяйки дачи «Зеленая Коса», Марьи Егоровны Микшадзе. Дача расположена на горе у берега Черного моря. Чехов даёт подробное описание окружающей среды и хозяйки дачи. Марья Егоровна, дама 50-ти лет, довольно своенравная, но гостеприимная хозяйка. У неё на даче живет дочь Оля 19 лет от роду. Оля учится (   Читать дальше...   )Жанр: КлассикаПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D2368445CB64CF076D12D67A65D0CEE77B7C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559736   (523544) от 26.06.2022
-
-Александр Дюма | Женщина с бархоткой на шее (2017) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Женщина с бархоткой на шее», также известная под названием «Мёртвая голова» была написана в 1849 году и вошла в состав сборника «Тысяча и один призрак» – литературный сборник, включающий пять мистико-приключенческих повестей и новелл Александра Дюма. Эти произведения впервые публиковались в парижской газете «Конституционалист». Сборник отражает интерес автора (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 06:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78207AB25BDCABBB54C0635F8CCB9E6A1CD4C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559614   (523485) от 26.06.2022
-
-Морис Дрюон | «Проклятые короли» Книга 6. Лилия и лев (2021) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мориса Дрюона читающая публика знает прежде всего по саге «Проклятые короли», открывшей мрачные тайны Средневековья. За каждым произведением цикла стояла кропотливая работа в Национальном архиве, изучение документов, написанных на архаичном французском или на латыни. Серию исторических фресок продолжает роман «Лилия и лев».
-Проклятие великого магистра ордена тамплиеров, (   Читать дальше...   )Жанр: Зарубежная классика, Историческая литератураПродолжительность: 14:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8D7E74671A9F9BEDD6B39F80AD9B62F914669A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559987   (522775) от 27.06.2022
-
-Константин Симонов | Свеча (2022) [MP3, Михаил Соломонов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522775.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, которую я хочу рассказать, произошла девятнадцатого октября сорок четвертого года. К этому времени Белград был уже взят, в руках у немцев оставался только мост через реку Саву и маленький клочок земли перед ним на этом берегу…Жанр: Классика, Военная прозаПродолжительность: 00:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2956C55053468696D2286FBD35ABBD2985395A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1216453   (747707) от 01.04.2018
+
+TRX TV | Strength (2011) WEB-DLRip [H.264][EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск TRX TV, посвященный развитию силовых качеств на петляхПроизводство: TRX TVЖанр: Функциональный тренингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E66E5FEA7E09EEFD2D95F4659763115592655A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216483   (747706) от 01.04.2018
 
 TRX TV | Get Mobile (2011) WEB-DLRip [H.264][EN]
@@ -6,7 +32,7 @@ TRX TV | Get Mobile (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747706.jpg" />
+  <img src="Z:/picture/008/save_picture_747706.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ TRX TV | Flow Mobility (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747569.jpg" />
+  <img src="Z:/picture/008/save_picture_747569.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ TRX TV | 3D Strong (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747568.jpg" />
+  <img src="Z:/picture/008/save_picture_747568.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ TRX TV | Power (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747565.jpg" />
+  <img src="Z:/picture/008/save_picture_747565.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ TRX TV | Endurance (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747563.jpg" />
+  <img src="Z:/picture/008/save_picture_747563.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ TRX TV | Absolute Power (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747559.jpg" />
+  <img src="Z:/picture/008/save_picture_747559.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ TRX TV | StayMobile (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747556.jpg" />
+  <img src="Z:/picture/008/save_picture_747556.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738664.jpg" />
+  <img src="Z:/picture/008/save_picture_738664.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Jillian Michaels | Hard Body (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736543.jpg" />
+  <img src="Z:/picture/008/save_picture_736543.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716170.jpg" />
+  <img src="Z:/picture/008/save_picture_716170.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689847.jpg" />
+  <img src="Z:/picture/008/save_picture_689847.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676475.jpg" />
+  <img src="Z:/picture/008/save_picture_676475.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660733.jpg" />
+  <img src="Z:/picture/008/save_picture_660733.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655077.jpg" />
+  <img src="Z:/picture/008/save_picture_655077.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653011.jpg" />
+  <img src="Z:/picture/008/save_picture_653011.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651772.jpg" />
+  <img src="Z:/picture/008/save_picture_651772.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648092.jpg" />
+  <img src="Z:/picture/008/save_picture_648092.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_647659.jpg" />
+  <img src="Z:/picture/005/save_picture_647659.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645748.jpg" />
+  <img src="Z:/picture/008/save_picture_645748.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644270.jpg" />
+  <img src="Z:/picture/008/save_picture_644270.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633831.jpg" />
+  <img src="Z:/picture/008/save_picture_633831.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Mike Dolce | UFC FIT (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627146.jpg" />
+  <img src="Z:/picture/008/save_picture_627146.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Shaun T | Shaun Week: Insane Focus (2017) DVDRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627014.jpg" />
+  <img src="Z:/picture/008/save_picture_627014.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Mike Donavanik | HIIT Workout (2016-2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623266.jpg" />
+  <img src="Z:/picture/008/save_picture_623266.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Jillian Michaels | Hot Body, Healthy Mommy (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614314.jpg" />
+  <img src="Z:/picture/008/save_picture_614314.jpg" />
 </div>
 
 
@@ -658,35 +684,6 @@ Jillian Michaels | Hot Body, Healthy Mommy (2016) HDTVRip [H.264/720p-LQ] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880BCE53D67B337CA581F39B8162D796DB2BB273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875370   (610166) от 26.06.2015
-
-Сергей Бадюк | Страна героев (2015) PCRec
-
->>След.
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610166.jpg" />
-</div>
-
-
-###  Подробнее
-
-60-ти дневный марафон "Страна героев" с Сергеем Бадюком!
-‡ Комплекс ежедневных упражнений от Сергея Бадюка и профессиональных экспертов
-‡ Уникальные секреты успеха от Чемпионов в различных видах спорта
-‡ Комплекс тренировок, который быстро приведет тебя в форму(   Читать дальше...   )Жанр: СпортПродолжительность: 07:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67B6586D60760B16C631EC6A823B99485BD022B
 ```
 
 https://mybot314.ru/tekegram_catalog/

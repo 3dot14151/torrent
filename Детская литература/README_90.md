@@ -1,3 +1,32 @@
+###  Публикация: 909938   (626275) от 18.06.2015
+
+Картинки (1918) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для маленьких детей.
+
+Ральфъ — папина собака, но Оля увѣряетт, что ее Ральфъ любитъ больше, чѣмъ папу.
+Ральфъ всегда провожаешь Олю въ школу и всегда встрѣчаетъ ее. А когда, вечеркомъ, Олѣ вздумается полежать на коврикѣ передъ камшюмъ, — Ральфъ непремѣнно придетъ и уляжется тутъ же, тѣсно прижавшись къ дѣвочкѣ. (   Читать дальше...   )Жанр: РассказыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211CF6129C8242EE0C8578C6D38D4D886D5FB5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909729   (626126) от 18.06.2015
 
 Оскар Хавкин | Собрание сочинений [4 книги] (1947-2015) [DJVU, FB2]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626126.jpg" />
+  <img src="Z:/picture/008/save_picture_626126.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625955.jpg" />
+  <img src="Z:/picture/008/save_picture_625955.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624229.jpg" />
+  <img src="Z:/picture/008/save_picture_624229.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623984.jpg" />
+  <img src="Z:/picture/008/save_picture_623984.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623820.jpg" />
+  <img src="Z:/picture/008/save_picture_623820.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623610.jpg" />
+  <img src="Z:/picture/008/save_picture_623610.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623540.jpg" />
+  <img src="Z:/picture/008/save_picture_623540.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622382.jpg" />
+  <img src="Z:/picture/008/save_picture_622382.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622236.jpg" />
+  <img src="Z:/picture/008/save_picture_622236.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622217.jpg" />
+  <img src="Z:/picture/008/save_picture_622217.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622188.jpg" />
+  <img src="Z:/picture/008/save_picture_622188.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621549.jpg" />
+  <img src="Z:/picture/008/save_picture_621549.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621545.jpg" />
+  <img src="Z:/picture/008/save_picture_621545.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621095.jpg" />
+  <img src="Z:/picture/008/save_picture_621095.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620800.jpg" />
+  <img src="Z:/picture/008/save_picture_620800.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620798.jpg" />
+  <img src="Z:/picture/008/save_picture_620798.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620638.jpg" />
+  <img src="Z:/picture/008/save_picture_620638.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619847.jpg" />
+  <img src="Z:/picture/008/save_picture_619847.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619442.jpg" />
+  <img src="Z:/picture/008/save_picture_619442.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619215.jpg" />
+  <img src="Z:/picture/008/save_picture_619215.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619093.jpg" />
+  <img src="Z:/picture/008/save_picture_619093.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619085.jpg" />
+  <img src="Z:/picture/008/save_picture_619085.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619084.jpg" />
+  <img src="Z:/picture/008/save_picture_619084.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618608.jpg" />
+  <img src="Z:/picture/008/save_picture_618608.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618583.jpg" />
+  <img src="Z:/picture/008/save_picture_618583.jpg" />
 </div>
 
 
@@ -661,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F96312AAB2E0BFD775256337694386F927A4301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911180   (618504) от 22.06.2015
-
-Евгений Шведер | Приключения Бульдошки (1918) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая интересная часть моей жизни начинается с тех пор, как я попал к новым хозяевам. До этого времени я жил в грязном полутемном сарае, откуда меня редко выпускали на свободу, причем свобода эта ограничивалась таким же грязным и тесным двором.Жанр: Детская проза, приключенияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB1E24110A22437E7B0B1792D230D5395F120CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

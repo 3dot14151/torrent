@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735441.jpg" />
+  <img src="Z:/picture/008/save_picture_735441.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CheckBook Pro 2.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735417.jpg" />
+  <img src="Z:/picture/008/save_picture_735417.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EdgeView 3 v3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735410.jpg" />
+  <img src="Z:/picture/008/save_picture_735410.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Airtool 2 v2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735409.jpg" />
+  <img src="Z:/picture/008/save_picture_735409.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BusyCal 2022.1.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735407.jpg" />
+  <img src="Z:/picture/008/save_picture_735407.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Scrutiny 10 v10.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735406.jpg" />
+  <img src="Z:/picture/008/save_picture_735406.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Avdshare Video Converter for Mac 7 v7.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735402.jpg" />
+  <img src="Z:/picture/008/save_picture_735402.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ EazyDraw 10.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735401.jpg" />
+  <img src="Z:/picture/008/save_picture_735401.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Avdshare Audio Converter for Mac 7 v7.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735400.jpg" />
+  <img src="Z:/picture/008/save_picture_735400.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ iMap Builder: Organisation 11.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735397.jpg" />
+  <img src="Z:/picture/008/save_picture_735397.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ R3WIRE - A State Of Dance Music 2021 Mega Mix (Top 50 Tracks Of 2021) (2022-01-1
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735394.jpg" />
+  <img src="Z:/picture/008/save_picture_735394.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kaleidoscope 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735393.jpg" />
+  <img src="Z:/picture/008/save_picture_735393.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sandboxie 5.55.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735383.jpg" />
+  <img src="Z:/picture/008/save_picture_735383.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Firefox Browser 91.5.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735381.jpg" />
+  <img src="Z:/picture/008/save_picture_735381.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ RegCool 1.309 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735377.jpg" />
+  <img src="Z:/picture/005/save_picture_735377.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ HDCleaner 2.016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735375.jpg" />
+  <img src="Z:/picture/008/save_picture_735375.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ GeoGebra 6.0.686.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735374.jpg" />
+  <img src="Z:/picture/008/save_picture_735374.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.19 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735364.jpg" />
+  <img src="Z:/picture/008/save_picture_735364.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ ApowerREC 1.5.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735357.jpg" />
+  <img src="Z:/picture/008/save_picture_735357.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ PreSonus Studio One 5 Professional 5.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735355.jpg" />
+  <img src="Z:/picture/008/save_picture_735355.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ WinTools.net Premium 22.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735351.jpg" />
+  <img src="Z:/picture/008/save_picture_735351.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sandboxie 5.55.9 / Sandboxie Plus 1.0.9 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735341.jpg" />
+  <img src="Z:/picture/008/save_picture_735341.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.1 Build 6845 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735338.jpg" />
+  <img src="Z:/picture/008/save_picture_735338.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ USB Image Tool 1.82 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735337.jpg" />
+  <img src="Z:/picture/008/save_picture_735337.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735321.jpg" />
+  <img src="Z:/picture/008/save_picture_735321.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Bartender 4 v4.1.31
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735316.jpg" />
+  <img src="Z:/picture/008/save_picture_735316.jpg" />
 </div>
 
 

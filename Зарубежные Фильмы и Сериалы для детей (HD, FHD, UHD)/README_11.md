@@ -1,3 +1,29 @@
+###  Публикация: 1553951   (579895) от 28.05.2022
+
+Маленькая ведьма / Die kleine Hexe (2018) BDRip [H.264/1080p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая ведьма очень хочет повеселиться на вечеринке в честь Вальпургиевой ночи, но ей всего 127, она слишком молода для такого мероприятия. Девушка тайком пробирается на праздник, но ее ловят и в наказание поручают выучить все заклинания из великой магической книги за один год, чтобы доказать всем, что она уже взрослая. Однако усердие и трудолюбие не являются (   Читать дальше...   )Производство: Германия, Швейцария / Studio Canal, Claussen + Putz Filmproduktion, Teleclub AGЖанр: Фэнтези, драма, комедия, семейныйРежиссер: Мике ШёрерАктеры: Каролина Херфурт, Аксель Праль, Луис Ворбах, Momo Beier, Сюзанна фон Борсоди, Barbara Melzl, Каролин Списс, Эвелин Холл, Тереза Аффолтер, Ангелика БёттигерПеревод: Профессиональный многоголосый (CВ Студия)Язык озвучки: Русский, немецкийСубтитры: Русские (Full), немецкиеПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B148F1A3941AD55F7496BEF89E99B862757FA528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554316   (579019) от 29.05.2022
 
 Выдра по имени Тарка / Tarka the Otter (1978) BDRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579019.jpg" />
+  <img src="Z:/picture/008/save_picture_579019.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577691.jpg" />
+  <img src="Z:/picture/008/save_picture_577691.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577507.jpg" />
+  <img src="Z:/picture/008/save_picture_577507.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577358.jpg" />
+  <img src="Z:/picture/008/save_picture_577358.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577271.jpg" />
+  <img src="Z:/picture/008/save_picture_577271.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572717.jpg" />
+  <img src="Z:/picture/008/save_picture_572717.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569688.jpg" />
+  <img src="Z:/picture/008/save_picture_569688.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564844.jpg" />
+  <img src="Z:/picture/008/save_picture_564844.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564734.jpg" />
+  <img src="Z:/picture/008/save_picture_564734.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558337.jpg" />
+  <img src="Z:/picture/008/save_picture_558337.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558232.jpg" />
+  <img src="Z:/picture/008/save_picture_558232.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557847.jpg" />
+  <img src="Z:/picture/008/save_picture_557847.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556045.jpg" />
+  <img src="Z:/picture/008/save_picture_556045.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554774.jpg" />
+  <img src="Z:/picture/008/save_picture_554774.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554555.jpg" />
+  <img src="Z:/picture/008/save_picture_554555.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546028.jpg" />
+  <img src="Z:/picture/008/save_picture_546028.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545094.jpg" />
+  <img src="Z:/picture/008/save_picture_545094.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544499.jpg" />
+  <img src="Z:/picture/008/save_picture_544499.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543260.jpg" />
+  <img src="Z:/picture/008/save_picture_543260.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542389.jpg" />
+  <img src="Z:/picture/008/save_picture_542389.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541630.jpg" />
+  <img src="Z:/picture/008/save_picture_541630.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539484.jpg" />
+  <img src="Z:/picture/008/save_picture_539484.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537664.jpg" />
+  <img src="Z:/picture/008/save_picture_537664.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528889.jpg" />
+  <img src="Z:/picture/008/save_picture_528889.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527146.jpg" />
+  <img src="Z:/picture/008/save_picture_527146.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CDE5EE42D54BBC6D9993FDD67977D46257031D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559326   (526998) от 24.06.2022
-
-Соник 2 в кино / Sonic the Hedgehog 2 (2022) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поселившись в Грин Хилз, Соник стремится доказать, что у него есть все задатки настоящего героя. И геройское испытание не заставляет себя долго ждать: злодейский доктор Роботник вновь строит козни. На этот раз — с загадочным напарником Наклзом. Вместе они разыскивают бесценный изумруд, в котором заключены силы, способные уничтожать целые цивилизации. Соник объединяется (   Читать дальше...   )Производство: Япония, США / Paramount Pictures, Sega Sammy Group, Original FilmЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Бен Шварц, Идрис Эльба, Коллин О’Шонесси, Джим Керри, Джеймс Марсден, Тика Самптер, Наташа Ротуэлл, Шемар Мур, Адам Палли, Ли МадждубПеревод: дублированный, многоголосый закадровый (HDRezka, Jaskier, TVShows), любительский одноголосый (ALEKS KV)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (full)Продолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBD4AB849A5E916FE19E7DFB5266B4AFDF22C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

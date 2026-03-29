@@ -1,3 +1,109 @@
+###  Публикация: 1257120   (347361) от 25.10.2018
+
+Disk Drill Enterprise 3.6.918 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill - восстановление информации без помощи специалистов
+Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: maOS softwareРелиз состоялся: 2018Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.8.5 +Язык интерфейса: Русский, Английский, Польский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50709DD69EC3DB4A49EC4F623A4EB891B17ABB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073161   (347160) от 15.11.2016
+
+Parallels Desktop for Mac Business Edition 12.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop® 12 для Mac — это самое быстрое, простое и эффективное решение для запуска приложений Windows на Mac без перезагрузки. Без всяких усилий переключайтесь между приложениями для Mac и для Windows, запускайте Windows-приложения с панели Mac Dock, пользуйтесь привычными по работе с Mac жестами в Windows-приложениях, а также копируйте и перетаскивайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.10.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575919C96113DED61E245C6F49975F87DB9BEDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179673   (347104) от 01.11.2017
+
+iTubeDownloader 6.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347104.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTubeDownloader - загрузчик для Youtube, который делает загрузку видео с YouTube еще более приятной с помощью простых в использовании функций, таких как очереди загрузки, каналов и списка воспроизведения загрузки, просмотр и многое другое.
+Вы можете использовать iTubeDownloader для просмотра веб-страницы YouTube и быстро просматривать видео: когда вы то, что хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2017Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E39020C20C8CD0F7023CD20C621FF636578003C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179670   (346948) от 01.11.2017
+
+AutoMounter 1.5.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устали подключать и отключать общие ресурсы сети? AutoMounter сделает так, что общие ресурсы будут всегда доступны в нужное время.Тип издания: macOS SoftwareРелиз состоялся: 24.08.2017Разработчик: Pixeleyes LtdПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D427EFFA6B7CCCBC4B1687C1D4F0EC2F0E8B1D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418562   (346940) от 25.10.2020
 
 Money Pro - Personal Finance 2.6.1 [Multi/Ru]
@@ -6,7 +112,7 @@ Money Pro - Personal Finance 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346940.jpg" />
+  <img src="Z:/picture/008/save_picture_346940.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Elmedia Player Pro 7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346936.jpg" />
+  <img src="Z:/picture/008/save_picture_346936.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Flume Pro 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346825.jpg" />
+  <img src="Z:/picture/008/save_picture_346825.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ Sublime Text 3 (3153) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346816.jpg" />
+  <img src="Z:/picture/008/save_picture_346816.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ Movist Pro 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346796.jpg" />
+  <img src="Z:/picture/008/save_picture_346796.jpg" />
 </div>
 
 
@@ -144,7 +250,7 @@ Tenorshare UltData 9.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346436.jpg" />
+  <img src="Z:/picture/008/save_picture_346436.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ CleanMyMac 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346353.jpg" />
+  <img src="Z:/picture/008/save_picture_346353.jpg" />
 </div>
 
 
@@ -199,7 +305,7 @@ iTools Pro 1.7.7 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346316.jpg" />
+  <img src="Z:/picture/008/save_picture_346316.jpg" />
 </div>
 
 
@@ -226,7 +332,7 @@ IconFly 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345931.jpg" />
+  <img src="Z:/picture/008/save_picture_345931.jpg" />
 </div>
 
 
@@ -254,7 +360,7 @@ EtreCheck 5 v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345927.jpg" />
+  <img src="Z:/picture/008/save_picture_345927.jpg" />
 </div>
 
 
@@ -282,7 +388,7 @@ FilePane 1.10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345803.jpg" />
+  <img src="Z:/picture/008/save_picture_345803.jpg" />
 </div>
 
 
@@ -308,7 +414,7 @@ Twitterrific 5 for Twitter v5.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345801.jpg" />
+  <img src="Z:/picture/008/save_picture_345801.jpg" />
 </div>
 
 
@@ -336,7 +442,7 @@ Unclutter 2.1.12d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345797.jpg" />
+  <img src="Z:/picture/008/save_picture_345797.jpg" />
 </div>
 
 
@@ -365,7 +471,7 @@ Network Kit X 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345793.jpg" />
+  <img src="Z:/picture/008/save_picture_345793.jpg" />
 </div>
 
 
@@ -391,7 +497,7 @@ iFlicks 2 v2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345710.jpg" />
+  <img src="Z:/picture/008/save_picture_345710.jpg" />
 </div>
 
 
@@ -419,7 +525,7 @@ Jettison 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345704.jpg" />
+  <img src="Z:/picture/008/save_picture_345704.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ FontLab VI v6.1.0 (6871) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345500.jpg" />
+  <img src="Z:/picture/008/save_picture_345500.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ Geekbench 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345397.jpg" />
+  <img src="Z:/picture/008/save_picture_345397.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ IP Scanner Pro 3.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345359.jpg" />
+  <img src="Z:/picture/008/save_picture_345359.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ Beamer 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345357.jpg" />
+  <img src="Z:/picture/008/save_picture_345357.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ Pixelmator Pro 1.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345336.jpg" />
+  <img src="Z:/picture/008/save_picture_345336.jpg" />
 </div>
 
 
@@ -588,7 +694,7 @@ DxO OpticsPro Elite 11.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345216.jpg" />
+  <img src="Z:/picture/008/save_picture_345216.jpg" />
 </div>
 
 
@@ -599,111 +705,6 @@ DxO OpticsPro — один из лучших RAW конвертеров и ре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA5A12CAF97A12508C77664971137457A06F169E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073286   (345206) от 16.11.2016
-
-Algoriddim djay Pro 1.4.1 (Complete FX Pack) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Algoriddim djay Pro – это программа для управления и микширования музыкальной коллекции.
-Ее особенностью является наличие двух реалистичных виртуальных интерактивных вертушек, а также возможность записывать и передавать музыку через сеть Bonjour на подключенные к сети компьютеры с установленной программой. Программа поддерживает все основные форматы файлов, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 ноября 2016Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A43410E8DEAFD093CB2DE955F75FF6CEAF74DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257369   (345174) от 26.10.2018
-
-Суперсемейка 2 / Incredibles 2 (2018) WEB-DL [720p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345174.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдАктеры: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  Русские SDH,  АнглийскиеПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1FF590170BB595F134701132D777B1DC50FB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257480   (345025) от 26.10.2018
-
-Альфа / Alpha (2018) WEB-DL [720p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345025.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 000 лет назад Земля была холодным и неуютным местом, в котором смерть подстерегала человека на каждом шагу, а жизнь зависела от того, удалось загнать добычу или нет. Молодой охотник из племени, которое по уровню жизни и культуры было одним из самых развитых на планете, оказывается один на один с враждебным миром, полным смертельных опасностей. Ему предстоит взглянуть (   Читать дальше...   )Производство: СШАЖанр: Драма, приключения, семейныйРежиссер: Альберт ХьюзАктеры: Коди Смит-МакФи, Йоуханнес Хёйкьюр Йоуханнессон, Марцин Ковальчик, Йенс Хультен, Наташа Мальте, Спенсер Богерт, Мерседес Де Ла Зерда, Леонор Варела, Морган Фриман, Прия РаджаратнамПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 01:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6614184E547DE83D48F7A3FA784F32430C419D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257366   (344888) от 26.10.2018
-
-Суперсемейка 2 / Incredibles 2 (2018) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344888.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдАктеры: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  Русские SDH,  АнглийскиеПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D556B03E12CBAC2FA91EDDD9AE63954C39C7FB19
 ```
 
 https://mybot314.ru/tekegram_catalog/

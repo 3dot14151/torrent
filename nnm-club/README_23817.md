@@ -1,24 +1,25 @@
-###  Публикация: 1720815   (110147) от 05.05.2024
+###  Публикация: 1715497   (111527) от 12.04.2024
 
-Ты не поверишь! (04.05.2024) WEBRip [H.264/1080p]
+VA - Top 9 March 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ты не поверишь!» — информационно-развлекательная программа в жанре светского репортажа, освещающая жизнь богатых и знаменитых со всех сторон. Шикарные особняки и тайный бизнес звезд — на чем они зарабатывают свои миллионы? Новые романы и закрытые свадьбы — как живут семьи знаменитых артистов?
-
-На этой неделе генсек НАТО Йенс Столтенберг прибыл в Киев с необъявленным (   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоуЯзык озвучки: РусскийПродолжительность: 00:45:43
+01. Alphacube - Stripes To Horizons (Original Mix) [6:36]
+02. SounEmot - En Mis Sueños Siempre Te Vuelvo A Recordar (Emotional Mix) [10:02]
+03. Masaru Hinaiji & Kayumai - We Will Shine (Pink Pig Remix) [8:37]
+04. Gayax - Midnight Bird (Original Mix) [6:48](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CE98F2889A39CD53218DDEEBA81A40B6D5FAD85
+magnet:?xt=urn:btih:C679CC37DE6BC1A99899628B1D203DDE7BD4105D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720813   (110146) от 05.05.2024
+###  Публикация: 1715539   (111526) от 12.04.2024
 
-Каскадёры / The Fall Guy (2024) TS [H.264] [звук с TS] [AD]
+Карен М. Макманус | Ни слова больше! (2023) [MP3, Елизавета Чабан]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Потрёпанный жизнью каскадёр Колт нехотя возвращается в профессию, чтобы помочь бывшей девушке Джоди снять первый фильм - блокбастер с многомиллионным бюджетом. Ситуация осложняется пропажей исполнителя главной роли.Производство: США / 87North, Entertainment 360, Universal PicturesЖанр: боевик, драма, комедияРежиссер: Дэвид ЛитчАктеры: Райан Гослинг, Эмили Блант, Аарон Тейлор-Джонсон, Ханна Веддингем, Тереза ​​Палмер, Стефани Сью, Уинстон Дьюк, Бен Найт, Матузе, Адам ДаннПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:00:11Реклама: Присутствуют вставки аудио и видео рекламы, баннер
+Четыре года назад трое учеников престижной школы Сент-Амброуз обнаружили в лесу тело жестоко убитого учителя мистера Ларкина. Полиции так и не удалось найти преступника… Теперь в город возвращается любимица Ларкина – Бринн Галлахер, мечтающая о карьере криминального журналиста. Она твердо намерена узнать, кто же расправился с любимым всеми педагогом, у которого, (   Читать дальше...   )Жанр: детектив, триллерИздательство: Аудиокнига (АСТ)Продолжительность: 08:26:26
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:72729E01F6002B9714A822A7ED6070961CCA9C19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720917   (110145) от 05.05.2024
+###  Публикация: 1715321   (111525) от 12.04.2024
 
-Juke Cove - Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner, doom, psych, punk>
+VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Vocal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Path [00:05:04]
-02. Hypnosis [00:04:54]
-03. Wait [00:06:37]
-04. Confined [00:05:16](   Читать дальше...   )Жанр: stoner, doom, psych, punkПродолжительность: 00:44:05
+01. Zerosospiro - Conversazione (2:26)
+02. Melania - Tu Vuo Fa L'americano (4:04)
+03. Emanuela Campana - Brividi (3:06)
+04. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)(   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:15:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
+magnet:?xt=urn:btih:CA80BE7CFDC2E4C6685403004AC57466B758C65C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,113 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720607   (110144) от 05.05.2024
+###  Публикация: 1715579   (111524) от 12.04.2024
 
-Yasru - Bilinmeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dünya [00:08:05]
-02. Kozmik Yolculuk [00:05:36]
-03. Gün Batımında [00:05:42]
-04. Bilinmeze [00:06:56](   Читать дальше...   )Жанр: doom metal, FolkПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC344225B0C2053894779800C92ED2AFBC66D9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720900   (110143) от 05.05.2024
-
-The Monarch - A Moment to Lose Your Breath (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For My Own Being [00:02:32]
-02. Man-Made-Chaos [00:06:11]
-03. Imperil By My Hand [00:06:25]
-04. When Death Finds You [00:06:44](   Читать дальше...   )Жанр: Melodic Death Metal, Metalcore, Alternative MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C5C51DE1B1AD166E550FAB9386E2F56FB5E42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720777   (110142) от 05.05.2024
-
-Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня подкроватных монстров [00:03:17]
-02. Лжизнь [00:03:50]
-03. Лето [00:04:04]
-04. Прятки [00:04:00](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7CE7B779807CBEF70C084011E1E309081B06C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720929   (110141) от 05.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 7-й матч) Торонто Мэйпл Лифс - Бостон Брюинз (04.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+Хоккей. НХЛ 2023-2024. Детройт Ред Уингз - Питтсбург Пингвинз (11.04.2024) WEB-DLRip [H.264/720p-LQ] [hand made 60fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 мая 2024, воскресенье. 03:00 МСК. 1/4 финала - Восток. 7-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:23:15
+12 апреля 2024, пятница. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 294 зрителя (98% при вместимости 18 673)
+Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: SNPITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A80293267A82FA086614B91D3BCEA133089BFFF
+magnet:?xt=urn:btih:883497D30B94E7EE72A4B4C83BA2842B73BE8939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,191 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720951   (110140) от 05.05.2024
+###  Публикация: 1715408   (111523) от 12.04.2024
 
-Mind's Mirrors - Forever Is Not Nearly Long Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110140.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Glacial Extinction (feat. Christian Mnzner) (01:09)
-2 - Mechumanity (feat. Christian Mnzner) (05:17)
-3 - Counting on Me (05:59)
-4 - Deadline (feat. Ron Jarzombek) (04:36)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3046F73AAF3FA5A74ECE2BA680A0B58787288C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720803   (110139) от 05.05.2024
-
-n-Track Studio Suite 10.1.0.8659 (x32) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110139.jpg" />
-</div>
-
-
-###  Подробнее
-
-n-Track Studio — кроссплатформенный аудиоредактор с возможностью многодорожечной записи звука (цифровая звуковая рабочая станция), разработанный итальянской компанией n-Track Software. Программа поддерживает неограниченное число аудио- и MIDI-дорожек и позволяет использовать различные виртуальные инструменты (VST, VST3, AU и др.). Имеет нативную версию компьютеров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DF4E91B3C1DBB5EA368AF7C0EAE5FF07C5F7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720909   (110138) от 05.05.2024
-
-Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Black Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Et in Arcadia Ego [00:27:38]
-02. 10 Hygiea [00:02:53]Жанр: Psychedelic Black Doom MetalПродолжительность: 00:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F46113A7825E28C41994AACC346A0D3F6890A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720783   (110137) от 05.05.2024
-
-Submariner - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Cry [00:05:25]
-02. Resurgence [00:03:15]
-03. Fear of Death [00:02:38]
-04. Unerring Order [00:03:09](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11117B5AA07E0E5BFC945B2E4B2D9B730CE905EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721232   (110136) от 06.05.2024
-
-Илья Рэд | Мастер Лжи (Книга 1) (2024) [MP3, Александр Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делёжка магических ресурсов. Гонка за влияние. Бесконечные интриги аристократов и борьба за жизнь всего человечества – я попал в знакомую среду. Это мир, где без богов людям не выжить, но они уже неплохо устроились, раз нашли время на грызню между собой. Самое место для Мастера Лжи. У меня есть боевой опыт, знания и желание создать собственный клан.Осталось только (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC794E324B80D0DE22C5CF0B3818AB7C0F2E2F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721218   (110135) от 06.05.2024
-
-Zoner Photo Studio X 19.2403.2.539 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D55102ED0B32803770C2D45CBC071A5E1043312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721378   (110134) от 06.05.2024
-
-Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
+James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Coming Up (Intro) (01:30)
- 02. Man In Black (04:59)
- 03. The Devil's Hand (04:04)
- 04. Ma Rainey (04:30)(   Читать дальше...   )Жанр: Delta BluesПродолжительность: 00:34:38
+01. Layin' in the Cut [6:58]
+02. Motown Mash [7:23]
+03. Requiem for Hartford Ave. [5:58]
+04. Terminal B [6:44](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DA88248A58F84E99556A0E5DB14CCDC52E6358C
+magnet:?xt=urn:btih:D4865C89CDBD6CCB342BB65C9F1DA1D8031EF421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,25 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721350   (110133) от 06.05.2024
+###  Публикация: 1715463   (111522) от 12.04.2024
 
-Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то образом я стал сильнейшим, прокачивая фермерские навыки [2022, TV, 12 эп.] BDRip 1080p raw
+Unkreated - Apoptosi (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как же приятно пожинать плоды своих трудов, когда ты фермер! Эл Уэйн настолько проникся этим созидательным делом, что решил отточить свой навык на максимум и стать лучшим в мире. Но тех, кто ожидает, что это история про бескрайние поля да пестики с тычинками, ждёт сюрприз. Ведь, получив высший уровень, Эл внезапно понял, что его жизнь сделала крутой поворот совсем (   Читать дальше...   )Производство: студия Studio A-CATЖанр: приключения, комедия, романтика, фэнтезиРежиссер: Нагахама НорихикоПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+01. Tetradimension
+02. Enemy
+03. Inducendo l'apoptosi umana
+04. The fortress of Masada(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AECA6F98FDCD516E0681470FBFB637999304045F
+magnet:?xt=urn:btih:42DC11432CC7D4A6E1EFAA4E512F2CF1865D7C74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,25 +167,371 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721355   (110132) от 06.05.2024
+###  Публикация: 1715425   (111521) от 12.04.2024
 
-Завтра будет всегда (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+The Regime - The Regime (1998) Compilation [APE|Lossless|image + .cue] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skitzophrenia
+02. Cum & Go
+03. Relentless
+04. Kill & Be Killed(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583B77E75BA749D8A2506F97E9A3D27753794685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715406   (111520) от 12.04.2024
+
+Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tennessee Waltz [3:01]
+02. Yeah Boo [2:18]
+03. Something I Dreamed Last Night [3:11]
+04. If I Could Steal You From Somebody Else [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F5F9580CF7217F863E6DE31E4092359413199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715405   (111519) от 12.04.2024
+
+Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:41]
+02. Memories of You [3:01]
+03. How Come? [2:44]
+04. I Can't Believe That You're in Love With Me [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D376DE00CD343CC5C5F9789E2443A4471B113DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715616   (111518) от 12.04.2024
+
+Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down South In New Orleans (4:19)
+02. Deep Ellum Blues (6:38)
+03. Looking for Trouble (6:16)
+04. Hello Walls (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A652BF6445428CB45FBC1861917F3B4AF990E3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715567   (111517) от 12.04.2024
+
+Ирина Киреева | Я с тобой. Добрые сказки (2008) [MP3, Инна Гомес и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Для самых маленьких.
+«Как хорошо быть маленьким!» – часто говорят взрослые. «Но это совсем непросто...», – поправили бы их дети. И, правда, расти – дело трудное. И хотя вокруг полно взрослых, малыш каждый день остается один на один со своими страхами и проказами, со своим любопытством, а главное – со своими чувствами, ведь и они растут так быстро, что (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Продюсерский центр «Вимбо»Продолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFA581B5CC500E550E4EAE514A2B214842BB9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715611   (111516) от 12.04.2024
+
+Big Chico - 30 Anos De Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just a Blew in to Your Town (3:08)
+02. Bad Feeling (6:22)
+03. Made My Gateaway (feat. Laretha Weathersby) (6:05)
+04. I Wonder Why (3:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B82A6D47FE72FBA5497117737117A7975F75F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715609   (111515) от 12.04.2024
+
+Jeff Gaeth - Pecking Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red-Handed (5:18)
+02. Aquamarine (4:38)
+03. Pecking Order (5:06)
+04. Almost Home Again (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD376787D1D06ABCDDF38D9C227CCCF029B389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715618   (111514) от 12.04.2024
+
+Marvin Scondo - Road Trip Session Vol. I  (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me Baby (6:20)
+02. Real Good Lovin' (3:08)
+03. Viva La Vida (6:21)
+04. Leaving Las Vegas (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79E598BBDC553953EE61A5F1E374F7B19F78590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715324   (111513) от 12.04.2024
+
+VA - Jazz - ruhig und entspannt (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renee Olstead - What a Difference a Day Makes (3:28)
+02. Michael Bublé - Fever (3:54)
+03. Tory Noé Trio - Hallelujah (2:52)
+04. Nils Wülker - Homeless Diamond (feat. Lauren Flynn) (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0E499EF6DFCB02F8FDC60B297825AE60EDF93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715614   (111512) от 12.04.2024
+
+Cassie Rose & The Sol Garden - On The Wind (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Wind (6:12)
+02. A Love For Only You & Me (4:48)
+03. Good People (3:48)
+04. Running High (4:09)(   Читать дальше...   )Жанр: Soul, R&B, BluesПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD751E448A06C50670EF13F87C390ED323530FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715806   (111511) от 13.04.2024
+
+Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0, 96.0 kHz|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling (3:29)
+02. Faint (2:42)
+03. Numb / Encore (3:26)
+04. Papercut (3:04)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, RapcoreПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2457AF5146E7828220272A26B645F3C71BDE0213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715805   (111510) от 13.04.2024
+
+VA - Blues, Swagger & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Braden John Evans /Bruce Zisis Maginnis - Haunted By A Woman (3:23)
+02. Braden John Evans /Bruce Zisis Maginnis - Dead Man's Trail (3:41)
+03. Louis Xylo Mieville /Bruce Zisis Maginnis - Deja Vu Romance (3:46)
+04. Louis Xylo Mieville /Bruce Zisis Maginnis - Get Off My Turf (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D7D897D4F23A037B172769D4BD6B0C783A4D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715804   (111509) от 13.04.2024
+
+Судьба на двоих (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
 
 >>Отечественные сериалы
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В один не прекрасный день Вера Жданова лишается единственного источника заработка, который позволял ей содержать семью – мать и двух младших сестер. В поисках работы Вера вынуждена уехать из родного городка в столицу, где устраивается уборщицей в студию известного фэшн-фотографа и ловеласа Геннадия Арбенина. Арбенин не прочь заполучить Веру в свою коллекцию, поэтому, (   Читать дальше...   )Производство: Россия | «Star Media»Жанр: МелодрамаРежиссер: Глеб ЯкубовскийАктеры: Татьяна Чердынцева, Прохор Дубравин, Петр Нестеров, Елена Катышева, Ирина Уханова, Сандра Вострецова, Михаил Данилюк, Татьяна Корсак, Елена Дементьева, Наталья МаксимоваПродолжительность: ~00:50:00 серия
+Марина живет самой обычной жизнью: днем работает на швейной фабрике, а по вечерам ухаживает за пожилым отцом. Ей приходится браться за любые подработки, чтобы хоть как-то свести концы с концами. Неожиданно судьба сводит ее с солидным мужчиной на дорогом авто. Влюбившись с первого взгляда в Марину, он добивается ее и дарит настоящую сказку: дорогие рестораны, подарки, (   Читать дальше...   )Производство: Россия | «Авва-Фильм»Жанр: МелодрамаРежиссер: Руслан БальтцерАктеры: Эрика Булатая, Родион Галюченко, Сергей Борисов, Мария Глазкова, Христина Блохина, Татьяна Таушева, Татьяна Филатова, Александр Червов, Светлана Авдина, Ольга ТорощинаПродолжительность: ~00:47:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01F11640197B1857DF44CB3B4BF8FE88A593EE27
+magnet:?xt=urn:btih:6E4F0BDB87B7EB4B7C9C7CAC06FC30727A50FE17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,25 +539,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721167   (110131) от 06.05.2024
+###  Публикация: 1715729   (111508) от 13.04.2024
 
-Шмяк. Волшебная лавка Есении (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-52 из 52)
+Moon+ Reader Pro v9.3 (b903002) Mod by Balatan [Ru/Multi]
 
->>Мультфильмы
->>Отечественные Мультсериалы
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Есения и медвежонок Шмяк находят волшебную книгу и открывают лавку чудес, в которую стекаются все обитатели волшебной страны со своими проблемами и мечтами. Друзья никому не отказывают в помощи, вот только частенько помощь нужна и им самим, ведь Есения очень рассеянная, а Шмяк — медвежонок с чудинкой.Производство: Россия | «Great Frame»Жанр: Мультфильм, детский, приключения, комедияРежиссер: Татьяна Мошкова, Андрей Бахурин, Александра АфанасьеваАктеры: Вероника Макеева, Максим Сергеев, Александра Крыщук, Светлана Кузнецова, Максим Яковель, Иван Чабан, Инга Реза, Мария Цветкова-Овсянникова, Ксения БржезовскаяСубтитры: ОтсутствуютПродолжительность: ~00:07:00 серия
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 12.04.2024Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D417E87B29B8A2DFB3A0F8EFF8CAE47AB97FD37
+magnet:?xt=urn:btih:531A875C6EA93150A4CD61E3C456B230E8029B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,25 +565,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721172   (110130) от 06.05.2024
+###  Публикация: 1715821   (111507) от 13.04.2024
 
-RegCool 2.005 + Portable [Multi/Ru]
+R-Studio Network 9.4 Build 191301 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C4C5239E9BDDDECE375C2113B441BB862E2A718
+magnet:?xt=urn:btih:CEC69EC6DF740867C23BE0F09963BC9EDDD8CDB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +591,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721153   (110129) от 06.05.2024
+###  Публикация: 1715665   (111506) от 13.04.2024
 
-Rotting Christ - Pro Xristou (2024) Limited Edition [MP3|320 Kbps] <Melodic Black Metal, Dark Metal>
+Роберт Шиллер | Нарративная экономика (2024) [MP3, Павел Корицкий]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pro Xristou (1:29)
-02. The Apostate (5:01)
-03. Like Father, Like Son (4:35)
-04. The Sixth Day (3:56)(   Читать дальше...   )Жанр: Melodic Black Metal, Dark MetalПродолжительность: 00:55:11
+Мировой экономикой управляют не только деньги, но и истории. Например, цена биткоина достигла тысяч долларов благодаря тому, что люди поверили в его ценность. Роберт Шиллер, лауреат Нобелевской премии, предложил теорию о том, что экономические модели, основанные на вирусных историях, более точны. Он утверждает, что изучение таких историй, которые распространяются (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 11:49:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17B9DD58F4AF7C77958B7E7B7561C911B5049E5D
+magnet:?xt=urn:btih:5111C75F3AFA0B60F8141A3304F5B355FF4D5FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +617,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721376   (110128) от 06.05.2024
+###  Публикация: 1715965   (111505) от 13.04.2024
 
-Иду за тобой (2022) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+Слёзы русалки в Куньлуне / Легенда о русалке / Kunlun jie zhi jiao ren lei / Tears of Shark in Kunlun (2022) WEB-DLRip [звук с TS] [AD]
 
->>Отечественные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Скромный следователь Елена Савина уверена: застигнутая на месте преступления Анна Власова – не убийца, хотя девушка и берет всю вину на себя. Савина уверена – Анна кого-то покрывает. Вопреки всему, перебрав множество подозреваемых, Лене удается найти настоящего убийцу. Теперь перед ней встает дилемма – посадить невиновную Аню или выдать полиции настоящего преступника. (   Читать дальше...   )Производство: Россия | «СИГМА»Жанр: Остросюжетная мелодрамаРежиссер: Карен ЗахаровАктеры: Глафира Тарханова, Иван Бровин, Алексей Фаддеев, Софья Хилькова, Марк Доронин, Ирина Чериченко, Сергей Тезов, Любовь Хацкевич, Павел Абдалов, Григорий БагровПродолжительность: ~00:49:00 серия
+В давние времена, во время битвы между двумя кланами, повержен вождь племени русалок. Глава победившего клана, страдавший от загадочного недомогания умирает. В убийстве обвиняют его сына. Сбежав из темницы, он должен найти истинного виновника и стать преемником отца. На берегу Черной реки, он встречает русалку. Теперь им вместе предстоит пройти невероятные испытания, (   Читать дальше...   )Производство: Китай / Tencent VideoЖанр: боевик, фэнтезиРежиссер: Цинь ПэнфэйАктеры: Яо Синтон, Цуй Юнсюань, Чэн Симен, Чэнь Хаовэн, Сюй Чжаньвэй, Ши Сюаньжу, Цянь Сыи, Лю СиханьПеревод: Дублированный (Lucky Production) звук с TSЯзык озвучки: РусскийСубтитры: Китайские (hardsub)Продолжительность: 01:24:49Реклама: Присутствуют вставки аудио и видео рекламы.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A39CC3198E2C795DF3EDD98E1051FDCD969955B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +643,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721349   (110127) от 06.05.2024
+###  Публикация: 1715829   (111504) от 13.04.2024
 
-Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер меня бесит! [2022, TV, 12 эп.] BDRip 1080p raw
+NIUBI Partition Editor 9.9.5 Pro / Unlimited / Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111504.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AB62FFC36198FB76775EEE06A546B9845D7C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715953   (111503) от 13.04.2024
+
+Kuro no Shoukanshi | Black Summoner | Чёрный призыватель [2022, TV, 12 из 12] BDRip 720p 10-bit raw
 
 >>Аниме с субтитрами
->>Аниме (FullHD)
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альвин — слабый воин-мечник. Карла — надоедливая тёмная эльфийка-целительница, которая своими словами и действиями может легко вывести из себя Альвина, да и методы её "исцеления" соответствуют требованиям тёмных эльфийских богов. Они — непохожие друг на друга искатели приключений, попадающие в разные неприятности.Производство: студия Jumondou / 寿門堂Жанр: комедия, фэнтезиРежиссер: Наканиси НобуакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+Очнувшись, Кельвин обнаружил, что не только не знает, где он оказался, но и ничегошеньки не помнит про свою прошлую жизнь. Но, судя по всему, он переродился в другом мире! А всю память обменял на мощнейшие умения. Теперь Кельвину, призывателю по профессии, предстоит отправиться в путешествие с богиней, которая и привела его в этот мир. Богиней, которая вдобавок ещё (   Читать дальше...   )Производство: Студия Satelight / サテライトЖанр: приключения, фэнтезиРежиссер: Хирайкэ ЁсимасаПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26679E4E0159A2B019E040B2A5FC15E46BC38BDC
+magnet:?xt=urn:btih:476174BD0E7EA375AD6775ABFCC5ADADD4D45CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,133 +696,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721089   (110126) от 06.05.2024
+###  Публикация: 1715957   (111502) от 13.04.2024
 
-Память / Memory (2023) WEB-DLRip [H.264] [звук с TS]
+VA - Instrumental Jazz Variations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
 
->>
->>
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прошлое не дает покоя Сильвии. На вечере выпускников она встречает Сола и обвиняет его в преступлении, совершенном против нее много лет назад. Сол страдает прогрессирующей потерей памяти и отказывается признавать вину. Постепенно противостояние двух одиноких сердец перерастает в сильное чувство. Тонкая история любви, помогающая справиться с демонами прошлого и обрести (   Читать дальше...   )Производство: Мексика, США / Case Study Films, High Frequency Entertainment, MUBI, Screen 1Жанр: драмаРежиссер: Мишель ФранкоАктеры: Джессика Честейн, Питер Сарсгаард, Мерритт Уивер, Джессика Харпер, Элси Фишер, Брук Тимбер, Джош Чарльз, Том Хэммонд, Брайан Келли, Тарина УэббПеревод: Дублированный (Кипарис) звук с TSЯзык озвучки: РусскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:43:05
+001. Xavier Richardeau - Linea Oceanica (00:03:35)
+002. Arnold Klos Trio - Whisper Not (00:05:07)
+003. Massimo Faraò - Blue And Blues (00:10:29)
+004. Mongo Santamaria - Song For You (00:07:30)(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:41:12
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721309   (110125) от 06.05.2024
-
-Полночь с дьяволом / Late Night with the Devil (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1977 году популярный телеведущий Джек Делрой ведет ток-шоу  "Совы", которое уже давно стало надежным спутником людей по всей стране, страдающих бессонницей. Однако после внезапной смерти жены от рака, Джек закрывается в себе и перестает вести передачу.
-Спустя год после трагической смерти супруги рейтинги телепередачи Джека начинают стремительно падать. (   Читать дальше...   )Производство: Австралия, ОАЭ, США / IFC Films, Shudder, Image NationЖанр: ужасыРежиссер: Камерон Кернс, Колин КернсАктеры: Давид Дастмалчян, Лора Гордон, Йен Блисс, Файссал Баззи, Ингрид Торелли, Рис Отери, Джош Квон Тарт, Джорджина Хэйг, Стив Музакис, Паула АрунделлПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:53Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721329   (110124) от 06.05.2024
-
-Домик у моря / Siworae (2000) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка по имени Ким выселяется из домика на берегу моря. В почтовый ящик она бросает письмо с просьбой пересылать ей корреспонденцию, которая будет приходит на её имя. В домик вселяется парень и, найдя письмо, долго недоумевает, откуда могло взяться такое нелепое письмо — ведь домик только что построен. Он пишет ответ. Постепенно завязывается переписка. Ребята живут (   Читать дальше...   )Производство: Южная Корея / Blue Cinema, Dream Venture Capital, Sidus Pictures, UniKorea PicturesЖанр: мелодрама, фэнтезиРежиссер: Хён Сын ЛиАктеры: Чжон Чжэ Ли, Джианна Чон, Му Сэн Ким, Сын Ён Чо, Юн Чжэ Мин, Юн Ён Чхве, Со Ён Хонг, Нам Джон-хиПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CB8EF83C758A9265E116D882850BDE42B520CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721183   (110123) от 06.05.2024
-
-Оптом дешевле 2 / Belles on Their Toes (1952) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда «Оптом дешевле» возвращается в этом продолжении за исключением Клифтона Вэбба. Дети подросли, но овдовевшая Лиллиан изо всех сил пытается удержать семью вместе.Производство: США / 20th Century Fox Film CorporationЖанр: комедия, семейныйРежиссер: Генри ЛевинАктеры: Джинн Крейн, Мирна Лой, Дебра Пейджит, Джеффри Хантер, Эдвард Арнольд, Хоаги Кармайкл, Барбара Бейтс, Роберт Артур, Верна Фелтон, Роберт АдлерПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8254BB56001584E77B144FE220ABFA8EC3A8666D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721285   (110122) от 06.05.2024
-
-VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Mareen - Lady Ecstasy (5:36)
-02. Spooky Voice - Light My Light (8:02)
-03. Dj's Project - Birthday Girl (DJ Dance Mix) (6:10)
-04. U.K. - Roadrunner (Voices For The Farm - Dub Mix) (4:47)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD57A3FB90BDDE563E2DA9206CE800D22BC51D5
+magnet:?xt=urn:btih:D20C97D9DC7DAEA7D33580844F62516FAAE70F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

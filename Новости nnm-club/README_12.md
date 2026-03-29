@@ -1,3 +1,107 @@
+###  Публикация: 1461302   (1021468) от 11.04.2021
+
+Гуляй, Вася! Свидание на Бали (2021) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паше опять выпала великолепная возможность изменить жене с красивой Васей. Максу выпала возможность уничтожить Митю и вернуть Настю. Все герои сойдутся на острове Бали, где их ждут погони, бои без правил и невероятные приключения.Производство: Россия, PLAN 9Жанр: КомедияРежиссер: Роман КаримовАктеры: Любовь Аксенова, Борис Дергачев, Роман Курцын, Сергей Аброскин, Вера Кинчева, Святослав Королев, Владимир Карпук, Ефим Петрунин, Софья Райзман, Эндрю СубротоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFFD11D36BEBBAA0885B11EDEB0C70A50A6820C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461667   (1021467) от 11.04.2021
+
+JetBrains PyCharm Professional 2021.1 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021467.jpg" />
+</div>
+
+
+###  Подробнее
+
+PyCharm – это самая интеллектуальная Python IDE с полным набором средств для эффективной разработки на языке Python. Выпускается в двух вариантах – бесплатная версия PyCharm Community Edition и поддерживающая больший набор возможностей PyCharm Professional Edition. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, полученной (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE642DBC7FC2A62ED34BA89BAE9E0838BAD03A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461814   (1021386) от 12.04.2021
+
+В США задержали террориста, который хотел «уничтожить 70% всего интернета»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021386.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлый четверг ФБР арестовало человека из Техаса, который планировал теракт в одном из ЦОД Amazon.28-летний Сет Аарон Пендли (Seth Aaron Pendley) намеревался заложить взрывчатку в центре обработки данных Amazon в Вирджинии. Пендли объяснял своё желание тем, что, по его мнению, центры Amazon обслуживают ФБР, ЦРУ и другие федеральные агентства.Что интересно, как (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461599   (1021349) от 12.04.2021
+
+Лига Справедливости Зака Снайдера: Последний Мир / Zack Snyder's Justice League: The Last World (2021) [H.264/1080p] WEB-DLRip [hand made сокращённая версия 16:9 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновившись самопожертвованием Супермена, Брюс Уэйн вновь обретает веру в человечество. Он заручается поддержкой новой союзницы Дианы Принс, чтобы сразиться с ещё более могущественным противником. Бэтмен и Чудо-женщина набирают команду сверхлюдей для борьбы с пробудившейся угрозой.Производство: США / Atlas Entertainment, DC Entertainment, DC FilmsЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Зак СнайдерАктеры: Бен Аффлек, Рэй Фишер, Галь Гадот, Генри Кавилл, Дайан Лэйн, Эзра Миллер, Джейсон Момоа, Конни Нильсен, Джереми Айронс, Дж.К. Симмонс, Робин РайтПеревод: Дублированный (Мосфильм-мастер)Субтитры: отсутствуютПродолжительность: 02:00:10Реклама: Присутствует логотип AVG SHOW
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1E0A5208493657C57D18D30AA2E69B80664104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461985   (1021233) от 13.04.2021
 
 SkillBox, Сергей Корниенко и др.| Веб-разработчик с нуля до PRO (2020) PCRec
@@ -6,7 +110,7 @@ SkillBox, Сергей Корниенко и др.| Веб-разработчи�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021233.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Google запустила новую функцию Android, которая по
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021100.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021078.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ ABBYY FineReader PDF 15.0.114.4683 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021053.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ CronosPlus 3.04.72
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020880.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020531.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020386.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020355.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020343.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020060.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Wink Universe v1.30.1 [Ru] - ТВ, кино, сериалы, UFC для Android 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020030.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.04.15 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019850.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019846.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019696.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ IT DarkMaycal Sysadmins | Построение сетей CISCO с нуля. Ч�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019679.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019557.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack R.G. Механик�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019519.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019517.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ F-Secure Freedome VPN 2.41.6817 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019178.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019044.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019035.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (1.0.3/dlc) Repack =nemos= [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018659.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ Wolfenstein: Youngblood (2019) [Ru/Multi] (1.0.3/dlc) Repack =nemos= [Deluxe Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCABE9BCBF4BA48D9C607702407EF17D3AC19D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445696   (1018135) от 01.05.2021
-
-Последний герой. Чемпионы против новичков (2021) SATRip (сезон 3, выпуски 1-13 из 13 + спецвыпуск)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарное реалити "Последний герой" возвращается. Впервые на ТВ-3 16 новых участников отправятся в Африку, на Занзибар. В новом сезоне реалити "Последний герой" изменится все: новый континент, новые испытания и... новые команды. Чемпионы всех сезонов будут противостоять новичкам со всей России. Кому же покорится Африка?Телекомпания: ТВ-3Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 1х ~01:36:00  1 x ~ 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621BE3AFEF94F0AA7B6CDD34E7B6A0B4ADEE811C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466768   (1018130) от 01.05.2021
-
-Corona Renderer 6 (Hotfix 2) for 3ds Max 2014-2022 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6117E7FD0DFB0906D9F6DA1F39029A26339702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466629   (1017990) от 02.05.2021
-
-Минздрав проверит водителей на алкоголизм и наркоманию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство здравоохранения РФ разработало новый приказ, регулирующий процедуру получения медицинских справок в рамках водительских комиссий. Если врач заметит некие признаки хронического алкоголизма или наркозависимости, следует из документа, он отправит водителя на дополнительные исследования. В приказе не уточняется, что это за признаки. Для водителей, возвращающих (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466967   (1017975) от 02.05.2021
-
-Обезьяна против монстра / Ape vs. Monster (2021) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обезьяна из космоса падает на Землю, случайно задевая мимо проползающую ящерицу, на которую попадают внеземные вещества. В результате столкновения, оба животных мутируют и вырастают до гигантских размеров. Теперь особи видят друг в друге врагов, и чтобы доказать, кто здесь главный, они готовы сразиться не на жизнь, а на смерть.Производство: США / The AsylumЖанр: Боевик, приключения, фантастикаРежиссер: Даниэль ЛускоАктеры: Эрик Робертс, Шейн Хартиган, Кэти Серейка, Р.Дж. Вагнер, Арианна Скотт, Quinn Baker ...Перевод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:26:05Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A149097C8BAACB8F487A9CFB6AFC2373F1F0CEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

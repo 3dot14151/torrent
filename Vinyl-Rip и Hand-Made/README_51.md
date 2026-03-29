@@ -1,3 +1,235 @@
+###  Публикация: 1632482   (198677) от 10.05.2023
+
+Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunters Of The Night
+02. Some Hearts Are Diamonds
+03. Here Comes The Night
+04. Broken Heroes(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC2BE8BC77F0BD504B809849D51FC0C00234024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221378   (198612) от 10.05.2023
+
+Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198612.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В Спокойствии Ночи (In The Still Of The Night)
+A2 Я Мог Танцевать Всю Ночь (I Could Have Danced All Night)
+A3 Это - Великолепно (C'est Magnifique)
+A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633782   (198325) от 18.05.2023
+
+Стерео-Тест (Вега, г. Бердск) (1976) Мелодия СССР [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Samplers, Technical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198325.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 В. Людвиковский - Пояснительный Текст ("Манекены")
+A2 Unknown Artist - Проверка Правильности Сторон
+A3 Unknown Artist - Проверка Баланса Громкоговорителей ("Жизнь Артиста")
+A4 Unknown Artist - Проверка Фазировки Громкоговорителей(   Читать дальше...   )Жанр: Field Recording, TechnicalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843120   (198016) от 23.05.2023
+
+James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_198016.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Man And A Woman
+A2 Wheels
+A3 My Bonnie
+A4 Montego Bay(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636049   (197851) от 29.05.2023
+
+Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Looking For The Summer
+A2 Josephine
+A3 Auberge(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643972   (196226) от 04.07.2023
+
+Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop,  ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196226.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:38:54
+
+A1 Atomic
+(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649632   (194449) от 12.08.2023
+
+Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 72 Seasons
+02. Shadows Follow
+03. Screaming Suicide
+04. Sleepwalk My Life Away(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549737   (193512) от 01.09.2023
+
+Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_193512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dee Snider — американский рок-музыкант. Наибольшую известность получил как вокалист и фронтмен глэм-метал группы «Twisted Sister». Также известен как радиоведущий, актёр, сценарист, композитор, писатель.2000 - Never Let The Bastards Wear You Down
+2012 - Dee Does Broadway
+2016 - We Are The Ones
+2018 - For The Love Of MetalЖанр: Heavy Metal/Hard RockПродолжительность: 09:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828332   (193427) от 24.10.2025
 
 Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
@@ -6,7 +238,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193427.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193411.jpg" />
+  <img src="Z:/picture/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193169.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193142.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193139.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193138.jpg" />
+  <img src="Z:/picture/004/save_picture_193138.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193101.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193069.jpg" />
+  <img src="Z:/picture/004/save_picture_193069.jpg" />
 </div>
 
 
@@ -295,7 +527,7 @@ Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192877.jpg" />
+  <img src="Z:/picture/004/save_picture_192877.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192771.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192745.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192610.jpg" />
+  <img src="Z:/picture/004/save_picture_192610.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192447.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лице
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192270.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaugh
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192096.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191974.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657941   (191913) от 06.09.2023
-
-Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
-1995 - LP2
-1998 - How It Feels To Be Something On
-2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658450   (191320) от 08.09.2023
-
-Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191320.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Suzy Was Her Name
-A2 The More I Gave You
-A3 You Are Love K
-A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658445   (191300) от 08.09.2023
-
-The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191300.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Roses from the South (Gilbert and Sullivan)
-A2 Blue Danube Band (Johann Straus)
-A3 Ave Maria Band (Gounod)
-A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658504   (191294) от 08.09.2023
-
-Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191294.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
-A2 Siboney/Maria-La-O
-A3 Ay Mama Ines (Mama Ines)/Carioca
-A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012354   (191028) от 06.11.2022
-
-Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The Nights
-02. Got To Get You Into My Life
-03. Rain
-04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658727   (190968) от 09.09.2023
-
-Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Remember
-A2 Drivin' Drivin'
-A3 U Can't Stand It
-A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059507   (190749) от 07.11.2022
-
-George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190749.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Soul Limbo
-A2 Are You Happy?
-A3 Tell It Like It Is
-A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658993   (190636) от 10.09.2023
-
-OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190636.jpg" />
-</div>
-
-
-###  Подробнее
-
-OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
-2006 - Free
-2009 - Blood
-2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

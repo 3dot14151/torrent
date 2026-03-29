@@ -1,3 +1,119 @@
+###  Публикация: 1639374   (232716) от 13.06.2023
+
+Emmet Cohen - Uptown In Orbit (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finger Buster [4:11]
+02. Uptown in Orbit [8:13]
+03. My Love Will Come Again [5:37]
+04. Spillin' the Tea [7:06](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA6EE8050BF3EDB72DCDE442DA5CA6E3D18C1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607833   (232714) от 28.01.2023
+
+Fats Waller - 1937, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keepin' Out of Mischief Now [3:14]
+02. Stardust [3:16]
+03. Basin Street Blues [2:34]
+04. Tea for Two [3:25](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D391390DBFA246705E8EF992B60973BDBA476A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607830   (232706) от 28.01.2023
+
+Fats Waller - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Been Reading My Mail [2:25]
+02. To a Sweet Pretty Thing [2:27]
+03. Old Plantation [2:42]
+04. Spring Cleaning [2:29](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4B0D30E192E49125818975E79597B5D6290B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639367   (232694) от 13.06.2023
+
+Kay Starr - Losers, Weepers (1960) 2012, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Always Hurt The One You Love [2:55]
+02. I Should Care [2:24]
+03. I'm A Fool To Care [2:44]
+04. Don't Take Your Love From Me [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A00728CB56B458B022FB083D8EA2B977486D38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643539   (232569) от 02.07.2023
 
 Lew Soloff - Yesterdays (1986) King [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +122,7 @@ Lew Soloff - Yesterdays (1986) King [FLAC|Lossless|image + .cue] <Hard Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232569.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bud Shank - The Pacific Jazz Studio Sessions (1956 - 1961) 5CD, 1998, Mosaic Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232561.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Stan Getz - Four Classic Albums: Fourth Set (1957, 1962) 2CD, 2020, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232504.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Odean Pope - Plant Life (2008) Porter Records [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232498.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Chico Hamilton - The Dealer (1966) 1990, Impulse! [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232481.jpg" />
+  <img src="Z:/picture/005/save_picture_232481.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Cal Tjader - Eight Classic Albums (1954 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232474.jpg" />
+  <img src="Z:/picture/005/save_picture_232474.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ryan Kisor - Power Source (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232436.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Stephane Grappelli - Live At The Blue Note (1996) Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232421.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Thomas Hardin Trio - Jazz de kiku Chopin (2006) Victor Entertainment [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232383.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232369.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Horace Silver Quintet - The Stylings Of Silver (1957) 1996, Toshiba-EMI [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232362.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Fats Waller - 1938 - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232345.jpg" />
+  <img src="Z:/picture/005/save_picture_232345.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Joe Wilder - Softly With Feeling (1956) 1989, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232290.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Yusef Lateef - The Centaur And The Phoenix (1960, 1961) 1992, Original Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232240.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Boris Vian - Les Annees Jazz (1930-e - 1940-e) 2002, Puzzle Productions [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232216.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Chris Geith - Chasing Rainbows (2014) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232141.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Cedar Walton / Hank Mobley Quintet - Breakthrough! (1972) 1999, 32 Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232026.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Phil Woods Quintet - Live At The Deer Head Inn (2015) Deer Head Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231930.jpg" />
+  <img src="Z:/picture/005/save_picture_231930.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Art Blakey And The Jazz Messengers - Drum Suite (1957) 2005, Columbia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231837.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Barney Kessel - To Swing Or Not To Swing, Vol.3 (1955) 1987, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231729.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ The Billy Taylor Trio - with Candido (1954) 1991, Original Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231712.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Martial Solal & Joachim Kuhn - Duo In Paris (1975) 1991, Dreyfus Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231690.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Martial Solal & Joachim Kuhn - Duo In Paris (1975) 1991, Dreyfus Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC1C5285FBCD8F201B230E00546BA8AF3D8FBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641979   (231681) от 25.06.2023
-
-Hank Crawford - Night Beat (1989) Milestone [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For The Love Of You [8:07]
-02. Mobile Bay [5:02]
-03. Midnight Fantasy [6:55]
-04. K. C. Blues [5:31](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873710FDF178F79D7A52405DD56D0ABFE84B38D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647317   (231679) от 18.07.2023
-
-Ben Webster - The Classic Collaborations (1958 - 1963) 4CD, 2021, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Blues [10:15]
-02. Lula [7:46]
-03. When Lights Are Low [4:47]
-04. You Can't Tell The Difference [12:07](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 05:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE1E757EF49429D9B5CE28A3AE979FF2F3E100D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641977   (231665) от 25.06.2023
-
-Eddie Gomez - Per Sempre (2009) 2012, BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arianna [6:21]
-02. Bologna d'Inverno [9:32]
-03. Why Cry? [10:55]
-04. Forever [6:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50574E3463677E1467811A1E491C50F063B34440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647232   (231633) от 18.07.2023
-
-Rob McConnell & The Boss Brass - Big Band Christmas (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Yourself A Merry Little Christmas / I'll Be Home For Christmas [7:19]
-02. Silver Bells / In The Bleak Mid-Winter [3:58]
-03. White Christmas / Let It Snow, Let It Snow, Let It Snow / Winter Wonderland [7:00]
-04. Away In A Manger [2:10](   Читать дальше...   )Жанр: Bop, Swing, Big BandПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFCED622C68870534C4BEAC9AF2E1FF25DE06F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

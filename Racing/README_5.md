@@ -6,7 +6,7 @@ Bang Bang Racing (RePack/1.0) [Multi5\-] 2012 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674123.jpg" />
+  <img src="Z:/picture/008/save_picture_674123.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673729.jpg" />
+  <img src="Z:/picture/008/save_picture_673729.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Need for Speed: The Run (2011) [Ru] (1.1.0.0) Portable PortGamPC
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673526.jpg" />
+  <img src="Z:/picture/008/save_picture_673526.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Project CARS (2015) [Ru/Multi] (11.0.0.0.1235/dlc) Repack by xatab [Year Edition
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671561.jpg" />
+  <img src="Z:/picture/008/save_picture_671561.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Trailblazers (2018) [Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667965.jpg" />
+  <img src="Z:/picture/008/save_picture_667965.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Danger Zone (2017) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662942.jpg" />
+  <img src="Z:/picture/008/save_picture_662942.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MXGP3 - The Official Motocross Videogame (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662935.jpg" />
+  <img src="Z:/picture/008/save_picture_662935.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mad Riders [Ru] (RePack/1.0.1.0) 2012 l Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661110.jpg" />
+  <img src="Z:/picture/008/save_picture_661110.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ridge Racer Unbounded + 4 DLC [Multi6/+] (RePack/1.13) 2012 l Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660926.jpg" />
+  <img src="Z:/picture/008/save_picture_660926.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Hover : Revolt Of Gamers (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660873.jpg" />
+  <img src="Z:/picture/008/save_picture_660873.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ F1 2017 (2017) [Ru/En] (1.13/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657439.jpg" />
+  <img src="Z:/picture/008/save_picture_657439.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Need For Speed Rivals (2013) [Ru/En] (1.4.0.0) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655354.jpg" />
+  <img src="Z:/picture/008/save_picture_655354.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655352.jpg" />
+  <img src="Z:/picture/008/save_picture_655352.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Xenon Racer (2019) [Ru/Multi] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650122.jpg" />
+  <img src="Z:/picture/008/save_picture_650122.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Dakar 18 (2018) [En] (1.13/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648168.jpg" />
+  <img src="Z:/picture/008/save_picture_648168.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Xenon Racer (2019) [Ru/Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642531.jpg" />
+  <img src="Z:/picture/008/save_picture_642531.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ FlatOut 3: Chaos & Destruction [Ru/En/Multi7] (L/1.04) 2011 l R.G. Origins
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_640461.jpg" />
+  <img src="Z:/picture/005/save_picture_640461.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ MotoGP 17 (2017) [Multi] (1.0.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638597.jpg" />
+  <img src="Z:/picture/008/save_picture_638597.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ FlatOut 3: Chaos & Destruction [Ru] (Repack/1.04u10)  2011 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638509.jpg" />
+  <img src="Z:/picture/008/save_picture_638509.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ WRC 6 FIA World Rally Championship (2016) [Multi] (1.0) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636809.jpg" />
+  <img src="Z:/picture/008/save_picture_636809.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Streets of Moscow / Адреналин 2: Час пик  (L) [Ru] 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634616.jpg" />
+  <img src="Z:/picture/008/save_picture_634616.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Gold Pack]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633810.jpg" />
+  <img src="Z:/picture/008/save_picture_633810.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Urban Trial Playground (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631393.jpg" />
+  <img src="Z:/picture/008/save_picture_631393.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Moto Racer 4 (2016) [Ru/Multi] (1.0/dlc) License STEAMPUNKS
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631191.jpg" />
+  <img src="Z:/picture/008/save_picture_631191.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Moto Racer 4 (2016) [Ru/Multi] (1.5/dlc) Repack Other s [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630914.jpg" />
+  <img src="Z:/picture/008/save_picture_630914.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Dangerous Driving (2019) [En] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625438.jpg" />
+  <img src="Z:/picture/008/save_picture_625438.jpg" />
 </div>
 
 

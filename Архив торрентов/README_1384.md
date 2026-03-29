@@ -6,7 +6,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740644.jpg" />
+  <img src="Z:/picture/008/save_picture_740644.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DriverEasy Pro 5.6.1.14162 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740643.jpg" />
+  <img src="Z:/picture/008/save_picture_740643.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FxSound Enhancer 13.023 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740642.jpg" />
+  <img src="Z:/picture/008/save_picture_740642.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics BoostSpeed 10.0.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740640.jpg" />
+  <img src="Z:/picture/008/save_picture_740640.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FxSound Enhancer 13.023 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740639.jpg" />
+  <img src="Z:/picture/008/save_picture_740639.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sketch 49.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740585.jpg" />
+  <img src="Z:/picture/008/save_picture_740585.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740566.jpg" />
+  <img src="Z:/picture/008/save_picture_740566.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Chief Architect Premier X9 Build 19.2.0.39 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740552.jpg" />
+  <img src="Z:/picture/008/save_picture_740552.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740544.jpg" />
+  <img src="Z:/picture/008/save_picture_740544.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ESET NOD32 Antivirus 11.1.42.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740540.jpg" />
+  <img src="Z:/picture/008/save_picture_740540.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740538.jpg" />
+  <img src="Z:/picture/008/save_picture_740538.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740524.jpg" />
+  <img src="Z:/picture/008/save_picture_740524.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740490.jpg" />
+  <img src="Z:/picture/008/save_picture_740490.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.90.4200 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740488.jpg" />
+  <img src="Z:/picture/008/save_picture_740488.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MailDroid Pro 4.60 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740479.jpg" />
+  <img src="Z:/picture/008/save_picture_740479.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DoYourData AppUninser Pro 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740470.jpg" />
+  <img src="Z:/picture/008/save_picture_740470.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Dash 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740468.jpg" />
+  <img src="Z:/picture/008/save_picture_740468.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ A Better Finder Attributes 7 v7.00 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740466.jpg" />
+  <img src="Z:/picture/008/save_picture_740466.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Money Pro - Personal Finance 2.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740463.jpg" />
+  <img src="Z:/picture/008/save_picture_740463.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ MacX MediaTrans 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740461.jpg" />
+  <img src="Z:/picture/008/save_picture_740461.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Downie 4 v4.1 (Build 4138) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740458.jpg" />
+  <img src="Z:/picture/008/save_picture_740458.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740457.jpg" />
+  <img src="Z:/picture/008/save_picture_740457.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740456.jpg" />
+  <img src="Z:/picture/008/save_picture_740456.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Magnet Pro 2.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740453.jpg" />
+  <img src="Z:/picture/008/save_picture_740453.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Tower 5 v5.1 (build 245) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740449.jpg" />
+  <img src="Z:/picture/008/save_picture_740449.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740447.jpg" />
+  <img src="Z:/picture/008/save_picture_740447.jpg" />
 </div>
 
 

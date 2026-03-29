@@ -6,7 +6,7 @@ WinRAR 5.60 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775693.jpg" />
+  <img src="Z:/picture/008/save_picture_775693.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775692.jpg" />
+  <img src="Z:/picture/008/save_picture_775692.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Panda Free Antivirus 2016 16.1.2 DC 08.05.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775679.jpg" />
+  <img src="Z:/picture/008/save_picture_775679.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pepakura Designer 4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775676.jpg" />
+  <img src="Z:/picture/008/save_picture_775676.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gilisoft Audio Recorder Pro 7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775673.jpg" />
+  <img src="Z:/picture/008/save_picture_775673.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775671.jpg" />
+  <img src="Z:/picture/008/save_picture_775671.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TurbulenceFD v1.0 build 1435 Repack by soyv4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775669.jpg" />
+  <img src="Z:/picture/008/save_picture_775669.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FxSound Enhancer 13.020 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775668.jpg" />
+  <img src="Z:/picture/008/save_picture_775668.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MOBILedit Forensic Express 5.1.1.12189 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775665.jpg" />
+  <img src="Z:/picture/008/save_picture_775665.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ IcoFX 3.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775644.jpg" />
+  <img src="Z:/picture/008/save_picture_775644.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Slimjet 9.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775610.jpg" />
+  <img src="Z:/picture/008/save_picture_775610.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Gilisoft Video Converter 9.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775605.jpg" />
+  <img src="Z:/picture/008/save_picture_775605.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AdwCleaner 5.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775602.jpg" />
+  <img src="Z:/picture/008/save_picture_775602.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Gilisoft Audio Editor 1.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775597.jpg" />
+  <img src="Z:/picture/008/save_picture_775597.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Gilisoft Video Editor 7.4.0 DC 03.05.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775595.jpg" />
+  <img src="Z:/picture/008/save_picture_775595.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rufus 2.9 (Build 900) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775593.jpg" />
+  <img src="Z:/picture/008/save_picture_775593.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SamDrivers 18.19 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775563.jpg" />
+  <img src="Z:/picture/008/save_picture_775563.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wondershare Filmora 9.0.5.1 (x64) Repack by elchupacabra + Effect Pack [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775561.jpg" />
+  <img src="Z:/picture/008/save_picture_775561.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Gilisoft File Lock Pro 10.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775512.jpg" />
+  <img src="Z:/picture/008/save_picture_775512.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BELOFF 2019.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775492.jpg" />
+  <img src="Z:/picture/008/save_picture_775492.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ CyberLink PowerDVD Ultra 16.0.1510.60 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775446.jpg" />
+  <img src="Z:/picture/008/save_picture_775446.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ JPEGView 1.0.35.0 (32bit) / 1.0.35.1 (64bit) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775416.jpg" />
+  <img src="Z:/picture/008/save_picture_775416.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ ABBYY FineReader 12.0.101.483 Corporate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775410.jpg" />
+  <img src="Z:/picture/008/save_picture_775410.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Kaspersky Reset Trial 5.1.0.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775399.jpg" />
+  <img src="Z:/picture/008/save_picture_775399.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Cyberfox 52.7.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775217.jpg" />
+  <img src="Z:/picture/008/save_picture_775217.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ AVS All-In-One Install Package 1.2.1.44 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775195.jpg" />
+  <img src="Z:/picture/005/save_picture_775195.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1364588   (936193) от 03.03.2020
+
+NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти змеи - настоящие супер-сыщики, тихие и смертельно опасные хищники, которые буквально выжимают жизнь из своих жертв. Они самые большие, смелые и, возможно, самые величественные в мире змей. В этой серии мы исследуем образ жизни и эволюцию одних из самых крупных змей в мире - удавов!Производство: США, Wildbear Entertainment, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Мартин БекерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AC745EB80605E2A862BD8C160FB7A88EF5690B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285052   (935956) от 20.01.2011
+
+NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (2010) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_935956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фашисткой Германии были созданы одни из самых разрушительных видов оружия на земле. Огромные пушки, высокотехнологичные ракеты и передовые реактивные истребители. Fritz X - прообраз современной "умной бомбы", была совершенно секретной бомбой Адольфа Гитлера. Завеса тайны скрывает один из последних секретов Второй мировой войны. Могла ли бомба нацистов изменить ее исход? В этом фильме немецкие и американские авиационные эксперты воскресят новаторское оружие Третьего рейха. Они проведут смелый эксперимент в глубине калифорнийской пустыни - сбросят две модели высокоточной бомбы нацистов...Жанр: ДокументальныйПеревод: Профессиональный (полное дублирование) + Профессиональное (одноголосое)Формат: AVIПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822006CC7EEC7BEDEDBE03E793BAB2E33FCECB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095126   (926037) от 20.01.2017
+
+Королевы гадюк / Viper Queens (2016) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926037.jpg" />
+</div>
+
+
+###  Подробнее
+
+От пустынь Юго-Запада США до джунглей и деревень Африки, гадюки печально известны своим скверным нравом. треугольными головами, и само длинными клыками среди своих сородичей на Земле. Но эти супер змеи не просто семейство хладнокровных убийц. Самки проявляют мягкость , когда речь заходит о семье. Телма , Велвет и Нала - гадюки трёх видов и их объединяет одно, материнский (   Читать дальше...   )Телекомпания: СШАЖанр: Документальный, фаунаРежиссер: Джесика КоннеллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3764553EE2FD1F505459CB589F0EC2E33DDD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095816   (920928) от 23.01.2017
 
 NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV [H.264/720p-LQ]
@@ -6,7 +84,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920928.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917052.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914054.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911629.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ NG. Расследование на месте катастрофы / Crash Scen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911350.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904602.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903224.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902981.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899663.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898746.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896013.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893394.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893278.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892787.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892287.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890343.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889223.jpg" />
+  <img src="Z:/picture/005/save_picture_889223.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ NG: Самые страшные мировые морские катастроф
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889082.jpg" />
+  <img src="Z:/picture/005/save_picture_889082.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884959.jpg" />
+  <img src="Z:/picture/005/save_picture_884959.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881795.jpg" />
+  <img src="Z:/picture/005/save_picture_881795.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880138.jpg" />
+  <img src="Z:/picture/005/save_picture_880138.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878255.jpg" />
+  <img src="Z:/picture/005/save_picture_878255.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878118.jpg" />
+  <img src="Z:/picture/005/save_picture_878118.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F668AF378FD82E9FDE31D3663000CDF9A0EE0888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299373   (877399) от 23.02.2011
-
-NG: Путешествие на край Вселенной / Journey to the Edge of the Universe (2008) BDRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это путешествие увлекает нас к истокам зарождения жизни, Столпам Мироздания, давая возможность заглянуть далеко за облака космической пыли, туда, где рождаются огромные звезды, даря Вселенной свой свет, а может быть и жизнь…Жанр: ДокументальныйРежиссер: Явар АббасПеревод: ДублированныйПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BBB4DC6B95B3F614B61865BA44B6759ECEFFEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103647   (873209) от 19.02.2017
-
-Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873209.jpg" />
-</div>
-
-
-###  Подробнее
-
-В области не столь далёкой владыки налетают с небес, чтобы убить, а простолюдины внизу должны копаться в земле, чтобы найти объедки. Здесь находится одно необыкновенное млекопитающее, Рыцарь Тьмы. Один из самых примечательных видов на Земле, закованный в абсолютно непримечательное тело. Это животное использует эхолокацию как летучая мышь и пользуется ядом как змея, (   Читать дальше...   )Телекомпания: США, студия Red Rocks Films, National Geographic CannelЖанр: ДокументальныйРежиссер: Дженни АпостолПеревод: Одноголосый закадровый, профессиональный,  Студия "Велес"Продолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44B19A631B5C6EEEFB9A26B44991803479F35B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374707   (872339) от 10.04.2020
-
-NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872339.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме мы расскажем о двух львах, которые переплыли через реку в Намибии и присоединились к двум львицам в заповеднике Селинда. У этих двух семей появились шесть львят, о жизни которых и пойдет речь в этой истории.Производство: Ботсвана, Южная Африка, Wildlife Films Botswana for National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Беверли Жубер, Дерек ЖуберПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF8287BFD36BC1BE76D9750CEAEE1AB9E5164FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

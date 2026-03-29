@@ -1,3 +1,148 @@
+###  Публикация: 721803   (370182) от 12.11.2013
+
+The Theander Expression - Strange Nostalgia (2013) [FLAC|Lossless]<Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_370182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conception of Life [3:56]
+02. Strange Nostalgia [4:17]
+03. Insanity Cell [4:57]
+04. Like A Chameleon [4:46](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65101632104DAE76673013009AD451F15F4F1A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176575   (369513) от 22.10.2017
+
+VA - Legends: Of Rock (2004) Time-Life Music [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот ещё одно начало серии релизов от Time-Life Music. Сам лейбл в свое время (в 1961 году) был образован как подразделение книжного гиганта Time-Life Books B.V. специально, что бы выпускать диски с компиляциями лучших тематических произведений. В настоящее время насчитывает громадную коллекцию выпущенных аудио записей, книг и видео. Данным релизом начинаем ещё одну (   Читать дальше...   )01. Billy Joel - Only The Good Die Young  (3:56)
+02. Kansas - Carry On Wayward Son  (5:22)
+03. The Hollies - Long Cool Woman In A Black Dress  (3:18)
+04. Tito Puente - Oye Como Va  (4:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D729530E2023D2649BE4846E398CDA23139BD08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576202   (368695) от 13.09.2022
+
+Bastard Saint - Homewrecker (2010) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Stoner Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Be Seated
+02. Hooker
+03. Thundersnake
+04. Mexicocity(   Читать дальше...   )Жанр: Southern Rock, Stoner Rock, Hard RockПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4545F0F8B9BB82D28182644801B5B9FA16DB948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576217   (368690) от 13.09.2022
+
+Big Rooster Jeff - The Good Notes (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For All Eyes To See (02:09)
+02. Growingboi (05:18)
+03. Hallelujah (16 Songs) (06:03)
+04. Zesty Jam (03:45)(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5277D43AB1214B5CA630AAA7D61F2E65B24425C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576162   (368617) от 13.09.2022
+
+Le Orme - ClassicOrme (2017) [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estratto Da "Ciaccona" J.S. Bach 2:10
+02. Una Dolcezza Nuova 4:20
+03. Gioco Di Bimba 3:22
+04. Estratto Strumentale 1 Da "La Porta Chiusa" 1:37(   Читать дальше...   )Жанр: Prog Rock, Symphonic Rock, ClassicalПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA158AA0935BE7936F12D201D30456078C5E73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576210   (368390) от 13.09.2022
 
 Chris Norman - Rediscovered Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Soft Rock>
@@ -6,7 +151,7 @@ Chris Norman - Rediscovered Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368390.jpg" />
+  <img src="Z:/picture/008/save_picture_368390.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Cirkus - The Fruits of the Unveil (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367831.jpg" />
+  <img src="Z:/picture/008/save_picture_367831.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Legacy Pilots - Con Brio (2018) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367829.jpg" />
+  <img src="Z:/picture/008/save_picture_367829.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Hawkestrel - Pioneers of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367820.jpg" />
+  <img src="Z:/picture/008/save_picture_367820.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Joe Walsh - So What (1974) remaster, 2015, Audio Fidelity [WavPack|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366775.jpg" />
+  <img src="Z:/picture/008/save_picture_366775.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Smokie - Strangers In Paradise (1982) Reissue, 2016, Sony [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366649.jpg" />
+  <img src="Z:/picture/008/save_picture_366649.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Neil Diamond - Love Songs (2002) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366620.jpg" />
+  <img src="Z:/picture/008/save_picture_366620.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Great Lake Swimmers - New Wild Everywhere (2012) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366257.jpg" />
+  <img src="Z:/picture/008/save_picture_366257.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Opeth - In Cauda Venenum (2019) 2CD [FLAC|Lossless|tracks+ .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366012.jpg" />
+  <img src="Z:/picture/008/save_picture_366012.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015, It Sounds/ [FLAC|tracks+.c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365800.jpg" />
+  <img src="Z:/picture/008/save_picture_365800.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Bryan Adams - Get Up (2015) Japanese Edition [FLAC|image+.cue]<Classic Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365664.jpg" />
+  <img src="Z:/picture/008/save_picture_365664.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ The Beatles - Abbey Road (2019) The 50th Anniversary Edition, 3-CD [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365373.jpg" />
+  <img src="Z:/picture/008/save_picture_365373.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ The Progressive Souls Collective - Sonic Birth (2020) [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365254.jpg" />
+  <img src="Z:/picture/008/save_picture_365254.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Tim Montana (feat. Billy F. Gibbons) - 2 albums (2016-2020) [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364848.jpg" />
+  <img src="Z:/picture/008/save_picture_364848.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Moving Mountains - Foreword (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, Post 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364369.jpg" />
+  <img src="Z:/picture/008/save_picture_364369.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Polychrome - Equilibrium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364366.jpg" />
+  <img src="Z:/picture/008/save_picture_364366.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Blues Traveler - Hurry Up & Hang Around (2018) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364267.jpg" />
+  <img src="Z:/picture/008/save_picture_364267.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Electric Light Orchestra - The Gold Collection (1996) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364164.jpg" />
+  <img src="Z:/picture/008/save_picture_364164.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Bad Company - An Introduction To Bad Company (2018) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364102.jpg" />
+  <img src="Z:/picture/008/save_picture_364102.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Mano Negra - Best Of (1998) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363719.jpg" />
+  <img src="Z:/picture/005/save_picture_363719.jpg" />
 </div>
 
 
@@ -592,7 +737,7 @@ Big Red Panda - Voyage (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363715.jpg" />
+  <img src="Z:/picture/008/save_picture_363715.jpg" />
 </div>
 
 
@@ -606,151 +751,6 @@ Big Red Panda - Voyage (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01762B60000DCC3E08C889222E45043F31804883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416968   (363342) от 18.10.2020
-
-The Oneira - Injection (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Free To Choose
-02. Know That Feeling
-03. Edipsos
-04. Behind The Sun (Instrumental)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3161DAD8F2CFC1D5BC4F70A18FF1DA61F7D7E4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576661   (363223) от 17.11.2012
-
-Mystery - The World Is A Game (2012) [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Morning Rise (1:18)
-02. Pride (11:28)
-03. Superstar (6:59)
-04. The Unwinding of Time (0:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722556   (362976) от 15.11.2013
-
-Bonnie Tyler - Greatest Hits (2001) [APE|Lossless]<Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Total Eclipse Of The Heart
-02. It's A Heartache
-03. Holding Out For A Hero
-04. Lost In France(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5231469C31538C76DCD481364E2E5737780AA854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071223   (362023) от 09.11.2016
-
-Krzysztof Lepiarczyk - Art Therapy (2016) [FLAC|Lossless|image + .cue] <Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Still Remember (5:01)
-2. Dr Schouermann (3:33)
-3. Arthroscopy (4:10)
-4. After All... (4:10)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71889F0A693D31F8899BD7478B78693A6EE10BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576879   (361887) от 16.09.2022
-
-Clutch - Sunrise on Slaughter Beach (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Red Alert (Boss Metal Zone) [00:02:45]
-02 - Slaughter Beach [00:03:41]
-03 - Mountain of Bone [00:04:23]
-04 - Nosferatu Madre [00:03:27](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418211644766FF38A1969332EAE040B6ECC2E49E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Goddo - In Goddo We Trust (1991) [MP3|320 Kbps] <Hard Rock, Prog Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887723.jpg" />
+  <img src="Z:/picture/005/save_picture_887723.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Budgie - The Best of Budgie (1997) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887626.jpg" />
+  <img src="Z:/picture/005/save_picture_887626.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Axia - Axia (1986) Reissue, 1986, MTM Music [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885993.jpg" />
+  <img src="Z:/picture/005/save_picture_885993.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ St James - Resurgence (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885886.jpg" />
+  <img src="Z:/picture/005/save_picture_885886.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Deep Purple - Hard Road: The Mark 1 Studio Recordings 1968-69 (5CD) (2014) [MP3|
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884221.jpg" />
+  <img src="Z:/picture/005/save_picture_884221.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Scorpions - Return to Forever (2015) Limited Deluxe Edition [MP3|320 кб/с]<Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884026.jpg" />
+  <img src="Z:/picture/005/save_picture_884026.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Place Vendome - Close to the Sun (2017) Japanese Edition [MP3|320 Kbps] <Melodic
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881741.jpg" />
+  <img src="Z:/picture/005/save_picture_881741.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Teaser - Teaser (1978) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873853.jpg" />
+  <img src="Z:/picture/008/save_picture_873853.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mr. Riot - Same Old Town (2016) [MP3|320 кб/с] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873849.jpg" />
+  <img src="Z:/picture/008/save_picture_873849.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bonfire - Pearls (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873686.jpg" />
+  <img src="Z:/picture/008/save_picture_873686.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Shakra - Back On Track (2011) [MP3|320 kbps]<Hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872933.jpg" />
+  <img src="Z:/picture/008/save_picture_872933.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Black Star Riders - The Killer Instinct (2015) 2CD, Limited Edition [MP3|320 к�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871949.jpg" />
+  <img src="Z:/picture/008/save_picture_871949.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ryan Reid - Shine (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870381.jpg" />
+  <img src="Z:/picture/008/save_picture_870381.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Molly Hatchet - Beatin' the Odds (2020) Live [MP3|320 Kbps] <Southern Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869085.jpg" />
+  <img src="Z:/picture/008/save_picture_869085.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Guns N' Roses - Best Ballads (1996) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868179.jpg" />
+  <img src="Z:/picture/008/save_picture_868179.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Birth Control - Here and Now (2016) [MP3|320 кб/с] <Progressive, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866501.jpg" />
+  <img src="Z:/picture/008/save_picture_866501.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Santana Band, Jeff Beck Band, Steve Lukather - Lotus Gem (1992) (Recorded Live I
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864780.jpg" />
+  <img src="Z:/picture/008/save_picture_864780.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Deep Purple -9 albums (1970-1976) [Japan Mini LP Remastered, SHM-CD] 2008 [MP3|3
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864549.jpg" />
+  <img src="Z:/picture/008/save_picture_864549.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Junkyard Drive - Sin & Tonic (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864542.jpg" />
+  <img src="Z:/picture/008/save_picture_864542.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Europe - War of Kings (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864482.jpg" />
+  <img src="Z:/picture/008/save_picture_864482.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Slash - Slash (2010) [MP3|320 kbps]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861158.jpg" />
+  <img src="Z:/picture/008/save_picture_861158.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Toad - Tomorrow Blue (1972) Reissue, 2000, Akarma [MP3|320 Kbps] <Hard Rock, Pro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857359.jpg" />
+  <img src="Z:/picture/008/save_picture_857359.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Toad - B.U.F.O. (Blues United Fighting Organization) (1970) Akarma, 2003 [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855611.jpg" />
+  <img src="Z:/picture/008/save_picture_855611.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Van Rockman - The Lost Tapes (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853777.jpg" />
+  <img src="Z:/picture/008/save_picture_853777.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Black Sabbath - Technical Ecstasy (1976) Box Set, Deluxe Edition, 4xCD, Reissue,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846044.jpg" />
+  <img src="Z:/picture/008/save_picture_846044.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Axxis - Retrolution (2017) [MP3|320 Kbps] <Hard Rock, Melodic Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844855.jpg" />
+  <img src="Z:/picture/008/save_picture_844855.jpg" />
 </div>
 
 

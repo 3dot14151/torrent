@@ -1,3 +1,61 @@
+###  Публикация: 1169850   (401516) от 29.09.2017
+
+Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Drinking With Dolly (3:16)
+02 - Winnebago (3:22)
+03 - Selfish (3:47)
+04 - Ugly (3:47)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168914   (401216) от 29.09.2017
+
+Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unleashed (feat. Merethe Soltvedt) [05:25]
+02. One Above All (feat. C.C. White & Felicia Farerre) [03:49]
+03. Impossible (feat. Merethe Soltvedt) [08:55]
+04. Rune (feat. Uyanga Bold) [03:34](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 03:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170205   (400578) от 30.09.2017
 
 Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +64,7 @@ Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400578.jpg" />
+  <img src="Z:/picture/008/save_picture_400578.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400521.jpg" />
+  <img src="Z:/picture/008/save_picture_400521.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400505.jpg" />
+  <img src="Z:/picture/008/save_picture_400505.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400314.jpg" />
+  <img src="Z:/picture/008/save_picture_400314.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399533.jpg" />
+  <img src="Z:/picture/008/save_picture_399533.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399481.jpg" />
+  <img src="Z:/picture/008/save_picture_399481.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399290.jpg" />
+  <img src="Z:/picture/008/save_picture_399290.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399015.jpg" />
+  <img src="Z:/picture/008/save_picture_399015.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398628.jpg" />
+  <img src="Z:/picture/008/save_picture_398628.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397697.jpg" />
+  <img src="Z:/picture/008/save_picture_397697.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397682.jpg" />
+  <img src="Z:/picture/008/save_picture_397682.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, In
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397662.jpg" />
+  <img src="Z:/picture/008/save_picture_397662.jpg" />
 </div>
 
 
@@ -366,7 +424,7 @@ Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397607.jpg" />
+  <img src="Z:/picture/008/save_picture_397607.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ Delerium - Music Box Opera (2012) [MP3|320 кб/с]<New Age, Ambient, Chillout, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396850.jpg" />
+  <img src="Z:/picture/008/save_picture_396850.jpg" />
 </div>
 
 
@@ -430,7 +488,7 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396779.jpg" />
+  <img src="Z:/picture/008/save_picture_396779.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Do
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396755.jpg" />
+  <img src="Z:/picture/005/save_picture_396755.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396734.jpg" />
+  <img src="Z:/picture/008/save_picture_396734.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396680.jpg" />
+  <img src="Z:/picture/008/save_picture_396680.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396567.jpg" />
+  <img src="Z:/picture/008/save_picture_396567.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversa
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396560.jpg" />
+  <img src="Z:/picture/008/save_picture_396560.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395754.jpg" />
+  <img src="Z:/picture/008/save_picture_395754.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395703.jpg" />
+  <img src="Z:/picture/008/save_picture_395703.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395697.jpg" />
+  <img src="Z:/picture/008/save_picture_395697.jpg" />
 </div>
 
 
@@ -697,7 +755,7 @@ Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395646.jpg" />
+  <img src="Z:/picture/008/save_picture_395646.jpg" />
 </div>
 
 
@@ -711,64 +769,6 @@ Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EFBEA27DEC0997095D2F4B0EF425B35DBAFDCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171893   (394845) от 06.10.2017
-
-Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cupid (2:50)
-02 - Funny Side of Love (2:07)
-03 - Before I Go That Far (3:21)
-04 - Here's to You (2:59)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D80FDF50B194D7923921ABB46906D809608E263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172075   (394842) от 06.10.2017
-
-Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantis (04:01)
-02. Vikings (03:59)
-03. As the Rain (04:26)
-04. Spheres (04:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC79164D03FD232B4FA9DCE4A96449813417D54C
 ```
 
 https://mybot314.ru/tekegram_catalog/

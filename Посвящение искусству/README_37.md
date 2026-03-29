@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311656.jpg" />
+  <img src="Z:/picture/008/save_picture_311656.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310804.jpg" />
+  <img src="Z:/picture/008/save_picture_310804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309051.jpg" />
+  <img src="Z:/picture/008/save_picture_309051.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lil Peep: всё для всех / Everybody's Everything (2019) WEBRip [H.264/1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307947.jpg" />
+  <img src="Z:/picture/008/save_picture_307947.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307880.jpg" />
+  <img src="Z:/picture/008/save_picture_307880.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307846.jpg" />
+  <img src="Z:/picture/008/save_picture_307846.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306037.jpg" />
+  <img src="Z:/picture/008/save_picture_306037.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305306.jpg" />
+  <img src="Z:/picture/008/save_picture_305306.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304170.jpg" />
+  <img src="Z:/picture/008/save_picture_304170.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301021.jpg" />
+  <img src="Z:/picture/008/save_picture_301021.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298652.jpg" />
+  <img src="Z:/picture/008/save_picture_298652.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p] (Documentary+Bonus)
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298452.jpg" />
+  <img src="Z:/picture/008/save_picture_298452.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298062.jpg" />
+  <img src="Z:/picture/008/save_picture_298062.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297797.jpg" />
+  <img src="Z:/picture/008/save_picture_297797.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297097.jpg" />
+  <img src="Z:/picture/008/save_picture_297097.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296767.jpg" />
+  <img src="Z:/picture/008/save_picture_296767.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Queen: История альбома "News of the World" / Queen: The story of "
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296705.jpg" />
+  <img src="Z:/picture/008/save_picture_296705.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295559.jpg" />
+  <img src="Z:/picture/008/save_picture_295559.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294769.jpg" />
+  <img src="Z:/picture/008/save_picture_294769.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_294482.jpg" />
+  <img src="Z:/picture/005/save_picture_294482.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293763.jpg" />
+  <img src="Z:/picture/008/save_picture_293763.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293311.jpg" />
+  <img src="Z:/picture/008/save_picture_293311.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293042.jpg" />
+  <img src="Z:/picture/008/save_picture_293042.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286202.jpg" />
+  <img src="Z:/picture/008/save_picture_286202.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286040.jpg" />
+  <img src="Z:/picture/008/save_picture_286040.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Queen: Дни наших жизней / Queen: Days Of Our Lives (2011) BDRemux 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284329.jpg" />
+  <img src="Z:/picture/008/save_picture_284329.jpg" />
 </div>
 
 

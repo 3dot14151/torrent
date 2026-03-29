@@ -1,3 +1,61 @@
+###  Публикация: 1072550   (349981) от 14.11.2016
+
+VA - Deep House Collection Vol.96 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349981.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond - The Thing Called Love feat. Richard Bedford (Bry Ortega & Dan Lypher Bootleg)
+002. Acid Sisters - Two Screens (Original Mix)
+003. Alan Cross - Farila (Andrea Fissore Remix)
+004. Aleks Svaensson - Bitch Control (Original mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36245A38719C0F5E3C823824D36B13D0D4774DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072627   (349980) от 14.11.2016
+
+VA - Beatport Top 100 Electronica / Downtempo October (2016) [MP3|320 Kbps] <Electronica / Downtempo, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349980.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Kollektiv Turmstrasse - Jupiter Sunrise (Original Mix) 4:09
+002.Moby - Porcelain (Arty Remix) 3:31
+003.dubspeeka - K304v2 Walk With Me (Original Mix) 4:27
+004.KMLN - Sabilu (Feat Mian - Schon Long Remix) 5:59(   Читать дальше...   )Жанр: Electronica / Downtempo, HouseПродолжительность: 10:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818277777D2361361E68262779789279144F902D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072962   (349976) от 14.11.2016
 
 VA - Best All Time Of Hits (2016) [MP3|320 Kbps] <House, Tech House, Electro, Funky, Club>
@@ -6,7 +64,7 @@ VA - Best All Time Of Hits (2016) [MP3|320 Kbps] <House, Tech House, Electro, Fu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349976.jpg" />
+  <img src="Z:/picture/008/save_picture_349976.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Flowers Chillout Tunes (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349907.jpg" />
+  <img src="Z:/picture/008/save_picture_349907.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart  #462 (2016) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349839.jpg" />
+  <img src="Z:/picture/008/save_picture_349839.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Vocal Deep House Vol.25 (2016) [MP3|320 Kbps] <Deep House, Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349827.jpg" />
+  <img src="Z:/picture/008/save_picture_349827.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Sunday Privilege Vol 1 25 Luxury Lounge Anthems [Feel The Vibe] (2015) [MP3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349657.jpg" />
+  <img src="Z:/picture/008/save_picture_349657.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Sunrise Avenue Vol 3 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349569.jpg" />
+  <img src="Z:/picture/008/save_picture_349569.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Vocal Tech House Vol.1 (Compiled by Zebyte) (2015) [MP3|320 кб/с]<Tech H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349560.jpg" />
+  <img src="Z:/picture/008/save_picture_349560.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Rich 100 Trance Stranger (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349357.jpg" />
+  <img src="Z:/picture/008/save_picture_349357.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Uplifting Elegance Trance (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349345.jpg" />
+  <img src="Z:/picture/008/save_picture_349345.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Synthetic  vol.7 (2017) [MP3|243-320 Kbps] <Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349339.jpg" />
+  <img src="Z:/picture/008/save_picture_349339.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Русские Диджеи & Дискотеки от Ovvod7 - 02 (2017) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348909.jpg" />
+  <img src="Z:/picture/008/save_picture_348909.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Русские Диджеи & Дискотеки от Ovvod7 - 01 (2017) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348907.jpg" />
+  <img src="Z:/picture/008/save_picture_348907.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Dubstep 2012 vol.3 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348743.jpg" />
+  <img src="Z:/picture/008/save_picture_348743.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - DeepEmotions - Car Dubstep Vol. 6 (2011) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348195.jpg" />
+  <img src="Z:/picture/008/save_picture_348195.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ VA - Desire To Live: Soulful Mix (2016) [MP3|192~320 Kbps] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347946.jpg" />
+  <img src="Z:/picture/008/save_picture_347946.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - HarDD NRG OverDoZZe 10 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Har
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347927.jpg" />
+  <img src="Z:/picture/008/save_picture_347927.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ VA - When Night Meets House (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347371.jpg" />
+  <img src="Z:/picture/008/save_picture_347371.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - Sad Voice Of The City (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346972.jpg" />
+  <img src="Z:/picture/008/save_picture_346972.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Medusa: Psy Goa Trance (2017) [MP3|248-320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346963.jpg" />
+  <img src="Z:/picture/008/save_picture_346963.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ VA - Extra House (episode 7) (2015) [MP3|320 кб/с]<Deep House, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346835.jpg" />
+  <img src="Z:/picture/008/save_picture_346835.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ VA - Русские Диджеи & Дискотеки от Ovvod7 - 03 (2017) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346589.jpg" />
+  <img src="Z:/picture/008/save_picture_346589.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - DeepEmotions - Car Dubstep Vol.7 (2011) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346402.jpg" />
+  <img src="Z:/picture/008/save_picture_346402.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ VA - New Blood Of Dubstep Vol. 3 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346274.jpg" />
+  <img src="Z:/picture/008/save_picture_346274.jpg" />
 </div>
 
 
@@ -697,7 +755,7 @@ VA - A State Of Vocal Trance Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346262.jpg" />
+  <img src="Z:/picture/008/save_picture_346262.jpg" />
 </div>
 
 
@@ -717,73 +775,6 @@ VA - A State Of Vocal Trance Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8593B3BA61A70051F544EBD5EA2C51E6226594F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580183   (346258) от 24.11.2012
-
-VA - Whisper of Consciousness Volume 32 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346258.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Whisper of Consciousness Volume 32 (2012)
-Год: 2012
-Жанр: Uplifting Trance, Vocal Trance
-Продолжительность: 02:51:03Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Protoculture - Cobalt (Original Mix)
-002. Rake feat. Natalie Griffiths - Expectation (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D946E96AEAB8F1C222A455BA4AC4F92ACD4FB265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580266   (345887) от 24.11.2012
-
-VA - R.G. DHT-Music - Dubstep Female Vocal (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Heavy - Get By (Radio Edit)
- 02. La Roux - Im Not Your Toy (Nero Remix)
- 03. Sabi - Wild At Heart (Zeds Dead Remix)
- 04. Sub Focus - Out The Blue Feat Xilent remix
- 05. Knife Party - Internet Friends Original mix
- 06. Emily Browning - Sweet Dreams (DJ WaY Dubstep Remix)
- 07. Havana Brown - We Run The Night
- 08. Ellie Goulding - Lights Bassnectar rmx
- 09. Emma Hewitt - Foolish Boy (KATFYR Album Edit)
- 10. Spiner - You wait(feat Veela)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFE99656DC2E4795AD60F7D923118F55AB66996
 ```
 
 https://mybot314.ru/tekegram_catalog/

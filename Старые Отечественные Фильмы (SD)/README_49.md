@@ -1,3 +1,56 @@
+###  Публикация: 947805   (415737) от 18.10.2015
+
+Они живут Рядом (1967) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина 60-х годов. Полным ходом идет строительство Останкинской башни, о потенциале которой для развития космической связи идут споры в среде ученых - героев этого фильма. Среди этих людей встречаются и консерваторы, и бюрократы, - но в основном это те, кто воспитывает молодежь, помогает ей найти свой путь в жизни.
+Когда-то молодые ученые Калитин и Данилов были (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Григорий РошальАктеры: Федор Никитин, Руфина Нифонтова, Игорь Кваша, Тамара Сёмина, Александр Борисов, Евгений Евстигнеев, Владимир Кенигсон, Петр Глебов, Всеволод Шестаков, Рогволд Суховерко, Игорь Пушкарев, Наталья Гурзо, Александр Звенигорский, Александр Смирнов, Матвей Левинтон, Антонина Максимова, Виктория ФёдороваПродолжительность: 01:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3632BF1A68A1CBF2613AAEEB91A0AA4E0AF54374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412490   (415714) от 30.09.2020
+
+Евгений Бауэр. Слава - нам, смерть – врагам (1914) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военно-патриотическая драма времён Первой Мировой войны. В центре сюжета — события в жизни сестры милосердия, пошедшей на фронт вслед за своим женихом-офицером. В начале фильма показана светская жизнь и помолвка главной героини Ольги с офицером. Затем начинается война и её жениха призывают на фронт. Ольга становится сестрой милосердия в госпитале и однажды среди (   Читать дальше...   )Производство: Российская империя. Акцiонерное общество «А. Ханжонковъ и К°»Жанр: Короткометражка, драма, военный, немое киноРежиссер: Евгений БауэрАктеры: Иван Мозжухин, Дора ЧиторинаСубтитры: Из частично восстановленных русских интертитровПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808FEE5998E1354700D45BA48D78CAD487853F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 396270   (415679) от 05.10.2011
 
 Ёлки-палки!.. (1988) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415679.jpg" />
+  <img src="Z:/picture/008/save_picture_415679.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415623.jpg" />
+  <img src="Z:/picture/008/save_picture_415623.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413746.jpg" />
+  <img src="Z:/picture/008/save_picture_413746.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413635.jpg" />
+  <img src="Z:/picture/008/save_picture_413635.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413479.jpg" />
+  <img src="Z:/picture/008/save_picture_413479.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413342.jpg" />
+  <img src="Z:/picture/008/save_picture_413342.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412933.jpg" />
+  <img src="Z:/picture/008/save_picture_412933.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412603.jpg" />
+  <img src="Z:/picture/008/save_picture_412603.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_412550.jpg" />
+  <img src="Z:/picture/005/save_picture_412550.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412478.jpg" />
+  <img src="Z:/picture/008/save_picture_412478.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412100.jpg" />
+  <img src="Z:/picture/008/save_picture_412100.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411889.jpg" />
+  <img src="Z:/picture/008/save_picture_411889.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411726.jpg" />
+  <img src="Z:/picture/008/save_picture_411726.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411691.jpg" />
+  <img src="Z:/picture/008/save_picture_411691.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411572.jpg" />
+  <img src="Z:/picture/008/save_picture_411572.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411094.jpg" />
+  <img src="Z:/picture/008/save_picture_411094.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410968.jpg" />
+  <img src="Z:/picture/008/save_picture_410968.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_410784.jpg" />
+  <img src="Z:/picture/005/save_picture_410784.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410633.jpg" />
+  <img src="Z:/picture/008/save_picture_410633.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410313.jpg" />
+  <img src="Z:/picture/008/save_picture_410313.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409205.jpg" />
+  <img src="Z:/picture/008/save_picture_409205.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408952.jpg" />
+  <img src="Z:/picture/008/save_picture_408952.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407899.jpg" />
+  <img src="Z:/picture/008/save_picture_407899.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407721.jpg" />
+  <img src="Z:/picture/008/save_picture_407721.jpg" />
 </div>
 
 
@@ -624,66 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F611F8F3981D881E11AF73084BE3E87E3E0C625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560176   (407190) от 14.10.2012
-
-Ралли (1978) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407190.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1944 году из Рижского художественного музея при отступлении нацистов
-была похищена картина Энгра "Рафаэль и Форнарина". Прошли годы. Во
-время международного ралли один из автогонщиков обнаружил полотно в
-дверце автомобиля. Он подумал, что картину контрабандой перевозил его
-старший напарник-штурман, но тот убедил парня, что полотно им
-подложили, чтобы они не могли попасть в олимпийскую сборную. Он не
-поверил, но и сдать картину начальнику пробега не решился. Происходят и
-другие загадочные события. А за ними уже следили. Самое важное - выйти
-на тех, кто должен забрать украденное произведение искусства.Жанр: ДетективРежиссер: Алоиз БренчАктеры: Витаутас Томкус, Роландс Загорскис, Валентина Титова, Александр   Вокач, Интс Буранс, Лелде Викмане, Улдис Думпис, Эдуард Изотов, Юрис   Каминскис, Виктор Лоренц, Виктор Плют, Алексей Михайлов, Херманис   Ваздикс, Александр Белявский, Улдис Ваздикс, Арно Упениекс, Имантс   Адерманис, Таливалдис Аболиньш, Юрис Леяскалнс, Арнольд Лининьш, Айварс   СилиньшПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E2622CE539E4F9A1C485F7847EFA290F0A2FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410467   (407025) от 05.10.2020
-
-Премия (1974) HDTVRip
-
->>След.
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в течение полутора-двух часов в одной комнате, где проходит не совсем обычное заседание парткома строительного треста. В повестке дня - отказ целой бригады строителей от премии за «липовые» трудовые достижения!Производство: СССР / ЛенфильмЖанр: ДрамаРежиссер: Сергей МикаэлянАктеры: Евгений Леонов, Владимир Самойлов, Олег Янковский, Михаил Глузский, Армен Джигарханян, Нина Ургант, Виктор Сергачёв, Леонид Дьячков, Борислав Брондуков, Светлана Крючкова, Александр ПашутинСубтитры: ОтсутствуютПродолжительность: 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F49AA3BD6AC164C7B81C20C4C10E5DAE7D9477A
 ```
 
 https://mybot314.ru/tekegram_catalog/

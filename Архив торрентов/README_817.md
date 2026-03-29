@@ -6,7 +6,7 @@ OEM Info Updater 9.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864456.jpg" />
+  <img src="Z:/picture/008/save_picture_864456.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864455.jpg" />
+  <img src="Z:/picture/008/save_picture_864455.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTube 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864417.jpg" />
+  <img src="Z:/picture/008/save_picture_864417.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IconKit 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864415.jpg" />
+  <img src="Z:/picture/008/save_picture_864415.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vallum 2.1 & Murus 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864411.jpg" />
+  <img src="Z:/picture/008/save_picture_864411.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864405.jpg" />
+  <img src="Z:/picture/008/save_picture_864405.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Cisdem AppCrypt 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864401.jpg" />
+  <img src="Z:/picture/008/save_picture_864401.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864353.jpg" />
+  <img src="Z:/picture/008/save_picture_864353.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864341.jpg" />
+  <img src="Z:/picture/008/save_picture_864341.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ CCleaner 5.16.5551 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864326.jpg" />
+  <img src="Z:/picture/008/save_picture_864326.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MotoGP. Этап 1/18. Гран-При Катара. Гонка (2016) WEB-Rip [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864324.jpg" />
+  <img src="Z:/picture/008/save_picture_864324.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864300.jpg" />
+  <img src="Z:/picture/008/save_picture_864300.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864291.jpg" />
+  <img src="Z:/picture/008/save_picture_864291.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864289.jpg" />
+  <img src="Z:/picture/008/save_picture_864289.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Acronis True Image WD Edition 25.0.1.39200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864283.jpg" />
+  <img src="Z:/picture/008/save_picture_864283.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Allavsoft Video Downloader Converter 3.13.9.6263 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864271.jpg" />
+  <img src="Z:/picture/008/save_picture_864271.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864264.jpg" />
+  <img src="Z:/picture/008/save_picture_864264.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Blutengel - Leitbild (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <EBM, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864262.jpg" />
+  <img src="Z:/picture/008/save_picture_864262.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Thundercat - Drunk (2017) [FLAC|Lossless|tracks + .cue] <Funk, R'n'B, Future Jaz
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864256.jpg" />
+  <img src="Z:/picture/008/save_picture_864256.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Boinx FotoMagico 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864255.jpg" />
+  <img src="Z:/picture/008/save_picture_864255.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Reg Organizer 7.35 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864190.jpg" />
+  <img src="Z:/picture/008/save_picture_864190.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ CCleaner 5.16.5551 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864184.jpg" />
+  <img src="Z:/picture/008/save_picture_864184.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Xcode 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864182.jpg" />
+  <img src="Z:/picture/008/save_picture_864182.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Autodesk Product Design Suite Ultimate 2015 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864169.jpg" />
+  <img src="Z:/picture/008/save_picture_864169.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) License CODEX [Episode 1-3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864156.jpg" />
+  <img src="Z:/picture/008/save_picture_864156.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Hex Editor Neo Ultimate Edition 6.24.00.5920 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864142.jpg" />
+  <img src="Z:/picture/008/save_picture_864142.jpg" />
 </div>
 
 

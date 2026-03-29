@@ -6,7 +6,7 @@ Leather Lung - 4 Albums (2014-2022) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233089.jpg" />
+  <img src="Z:/picture/005/save_picture_233089.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hammerstar - Hammerstar (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233054.jpg" />
+  <img src="Z:/picture/005/save_picture_233054.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Trespass - Wolf At The Door (2023) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232978.jpg" />
+  <img src="Z:/picture/004/save_picture_232978.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232947.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Collapsed Minds - Dead End Theory (2017) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232837.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Collapsed Minds - Abyss (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232805.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chemicide - Common Sense (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232768.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hrothgar - Rise of Ragnarok (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232733.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Inmortalia - Alegorias (2023) [MP3|320 Kbps] <Gothic Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232721.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Obelos - Green Giant (2022) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232697.jpg" />
+  <img src="Z:/picture/005/save_picture_232697.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Porke - Jagannatha (2015) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232686.jpg" />
+  <img src="Z:/picture/005/save_picture_232686.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Moanhand - Present Serpent (2021) [MP3|320 Kbps] <Stoner-Metal, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232680.jpg" />
+  <img src="Z:/picture/005/save_picture_232680.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Heathen Kings - Fealty to None (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232669.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hempress - Masters Of The Trade (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232656.jpg" />
+  <img src="Z:/picture/005/save_picture_232656.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Star of Madness - Into the Realm of Cthulhu (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232631.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Moozoonsii - 2 Albums (2019-2022) [MP3|320 Kbps] <Progressive Metal, Sludge Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232628.jpg" />
+  <img src="Z:/picture/005/save_picture_232628.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chaos Descent - The Blurry End of an Era (2023) [MP3|320 Kbps] <Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232616.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ A Gram Trip - Long Overdue (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232582.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ohrima - Catoblepas (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232578.jpg" />
+  <img src="Z:/picture/005/save_picture_232578.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sulfure - Anthropocene (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232567.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Snowblind - Behind The Snow (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232558.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Johnny The Boy - You (2023) [MP3|320 Kbps] <Blackened Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232555.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Animal State - 3 Albums (2020-2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232551.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Indefinite Decorum - Débutant (2023) [MP3|320 Kbps] <Symphonic Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232533.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Stray Gods - Storm the Walls (2022) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232511.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Putrefactum - Unsere Wahrheit (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232509.jpg" />
 </div>
 
 

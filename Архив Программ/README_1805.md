@@ -1,3 +1,291 @@
+###  Публикация: 1664779   (184802) от 27.09.2023
+
+Firefox Browser 118.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A05ABCE7675E5BC0BF736F1000EA0E86F9EA673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664782   (184794) от 27.09.2023
+
+Firefox Browser ESR 115.3.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2449CA45DB714C94B7FBCD01CAB32EEDFD494E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664807   (184783) от 27.09.2023
+
+Sandboxie 5.66.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4396CAFEB43BC00F74D6A0BFA22FD8AECE0D8A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664685   (184748) от 27.09.2023
+
+Text Edit Plus 13.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Text Edit Plus — это простой, но мощный текстовый редактор с полезными функциями. Это легкий инструмент, который позволяет пользователям легко создавать новые текстовые документы или изменять существующие. Приложение разработано как альтернатива Блокноту, предлагая более широкий набор функций.
+
+Программное обеспечение представляет собой редактор общего назначения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06B759D1A1A3670B9B4F2DAC6B28FF8FA7C73A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664769   (184740) от 27.09.2023
+
+Chasys Draw IES 5.28.01 include Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chasys Draw IES — бесплатная программа, представляет собой набор приложений, среди которых работа со слоями в основе графического редактора с анимацией, с супер-разрешением изображения по технологии Chasys Draw IES Artist, многопоточный конвертер файлов изображений Chasys Draw IES Converter, достаточно быстрый просмотрщик изображений Chasys Draw IES Viewer и работа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9512DB436EA9496C3E6A86E69553E34235CAD3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664715   (184729) от 27.09.2023
+
+App Builder 2023.55 (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184729.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Builder позволяет создавать приложения для смартфонов и гибридные приложения на HTML5 даже без знания языков программирования. И все это благодаря визуальной среде, которая позволяет простым перемещением и добавлением элементов создавать настоящие шедевры. Несмотря на то, что главная идея App Builder – позволить создавать приложения даже тем пользователям, которые (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB90C8DB0F7D20F4E1B732E32D7C569002942EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664683   (184715) от 27.09.2023
+
+GoldWave 6.78 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184715.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoldWave - звуковой редактор, предназначенный для проигрывания, редактирования, смешивания и анализа звуковых файлов. Умеет быстро работать с большими файлами. Имеет много разных эффектов. Поддерживает MP3, WAV, AU, IFF, VOC, SND, MAT, AIFF, raw, data, а также множество прочих форматов. Умеет конвертировать из одного формата в другой. С помощью GoldWave можно применять (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC09F4232A47B5C189CEA1F06D7BD4DD79A7DF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591947   (184711) от 20.11.2022
+
+Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 11.2022 by OVGorskiy 1DVD
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184711.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей максимально возможно приближенные к оригиналу. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые", минимально модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC13421ADE6C56CA8731C6BF280C0572842A3C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664714   (184709) от 27.09.2023
+
+Icecream Screen Recorder PRO 7.29 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder – простая программа для записи видео с экрана, которая позволяет записывать любую зону экрана или сделать ее скриншот. Записывайте видеоинструкции, приложения и игры, вэбинары, онлайн видео, звонки через Skype и многое другое. Осуществляйте запись экрана со звуком и вебкамерой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926C014129E0CB01C786C85B804AA80928257582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664809   (184700) от 27.09.2023
+
+Sandboxie plus 1.11.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEDBB1F953CE9790CBC18730DD5104685D75180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664794   (184689) от 27.09.2023
+
+Mozilla Thunderbird 115.3.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BD2245ED1223C5E0F56256FAA9DDA2D3566A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664733   (184683) от 27.09.2023
 
 CherryTree 1.0.2.0 x64 + Portable [Multi/Ru]
@@ -6,7 +294,7 @@ CherryTree 1.0.2.0 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184683.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ EssentialPIM Pro 11.7.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184675.jpg" />
 </div>
 
 
@@ -59,7 +347,7 @@ Zoner Photo Studio X 19.2309.2.494 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184671.jpg" />
 </div>
 
 
@@ -85,7 +373,7 @@ Perfectly Clear WorkBench 4.6.0.2600 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184663.jpg" />
 </div>
 
 
@@ -112,7 +400,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184647.jpg" />
 </div>
 
 
@@ -138,7 +426,7 @@ BurnAware Professional 17.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_184628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184628.jpg" />
 </div>
 
 
@@ -164,7 +452,7 @@ Sumatra PDF 3.5.15698 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184622.jpg" />
 </div>
 
 
@@ -191,7 +479,7 @@ Microsoft PowerToys 0.74.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184607.jpg" />
 </div>
 
 
@@ -217,7 +505,7 @@ Mirillis Action! 4.38.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_184596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184596.jpg" />
 </div>
 
 
@@ -244,7 +532,7 @@ Exif Pilot 6.22.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184562.jpg" />
 </div>
 
 
@@ -270,7 +558,7 @@ DesktopClock3D 1.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184552.jpg" />
 </div>
 
 
@@ -296,7 +584,7 @@ CPU-Z 2.08.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_184545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184545.jpg" />
 </div>
 
 
@@ -322,7 +610,7 @@ EZ CD Audio Converter 11.2.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184541.jpg" />
 </div>
 
 
@@ -348,7 +636,7 @@ Topaz Photo AI 2.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184535.jpg" />
 </div>
 
 
@@ -374,7 +662,7 @@ Topaz Video AI 3.5.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184526.jpg" />
 </div>
 
 
@@ -385,297 +673,6 @@ Topaz Video AI – это совершенное новое решение дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A28D9E56A0F427FA99686CDA8494F6EADD4E493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664697   (184500) от 27.09.2023
-
-GoldWave 6.78 RePack (& Portable) by TryRooM [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184500.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoldWave - звуковой редактор, предназначенный для проигрывания, редактирования, смешивания и анализа звуковых файлов. Умеет быстро работать с большими файлами. Имеет много разных эффектов. Поддерживает MP3, WAV, AU, IFF, VOC, SND, MAT, AIFF, raw, data, а также множество прочих форматов. Умеет конвертировать из одного формата в другой. С помощью GoldWave можно применять (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16D3E9C672C2676B97DE1BFDED0B097AA1379F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664731   (184491) от 27.09.2023
-
-QuickMemoryTestOK 4.67 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184491.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuickMemoryTestOK - небольшая, но эффективная утилита для быстрой проверки оперативной памяти на наличие ошибок.
-
-По словам разработчика, утилита также может быть использована для изучения поведения ПК при большом использовании памяти и определения того, является ли это причиной системных ошибок. Присутствует возможность выполнять индивидуальные тесты и отслеживать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BF555BF3D70CF6F35DF08D9713ADD2118843A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592280   (184487) от 21.11.2022
-
-Auslogics File Recovery 11.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics File Recovery - легкая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за вирусов или системных сбоев.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089A1854F63A874AE6FAAEAE70DA10F5C6F8D7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664798   (184480) от 27.09.2023
-
-WSCC (Windows System Control Center) 7.0.7.2 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184480.jpg" />
-</div>
-
-
-###  Подробнее
-
-WSCC (Windows System Control Center) - портативная программа, представляющая собой оболочку, которая объединяет в себе пакеты Sysinternals Suite и NirLauncher. Все утилиты входящие в данный набор, разделены по категориям в зависимости от назначения, а также присутствует возможность запуска некоторых встроенных средств Windows.
-При первом запуске программа попытается (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669BF61957E2C633463B6B666D846A854FBDCCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664816   (184467) от 27.09.2023
-
-DxO PhotoLab Elite 6.10.0 build 284 RePack by KpoJIuK [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78E133BA2B7E3AE765651158BA97479B81EF0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664813   (184460) от 27.09.2023
-
-AMD Radeon Software Adrenalin Edition 23.9.3 WHQL [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184460.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMD Radeon Software Adrenalin Edition представляет собой новое, современное и полностью переработанное приложение, предоставляющее пользователям полный контроль над графикой Radeon, игровыми функциями и настройками, стриминговыми сервисами и многим другим. Геймеры могут получить доступ ко всем функциям ПО прямо в игре, пользуясь таким же интерфейсом, который доступен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A056ABEA6582CD49494A989CE48E13B65D02DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664727   (184447) от 27.09.2023
-
-Psiphon 3 build 179 (25.09.2023) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FEF7C50D7CD65DDF1DEC098E27376947976DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592284   (184439) от 21.11.2022
-
-Auslogics Duplicate File Finder 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Duplicate File Finder поможет Вам избавиться от ненужных дубликатов. С помощью этой бесплатной программы Вы сможете очистить до 50% дополнительного пространства на жестком диске! Сколько абсолютно одинаковых файлов хранится на Вашем компьютере? Вы, возможно, удивитесь, как много места они занимают. Файлы-дубликаты могут накапливаться вследствие повседневного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE282EBB76799B51D9E8C11B2D9E40C1A32FA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664801   (184435) от 27.09.2023
-
-Blender 3.6.4 LTS + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570E0E9E323F48CE5FAE7AC729267A3542AE3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592270   (184432) от 21.11.2022
-
-Auslogics Registry Cleaner Pro 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Registry Cleaner - поможет вам избавиться от ошибок в реестре, удалить неиспользуемые ключи. Реестр Windows - один из самых важных и в тоже время самый уязвимый компонент системы. Каждый раз, когда вы устанавливаете или удаляете программы, в реестре создаются ключи, которые могут там оставаться и приводить к системным сбоям, зависаниям и нестабильной работе (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EBEA7742FFD2480A21B141C580EBB035850EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592167   (184411) от 21.11.2022
-
-Auslogics File Recovery 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics File Recovery® - легкая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за вирусов или системных сбоев.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA216103043E67B82FD901956B7B3670CB3D203
 ```
 
 https://mybot314.ru/tekegram_catalog/

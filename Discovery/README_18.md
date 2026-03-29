@@ -6,7 +6,7 @@ Discovery. Жизнь и смерть на Эвересте / To Live or Die on 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359245.jpg" />
+  <img src="Z:/picture/008/save_picture_359245.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358355.jpg" />
+  <img src="Z:/picture/008/save_picture_358355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357867.jpg" />
+  <img src="Z:/picture/008/save_picture_357867.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Discovery: Разрушители легенд. Опасное вождение 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355358.jpg" />
+  <img src="Z:/picture/008/save_picture_355358.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery. Трамп: беспрецедентно / Unprecedented (2022) WEBRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352047.jpg" />
+  <img src="Z:/picture/008/save_picture_352047.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349889.jpg" />
+  <img src="Z:/picture/008/save_picture_349889.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery. Аляска: Семья из леса / Alaskan Bush People (2019) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349501.jpg" />
+  <img src="Z:/picture/008/save_picture_349501.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery. Юпитер: близкий контакт / Jupiter: Close Encounte
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347154.jpg" />
+  <img src="Z:/picture/008/save_picture_347154.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery: Мятежники ледяного озера / Ice Lake Rebels (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344058.jpg" />
+  <img src="Z:/picture/008/save_picture_344058.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery. Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341796.jpg" />
+  <img src="Z:/picture/008/save_picture_341796.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341688.jpg" />
+  <img src="Z:/picture/008/save_picture_341688.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341626.jpg" />
+  <img src="Z:/picture/008/save_picture_341626.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery: Оружие, которое изменило мир. РПГ / Weapon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340217.jpg" />
+  <img src="Z:/picture/008/save_picture_340217.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery. Дороги России: Трасса Байкал (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340085.jpg" />
+  <img src="Z:/picture/008/save_picture_340085.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Наука сексуальной привлекательности 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339769.jpg" />
+  <img src="Z:/picture/008/save_picture_339769.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339701.jpg" />
+  <img src="Z:/picture/008/save_picture_339701.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339589.jpg" />
+  <img src="Z:/picture/008/save_picture_339589.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery: Разрушители легенд. Стрелки-профи / Myth
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339354.jpg" />
+  <img src="Z:/picture/008/save_picture_339354.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336764.jpg" />
+  <img src="Z:/picture/008/save_picture_336764.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334533.jpg" />
+  <img src="Z:/picture/008/save_picture_334533.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332799.jpg" />
+  <img src="Z:/picture/008/save_picture_332799.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332316.jpg" />
+  <img src="Z:/picture/008/save_picture_332316.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332181.jpg" />
+  <img src="Z:/picture/008/save_picture_332181.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery: Разрушители легенд. Незаконченное де�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329244.jpg" />
+  <img src="Z:/picture/008/save_picture_329244.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329187.jpg" />
+  <img src="Z:/picture/008/save_picture_329187.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328127.jpg" />
+  <img src="Z:/picture/008/save_picture_328127.jpg" />
 </div>
 
 

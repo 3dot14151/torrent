@@ -1,3 +1,87 @@
+###  Публикация: 1393717   (766907) от 01.07.2020
+
+Геннадий Гладков - Трубадур и другие... (2002) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ничего на свете лучше нету (Песня друзей)
+02. Говорят мы - бяки-буки
+03. Дуэт Принцессы и Трубадура
+04. Луч солнца золотого(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B120D66C7922A988300689FB2887C535BC854A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278626   (766873) от 28.01.2019
+
+Марианна Алфёрова | Леонардо да Винчи. Настоящая история гения (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонардо да Винчи - самый таинственный и загадочный гений. Кто же он был на самом деле? Есть предположения самые невероятные - любители сенсаций объявляют его гостем из будущего и даже инопланетянином.
+Перед вами книга о научных открытиях и изобретениях великого итальянца, о его живописных произведениях.
+Юный читатель сможет:
+- окунуться в атмосферу эпохи Возрождения, (   Читать дальше...   )Жанр: Познавательная литература для детей, Культура и искусствоПродолжительность: 07:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297FE8A9623F80EF0B30436ECFB6CE48D3441B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277614   (766863) от 28.01.2019
+
+Вильгельм Гримм, Якоб Гримм | Сказки братьев Гримм [«Мелодия»] [1987, 1973 / 2010, lossless]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание поучительности и занимательности, высмеивания человеческих пороков и создание героев с потрясающими характерами - авторы как настоящие детские психологи затронули все аспекты жизни. Хотя как известно они сами не писали сказки, а просто записывали народные легенды и предания, при этом сами Яков и Вильгельм были видными учеными, дети всего мира всё равно (   Читать дальше...   )Жанр: Сказка / аудиоспектакльПродолжительность: 1:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF00F7C0D2D73D439194538EE5C1756E1BFA30A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277570   (766809) от 28.01.2019
 
 Антуан де Сент-Экзюпери  | Маленький принц [«Moroz Records»] [1961 / 2003, lossless]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766809.jpg" />
+  <img src="Z:/picture/008/save_picture_766809.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766797.jpg" />
+  <img src="Z:/picture/008/save_picture_766797.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766795.jpg" />
+  <img src="Z:/picture/008/save_picture_766795.jpg" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766750.jpg" />
+  <img src="Z:/picture/008/save_picture_766750.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766355.jpg" />
+  <img src="Z:/picture/008/save_picture_766355.jpg" />
 </div>
 
 
@@ -142,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766305.jpg" />
+  <img src="Z:/picture/008/save_picture_766305.jpg" />
 </div>
 
 
@@ -171,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765449.jpg" />
+  <img src="Z:/picture/008/save_picture_765449.jpg" />
 </div>
 
 
@@ -200,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764690.jpg" />
+  <img src="Z:/picture/008/save_picture_764690.jpg" />
 </div>
 
 
@@ -229,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764589.jpg" />
+  <img src="Z:/picture/008/save_picture_764589.jpg" />
 </div>
 
 
@@ -258,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764438.jpg" />
+  <img src="Z:/picture/008/save_picture_764438.jpg" />
 </div>
 
 
@@ -284,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764427.jpg" />
+  <img src="Z:/picture/008/save_picture_764427.jpg" />
 </div>
 
 
@@ -310,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764098.jpg" />
+  <img src="Z:/picture/008/save_picture_764098.jpg" />
 </div>
 
 
@@ -336,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763752.jpg" />
+  <img src="Z:/picture/008/save_picture_763752.jpg" />
 </div>
 
 
@@ -362,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763745.jpg" />
+  <img src="Z:/picture/008/save_picture_763745.jpg" />
 </div>
 
 
@@ -388,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763599.jpg" />
+  <img src="Z:/picture/008/save_picture_763599.jpg" />
 </div>
 
 
@@ -414,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763542.jpg" />
+  <img src="Z:/picture/008/save_picture_763542.jpg" />
 </div>
 
 
@@ -440,7 +524,7 @@ VA - Новые детские песни (2009) [MP3|128 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763287.jpg" />
+  <img src="Z:/picture/008/save_picture_763287.jpg" />
 </div>
 
 
@@ -469,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762302.jpg" />
+  <img src="Z:/picture/008/save_picture_762302.jpg" />
 </div>
 
 
@@ -495,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762293.jpg" />
+  <img src="Z:/picture/008/save_picture_762293.jpg" />
 </div>
 
 
@@ -521,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762291.jpg" />
+  <img src="Z:/picture/008/save_picture_762291.jpg" />
 </div>
 
 
@@ -547,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760985.jpg" />
+  <img src="Z:/picture/008/save_picture_760985.jpg" />
 </div>
 
 
@@ -575,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760523.jpg" />
+  <img src="Z:/picture/008/save_picture_760523.jpg" />
 </div>
 
 
@@ -603,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759979.jpg" />
+  <img src="Z:/picture/008/save_picture_759979.jpg" />
 </div>
 
 
@@ -614,93 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6485188513102E4615F71FC1C9E55E1CE9DD1546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395273   (757266) от 09.07.2020
-
-Литл Бэйби Бам - Кем я хочу стать (2020) [MP3|192-320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Идём к стоматологу
-02. Русалочка
-03. Кем ты хочешь стать когда вырастешь?
-04. Все мы разные(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2810926B8302A4593BD454F98F028CA33A3B541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395270   (757263) от 09.07.2020
-
-Литл Бэйби Бам - Время играть! Играем с друзьями (2020) [MP3|192-320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Будьте добрыми к друг другу
-02. Корова Дэйзи
-03. Славный,славный мальчик мой сын Джон
-04. Деловая Мэри(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F382C8D0967281A4B7FCEE07B24EFC21345D3706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395278   (757185) от 09.07.2020
-
-Юрий Кудинов - 100 детских песен на бис!!! (2014) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757185.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алина - Радостная
-002. Клоун Плюх - Велосипед
-003. Алина - Камешки
-004. Клоун Плюх - Дуся(   Читать дальше...   )Жанр: Детские песниПродолжительность: 04:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C790A18098F314D3CBE4F7A2A05A82C2A2DC2B5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1569031   (455827) от 11.08.2022
+
+Arthemore - Czlowiek (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (00:01:18)
+02 - 29 (00:04:57)
+03 - Sadny dzien (00:05:14)
+04 - Prosta droga do nikad (00:06:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5855820F584567F4D0F47CC053266B5E8AE2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569099   (455825) от 11.08.2022
+
+Askog - Varpnaper (2021) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svalt (04:20)
+02. Vinter (05:39)
+03. Tid (05:07)
+04. Mеne (07:23)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C00AC4D424CC920BC9E31793F428A2754B2443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569066   (455823) от 11.08.2022
+
+Asgard - Chamane (1998) (EP) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chamane (03:09)
+02. The Wheel of Light (04:04)
+03. Images of an Heavenly World (01:28)
+04. Transe (03:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AC4975921C56B02DB70E2B53F3841EFDF4452D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569032   (455821) от 11.08.2022
 
 Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical, Progressive Death Metal>
@@ -6,7 +93,7 @@ Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|WEB-DL|tracks] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455821.jpg" />
+  <img src="Z:/picture/008/save_picture_455821.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455819.jpg" />
+  <img src="Z:/picture/008/save_picture_455819.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Ardi Beltza - Ardi Beltza (2017) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455724.jpg" />
+  <img src="Z:/picture/008/save_picture_455724.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ardi Beltza - Cinco Balas (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455721.jpg" />
+  <img src="Z:/picture/008/save_picture_455721.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ StarStrike - Legacy Or Destiny (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455692.jpg" />
+  <img src="Z:/picture/008/save_picture_455692.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455686.jpg" />
+  <img src="Z:/picture/008/save_picture_455686.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455128.jpg" />
+  <img src="Z:/picture/008/save_picture_455128.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Epica - The Holographic Principle (2016) Digipak, Limited Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454901.jpg" />
+  <img src="Z:/picture/008/save_picture_454901.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ After Smoke Clears - Rapacious (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454027.jpg" />
+  <img src="Z:/picture/008/save_picture_454027.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Messiah - Fracmont (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454024.jpg" />
+  <img src="Z:/picture/008/save_picture_454024.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Cytotoxin - Nuklearth (2020) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453934.jpg" />
+  <img src="Z:/picture/008/save_picture_453934.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Cruthu - 2 Albums (The Angle of Eternity / Athru Crutha) (2018-2020) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453933.jpg" />
+  <img src="Z:/picture/008/save_picture_453933.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Black Eye - Black Eye (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453829.jpg" />
+  <img src="Z:/picture/008/save_picture_453829.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ At the Gates - Slaughter Of The Soul (1995) Full Dynamic Range Remaster, 2018 [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453825.jpg" />
+  <img src="Z:/picture/008/save_picture_453825.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Belphegor - The Devils (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453821.jpg" />
+  <img src="Z:/picture/008/save_picture_453821.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Norhod - The Blazing Lily (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453704.jpg" />
+  <img src="Z:/picture/008/save_picture_453704.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ The Halo Effect - Days Of The Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453339.jpg" />
+  <img src="Z:/picture/008/save_picture_453339.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Jessikill - Metal Knights (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452877.jpg" />
+  <img src="Z:/picture/008/save_picture_452877.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Deicide - Overtures Of Blasphemy (2018) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452736.jpg" />
+  <img src="Z:/picture/008/save_picture_452736.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Tarja (Tarja Turunen) - My Winter Storm (2007) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452487.jpg" />
+  <img src="Z:/picture/008/save_picture_452487.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Aurotanic - Ethereal Gate (2020) (EP) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451905.jpg" />
+  <img src="Z:/picture/008/save_picture_451905.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Atramentum - Through Fire, Everything is Renewed (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451902.jpg" />
+  <img src="Z:/picture/008/save_picture_451902.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Starchaser - Starchaser (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451899.jpg" />
+  <img src="Z:/picture/008/save_picture_451899.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Starchaser, новая группа, созданная бывшим гитар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A16459F2D1D8739FF00C884E294C2B93818D14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408802   (451840) от 14.09.2020
-
-Soulwound - The Suffering (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waste of Life [00:04:10]
-02. Ritual Cleansing [00:04:51]
-03. Pleasures [00:06:02]
-04. The Cult of I [00:04:28](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA72B47FCD563FE449730A0CFE9BC8F841C6EE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569575   (451823) от 13.08.2022
-
-Jani Liimatainen - My Father’s Son (2022) [FLAC|Lossless|image + .cue] <Power Metal, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathing Divinity (Vocals: Bjorn “Speed” Strid)
-02. All Dreams Are Born To Die (Vocals: Tony Kakko)
-03. What Do You Want (Vocals: Renan Zonta)
-04. Who Are We (Vocals: Timo Kotipelto)(   Читать дальше...   )Жанр: Power Metal, AORПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC0C5B480CE3B42819F62D757F3FE790B0278A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569502   (451792) от 13.08.2022
-
-Atrox Trauma - On the Line of Nothing and Something (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - On The Line Of Nothing And Something (00:01:25)
-02 - You Are Servant (00:03:04)
-03 - Parasite Elite (00:02:09)
-04 - I Don't Understand (00:03:46)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6831BDF0EC84CC3C68246AEF0BCB8D35277EB2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

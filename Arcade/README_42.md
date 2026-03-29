@@ -1,3 +1,29 @@
+###  Публикация: 1692876   (115786) от 25.02.2024
+
+Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heretic's Fork представляет собой не вполне стандартный рогалик с двухмерной пиксельной графикой и видом сверху. Инди-проект скрещивает коллекционную карточную игру с башенной защитой. Действие происходит в преисподней. Там начали появляться дыры в пространстве, позволяющие перемещаться на Землю. Этим захотели воспользоваться еретики, чтобы сбежать в мир живых. Однако (   Читать дальше...   )Тип издания: SceneРазработчик: 9FingerGamesЖанр: Экшены, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529984   (115780) от 25.02.2024
 
 Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
@@ -6,7 +32,7 @@ Besiege (2020) [Ru/Multi] (1.26-20573) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115780.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115091.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114896.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110535.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Pizza Possum (2023) [Ru/Multi] (1.4.16) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109831.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Asterix and Obelix: Slap them All! (2021) [Ru/Multi] (1.0.44) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106469.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105156.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104138.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103559.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102336.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102075.jpg" />
+  <img src="Z:/picture/005/save_picture_102075.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101961.jpg" />
+  <img src="Z:/picture/005/save_picture_101961.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Fireburst (Lossless RePack) {1.0} [Multi5/-] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101663.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ravenswatch (2023) [Ru/Multi] (1.3/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94595.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91075.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89084.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86650.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86621.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86605.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86042.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84596.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83807.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Mortal Kombat Ultimate HD M.U.G.E.N (P) [En] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83801.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83364.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81918.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Blade Kitten (Р) [Ru] 2010
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464748   (80890) от 08.03.2012
-
-Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Коготь бежит из тюрьмы La Roca в поисках свободы и драгоценностей. Классический геймплей, множество красочных уровней и врагов. Можно играть по сети. В этой версии переведены даже звуки.Тип издания: RePackРазработчик: Monolith ProductionЖанр: ArcadeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 ```
 
 https://mybot314.ru/tekegram_catalog/

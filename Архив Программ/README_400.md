@@ -6,7 +6,7 @@ VLC Media Player 3.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840556.jpg" />
+  <img src="Z:/picture/008/save_picture_840556.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ConsoleAct 2.7.1 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840550.jpg" />
+  <img src="Z:/picture/008/save_picture_840550.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ConsoleAct 2.7.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840541.jpg" />
+  <img src="Z:/picture/008/save_picture_840541.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AAct 4.0 Release 3 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840537.jpg" />
+  <img src="Z:/picture/008/save_picture_840537.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MapInfo Professional 7.5 [RUS] + Portable 7.5 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840500.jpg" />
+  <img src="Z:/picture/008/save_picture_840500.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10036 (x86) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840352.jpg" />
+  <img src="Z:/picture/008/save_picture_840352.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Corel VideoStudio Ultimate X8 18.0.0.181 (x86) + Content [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840254.jpg" />
+  <img src="Z:/picture/008/save_picture_840254.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10036 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840245.jpg" />
+  <img src="Z:/picture/008/save_picture_840245.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mozilla Firefox 46.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840107.jpg" />
+  <img src="Z:/picture/008/save_picture_840107.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Skype 7.22.0.108 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839987.jpg" />
+  <img src="Z:/picture/008/save_picture_839987.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BurnAware Free 14.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839940.jpg" />
+  <img src="Z:/picture/008/save_picture_839940.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mozilla Thunderbird 91.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839933.jpg" />
+  <img src="Z:/picture/008/save_picture_839933.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AdwCleaner 5.109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839901.jpg" />
+  <img src="Z:/picture/008/save_picture_839901.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sandboxie 5.52.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839827.jpg" />
+  <img src="Z:/picture/008/save_picture_839827.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Balabolka 2.15.0.802 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839825.jpg" />
+  <img src="Z:/picture/008/save_picture_839825.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PDF24 Creator 10.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839812.jpg" />
+  <img src="Z:/picture/008/save_picture_839812.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Panda Free Antivirus 2016 16.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839753.jpg" />
+  <img src="Z:/picture/008/save_picture_839753.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Bandizip 7.20 Build 44995 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839704.jpg" />
+  <img src="Z:/picture/008/save_picture_839704.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera 80.0.4170.16 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839699.jpg" />
+  <img src="Z:/picture/008/save_picture_839699.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ MAGIX Video Pro X13 19.0.1.123 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839691.jpg" />
+  <img src="Z:/picture/008/save_picture_839691.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ UltraUXThemePatcher 3.1.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839647.jpg" />
+  <img src="Z:/picture/008/save_picture_839647.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kaspersky Lab Products Remover 1.0.1238 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839642.jpg" />
+  <img src="Z:/picture/008/save_picture_839642.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Process Lasso Pro 8.9.8.100 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839641.jpg" />
+  <img src="Z:/picture/008/save_picture_839641.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ TapinRadio Pro 1.72.6 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839636.jpg" />
+  <img src="Z:/picture/008/save_picture_839636.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PDF Eraser Pro 1.5.0 DC 30.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839621.jpg" />
+  <img src="Z:/picture/008/save_picture_839621.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BitTorrent Free 7.9.6 Build 42095 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839620.jpg" />
+  <img src="Z:/picture/008/save_picture_839620.jpg" />
 </div>
 
 

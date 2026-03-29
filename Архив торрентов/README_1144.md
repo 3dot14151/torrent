@@ -6,7 +6,7 @@ Mozilla Firefox Quantum 64.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791005.jpg" />
+  <img src="Z:/picture/008/save_picture_791005.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Visual C++ 2017 Redistributable 14.16.27024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791004.jpg" />
+  <img src="Z:/picture/008/save_picture_791004.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Found Sound (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790988.jpg" />
+  <img src="Z:/picture/008/save_picture_790988.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Martin Hannett - Hannett's Electronic Recordings - Homage To Delia Derbyshire (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790986.jpg" />
+  <img src="Z:/picture/008/save_picture_790986.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Nightmares on Wax - Shape the Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790985.jpg" />
+  <img src="Z:/picture/008/save_picture_790985.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Above & Beyond - Common Ground (2018) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790980.jpg" />
+  <img src="Z:/picture/008/save_picture_790980.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Alternate File Shredder 2.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790975.jpg" />
+  <img src="Z:/picture/008/save_picture_790975.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 09.01.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790968.jpg" />
+  <img src="Z:/picture/008/save_picture_790968.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790964.jpg" />
+  <img src="Z:/picture/008/save_picture_790964.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ uTorrent 3.5.5 Build 44994 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790956.jpg" />
+  <img src="Z:/picture/008/save_picture_790956.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Johnny Jewel - Digital Rain (2018) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790948.jpg" />
+  <img src="Z:/picture/008/save_picture_790948.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790938.jpg" />
+  <img src="Z:/picture/008/save_picture_790938.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790925.jpg" />
+  <img src="Z:/picture/008/save_picture_790925.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ uTorrent 3.5.5 Build 44994 (Ad-Free) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790918.jpg" />
+  <img src="Z:/picture/008/save_picture_790918.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790914.jpg" />
+  <img src="Z:/picture/008/save_picture_790914.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Easy Duplicate Finder 5.10.0.992 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790892.jpg" />
+  <img src="Z:/picture/008/save_picture_790892.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Artstudio Pro 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790868.jpg" />
+  <img src="Z:/picture/008/save_picture_790868.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ ToothFairy 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790867.jpg" />
+  <img src="Z:/picture/008/save_picture_790867.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ NXPowerLite Desktop 9 v9.1.0 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790864.jpg" />
+  <img src="Z:/picture/008/save_picture_790864.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Boom 2 v1.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790859.jpg" />
+  <img src="Z:/picture/008/save_picture_790859.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VueScan Pro 9.6.06 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790857.jpg" />
+  <img src="Z:/picture/008/save_picture_790857.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ CPU-Z 1.83.0 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790856.jpg" />
+  <img src="Z:/picture/008/save_picture_790856.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ SoftPerfect WiFi Guard 2.0.1 RePack (&Portable) by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790850.jpg" />
+  <img src="Z:/picture/008/save_picture_790850.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6798.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790838.jpg" />
+  <img src="Z:/picture/008/save_picture_790838.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ SSDReporter 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790832.jpg" />
+  <img src="Z:/picture/008/save_picture_790832.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790824.jpg" />
+  <img src="Z:/picture/008/save_picture_790824.jpg" />
 </div>
 
 

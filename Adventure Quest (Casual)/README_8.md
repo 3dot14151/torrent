@@ -6,7 +6,7 @@ Dead Reckoning 4: Broadbeach Cove / Точный расчет. Бухта Бро
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867787.jpg" />
+  <img src="Z:/picture/008/save_picture_867787.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mystery Tales 12: Art and Souls / Загадочные истории 12: Душ
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866944.jpg" />
+  <img src="Z:/picture/008/save_picture_866944.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Riddles of Fate 2: Into Oblivion / Всадники Судьбы 2: В забв�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865320.jpg" />
+  <img src="Z:/picture/008/save_picture_865320.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Lost Lands: Dark Overlord / Потерянные земли. Темный Пов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865226.jpg" />
+  <img src="Z:/picture/008/save_picture_865226.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Curse at Twilight: Thief of Souls / Проклятие в сумерках. По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862961.jpg" />
+  <img src="Z:/picture/008/save_picture_862961.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Grim Tales 18: The Generous Gift (2020) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860253.jpg" />
+  <img src="Z:/picture/008/save_picture_860253.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Spirit Legends 5: The Aeon Heart / Легенды о духах 5: Сердце 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859426.jpg" />
+  <img src="Z:/picture/008/save_picture_859426.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857446.jpg" />
+  <img src="Z:/picture/008/save_picture_857446.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Vampire Legends 3: The Count of New Orleans (2016) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857432.jpg" />
+  <img src="Z:/picture/008/save_picture_857432.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Final Cut 5: Fame Fatale / Последний дубль 5. Смертельна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857253.jpg" />
+  <img src="Z:/picture/008/save_picture_857253.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Myths of the World 7: The Whispering Marsh / Мифы народов мира 7.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857173.jpg" />
+  <img src="Z:/picture/008/save_picture_857173.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Family Mysteries 2: Echoes of Tomorrow (2020) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856676.jpg" />
+  <img src="Z:/picture/008/save_picture_856676.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nevertale 9: Hearthbridge Cabinet / Несказки 9: Шкаф семейст�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856578.jpg" />
+  <img src="Z:/picture/008/save_picture_856578.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Final Cut 3: Homage (2014) [En] Unofficial [Collector's Edition / Коллекц
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854727.jpg" />
+  <img src="Z:/picture/008/save_picture_854727.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mystery Case Files 13: Ravenhearst Unlocked / За семью печатями 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850121.jpg" />
+  <img src="Z:/picture/008/save_picture_850121.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Myth or Reality: Fairy Lands (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849417.jpg" />
+  <img src="Z:/picture/008/save_picture_849417.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mystery Tales 13: Til Death (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848170.jpg" />
+  <img src="Z:/picture/008/save_picture_848170.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nightmares from the Deep 3: Davy Jones (2014) [En] Unofficial [Collector’s Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847474.jpg" />
+  <img src="Z:/picture/008/save_picture_847474.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Living Legends 2: Frozen Beauty / Живые Легенды: Ледяная Кр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846975.jpg" />
+  <img src="Z:/picture/008/save_picture_846975.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Immortal Love 8: Sparkle of Talent / Бессмертная любовь 8: Ис
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845919.jpg" />
+  <img src="Z:/picture/008/save_picture_845919.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Grim Legends: The Forsaken Bride / Зловещие легенды. Брошен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845206.jpg" />
+  <img src="Z:/picture/008/save_picture_845206.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Whispered Secrets 5: Ever Burning Candle (2016) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845104.jpg" />
+  <img src="Z:/picture/008/save_picture_845104.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ New York Mysteries 3: The Lantern of Souls (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845025.jpg" />
+  <img src="Z:/picture/008/save_picture_845025.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lost Lands 7: Redemption / Затерянные земли 7: Искуплени
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844410.jpg" />
+  <img src="Z:/picture/008/save_picture_844410.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Entwined 2: The Perfect Murder / Запутанное дело 2: Идеальн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844409.jpg" />
+  <img src="Z:/picture/008/save_picture_844409.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Frankenstein 2: The Village (2016) [En/Multi] (1.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842869.jpg" />
+  <img src="Z:/picture/008/save_picture_842869.jpg" />
 </div>
 
 

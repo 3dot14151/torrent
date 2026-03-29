@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861787   (1062862) от 
+
+Захочу - полюблю (1990) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сладострастный стареющий художник Модест, желая испытать силу своего чувства, убивает мужа Натали Полонской; молодой революционер и любовник Натали кончает жизнь самоубийством; сама Натали со своей сестрой-любовницей мчится в Италию...Производство: СССР, Свердловская киностудия / студия «Скифы»Жанр: мелодрамаРежиссер: Василий ПанинАктеры: Вера Сотникова, Анатолий Васильев, Нина Русланова, Екатерина Стриженова, Елена Костина, Александр Стриженов, Валерий Золотухин, Олег Анофриев, Рудольф Рудин, Ольга МашнаяПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC717B612E92F38BBC2FD29EBA4B7D3938651DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860479   (1061980) от 
+
+Поздний ребенок (1970) DVB
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ ведется от имени мальчика Лёни - позднего ребенка. Счастливая семья, где второго ребенка ждали 16 лет. "Ранние дети появляются быстро, сами собой, как отметки в дневнике, если ты пошел в школу". Сестра Лёни, архитектор Людмила, собралась со своим женихом Иваном в командировку на полгода, а с отцом, этим неунывающим весельчаком, балагуром случился (   Читать дальше...   )Производство: СССР, Киевская киностудия им. А. П. ДовженкоЖанр: МелодрамаРежиссер: Константин ЕршовАктеры: Василий Меркурьев, Антонина Максимова, Ирина Губанова, Анатолий Адоскин, Леонид Куравлёв, Дима Шкреба (озвучание - Лия Ахеджакова), Константин Ершов, Вениамин Смехов (текст от автора)Субтитры: отсутствуютПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1ADE68B83AED44E4D119D7C1F819D21757BE77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860150   (1061779) от 
 
 Назначаешься внучкой (1975) HDTVRip [H.264] (серии 1-2 из 2)
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061779.jpg" />
+  <img src="Z:/picture/005/save_picture_1061779.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061778.jpg" />
+  <img src="Z:/picture/005/save_picture_1061778.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061128.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060633.jpg" />
+  <img src="Z:/picture/005/save_picture_1060633.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059290.jpg" />
+  <img src="Z:/picture/005/save_picture_1059290.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059050.jpg" />
+  <img src="Z:/picture/005/save_picture_1059050.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058539.jpg" />
+  <img src="Z:/picture/005/save_picture_1058539.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058251.jpg" />
+  <img src="Z:/picture/005/save_picture_1058251.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058163.jpg" />
+  <img src="Z:/picture/005/save_picture_1058163.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057956.jpg" />
+  <img src="Z:/picture/005/save_picture_1057956.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057941.jpg" />
+  <img src="Z:/picture/005/save_picture_1057941.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057508.jpg" />
+  <img src="Z:/picture/005/save_picture_1057508.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057222.jpg" />
+  <img src="Z:/picture/005/save_picture_1057222.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054074.jpg" />
+  <img src="Z:/picture/005/save_picture_1054074.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051928.jpg" />
+  <img src="Z:/picture/005/save_picture_1051928.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051925.jpg" />
+  <img src="Z:/picture/005/save_picture_1051925.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051804.jpg" />
+  <img src="Z:/picture/005/save_picture_1051804.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050744.jpg" />
+  <img src="Z:/picture/005/save_picture_1050744.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050742.jpg" />
+  <img src="Z:/picture/005/save_picture_1050742.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050731.jpg" />
+  <img src="Z:/picture/005/save_picture_1050731.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050720.jpg" />
+  <img src="Z:/picture/008/save_picture_1050720.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050575.jpg" />
+  <img src="Z:/picture/005/save_picture_1050575.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050516.jpg" />
+  <img src="Z:/picture/005/save_picture_1050516.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050362.jpg" />
+  <img src="Z:/picture/005/save_picture_1050362.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21B0BE67F66EC26EFE0DF2642E9704613725CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844820   (1050198) от 28.12.2025
-
-Звезды и солдаты (Красное и белое) / The Red and the White (Csillagosok, katonak) (1967) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1919 год, Гражданская война в России. Разбит один из венгерских отрядов. Бойцу Ласло удаётся скрыться в монастыре, где расположились венгры. Внезапно ворвавшийся отряд белых зверски расстреливает борцов за революцию. Бежать за пределы города удаётся только татарину Чингизу, русскому матросу и венграм Ласло и Андрашу. Они скрываются среди раненых в белогвардейском (   Читать дальше...   )Производство: СССР, Венгрия, MAFILM DRS, MosfilmЖанр: драма, военныйРежиссер: Миклош ЯнчоАктеры: Йожеф Мадараш — Иштван, венгерский командир, Тибор Мольнар — Андраш, Андраш Козак — Ласло, Юхас Яцинт — Янош, Анатолий Яббаров — штабс-капитан Челпанов, Сергей Никоненко — подхорунжий, Болот Бейшеналиев — Чингиз, Татьяна Конюхова — Елизавета, Кристина Миколаевска — Ольга, Виктор Авдюшко — матрос, Вера Алентова — медсестра, Мира Ардова — медсестра, Валентина Березуцкая (   Читать дальше...   )Субтитры: отсутствуютПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0685952122D2475D290EB087C7921BE49192B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843669   (1049564) от 21.12.2025
-
-Бакенбарды (1990) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перестройка в разгаре. В уездном городе Заборске нет житья от распоясавшихся молодежных группировок. И тут в городок из Ленинграда приезжают два человека с бакенбардами, в макинтошах и котелках. Люди с тросточками и в крылатках решают вернуть российской глубинке первозданную духовность. Они цитируют Пушкина, прекрасно умеют постоять за себя при помощи трости и твердо (   Читать дальше...   )Производство: СССР, Голос, ЛенфильмЖанр: КомедияРежиссер: Юрий МаминАктеры: Виктор Сухоруков, Александр Медведев, Артур Ваха, Владлен Бирюков, Александр Лыков, О. Алабышева, О. Самарина, Анатолий Журавлев, Юрий Мамин, Елена РуфановаСубтитры: отсутствуютПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC05D896B6840450E3CA3BD755B5D36D97BF2410
 ```
 
 https://mybot314.ru/tekegram_catalog/

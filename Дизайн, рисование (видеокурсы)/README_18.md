@@ -1,3 +1,30 @@
+###  Публикация: 1489336   (926806) от 15.08.2021
+
+Blender Cloud, Kjartan Tysdal | Low Poly Character Creation (2017) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуйте инструкциям, которые приведут к созданию высококачественного низкополигонального персонажа.
+Данный семинар включает 1,5 часа видео с комментариями + 12 часов таймлапсов, охватывающих практически весь процесс создания персонажа.Производство: Blender CloudЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 13:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E9F611E288D0CCD4CAE47FA81A7EE0F4EA3BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489214   (926693) от 15.08.2021
 
 Дмитрий Зверев | Создание "дизайнов" в сервисах Crello и Canva (2021) WEB-DL [AD]
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926693.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926534.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Udemy, Darrin Lile | Create Game Characters with Blender (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925183.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ CG Cookie, Jonathan Williamson | Low Poly Character Creation in Blender (2011) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925077.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Gumroad, Lu Dongjun | Lava Stone (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923683.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Gumroad, Lu Dongjun | Snow Rock (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923565.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Specialist, Эпов Дмитрий Андреевич | Autodesk 3ds Max 2013 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923430.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ TheNewBoston | Адоб Иллюстратор CS6 для начинающих /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921768.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ Udemy | Blender 2.8 Полное руководство от новичка до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921480.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Diskill | Logo Start. Создание логотипов (2021) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916670.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ lynda.com | CINEMA 4D R17 Essential Training (2016) PCRec [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912906.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 1 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912078.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ Udemy, Mrawan Hussain | Blender 2.83: How to create realistic BedRoom with Cycle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911926.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ TheNewBoston | Фотошоп CS6 / Photoshop CS6 (2014) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910966.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 3 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910575.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 2 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910574.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ Udemy | Скриптинг в Blender 2.81 / Python Scripting in Blender 2.81 wi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910415.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ FlippedNormals | Ретопология в Blender 2.8 / Retopology in Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910361.jpg" />
 </div>
 
 
@@ -490,7 +517,7 @@ Bang Bang Education | Как устроены буквы (2018) PCRec [H.264/108
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910307.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ Bang Bang Education | Сетки и проектирование сайтов (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910144.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Bang Bang Education | Создание пространства в Adobe Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910120.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ Bang Bang Education | 1000 и 1 буква (2019) PCRec [H.264/1080p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908687.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906739.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906737.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906569.jpg" />
 </div>
 
 
@@ -666,32 +693,6 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F14122AEDA3BEDBC486EC6ECD50C17B9E18F99F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492172   (905049) от 28.08.2021
-
-WingFox, Ognyan Zahariev | Magical Classroom Scene Creating for Games [Low Quality] (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс покажет вам весь процесс создания сцены магической классной комнаты в стиле Гарри Поттера, включая планирование концепта сцены, сбор референсных материалов, постройку сцены из серых кубов и создание необходимых моделей, таких как деревянный подиум, железные кольца, бумажные книги, свечи, мел, стеклянные кувшины и многое другое. Конечно же вы увидите процесс (   Читать дальше...   )Производство: WingFoxЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 119:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F51C25F83639DCF62C33E6AA50501DECE6CA7B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

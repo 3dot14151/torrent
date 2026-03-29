@@ -1,3 +1,29 @@
+###  Публикация: 712392   (404413) от 18.10.2013
+
+Подшивка журналов | Атлас. Целый мир в твоих руках №180-187 (2013) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404413.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Атлас. Целый мир в твоих руках» - коллекция издательства «ДеАгостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6C21C157236E2778CBD231139B052A69A4C123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 711622   (404207) от 18.10.2013
 
 Сара Болл | Девять месяцев (2005) [FB2]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404207.jpg" />
+  <img src="Z:/picture/008/save_picture_404207.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404110.jpg" />
+  <img src="Z:/picture/008/save_picture_404110.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404097.jpg" />
+  <img src="Z:/picture/008/save_picture_404097.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404095.jpg" />
+  <img src="Z:/picture/008/save_picture_404095.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404094.jpg" />
+  <img src="Z:/picture/008/save_picture_404094.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404093.jpg" />
+  <img src="Z:/picture/008/save_picture_404093.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404065.jpg" />
+  <img src="Z:/picture/008/save_picture_404065.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404023.jpg" />
+  <img src="Z:/picture/008/save_picture_404023.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404016.jpg" />
+  <img src="Z:/picture/008/save_picture_404016.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403969.jpg" />
+  <img src="Z:/picture/008/save_picture_403969.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403963.jpg" />
+  <img src="Z:/picture/008/save_picture_403963.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403948.jpg" />
+  <img src="Z:/picture/008/save_picture_403948.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403806.jpg" />
+  <img src="Z:/picture/008/save_picture_403806.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403761.jpg" />
+  <img src="Z:/picture/008/save_picture_403761.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403695.jpg" />
+  <img src="Z:/picture/008/save_picture_403695.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403646.jpg" />
+  <img src="Z:/picture/008/save_picture_403646.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403594.jpg" />
+  <img src="Z:/picture/008/save_picture_403594.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Casterman | Приключения Тинтиня [1929-1986] [PDF]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403474.jpg" />
+  <img src="Z:/picture/008/save_picture_403474.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403300.jpg" />
+  <img src="Z:/picture/008/save_picture_403300.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403186.jpg" />
+  <img src="Z:/picture/008/save_picture_403186.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403168.jpg" />
+  <img src="Z:/picture/005/save_picture_403168.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403049.jpg" />
+  <img src="Z:/picture/008/save_picture_403049.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403048.jpg" />
+  <img src="Z:/picture/008/save_picture_403048.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403047.jpg" />
+  <img src="Z:/picture/008/save_picture_403047.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403045.jpg" />
+  <img src="Z:/picture/008/save_picture_403045.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFEAE0A2CE1C4754F0D5FBC1A68FF29C40D07487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564172   (403043) от 23.10.2012
-
-Журнал | Лучший Автовыбор №42-43 [октябрь-ноябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403043.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лучший Автовыбор" - еженедельный автомобильный журнал-каталог. Более 2000 легковых и грузовых автомобилей любого класса, предлагаемых к продаже автосалонами. Публикуются новости и рекламные материалы автосалонов, тесты новых и подержанных автомобилей. Некоторые страницы, содержащие только рекламу, удалены.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655964DFA1D2FD6B2D933B014327E57451E818BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

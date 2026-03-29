@@ -1,3 +1,81 @@
+###  Публикация: 1311402   (539953) от 30.06.2019
+
+Эндрю Мортон | Меган. Принцесса из Голливуда (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_539953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – интереснейшее расследование. В ней собраны подробности из личной жизни Меган Маркл, рассказанные автору близкими друзьями, соседями и коллегами актрисы. Вы узнаете о юности Меган, ее первом браке, о свидании вслепую с принцем Гарри и их конфетно-букетном периоде, о предложении руки и сердца и знакомстве с королевой Елизаветой II. А также о том, как Букингемский (   Читать дальше...   )Жанр: Биографии и Мемуары, Кино, ПублицистикаПеревод: М. С. КондрашоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535E0755BFC73CC4DEC054891FF5B419672BB741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925637   (539207) от 07.08.2015
+
+Даниэль Герен | Анархизм: от теории к практике (2013) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_539207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанная в доступной форме книга французского общественного деятеля и писателя Даниэля Герена (1904–1988) знакомит читателей с основными идеями анархизма — социально-политической философии, идеалом которой является общество свободных личностей, основанное на самоуправлении, солидарности и отсутствии власти и принуждения. Впервые вышедшая по-французски в 1965 году (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D320F714C1FDC9517964C3ED890F55058025F325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154598   (539084) от 31.07.2017
+
+Виктор Бакин | Владимир Высоцкий без мифов и легенд (2010) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_539084.jpg" />
+</div>
+
+
+###  Подробнее
+
+При жизни для большинства людей Владимир Высоцкий оставался легендой. Прошедшие без него три десятилетия расставили все по своим местам. Высоцкий не растворился даже в мифе о самом себе, который пытались творить все, кому не лень, не брезгуя никакими слухами, сплетнями, версиями о его жизни и смерти. Чем дальше отстоит от нас время Высоцкого, тем крупнее и рельефнее (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EECECF913BD5D9D08546A20BE84C4B1DC5AEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154746   (538956) от 31.07.2017
 
 Анатолий Тилле | Бандитский? Да! Капитализм? Нет! [сборник] (2006) [FB2]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538956.jpg" />
+  <img src="Z:/picture/008/save_picture_538956.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538821.jpg" />
+  <img src="Z:/picture/008/save_picture_538821.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538227.jpg" />
+  <img src="Z:/picture/008/save_picture_538227.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537061.jpg" />
+  <img src="Z:/picture/008/save_picture_537061.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536868.jpg" />
+  <img src="Z:/picture/008/save_picture_536868.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536855.jpg" />
+  <img src="Z:/picture/008/save_picture_536855.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536726.jpg" />
+  <img src="Z:/picture/008/save_picture_536726.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535198.jpg" />
+  <img src="Z:/picture/008/save_picture_535198.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535187.jpg" />
+  <img src="Z:/picture/008/save_picture_535187.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534995.jpg" />
+  <img src="Z:/picture/008/save_picture_534995.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534970.jpg" />
+  <img src="Z:/picture/008/save_picture_534970.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534197.jpg" />
+  <img src="Z:/picture/008/save_picture_534197.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533332.jpg" />
+  <img src="Z:/picture/008/save_picture_533332.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531447.jpg" />
+  <img src="Z:/picture/008/save_picture_531447.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531389.jpg" />
+  <img src="Z:/picture/008/save_picture_531389.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531364.jpg" />
+  <img src="Z:/picture/008/save_picture_531364.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531353.jpg" />
+  <img src="Z:/picture/008/save_picture_531353.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531268.jpg" />
+  <img src="Z:/picture/008/save_picture_531268.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531184.jpg" />
+  <img src="Z:/picture/008/save_picture_531184.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531148.jpg" />
+  <img src="Z:/picture/008/save_picture_531148.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530546.jpg" />
+  <img src="Z:/picture/008/save_picture_530546.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530536.jpg" />
+  <img src="Z:/picture/008/save_picture_530536.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530535.jpg" />
+  <img src="Z:/picture/008/save_picture_530535.jpg" />
 </div>
 
 
@@ -602,91 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D3FBF8F38D266000BA9F92BFFC52CA85051CD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558618   (529981) от 21.06.2022
-
-Никлас Брендборг | Загадка нестареющей медузы. Секреты природы и достижения науки, которые помогут приблизиться к вечной жизни (2022) [PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы хотим прожить «до ста лет». Но на нашей планете есть существа и организмы, для которых век – лишь начало жизни.
-
-Много ли зависит от генов, можно ли скорректировать их влияние питанием или образом жизни? За несколько сотен лет наблюдений и экспериментов накопилось много данных, которые помогут переосмыслить понятие возраста.
-(   Читать дальше...   )Жанр: Публицистика, здоровьеПеревод: Алена ЮченковаФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1801DEF0DF74BBE66020E405D469FADE5CD1264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558364   (529891) от 21.06.2022
-
-Андрей Шмалько | Военный дневник (2022) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогой читатель!
-Дневниковые записи, сделанные автором в осажденном Харькове, публикуются с минимальной редактурой, исправлены лишь опечатки. Комментировать содержание ни к чему, текст говорит сам за себя. Автор не жалеет ни о чем из написанного и не собирается отказываться ни от единого слова. Все это было.
-Многие из читателей уже обиделись, иным это лишь предстоит, (   Читать дальше...   )Жанр: Военная история. ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A56D5E5F4E38D3476D3D1B1255687381CBD7F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558594   (529886) от 21.06.2022
-
-Джек Д. Швагер | Таинственные маги рынка. Лучшие трейдеры, о которые вы никогда не слышали (2022) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Д. Швагер – признанный отраслевой эксперт по фьючерсам и хедж-фондам, а также автор культовой серии ・・Маги рынка・・. В своей новой книге он взял интервью у многих легендарных трейдеров, аналитиков, маркетмейкеров и управляющих фондами.
-
-В книге вы найдете полезную информацию, которая поможет начинающим трейдерам найти свою стратегию (   Читать дальше...   )Жанр: 9785907534759Перевод: П. ВласовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901DA5C211B458A0E1AB1B15A8B2A80A092B0ED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

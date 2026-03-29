@@ -1,3 +1,291 @@
+###  Публикация: 1717581   (59087) от 20.04.2024
+
+Soft Organizer Pro 9.44 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3022BE41972248EA3C824880A6B2EA8A14ED292C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717604   (59072) от 20.04.2024
+
+Turbo Studio 24.4.12.0 Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Studio - это программа, которая служит для виртуализации приложений. Она дает возможность упаковать любое приложение в единый исполняемый файл (контейнер), позволив запускать его без предварительной установки. Программа использует собственный формат контейнеров и предоставляет доступ к огромной библиотеке дистрибутивов популярного софта. В отличие от своего (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99BD3CA4774E8A357E10DE12B37C26AF9A59717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717546   (59065) от 20.04.2024
+
+Vit Registry Fix Pro 14.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vit Registry Fix Pro - мощная программа для очистки реестра от ошибок и устаревших данных. Программа обладает мощным автоматическим средством сканирования и удаления ошибок самых разных типов. Vit Registry Fix может находить более 50 вариантов разновидностей ошибок в реестре.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1573B651105310EDB6BD82C874BE504AA6DB5A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717404   (59064) от 20.04.2024
+
+Display Driver Uninstaller 18.0.7.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ECC2C4D0F77FE4C2054D6C1222E0A29A7CD11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717758   (59012) от 21.04.2024
+
+Abelssoft Win11PrivacyFix 2024.3.51621 (акция Abelssoft) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abelssoft Win11PrivacyFix - позволяет включать и выключать различные настройки одним щелчком мыши в Windows 11. Инструмент Win11PrivacyFix предотвращает, например, постоянную активность микрофона или постоянную передачу записей с клавиатуры. Серверы сбора данных Microsoft заблокированы, а важные службы просто деактивированы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A7A327972FDE4CC3BEBBE615230684847879CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717938   (58951) от 22.04.2024
+
+Bandicam 7.1.1.2158 RePack (& portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam — это компактная программа записи экрана для Windows, которая может записывать все, что происходит на экране ПК, в формате высококачественного видео. Также можно выполнять запись определенной части экрана или игр, использующих графические технологии DirectX/OpenGL/Vulkan.
+Bandicam поможет вам сделать запись игры с высоким коэффициентом сжатия, сохраняя при (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A256C4265FE7E644C94DC74D8D8CD68C38FD49C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717942   (58931) от 22.04.2024
+
+Malwarebytes Windows Firewall Control 6.11.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0C50D7D99D546433E73236C0B8BE1A7CB7B7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717953   (58917) от 22.04.2024
+
+DxO PhotoLab Elite 7.6.0 build 189 RePack by KpoJIuK [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600D39F7FF771971CADFE07924F35B9B96BE45A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718014   (58912) от 22.04.2024
+
+Aiseesoft FoneLab for Android 5.0.36 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft FoneLab for Android — это популярный инструмент, ставший уже практически незаменимым для пользователей Android-смартфонов, для управления своими мобильными помощниками при помощи ПК. Приложение работает практически со всем контентом или данными, которыми оперирует смартфон: это, конечно, обязательная синхронизация содержимого по кабелю или через беспроводное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A674C456DC9420726F9F3F806EFE4FC50379B1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717914   (58911) от 22.04.2024
+
+uTorrent Pro 3.6.0 Build 47062 Stable RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58911.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A7436B4FBB33F3E2A79654AC706E60182BAB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718016   (58898) от 22.04.2024
+
+Glarysoft Malware Hunter PRO 1.183.0.804 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C8CD6A10EA4108D1DE8C41463C62CA4A6EA7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718002   (58892) от 22.04.2024
 
 Absolute Uninstaller 6.0.1.6 [Multi/Ru]
@@ -6,7 +294,7 @@ Absolute Uninstaller 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58892.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ NirLauncher Package 1.30.11 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58887.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58883.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ XYplorer 25.90.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58878.jpg" />
 </div>
 
 
@@ -110,7 +398,7 @@ Glary Utilities Pro 6.9.0.13 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58876.jpg" />
 </div>
 
 
@@ -136,7 +424,7 @@ YT Downloader 9.7.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58875.jpg" />
 </div>
 
 
@@ -162,7 +450,7 @@ Firefox Browser 125.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58867.jpg" />
 </div>
 
 
@@ -188,7 +476,7 @@ Double Commander 1.1.13 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58858.jpg" />
 </div>
 
 
@@ -214,7 +502,7 @@ Soft Organizer Pro 9.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58856.jpg" />
 </div>
 
 
@@ -241,7 +529,7 @@ BananaVisualLibraries 1.0.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58855.jpg" />
 </div>
 
 
@@ -267,7 +555,7 @@ Adguard 7.17.1 (7.17.4709.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58830.jpg" />
 </div>
 
 
@@ -293,7 +581,7 @@ Duplicate Cleaner Pro 5.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58813.jpg" />
 </div>
 
 
@@ -320,7 +608,7 @@ Internet Download Manager 6.42 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58810.jpg" />
 </div>
 
 
@@ -346,7 +634,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58804.jpg" />
 </div>
 
 
@@ -372,7 +660,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.8 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58802.jpg" />
 </div>
 
 
@@ -383,293 +671,6 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B114FE7D953CC392CB1776441E6BD69DBDD6B55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718190   (58795) от 23.04.2024
-
-Windows 10 Manager 3.9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A1EBA6123CE0F2D54A4DE088A74F6F3F1D875C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718113   (58792) от 23.04.2024
-
-EF Commander 24.05 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58792.jpg" />
-</div>
-
-
-###  Подробнее
-
-EF Commander  — замечательный двухпанельный файловый менеджер с почти неограниченными возможностями, простой в использовании и крайне нетребователен к ресурсам компьютера. Используется для управления файлами самых разнообразных типов и форматов, выполнен в стиле Total Commander, но несколько отличающийся от последнего функциями и интерфейсом.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9098E01279EEBE4998AD8239D2145B037CE125C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718189   (58791) от 23.04.2024
-
-Windows 10 Manager 3.9.4 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A007158F0D4021289B812E69C9868C28AAF2984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718177   (58790) от 23.04.2024
-
-HopToDesk 1.41.9.0 Portable + Install [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58790.jpg" />
-</div>
-
-
-###  Подробнее
-
-HopToDesk - это бесплатный инструмент для удаленного управления и демонстрации экрана. Легко выполняйте совместное использование экрана, удаленную помощь, передачу файлов и чат с удаленным коллегой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E151342E2C56159305119748FFC65F5B46CCD3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718186   (58786) от 23.04.2024
-
-WinToUSB Technician 8.8 (x64) Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58786.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2970D06225FBB6BA98AF39D0107C3AFBBBD7736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718193   (58785) от 23.04.2024
-
-Balabolka 2.15.0.869 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Балаболка (Balabolka) - программа предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.
-Воспроизведение речи можно контролировать при помощи стандартных кнопок, подобных тем, что присутствуют в любой мультимедийной программе ("воспроизвести/приостановить/остановить"). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3843C699CC212FBD0ED0D4500C8B7A216DABF0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718050   (58784) от 23.04.2024
-
-Icecream Screen Recorder PRO 7.40 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Screen Recorder – простая программа для записи видео с экрана, которая позволяет записывать любую зону экрана или сделать ее скриншот. Записывайте видеоинструкции, приложения и игры, вэбинары, онлайн видео, звонки через Skype и многое другое. Осуществляйте запись экрана со звуком и вебкамерой.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274B146D7419AF447AAA9BC10FAB40817DBFF7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718140   (58781) от 23.04.2024
-
-Topaz Video AI 5.0.2 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2147B1F541DE6B807B8A7E75F4F88B3DEEA635F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718200   (58776) от 23.04.2024
-
-Wondershare UniConverter Ultimate 15.5.7.61 (х64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAD336EF175D60F6B4A3E0D122DBB0941AB52F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718206   (58774) от 23.04.2024
-
-UltraSearch Professional 4.1.3.915 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58774.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraSearch Professional находит файлы и папки на локальных дисках NTFS и представляет результаты поиска за считанные секунды. Программа не работает с индексом, хранящимся на жестком диске, но достигает высокой скорости благодаря работе напрямую с главной файловой таблицей (MFT) разделов NTFS. Может идентифицировать даже жесткие ссылки в NTFS. Просто введите имя (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F6935A06EA42BB99F6AF50E12E00377BD4C436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718068   (58771) от 23.04.2024
-
-Firefox Browser 125.0.2 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25DB63128F8B48A910A291045930784F95A82C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1039769   (594801) от 02.08.2016
+
+VA - Beatport Trance Pack 01.08. (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel & Digital X Ft Sylvia Tosun -  Winterburn (Jorn van Deynhoven Extended Remix) 5:30
+02. Nomosk -  Undine (Original Mix) 6:20
+03. Talla 2XLC -  From Here To Eternity (Original Mix) 6:41
+04. Willem De Roo -  Warrior (Extended Mix) 5:00(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6F35D4306E05761A2A921EB1340C66C5A22EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039564   (594792) от 02.08.2016
+
+VA - 50 Ultimate Dance Hits Function (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twiig -  We Are 3:00
+02. Disco Killerz And Liquid Todd Ft Jimmy Gnecco -  Stellar (Aiden Jude Remix) 6:06
+03. Blutonium Boy -  Midnight (Blutonium Boy Mix) 6:14
+04. NIVIRO -  Illuminate 3:34(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 04:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD533F006D671E5ED30C262834F08518C1B141E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039797   (594791) от 02.08.2016
 
 VA - Trance Energy (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
@@ -6,7 +64,7 @@ VA - Trance Energy (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594791.jpg" />
+  <img src="Z:/picture/008/save_picture_594791.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Space Night: Lounge Chill Out Journey Through The Universe (2016) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594679.jpg" />
+  <img src="Z:/picture/008/save_picture_594679.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Top Party Hits Eternal (2016) [MP3|320 Kbps] <House, Electro House, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594574.jpg" />
+  <img src="Z:/picture/008/save_picture_594574.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Hot Parade Trance Summer (2018) [MP3|320 Kbps] <Trance, Club Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593944.jpg" />
+  <img src="Z:/picture/008/save_picture_593944.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart 585 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593685.jpg" />
+  <img src="Z:/picture/008/save_picture_593685.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Ene
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593655.jpg" />
+  <img src="Z:/picture/008/save_picture_593655.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Ener
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593652.jpg" />
+  <img src="Z:/picture/008/save_picture_593652.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Virtual Vision (2022) [MP3|320 Kbps] <Electronic, Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592893.jpg" />
+  <img src="Z:/picture/008/save_picture_592893.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Y-Zotope: Relax Synthetic Sounds Mix (2022) [MP3|320 Kbps] <Relax Electroni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592891.jpg" />
+  <img src="Z:/picture/008/save_picture_592891.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Lyrical Rhythm And Blues (2022) [MP3|320 Kbps] <R&B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592840.jpg" />
+  <img src="Z:/picture/008/save_picture_592840.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Tech House: Mashup Urban Mix (2022) [MP3|320 Kbps] <Club, Tech House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592641.jpg" />
+  <img src="Z:/picture/008/save_picture_592641.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Record Super Chart 07.05.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592485.jpg" />
+  <img src="Z:/picture/008/save_picture_592485.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - 80's Synthpop Vol. 2 (2022) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592479.jpg" />
+  <img src="Z:/picture/008/save_picture_592479.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Resident Advisor Top 50 Charted Tracks For June (2015) [MP3|320 кб/с]<Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592392.jpg" />
+  <img src="Z:/picture/008/save_picture_592392.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592337.jpg" />
+  <img src="Z:/picture/008/save_picture_592337.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Beatport Indie Dance / Nu Disco Top 100 June (2015) [MP3|320 кб/с]<Indie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591399.jpg" />
+  <img src="Z:/picture/008/save_picture_591399.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - 100 Волшебных треков Chillout (2015) [MP3|160-320 кб/с]<C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591331.jpg" />
+  <img src="Z:/picture/008/save_picture_591331.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Sub Morphine - Long Drive (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowa
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590671.jpg" />
+  <img src="Z:/picture/008/save_picture_590671.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Spring Clubbing EDM Party (2022) [MP3|320 Kbps] <Club, Dance, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590668.jpg" />
+  <img src="Z:/picture/008/save_picture_590668.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Trance Shivers Vol.1-22 (2013-2014)(Обновляемая) [MP3|320 кб/�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590498.jpg" />
+  <img src="Z:/picture/008/save_picture_590498.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Dj Parafich - Pumping (Scouse) Romantica vol. 14 [Ultimate Energy 2] (2015) [MP3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589642.jpg" />
+  <img src="Z:/picture/008/save_picture_589642.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589588.jpg" />
+  <img src="Z:/picture/008/save_picture_589588.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Extra Lounge (episode 9) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589106.jpg" />
+  <img src="Z:/picture/008/save_picture_589106.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Dub step from evolinte vol.17 (2011) [MP3|320 kbps]<Dubstep, Drumstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588059.jpg" />
+  <img src="Z:/picture/008/save_picture_588059.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ VA - Dub step from evolinte vol.17 (2011) [MP3|320 kbps]<Dubstep, Drumstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3761D2E0FB0E0C7108029DB073E190F4169478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917300   (587934) от 14.07.2015
-
-VA - Beatport Top 100 Deep House June (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kollektiv Turmstrasse - Sorry I Am Late
-02. Enzo Siffredi - Sometimes
-03. Dusky - Skin Deep (Original Mix)
-04. Volkoder - Sensation (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F3FDB72D9AEF9674852E9AE6C1EE7DC827DD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040284   (587466) от 04.08.2016
-
-VA - Top 100 EDM Songs & DJ Tracks July (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Human Resources -  Dominator (Extended Mix) 4:22
-002. W&W & Hardwell feat. Lil Jon -  Live The Night (Extended Mix) 4:34
-003. Will Sparks feat. Luciana -  Stay Up Till The Mornin (Original Mix) 3:19
-004. EDX -  Roadkill (EDX's Ibiza Sunrise Remix) 6:16(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 10:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E772AE3329C9074BE054888BACBA85F896452A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

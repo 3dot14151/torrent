@@ -1,3 +1,148 @@
+###  Публикация: 1649389   (229371) от 28.07.2023
+
+Sgt. Splendor - Death Of The Hoochie Koo (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Be The Borrowed Crown (4:18)
+02. Death Of The Hoochie Koo (3:27)
+03. Lips Are Movin' (2:42)
+04. Lay Me Back Down (3:32)(   Читать дальше...   )Жанр: Desert RockПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03D7B68DCB967CB6AC83DA19456AC89CAE77F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649498   (229355) от 28.07.2023
+
+Carlos Lucena - Medium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 260 Pasos [00:02:36]
+02. El Festin de las Almas Oscuras [00:03:40]
+03. La Fila [00:05:20]
+04. Un Refugio en el Viento [00:03:45](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E25BC909EBAF75CEC930F0016AA4A3D186121E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512853   (229313) от 26.11.2021
+
+Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me
+02. Feel The Fire
+03. Angels Fear To Tread
+04. Lonely Too(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53378D3B9FC9BAD734F9BB68E94D263626B8D02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583471   (229214) от 15.10.2022
+
+Red Usurper - Abandon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Groove>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomad
+02. Last God
+03. The Calling
+04. Shadows(   Читать дальше...   )Жанр: Sludge, Doom, GrooveПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2474FEA224FEC928A1636D61A2B5F12C71ECD367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583391   (229154) от 15.10.2022
+
+Sudden Deaf - Havoc (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Proto Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Down [00:04:41]
+02. Mind Control [00:08:00]
+03. Raging Storm [00:05:57]
+04. Headhunter [00:03:54](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Proto MetalПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F786712AFCF2DBD5E11A8455A8126D2DFDB706C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583465   (229098) от 15.10.2022
 
 Sea Of Snakes - The Serpent & The Lamb (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
@@ -6,7 +151,7 @@ Sea Of Snakes - The Serpent & The Lamb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229098.jpg" />
+  <img src="Z:/picture/004/save_picture_229098.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Diamondback - American Made (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229088.jpg" />
+  <img src="Z:/picture/004/save_picture_229088.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Grin - Phantom Knocks (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229055.jpg" />
+  <img src="Z:/picture/004/save_picture_229055.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Killer Kings - Burn For Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229022.jpg" />
+  <img src="Z:/picture/004/save_picture_229022.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Perfect Plan - Brace For Impact (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228998.jpg" />
+  <img src="Z:/picture/004/save_picture_228998.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Chris Norman - Definitive Collection: Smokie And Solo Years (2018) 2CD, Compilat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228967.jpg" />
+  <img src="Z:/picture/004/save_picture_228967.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Tony Valentino - Dirty Water Revisited (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228766.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Dorian Wilde - Smell My Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228708.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Annalist - Artemis (1995) [FLAC|Lossless|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228584.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Nolan Potter's Nightmare Band - Honey - Tales From the Library of the Occult (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228551.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Coure - Inversum Nema (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228137.jpg" />
+  <img src="Z:/picture/005/save_picture_228137.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Negative Concept - Unwelcome (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228130.jpg" />
+  <img src="Z:/picture/005/save_picture_228130.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Satin - Appetition (2022) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228097.jpg" />
+  <img src="Z:/picture/005/save_picture_228097.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ The Southern Pilots - Southern Shuffle (2022) [FLAC|Lossless|WEB-DL|tracks] <Sou
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228065.jpg" />
+  <img src="Z:/picture/005/save_picture_228065.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Dawn Patrol - Bring On The Good Times (2022) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228034.jpg" />
+  <img src="Z:/picture/005/save_picture_228034.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Chris Rea - Auberge (1991) [FLAC|Lossless|image + .cue]<Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228007.jpg" />
+  <img src="Z:/picture/005/save_picture_228007.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Nielsen/Pearson - Nielsen/Pearson & Blind Luck (1980-1983) Japanese Edition, Rem
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227953.jpg" />
+  <img src="Z:/picture/005/save_picture_227953.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Magma - Kartehl (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227924.jpg" />
+  <img src="Z:/picture/005/save_picture_227924.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ SoMaD - Story of Marion & Damiel (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227889.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Orianthi - Rock Candy (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227880.jpg" />
+  <img src="Z:/picture/005/save_picture_227880.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Nightmare Screen - The Slumber (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227868.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Nightmare Screen - The Slumber (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F77B7811D750C4D02DA76B2571938FBEC6A4FFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649692   (227846) от 30.07.2023
-
-Fish - Clutching At Stars Live in The USA 2008 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slainth Mhath (Nearfest Live) [00:05:38]
-02. Circle Line (Nearfest Live) [00:06:36]
-03. Square Go (Nearfest Live) [00:05:10]
-04. Open Water (Nearfest Live) [00:09:46](   Читать дальше...   )Жанр: RockПродолжительность: 02:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5B0C419B15A080BD7805A9C9F81E22EC496EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649901   (227831) от 30.07.2023
-
-Gunn - Truscinski - Nace - Glass Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entrance [00:03:00]
-02. On Lamp [00:03:47]
-03. Tape [00:06:48]
-04. Venus [00:03:33](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7835601A5279195EA050FA82CC0908597C6BF056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650028   (227823) от 30.07.2023
-
-Turkish Delight - Khalil Turk & Friends Vol.2 (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Knows Your Name (4:22)
-02. Come On (4:09)
-03. Destiny (4:46)
-04. I Am Ready (5:05)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB0239B6B88434903059A81202A400091548EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649977   (227738) от 30.07.2023
-
-Redhaze - Time 2 Ride (2023) 2 x CD [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227738.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - The Album :
-01. Angel of Mine (6:00)
-02. Everything (4:37)
-03. I Depend (4:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A1178247871C48D33789447816CD8308127F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650032   (227722) от 30.07.2023
-
-Ian Moss - Rivers Run Dry (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rivers Run Dry (4:49)
-02. Nullarbor Plain (3:31)
-03. State Of My Emotion (3:48)
-04. Bury Me (Backing Vocals – Kasey Chambers) (4:14)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0199343F9311E46939BA2100550EE71E11A34063
 ```
 
 https://mybot314.ru/tekegram_catalog/

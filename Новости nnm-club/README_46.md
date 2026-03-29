@@ -1,3 +1,109 @@
+###  Публикация: 868254   (897105) от 11.02.2015
+
+Kali Linux 1.1.0 (ex. BackTrack) (Аудит безопасности, хакинг) [i386, amd64] 2xDVD + 2хCD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897105.jpg" />
+</div>
+
+
+###  Подробнее
+
+После двух лет разработки представлен выпуск дистрибутива Kali Linux 1.1.0, продолжающего развитие проекта BackTrack Linux и предназначенного для проведения тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+Kali включает одну из самых полных подборок инструментов для специалистов в области компьютерной безопасности: от средств для тестирования web-приложений и проникновения в беспроводные сети, до программ для считывания (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C267B98D467B70FF189FCFECA413ADB11721DDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822008   (897089) от 11.02.2015
+
+Dilogy Sacred 2-3 [PS3] [EUR/USA] [Multi5] [2.60, 4.55] [5 DLC] [Cobra ODE / E3 ODE PRO ISO] (2011-2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sacred 3 — beat' em up, действие которого разворачивается в фэнтезийном мире. Сюжет рассказывает о том, как Серафимы, стражи легендарного Сердца Анкарии, веками поддерживавшие порядок мироздания, начали забывать о своих связях с людьми. Воспользовавшись этим, Лорд Зейн, правитель империи Пепла, заключил союз с демонами и открыл портал в царство тьмы. Общий враг заставил (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Deep SilverЖанр: Beat 'em up / Action (Slasher)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4B794828E1A7B6128FEC9E5C8AF9512722768E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 687864   (897064) от 11.02.2015
+
+The Cat Lady / Кошатница (2012) [Ru/Multi] (1.5) RePack Let'sPlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзен Эшворт, одинокая женщина 40 лет… устала жить. Она больше не видит ни в чём смысла и единственное, чего она сейчас хочет — это просто перестать существовать. «Спасибо за ничего» — завершает она предсмертную записку и принимает огромную дозу снотворного. Чувствуя долгожданные покой и умиротворение, миссис Эшворт безболезненно умирает. Кажущееся бесконечным поле (   Читать дальше...   )Тип издания: RePackРазработчик: Harvester GamesЖанр: Adventure / Survival horror / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Финский, Венгерский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Финский, Венгерский, Бразильский (Португальский)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488F6F3AEEBA84C66A94E05F824199CD7D1D49C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100934   (897001) от 05.02.2017
+
+Resident Evil / Biohazard HD Remaster (2015) [Ru] (1.0) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F5529B38CF286E551407C787260D9415467460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867155   (896997) от 05.02.2017
 
 VLC for Android 2.1.0 Beta [Ru] - Медиаплеер
@@ -6,7 +112,7 @@ VLC for Android 2.1.0 Beta [Ru] - Медиаплеер
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896997.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896996.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ BELOFF 2017.2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896993.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896991.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ ArtMoney Pro 7.45.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896990.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896988.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896985.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Microsoft объединит платформы Xbox и PC
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896814.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896807.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ E.T. Armies (2016) [En] (1.0) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896705.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896699.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896682.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896673.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896251.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ NVIDIA GeForce Desktop 378.57 Hotfix driver + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895488.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Windows 10 PE (x86/x64) v.4.9.1 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895376.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894938.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894918.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894911.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894904.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/upd#4b) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894884.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) Rip YelloSOFT [Digital Del
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893800.jpg" />
 </div>
 
 
@@ -567,110 +673,6 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) Rip YelloSOFT [Digital Del
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:979276753E7B84816866A9F2332FED0770EBD16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869137   (893793) от 13.02.2015
-
-Левиафан (2014) BDRip [1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893793.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский) (Лицензия FRE)Субтитры: ОтсутствуютПродолжительность: 02:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9BE157BAAE394D0761C4A1F8DC072BBDA7FC4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101792   (893783) от 07.02.2017
-
-ESET NOD32 Antivirus 10.0.390.0 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антивирус NOD32 - новое антивирусное решение от ESET, предлагающее улучшенный эвристический анализ неизвестных угроз, "облачные" технологии ESET Live Grid для определения репутации файлов и обновленный интерфейс. Включает возможности автоматического сканирования компьютера во время его простоя, проверки файлов непосредственно во время загрузки и возможность (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8612244326D814F5DD583D13083BBA65C16A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101752   (893772) от 07.02.2017
-
-DLL Suite 9.0.0.14 RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893772.jpg" />
-</div>
-
-
-###  Подробнее
-
-DLL Suite позволяет поддерживать в актуальном состоянии весь набор необходимых динамических библиотек DLL в системах Windows. Благодаря встроенному инструментарию, приложение может автоматически скачивать из сети интернет и устанавливать в систему отсутствующие и поврежденные файлы библиотек. DLL Suite дает возможность исправить "ошибки отсутствующих .dll", (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37D2BAE550F0A4AF52FF15B673E9BA70AD894CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493411   (893686) от 04.09.2021
-
-Россия и Япония объединились для борьбы с мировой катастрофой
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках VI Восточного экономического форума (ВЭФ) Россия и Япония решили объединить усилия для борьбы с глобальным потеплением. Чтобы предотвратить мировую катастрофу, страны будут сотрудничать в производстве альтернативного топлива и устранении вредных выбросов, пишет Reuters.Договор подписали министр промышленности Японии Хироси Кадзияма и министр энергетики России (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

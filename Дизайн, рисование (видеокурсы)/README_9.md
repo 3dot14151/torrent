@@ -1,3 +1,30 @@
+###  Публикация: 1451421   (1028307) от 02.03.2021
+
+Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028307.jpg" />
+</div>
+
+
+###  Подробнее
+
+В процессе того, как студенты будут развивать набор базовых навыков, в этом курсе будет сделан акцент на понимании и применении этих основ к человеческой фигуре. В этом курсе также подчеркиваются процессуально ориентированный подход и анализ формы фигуры, ее конструкции и перспективы.
+Этот курс подразумевает глубокое изучение фигуры и анатомии, а также не упускает (   Читать дальше...   )Производство: CGMA 2D AcademyЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA078F916313DFB9379473EA9C273047E89EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451564   (1028288) от 02.03.2021
 
 Анна Эгида | Рисуем светом (2021) PCRec
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028288.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028148.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ TargetHunter | Дизайн ВКонтакте (2021) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028142.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ CG Boost, Martin Klekner | Мастер 3D окружения в Blender 2.9 / M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027801.jpg" />
 </div>
 
 
@@ -118,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027654.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027499.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027482.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ Gleb Alexandrov, Aidy Burrows | Space VFX Elements: Creating the Galaxy in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027474.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Samuel Rodriguez | Творческая портретная иллюстрац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027449.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ Camille Kleinman | Camille Bathing Robe Workshop (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027348.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Mike Jensen | ZBrush Hard Surface Techniques 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027298.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ Mike Jensen | ZBrush Hard Surface Techniques (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027296.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ Camille Kleinman | Jackets & Coats Workshop (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027295.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ Camille Kleinman | Mastering Marvelous Designer: Beginners Course (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027279.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027277.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ Stephen Silver | Advanced Character Design (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027159.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ Sephiroth Art | Gumroad collection - Tutorials & Brushes (2019) HDTV [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026516.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ Mark Fancher | Rigid Body Destruction (2020) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026370.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ David Lesperance | Introduction to Game Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026211.jpg" />
 </div>
 
 
@@ -522,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026108.jpg" />
 </div>
 
 
@@ -548,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026094.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026080.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026053.jpg" />
 </div>
 
 
@@ -626,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025931.jpg" />
 </div>
 
 
@@ -652,7 +679,7 @@ Thiago Klafke | Making an Office Environment in Unreal 4 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025908.jpg" />
 </div>
 
 
@@ -664,32 +691,6 @@ Thiago Klafke | Making an Office Environment in Unreal 4 (2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365D0436389CA7C8617CABD863B203196B2E996A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455693   (1025335) от 20.03.2021
-
-Евгений Грипинский | Энциклопедия Школы 3D Евгения Грипинского (2013-2021) PCRec
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача - составить качественную и понятную базу уроков для всех моих подписчиков. Работа над "Энциклопедией" ведется постоянно: каждую неделю добавляются новые видео. Пока добавлена база по моделингу. Через неделю планирую добавить несколько видео о материалах в Corona Renderer, потом свет. Если вы новичек, но пока не можете позволить учиться в моей школе (   Читать дальше...   )Производство: 3D School GripinskyЖанр: Создание видеоПродолжительность: 32:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE989E8900EB9DCA3B06EDDEABC5082F62099542
 ```
 
 https://mybot314.ru/tekegram_catalog/

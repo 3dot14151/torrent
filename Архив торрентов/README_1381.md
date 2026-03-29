@@ -6,7 +6,7 @@ VA - 90er Trance (2019) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741151.jpg" />
+  <img src="Z:/picture/008/save_picture_741151.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Calendar 366 Plus 1.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741130.jpg" />
+  <img src="Z:/picture/008/save_picture_741130.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ PrimoMusic Pro 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741123.jpg" />
+  <img src="Z:/picture/008/save_picture_741123.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ ExLibris 8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741112.jpg" />
+  <img src="Z:/picture/008/save_picture_741112.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Screen Translator 3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741108.jpg" />
+  <img src="Z:/picture/008/save_picture_741108.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741077.jpg" />
+  <img src="Z:/picture/008/save_picture_741077.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741076.jpg" />
+  <img src="Z:/picture/008/save_picture_741076.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741075.jpg" />
+  <img src="Z:/picture/008/save_picture_741075.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Airborne Angel - The Collection (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741069.jpg" />
+  <img src="Z:/picture/008/save_picture_741069.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Thylacine - Roads, Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Dee
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741063.jpg" />
+  <img src="Z:/picture/008/save_picture_741063.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Fakear - All Glows (2018) [FLAC|Lossless|tracks + .cue] <Experimental, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741061.jpg" />
+  <img src="Z:/picture/008/save_picture_741061.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Privacy Eraser Free 4.47.2 Build 2778 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741057.jpg" />
+  <img src="Z:/picture/008/save_picture_741057.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Vivaldi 2.3.1440.48 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741053.jpg" />
+  <img src="Z:/picture/008/save_picture_741053.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741052.jpg" />
+  <img src="Z:/picture/008/save_picture_741052.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ ST1M - Калейдоскоп (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741051.jpg" />
+  <img src="Z:/picture/008/save_picture_741051.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ WinUtilities Professional Edition 15.47 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741047.jpg" />
+  <img src="Z:/picture/008/save_picture_741047.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Pastebot 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741016.jpg" />
+  <img src="Z:/picture/008/save_picture_741016.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741014.jpg" />
+  <img src="Z:/picture/008/save_picture_741014.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Inti (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741012.jpg" />
+  <img src="Z:/picture/008/save_picture_741012.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ One Chat - All in one Messenger 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741008.jpg" />
+  <img src="Z:/picture/008/save_picture_741008.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741007.jpg" />
+  <img src="Z:/picture/008/save_picture_741007.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PicturesToExe Deluxe 9.0.9 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740999.jpg" />
+  <img src="Z:/picture/008/save_picture_740999.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ John Digweed - Transitions (612-613) (2016) [MP3|192 кб/с] <Progressive House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740991.jpg" />
+  <img src="Z:/picture/008/save_picture_740991.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Parra For Cuva & Senoy - Darwis (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740984.jpg" />
+  <img src="Z:/picture/008/save_picture_740984.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Framer Studio 63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740983.jpg" />
+  <img src="Z:/picture/008/save_picture_740983.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Advanced Installer 15.7 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740972.jpg" />
+  <img src="Z:/picture/008/save_picture_740972.jpg" />
 </div>
 
 

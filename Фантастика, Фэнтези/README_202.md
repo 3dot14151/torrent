@@ -1,3 +1,55 @@
+###  Публикация: 1263816   (285753) от 20.11.2018
+
+Ларри Нивен | Мир-Кольцо. Строители Мира-Кольца [сборник] (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285753.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Известном космосе обнаружен невероятный объект искусственного происхождения, и изучать его отправляется столь же невероятная экспедиция. В ее составе Луис Ву, искатель приключений, проживший слишком много лет слишком насыщенной жизнью; Несс, представитель расы кукольников Пирсона, вечно трясущих от страха и способных к самозащите разве что в состоянии безумия; (   Читать дальше...   )Жанр: Зарубежная фантастика, Космическая фантастика, Научная фантастикаПеревод: Кирилл ПлешковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF36C1711513C15BA3A20842BB2CE4EE5161C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263711   (285592) от 20.11.2018
+
+Денис Кащеев | Цикл «Неправильное число» [2 книги] (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285592.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве открывается новый клуб под названием «Ковчег», который в итоге должен был стать самым грандиозным парком развлечений то ли по мотивам «Звездных Войн», то ли «Звездного пути», то ли еще какого-то фантастического фильма о космосе. Место необычное, и попасть на открытие не так просто. Билеты купить нельзя: их дают в некотором смысле «избранным». Настя таковой (   Читать дальше...   )Жанр: Детективная фантастика, Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF6CA5784EF1B7247486D641B6E9F09E53A79D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263709   (285587) от 20.11.2018
 
 Юн Ха Ли | Гамбит девятихвостого лиса (2018) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285587.jpg" />
+  <img src="Z:/picture/008/save_picture_285587.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285496.jpg" />
+  <img src="Z:/picture/008/save_picture_285496.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285294.jpg" />
+  <img src="Z:/picture/008/save_picture_285294.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285119.jpg" />
+  <img src="Z:/picture/008/save_picture_285119.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285118.jpg" />
+  <img src="Z:/picture/008/save_picture_285118.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285075.jpg" />
+  <img src="Z:/picture/008/save_picture_285075.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285050.jpg" />
+  <img src="Z:/picture/008/save_picture_285050.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284582.jpg" />
+  <img src="Z:/picture/008/save_picture_284582.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284395.jpg" />
+  <img src="Z:/picture/008/save_picture_284395.jpg" />
 </div>
 
 
@@ -257,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284196.jpg" />
+  <img src="Z:/picture/008/save_picture_284196.jpg" />
 </div>
 
 
@@ -285,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284050.jpg" />
+  <img src="Z:/picture/008/save_picture_284050.jpg" />
 </div>
 
 
@@ -312,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284044.jpg" />
+  <img src="Z:/picture/008/save_picture_284044.jpg" />
 </div>
 
 
@@ -341,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284019.jpg" />
+  <img src="Z:/picture/008/save_picture_284019.jpg" />
 </div>
 
 
@@ -367,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284018.jpg" />
+  <img src="Z:/picture/008/save_picture_284018.jpg" />
 </div>
 
 
@@ -393,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283886.jpg" />
+  <img src="Z:/picture/008/save_picture_283886.jpg" />
 </div>
 
 
@@ -420,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283637.jpg" />
+  <img src="Z:/picture/008/save_picture_283637.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283378.jpg" />
+  <img src="Z:/picture/008/save_picture_283378.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282775.jpg" />
+  <img src="Z:/picture/008/save_picture_282775.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282558.jpg" />
+  <img src="Z:/picture/008/save_picture_282558.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282388.jpg" />
+  <img src="Z:/picture/008/save_picture_282388.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282365.jpg" />
+  <img src="Z:/picture/008/save_picture_282365.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282329.jpg" />
+  <img src="Z:/picture/008/save_picture_282329.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282194.jpg" />
+  <img src="Z:/picture/008/save_picture_282194.jpg" />
 </div>
 
 
@@ -637,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282032.jpg" />
+  <img src="Z:/picture/008/save_picture_282032.jpg" />
 </div>
 
 
@@ -648,61 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0CD11F5E5961ECE55D56B7EE3113E7B65FD0E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186867   (281894) от 27.11.2017
-
-Стивен Кинг | Четыре сезона (2015) [PDF, DJVU, FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре сезона ужаса. Четыре времени года, и каждое - страшный сон, ставший реальностью. Весна - и невинный человек приговорен к пожизненному заключению в тюремном аду, где нет надежды, откуда нет выхода... Лето - и где-то в маленьком городке медленно сходит с ума тихий отличник, ставший способным учеником нацистского преступника... Осень - и четверо изнывающих от (   Читать дальше...   )Жанр: Фантастика, мистикаПеревод: В. В. АнтоновФормат: PDF, DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8A5A90DAF77439B192C6E5B1A8F6D8D5AB5B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081631   (281852) от 10.12.2016
-
-Стивен Кинг | Пост сдал (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Трилогия Билла Ходжеса».
-
-В больничной палате номер 217 пробудилось нечто ужасное. Нечто, скрывающееся внутри Брейди Хартсфилда, одержимого маньяка по прозвищу Мистер Мерседес. Хотя он по-прежнему не в состоянии говорить и двигаться, его сознание бодрствует.
-Но кто способен даже на мгновение предположить, что за потрясшей город серией таинственных (   Читать дальше...   )Жанр: Зарубежное фэнтези, Зарубежные детективы, Современные детективы, Триллеры, Ужасы и МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E232533EC19C409D5A5EE22902B3040A5813C90
 ```
 
 https://mybot314.ru/tekegram_catalog/

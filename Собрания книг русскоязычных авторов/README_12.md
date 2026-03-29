@@ -1,3 +1,84 @@
+###  Публикация: 359879   (546179) от 02.09.2016
+
+Ильф Илья и Евгений Петров | Собрание сочинений [1986-2008] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546179.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1927 с совместной работы над романом «Двенадцать стульев» началось творческое содружество Ильи Ильфа и Евгения Петрова (который также работал в газете «Гудок»).
+Впоследствии в соавторстве с Евгением Петровым были написаны:
+• роман «Двенадцать стульев» (1928);
+• роман «Золотой телёнок» (1931);(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2960A23FA849548EDF7FCA655DDB41FD462765F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048858   (545515) от 03.09.2016
+
+Михаил Михайлович Зощенко | Собрание сочинений в 5-ти томах [5 томов] (1993-1994) [PDF, DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Михайлович Зощенко (1894—1958) занимает своё особое место в советской литературе как непревзойдённый рассказчик, создавший комический образ героя-обывателя, героя-мещанина с острым сатирическим звучанием. И не случайно его правдивые произведения оценивались часто партийными кругами как «клевета на советскую действительность».Жанр: Классическая литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2940941C22F5CD8648D5AA8DE8AB33FD70E9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924922   (542413) от 05.08.2015
+
+Михаил Булгаков | Собрание сочинений в 10 томах (1995-2000) [PDF]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542413.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя:  В настоящем Собрании сочинений представлены все художественные произведения Михаила Булгакова, созданные им на протяжении 20 лет литературной работы (романы, повести, рассказы, драматические произведения, фельетоны и очерки), а также эпистолярное наследие писателя.Жанр: Классическая и современная прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA6208DE236F98C24B6F22DE089F73BBCFCE705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531534   (541751) от 05.08.2012
 
 Николай Карамзин | Сочинения Карамзина (9 раритетных книг)  [1834-1835] [PDF]
@@ -6,7 +87,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541751.jpg" />
+  <img src="Z:/picture/008/save_picture_541751.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539428.jpg" />
+  <img src="Z:/picture/008/save_picture_539428.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529614.jpg" />
+  <img src="Z:/picture/008/save_picture_529614.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529503.jpg" />
+  <img src="Z:/picture/008/save_picture_529503.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529463.jpg" />
+  <img src="Z:/picture/008/save_picture_529463.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529389.jpg" />
+  <img src="Z:/picture/008/save_picture_529389.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529333.jpg" />
+  <img src="Z:/picture/008/save_picture_529333.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527691.jpg" />
+  <img src="Z:/picture/008/save_picture_527691.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525817.jpg" />
+  <img src="Z:/picture/008/save_picture_525817.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524706.jpg" />
+  <img src="Z:/picture/008/save_picture_524706.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519967.jpg" />
+  <img src="Z:/picture/008/save_picture_519967.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519358.jpg" />
+  <img src="Z:/picture/008/save_picture_519358.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518592.jpg" />
+  <img src="Z:/picture/008/save_picture_518592.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515797.jpg" />
+  <img src="Z:/picture/008/save_picture_515797.jpg" />
 </div>
 
 
@@ -385,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514660.jpg" />
+  <img src="Z:/picture/008/save_picture_514660.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514138.jpg" />
+  <img src="Z:/picture/008/save_picture_514138.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510734.jpg" />
+  <img src="Z:/picture/008/save_picture_510734.jpg" />
 </div>
 
 
@@ -466,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507770.jpg" />
+  <img src="Z:/picture/008/save_picture_507770.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507332.jpg" />
+  <img src="Z:/picture/008/save_picture_507332.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504111.jpg" />
+  <img src="Z:/picture/008/save_picture_504111.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504073.jpg" />
+  <img src="Z:/picture/008/save_picture_504073.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502184.jpg" />
+  <img src="Z:/picture/008/save_picture_502184.jpg" />
 </div>
 
 
@@ -599,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500980.jpg" />
+  <img src="Z:/picture/008/save_picture_500980.jpg" />
 </div>
 
 
@@ -611,86 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06F9397702C6AF16C480D0A7FCE941B4BA9FA6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379904   (500803) от 26.08.2011
-
-Алексей Бессонов | Сборник произведений [1998-2011] [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Бессонов — один из ведущих авторов космической приключенческой фантастики. Он пишет интересно и умно. Сюжеты его книг не примитивны и интересны. Многие считают их лучшей «боевой» русскоязычной фантастикой на сегодняшний день.1998-2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BE222EFB2E07A42A41DCB84B0123D573DD938C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935125   (500060) от 07.09.2015
-
-Михаил Задорнов | Собрание сочинений [51 книга] (2005-2015) [FB2, PDF, DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаи́л Никола́евич Задо́рнов (21 июля 1948, Юрмала) — советский и российский писатель-сатирик, драматург, член Союза писателей России. Автор более десяти книг. Среди них — лирические и сатирические рассказы, юморески, очерки, путевые заметки и пьесы.
-Отец — Николай Павлович Задорнов. Мать — Елена Мельхиоровна Задорнова (урождённая Матусевич).
-В 1974 (   Читать дальше...   )Жанр: Юмор, Сатира, История, ПублицистикаФормат: FB2, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1437AD5BDD645FB57A17A7090124EA981D2E4470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936517   (493433) от 12.09.2015
-
-Елена Малиновская | Собрание сочинений [36 книг] (2007-2015) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малиновская Елена родилась в 1983 года в городе Булган, Монголия. Закончила Московский педагогический государственный университет имени Ленина (МПГУ им. Ленина), биолого-химический факультет. Работает в лабораторию молекулярной биологии Медико-генетического научного центра в должности старшего научного сотрудника. Кандидат биологических наук по специальности «Генетика». (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F39D6333B0ABBEA90C7EF867EA804886E0FAA83
 ```
 
 https://mybot314.ru/tekegram_catalog/

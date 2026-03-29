@@ -6,7 +6,7 @@ NetBalancer 9.17.3 Build 2303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846695.jpg" />
+  <img src="Z:/picture/008/save_picture_846695.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Unity Pro 2018.4.20f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846685.jpg" />
+  <img src="Z:/picture/008/save_picture_846685.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ IsMyLcdOK 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846673.jpg" />
+  <img src="Z:/picture/008/save_picture_846673.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows Firewall Control 4.7.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846669.jpg" />
+  <img src="Z:/picture/008/save_picture_846669.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846644.jpg" />
+  <img src="Z:/picture/008/save_picture_846644.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mirillis Action! 4.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846610.jpg" />
+  <img src="Z:/picture/008/save_picture_846610.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Emurasoft EmEditor Professional 19.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846607.jpg" />
+  <img src="Z:/picture/008/save_picture_846607.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NetBalancer 9.17.3 Build 2303 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846601.jpg" />
+  <img src="Z:/picture/008/save_picture_846601.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Teorex PhotoStitcher 1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846597.jpg" />
+  <img src="Z:/picture/008/save_picture_846597.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ WinTools.net Premium 16.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846584.jpg" />
+  <img src="Z:/picture/008/save_picture_846584.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Reg Organizer 7.35 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846580.jpg" />
+  <img src="Z:/picture/008/save_picture_846580.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Your Universal MultiBoot Installer 2.0.4.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846563.jpg" />
+  <img src="Z:/picture/008/save_picture_846563.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Process Lasso Pro 8.9.8.98 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846562.jpg" />
+  <img src="Z:/picture/008/save_picture_846562.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846560.jpg" />
+  <img src="Z:/picture/008/save_picture_846560.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ iSendSMS [Ru] 2.1.3.637
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846540.jpg" />
+  <img src="Z:/picture/008/save_picture_846540.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ GeoGebra 6.0.579.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846534.jpg" />
+  <img src="Z:/picture/008/save_picture_846534.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Icecream Slideshow Maker PRO 4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846531.jpg" />
+  <img src="Z:/picture/008/save_picture_846531.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.1 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846525.jpg" />
+  <img src="Z:/picture/008/save_picture_846525.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Adware Removal Tool 5.1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846501.jpg" />
+  <img src="Z:/picture/008/save_picture_846501.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Reg Organizer 7.35 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846499.jpg" />
+  <img src="Z:/picture/008/save_picture_846499.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Wise Care 365 Pro 4.57.432 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846496.jpg" />
+  <img src="Z:/picture/008/save_picture_846496.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Teorex PhotoStitcher 2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846486.jpg" />
+  <img src="Z:/picture/008/save_picture_846486.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ PassMark RAMMon 1.0 build 1016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846485.jpg" />
+  <img src="Z:/picture/008/save_picture_846485.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Your Universal MultiBoot Installer UEFI 0.0.0.4 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846465.jpg" />
+  <img src="Z:/picture/008/save_picture_846465.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Microsoft Visual Studio 2019 Professional 16.5.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846454.jpg" />
+  <img src="Z:/picture/008/save_picture_846454.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ WinSCP 5.17.4 Build 10410 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846451.jpg" />
+  <img src="Z:/picture/008/save_picture_846451.jpg" />
 </div>
 
 

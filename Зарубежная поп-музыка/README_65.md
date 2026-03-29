@@ -1,3 +1,32 @@
+###  Публикация: 1265833   (273104) от 29.11.2018
+
+VA - Le Son Dancefloor 2019 (2018) 4CD [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273104.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. DJ Snake - Taki Taki
+02. Dynoro - In My Mind
+03. Kungs - Be Right Here(   Читать дальше...   )Жанр: DanceПродолжительность: 04:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77887CC017FDB79A3822B6CBA7C7DA08230E9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265482   (273048) от 29.11.2018
 
 VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
@@ -6,7 +35,7 @@ VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273048.jpg" />
+  <img src="Z:/picture/008/save_picture_273048.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jeff and Jane Hudson - The Middle (2016) [MP3|320 Kbps] <Alternative Pop, Synthp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273026.jpg" />
+  <img src="Z:/picture/008/save_picture_273026.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Boney M. & Friends - Top 40 - Boney M. & Friends (2017) 2CD [MP3|320 Kbps] <Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272363.jpg" />
+  <img src="Z:/picture/008/save_picture_272363.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 100 Hits – The Best Dance Album (2018) 5CD [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271910.jpg" />
+  <img src="Z:/picture/008/save_picture_271910.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Pop Muzik - Ultimate Synth-Pop Anthems (2019) 5CD [MP3|320 Kbps] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271646.jpg" />
+  <img src="Z:/picture/008/save_picture_271646.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - The Hits Album: The Car Album... On The Road Again (2019) 4CD [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271510.jpg" />
+  <img src="Z:/picture/008/save_picture_271510.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Future World Orchestra - Turning Point (1983) LP [MP3|320 Kbps] <Electronic, Syn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271332.jpg" />
+  <img src="Z:/picture/008/save_picture_271332.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - The #1 80s Love Album (2019) [MP3|320 Kbps] <Pop, SoftRock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270615.jpg" />
+  <img src="Z:/picture/008/save_picture_270615.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Earth And Fire - 9 Studio Albums (1970-1989) Discography [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270188.jpg" />
+  <img src="Z:/picture/008/save_picture_270188.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Booom 2019 the First (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270072.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Clubfete 2019 (63 Club Dance & Party Hits) (2018) [MP3|320 Kbps] <Dance, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270044.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Mandingo - Savage Rite (1977) LP [MP3|320 Kbps] <Funk, Soul, Afrobeat>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269865.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Party Fun 2020 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269854.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Creative Connection - 4 Singles & EPs (1985, 1986) 12" [MP3|320 Kbps] <Electroni
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269554.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Эстрадная орбита (1974) LP [MP3|320 Kbps] <Rock, Funk-Soul, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269433.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - 110 Hits 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269306.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Nu-Disco Selections, Vol. 13 (2019) [MP3|320 Kbps] <Nu Disco / Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269006.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sons Of Heroes - Sons Of Heroes (1983) LP [MP3|320 Kbps] <Electronic, Pop Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268892.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268391.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268192.jpg" />
+  <img src="Z:/picture/008/save_picture_268192.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268032.jpg" />
+  <img src="Z:/picture/008/save_picture_268032.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ YUKO - Коллекция (2017-2018) [MP3|320 Kbps] <Electro, Folk, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267806.jpg" />
+  <img src="Z:/picture/008/save_picture_267806.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267764.jpg" />
+  <img src="Z:/picture/008/save_picture_267764.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266038.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265804.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Best Driving EDM 2019 (2018) [MP3|320 Kbps] <Big Room, Dance, Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB27485A14E46D273184C349B8DFFC52CCBC184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339652   (265351) от 20.11.2019
-
-Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Understand (4:23)
-02. Depressed (2:38)
-03. The New York Rock (3:31)
-04. I've Found Love (3:17)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA30D180452378CBCA20C642B04715E84162159E
 ```
 
 https://mybot314.ru/tekegram_catalog/

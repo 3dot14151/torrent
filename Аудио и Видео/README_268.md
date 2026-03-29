@@ -6,7 +6,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151748.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151734.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151733.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151715.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151706.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151697.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151682.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Calm Down: Urban Chillout Music (2021) [AAC|~340 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151627.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151619.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - Space Cafe, Vol. III (Finest Chillout & Lounge Tracks) (2018) [AAC|~310 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151618.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - RAM Drum & Bass Annual 2022 (2021) [AAC|~325 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151599.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Space Cafe, Vol. II (Finest Chillout & Lounge Tracks) (2017) [AAC|~309 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151592.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [AAC|~307 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151554.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [AAC|~336 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151537.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151531.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [AAC|~351 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151518.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lara Fabian - Lockdown Sessions (2021) [AAC|~314 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151508.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151348.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Centum (2021) [AAC|~331 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149981.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Connecting The Dots (Alex Paterson) (2021) [AAC|~306 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149967.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Best of 2021 3rd Avenue (2021) [AAC|~335 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149953.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Connecting The Dots (Jonathan Kaspar) (2021) [AAC|~324 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149951.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Connecting The Dots (Tobias Thomas) (2021) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149932.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - FROZEN Purple (2021) [AAC|~305 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149920.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - Connecting The Dots (Robag Wruhme) (2021) [AAC|~305 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149905.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ VA - Classy Lounge (2021) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149892.jpg" />
 </div>
 
 

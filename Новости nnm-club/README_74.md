@@ -1,3 +1,107 @@
+###  Публикация: 1498567   (799291) от 01.11.2021
+
+ИГРА (2021) WEBRip [H.264/1080p-LQ] (сезон 1, выпуски 1-6 из ??) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799291.jpg" />
+</div>
+
+
+###  Подробнее
+
+85 комиков из 12 команд поборются за беспрецедентный для телеэфира приз – 30 миллионов рублей. В новом шоу, ведущим которого стал самый интеллигентный комик Евгений Чебатков, представителей разных поколений юмора разделят на «стариков» и «молодых». Они будут выступать в жанрах миниатюр, стендапа, импровизации, музыкальной комедии, инсценировок, абсурдного или любого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Азамат Мусагалиев, Алексей Щербаков, Рустам Рептилоид, Тамби Масаев, Дмитрий Кожома, Айдар Гараев, Артём Муратов, Иван Абрамов, Илья Макаров, Варвара Щербакова, Елена Гущина и др.Субтитры: ОтсутствуютПродолжительность: ~01:20:00 выпуск (~02:16:00 выпуск 1)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F512132E634847EE544546FCE49F0F1100CC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505752   (799289) от 01.11.2021
+
+Кощей. Начало (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799289.jpg" />
+</div>
+
+
+###  Подробнее
+
+В давние времена люди и сказочные существа жили вместе. Пока в Дивноземское княжество не нагрянул Белый призрак, безжалостный монстр, способный уничтожить весь мир. Но лишь одному герою под силу остановить чудище. Он молод, силен, красив, а еще водит байк… Его зовут Кощей.Производство: Россия / ПаровозЖанр: мультфильм, семейный, приключения, фэнтезиРежиссер: Андрей КолпинАктеры: Никита Волков, Ирина Старшенбаум, Арсений Перель, Тимур Родригез, Юрий Гальцев, Павел Баршак, Владислав Ветров, Ирина Медведева, Юлия Зимина, Мирослава КарповичСубтитры: РусскиеПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E23672AF3963D6352118560E489EF3B590A8064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273786   (799279) от 03.01.2019
+
+MyLifeOrganized Pro 5.0.1.3026 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799279.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyLifeOrganized простой и в то же время мощный инструмент ведения персональных задач. С помощью MLO Вы можете организовать Ваши дела в цели, проекты, задачи и подзадачи. Из полученного дерева задач может быть легко сформирован список конкретных дел, которыми следует заняться в данный момент. Этот список может быть отфильтрован с учетом текущего контекста, имеющегося (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803D18D80E2739B31B979F8E633884B803787008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067074   (799265) от 03.01.2019
+
+Alice VR (2016) [Ru/Multi] (1.0/u7) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alice VR - это остросюжетная исследовательская игра с множеством головоломок, уникальное приключение в виртуальной реальности. Игра создана по мотивам известной книги Льюиса Кэрролла "Алиса в Стране чудес", персонажи и сюжеты которой перенесены в фантастическую, инопланетную обстановку. Прекрасные пейзажи, стильная электронная музыка.Тип издания: LicenseРазработчик: Carbon StudioЖанр: Adventure, IndieЯзык озвучки: Английский и ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C28E7CB0BF9EE1B39C4372FDFD2AD0E598B416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091741   (798972) от 04.04.2017
 
 Военная хроника маленькой девочки: Сага о Злой Тане | Youjo Senki: Saga of Tanya the Evil [2017, TV, 12 эп. + 12 SP] WebRip 720p raw
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798972.jpg" />
+  <img src="Z:/picture/008/save_picture_798972.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798964.jpg" />
+  <img src="Z:/picture/008/save_picture_798964.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798961.jpg" />
+  <img src="Z:/picture/008/save_picture_798961.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Ubuntu*Pack 18.04 (декабрь 2018) [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798570.jpg" />
+  <img src="Z:/picture/008/save_picture_798570.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798569.jpg" />
+  <img src="Z:/picture/008/save_picture_798569.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798507.jpg" />
+  <img src="Z:/picture/008/save_picture_798507.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798326.jpg" />
+  <img src="Z:/picture/008/save_picture_798326.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798181.jpg" />
+  <img src="Z:/picture/008/save_picture_798181.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ W10 Digital Activation 1.4.3 by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798177.jpg" />
+  <img src="Z:/picture/008/save_picture_798177.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798028.jpg" />
+  <img src="Z:/picture/008/save_picture_798028.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BELOFF 2021.11 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798027.jpg" />
+  <img src="Z:/picture/008/save_picture_798027.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798026.jpg" />
+  <img src="Z:/picture/008/save_picture_798026.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798025.jpg" />
+  <img src="Z:/picture/008/save_picture_798025.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_797904.jpg" />
+  <img src="Z:/picture/005/save_picture_797904.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797843.jpg" />
+  <img src="Z:/picture/008/save_picture_797843.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797671.jpg" />
+  <img src="Z:/picture/008/save_picture_797671.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797237.jpg" />
+  <img src="Z:/picture/008/save_picture_797237.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797236.jpg" />
+  <img src="Z:/picture/008/save_picture_797236.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ MInstAll v.07.11.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797168.jpg" />
+  <img src="Z:/picture/008/save_picture_797168.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797078.jpg" />
+  <img src="Z:/picture/008/save_picture_797078.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_796782.jpg" />
+  <img src="Z:/picture/005/save_picture_796782.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_796762.jpg" />
+  <img src="Z:/picture/005/save_picture_796762.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085076   (796684) от 19.01.2018
-
-X3: Terran War Pack (2008-2011) [Ru/Multi] (3.4/3.3) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие X3: Albion Prelude происходит в промежуточный период между старой и новой вселенными Х. Равновесие сил пошатнулось, грядут грандиозные перемены. Старая вселенная Х исчезает, в то время как новой еще только предстоит появиться на свет. Война! Вселенная Х проходит через период масштабных потрясений. То, что началось как конфликт интересов землян и рас вселенной (   Читать дальше...   )Тип издания: LicenseРазработчик: EgosoftЖанр: Add-on, Simulator (Space), 3D, Privateer, TraderЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A073DEE6A42EEED88DC99B34E4BA93ED783CC2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508695   (796619) от 09.11.2021
-
-STAR WARS Jedi: Fallen Order (2019) [Ru/Multi] (1.0.10.0/dlc) License DARKSiDERS [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796619.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Звёздные Войны Джедаи: Павший Орден», боевике с видом от третьего лица от Respawn Entertainment, вас ждут приключения галактического масштаба. Действие этой сюжетной одиночной игры разворачивается после фильма «Эпизод III — Месть ситхов». Вам предстоит очутиться в роли джедая-падавана, которому едва удалось избежать уничтожения, санкционированного Приказом 66. (   Читать дальше...   )Тип издания: LicenseРазработчик: Respawn EntertainmentЖанр: Action (Shooter), Adventure, 3rd PersonЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFB6A1FBAAEDF6B79EDDC379B07FA19B2BF0F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011489   (796613) от 27.04.2016
-
-Internet Download Manager 6.25 Build 16 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BB4998267843144B00D055711494F1DD7759B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011208   (796576) от 27.04.2016
-
-ESET Smart Security 9.0.377.1 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796576.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Smart Security - новая версия комплексного антивируса NOD32 с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой защитой. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Антивор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2113CA47A4E84A249B7B5A92B997BF6D04EAEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

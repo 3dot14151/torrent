@@ -1,3 +1,119 @@
+###  Публикация: 1702327   (115814) от 24.02.2024
+
+Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day In London Town [4:18]
+02. Is You Is Or Is You Ain't My Baby [4:15]
+03. I've Got The World On A String [4:36]
+04. You Can Depend On Me (long version) [7:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D92D93C51ADD6812A7A377E0758F6CB25A5042D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702331   (115798) от 24.02.2024
+
+Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear Music [3:35]
+02. Tickle-Toe [2:58]
+03. Street of Dreams [2:11]
+04. How Long Has This Been Going On [4:07](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07034EC6619652410D9079CFC30AB4C2C9A7F8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702484   (115676) от 25.02.2024
+
+Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers (with Tommy Flanagan) [5:01]
+02. I've Got a Crush on You (with Tommy Flanagan) [6:06]
+03. Some Time Ago (with Renee Rosnes) [5:29]
+04. It's You or No One (with Renee Rosnes) [5:18](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFA722447CE40BE206E431A75AE02B3585A9A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702503   (115675) от 25.02.2024
+
+Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Millie [6:16]
+02. O Mama Enit [5:34]
+03. I Should Care [7:31]
+04. Rigor Mortez [6:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D1B9310219B36B2E9881EEC3053774728D0293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702480   (115674) от 25.02.2024
 
 Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
@@ -6,7 +122,7 @@ Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115674.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115673.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Kjell Karlsen Big Band - Edvard Grieg In Jazz Mood (2008) Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115663.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Blue Mitchell - Graffiti Blues (1973) 1993, Mainstream Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115482.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115312.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Sahib Shihab Quintet - Seeds (1968) 2008, Rearward [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115175.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115157.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115156.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114818.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Marian McPartland - Windows (1979, 1980) 2CD, 2004, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114807.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114806.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114802.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114787.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114661.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Pearl Django - Modern Times (2007) Modern Hot Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114644.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ George Rabbai & Brian Betz Trio - Muted Bebop (2006) Dreambox Media [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114626.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Houston Person - Truth! (1968, 1970) 1999, Prestige [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114624.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Lars Gullin - Portrait of the Legendary Baritone Saxophonist: Complete 1951-1955
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114622.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Avi Yifrah, Asher Fedi - The Avi Yifrah / Asher Fedi Project (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114620.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Donald Byrd - A City Called Heaven (1991) Landmark Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114614.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ben Webster & Buck Clayton - Ben And Buck (1967) 1995, Storyville Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114481.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114480.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9557CC4469AB07750D45D0022EAB206A373835DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704146   (114477) от 03.03.2024
-
-Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen to You [3:06]
-02. Darn That Dream [4:15]
-03. Here's That Rainy Day [5:56]
-04. Deep in a Dream [4:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDA24FCD02D589B5FED740C7102B7632618B64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704141   (114465) от 03.03.2024
-
-Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Eyes [9:15]
-02. Bitter Dose [10:45]
-03. Jodi [6:24]
-04. My Funny Valentine [9:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D1EC9AC3F7723E93E7DA1F98896DE22DBE20C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704149   (114460) от 03.03.2024
-
-Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crepuscule with Nellie [4:22]
-02. Jackie-ing [7:19]
-03. Epistrophy [6:19]
-04. Monk's Mood [3:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83867E246E9FFA6977B28283306868B26D0658C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704153   (114456) от 03.03.2024
-
-Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Housed from Edward [9:29]
-02. The Nearness of You [10:34]
-03. Three Little Words [5:16]
-04. Makin' Whoopee [0:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAD686945DCB1588351502E4A6A1F1C4A12B80F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1007568   (821045) от 15.04.2016
+
+Александр Сергеевич Пушкин | Полное собрание сочинений и писем в 20-ти томах [3 книги] (1999-2009) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание, выпускаемое Институтом российской литературы РАН, ставит своей задачей собрать и обобщить то, что было накоплено пушкиноведением за полстолетия, прошедшие со времени выхода академического издания 1937—1959 гг. В большой мере опираясь на опыт этого последнего, новое академическое издание стремится привлечь и те собранные для него материалы, которые (   Читать дальше...   )Жанр: Классическая литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8383D73C01D8353CEC2B1339B17F6C8A5CB7BC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007526   (820779) от 15.04.2016
+
+Олег Таругин | Собрание сочинений [22 книги] (2004-2016) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оле́г Тару́гин (род. 16 января 1973) — псевдоним писателя-фантаста Оле́га Вита́льевича Горо́шкова.
+
+Олег Таругин о себе:
+Родился в 16 января 1973 года в Омске, неподалёку от которого в то время служил мой отец. Постоянно проживаю в Одессе.(   Читать дальше...   )Жанр: Боевая фантастика, Исторические приключения, Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2888E703AFB1E53CBD7A108D5EFB6132FA11B057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 777430   (811971) от 15.04.2014
 
 Наталья Александрова | Собрание сочинений [189 книг] (1999-2014) [FB2]
@@ -6,7 +61,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811971.jpg" />
+  <img src="Z:/picture/008/save_picture_811971.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811065.jpg" />
+  <img src="Z:/picture/008/save_picture_811065.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805460.jpg" />
+  <img src="Z:/picture/008/save_picture_805460.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805227.jpg" />
+  <img src="Z:/picture/008/save_picture_805227.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805225.jpg" />
+  <img src="Z:/picture/008/save_picture_805225.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803509.jpg" />
+  <img src="Z:/picture/008/save_picture_803509.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803214.jpg" />
+  <img src="Z:/picture/008/save_picture_803214.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802000.jpg" />
+  <img src="Z:/picture/008/save_picture_802000.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799723.jpg" />
+  <img src="Z:/picture/008/save_picture_799723.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798505.jpg" />
+  <img src="Z:/picture/008/save_picture_798505.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798498.jpg" />
+  <img src="Z:/picture/008/save_picture_798498.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798406.jpg" />
+  <img src="Z:/picture/008/save_picture_798406.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798248.jpg" />
+  <img src="Z:/picture/008/save_picture_798248.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797421.jpg" />
+  <img src="Z:/picture/008/save_picture_797421.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796711.jpg" />
+  <img src="Z:/picture/008/save_picture_796711.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796495.jpg" />
+  <img src="Z:/picture/008/save_picture_796495.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793521.jpg" />
+  <img src="Z:/picture/008/save_picture_793521.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787343.jpg" />
+  <img src="Z:/picture/008/save_picture_787343.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787045.jpg" />
+  <img src="Z:/picture/008/save_picture_787045.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786496.jpg" />
+  <img src="Z:/picture/008/save_picture_786496.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784316.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782433.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782399.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780325.jpg" />
+  <img src="Z:/picture/008/save_picture_780325.jpg" />
 </div>
 
 
@@ -630,60 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F2FE1897821FDB443EE00F40B3F876029229DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210356   (778591) от 03.03.2018
-
-Алекс Каменев | Собрание сочинений [10 книг] (2015-2017) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об авторе: Люблю читать фантастику и фэнтези. Особенно в жанре "попаданцев". И думаю, что в этом я не одинок.
-
-Высокие небоскребы мегаполисов и острые шпили волшебных башен, убойные штурмовые винтовки и смертоносные боевые заклятья, роботизированные системы и магические создания – Виктор никогда не думал, что когда-нибудь столкнется с этим в реальной жизни. (   Читать дальше...   )Жанр: Боевое фэнтези,  Фантастический боевик, EVE - Миры СодружестваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED24A0F42DB275335C606279D21850E15632079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012614   (778218) от 02.05.2016
-
-Андрей Орлов | Собрание сочинений [15 книг] (2007-2016) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный российский автор, пишущий в различных жанрах, но сохраняющий при этом остросюжетную подачу материала. К сожалению никаких биографических данных не обнаружил.Жанр: Современная проза, Военная проза, Боевая фантастика, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E34A1BEBADB40ACE5685430E20B190247AFB55
 ```
 
 https://mybot314.ru/tekegram_catalog/

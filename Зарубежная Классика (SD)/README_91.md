@@ -1,3 +1,81 @@
+###  Публикация: 584161   (307190) от 04.12.2012
+
+Закон есть закон / La legge e legge (1958) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307190.jpg" />
+</div>
+
+
+###  Подробнее
+
+О двух друзьях - таможенном чиновнике французе Фердинанде (Фернандель) и контрабандисте итальянце Джузеппе (Тото). О том, как Фердинанд старается охранять закон, а Джузеппе пускается на всякие уловки, чтобы нарушать его….Жанр: комедияРежиссер: Кристиан-ЖакАктеры: Тото, Фернандель, Ноэль Роквер, Нино Бесоцци, Натали Нерваль, Лучиано Марин, Леда Глория, Альбер Динан, Анри Кремьё, Ренато Терра, Рене Женен, Густаво Де Нардо, Альдо Пини, Жан Брошар, Анри Ариюс, Франко Ди Троккьо, Альдо ВаскоПеревод: Профессиональный (полный советский дубляжй)Субтитры: ФранцузскиеПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B84C1A8A6B9016F3E25B2D85D7E9876227A3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584492   (307055) от 04.12.2012
+
+Джулия / Julia (Der Liebesschüler) (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм перекликаеться с известной эротической мелодрамой "Греческая смоковница". Молодая студентка Джулия во время отдыха в Швейцарских Альпах встречает такого же молодого юношу Патрика. В порывах страстей, они поддаются взаимному увлечению, которое перерастает в нечто большее. Все попытки остановить их оказываются безрезультатными, любви нельзя помешать.Жанр: Драма, ЭротикаРежиссер: Зиги РотемундАктеры: Жан-Клод Буллон, Сильвия Кристель, Тери Тордаи, Гизела Хан, Петер Берлинг, Роуз Рени Рот, Доминик Дельпьерр, Кристин Гласнер, Майкл Тиц, Манфред Шпиз, Эккехардт БеллеПеревод: Многоголосый закадровыйПродолжительность: 01:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6FF4B57F31579797E1D81C4481C693B407C7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332002   (306958) от 23.10.2019
+
+Солдат удачи / Soldier of Fortune (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американка Джейн Хойт прибывает в Гонконг в поисках своего пропавшего мужа, фотографа. Натолкнувшись на бездействие властей, она знакомится с американским наемником, Хэнком Ли. Тот обещает помочь ей разыскать мужа…Производство: США / 20th Century Fox Film CorporationЖанр: Триллер, Драма, Мелодрама, Криминал, ПриключенияРежиссер: Эдвард ДмитрикАктеры: Кларк Гейбл, Сьюзен Хэйуорд, Майкл Ренни, Джин Бэрри, Александр Д’Арси, Том Талли, Анна Стэн, Расселл Коллинз, Лео Гордон, Ричард ЛуПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CBE62BDCA4D051464930C2D55F59917D9F0BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584560   (306857) от 04.12.2012
 
 Охотники за привидениями / Ghost Busters (1984) HDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306857.jpg" />
+  <img src="Z:/picture/008/save_picture_306857.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306823.jpg" />
+  <img src="Z:/picture/008/save_picture_306823.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306632.jpg" />
+  <img src="Z:/picture/008/save_picture_306632.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306587.jpg" />
+  <img src="Z:/picture/008/save_picture_306587.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306436.jpg" />
+  <img src="Z:/picture/008/save_picture_306436.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305906.jpg" />
+  <img src="Z:/picture/008/save_picture_305906.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305298.jpg" />
+  <img src="Z:/picture/008/save_picture_305298.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305222.jpg" />
+  <img src="Z:/picture/008/save_picture_305222.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305131.jpg" />
+  <img src="Z:/picture/008/save_picture_305131.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304464.jpg" />
+  <img src="Z:/picture/008/save_picture_304464.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304019.jpg" />
+  <img src="Z:/picture/008/save_picture_304019.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304010.jpg" />
+  <img src="Z:/picture/008/save_picture_304010.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303909.jpg" />
+  <img src="Z:/picture/008/save_picture_303909.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302925.jpg" />
+  <img src="Z:/picture/008/save_picture_302925.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301852.jpg" />
+  <img src="Z:/picture/008/save_picture_301852.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301755.jpg" />
+  <img src="Z:/picture/008/save_picture_301755.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301655.jpg" />
+  <img src="Z:/picture/008/save_picture_301655.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301643.jpg" />
+  <img src="Z:/picture/008/save_picture_301643.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300991.jpg" />
+  <img src="Z:/picture/008/save_picture_300991.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299995.jpg" />
+  <img src="Z:/picture/008/save_picture_299995.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298628.jpg" />
+  <img src="Z:/picture/008/save_picture_298628.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297279.jpg" />
+  <img src="Z:/picture/008/save_picture_297279.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297194.jpg" />
+  <img src="Z:/picture/008/save_picture_297194.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07234AA9945BE5D17DA3D50B3F21CE4D7B2643A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268240   (297078) от 09.12.2010
-
-Крестный отец / The Godfather (1972) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая экранизация одноименного романа Марио Пьюзо об итальянской мафии в США, ставшая классикой не только американского, но и мирового кинематографа. Ф.Ф.Коппола создал настоящий гангстерский эпос, предельно жизненно и динамично повествующий о "семье" дона Карлеоне (Марлон Брандо). Фильм ярко демонстрирует нравы мафиозных кланов, занятых разделом сфер (   Читать дальше...   )Жанр: Криминальная драмаРежиссер: Френсис Форд Коппола / Francis Ford CoppolaАктеры: Марлон Брандо, Аль Пачино, Джеймс Каан, Джон Казале, Дайэн Китон, Талия Шайр, Роберт Дюволл, Стерлинг Хэйден, Ричард Кастеллано и др.Перевод: Профессиональный (двухголосый закадровый) Премьер Видео ФильмСубтитры: нетПродолжительность: 02:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE637FB85855E45D68CA6E981A4437CDFD93D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957659   (296718) от 03.12.2015
-
-Черная роза / The Black Rose (1950) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало правления Эдварда Первого. Английский дворянин Уолтер изгнан из страны за то, что отказался служить норманнскому королю Эдуарду. Решив следовать завещанию отца, он отправляется в дальние страны, чтобы потом вернуться, и собрать разрозненную Англию, которая сбросит нормандское иго, но прежде он и его верный спутник, искусный лучник Тристам Гриффин поступают (   Читать дальше...   )Производство: США, Великобритания / Twentieth Century-Fox Productions Ltd.Жанр: Приключения, Военный, ИсторияРежиссер: Генри ХэтэуэйАктеры: Тайрон Пауэр, Орсон Уэллс, Сесиль Обри, Джек Хоукинс, Майкл Ренни, Финлэй Карри, Херберт Лом, Мэри Клер, Роберт Блейк, Альфонсо Бедойа, Гибб МакЛафлин, Джеймс Робертсон Джастис, Лоуренс Харви, Валерий Инкижинов, Питер СеллерсПеревод: Двуголосый закадровый (ООО "Светла")Субтитры: ОтсутствуютПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74C78AFC79B660CCBAF2C25C1F8E4458C1D607B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756369   (295317) от 15.11.2020
-
-Ромео и Джульетта / Romeo e Giulietta (1912) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет шекспировской драмы достаточно смело преобразован. "Фильм начинался прямо со сцены на балконе. Тибальт оказывался не кузеном Джульетты, а соперником Ромео, добивающимся её руки; исчезли из действия Парис и Меркуцио. Упрощение сюжета позволило более подробно пересказать его, но это был именно пересказ, пусть даже несколько выпрямленной канвы действий." (   Читать дальше...   )Производство: Италия, Film d'Arte Italiana, Pathé FrèresЖанр: Драма, короткометражный, немое киноРежиссер: Уго ФаленаАктеры: Густаво Серена, Франческа Бертини, Ферруччо Гаравалья, Giovanni PezzingaСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDC0232215A6F32408B3142C51D3F902E28FD37
 ```
 
 https://mybot314.ru/tekegram_catalog/

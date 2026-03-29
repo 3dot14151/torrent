@@ -1,3 +1,90 @@
+###  Публикация: 1022468   (728579) от 02.06.2016
+
+Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mr. Big - американская рок-группа, образованная в 1988 году и известная в России главным образом благодаря хиту «Wild World». В 1988 году бас-гитарист Билли Шихэн покинул группу Дэвида Ли Рота и задумался о собственном проекте. Команда в составе вокалиста Эрика Мартина, гитариста-виртуоза Пола Гилберта и барабанщика Пета Торпи. 1991 году. Огромную популярность группа (   Читать дальше...   )1. Daddy, Brother, Lover, Little Boy (The Electric Drill Song)
+2. Gotta Love The Ride
+3. American Beauty
+4. Undertow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64EB9E0503887A19DE7762052EF4B884CDE6587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022876   (727475) от 03.06.2016
+
+Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727475.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом концерте Lynyrd Skynyrd вернутся туда, где все когда-то начиналось. Вернутся в Джексонвилль, штат Флорида. Вернутся в город. Вернутся на землю, которая давала пищу как музыкальной, так и лирической составляющей большинства американских групп.01. I AIN'T THE ONE
+02. TUESDAY'S GONE
+03. GIMME THREE STEPS
+04. SIMPLE MAN(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9949550A76D1F1AA7EB79C02D1A95088A46AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530909   (726607) от 13.02.2022
+
+Квартирник у Маргулиса. Максим Леонидов и Hippoband (13.02.2022) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Видение
+00:06:22 7 утра
+00:14:10 Питерские коты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, PopЯзык озвучки: РусскийПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B019A5748427BBF0587D4127C3898A347131AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530937   (726537) от 13.02.2022
 
 Квартирник у Маргулиса. Максим Леонидов и Hippoband (12.02.2022) WEBRip [H.264/1080p-LQ]
@@ -6,7 +93,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726537.jpg" />
+  <img src="Z:/picture/008/save_picture_726537.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726248.jpg" />
+  <img src="Z:/picture/008/save_picture_726248.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724425.jpg" />
+  <img src="Z:/picture/008/save_picture_724425.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724087.jpg" />
+  <img src="Z:/picture/008/save_picture_724087.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723528.jpg" />
+  <img src="Z:/picture/008/save_picture_723528.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722602.jpg" />
+  <img src="Z:/picture/008/save_picture_722602.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722600.jpg" />
+  <img src="Z:/picture/008/save_picture_722600.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722476.jpg" />
+  <img src="Z:/picture/008/save_picture_722476.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720278.jpg" />
+  <img src="Z:/picture/008/save_picture_720278.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719196.jpg" />
+  <img src="Z:/picture/008/save_picture_719196.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719078.jpg" />
+  <img src="Z:/picture/008/save_picture_719078.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715304.jpg" />
+  <img src="Z:/picture/005/save_picture_715304.jpg" />
 </div>
 
 
@@ -348,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714046.jpg" />
+  <img src="Z:/picture/008/save_picture_714046.jpg" />
 </div>
 
 
@@ -375,7 +462,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713698.jpg" />
+  <img src="Z:/picture/008/save_picture_713698.jpg" />
 </div>
 
 
@@ -404,7 +491,7 @@ AC/DC: Live at Donington (1991) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_713549.jpg" />
+  <img src="Z:/picture/005/save_picture_713549.jpg" />
 </div>
 
 
@@ -433,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712657.jpg" />
+  <img src="Z:/picture/008/save_picture_712657.jpg" />
 </div>
 
 
@@ -463,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712592.jpg" />
+  <img src="Z:/picture/008/save_picture_712592.jpg" />
 </div>
 
 
@@ -489,7 +576,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711946.jpg" />
+  <img src="Z:/picture/008/save_picture_711946.jpg" />
 </div>
 
 
@@ -518,7 +605,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709437.jpg" />
+  <img src="Z:/picture/008/save_picture_709437.jpg" />
 </div>
 
 
@@ -547,7 +634,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709325.jpg" />
+  <img src="Z:/picture/008/save_picture_709325.jpg" />
 </div>
 
 
@@ -576,7 +663,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709322.jpg" />
+  <img src="Z:/picture/008/save_picture_709322.jpg" />
 </div>
 
 
@@ -602,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708974.jpg" />
+  <img src="Z:/picture/008/save_picture_708974.jpg" />
 </div>
 
 
@@ -631,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705325.jpg" />
+  <img src="Z:/picture/008/save_picture_705325.jpg" />
 </div>
 
 
@@ -646,91 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:571BE03AA0B6C10343CF7B0BD2C3CCE678C995E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533571   (705168) от 24.02.2022
-
-Квартирник у Маргулиса. Концерт ко Дню защитника Отечества (23.02.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705168.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь праздника в гости к Евгению Маргулису пришел Ансамбль песни и пляски Воздушно-десантных войск России под руководством подполковника Владислава Викторовича Твёрдого.
-На сцене «Квартирника» выступили известные артисты: Николай Расторгуев и группа «Любэ», заслуженная артистка России Ольга Кормухина, лидер группы «Парк Горького» Алексей Белов, певец-композитор (   Читать дальше...   )00:00:00 Квартирник
-00:00:05 Десантное попурри
-00:05:31 Комбат
-00:12:07 Падаю в небо(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: поп, рок, романсЯзык озвучки: РусскийПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E490B20C609B021DB75307412C7549CB9CAA6227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132149   (702569) от 08.05.2017
-
-Вера Брежнева. Номер 1. Сольный концерт (2017.05.07) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия большого сольного концерта Веры Брежневой — одной из самых ярких и успешных исполнительниц на российской эстраде. В концертную программу вошли хиты с альбомов певицы «Любовь спасет мир» и Ververa. Зрителей ждут известные композиции и премьеры песен, неожиданные и полюбившиеся дуэты, звездные гости и яркое шоу.Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FE9549A7152E1FEA9BBD56292E2A44F1C66592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894452   (700702) от 05.05.2015
-
-Григорий Лепс и его друзья (2015) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телеверсию Рождественскго концерта,
-который прошел на олимпийском горнолыжном курорте Роза Хутор
-в начале этого года. Концертную программу, основу которой составили
-признанные шлягеры любимого миллионами Григория Лепса,(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31213A11FF63E3CF81A64FB1CC63368942698226
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ File List Export 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804384.jpg" />
+  <img src="Z:/picture/008/save_picture_804384.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ iCollections 6 v6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804383.jpg" />
+  <img src="Z:/picture/008/save_picture_804383.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FontLab 7 v7.1.2.7435 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804380.jpg" />
+  <img src="Z:/picture/008/save_picture_804380.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Creative Convert 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804379.jpg" />
+  <img src="Z:/picture/008/save_picture_804379.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ A Better Finder Rename 11 v11.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804378.jpg" />
+  <img src="Z:/picture/008/save_picture_804378.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cardhop 1.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804377.jpg" />
+  <img src="Z:/picture/008/save_picture_804377.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Sigil 1.8.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804362.jpg" />
+  <img src="Z:/picture/008/save_picture_804362.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804359.jpg" />
+  <img src="Z:/picture/008/save_picture_804359.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804352.jpg" />
+  <img src="Z:/picture/008/save_picture_804352.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ GoodSync Enterprise 11.9.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804349.jpg" />
+  <img src="Z:/picture/008/save_picture_804349.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804314.jpg" />
+  <img src="Z:/picture/008/save_picture_804314.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804306.jpg" />
+  <img src="Z:/picture/008/save_picture_804306.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Riot V - Unleash The Fire (2014) Japan [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804305.jpg" />
+  <img src="Z:/picture/008/save_picture_804305.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804303.jpg" />
+  <img src="Z:/picture/008/save_picture_804303.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804299.jpg" />
+  <img src="Z:/picture/008/save_picture_804299.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804294.jpg" />
+  <img src="Z:/picture/008/save_picture_804294.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Ebia - Star Voyager (2006) [MP3|320 кб/с] <Traditional Electronic, Spacesynth
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804291.jpg" />
+  <img src="Z:/picture/008/save_picture_804291.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Torch Browser 69.2.0.1706 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804274.jpg" />
+  <img src="Z:/picture/008/save_picture_804274.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804270.jpg" />
+  <img src="Z:/picture/008/save_picture_804270.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ WinNTSetup 5.0.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804260.jpg" />
+  <img src="Z:/picture/008/save_picture_804260.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Opera 80.0.4170.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804257.jpg" />
+  <img src="Z:/picture/008/save_picture_804257.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Spectrasonics Omnisphere Software 2.8.0d & Patches 2.8.0c (x64) Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804253.jpg" />
+  <img src="Z:/picture/008/save_picture_804253.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804242.jpg" />
+  <img src="Z:/picture/008/save_picture_804242.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AutoRuns 14.06 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804241.jpg" />
+  <img src="Z:/picture/008/save_picture_804241.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804234.jpg" />
+  <img src="Z:/picture/008/save_picture_804234.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Leawo Prof. Media 7.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804233.jpg" />
+  <img src="Z:/picture/008/save_picture_804233.jpg" />
 </div>
 
 

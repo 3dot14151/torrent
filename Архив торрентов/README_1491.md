@@ -6,7 +6,7 @@ Midnite Climax - Release The Beauties (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714340.jpg" />
+  <img src="Z:/picture/008/save_picture_714340.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Flinto 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714337.jpg" />
+  <img src="Z:/picture/008/save_picture_714337.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ BetterTouchTool 2.094 (620) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714333.jpg" />
+  <img src="Z:/picture/008/save_picture_714333.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714320.jpg" />
+  <img src="Z:/picture/008/save_picture_714320.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Ventoy 1.0.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714304.jpg" />
+  <img src="Z:/picture/008/save_picture_714304.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ CCleaner 5.90.9443 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714298.jpg" />
+  <img src="Z:/picture/008/save_picture_714298.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Anthemion Jutoh 1.30 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714271.jpg" />
+  <img src="Z:/picture/005/save_picture_714271.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Sip Pro 4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714245.jpg" />
+  <img src="Z:/picture/008/save_picture_714245.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Qbserve 1.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714240.jpg" />
+  <img src="Z:/picture/008/save_picture_714240.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Registry Life 3.29 DC 09.06.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714239.jpg" />
+  <img src="Z:/picture/008/save_picture_714239.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Viber 6.7.2.9 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714235.jpg" />
+  <img src="Z:/picture/008/save_picture_714235.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ HandsFree 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714232.jpg" />
+  <img src="Z:/picture/008/save_picture_714232.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Blumentals Screensaver Factory Enterprise 7.1.0.66 RePack by вовава [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714224.jpg" />
+  <img src="Z:/picture/008/save_picture_714224.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ FontExplorer X Pro 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714223.jpg" />
+  <img src="Z:/picture/008/save_picture_714223.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ uTorrent 3.5.5 Build 46206 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714214.jpg" />
+  <img src="Z:/picture/008/save_picture_714214.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714149.jpg" />
+  <img src="Z:/picture/008/save_picture_714149.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Audio - Beastmode (2016) LP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714137.jpg" />
+  <img src="Z:/picture/008/save_picture_714137.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Soft Organizer 5.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714136.jpg" />
+  <img src="Z:/picture/008/save_picture_714136.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Plaid - The Digging Remedy (2016) Warp Records [FLAC|Lossless|WEB-DL|tracks] <ID
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714132.jpg" />
+  <img src="Z:/picture/008/save_picture_714132.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Novicorp WinToFlash Professional 1.8.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714129.jpg" />
+  <img src="Z:/picture/008/save_picture_714129.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Skype 7.35.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714112.jpg" />
+  <img src="Z:/picture/008/save_picture_714112.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Meat Beat Manifesto - Autoimmune (2008) [FLAC|Lossless|image + .cue] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714090.jpg" />
+  <img src="Z:/picture/008/save_picture_714090.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Armin van Buuren - A State of Trance 767 (2016) [MP3|320 кб/с] <progressive t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714081.jpg" />
+  <img src="Z:/picture/008/save_picture_714081.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FruitJuice - Active Battery Health and Monitoring 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714078.jpg" />
+  <img src="Z:/picture/008/save_picture_714078.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Google Chrome 58.0.3029.96 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714044.jpg" />
+  <img src="Z:/picture/008/save_picture_714044.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Viber 6.7.2.9 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714041.jpg" />
+  <img src="Z:/picture/008/save_picture_714041.jpg" />
 </div>
 
 

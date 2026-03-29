@@ -1,3 +1,90 @@
+###  Публикация: 1199186   (800413) от 17.01.2018
+
+VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Marcella Feat. I-Fan - Believe In Us (Robbie Taylor Classic Vocal Mix)
+02.Torvill & Deen Feat. Tyree Cooper - Keep It Poppin' (The SoundDiggers Raunchy Re-Rub)
+03.Wez Clarke & Maxine Hardcastle - Bringing Me Back
+04.Daniel Bovie & Roy Rox Feat. Nelson - Love Me(   Читать дальше...   )Жанр: House, Deep House, DiscoПродолжительность: 02:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08A397D29FFA540682C368E5F420BA0C5894F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199325   (800411) от 17.01.2018
+
+VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard House, Deep House, Progressive House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mason Vs Princess Superstar - Perfect (Exceeder) (Martijn Ten Velden Vocal Remix)
+02.Spektrum - Kinda New (Dirty South Remix)
+03.Sharam - PATT (Party All The Time) (Dennis Christopher Dirty Edit)
+04.Camille Jones - The Creeps (Fedde Le Grand Remix)(   Читать дальше...   )Жанр: House, Disco, Hard House, Deep House, Progressive House, ElectroПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31989CD21EAD0FD2A7D720F6C3D922D8D320F6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198980   (800408) от 17.01.2018
+
+VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simian Mobile Disco Feat Beth Ditto - Cruel Intentions (Greg Wilson Re-Edit)
+02. Jupiter - Mama Used To Say
+03. Ali Love - Diminishing Returns
+04. Empire Of The Sun - Walking On A Dream (Treasure Fingers Remix)(   Читать дальше...   )Жанр: House,Vocal House,Disco HouseПродолжительность: 02:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199655   (800363) от 17.01.2018
 
 Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
@@ -6,7 +93,7 @@ Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
+  <img src="Z:/picture/008/save_picture_800363.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electroni
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799776.jpg" />
+  <img src="Z:/picture/008/save_picture_799776.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799091.jpg" />
+  <img src="Z:/picture/008/save_picture_799091.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798796.jpg" />
+  <img src="Z:/picture/008/save_picture_798796.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798777.jpg" />
+  <img src="Z:/picture/008/save_picture_798777.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
+  <img src="Z:/picture/008/save_picture_798774.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797873.jpg" />
+  <img src="Z:/picture/008/save_picture_797873.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797811.jpg" />
+  <img src="Z:/picture/008/save_picture_797811.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797801.jpg" />
+  <img src="Z:/picture/008/save_picture_797801.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797530.jpg" />
+  <img src="Z:/picture/008/save_picture_797530.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797499.jpg" />
+  <img src="Z:/picture/008/save_picture_797499.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797277.jpg" />
+  <img src="Z:/picture/008/save_picture_797277.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797205.jpg" />
+  <img src="Z:/picture/008/save_picture_797205.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797201.jpg" />
+  <img src="Z:/picture/008/save_picture_797201.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797050.jpg" />
+  <img src="Z:/picture/008/save_picture_797050.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797031.jpg" />
+  <img src="Z:/picture/008/save_picture_797031.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797022.jpg" />
+  <img src="Z:/picture/008/save_picture_797022.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797012.jpg" />
+  <img src="Z:/picture/008/save_picture_797012.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796913.jpg" />
+  <img src="Z:/picture/008/save_picture_796913.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Spacekraft - Большое космическое путешествие (2016)
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796825.jpg" />
+  <img src="Z:/picture/008/save_picture_796825.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796427.jpg" />
+  <img src="Z:/picture/008/save_picture_796427.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796319.jpg" />
+  <img src="Z:/picture/008/save_picture_796319.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795801.jpg" />
+  <img src="Z:/picture/008/save_picture_795801.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9682F302DA9751B194BB93642222AC5B7D7558DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200490   (795712) от 21.01.2018
-
-Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Of The Drum (4:54)
- 02. Electric (5:15)
- 03. Never (Glaccklich) (5:23)
- 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200147   (795710) от 21.01.2018
-
-VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
-02.Groove Coverage - Innocent (Club Mix) (3:33)
-03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
-04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200439   (795695) от 21.01.2018
-
-VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
-02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
-03. Apexape - Joy & Pain 3:01
-04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

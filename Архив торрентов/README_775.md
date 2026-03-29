@@ -6,7 +6,7 @@ LDPlayer 4.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875962.jpg" />
+  <img src="Z:/picture/008/save_picture_875962.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875896.jpg" />
+  <img src="Z:/picture/005/save_picture_875896.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875879.jpg" />
+  <img src="Z:/picture/005/save_picture_875879.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875874.jpg" />
+  <img src="Z:/picture/005/save_picture_875874.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875869.jpg" />
+  <img src="Z:/picture/005/save_picture_875869.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875854.jpg" />
+  <img src="Z:/picture/005/save_picture_875854.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875852.jpg" />
+  <img src="Z:/picture/008/save_picture_875852.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Opera 79.0.4143.22 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875851.jpg" />
+  <img src="Z:/picture/005/save_picture_875851.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875844.jpg" />
+  <img src="Z:/picture/008/save_picture_875844.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875842.jpg" />
+  <img src="Z:/picture/008/save_picture_875842.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875840.jpg" />
+  <img src="Z:/picture/005/save_picture_875840.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875838.jpg" />
+  <img src="Z:/picture/005/save_picture_875838.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ FileZilla Server 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875837.jpg" />
+  <img src="Z:/picture/005/save_picture_875837.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875836.jpg" />
+  <img src="Z:/picture/005/save_picture_875836.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ YT Downloader 7.7.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875835.jpg" />
+  <img src="Z:/picture/005/save_picture_875835.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875834.jpg" />
+  <img src="Z:/picture/005/save_picture_875834.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875822.jpg" />
+  <img src="Z:/picture/005/save_picture_875822.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875784.jpg" />
+  <img src="Z:/picture/005/save_picture_875784.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875766.jpg" />
+  <img src="Z:/picture/005/save_picture_875766.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875739.jpg" />
+  <img src="Z:/picture/005/save_picture_875739.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Q-Dir 6.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875719.jpg" />
+  <img src="Z:/picture/005/save_picture_875719.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Futuremark 3DMark 2.20.7256 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875714.jpg" />
+  <img src="Z:/picture/005/save_picture_875714.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Java SE Runtime Environment 8.0.3010.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875713.jpg" />
+  <img src="Z:/picture/005/save_picture_875713.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Microsoft .NET 5.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875707.jpg" />
+  <img src="Z:/picture/005/save_picture_875707.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ MEmu 7.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875702.jpg" />
+  <img src="Z:/picture/008/save_picture_875702.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Brave Browser 1.29.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875701.jpg" />
+  <img src="Z:/picture/005/save_picture_875701.jpg" />
 </div>
 
 

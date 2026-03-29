@@ -1,3 +1,134 @@
+###  Публикация: 1045577   (559825) от 23.08.2016
+
+В теме. Спорт как оружие (23.08.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559825.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEF1345F3D40BFD6B7AAE28D2C679C67885743C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045306   (559820) от 23.08.2016
+
+В теме. GAME OVER (22.08.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559820.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23291F5FC85AEBA4B0B066FB2A542A53C78DD1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923918   (559177) от 03.08.2015
+
+В теме. Поддать газу! (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Турция начала боевые действия против "Исламского государства", а также курдского населения востока страны и Сирии. Чем это грозит России? Не будет ли отложено строительство "Турецкого потока"?Телекомпания: Москва ДовериеЖанр: Документальный, ТелепередачаПродолжительность: 00:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E20F07B71C66AA81309C621980F7BD8CFAB2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043382   (559105) от 23.08.2016
+
+Америка контролирует всех / America's Surveillance State (2014) DVB (Серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание Агентством национальной безопасности США разветвлённой системы тотального слежения стало главной темой этого документального сериала, снятого в стиле журналистского расследования. Его авторы рассказывают о работе АНБ со спецслужбами других стран и об активном сотрудничестве ведомства с крупными коммуникационными компаниями.Телекомпания: Великобритания, Globalvision, Inc, «Press TV»Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~00:25:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC84A5EA267DB0383891396B063BDFFE379BCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556876   (557188) от 11.06.2022
+
+Живая еда с Сергеем Малозёмовым (11.06.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказочная еда: какие волшебные рецепты существовали на самом деле, где искать кисельные берега, можно ли сварить кашу из топора, какими могут быть пряничные домики, из чего был сделан пудинг для Алисы, которая оказалась в Стране чудес, и какое на вкус сливочное пиво из «Гарри Поттера»?
+Все о капсульном кофе: влияет ли цена на вкус, может ли алюминий из покрышек попадать (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A186F8D345F2DBE175FEDBAB0BE61620BB016E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046047   (556973) от 25.08.2016
 
 В теме. Турецкий гамбит  (24.08.2016) SATRip
@@ -6,7 +137,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556973.jpg" />
+  <img src="Z:/picture/008/save_picture_556973.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556954.jpg" />
+  <img src="Z:/picture/008/save_picture_556954.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556928.jpg" />
+  <img src="Z:/picture/008/save_picture_556928.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556927.jpg" />
+  <img src="Z:/picture/008/save_picture_556927.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556505.jpg" />
+  <img src="Z:/picture/008/save_picture_556505.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555545.jpg" />
+  <img src="Z:/picture/008/save_picture_555545.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555199.jpg" />
+  <img src="Z:/picture/008/save_picture_555199.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554995.jpg" />
+  <img src="Z:/picture/008/save_picture_554995.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553509.jpg" />
+  <img src="Z:/picture/008/save_picture_553509.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553119.jpg" />
+  <img src="Z:/picture/008/save_picture_553119.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553050.jpg" />
+  <img src="Z:/picture/008/save_picture_553050.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552757.jpg" />
+  <img src="Z:/picture/008/save_picture_552757.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552221.jpg" />
+  <img src="Z:/picture/008/save_picture_552221.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552201.jpg" />
+  <img src="Z:/picture/008/save_picture_552201.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552016.jpg" />
+  <img src="Z:/picture/008/save_picture_552016.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551854.jpg" />
+  <img src="Z:/picture/008/save_picture_551854.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551629.jpg" />
+  <img src="Z:/picture/008/save_picture_551629.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551175.jpg" />
+  <img src="Z:/picture/008/save_picture_551175.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551169.jpg" />
+  <img src="Z:/picture/008/save_picture_551169.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551096.jpg" />
+  <img src="Z:/picture/008/save_picture_551096.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550932.jpg" />
+  <img src="Z:/picture/008/save_picture_550932.jpg" />
 </div>
 
 
@@ -540,139 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4B17B1D3FB26586FF0BFA5A51DD1084D6657FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047134   (549920) от 29.08.2016
-
-Гуд бай, Америка! (2016) SATRip
-
->>След.
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отдаст ли когда-нибудь Америка долги? Для чего биржевые спекулянты сбрасывают акции американских банков? Грядет кризис посерьезнее 2008 года, когда на улице без работы оказались десятки тысяч человек? Никто из экономистов и политологов не пожелает краха Америки и ее экономики. Ведь в этой стране вся экономическая стабильность планеты.
-Доллары - главная мировая валюта (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: Документальный, политика, финансыПродолжительность: 01:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9472985AB633E53DD7D392643CC9540750F0793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047690   (549255) от 30.08.2016
-
-В теме. А город подумал-учения идут (29.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549255.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В теме": Алексей Мартынов – о проверке боеготовности в России. Министерства, "оборонка" и Центробанк перешли на работу в условиях военного времениТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20399872CEE96402C76090ADDA0FC43C360AE184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047459   (548907) от 30.08.2016
-
-Без обмана. Еда из отходов (2016.08.29) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EB268ADA780A965CAB2ED3423C5CE5CE26DCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310013   (548657) от 22.06.2019
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (22.06.2019) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548657.jpg" />
-</div>
-
-
-###  Подробнее
-
-В чём разница между сёмгой, форелью, горбушей, неркой и кетой? И стоит ли есть искусственно выращенную красную рыбу?
-В рубрике "За что такие деньги?" расскажут об авокадо: в чём его опасность, и есть ли разница во вкусе между разными сортами вечнозелёного плодового растения.
-Из нового выпуска зрители узнают, как из морковного жмыха, картофельной кожуры, (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165CB6F14B10A7785E4AF9E36DF18F2E991A2A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047760   (548418) от 31.08.2016
-
-В теме. Хвост виляет собакой (30.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548418.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B35F26A7B63D5CB67306FBCD2977F645D1DC52
 ```
 
 https://mybot314.ru/tekegram_catalog/

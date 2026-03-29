@@ -6,7 +6,7 @@ EverWeb (Standalone) 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785798.jpg" />
+  <img src="Z:/picture/008/save_picture_785798.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ AudioFinder 5.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785787.jpg" />
+  <img src="Z:/picture/008/save_picture_785787.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785782.jpg" />
+  <img src="Z:/picture/008/save_picture_785782.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AutoMounter 1.4.2 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785781.jpg" />
+  <img src="Z:/picture/008/save_picture_785781.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785773.jpg" />
+  <img src="Z:/picture/008/save_picture_785773.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785770.jpg" />
+  <img src="Z:/picture/008/save_picture_785770.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Paint.NET 4.0.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785763.jpg" />
+  <img src="Z:/picture/008/save_picture_785763.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Ashampoo Burning Studio 18.0.4.15 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785762.jpg" />
+  <img src="Z:/picture/008/save_picture_785762.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Microsoft Silverlight 5.1.50906.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785754.jpg" />
+  <img src="Z:/picture/008/save_picture_785754.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SIV (System Information Viewer) 5.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785749.jpg" />
+  <img src="Z:/picture/008/save_picture_785749.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785743.jpg" />
+  <img src="Z:/picture/008/save_picture_785743.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Hi-NRG Workout Vol.2 (2017) [MP3|320 Kbps] <Hardcore, Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785742.jpg" />
+  <img src="Z:/picture/008/save_picture_785742.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Microsoft Windows and Office ISO Download Tool 4.32 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785738.jpg" />
+  <img src="Z:/picture/008/save_picture_785738.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ DevID Agent 4.39 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785736.jpg" />
+  <img src="Z:/picture/008/save_picture_785736.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ AV Uninstall Tools Pack 2017.04 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785735.jpg" />
+  <img src="Z:/picture/008/save_picture_785735.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ EssentialPIM Pro 7.24 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785731.jpg" />
+  <img src="Z:/picture/008/save_picture_785731.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785730.jpg" />
+  <img src="Z:/picture/008/save_picture_785730.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Adobe Flash Player 25.0.0.148 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785720.jpg" />
+  <img src="Z:/picture/008/save_picture_785720.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ O&O ShutUp10 1.5.1389 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785719.jpg" />
+  <img src="Z:/picture/008/save_picture_785719.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Adobe Flash Player 25.0.0.148 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785716.jpg" />
+  <img src="Z:/picture/008/save_picture_785716.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785709.jpg" />
+  <img src="Z:/picture/008/save_picture_785709.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Sound Normalizer 7.6 RePack (& Portable) by elchupacabra (UPD 11.04.2017) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785708.jpg" />
+  <img src="Z:/picture/008/save_picture_785708.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Acronis True Image 2017 Build 8041 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785707.jpg" />
+  <img src="Z:/picture/008/save_picture_785707.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe Acrobat XI Pro 11.0.20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785693.jpg" />
+  <img src="Z:/picture/008/save_picture_785693.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Sprint-Layout 6.0 (06.06.2016) Repack by Lordar [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785687.jpg" />
+  <img src="Z:/picture/008/save_picture_785687.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785678.jpg" />
+  <img src="Z:/picture/008/save_picture_785678.jpg" />
 </div>
 
 

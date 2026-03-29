@@ -1,3 +1,61 @@
+###  Публикация: 1606198   (1044474) от 21.01.2023
+
+Archicad Master, Полина Журавлева | Марафон по визуализации в Archicad (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044474.jpg" />
+</div>
+
+
+###  Подробнее
+
+МАРАФОН ПО ВИЗУАЛИЗАЦИИ В ARCHICAD
+Пошаговая инструкция как сделать 3D визуализацию своего проекта в ARCHICAD с использованием плагина Enscape всего за 2 часа и без использования сторонних программ.
+
+Бытует мнение, что дизайнер интерьера должен уметь создавать визуализации. Это потому, что картинки легче всего продемонстрировать, и они повсюду. Визуализации — упаковка, (   Читать дальше...   )Производство: Archicad MasterЖанр: Дизайн, архитектураЯзык озвучки: РусскийПродолжительность: 08:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB313413EA06988B18680526905368E876797A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609330   (1043202) от 03.02.2023
+
+Умный Дизайн, Полина Афонская, Елена Трофимова | Pro SKETCHUP 3.0. Тариф "Маг" (2023) WEB-DL [Часть 1] [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс Pro SKETCHUP 3.0 от школы Умный Дизайн.
+Применяя программу SketchUp в своей работе вы сможете:
+-> существенно ускорить процесс проектирования
+-> качественно показать узлы и конструктив мебели(   Читать дальше...   )Производство: Умный ДизайнЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 31:02:11Реклама: Присутствуют сторонние наложения и вставки в видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7300B6B3BAF15C07C541EB072422CBD2A089421C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390343   (1040229) от 15.02.2023
 
 Школа Алексея Меркулова | Профессия ландшафтный дизайнер (2020) PCRec [H.264/720p-LQ]
@@ -6,7 +64,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040229.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040207.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Bravo Chef! Суши, роллы и сашими [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039988.jpg" />
 </div>
 
 
@@ -88,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039972.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039737.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039698.jpg" />
 </div>
 
 
@@ -166,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039417.jpg" />
 </div>
 
 
@@ -195,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038178.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038166.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038147.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038142.jpg" />
 </div>
 
 
@@ -301,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035885.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035059.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035036.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032403.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032190.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ Archicad-Master, Михаил Холодов | BIM-Design 2.0 (2021) PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020213.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019478.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013446.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ Gardenstyle, Ирина Пугачева | Создание собственно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008428.jpg" />
 </div>
 
 
@@ -547,7 +605,7 @@ Russian Permaculture, Елена Арифулина | Проектируем л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008421.jpg" />
 </div>
 
 
@@ -576,7 +634,7 @@ Archicad-Master | Новые возможности разверток в ArchiC
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001343.jpg" />
 </div>
 
 
@@ -605,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998453.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991908.jpg" />
 </div>
 
 
@@ -646,60 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F1BC16ACF7373F66A3F370AB6C49452DA7060B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609756   (990764) от 28.01.2013
-
-НТВ плюс | Квартирный вопрос -"Мега-пак" [вып. 2006-2007г.г.] SATRip [Обновляемый]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передача «Квартирный вопрос» существует уже много лет. За это время ее создатели и участники смогли помочь многим людям разобраться в дебрях ремонта. Все, кого интересует эта проблема, сегодня могут смотреть старые и новые выпуски передачи онлайн в любое удобное время.
-
-Суть происходящего на экране в том, что берется обычная квартира, дом или дача самых обычных людей. (   Читать дальше...   )Жанр: ОбучающийПродолжительность: 0 ч 45 мин 15,84 с
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F59DA01EAF7D4D469D27CC5B6166EAE81DD24F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616889   (973185) от 11.02.2013
-
-А.Ф. Хисамутдинов | Обрезка виноградных кустов и посадка саженцев [2012] DVD5
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973185.jpg" />
-</div>
-
-
-###  Подробнее
-
-А.Ф. Хисамутдинов – специалист в области агротехники, прививки и восстановления виноградников, старший научный сотрудник лаборатории агротехники ГНУ ВНИИВиВ им. Я.И. Потапенко Россельхозакадемии, кандидат сельскохозяйственных наук, представляет учебный фильм для начинающих виноградарей и дачников «Обрезка виноградных кустов и посадка саженцев». В фильме показаны обрезка нескольких видов наиболее часто встречающихся на приусадебном участке формировок – веерной, двуплечего кордона, длиннорукавной, малой чашевидной и беседочной, рассказано об основных принципах обрезки, даны практические рекомендации. Показаны способы подготовки привитых и корнесобственных саженцев к посадке, продемонстрирован наиболее простой вариант посадки. Съемки выполнены в г. Новочеркасск ростовской области.Жанр: учебныйПродолжительность: 02: 00 :19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EA64CAD995D4B7E1BA1A0C1E39C7B1CF5BF2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

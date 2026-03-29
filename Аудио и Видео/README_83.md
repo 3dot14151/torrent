@@ -6,7 +6,7 @@ VA - Best of Fokuz 2021 (2021) [AAC|~308 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764509.jpg" />
+  <img src="Z:/picture/008/save_picture_764509.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chill House Traveller, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764508.jpg" />
+  <img src="Z:/picture/008/save_picture_764508.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Apartment House - Number Pieces (2021) [AAC|~269 Kbps] <Chamber Music, Indetermi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764507.jpg" />
+  <img src="Z:/picture/008/save_picture_764507.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - XTR Records Best (2020) [AAC|~318 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764506.jpg" />
+  <img src="Z:/picture/008/save_picture_764506.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Cosmic Lounge (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764505.jpg" />
+  <img src="Z:/picture/008/save_picture_764505.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Furia present Authentic XTR Records, Vol. 03 (2021) [AAC|~323 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764504.jpg" />
+  <img src="Z:/picture/008/save_picture_764504.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - XTR Records Best 2021 (2021) [AAC|~324 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764502.jpg" />
+  <img src="Z:/picture/008/save_picture_764502.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Figura X-MAS 2022 (2021) [AAC|~324 Kbps] <Melodic House & Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764426.jpg" />
+  <img src="Z:/picture/008/save_picture_764426.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Furia present Authentic XTR Records, Vol. 02 (2020) [AAC|~326 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764420.jpg" />
+  <img src="Z:/picture/008/save_picture_764420.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Furia present Authentic XTR Records, Vol. 01 (2020) [AAC|~340 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764414.jpg" />
+  <img src="Z:/picture/008/save_picture_764414.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764397.jpg" />
+  <img src="Z:/picture/008/save_picture_764397.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764393.jpg" />
+  <img src="Z:/picture/008/save_picture_764393.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sylver - Turn The Tide (2000), Release Germany CD, Maxi Single, M4A / AAC, 320 k
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764331.jpg" />
+  <img src="Z:/picture/008/save_picture_764331.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764310.jpg" />
+  <img src="Z:/picture/008/save_picture_764310.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764122.jpg" />
+  <img src="Z:/picture/008/save_picture_764122.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Best Of Cause Org 2021 (2022) [AAC|~313 Kbps] <Deep House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763663.jpg" />
+  <img src="Z:/picture/008/save_picture_763663.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Feel the Rhythm & Chill, Vol. 2 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763662.jpg" />
+  <img src="Z:/picture/008/save_picture_763662.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 4 (2019) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763661.jpg" />
+  <img src="Z:/picture/008/save_picture_763661.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 2 (2018) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763660.jpg" />
+  <img src="Z:/picture/008/save_picture_763660.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763659.jpg" />
+  <img src="Z:/picture/008/save_picture_763659.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763658.jpg" />
+  <img src="Z:/picture/008/save_picture_763658.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763625.jpg" />
+  <img src="Z:/picture/008/save_picture_763625.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ bcalm, Banks - Feelings Pt.2 (2021) [AAC|~283 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763552.jpg" />
+  <img src="Z:/picture/008/save_picture_763552.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - Time to Chill, Vol. 2 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763551.jpg" />
+  <img src="Z:/picture/008/save_picture_763551.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Psychill Blossom, Vol. 2 (2021) [AAC|~327 Kbps] <Psychill, Psybient, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763550.jpg" />
+  <img src="Z:/picture/008/save_picture_763550.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 3 (2019) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763549.jpg" />
+  <img src="Z:/picture/008/save_picture_763549.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1171011   (397606) от 03.10.2017
+
+Битва экстрасенсов (2017.09.30) HDTV [H.264/1080i] (сезон 18, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_397606.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7494649328B817005ED04717FAC0353E1A2A9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172402   (392908) от 08.10.2017
+
+Битва экстрасенсов (2017.10.07) WEB-DL [H.264/720p-LQ] (сезон 18, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_392908.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02598A14F470BCF8391972DDA623454D7863223C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172435   (392834) от 08.10.2017
 
 Битва экстрасенсов (2017.10.07) HDTV [H.264/1080i] (сезон 18, выпуск 3)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392834.jpg" />
+  <img src="Z:/picture/008/save_picture_392834.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392833.jpg" />
+  <img src="Z:/picture/008/save_picture_392833.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387548.jpg" />
+  <img src="Z:/picture/008/save_picture_387548.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387373.jpg" />
+  <img src="Z:/picture/008/save_picture_387373.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386862.jpg" />
+  <img src="Z:/picture/008/save_picture_386862.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385109.jpg" />
+  <img src="Z:/picture/008/save_picture_385109.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384943.jpg" />
+  <img src="Z:/picture/008/save_picture_384943.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384919.jpg" />
+  <img src="Z:/picture/008/save_picture_384919.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384352.jpg" />
+  <img src="Z:/picture/008/save_picture_384352.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378245.jpg" />
+  <img src="Z:/picture/008/save_picture_378245.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377147.jpg" />
+  <img src="Z:/picture/008/save_picture_377147.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376243.jpg" />
+  <img src="Z:/picture/008/save_picture_376243.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375084.jpg" />
+  <img src="Z:/picture/008/save_picture_375084.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374642.jpg" />
+  <img src="Z:/picture/008/save_picture_374642.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374602.jpg" />
+  <img src="Z:/picture/008/save_picture_374602.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372743.jpg" />
+  <img src="Z:/picture/008/save_picture_372743.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372726.jpg" />
+  <img src="Z:/picture/008/save_picture_372726.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371392.jpg" />
+  <img src="Z:/picture/008/save_picture_371392.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371347.jpg" />
+  <img src="Z:/picture/008/save_picture_371347.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370609.jpg" />
+  <img src="Z:/picture/008/save_picture_370609.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370002.jpg" />
+  <img src="Z:/picture/008/save_picture_370002.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369847.jpg" />
+  <img src="Z:/picture/008/save_picture_369847.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369839.jpg" />
+  <img src="Z:/picture/008/save_picture_369839.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369525.jpg" />
+  <img src="Z:/picture/008/save_picture_369525.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41158DAB9DE93986A5F8895E4A6CBACA8E2E125C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176523   (369516) от 22.10.2017
-
-Битва экстрасенсов (2017.10.21) HDTV [H.264/1080i] (сезон 18, выпуск 5)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369516.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E28E5A639475FF38B59E973CF90709CDE72F625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176522   (369414) от 22.10.2017
-
-Битва экстрасенсов (2017.10.21) WEB-DLRip (сезон 18, выпуск 5)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369414.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EFE64BCBE5DE6F5FE38A6607B4B7DC077223FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 964145   (284137) от 10.12.2015
+
+Cachemire - Photochope-moi (2015) [FLAC|Lossless]<Pop-Rock, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'animal [2:37]
+02. Hasbeen [3:22]
+03. Mustang [3:43]
+04. Photochope-moi [5:04](   Читать дальше...   )Жанр: Pop-Rock, Hard-RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84055FE1C52D184777F76BD472E4335CE83EC963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963952   (284131) от 10.12.2015
+
+The Delgados - Universal Audio (2004) [FLAC|tracks+.cue]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Fought the Angels (3:20)
+02. Is This All That I Came For? (3:16)
+03. Everybody Come Down (3:14)
+04. Come Undone (3:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65888F2810C09F589304DA7E3EF28FFB30BAF9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964179   (284125) от 10.12.2015
+
+Texas - White On Blonde (1997) [FLAC|tracks+.cue]<Pop Rock, Downtempo>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 0.34 (0:34)
+02. Say What You Want (3:53)
+03. Drawing Crazy Patterns (3:52)
+04. Halo (4:10)(   Читать дальше...   )Жанр: Pop Rock, DowntempoПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97F49E4652FD966FACAA63497E509E209CEC6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054347   (284021) от 21.11.2018
+
+VA - Garden Of Delights 200 CD + 2 DVD (1991-2017) CD-Katalog [WavPack, APE|Lossless|image + .cue] <Progressive Rock, Kraut Rock, Psychedelic Rock, Jazz Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden of Delights специализируется на восстановлении и возрождении записей полузабытых групп, игравших Progressive Rock во всех его проявлениях, от психоделии до блюз-рока. В изначальном смысле термин progressive означал, что эта музыка была впереди своего времени и не вписывалась в существующие музыкальные течения. Это почти неизбежно означает, что лишь небольшой (   Читать дальше...   )Жанр: Progressive Rock, Kraut Rock, Psychedelic Rock, Jazz Rock, Blues RockПродолжительность: 187:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7ABCAADB2A8CE0F12EEF47CC2D29D493312BED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964167   (283948) от 10.12.2015
+
+Khymera - The Grand Design (Japanese Edition) (2015) [FLAC|Image+cue]<Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_283948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Give Up On You
+02. Tell Me Something
+03. Say What You Want
+04. I Believe(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C7DD2759E2685B04F8825EFA1E1E01278EBA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964141   (283781) от 10.12.2015
 
 V.A. - Classic Rock Magazine presents: The Best Of The Year 2015 (2015) [FLAC|Image+cue]<Rock>
@@ -6,7 +148,7 @@ V.A. - Classic Rock Magazine presents: The Best Of The Year 2015 (2015) [FLAC|Im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283781.jpg" />
+  <img src="Z:/picture/008/save_picture_283781.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Experience Hendrix - The Best Of Jimi Hendrix (1997) Remastered, 2008, Universal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282797.jpg" />
+  <img src="Z:/picture/008/save_picture_282797.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Alan Simon - Excalibur (Quadrology) (1998-2017) [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282572.jpg" />
+  <img src="Z:/picture/008/save_picture_282572.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Chris Norman - The Complete Story Of Chris Norman (2008) 5CD Box Set [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282507.jpg" />
+  <img src="Z:/picture/008/save_picture_282507.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Anastacia - Anastacia (2004) [FLAC|tracks+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282422.jpg" />
+  <img src="Z:/picture/008/save_picture_282422.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Blondie - The Curse Of Blondie (2003) [FLAC|tracks+.cue]<Pop Rock, Synth-pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282240.jpg" />
+  <img src="Z:/picture/008/save_picture_282240.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ Texas - The Greatest Hits (2000) [FLAC|tracks+.cue]<Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282231.jpg" />
+  <img src="Z:/picture/008/save_picture_282231.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Billy Joel - Greatest Hits Volume III: 1986-1997 (1997) [FLAC|tracks+.cue]<Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282097.jpg" />
+  <img src="Z:/picture/008/save_picture_282097.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ Realeaf - Possibly Not (2007) [FLAC|Lossless|tracks + .cue] <Psychedelic, Space 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281048.jpg" />
+  <img src="Z:/picture/008/save_picture_281048.jpg" />
 </div>
 
 
@@ -267,7 +409,7 @@ Frankie Valli & The 4 Seasons - Greatest Hits, Vol.2 (1991) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280814.jpg" />
+  <img src="Z:/picture/008/save_picture_280814.jpg" />
 </div>
 
 
@@ -296,7 +438,7 @@ Eloy - Destination (1992) Japanese Edition /1993, Victor [FLAC|image+.cue]<Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280783.jpg" />
+  <img src="Z:/picture/008/save_picture_280783.jpg" />
 </div>
 
 
@@ -325,7 +467,7 @@ Sting - Greatest Hits [2CD] (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279877.jpg" />
+  <img src="Z:/picture/008/save_picture_279877.jpg" />
 </div>
 
 
@@ -354,7 +496,7 @@ Mick Jagger - 6 Albums, 1 Single (8 CD) (1985 - 2017) Rock, Classic Rock, Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279397.jpg" />
+  <img src="Z:/picture/008/save_picture_279397.jpg" />
 </div>
 
 
@@ -383,7 +525,7 @@ Herman Frank - Rare Metal (Unreleased Collection) (2019) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279166.jpg" />
+  <img src="Z:/picture/008/save_picture_279166.jpg" />
 </div>
 
 
@@ -412,7 +554,7 @@ The Presidents of the United States of America - II (1996) Japan, 1998 [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279161.jpg" />
+  <img src="Z:/picture/008/save_picture_279161.jpg" />
 </div>
 
 
@@ -441,7 +583,7 @@ Angel - Risen (2019) [FLAC|Lossless|image + .cue] <Classic rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279157.jpg" />
+  <img src="Z:/picture/008/save_picture_279157.jpg" />
 </div>
 
 
@@ -470,7 +612,7 @@ No To Co i Piotr Janczerski - 4 альбома (1968-2006) 4CD, Collection [WavP
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279002.jpg" />
+  <img src="Z:/picture/008/save_picture_279002.jpg" />
 </div>
 
 
@@ -499,7 +641,7 @@ David Crosby - Sky Trails (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278852.jpg" />
+  <img src="Z:/picture/008/save_picture_278852.jpg" />
 </div>
 
 
@@ -528,7 +670,7 @@ Docker's Guild - The Heisenberg Diaries Book A: Sounds Of Future Past (2015) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277832.jpg" />
+  <img src="Z:/picture/008/save_picture_277832.jpg" />
 </div>
 
 
@@ -557,7 +699,7 @@ Docker's Guild - The Mystic Technocracy - Season 1: The Age Of Ignorance (2012) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277772.jpg" />
+  <img src="Z:/picture/008/save_picture_277772.jpg" />
 </div>
 
 
@@ -586,7 +728,7 @@ Khymera - The Greatest Wonder (2008) [FLAC|Lossless|image+ .cue]<Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277670.jpg" />
+  <img src="Z:/picture/008/save_picture_277670.jpg" />
 </div>
 
 
@@ -600,151 +742,6 @@ Khymera - The Greatest Wonder (2008) [FLAC|Lossless|image+ .cue]<Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33D0CDBD7839FDDF5E00A4B485C7EE320FA703FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336732   (277591) от 08.11.2019
-
-The Presidents of the United States of America - Pure Frosting (1998) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Delicatessen (4:15)
-02. Video Killed the Radio Star (3:24)
-03. Mobile Home (2:55)
-04. Japan (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9026294CAD7468F347D02B8031451BD2B004C3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590958   (277397) от 25.11.2018
-
-The Beatles - 9 CD (1963-1979) Remaster / Toshiba EMI Ltd./ [WavPack|Lossless]<Beat, Pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277397.jpg" />
-</div>
-
-
-###  Подробнее
-
-В списке «Rolling Stone 500» первое место занимает альбом The Beatles Sgt. Pepper’s Lonely Hearts Club Band. Ещё четыре их альбома в числе первых пятнадцати: Revolver, Rubber Soul, The Beatles, Abbey Road - заняв соответственно 3-е, 5-е, 10-е и 14-е места. В списке журнала «Rolling Stone 500 лучших песен всех времён и народов» больше всего песен The Beatles - 23. (   Читать дальше...   )Cписок альбомов:
-1963 - Please Please Me (1973)
-1964 - Beatles For Sale (1973)
-1964 - The Beatles Beat (1976)(   Читать дальше...   )Жанр: beat, pop, rockПродолжительность: 04:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E74D40B878EFBFA301B0540A041EEA4C6B4A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082597   (277365) от 13.12.2016
-
-Kanoi - Blue Sky, Sunshine & Gemstone Sunrise (2015 - 2016) [FLAC|Lossless|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On And On And On (06:33)
-02. Mountains Of The Sun (06:23)
-03. Countryside Loop (03:42)
-04. Countryside Mantra (03:19)Жанр: Progressive RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F73F23EBDCA42A17F7C9325F49699D33BD5DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082715   (277248) от 13.12.2016
-
-Fools Garden - High Times - Best of (2009) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277248.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: Studio Version
-01. Lemon Tree (3:08)
-02. Wild Days (3:29)
-03. Probably (2:51)(   Читать дальше...   )Жанр: RockПродолжительность: 2:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54918D06E3BCFE6F160F1AD77FEB9EB6B69A508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318826   (277190) от 08.11.2019
-
-Queen - Sheer Heart Attack (1974) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brighton Rock (05:10)
-02. Killer Queen (03:00)
-03. Tenement Funster (02:46)
-04. Flick of the Wrist (03:17)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75D304535F2C59369AB69C492629E7150689951
 ```
 
 https://mybot314.ru/tekegram_catalog/

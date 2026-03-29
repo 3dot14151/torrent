@@ -1,3 +1,29 @@
+###  Публикация: 1374713   (769266) от 25.06.2020
+
+Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды Кагами Казуя, ничем не примечательный паренёк, встретил прекрасную девушку по имени Кириха. Казуя и подумать не мог, что они уже когда-то встречались, но Кириха приветствует его словами "Давно не виделись". Как оказалось, Кириха является цукумогами, который возник из пояса оби покойной матери Казуи. Вокруг небывалой красоты Кирихи разворачиваются (   Читать дальше...   )Производство: Япония, студия Zero-G / ゼロジーЖанр: эччи, комедия, романтика, мистикаРежиссер: Курая РёитиЯзык озвучки: РусскийФормат: MР4Продолжительность: 13 эпизодов по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DED923669FD6283FBA2F142F782452E8398E4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392861   (768908) от 28.06.2020
 
 Tachibanakan to Lie Angle | Любовные Страсти Пансиона Тачибана [2018, TV, 12 ep] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Tachibanakan to Lie Angle | Любовные Страсти Пансиона Т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768908.jpg" />
+  <img src="Z:/picture/008/save_picture_768908.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Carnival Phantasm | Карнавальный Фантазм [2011, TV, 12 ep + 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768903.jpg" />
+  <img src="Z:/picture/008/save_picture_768903.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Сред�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768837.jpg" />
+  <img src="Z:/picture/008/save_picture_768837.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sora no Otoshimono Final: Eternal My Master | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768836.jpg" />
+  <img src="Z:/picture/008/save_picture_768836.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768835.jpg" />
+  <img src="Z:/picture/008/save_picture_768835.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768833.jpg" />
+  <img src="Z:/picture/008/save_picture_768833.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Sora no Otoshimono: Forte | Утраченное Небесами: Сильне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768832.jpg" />
+  <img src="Z:/picture/008/save_picture_768832.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768831.jpg" />
+  <img src="Z:/picture/008/save_picture_768831.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767148.jpg" />
+  <img src="Z:/picture/008/save_picture_767148.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Suisei no Gargantia | Гаргантия на Зелёной Планете [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766649.jpg" />
+  <img src="Z:/picture/008/save_picture_766649.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Ore no Imouto 2 | Ну не Может Моя Сестрёнка Быть Так
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766647.jpg" />
+  <img src="Z:/picture/008/save_picture_766647.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765885.jpg" />
+  <img src="Z:/picture/008/save_picture_765885.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Kobayashi-san Chi no Maidragon | Miss Kobayashi's Dragon Maid | Кобаяси �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765851.jpg" />
+  <img src="Z:/picture/008/save_picture_765851.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765092.jpg" />
+  <img src="Z:/picture/008/save_picture_765092.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765091.jpg" />
+  <img src="Z:/picture/008/save_picture_765091.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764191.jpg" />
+  <img src="Z:/picture/008/save_picture_764191.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764114.jpg" />
+  <img src="Z:/picture/008/save_picture_764114.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763392.jpg" />
+  <img src="Z:/picture/008/save_picture_763392.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759782.jpg" />
+  <img src="Z:/picture/008/save_picture_759782.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759737.jpg" />
+  <img src="Z:/picture/008/save_picture_759737.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758055.jpg" />
+  <img src="Z:/picture/008/save_picture_758055.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751028.jpg" />
+  <img src="Z:/picture/008/save_picture_751028.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_748023.jpg" />
+  <img src="Z:/picture/005/save_picture_748023.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746377.jpg" />
+  <img src="Z:/picture/008/save_picture_746377.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745780.jpg" />
+  <img src="Z:/picture/008/save_picture_745780.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E6DC13C9F11B0013EBC9F6A08253E76A5A1881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524405   (744795) от 15.01.2022
-
-Войны Астериска [ТВ-2] | Gakusen Toshi Asterisk 2nd Season | The Asterisk War Season 2 [2016, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно на Землю обрушился доселе невиданный метеоритный дождь - "Инверсия". Всё было сметено с лица Земли, но через множества лет после катастрофы, люди стали приобретать «Генестеллу» - силу, которая высвободилась после катастрофы. На когда-то разрушенной инверсией Земле появился новый город "Рикка", также известный как "Астериск". (   Читать дальше...   )Жанр: Приключения, романтика, эттиРежиссер: Оно МанабуЯзык озвучки: Русский двухголосый, закадровый (AniLibria.TV), ЯпонскийПродолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE7DE38D3B3B58E5F860530F385C942BD92CAD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

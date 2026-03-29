@@ -1,3 +1,235 @@
+###  Публикация: 1724079   (109321) от 18.05.2024
+
+lostWall - woodwerk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thumper's Revenge (2:43)
+02. Soakack (6:43)
+03. dMyxea (5:03)
+04. Woodblock (3:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30387EC68C18DFF56C1F8E0962385DA9C8A27B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724108   (109318) от 18.05.2024
+
+Alan Braufman - Infinite Love Infinite Tears (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chasing a Melody (00:08:35)
+02 - Infinite Love Infinite Tears (00:05:09)
+03 - Spirits (00:09:53)
+04 - Edge of Time (00:05:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29226DF8575143D0D5E15F58C8097EE4EC941194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724087   (109317) от 18.05.2024
+
+Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock | Alternative Metal | Groove Metal | Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HSOAT- CMFT (1:21)
+02. Tank- Life Sex & Death (4:04)
+03. Not in the Mood to Live- CMFT (3:24)
+04. Killing Machine- Judas Priest (2:59)(   Читать дальше...   )Жанр: Alternative rock | Alternative Metal | Groove Metal | Hard RockПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C900E489B4D86C914563CF90FE30115FF6206C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724085   (109315) от 18.05.2024
+
+Rostros Sin Rostro - Features & ShiT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stratocastening John (Scofielfd) (4:03)
+02. Split or Not to Split (About Pickups) (4:53)
+03. Groovadelic (Groovie) (5:11)
+04. Hip-Hoping the Soul (Rap Around) (4:26)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C987B538B194627F9681098389A5D5777AB8F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724083   (109313) от 18.05.2024
+
+Peemai - Gaga Gundul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merapi's Party (5:16)
+02. Khonsawan (6:40)
+03. Sarira (5:15)
+04. Terbawa Arus (4:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6607DE89EB3A1E5A5D3026A15EE223042ACA51ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724081   (109312) от 18.05.2024
+
+Martin Lechner - Another Step (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackbird (2:59)
+02. Magpies (4:50)
+03. Little Girl (4:58)
+04. Save Your Love for Me (4:46)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625B3E401471437DF945A97D3E1087AAA89508CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724096   (109310) от 18.05.2024
+
+Godsmack - Awake (2000) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative metal, Nu metal, Heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sick Of Life (3:52)
+02. Awake (5:04)
+03. Greed (3:29)
+04. Bad Magick (4:16)(   Читать дальше...   )Жанр: Alternative metal, Nu metal, Heavy metalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F36214CDA75F8C5FBF28D1A4313D8A3B8C0ECD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724113   (109307) от 18.05.2024
+
+Rapsody - Please Don't Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - She's Expecting You (00:01:08)
+02 - Marlanna (00:02:33)
+03 - Asteroids (00:02:35)
+04 - Look What You've Done (00:04:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AA39BDD98B6603F5CD417037416B40E6852542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724127   (109306) от 18.05.2024
 
 The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
@@ -6,7 +238,7 @@ The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109306.jpg" />
 </div>
 
 
@@ -33,7 +265,7 @@ Jazz Saxophone, Romantic Moods Academy - Seductive Sax: Set the Mood, Romantic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109294.jpg" />
 </div>
 
 
@@ -62,7 +294,7 @@ Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Musi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109284.jpg" />
 </div>
 
 
@@ -91,7 +323,7 @@ Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109281.jpg" />
 </div>
 
 
@@ -120,7 +352,7 @@ Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109280.jpg" />
 </div>
 
 
@@ -149,7 +381,7 @@ Romantic Time, Jazz Guitar Club, Love Music Zone - Romantic Latin Guitar Ballads
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109274.jpg" />
 </div>
 
 
@@ -178,7 +410,7 @@ Lainz - Indigo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109266.jpg" />
 </div>
 
 
@@ -207,7 +439,7 @@ Disaster Pony - Disaster Pony (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109264.jpg" />
 </div>
 
 
@@ -236,7 +468,7 @@ Delta OG - Aged Friends & Old Whiskey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109263.jpg" />
 </div>
 
 
@@ -265,7 +497,7 @@ Alan Broadbent - Jazz Funk (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109262.jpg" />
 </div>
 
 
@@ -294,7 +526,7 @@ Monsieur MALA - Monsieur MALA (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109261.jpg" />
 </div>
 
 
@@ -323,7 +555,7 @@ Johan Rudebjer trio - Sandkorn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109260.jpg" />
 </div>
 
 
@@ -352,7 +584,7 @@ Matthew Rotker-Lynn - Introducing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109257.jpg" />
 </div>
 
 
@@ -381,7 +613,7 @@ Relaxing Jazz Music, Smooth Jazz Lounge School - London Jazz Rhythms: Jazz Relax
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109252.jpg" />
 </div>
 
 
@@ -410,7 +642,7 @@ Adam Hawley - Unstoppable (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109244.jpg" />
 </div>
 
 
@@ -439,7 +671,7 @@ Phil Davis - ALIVE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109243.jpg" />
 </div>
 
 
@@ -468,7 +700,7 @@ Lo Greco Bros - This Way To Love Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109242.jpg" />
 </div>
 
 
@@ -497,7 +729,7 @@ New Fossils - II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109240.jpg" />
 </div>
 
 
@@ -511,238 +743,6 @@ New Fossils - II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:553048173E85C6BBD39862EC31C485FF5C162F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724346   (109239) от 19.05.2024
-
-Francesco Del Prete - Divertissement (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A perdifiato (3:54)
-02. Donkey Shot (3:06)
-03. Lindy Hop nella nebbia (4:26)
-04. Coeur Manouche (2:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C6142B782477E0028C46CBDABB3E432FD7C0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724607   (109232) от 20.05.2024
-
-Sensual Lounge Music Universe - Levitating Sensuality: Sexy Smooth Jazz for Wild Sensations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Late Night Lullabies (3:36)
-02. Levitating Love (4:09)
-03. Return to Bed (4:08)
-04. Savage Soundtrack (4:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDD9BF25990E042095F99A380DD5219C7F6A9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724471   (109221) от 20.05.2024
-
-Saint Agnes - Bloodsuckers (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bloodsuckers (00:03:22)
-02 - Animal (00:03:59)
-03 - I Mean Nothing To You (00:04:05)
-04 - Outsider (00:04:05)(   Читать дальше...   )Жанр: Nu-Metal, Rapcore, Female VocalПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CDD1A349BFC41236212546B7D96A31FCCA0D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724609   (109206) от 20.05.2024
-
-Sensual Lounge Music Universe, Jazz Lounge Zone - Deep Sexy Jazz Lounge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz: Swinging All Night (3:06)
-02. Sensual Seduction: Romantic Night (3:09)
-03. Lounge Shades: Erotic Jazz Lounge (3:05)
-04. Foreplay Jazz (3:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E775D19CEB5D8A30A1A6C59BC2ACBB552CC67CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724404   (109196) от 20.05.2024
-
-VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109196.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Omen - Torture Me
-A2 - Voivod - Condemned To The Gallows
-A3 - Attacker - (Call On) The Attacker
-A4 - Future Tense - Nightmare(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724682   (109179) от 21.05.2024
-
-King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109179.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Love I Lost
-A2 Let Your Yeah Be Yeah
-A3 I Heard It Through The Grapevine
-A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae, FunkПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724633   (109174) от 21.05.2024
-
-Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
-1990 - Beg to Differ - The Peel Sessions (EP)
-1991 - Prove You Wrong
-1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724637   (109155) от 21.05.2024
-
-VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109155.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Possessed - Swing Of The Axe
-A2 - Nasty Savage - XXX
-A3 - Steel Assassin - The Executioner
-A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: Heavy Metal, Thrash, Speed MetalПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

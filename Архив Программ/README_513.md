@@ -6,7 +6,7 @@ Eraser 6.2.0.2988 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786555.jpg" />
+  <img src="Z:/picture/008/save_picture_786555.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Free Download Manager 6.10.0.3016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786553.jpg" />
+  <img src="Z:/picture/008/save_picture_786553.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Aiseesoft Blu-ray Player 6.6.28 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786552.jpg" />
+  <img src="Z:/picture/008/save_picture_786552.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GridinSoft Anti-Malware 4.1.47.4953 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786548.jpg" />
+  <img src="Z:/picture/008/save_picture_786548.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ EMCO Network Software Scanner 2.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786528.jpg" />
+  <img src="Z:/picture/008/save_picture_786528.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BELOFF [dp] 2020.05.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786524.jpg" />
+  <img src="Z:/picture/008/save_picture_786524.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MInstAll v.02.06.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786485.jpg" />
+  <img src="Z:/picture/008/save_picture_786485.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ PanoramaStudio Pro 3.1.0.229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786477.jpg" />
+  <img src="Z:/picture/008/save_picture_786477.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ UltimateDefrag 5.0.16.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786447.jpg" />
+  <img src="Z:/picture/008/save_picture_786447.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Adobe Premiere Pro CC 2017.0.2 11.0.2.47 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786444.jpg" />
+  <img src="Z:/picture/008/save_picture_786444.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ CyberLink PowerDVD Ultra 17.0.1523.60 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786441.jpg" />
+  <img src="Z:/picture/008/save_picture_786441.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AIMP 4.13 Build 1893 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786434.jpg" />
+  <img src="Z:/picture/008/save_picture_786434.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ USDownloader 1.3.5.9 Portable (08.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786367.jpg" />
+  <img src="Z:/picture/008/save_picture_786367.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SQL Dynamite 2.1.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786361.jpg" />
+  <img src="Z:/picture/008/save_picture_786361.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VueScan Pro 9.5.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786279.jpg" />
+  <img src="Z:/picture/008/save_picture_786279.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ foobar2000 1.3.15 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786277.jpg" />
+  <img src="Z:/picture/008/save_picture_786277.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IObit Malware Fighter Pro 5.0.2.3788 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786272.jpg" />
+  <img src="Z:/picture/008/save_picture_786272.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ foobar2000 1.3.15 Stable Portable by LUR (07.04.17) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786270.jpg" />
+  <img src="Z:/picture/008/save_picture_786270.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Internet Download Manager 6.28 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786269.jpg" />
+  <img src="Z:/picture/008/save_picture_786269.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SamDrivers 17.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786264.jpg" />
+  <img src="Z:/picture/008/save_picture_786264.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786257.jpg" />
+  <img src="Z:/picture/008/save_picture_786257.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe InDesign CC 2017.1 12.1.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786242.jpg" />
+  <img src="Z:/picture/008/save_picture_786242.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Allavsoft Video Downloader Converter 3.14.2.6304 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786174.jpg" />
+  <img src="Z:/picture/008/save_picture_786174.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ PicPick 4.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786127.jpg" />
+  <img src="Z:/picture/008/save_picture_786127.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Viber 6.7.0.1095 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786120.jpg" />
+  <img src="Z:/picture/008/save_picture_786120.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Vivaldi Browser 1.9.804.3 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786116.jpg" />
+  <img src="Z:/picture/008/save_picture_786116.jpg" />
 </div>
 
 

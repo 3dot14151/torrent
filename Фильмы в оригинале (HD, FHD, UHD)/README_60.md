@@ -1,3 +1,107 @@
+###  Публикация: 1695739   (120154) от 30.01.2024
+
+Опавшие листья / Kuolleet lehdet / Fallen Leaves (2023) BDRip [H.265/1080p] [10-bit] [FIN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120154.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух одиноких людей, которые случайно встречаются в ночном Хельсинки. Они пытаются найти первую и последнюю любовь в своей жизни.Производство: Финляндия, Германия / Arte G.E.I.E., BufoЖанр: драма, комедияРежиссер: Аки КаурисмякиАктеры: Альма Пёвсти, Юсси Ватанен, Алина Томникова, Мартти Суосало, Янне Хюютияйнен, Сакари Куосманен, Мария Хайсканен, Нуппу Койву, Шерван Хаджи, Паула ОйноненПеревод: ОтсутствуетЯзык озвучки: ФинскийСубтитры: русские, английскиеПродолжительность: 01:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E60A974093F087ED4D25F8654EE23ECAE20A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696580   (119498) от 03.02.2024
+
+Радикальный / Radical (2023) WEB-DL [H.264/1080p] [SPA / RU, EN, SPA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119498.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приграничном мексиканском городе, посреди коррупции и разрухи, учитель применяет радикально новый метод раскрытия потенциала своих учеников.Производство: Мексика / 3Pas Studios, EPIC Magazine, Pantelion FilmsЖанр: драмаРежиссер: Кристофер ЗаллаАктеры: Эухенио Дербес, Дэниэл Хаддад, Jennifer Trejo, Mia Fernanda Solis, Danilo Guardiola, Хильберто Барраса, Victor Estrada, Manuel Márquez, Christian González, Xochiquetzal MartínezПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: русские, английские, испанскиеПродолжительность: 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76274F3D52BFDA59BE51014045252CF3B035B3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697553   (118873) от 07.02.2024
+
+Международная космическая станция / I.S.S. (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда между США и Россией начинается война, обе стороны связываются со своими космонавтами на борту МКС и ставят им цель взять станцию под контроль любыми средствами.Производство: США / Liddell Entertainment, Fantasy Creations FXЖанр: триллер, драмаРежиссер: Габриэла КаупертуэйтАктеры: Ариана Дебоуз, Крис Мессина, Джон Галлахер мл., Мария Машкова, Коста Ронин, Пилу АсбекПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (forced, SDH)Продолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9430212B630EA3E79F9A19E416210E46E1D85BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697558   (118847) от 07.02.2024
+
+Американское чтиво / American Fiction (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известного писателя и профессора литературы Телониуса «Монка» Эллисона критикуют за то, что его работы «недостаточно чёрные». В попытке завоевать внимание аудитории он пишет анонимный роман, вобравший в себя все стереотипы о темнокожем населении США. Книга моментально становится сенсацией, и теперь Монку придётся лично мириться с масштабными последствиями.Производство: США / 3 Arts Entertainment, Media Rights Capital, Metro-Goldwyn-Mayer (MGM)Жанр: драма, комедияРежиссер: Корд ДжефферсонАктеры: Джеффри Райт, Трэйси Эллис Росс, Исса Рэй, Стерлинг К. Браун, Джон Ортис, Эрика Александр, Лесли Аггамс, Адам Броди, Кит Дэвид, Окьерете ОнаодованПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072A0E98C8BB9D39EE2759CA26E824EA6F913B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698056   (118703) от 08.02.2024
 
 Всемирный потоп / The End We Start From (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118703.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118534.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118325.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117719.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117432.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117098.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116926.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116752.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116594.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116591.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116401.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116071.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116061.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115423.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115252.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115201.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114923.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114256.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105143.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69174.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63897.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63578.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40FD1E8BB8EDABBFC2E4C320285D3F9DC73A4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705596   (63555) от 09.03.2024
-
-Дева и дракон / Damsel (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом фэнтези-фильме молодая женщина, думающая, что ее выдадут замуж за идеального принца, оказывается брошенной в яму, где обнаруживает, что она вовсе не принцесса, а жертва для умиротворения кровожадного дракона. Пытаясь выжить до тех пор, пока кто-нибудь не спасет ее, девушка вскоре понимает, что никто не придет, и спасаться придется самой.Производство: США / PCMA Productions, Roth/Kirschenbaum FilmsЖанр: фэнтези, боевик, приключенияРежиссер: Хуан Карлос ФреснадильоАктеры: Милли Бобби Браун, Рэй Уинстон, Анджела Бассетт, Брук Картер, Ник Робинсон, Робин Райт, Мило Твоми, Николь Джозеф, Патрис Найамбана, Улли ЭкерманнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, украинские, английские (full, SDH)Продолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE7F4064F06A367A73EFC036BFD9D88DB2ECC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705659   (63480) от 09.03.2024
-
-Мечта с подвохом / Американский мечтатель / American Dreamer (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фил - мечтатель. Большинство мечтаний не сбываются. Фил ненавидит это. Но это не мешает ему мечтать.Производство: США / Dektor Film, Estuary Films, Goldenlight FilmsЖанр: комедияРежиссер: Пол ДекторАктеры: Питер Динклэйдж, Ширли Маклейн, Мэтт Диллон, Дэнни Гловер, Мишель Майлетт, Дэнни Пуди, Гэрри Чак, Кимберли Куинн, Ребекка Олсон, С. Эрнст ХартПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BD35B3F9D6F3DEE70BC1A208D29318A2B33D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707096   (62897) от 15.03.2024
-
-Мадам Паутина / Madame Web (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN, Multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медсестра из Манхэттена Кассандра Уэбб открывает в себе способность видеть будущее и понимает, что может использовать эту силу, чтобы его изменить. Столкнувшись с тайнами своего прошлого, Кассандра знакомится с тремя девушками, которым суждено однажды стать великими, если они вместе смогут пережить смертельно опасное настоящее.Производство: США, Канада, Мексика / Columbia Pictures Corporation, Marvel Entertainment, Sony Pictures Entertainment (SPE)Жанр: фантастика, боевик, приключенияРежиссер: С.Дж. КларксонАктеры: Дакота Джонсон, Сидни Суини, Изабела Мерсед, Селеста О'Коннор, Тахар Рахим, Майк Эппс, Эмма Робертс, Адам Скотт, Керри Бише, Заша МэметПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, украинские, английские (full, SDH)Продолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B7F0A6E148592305DDE4F792A11929DD302E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707603   (62641) от 17.03.2024
-
-Ирландская мечта / Irish Wish (2024) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда любовь всей ее жизни обручается с ее лучшей подругой, Мэдди откладывает свои чувства в сторону, чтобы стать подружкой невесты на их свадьбе в Ирландии. За несколько дней до свадьбы Мэдди загадывает спонтанное желание о настоящей любви, и на следующее утро она просыпается в роли будущей невесты. Казалось бы, ее мечта сбылась, но вскоре Мэдди понимает, что ее (   Читать дальше...   )Производство: США, Ирландия / Motion Picture Corporation of America (MPCA), Riviera FilmsЖанр: фэнтези, мелодрама, комедияРежиссер: Джанин ДамианАктеры: Линдси Лохан, Эд Спелирс, Александр Влахос, Аеша Карри, Элизабет Тан, Джасинта Мулкахи, Джейн Сеймур, Matty McCabe, Доун Брэдфилд, Морис БирнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, украинские, английские (full, SDH)Продолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1D68C85AFF3E2EA4CF55E3CF57D86EB10180EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

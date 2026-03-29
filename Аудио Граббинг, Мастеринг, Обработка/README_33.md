@@ -1,3 +1,109 @@
+###  Публикация: 1804463   (65645) от 29.06.2025
+
+KORG - ARP 2600 1.1.5 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый ARP 2600. Это единственный синтезатор, который вы можете увидеть в любой крупной студии. На вторичном рынке они стоят астрономических денег. Когда в 2020 году компания KORG выпустила ограниченную серию ARP 2600 FS, они сразу же были распроданы по всему миру. Теперь компания KORG рада представить первое по-настоящему точное программное воссоздание этого (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9ACA3C1B9A7D6B784DC10017A73E4B45DBC4C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805047   (65534) от 03.07.2025
+
+KORG - multi/poly native 1.0.4 Standalone, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленный легендарным KORG Mono/Poly, новый синтезатор аналогового моделирования KORG multi/poly обеспечивает захватывающие аналоговое звучание в сочетании с необычайной цифровой мощностью и гибкостью. Он уже получил признание как один из лучших синтезаторов года.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C97316B88B6F466A525DEAC70FA5838D4FFD1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806374   (65381) от 12.07.2025
+
+Waldorf - Microwave 1 Plugin 1.2.0 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технология Microwave показала себя с наилучшей стороны благодаря уникальной интерпретации волнового синтеза в сочетании с аналоговыми фильтрами.
+Теперь Waldorf Music возвращает этот волшебный инструмент на цифровые рабочие станции по всему миру, выпустив подключаемый модуль Microwave 1.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046F1F2A5BA7D29D0CA0536974B0DDECB9DA02E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806376   (65377) от 12.07.2025
+
+Robotic Bean - Portatron 1.5.0 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавьте в свою музыку уникальное звучание 4-дорожечного магнитофона с помощью Portatron Tape Synthesizer, который предлагает широкий спектр лоу-фай эффектов и функций.
+Используйте мгновенный лоу-фай звук, чтобы вдохнуть новую жизнь в свои сэмплы. Portatron — идеальный инструмент для передачи атмосферы и характера классического кассетного магнитофонаЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234120F13DF94742E08C9C2A778A235BAE589DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809785   (64666) от 01.08.2025
 
 MeldaProduction - MCompleteBundle 17.05 VST, VST 3, AAX (x64) [En]
@@ -6,7 +112,7 @@ MeldaProduction - MCompleteBundle 17.05 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64666.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Valhalla DSP - Valhalla Room 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62111.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Valhalla DSP - Valhalla VintageVerb 4.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62110.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ MAGIX SOUND FORGE Pro Suite 18.0.0.21 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61635.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Pioneer DJ Rekordbox 6 Professional 6.8.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61561.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Atomix VirtualDJ 2023 Pro Infinity 8.5.7921 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61535.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 RePack by KpoJIuK [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61155.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ W.A. Production - Instacomposer 2 2.0.1.240325 VSTi, VSTi 3, AAX (x86/x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60326.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ BABY Audio - Atoms 1.1.0 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60224.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Ashampoo Music Studio 10.0.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59082.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ Acoustica Mixcraft Pro Studio 9 9.0 Build 470 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57631.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ iZotope RX 11 Audio Editor Advanced 11.0.0.3858 (x64) Portable by 7997 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56727.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Streaming Audio Recorder 3.3.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56688.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Steinberg Nuendo 13.0.40.251 (x64) Portable by 7997 [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55026.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ Aberrant DSP - Lair 1.0.0 VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54665.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ Plugin Alliance - MEGA Bundle Effects 2024 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53954.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ Arturia FX Collection 5 5.0.0 VST, VST 3, AAX, NKS (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53446.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ Rob Papen - UniMagic 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53335.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.3.0 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53012.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ DDMF - PluginDoctor 2.3.2 Standalone, VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52890.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ KORG - Gadget 3 Plugins 3.1.1 VSTi, VSTi 3, AAX, NKS (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52830.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ Instant Audio - BassRift 1.2.0 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52794.jpg" />
 </div>
 
 
@@ -573,114 +679,6 @@ Instant Audio - BassRift 1.2.0 VST, VST 3, AAX (x86/x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5D7E55CEF25D9E80E72F82644BBBD64AEF749A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731796   (52471) от 22.06.2024
-
-GForce Software - Oberheim OB-E 2.6 Standalone, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oberheim OB-E - это наш взгляд на легендарную 8-голосовую систему Oberheim® и первый программный инструмент, когда-либо получивший личное одобрение Тома Оберхайма.
-OB-E - это больше, чем просто эмуляция, он предлагает уникальный музыкальный опыт. Звучащий грандиозно, он выводит 8-голосовой модуль расширения на основе культового синтезатора (SEM®) (он же EVS) на новый (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD69BFD62B57492BC397E1D6A1E1ED51D901C990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732117   (52369) от 23.06.2024
-
-Nuro Audio - Xpitch 1.0.2 VST 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная коррекция и манипулирование высотой тона. Новые мощные рабочие процессы. Мгновенные результаты.
-Самый интуитивно понятный плагин автоматической настройки и манипулирования высотой тона из когда-либо созданных. От естественной коррекции высоты тона до классического роботизированного эффекта - быстрее и проще, чем когда-либо прежде.
-Получите тонкую, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DCBA22F0B3507CE6E650EFDE5722CF46E0AC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732115   (52361) от 23.06.2024
-
-Plugin Alliance & Lindell Audio - All Bundle 2024.6 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lindell Audio с момента своего основания в 2010 году быстро завоевала репутацию производителя высококачественного аналогового оборудования. Продюсер звукозаписи Тобиас Линделл, постоянный продюсер Bohus Sound Studios, решил разработать записывающее оборудование, отвечающее его собственному методу работы. Разработка функций и пользовательских интерфейсов, которых (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDCD6146AF8ACC9573AB0C40F6CCE64090AD7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732955   (51852) от 27.06.2024
-
-Waves Ultimate 2024.06.24 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор плагинов от Waves. Творите с полной свободой: все всегда под рукой
-Пусть ничто не стоит между звуком, который вы слышите в своей голове, и тем, что исходит из динамиков. С Waves Ultimate — самым большим вариантом в нашей подписке на Waves Creative Access — вы получаете все необходимые плагины, когда они вам нужны. Все, что вы хотите создать — вы защищены. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29CFF0FB1A96893F3FB7AA3DE12A62BB6D2FC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

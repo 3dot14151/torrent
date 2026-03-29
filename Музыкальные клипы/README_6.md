@@ -1,3 +1,87 @@
+###  Публикация: 857896   (948355) от 11.01.2015
+
+Инфинити - Крылья (2014) [1080p] [hand made 60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: MKVПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982441   (948132) от 03.02.2016
+
+Sade – Life Promise Pride Love (1993) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Programme Start (0:10)
+02. Your Love Is King (3:37)
+03. Smooth Operator (Red Eye) (8:27)
+04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982327   (947991) от 03.02.2016
+
+Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Program Start
+02. Brace Yourself
+03. Billie Jean
+04. The Way You Make Me Feel(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362157   (947732) от 24.02.2020
 
 Сборник клипов 02 (02.2020) WEB-DLRip [H.264/720p-LQ]
@@ -6,7 +90,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947732.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ VA - Зимний марафон № 223: Презент Новинок Росс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946554.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945685.jpg" />
 </div>
 
 
@@ -91,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945568.jpg" />
 </div>
 
 
@@ -119,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943427.jpg" />
 </div>
 
 
@@ -148,7 +232,7 @@ VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943261.jpg" />
 </div>
 
 
@@ -178,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943136.jpg" />
 </div>
 
 
@@ -208,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942496.jpg" />
 </div>
 
 
@@ -234,7 +318,7 @@ VA – Реальная Музыка (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941882.jpg" />
 </div>
 
 
@@ -263,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940955.jpg" />
 </div>
 
 
@@ -292,7 +376,7 @@ VA - Best of pop 2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938727.jpg" />
 </div>
 
 
@@ -321,7 +405,7 @@ VA - Танцевальный рай - The Best (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938388.jpg" />
 </div>
 
 
@@ -350,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937526.jpg" />
 </div>
 
 
@@ -376,7 +460,7 @@ VA - Сборник видеоклипов 80х - 90х: Бабка Жжёт! (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936364.jpg" />
 </div>
 
 
@@ -405,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936157.jpg" />
 </div>
 
 
@@ -434,7 +518,7 @@ Danielle - Pat It Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935316.jpg" />
 </div>
 
 
@@ -460,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930596.jpg" />
 </div>
 
 
@@ -486,7 +570,7 @@ Burning Witches - Six Feet Underground (2020) WEB-DLRip [Н.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930557.jpg" />
 </div>
 
 
@@ -512,7 +596,7 @@ Incubus - Концертный тур Honda Civic Tour (2012) [1080i] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930513.jpg" />
 </div>
 
 
@@ -538,7 +622,7 @@ Enigma - 4 клипа (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928018.jpg" />
 </div>
 
 
@@ -567,7 +651,7 @@ VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927318.jpg" />
 </div>
 
 
@@ -596,7 +680,7 @@ VA - Зимний марафон № 224: Зимняя Волна Новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925751.jpg" />
 </div>
 
 
@@ -625,7 +709,7 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924873.jpg" />
 </div>
 
 
@@ -636,86 +720,6 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3EA53975A29F4B70C39D11CEE3CF55F1D986EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631332   (924846) от 17.03.2013
-
-Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72C028D6923FAF7725E773D4C769EBFCA5DEF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631280   (923621) от 18.03.2013
-
-Blank & Jones - The Videos (2007) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance
-
-Официальный сборник видеоклиповПродолжительность: 01:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ED5D03B5EB58CB5860DF1C7BCABB855BF9DE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632150   (923002) от 18.03.2013
-
-Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2CA0A30CE6831CDD84B91C1B2402F6A67A0B11
 ```
 
 https://mybot314.ru/tekegram_catalog/

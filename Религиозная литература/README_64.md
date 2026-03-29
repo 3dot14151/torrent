@@ -1,3 +1,83 @@
+###  Публикация: 1052934   (526605) от 16.09.2016
+
+К. Л. Воропаева | О пасхе (1959) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди религиозных праздников христиан пасхе отводится одно из самых важных и почетных мест. Связанные с пасхой обычаи и обряды оказываются наиболее устойчивыми среди верующих. Многие соблюдают их нередко и после того, как они освободились от веры в бога и чудеса, следуя традициям прошлого.
+
+О том, как возник праздник пасхи, как сложились пасхальные обряды и церемонии, (   Читать дальше...   )Жанр: История, религиоведение, политология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBF112AE738578937153EE2CE0AB10C7E412A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156973   (526406) от 09.08.2017
+
+Н.В. Маслов (сост.) | Святые врачи безмездные чудотворцы (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526406.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Болезни наши, телесные и душевные, кто сосчитает? Уврачевать их кто может? Этих болезней и многие премудрые врачи... уврачевать не могли, от кого же исцеления поищем? ...Поищем исцеления от Матери Божией Преблагословенной, потому что много может молитва Материнская,... ибо Она - Целебница всему миру» - учит святитель Димитрий Ростовский. Поищем исцеления и у святых. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550620EC52BD96B6842894B61EE38F3A10DC61ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157073   (525868) от 10.08.2017
+
+Н. В. Румянцев | Миф об Иоанне Крестителе [4-е изд.] (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди множества новозаветных личностей очень немногие заняли такое выдающееся положение и место в культовой практике христианской церкви и в народном быту, как пресловутый Иоанн Креститель. Высоко чтимый на Западе, особым поклонением он пользовался, и местами до сих пор еще пользуется у нас, в наших сельских местностях. Это видно, хотя бы, из того, что огромное количество (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E4F12B6C22FC96069A6A535F4D6DFAFF757D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157441   (525519) от 11.08.2017
 
 Н. В. Румянцев | Апокалипсис - откровение Иоанна. Его происхождение и классовая роль (1934) [DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525519.jpg" />
+  <img src="Z:/picture/008/save_picture_525519.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Cвященник Сергий Косых (ред.-сост.) и др. | С мо
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524580.jpg" />
+  <img src="Z:/picture/008/save_picture_524580.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524579.jpg" />
+  <img src="Z:/picture/008/save_picture_524579.jpg" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523758.jpg" />
+  <img src="Z:/picture/008/save_picture_523758.jpg" />
 </div>
 
 
@@ -118,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523756.jpg" />
+  <img src="Z:/picture/008/save_picture_523756.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523673.jpg" />
+  <img src="Z:/picture/008/save_picture_523673.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523662.jpg" />
+  <img src="Z:/picture/008/save_picture_523662.jpg" />
 </div>
 
 
@@ -198,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522959.jpg" />
+  <img src="Z:/picture/008/save_picture_522959.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522955.jpg" />
+  <img src="Z:/picture/008/save_picture_522955.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522952.jpg" />
+  <img src="Z:/picture/008/save_picture_522952.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522951.jpg" />
+  <img src="Z:/picture/008/save_picture_522951.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522903.jpg" />
+  <img src="Z:/picture/008/save_picture_522903.jpg" />
 </div>
 
 
@@ -332,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522897.jpg" />
+  <img src="Z:/picture/008/save_picture_522897.jpg" />
 </div>
 
 
@@ -358,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522847.jpg" />
+  <img src="Z:/picture/008/save_picture_522847.jpg" />
 </div>
 
 
@@ -384,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522846.jpg" />
+  <img src="Z:/picture/008/save_picture_522846.jpg" />
 </div>
 
 
@@ -410,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522321.jpg" />
+  <img src="Z:/picture/008/save_picture_522321.jpg" />
 </div>
 
 
@@ -436,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522196.jpg" />
+  <img src="Z:/picture/008/save_picture_522196.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521455.jpg" />
+  <img src="Z:/picture/008/save_picture_521455.jpg" />
 </div>
 
 
@@ -490,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521273.jpg" />
+  <img src="Z:/picture/008/save_picture_521273.jpg" />
 </div>
 
 
@@ -518,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521271.jpg" />
+  <img src="Z:/picture/008/save_picture_521271.jpg" />
 </div>
 
 
@@ -544,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521270.jpg" />
+  <img src="Z:/picture/008/save_picture_521270.jpg" />
 </div>
 
 
@@ -570,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521266.jpg" />
+  <img src="Z:/picture/008/save_picture_521266.jpg" />
 </div>
 
 
@@ -596,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521264.jpg" />
+  <img src="Z:/picture/008/save_picture_521264.jpg" />
 </div>
 
 
@@ -607,86 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB1EB24D18F0A54CCB3F21EA7EC2FBB197844B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314267   (520339) от 13.07.2019
-
-Диакон Георгий Максимов | Вне Церкви нет спасения (2012) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему святые отцы говорят, что только крещеный и уверовавший во Христа человек может спастись? Как быть с теми у кого «объективно не было возможности узнать Православие»? Почему мало спасающихся? Для чего Бог создал тех, про кого знал, что они не спасутся? Почему после смерти невозможно покаяние? Что такое в действительности рай и ад? На эти и другие вопросы отвечает (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF (для букридеров)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF9CB491CF166374D1B8E4263D8C85FA2A3B249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241658   (519286) от 18.08.2018
-
-Архимандрит Кирилл Костопулос | Папство - это ересь (2003) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предложенное вашему вниманию издание представляет собой рассуждения известного греческого богослова архимандрита Кирилла (Костопулоса) об основных экклезиологических и догматических расхождениях между Православной Церковью и Римо-католицизмом. Разумеется, эта проблематика не является чем-то новым для русской богословской мысли: она более чем достаточно была освещена (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F504AABA47677166C89D1A86F5AC6C20A5135FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241948   (517186) от 20.08.2018
-
-Н.С. Посадский (сост.) | Путём отцов. О служении святых Небесному Отечеству и народу [Сборник] (2014) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Христос говорит о Себе, что Он не для того пришёл, чтобы Ему служили, но чтобы послужить и отдать душу Свою для искупления многих (Мф. 20, 28). Тем самым Он показал всем Своим последователям пример настоящего служения людям, в основе которого лежит не угождение себе и человеческому в человеке, но жертва.
-
-Святые подвижники своей жизнью, служением ближнему, а через (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C42B4447AF50DAA86CBA5DD66A2BDD9ED16D785
 ```
 
 https://mybot314.ru/tekegram_catalog/

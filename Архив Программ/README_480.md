@@ -6,7 +6,7 @@ Tor Browser Bundle 5.5.5 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796599.jpg" />
+  <img src="Z:/picture/008/save_picture_796599.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HDCleaner 1.294 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796594.jpg" />
+  <img src="Z:/picture/008/save_picture_796594.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VidCoder 5.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_796592.jpg" />
+  <img src="Z:/picture/005/save_picture_796592.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FontCreator Professional Edition 13.0.0.2643 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796591.jpg" />
+  <img src="Z:/picture/008/save_picture_796591.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Care 365 Pro 5.5.4.549 (Лицензия Comss) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796581.jpg" />
+  <img src="Z:/picture/008/save_picture_796581.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 7.5.0.741 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796579.jpg" />
+  <img src="Z:/picture/008/save_picture_796579.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ESET NOD32 Antivirus 9.0.377.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796572.jpg" />
+  <img src="Z:/picture/008/save_picture_796572.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Autodesk Inventor (Pro) 2017 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796561.jpg" />
+  <img src="Z:/picture/008/save_picture_796561.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Cowon jetAudio 8.1.5.10314 Plus RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796560.jpg" />
+  <img src="Z:/picture/008/save_picture_796560.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Google Earth Pro 7.3.3.7699 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796536.jpg" />
+  <img src="Z:/picture/008/save_picture_796536.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Windows Privacy Dashboard (WPD) 1.3.1532 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796519.jpg" />
+  <img src="Z:/picture/008/save_picture_796519.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ TeamViewer Free 15.6.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796517.jpg" />
+  <img src="Z:/picture/008/save_picture_796517.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cyberfox 52.6.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796428.jpg" />
+  <img src="Z:/picture/008/save_picture_796428.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CoolUtils PDF Combine 5.1.0.115 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796426.jpg" />
+  <img src="Z:/picture/008/save_picture_796426.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Vivaldi 1.13.1008.44 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796415.jpg" />
+  <img src="Z:/picture/008/save_picture_796415.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Allavsoft Video Downloader Converter 3.15.4.6594 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796409.jpg" />
+  <img src="Z:/picture/008/save_picture_796409.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796386.jpg" />
+  <img src="Z:/picture/008/save_picture_796386.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Cyberfox 52.6.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796379.jpg" />
+  <img src="Z:/picture/008/save_picture_796379.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Vivaldi 1.13.1008.44 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796371.jpg" />
+  <img src="Z:/picture/008/save_picture_796371.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mozilla Firefox 46.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796356.jpg" />
+  <img src="Z:/picture/008/save_picture_796356.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Free Studio 6.6.7.426 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796351.jpg" />
+  <img src="Z:/picture/008/save_picture_796351.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CoolUtils Total Excel Converter 5.1.0.245 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796334.jpg" />
+  <img src="Z:/picture/008/save_picture_796334.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796318.jpg" />
+  <img src="Z:/picture/008/save_picture_796318.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ TheAeroClock 3.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796299.jpg" />
+  <img src="Z:/picture/008/save_picture_796299.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Torch Browser 60.0.0.1508 Portable by thumbapps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796263.jpg" />
+  <img src="Z:/picture/008/save_picture_796263.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Coolmuster Android Assistant 4.1.27 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796256.jpg" />
+  <img src="Z:/picture/008/save_picture_796256.jpg" />
 </div>
 
 

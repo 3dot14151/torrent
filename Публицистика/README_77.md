@@ -1,3 +1,82 @@
+###  Публикация: 1271076   (152119) от 22.12.2018
+
+Александр Лебедев | Охота на банкира (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предприниматель и общественный деятель Александр Лебедев в художественно-публицистической форме вспоминает свой жизненный путь, начиная от службы во внешней разведке в Лондоне и заканчивая отбыванием наказания в виде обязательных работ в тульской деревне по приговору суда за драку с бизнесменом Сергеем Полонским на канале НТВ.
+Автор открывает читателю разные стороны (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC96A3C575DC399D27AC9E063B932194B2186628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347467   (152105) от 23.12.2019
+
+Грант Моррисон | Супербоги. Как герои в масках, удивительные мутанты и бог Солнца из Смолвиля учат нас быть людьми (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супермен, Бэтмен, Чудо-Женщина, Железный Человек, Люди Икс – кто ж их не знает? Супергерои давно и прочно поселились на кино- и телеэкране, в наших видеоиграх и в наших грезах. Но что именно они пытаются нам сказать? Грант Моррисон, один из классиков современного графического романа («Бэтмен: Лечебница Аркхем», «НАС3», «Все звезды. Супермен»), видит в супергероях (   Читать дальше...   )Жанр: Воспоминания, МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564B6FA9FEE58B433F269D4B6DC600488BF6763A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968629   (151421) от 25.12.2015
+
+Сергей Угольников | Элита тусуется по Фрейду (2007) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151421.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Конечно, теорию Фрейда ни в коей мере нельзя считать универсальным знанием, способным дать ответы на все вопросы, связанные с нашей политической и общественной жизнью (взгляды Фрейда подвергались справедливой критике со стороны многих авторитетных ученых), однако применение фрейдистской теории для анализа современной обстановки в России может привести к любопытным (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872F9EF05B01D85F29ED55C2EAECCE5F8F023E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271366   (150349) от 23.12.2018
 
 Из прошлого (Революционная борьба рабочих Брянской губернии) 1896-1917 г.г. [Выпуск 1] (1924) [PDF]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150349.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149469.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149301.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148957.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148124.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148059.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147620.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147501.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147423.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147228.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147072.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147026.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146847.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146719.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146445.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146384.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146263.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146022.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145991.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145948.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145941.jpg" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145735.jpg" />
 </div>
 
 
@@ -594,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145156.jpg" />
 </div>
 
 
@@ -606,86 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A11B6A70A2B5EC54B0F8AFA6A4EB33C3082C8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969938   (145140) от 28.12.2015
-
-Шейн Харрис | Кибервойн@. Пятый театр военных действий (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня кибервойны из фантастических романов перекочевали в реальность. Военные США рассматривают киберпространство как пятый театр военных действий (наряду с наземным, морским, воздушным и космическим), в котором участвуют Министерство обороны, АНБ, ЦРУ, независимые группы хакеров – все, кто может создавать и использовать компьютерные вирусы для нанесения удара (   Читать дальше...   )Жанр: Зарубежная публицистика, Военное дело, спецслужбыФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72CD16245C7DBC936D1DE53C5225FE84519DABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348134   (145035) от 27.12.2019
-
-Сергей Плохий | Человек, стрелявший ядом. История одного шпиона времен холодной войны (2020) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145035.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Документальный триллер» Сергея Плохия посвящен биографии Богдана Сташинского – агента КГБ, убившего Льва Ребета и Степана Бандеру из секретного оружия и впоследствии сдавшегося западногерманской полиции. Особое внимание уделено причинам действий Сташинского, роли его жены Инге Поль и новым сведениям о его жизни после суда и тюремного срока.
-
-Сергей Плохий – профессор (   Читать дальше...   )Жанр: Биографии. Мемуары, Спецслужбы, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D054AF56AF13782026B89CBF50DE17FAB1C7363D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348253   (144788) от 27.12.2019
-
-Николай Стариков | Сталин. После войны. Книга первая. 1945-1948 (2019) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами первая часть масштабного исторического исследования, посвященного послевоенному периоду жизни и деятельности Иосифа Виссарионовича Сталина. Одной из самых масштабных и значимых фигур советской истории – личности Сталина – посвящено немало трудов. Споры вокруг его поступков не утихают вот уже несколько десятилетий. И далеко не все периоды его жизни освещены (   Читать дальше...   )Жанр: История СССР, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C989D199557A2819D2237878EEA7394A24D636A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

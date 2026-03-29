@@ -1,3 +1,90 @@
+###  Публикация: 1764595   (101539) от 07.12.2024
+
+Swallow The Sun - Shining (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence Was Long Forgotten 04:20
+02. What I Have Become 04:07
+03. MelancHoly 03:38
+04. Under the Moon & Sun 06:09(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8551C2E2A6FD79D414D21CDEBF993A1BDEA31AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764864   (101456) от 11.12.2024
+
+Dark Lightning - The Demons We Create (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glimpse of Freedom [00:01:09]
+02. Trapped Forever [00:04:31]
+03. The Unknown Mind [00:04:33]
+04. Into the Night Sky [00:03:10](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1B317C1FB642B9FC0D35E8DE4564786456140F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765550   (101409) от 13.12.2024
+
+Nanowar of Steel - XX Years of Steel (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stormwarrior of the Storm [4:23]
+02 - HelloWorld.java [3:59]
+03 - Afraid to shoot into the eyes of a stranger in a strange land [6:39]
+04 - Armpits of Immortals (feat. Ross the Boss) [4:12](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Hard RockПродолжительность: 02:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC96EA5731FB6FBA5E72E3A0549EBF55CF1E256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765746   (101325) от 15.12.2024
 
 Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101325.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101275.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Revolting - Night Of The Horrid (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101256.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Desert Near The End - Tides Of Time (2024) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101255.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Lights To Remain - Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101147.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100850.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Empty Mirror - 2 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Sympho Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100705.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100552.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100542.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100528.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ministry - Relapse (2012) [FLAC|Lossless]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98885.jpg" />
+  <img src="Z:/picture/005/save_picture_98885.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98842.jpg" />
+  <img src="Z:/picture/005/save_picture_98842.jpg" />
 </div>
 
 
@@ -366,7 +453,7 @@ Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98793.jpg" />
+  <img src="Z:/picture/005/save_picture_98793.jpg" />
 </div>
 
 
@@ -401,7 +488,7 @@ Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98598.jpg" />
+  <img src="Z:/picture/005/save_picture_98598.jpg" />
 </div>
 
 
@@ -436,7 +523,7 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98331.jpg" />
+  <img src="Z:/picture/005/save_picture_98331.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98151.jpg" />
+  <img src="Z:/picture/005/save_picture_98151.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Rizon - Masquerade (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97963.jpg" />
+  <img src="Z:/picture/005/save_picture_97963.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97911.jpg" />
+  <img src="Z:/picture/005/save_picture_97911.jpg" />
 </div>
 
 
@@ -570,7 +657,7 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97789.jpg" />
+  <img src="Z:/picture/005/save_picture_97789.jpg" />
 </div>
 
 
@@ -605,7 +692,7 @@ When Nothing Remains - As All Torn Asunder (2012) [FLAC|Lossless]<Doom / Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97738.jpg" />
+  <img src="Z:/picture/005/save_picture_97738.jpg" />
 </div>
 
 
@@ -639,7 +726,7 @@ Lullacry - Where Angels Fear (2012) [FLAC|Lossless]<Gothic Metal, Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97535.jpg" />
+  <img src="Z:/picture/005/save_picture_97535.jpg" />
 </div>
 
 
@@ -674,7 +761,7 @@ Cynic - The Portal Tapes (2012) [FLAC|Lossless]<Progressive Metal / Experimental
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97390.jpg" />
+  <img src="Z:/picture/005/save_picture_97390.jpg" />
 </div>
 
 
@@ -709,7 +796,7 @@ Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97240.jpg" />
+  <img src="Z:/picture/005/save_picture_97240.jpg" />
 </div>
 
 
@@ -725,111 +812,6 @@ Lana Lane - El Dorado Hotel (2012) [FLAC|Lossless]<Progressive Metal / Symphonic
 08. Gone Are The Days
 09. Moon God
 10. In Exile2012Жанр: Progressive Metal / Symphonic RockПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468187   (96745) от 15.03.2012
-
-Exodus - Exhibit B: The Human Condition (2010) Japanese Edition /2011/ [FLAC|Lossless]<Thrash Metal,Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Leonard And Charles (07:14)
-02. Beyond The Pale (07:40)
-03. Hammer And Life (03:31)
-04. Class Dismissed (A Hate Primer) (07:15)
-05. Downfall (06:22)
-06. March Of The Sycophants (06:45)
-07. Nanking (07:22)
-08. Burn, Hollywood, Burn (04:06)
-09. Democide (06:36)
-10. The Sun Is My Destroyer (09:33)(   Читать дальше...   )2010 Japanese Edition /2011/Жанр: Thrash Metal,Groove MetalПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466204   (96364) от 11.03.2012
-
-Ambeon - Fate Of A Dreamer (2012) Expanded Edition [FLAC|Lossless]<Progressive Metal/Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96364.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Album
-
-01. Estranged
-02. Ashes
-03. High
-04. Cold Metal
-05. Fate
-06. Sick Ceremony
-07. Lost Message
-08. Surreal(   Читать дальше...   )2012Жанр: Progressive Metal/AmbientПродолжительность: 01:56:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465101   (96090) от 09.03.2012
-
-Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invasion Warning
-02. Front Killers
-03. Turn To Black
-04. Wanted Man
-05. The Redeemer
-06. Keep On Movin'
-07. Cheap, Wild & Nasty
-08. Brother To Brother
-09. Ghost Inside
-10. M.I.L.F.(   Читать дальше...   )2003-2007Жанр: Heavy-metalПродолжительность: 00:53:21
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,61 @@
+###  Публикация: 1337993   (269895) от 15.11.2019
+
+VA - Holiday Of City (2019) [MP3|320 Kbps] <House, Trance, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269895.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alextrackone - God Of House
+002. Winesk - Central Ave
+003. Dhome - The Drum (Scott Mac Remix)
+004. James Black Pitch - King Arthur(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 12:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53599B57D67547108EE259A3D6EB123B6B9DBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338000   (269883) от 15.11.2019
+
+VA - Pure Winter Bass (2019) [MP3|320 Kbps] <Drum & Bass, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269883.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Levl - Arcola Mell
+002. Mefjus - The Chase
+003. Gravit-E - Wipeout
+004. Waeys - Pressure(   Читать дальше...   )Жанр: Drum & Bass, BasslineПродолжительность: 09:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1CF8A74E958EB6EBED9E275DED20E6DA873ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337690   (269863) от 15.11.2019
 
 VA - Natural Order: Progressive Trance Edition (2019) [MP3|320 Kbps] <Trance, Progressive, Electro, Vocal Trance>
@@ -6,7 +64,7 @@ VA - Natural Order: Progressive Trance Edition (2019) [MP3|320 Kbps] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269863.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Tech Of Access (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269860.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Di Young - Listen To Your Heart (2018) [MP3|320 Kbps] <Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269759.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 011 (2017) [MP3|320 Kbps] <Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269597.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Underwater Dance: 130 Downtempo Mix (2017) [MP3|320 Kbps] <Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268889.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Cosmic Eguana: Psybient Space (2017) [MP3|320 Kbps] <Ambient, Psybient, Oth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268812.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Romantic Drum (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268811.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Heavenly Tracks: Greatest Electro House (2019) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268223.jpg" />
+  <img src="Z:/picture/008/save_picture_268223.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Record Super Chart 613 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268200.jpg" />
+  <img src="Z:/picture/008/save_picture_268200.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Best tracks of Transitions by John Digweed on Kiss 100. 2007 Volume 4 (2019
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268185.jpg" />
+  <img src="Z:/picture/008/save_picture_268185.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Clubland House: The Diamond Edition (2017) [MP3|320 Kbps] <Electro, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267665.jpg" />
+  <img src="Z:/picture/008/save_picture_267665.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Project Deep House: Sky Flower Mixtape (2017) [MP3|320 Kbps] <Deep House, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267131.jpg" />
+  <img src="Z:/picture/008/save_picture_267131.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Record Super Chart #515 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267102.jpg" />
+  <img src="Z:/picture/008/save_picture_267102.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Лучшие клубные новинки Vol.6 (2017) [MP3|320 Kbps] <Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267091.jpg" />
+  <img src="Z:/picture/008/save_picture_267091.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Hed Kandi - Diamond Collection of Beach House 2000-2017 (2017) [Compiled by
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266904.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266730.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Options Remake Of Tracks November -D- (2018) [MP3|320 Kbps] <Electronic, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266573.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Relax Zone Of Nature (2019) [MP3|320 Kbps] <Relax, Chillout, Ambient, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266149.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Vocal House: Winter Party (2019) [MP3|320 Kbps] <Dance, Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266144.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Glow In The Sity: Psychedelic Trance (2018) [MP3|320 Kbps] <Psychedelic, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265808.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Lounge For Boudoir (2018) [MP3|320 Kbps] <Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265803.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - The Ultimate Club House Collection (2018) [MP3|320 Kbps] <Club, Dance House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265796.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265608.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Different Space: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265346.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Different Space: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED018D6957AF8713D4EE12571DC102F95D4A288C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339562   (265345) от 20.11.2019
-
-VA - Night In The Jungle (2019) [MP3|320 Kbps] <Jungle, D&B>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sainmusic - Inner Peace
-002. Jonaro - Eternity (Original Mix)
-003. Satoru - Istanbul
-004. Bioglard - Modification (Original Mix)(   Читать дальше...   )Жанр: Jungle, D&BПродолжительность: 07:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0596D7709FC3FF816B9E9F376211BD703010705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267763   (264955) от 08.12.2018
-
-VA - Big City Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264955.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artento Divini - Aeon
-002. Warp Brothers - Time & Space
-003. Kamil Esten - Incredible (Original Mix)
-004. Alien Talk - Psy Land(   Читать дальше...   )Жанр: TranceПродолжительность: 09:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F5151B8C4CF8C0AB6366707652700553BC415B
 ```
 
 https://mybot314.ru/tekegram_catalog/

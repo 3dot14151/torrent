@@ -6,7 +6,7 @@ Secret Folder Pro 9.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785938.jpg" />
+  <img src="Z:/picture/008/save_picture_785938.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ashampoo Snap 10.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785935.jpg" />
+  <img src="Z:/picture/008/save_picture_785935.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Insideinfo - InsideInfo (2017) LP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785933.jpg" />
+  <img src="Z:/picture/008/save_picture_785933.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Paint.NET 4.0.14 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785930.jpg" />
+  <img src="Z:/picture/008/save_picture_785930.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stand Up (2017.04.09) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 8)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785926.jpg" />
+  <img src="Z:/picture/008/save_picture_785926.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Noisia - Outer Edges (Remixes) (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785918.jpg" />
+  <img src="Z:/picture/008/save_picture_785918.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ YARMAK - Restart (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785913.jpg" />
+  <img src="Z:/picture/008/save_picture_785913.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Paint.NET 4.0.14 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785912.jpg" />
+  <img src="Z:/picture/008/save_picture_785912.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ XnConvert 1.74 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785911.jpg" />
+  <img src="Z:/picture/008/save_picture_785911.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Ashampoo Snap 10.0.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785907.jpg" />
+  <img src="Z:/picture/008/save_picture_785907.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Stellarium 0.12.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785900.jpg" />
+  <img src="Z:/picture/008/save_picture_785900.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ XnViewMP 0.85 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785896.jpg" />
+  <img src="Z:/picture/008/save_picture_785896.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ W10Privacy 2.3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785891.jpg" />
+  <img src="Z:/picture/008/save_picture_785891.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ AIMP 4.13 Build 1893 DC 07.04.2017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785884.jpg" />
+  <img src="Z:/picture/008/save_picture_785884.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Adobe Acrobat XI Pro 11.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785863.jpg" />
+  <img src="Z:/picture/008/save_picture_785863.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785861.jpg" />
+  <img src="Z:/picture/008/save_picture_785861.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785841.jpg" />
+  <img src="Z:/picture/008/save_picture_785841.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785838.jpg" />
+  <img src="Z:/picture/008/save_picture_785838.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Takeri - Imagination Vol. 7 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785833.jpg" />
+  <img src="Z:/picture/008/save_picture_785833.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ QuickPhotos for Google 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785832.jpg" />
+  <img src="Z:/picture/008/save_picture_785832.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785826.jpg" />
+  <img src="Z:/picture/008/save_picture_785826.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Essential Guide: Progressive Trance Vol.12 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785824.jpg" />
+  <img src="Z:/picture/008/save_picture_785824.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NetWorker - Advanced Network Information App 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785822.jpg" />
+  <img src="Z:/picture/008/save_picture_785822.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 7 - Texas. Гонка (2017) WEB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785819.jpg" />
+  <img src="Z:/picture/008/save_picture_785819.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Howard Givens & Madhavi Devi - Source of Compassion (2016) [FLAC|Lossless|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785812.jpg" />
+  <img src="Z:/picture/008/save_picture_785812.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Persian Frequency - The Higher State of Consciousness (2017) [MP3|320 Kbps] <Psy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785799.jpg" />
+  <img src="Z:/picture/008/save_picture_785799.jpg" />
 </div>
 
 

@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862146   (1063021) от 
+
+Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spring | Агенты четырёх сезонов: Танец Весны [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то Зима была единственным временем года на свете, но такое существование было слишком одиноким, чтобы его вынести, и поэтому она создала Весну, чтобы любить. Вскоре земля захотела больше времени для отдыха в этом цикле, и так появились Лето и Осень. Те, кто несет этот цикл, называются Посланниками Четырёх Времен Года. Хинагику, Посланница Весны, исчезла с этой (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: романтика, фэнтезиРежиссер: Ямамото КэнПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5643B2EE9F057A716042C38356D4CD3715496DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861244   (1062563) от 
+
+Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете подумать, что гуляющий по округе петух — это обычная домашняя птица, но не тут-то было... Посмотрите на этот красный гребень — да это же знак величайшего защитника человечества! Да, наш герой может и невысокого роста, а все его противники как на подбор исполины — но чем больше шкаф, тем громче он падает, не так ли? Неважно, кто встанет у него на пути — (   Читать дальше...   )Производство: студия Sanzigen / サンジゲンЖанр: приключeния, комедияРежиссер: Судзуки ДайсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686B0BE17E0E49CA69BF2635F180334A312BC1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860417   (1062059) от 
+
+Steel Ball Run JoJo's Bizarre Adventure | Steel Ball Run: JoJo no Kimyou na Bouken | Невероятное приключение ДжоДжо: Гонка «Стальной шар» [2026, ONA, 1 из хх] WEBRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец девятнадцатого века. Крупный предприниматель Стивен Стил решает организовать событие, которое всколыхнёт мир. По всей Америке разносятся слухи о том, что на западе страны начинаются величайшие в истории скачки. Отвесные скалы, песчаные дюны, раскалённое солнце и путешествие по бескрайним пустошам длиною в шесть тысяч километров — это гонка «Стальной шар». Лучшие (   Читать дальше...   )Производство: студия David Production / デイヴィッドプロダクションЖанр: приключенияРежиссер: Като ТосиюкиПеревод: NetflixЯзык озвучки: #1: Японский; #2: Английский;Субтитры: Русские; АнглийскиеПродолжительность: хх эп. по 25 мин, 1эп. - 47 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBBD0C98312502B273EFBC49085F4C4AD5135AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857335   (1059504) от 07.03.2026
 
 29-sai Dokushin Chuuken Boukensha no Nichijou | An Adventurer's Daily Grind at Age 29 | Жизнь 29-летнего авантюриста [2026, TV, 1 из 12] WEBRip 1080p raw
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059504.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055473.jpg" />
+  <img src="Z:/picture/005/save_picture_1055473.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054391.jpg" />
+  <img src="Z:/picture/005/save_picture_1054391.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054011.jpg" />
+  <img src="Z:/picture/005/save_picture_1054011.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052910.jpg" />
+  <img src="Z:/picture/005/save_picture_1052910.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052812.jpg" />
+  <img src="Z:/picture/005/save_picture_1052812.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052549.jpg" />
+  <img src="Z:/picture/005/save_picture_1052549.jpg" />
 </div>
 
 
@@ -197,7 +275,7 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052497.jpg" />
+  <img src="Z:/picture/005/save_picture_1052497.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation |
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052495.jpg" />
+  <img src="Z:/picture/005/save_picture_1052495.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052161.jpg" />
+  <img src="Z:/picture/005/save_picture_1052161.jpg" />
 </div>
 
 
@@ -278,7 +356,7 @@ Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052160.jpg" />
+  <img src="Z:/picture/005/save_picture_1052160.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adore
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052106.jpg" />
+  <img src="Z:/picture/005/save_picture_1052106.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная ве
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052091.jpg" />
+  <img src="Z:/picture/005/save_picture_1052091.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052088.jpg" />
+  <img src="Z:/picture/005/save_picture_1052088.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052067.jpg" />
+  <img src="Z:/picture/005/save_picture_1052067.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052066.jpg" />
+  <img src="Z:/picture/005/save_picture_1052066.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052061.jpg" />
+  <img src="Z:/picture/005/save_picture_1052061.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Dem
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051961.jpg" />
+  <img src="Z:/picture/005/save_picture_1051961.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051942.jpg" />
+  <img src="Z:/picture/005/save_picture_1051942.jpg" />
 </div>
 
 
@@ -520,7 +598,7 @@ Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051938.jpg" />
+  <img src="Z:/picture/005/save_picture_1051938.jpg" />
 </div>
 
 
@@ -547,7 +625,7 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051937.jpg" />
+  <img src="Z:/picture/005/save_picture_1051937.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кая не боится [2026,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051850.jpg" />
+  <img src="Z:/picture/005/save_picture_1051850.jpg" />
 </div>
 
 
@@ -599,7 +677,7 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051788.jpg" />
+  <img src="Z:/picture/005/save_picture_1051788.jpg" />
 </div>
 
 
@@ -611,86 +689,6 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F450B6627B9CC7A04ED7DFB3BCD270E73A94D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847002   (1051753) от 23.01.2026
-
-Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная бригада пожарных [ТВ-3, часть 2] [2026, TV, 1 их 12 эп.] WEBRip 720р raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Токио объят пламенем. Всё дело в феномене самовозгорания, которым страдают жители. Справиться со взбунтовавшимся огнём по силам лишь членам Пламенных отрядов, в чьи ряды так спешит вступить Синра. В униформе Восьмого отряда, ловко манипулируя своими дьявольскими ступнями, наш герой не позволит городу обратиться в пепел! Вот только призраки прошлого и тайна, сокрытая (   Читать дальше...   )Производство: David ProductionЖанр: приключенияРежиссер: Minamikawa TatsumaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C368B9D4956288549783A3486709FA462DB34C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847004   (1051752) от 22.01.2026
-
-Douse, Koishite Shimaunda. 2 | Anyway, I`m Falling in Love with You. (2026) | В любом случае я влюблюсь в тебя [ТВ-2] [2026, TV, 1 их 12] WEBRip 720р raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051752.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве главной героини — начинающая мангака, которую окружает гарем из друзей детства, но она сохнет по крутому старшаку.
-
-Второй сезон истории.Производство: Typhoon GraphicsЖанр: романтикаРежиссер: Yamamoto Jun`ichiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E9AE41175D86515A727BA024635E9C3934D860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847008   (1051749) от 22.01.2026
-
-Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part 1 | Магическая битва [ТВ-3] [2026, TV, 2 из 12] WEBRip 720р raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051749.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где проклятые духи питаются ничего не подозревающими людьми, фрагменты легендарного и внушающего страх демона Сукуны Рёмена были утеряны и разбросаны повсюду. Если какой-либо демон съест части тела Сукуны, обретенная им сила может уничтожить мир, каким мы его знаем. К счастью, существует таинственная школа дзюдзюцу-магов, призванная защитить хрупкое существование (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Goshozono ShoutaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1AD31C88F459DCD2EF27F2B0B9A30EA9E2DB69
 ```
 
 https://mybot314.ru/tekegram_catalog/

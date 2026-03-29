@@ -1,3 +1,159 @@
+###  Публикация: 1711544   (61370) от 30.03.2024
+
+Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18 [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за неизвестной вспышки вируса, весь город Раккун-сити окутали монстры, люди начали превращаться в странных существ, а после убивать выживших. Выполняя задания, вы сможете управлять только одним персонажем, в то время как вторым займется искусственный интеллект. Существуют миссии, в которых можно побывать на месте любого героя, что даст лучшее понимание истории, (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D0017FC13C45EF62497A1A852BE6655FB916A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711514   (61340) от 30.03.2024
+
+Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за неизвестной вспышки вируса, весь город Раккун-сити окутали монстры, люди начали превращаться в странных существ, а после убивать выживших. Выполняя задания, вы сможете управлять только одним персонажем, в то время как вторым займется искусственный интеллект. Существуют миссии, в которых можно побывать на месте любого героя, что даст лучшее понимание истории, (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE3FEE2F89DEE0D75C67C80383F9E21A29CD88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711845   (61242) от 31.03.2024
+
+The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выживите, чтобы избежать ужасов Каллисто и раскрыть темные тайны мертвой луны Юпитера. В этой повествовательной игре ужасов на выживание от третьего лица, действие которой происходит через 300 лет в будущем, игроку предстоит взять на себя роль Джейкоба Ли - жертвы судьбы, брошенной в тюрьму Блэк Айрон, тюрьму строгого режима, расположенную на луне Юпитера. Каллисто. (   Читать дальше...   )Тип издания: RepackРазработчик: Striking Distance StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2088A7EDF7FA3E0EB8CE508C692C3E27A043CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712218   (61031) от 02.04.2024
+
+The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack DODI [Digital Deluxe Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выживите, чтобы избежать ужасов Каллисто и раскрыть темные тайны мертвой луны Юпитера. В этой повествовательной игре ужасов на выживание от третьего лица, действие которой происходит через 300 лет в будущем, игроку предстоит взять на себя роль Джейкоба Ли - жертвы судьбы, брошенной в тюрьму Блэк Айрон, тюрьму строгого режима, расположенную на луне Юпитера. Каллисто. (   Читать дальше...   )Тип издания: RepackРазработчик: Striking Distance StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C848B6C207AC71F186934DE9AAB798CD522BAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717854   (58916) от 22.04.2024
+
+Aron's Adventure (2021) [Multi] (1.05) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aron's Adventure – ролевое приключение, разворачивающееся в вымышленном мире Элоре. На магических землях вновь возродилось зло. Судьба фантастической планеты находится в руках главного героя Арона. Ему предстоит объединить все фракции в сражении с противниками. Постепенно он учится пользоваться собственными способностями.Тип издания: LicenseРазработчик: Tim van Kan, Tom RaudysЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE30E1932D64B6E7323B9AF444CD64EC0168A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717852   (58873) от 22.04.2024
+
+Aron's Adventure (2021) [En] (1.05) Scene CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aron's Adventure – ролевое приключение, разворачивающееся в вымышленном мире Элоре. На магических землях вновь возродилось зло. Судьба фантастической планеты находится в руках главного героя Арона. Ему предстоит объединить все фракции в сражении с противниками. Постепенно он учится пользоваться собственными способностями.Тип издания: SceneРазработчик: Tim van Kan, Tom RaudysЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648468   (58509) от 26.04.2024
 
 Remnant II (2023) [Ru/Multi] (417.127/dlc) Scene FairLight
@@ -6,7 +162,7 @@ Remnant II (2023) [Ru/Multi] (417.127/dlc) Scene FairLight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58509.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (275.957/dlc) Scene CODEX [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58113.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58087.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.5.114949/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57575.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Scene Razor1911 [Ulti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57055.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56087.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack FitGirl [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56006.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55994.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55683.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55672.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54754.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0.0.15/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54441.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54416.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Die by the Blade (2024) [Multi] (1.0.2) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54409.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ ALTF42 (2023) [Multi] (2.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53985.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ FUBG: FIGHT UNKNOWN BATTLEGROUND (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53972.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ ALTF42 (2023) [Multi] (2.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53967.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53898.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53895.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53882.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29662E5A3142D0273E5D65293E1968BC2245FF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729122   (53802) от 10.06.2024
-
-Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Бордо, 1968 год. Во Вьетнаме Линкольн Клей понял одно: семья - это не те, с кем ты вырос, а те, за кого ты готов умереть. Но когда итальянская мафия наносит удар в спину черной преступной группировке, когда-то заменившей Линкольну семью, он создает новую семью на руинах старой и принимается мстить, жестоко и умело. Если собрать правильных людей и не бояться замарать (   Читать дальше...   )Тип издания: RepackРазработчик: Hangar 13Жанр: Экшны, Приключение, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729124   (53798) от 10.06.2024
-
-Mafia II (2) (2020) [Ru/En] (1.0u1/dlc) Repack dixen18 [Definitive Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть криминальной саги Mafia - 40-е и 50-е годы, Эмпайр-Бэй, Нью-Йорк. Игра выпущена в HD-разрешении. Станьте гангстером в золотую эпоху организованной преступности. Чтобы расплатиться с долгами отца, герой войны Вито Скалетта связывается с мафией. Он работает вместе со своим приятелем Джо. Совершая преступления, он зарабатывает всё больший авторитет в криминальной (   Читать дальше...   )Тип издания: RepackРазработчик: Hangar 13Жанр: Экшны, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544F106C9114DD18EB6C231C38114292BF17C1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729129   (53797) от 10.06.2024
-
-Mafia (2020) [Ru/Multi] (1.0.3/dlc) Repack dixen18 [Definitive Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть криминальной саги Mafia - 30-е годы, Лост-Хэвен, Иллинойс. Ремейк культовой игры, воссозданной с нуля. Постройте карьеру мафиози во времена сухого закона. После случайной встречи с мафией таксист Томми Анджело попадает в мир организованной преступности. Сначала он настороженно относится к семье Сальери, но большие деньги меняют его отношение.Тип издания: RepackРазработчик: Hangar 13Жанр: Экшны, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2556A068998339CDF4CD083545F9D89C8FF3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729631   (53583) от 12.06.2024
-
-I Am Alive (2012) [Ru/Multi] (1.0) Repack dixen18
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53583.jpg" />
-</div>
-
-
-###  Подробнее
-
-I Am Alive – экшен-приключение с элементами выживания, раскрывающая историю Адам Коллинса, потерявшего семью в следствие серьёзного землетрясения в целых 10,3 баллов по шкале Рихтера. Целью его путешествия по разрушенному городу Хэвентону (несуществующий в реальности, но созданный на основе другого американского мегаполиса - Чикаго) станет нахождения своей жены и (   Читать дальше...   )Тип издания: RepackРазработчик: Darkworks, Ubisoft ShanghaiЖанр: Adventure (Survival), Action, 3rd PersonЯзык озвучки: Русский (опционально), АнглийскийЯзык субтитров: Русский (опционально), Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский (опционально), Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8841A04025EDB91851DFFC7ABCCDB35081889703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729698   (53581) от 12.06.2024
-
-Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (14397396) Repack Wagner
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический подарок для любителей адвенчур, в котором собраны оригинальные приключения легендарной Лары Крофт. В комплект входят первые три части со всеми дополнениями и секретными уровнями, которые теперь обновлены благодаря улучшенной графике и производительности, что позволяет игрокам плавно переключаться между (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F062C0296DE3A10DB10B7DEBF2D896A30031CBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730447   (53291) от 15.06.2024
-
-Shadow Hush (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в путешествие, полное скрытности и интриг, в "SHADOW HUSH", где вы возьмете на себя роль высококвалифицированного агента, выполняющего опасную миссию по раскрытию темных секретов могущественной корпорации GUARD. Используйте свои навыки скрытности, чтобы проникнуть на базу с усиленной охраной, скрываясь от наблюдения и вооруженных врагов и (   Читать дальше...   )Тип издания: SceneРазработчик: ArcadiaЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4949E1A70744E0BBB3210414321B8C59CAEE839D
 ```
 
 https://mybot314.ru/tekegram_catalog/

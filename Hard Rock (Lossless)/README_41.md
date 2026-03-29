@@ -1,3 +1,61 @@
+###  Публикация: 1555492   (568908) от 04.06.2022
+
+Ten - Here Be Monsters (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fearless (6:51)
+02. Chapter And Psalm (8:16)
+03. Hurricane (4:33)
+04. Strangers On A Distant Shore (6:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467990D6B84A99FFD713832466E888B63F10E77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922622   (568025) от 29.07.2015
+
+Deep Purple - Now What?! (2013) 5CD Box Set [FLAC|image+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Simple Song
+02. Weirdistan
+03. Out Of Hand
+04. Hell To Pay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EC620F7698F4183A021ED9C4BDCA10FDC60D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234649   (567832) от 07.07.2018
 
 Magnum - Lost On The Road To Eternity (2018) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ Magnum - Lost On The Road To Eternity (2018) 2CD [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567832.jpg" />
+  <img src="Z:/picture/008/save_picture_567832.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Bort - The Wreck of the Hesperus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567497.jpg" />
+  <img src="Z:/picture/008/save_picture_567497.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Def Leppard - Diamond Star Halos (2022) Japanese Edition [WavPack|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566885.jpg" />
+  <img src="Z:/picture/008/save_picture_566885.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Alice Cooper - Billion Dollar Babies (1973) Hybrid SACD, Limited Edition /2014, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566243.jpg" />
+  <img src="Z:/picture/008/save_picture_566243.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Legion - Legion (2010) [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565685.jpg" />
+  <img src="Z:/picture/008/save_picture_565685.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Now Or Never - II (2016) Jpanase Edition [FLAC|Lossless|image + .cue] <Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565538.jpg" />
+  <img src="Z:/picture/008/save_picture_565538.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565519.jpg" />
+  <img src="Z:/picture/008/save_picture_565519.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Sammy Hagar & The Circle - Space Between (2019) [FLAC|Lossless|tracks + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565419.jpg" />
+  <img src="Z:/picture/008/save_picture_565419.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Don Dokken - Solitary (2008) (Reissued-2020) [WavPack|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565324.jpg" />
+  <img src="Z:/picture/008/save_picture_565324.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Armageddon - Heavy Metal Saga (2002) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565086.jpg" />
+  <img src="Z:/picture/008/save_picture_565086.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ BB Steal - On The Edge (1991) [FLAC|Lossless|image + .cue] <Hard Rock,  Arena Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564077.jpg" />
+  <img src="Z:/picture/008/save_picture_564077.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563238.jpg" />
+  <img src="Z:/picture/008/save_picture_563238.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Locust Grove - The Battle of Locust (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563237.jpg" />
+  <img src="Z:/picture/008/save_picture_563237.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Graham Bonnet Band - Day Out In Nowhere (2022) Japanese Edition [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563099.jpg" />
+  <img src="Z:/picture/008/save_picture_563099.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Roadside Gamblers - Rust, Smoke & Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561519.jpg" />
+  <img src="Z:/picture/008/save_picture_561519.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Jess And The Ancient Ones - Jess And The Ancient Ones (2012) [FLAC|Lossless]<Psy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560971.jpg" />
+  <img src="Z:/picture/008/save_picture_560971.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ Valley of the Sun - Old Gods (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559929.jpg" />
+  <img src="Z:/picture/008/save_picture_559929.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ Dirt - Deadbeat (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559855.jpg" />
+  <img src="Z:/picture/008/save_picture_559855.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ Keys - Keys (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard, Prog Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559732.jpg" />
+  <img src="Z:/picture/008/save_picture_559732.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ Ronni Le Tekro - Bigfoot TV (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559722.jpg" />
+  <img src="Z:/picture/008/save_picture_559722.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ Mr. Big - Defying Gravity (2017) Japan [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557983.jpg" />
+  <img src="Z:/picture/008/save_picture_557983.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ Alice Cooper - Paranormal (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557969.jpg" />
+  <img src="Z:/picture/008/save_picture_557969.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ CoreLeoni - III (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557074.jpg" />
+  <img src="Z:/picture/008/save_picture_557074.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ Graham Bonnet Band - Live… Here Comes The Night (Japanese Edition) (2017) [Wav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556603.jpg" />
+  <img src="Z:/picture/008/save_picture_556603.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ Graham Bonnet Band - Live… Here Comes The Night (Japanese Edition) (2017) [Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91CCF9B9C87FB6C9039C97E5769461C8F1E244B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557004   (556472) от 12.06.2022
-
-Yet Again - Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution
-02. Media Lies
-03. Freedom Ain't Free
-04. Groundhog Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8A604432F564B5F9E34FC606B3A40800FEDE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556923   (556464) от 12.06.2022
-
-Darian And Friends - Lost Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Traditional Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Run (Michael Stavrakakis)
-02. Lost Horizons (Ty Christian)
-03. The Things I Want To Be (Anders Engberg)
-04. Eyes Of An Angel (Giorgia Colleluori)(   Читать дальше...   )Жанр: Hard Rock, Traditional Heavy MetalПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1766286A498B64282B2AFD9956151693E59E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1551198   (590243) от 15.05.2022
+
+Orkan - Livsgaranti (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Urskog (00:04:48)
+02 - Leva for att do (00:03:17)
+03 - Livsgaranti (00:04:37)
+04 - Vagrar vara tyst - forsta delen (00:05:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1ACE43E2CC969F8F11438811D8A9394B6C2380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551271   (590237) от 15.05.2022
+
+Jason Scheff - Here I Am (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will You Still Love Me (5:39)
+02. Here I Am (4:32)
+03. Look Away (4:18)
+04. Wonderful Day (4:08)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C7F18B37D6B6FF0B053083B4D1C0D2802CA258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551274   (590230) от 15.05.2022
+
+Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me (2:58)
+02. Feel The Fire (3:25)
+03. Angels Fear To Tread (3:50)
+04. Lonely To (3:03)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BFAFABDFFDCA6B9DE4EB30D2245DB3B59BB9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551332   (590194) от 15.05.2022
+
+Mark Riddell - Mark Riddell Presents: Corporeal Pilot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cover of the Year (00:02:43)
+02 - Crossing Wind (00:03:39)
+03 - Shakedown Mr. Bluebird (00:03:16)
+04 - All Around Us (00:04:11)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE2D1FD53D8D7411FAB57EFD9A6FA7C91C4B6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551523   (589775) от 16.05.2022
+
+Never Kenezzard - The Long And Grinding Road (2022) [FLAC|Lossless|image + .cue] <Stoner Rock, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_589775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity
+02. Genie
+03. Praer
+04. Ra(   Читать дальше...   )Жанр: Stoner Rock, Sludge MetalПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA10DA286BA755588BEA74504EDD73F02DB5B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551630   (589426) от 17.05.2022
 
 Anonymonkey - Human Suit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock>
@@ -6,7 +151,7 @@ Anonymonkey - Human Suit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589426.jpg" />
+  <img src="Z:/picture/008/save_picture_589426.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Medusa's Disco - 5 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589002.jpg" />
+  <img src="Z:/picture/008/save_picture_589002.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Earth Altar - Earth Altar (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588515.jpg" />
+  <img src="Z:/picture/008/save_picture_588515.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ Tempest - Tempest (1973) 2011 Remastered [WavPack|Lossless|image + .cue] <Heavy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587511.jpg" />
+  <img src="Z:/picture/008/save_picture_587511.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Paul Gilbert - Stone Pushing Uphill Man (2014) [FLAC|Lossless|image + .cue] <Ins
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587456.jpg" />
+  <img src="Z:/picture/008/save_picture_587456.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Sheryl Crow - Sheryl Crow (1996) Special Edition [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587422.jpg" />
+  <img src="Z:/picture/008/save_picture_587422.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Tompox - Reincarnation (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587240.jpg" />
+  <img src="Z:/picture/008/save_picture_587240.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Daniel Gauthier - The Wish (2008) [FLAC|Lossless|image + .cue]<Neo-Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586543.jpg" />
+  <img src="Z:/picture/008/save_picture_586543.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Santana - Abraxas (1970) MFSL UDCD 775, 2008 [FLAC|Lossless|image + .cue]<Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586450.jpg" />
+  <img src="Z:/picture/008/save_picture_586450.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Papir - VI (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Space Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586270.jpg" />
+  <img src="Z:/picture/008/save_picture_586270.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Mark Knopfler - 46 Albums (1983-2016) 21 Studio, 16 Singles, 9 Soundtracks [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586157.jpg" />
+  <img src="Z:/picture/008/save_picture_586157.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ God Is An Astronaut - Helios | Erebus (2015) [FLAC|Lossless|WEB-DL]<Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585994.jpg" />
+  <img src="Z:/picture/008/save_picture_585994.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ Banditos - Right On (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Southern,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585882.jpg" />
+  <img src="Z:/picture/008/save_picture_585882.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ Sageness - Tr3s (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585852.jpg" />
+  <img src="Z:/picture/008/save_picture_585852.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ Six Silver Suns - As Archons Fall (2021) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585850.jpg" />
+  <img src="Z:/picture/008/save_picture_585850.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Train - AM Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Roots Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585849.jpg" />
+  <img src="Z:/picture/008/save_picture_585849.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ Evals Mess Project - Born of the Flower (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585846.jpg" />
+  <img src="Z:/picture/008/save_picture_585846.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Red Moon Shaman - Chapter One (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585843.jpg" />
+  <img src="Z:/picture/008/save_picture_585843.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ Lonerider - Sundown (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585842.jpg" />
+  <img src="Z:/picture/008/save_picture_585842.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Mick Fleetwood & Friends - Celebrate The Music Of Peter Green And The Early Year
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585730.jpg" />
+  <img src="Z:/picture/008/save_picture_585730.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Abronia - The Whole of Each Eye (2019) [FLAC|Lossless|WEB-DL|tracks] <Krautrock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584826.jpg" />
+  <img src="Z:/picture/008/save_picture_584826.jpg" />
 </div>
 
 
@@ -602,151 +747,6 @@ Abronia - The Whole of Each Eye (2019) [FLAC|Lossless|WEB-DL|tracks] <Krautrock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD5AD32104ACDAEE2BF872FDF981667F04407E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553012   (584823) от 23.05.2022
-
-Abronia - Map of Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Krautrock, Psychedelic, Fuzz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Night Hoarders (00:06:11)
-02 - Plant The Flag (00:03:46)
-03 - Games (00:05:21)
-04 - Wave Of The Hand (00:04:53)(   Читать дальше...   )Жанр: Krautrock, Psychedelic, Fuzz RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2813CF89DB5CCC6A199EF9F0BBF7256F63D42936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552814   (584817) от 23.05.2022
-
-Oculto - Caos, Cosmos & Cataclismos (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Barbatros (00:06:34)
-02 - Transmutacion (00:06:02)
-03 - Coven (00:07:58)
-04 - El Nahual (00:07:37)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2E0C49689F339EA94D21536D9410CE73DE92DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552993   (584756) от 23.05.2022
-
-Starlight Brigade - Beyond The Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Crossover Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Horizone (00:05:46)
-02 - Let It Rain (Let it all come down) (00:04:28)
-03 - Light Years Away (00:04:50)
-04 - Red Moon Is Calling (00:04:06)(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD6988D578C19FD6174C287229031F21B749347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301723   (584167) от 12.05.2019
-
-Sacred Reign - Looking For Love (1993) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strength In Yourself (3:06)
-02. Arms Open Wide (3:13)
-03. Walking Alone In Moonlight (3:22)
-04. Looking for Love (3:20)(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80EB98E3393B79EB625C494973F65D32FAA725BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919293   (584027) от 18.07.2015
-
-VA - Heart Rock - Rock Fur's Herz vol. 6 (1994) 2CD [FLAC|tracks + .cue]<Rock, Soul, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Crash Test Dummies - In The Days Of The Caveman [3:42]
-02.Tina Turner - Let's Stay Together [5:18]
-03.Roxette - Fading Like A Flower [3:51]
-04.Haddaway - I Miss You [3:40](   Читать дальше...   )Жанр: Rock, Soul, PopПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653435FD8A2AF9FDC879B09151E1568BD0645BF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

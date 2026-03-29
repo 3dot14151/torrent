@@ -1,3 +1,83 @@
+###  Публикация: 1073835   (343055) от 17.11.2016
+
+Нина Фортунатова | Мой огненный ангел (2000) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343055.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мой огненный ангел" - это история одной жизни, значительная часть которой прошла рядом с великим проповедником нашего времени - отцом Александром Менем. А в целом - это история целой эпохи церковной жизни в России.
+
+Уже столько о батюшке написано, что мой рассказ вряд ли что-то добавит. Но воспоминания не оставляют меня, и я решаюсь предложить вот эти (   Читать дальше...   )Жанр: МемуарыФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B653E6DDDBE1CE1B9A8550E05F869AC2AF9C5B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578735   (343003) от 24.09.2022
+
+Наталья Телепина | Откровение женщине от Бога, о последних временах (2013) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343003.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1994 году, одной женщине в России был показан сон-видение от Бога о последних временах. Ей было показано Господом то, что ожидает нас всех в недалеком будущем. Пророчества этой женщины совпадают с пророчествами, святого Иоанна Богослова и с пророчествами многих святых, живших в прошлом. Запись была обнародована в начале 2013 года. Этот текст был создан из аудиозаписи. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C41278394ED5063769AD8C7F8F3E711008C5D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580741   (342996) от 25.11.2012
+
+Триод Цветная [1648] [PDF] (Раритетное издание)
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Триодь (греч. Triodion), богослужебная книга, содержащая части богослужения с изменяемыми молитвословиями для подвижных дней года (в зависимости от празднования Пасхи, начиная с Недели о мытаре и фарисее и заканчивая Неделей всех святых). Название книги связано с тем, что каноны (вид церковного гимна), содержащиеся в ней, большей частью состоят из трех песней. Триодь Цветная содержит изменяемые части служб от первого дня Пасхи до Недели Всех святых. Электронная копия Триоди Цветной - один из старинных памятников церковно-славянской письменности. Его данные бесценны как для историков языка, так и для историков искусства. Оно отпечатано в Москве 17 марта 1648 года [01.09.7155 - 17.03.7156].Жанр: Раритеты, Духовная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA94CE33BF4C808844218E5A08681B7F4E7E435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580761   (342719) от 25.11.2012
 
 Евангелие учительное [1633] [PDF] (Раритетное издание)
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342719.jpg" />
+  <img src="Z:/picture/008/save_picture_342719.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341888.jpg" />
+  <img src="Z:/picture/008/save_picture_341888.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341315.jpg" />
+  <img src="Z:/picture/008/save_picture_341315.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341290.jpg" />
+  <img src="Z:/picture/008/save_picture_341290.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ Firmin-Didot et Ciz (изд.) | Восточная патрология [Patrolo
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341280.jpg" />
+  <img src="Z:/picture/008/save_picture_341280.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340280.jpg" />
+  <img src="Z:/picture/008/save_picture_340280.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340148.jpg" />
+  <img src="Z:/picture/008/save_picture_340148.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338759.jpg" />
+  <img src="Z:/picture/008/save_picture_338759.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338604.jpg" />
+  <img src="Z:/picture/008/save_picture_338604.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335896.jpg" />
+  <img src="Z:/picture/008/save_picture_335896.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335821.jpg" />
+  <img src="Z:/picture/008/save_picture_335821.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334543.jpg" />
+  <img src="Z:/picture/008/save_picture_334543.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334002.jpg" />
+  <img src="Z:/picture/008/save_picture_334002.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333996.jpg" />
+  <img src="Z:/picture/008/save_picture_333996.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333984.jpg" />
+  <img src="Z:/picture/008/save_picture_333984.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333903.jpg" />
+  <img src="Z:/picture/008/save_picture_333903.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333546.jpg" />
+  <img src="Z:/picture/008/save_picture_333546.jpg" />
 </div>
 
 
@@ -463,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332603.jpg" />
+  <img src="Z:/picture/008/save_picture_332603.jpg" />
 </div>
 
 
@@ -489,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331364.jpg" />
+  <img src="Z:/picture/008/save_picture_331364.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331216.jpg" />
+  <img src="Z:/picture/008/save_picture_331216.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331202.jpg" />
+  <img src="Z:/picture/008/save_picture_331202.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329017.jpg" />
+  <img src="Z:/picture/008/save_picture_329017.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327210.jpg" />
+  <img src="Z:/picture/008/save_picture_327210.jpg" />
 </div>
 
 
@@ -604,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5597133E2FD4986B72848D68437D132B21EC570C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957688   (326767) от 18.11.2015
-
-Ф. М. Путинцев | Политическая роль и тактика сект (1935) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326767.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге т. Путинцева дан анализ политической роли и тактики сект начиная с 1900-х гг. и кончая нашими днями.
-
-Рассматривая тактику сект при советской власти на разных этапах, автор вскрывает реакционную сущность сект, показывая наряду с этим процесс высвобождения верующих из под влияния сектантства в результате успехов социалистического строительства.
-(   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F8EE701893E0732A62D666D70B4F8D3CD2AE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958089   (324993) от 20.11.2015
-
-А.И. Сидоров, O.E. Нестерова и др. | Раннехристианская и византийская экзегетика (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник статей посвящен такой важной, но в современной отечественной филологической науке мало изучаемой проблеме, как толкование Библии в раннехристианский и византийский период. Наряду с тем, что в нем дан подробный исторический обзор истории развития методов толкования Священного Писания со II по VIII вв., его авторов интересовали важные теоретические проблемы, (   Читать дальше...   )Жанр: Сборник статей, экзегезаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D893D04C57672CAA97517C46A9CF3C5C2386278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958599   (324027) от 21.11.2015
-
-Прп. Алексий Карпаторусский | Путь к святости (2009) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена непростой жизни одного из величайших карпаторусских святых, апостола Подкарпатья, жившего на рубеже XIX и XX веков, - преподобного Алексия Карпаторусского, урожденного Александра Кабалюка. Святыми не рождаются, ими становятся; его путь к святости был долог и труден, да он и не может быть иным. Господь многократно ставил его перед нравственным (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E76A6D38C63C4CF869C89AD66921AD731D5F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

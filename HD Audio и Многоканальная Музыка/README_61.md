@@ -1,3 +1,234 @@
+###  Публикация: 1660657   (189404) от 13.09.2023
+
+Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189404.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Settle Down
+A2 After The Laughter (Came Tears)
+A3 Butterfly
+A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660750   (189373) от 13.09.2023
+
+Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189373.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vienna Blood
+A2 Radetzky March
+A3 Tales From The Vienna Woods
+B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590260   (189035) от 13.11.2022
+
+Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48 Crash (3:57)
+ 02. Glycerine Queen (3:52)
+ 03. Shine My Machine (3:54)
+ 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590282   (189034) от 13.11.2022
+
+Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1 • «Юнона» И «Авось» • Опера
+02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
+03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
+04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661107   (188800) от 14.09.2023
+
+Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ludvig Van Beethoven (1770 - 1817)
+Symphony No.6 In F Major, Op. 68 "Pastoral"
+A New Recording from the Berlin Philarmonic Hall
+A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590517   (188658) от 14.11.2022
+
+Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Moon Rising (2:19)
+ 02. Midnight Hour (2:26)
+ 03. I Feel The Earth Move (2:54)
+ 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543805   (188589) от 14.11.2022
+
+Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_188589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
+1985 - Freaky Styley
+1987 - The Uplift Mofo Party Plan
+1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661762   (188563) от 15.09.2023
+
+Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
+2005 - Touched by the Crimson King
+2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661630   (188544) от 15.09.2023
 
 Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
@@ -6,7 +237,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188544.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188255.jpg" />
 </div>
 
 
@@ -92,7 +323,7 @@ Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188193.jpg" />
+  <img src="Z:/picture/005/save_picture_188193.jpg" />
 </div>
 
 
@@ -121,7 +352,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188101.jpg" />
 </div>
 
 
@@ -149,7 +380,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188078.jpg" />
 </div>
 
 
@@ -178,7 +409,7 @@ Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Rem
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187674.jpg" />
 </div>
 
 
@@ -207,7 +438,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187530.jpg" />
 </div>
 
 
@@ -236,7 +467,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187452.jpg" />
 </div>
 
 
@@ -265,7 +496,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187437.jpg" />
 </div>
 
 
@@ -294,7 +525,7 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187205.jpg" />
 </div>
 
 
@@ -323,7 +554,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187201.jpg" />
 </div>
 
 
@@ -352,7 +583,7 @@ Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187195.jpg" />
 </div>
 
 
@@ -381,7 +612,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187193.jpg" />
 </div>
 
 
@@ -410,7 +641,7 @@ Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187160.jpg" />
 </div>
 
 
@@ -439,7 +670,7 @@ Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187149.jpg" />
 </div>
 
 
@@ -468,7 +699,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -497,7 +728,7 @@ Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187108.jpg" />
+  <img src="Z:/picture/005/save_picture_187108.jpg" />
 </div>
 
 
@@ -511,238 +742,6 @@ Heathen — группа из США, играющая в стиле спид/т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572601   (187065) от 20.09.2023
-
-Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
-2007 - Hope
-2010 - Desert Call
-2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663262   (186836) от 21.09.2023
-
-Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Morality Glory
-02 – 123-555-6247
-03 – Suddenly a Kiss
-04 – Is This Really Living?(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663324   (186830) от 21.09.2023
-
-The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186830.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Trumpet Overture From «The Indian Queen»
-Suite From Abdelazer
-A2 (a) Overture - Allegro
-A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663156   (186828) от 21.09.2023
-
-Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186828.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Linked Between Two Minds (5:03)
-2. Crashing Into Tomorrow (5:02)
-3. It Never Takes Long To Say No (4:38)
-4. Shouldering (5:06)(   Читать дальше...   )Жанр: Post-Punk, Minimal WaveПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990840AA8CDCC887544F11118BBE464E27CFB3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663153   (186748) от 21.09.2023
-
-Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problématique [00:03:03]
-02. Je T'Adore [00:03:05]
-03. All She Wants [00:03:52]
-04. Born Again [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE526F4ACD1352A6BD8F5E36A7C804E82967E9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591676   (186714) от 19.11.2022
-
-Queen - The Miracle (Collectors Edition) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 Bob Ludwig 2011 Remaster:
-01. Party (Remastered 2011) (2:24)
-02. Khashoggi's Ship (Remastered 2011) (2:49)
-03. The Miracle (Remastered 2011) (5:02)(   Читать дальше...   )Жанр: RockПродолжительность: 03:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0D0526454AAE02687A40EFA5385BAA8A8E56A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663580   (186597) от 22.09.2023
-
-Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Wish (00:03:39)
-02 - Not Welcome (00:03:46)
-03 - Attitude (00:03:56)
-04 - Give Me (00:03:47)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10671E3D34499FBAB2665963230FB4624E2B838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663360   (186591) от 22.09.2023
-
-Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse Wow [00:05:52]
-02. My Vast Empire [00:05:41]
-03. Eva [00:04:41]
-04. Moonling [00:05:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C14942E4F7A17A37F41ACF85DDCA55239DEF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

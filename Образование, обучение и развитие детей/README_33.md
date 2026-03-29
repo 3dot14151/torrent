@@ -1,3 +1,55 @@
+###  Публикация: 904381   (655580) от 02.06.2015
+
+Семен Узин | Загадки материков и океанов (1958) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кажется, что уже все острова, материки и океаны давно открыты и исследованы, но это совсем не так. Где-то глубоко в недрах Земли или в глубинах океана есть еще много любопытного, скрытого от посторонних глаз. Открыв книгу, перелистывая страницу за страницей, можно ощутить себя капитаном дальнего увлекательного плавания. Может, следующий открытый материк будет именно (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB2EEB6194835BA7632B8524DD62614D1C7C8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904719   (654066) от 03.06.2015
+
+Юлия Гиппенрейтер | Самая важная книга для родителей (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654066.jpg" />
+</div>
+
+
+###  Подробнее
+
+это издание вошли бестселлеры профессора Ю. Б. Гиппенрейтер «Общаться с ребенком. Как?», «Продолжаем общаться с ребенком. Так?» и хрестоматия «Родителям: как быть ребенком» – книги, совершившие революцию в области воспитания и продолжающие окрылять родителей. Автор подробно рассматривает воспитательные нормы, бытующие в нашей культуре много десятилетий, – и показывает, (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BC20CB19B5495BD2418428C6893A7DC9A979BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540475   (652642) от 30.03.2022
 
 Юнисеф | Вода, Санитария и Гигиена для школьников (2012) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652642.jpg" />
+  <img src="Z:/picture/008/save_picture_652642.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651577.jpg" />
+  <img src="Z:/picture/008/save_picture_651577.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651366.jpg" />
+  <img src="Z:/picture/008/save_picture_651366.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651245.jpg" />
+  <img src="Z:/picture/008/save_picture_651245.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651106.jpg" />
+  <img src="Z:/picture/008/save_picture_651106.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650514.jpg" />
+  <img src="Z:/picture/008/save_picture_650514.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650261.jpg" />
+  <img src="Z:/picture/008/save_picture_650261.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649433.jpg" />
+  <img src="Z:/picture/008/save_picture_649433.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649168.jpg" />
+  <img src="Z:/picture/008/save_picture_649168.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647507.jpg" />
+  <img src="Z:/picture/008/save_picture_647507.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647447.jpg" />
+  <img src="Z:/picture/008/save_picture_647447.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647248.jpg" />
+  <img src="Z:/picture/008/save_picture_647248.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646621.jpg" />
+  <img src="Z:/picture/008/save_picture_646621.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646517.jpg" />
+  <img src="Z:/picture/008/save_picture_646517.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646514.jpg" />
+  <img src="Z:/picture/008/save_picture_646514.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645773.jpg" />
+  <img src="Z:/picture/008/save_picture_645773.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645692.jpg" />
+  <img src="Z:/picture/008/save_picture_645692.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645433.jpg" />
+  <img src="Z:/picture/008/save_picture_645433.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645175.jpg" />
+  <img src="Z:/picture/008/save_picture_645175.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644602.jpg" />
+  <img src="Z:/picture/008/save_picture_644602.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644562.jpg" />
+  <img src="Z:/picture/008/save_picture_644562.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643494.jpg" />
+  <img src="Z:/picture/008/save_picture_643494.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643487.jpg" />
+  <img src="Z:/picture/008/save_picture_643487.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643436.jpg" />
+  <img src="Z:/picture/008/save_picture_643436.jpg" />
 </div>
 
 
@@ -637,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E85D017AB359B757F419A3873B677E70BCD0D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906676   (643419) от 09.06.2015
-
-Г.  Солодков (сост.) | Юный слесарь (1942) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Между столярным и слесарным делом много сходства. И металл и дерево можно пилить, резать, сверлить, точить, полировать, шлифовать. Даже станки во многих случаях принципиально одинаковы, а инструменты отличаются главным образом твердостью, закалкой материала, из которого они сделаны. Для обработки дерева требуется более мягкая сталь, для обработки железа, латуни, (   Читать дальше...   )Жанр: Обучающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0806B08A2EFC8B958710BB0002DA2CF60C70688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292782   (643370) от 31.03.2019
-
-Детская литература | Критико-библиографический двухнедельник ЦК ВЛКСМ [20 книг] (1937) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал критики детской литературы. Журнал "Детская литература" рассчитан на писателей, научных работников по детской книге, педагогов, библиотекарей, студентов, пионер- вожатых.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68156C806E17EF09ADBAF02E291C64CDF7ABEE3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

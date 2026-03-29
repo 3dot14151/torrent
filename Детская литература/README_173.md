@@ -1,3 +1,29 @@
+###  Публикация: 1427518   (183574) от 28.11.2020
+
+Сергей Еремеев | Смешные вы ребята! (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда семья переезжает в новую квартиру – это значит, что теперь всё будет по-другому! Вундеркинд Тёма идёт в первый класс и ради шутки делает вид, что не умеет ни читать, ни писать и абсолютно ничего не смыслит в математике. Его старший брат поддерживает эту затею, и начинается чехарда событий, недопониманий и очень смешных ситуаций. Только бабушка, приехавшая из (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CBBBED33DB958C5DF6CC4369DD85D631084DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427511   (183571) от 28.11.2020
 
 Геннадий Киселёв | Шоу ушастых вундеркиндов [сборник] (2018) [EPUB]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183571.jpg" />
+  <img src="Z:/picture/004/save_picture_183571.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183474.jpg" />
+  <img src="Z:/picture/004/save_picture_183474.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183467.jpg" />
+  <img src="Z:/picture/004/save_picture_183467.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183406.jpg" />
+  <img src="Z:/picture/004/save_picture_183406.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183385.jpg" />
+  <img src="Z:/picture/004/save_picture_183385.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183271.jpg" />
+  <img src="Z:/picture/004/save_picture_183271.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183092.jpg" />
+  <img src="Z:/picture/004/save_picture_183092.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182490.jpg" />
+  <img src="Z:/picture/005/save_picture_182490.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182470.jpg" />
+  <img src="Z:/picture/005/save_picture_182470.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182462.jpg" />
+  <img src="Z:/picture/005/save_picture_182462.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182359.jpg" />
+  <img src="Z:/picture/005/save_picture_182359.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182268.jpg" />
+  <img src="Z:/picture/005/save_picture_182268.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182207.jpg" />
+  <img src="Z:/picture/005/save_picture_182207.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182202.jpg" />
+  <img src="Z:/picture/005/save_picture_182202.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181536.jpg" />
+  <img src="Z:/picture/005/save_picture_181536.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180968.jpg" />
+  <img src="Z:/picture/005/save_picture_180968.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180944.jpg" />
+  <img src="Z:/picture/005/save_picture_180944.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180916.jpg" />
+  <img src="Z:/picture/005/save_picture_180916.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180913.jpg" />
+  <img src="Z:/picture/005/save_picture_180913.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180849.jpg" />
+  <img src="Z:/picture/005/save_picture_180849.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180830.jpg" />
+  <img src="Z:/picture/005/save_picture_180830.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180064.jpg" />
+  <img src="Z:/picture/005/save_picture_180064.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180050.jpg" />
+  <img src="Z:/picture/005/save_picture_180050.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179574.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179557.jpg" />
 </div>
 
 
@@ -657,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6EB12CA883D6EFDC0C73441F793ABA7D129D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428661   (179368) от 03.12.2020
-
-Юлия Кузнецова | Ирочка (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мамы бывают разные. Строгие, забывчивые, ласковые, умные, спешащие… А у Ирочки и её брата Максима мама – фантазёрка. Где бы ни оказывалась семья – на даче, у моря или в городе – им никогда не бывает скучно, всегда для них занятие находится: создавать пиратскую команду, объяснять улиткам дорогу к дому, побеждать дракона…
-А какая дочка может быть у такой мамы? Конечно, (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F412D8C920711DC116211BE8A6AF1A965F40BE00
 ```
 
 https://mybot314.ru/tekegram_catalog/

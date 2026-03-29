@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357163.jpg" />
+  <img src="Z:/picture/008/save_picture_357163.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Project NT - Бесы (2016) [FLAC|Lossless|image + .cue] <Experimental, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356967.jpg" />
+  <img src="Z:/picture/008/save_picture_356967.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Naka - Пора (2010) [FLAC|Lossless] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356362.jpg" />
+  <img src="Z:/picture/005/save_picture_356362.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355472.jpg" />
+  <img src="Z:/picture/008/save_picture_355472.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353310.jpg" />
+  <img src="Z:/picture/008/save_picture_353310.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_353001.jpg" />
+  <img src="Z:/picture/005/save_picture_353001.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ad Nihil - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludg
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352558.jpg" />
+  <img src="Z:/picture/008/save_picture_352558.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Crust - Wanderers (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Post Black, Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352555.jpg" />
+  <img src="Z:/picture/008/save_picture_352555.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352552.jpg" />
+  <img src="Z:/picture/008/save_picture_352552.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Stilgar - 4 Releases (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352550.jpg" />
+  <img src="Z:/picture/008/save_picture_352550.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ S.C.A.L.P. - 2 Albums, 2 Singles (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352547.jpg" />
+  <img src="Z:/picture/008/save_picture_352547.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352451.jpg" />
+  <img src="Z:/picture/008/save_picture_352451.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352161.jpg" />
+  <img src="Z:/picture/008/save_picture_352161.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350938.jpg" />
+  <img src="Z:/picture/008/save_picture_350938.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Massface - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350398.jpg" />
+  <img src="Z:/picture/008/save_picture_350398.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350295.jpg" />
+  <img src="Z:/picture/008/save_picture_350295.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ On-The-Go - Origins (2016) Digipak CD Edition [FLAC|Lossless|tracks + .cue] <Ind
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349835.jpg" />
+  <img src="Z:/picture/008/save_picture_349835.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349559.jpg" />
+  <img src="Z:/picture/008/save_picture_349559.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348525.jpg" />
+  <img src="Z:/picture/008/save_picture_348525.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_347969.jpg" />
+  <img src="Z:/picture/005/save_picture_347969.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347367.jpg" />
+  <img src="Z:/picture/008/save_picture_347367.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346317.jpg" />
+  <img src="Z:/picture/008/save_picture_346317.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Somnambular Dance - Городу - трещины (2022) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345860.jpg" />
+  <img src="Z:/picture/008/save_picture_345860.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345699.jpg" />
+  <img src="Z:/picture/008/save_picture_345699.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345218.jpg" />
+  <img src="Z:/picture/008/save_picture_345218.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341947.jpg" />
+  <img src="Z:/picture/008/save_picture_341947.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1177020   (365480) от 24.10.2017
+
+О. Г. Кадочникова | Древнеславянский перевод «Поучений огласительных и тайноводственных» свт. Кирилла Иерусалимского: лексика и текстология (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365480.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли статьи, посвященные изучению древнеславянского перевода Поучений огласительных и тайноводственных святителя Кирилла Иерусалимского. В ходе исследования, на широком фоне сравнительных материалов данных других старославянских текстов, диалектных и этимологических словарей, предпринимается попытка выяснить какое место занимает данный памятник в истории (   Читать дальше...   )Жанр: Сборник статей, палеография, текстологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BBC8FEABC226C5073DE7C9555CC47EE1A1CF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177255   (365466) от 24.10.2017
+
+Т.Г. Дорофеева | Культовые сооружения в истории религии (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена культовым сооружениям, принадлежащим различным религиозным верованиям. Они возводятся по строгим, отличным друг от друга канонизированным принципам, отражающимся в композиционных приемах планировки, во внешнем убранстве и в решении интерьеров.
+
+В книге рассматриваются мегалитические постройки, культовые сооружения Древнего Востока, античности, (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355A077948CFBCF153859A7FE0E2F407E581BC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328565   (363712) от 30.09.2019
+
+К. Лученко | Россия: взгляд с колокольни [От Калининграда до Якутии] (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга относится к востребованному сегодня жанру документальной прозы. Журналист Ксения Лученко и фотограф Анна Гальперина проехали по восьми регионам, от Калининградской области до Якутии, чтобы рассказать о том, как судьбы городов переплетаются с человеческими судьбами, как живут священники и церковные общины в современной России.
+В книге собраны авторские эссе (   Читать дальше...   )Жанр: Православие. Документальная прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBACA0A8962A0F6AA87684B33ADAC47D7CEFED00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071386   (361876) от 09.11.2016
 
 Пол Верт | Православие, инославие, иноверие [Очерки по истории религиозного разнообразия Российской империи] (2012) [PDF, DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361876.jpg" />
+  <img src="Z:/picture/008/save_picture_361876.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361276.jpg" />
+  <img src="Z:/picture/008/save_picture_361276.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361135.jpg" />
+  <img src="Z:/picture/008/save_picture_361135.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361108.jpg" />
+  <img src="Z:/picture/008/save_picture_361108.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361095.jpg" />
+  <img src="Z:/picture/008/save_picture_361095.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360966.jpg" />
+  <img src="Z:/picture/008/save_picture_360966.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ molitvoslov (изд.) | Полный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360763.jpg" />
+  <img src="Z:/picture/008/save_picture_360763.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359346.jpg" />
+  <img src="Z:/picture/008/save_picture_359346.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359227.jpg" />
+  <img src="Z:/picture/008/save_picture_359227.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359226.jpg" />
+  <img src="Z:/picture/008/save_picture_359226.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358841.jpg" />
+  <img src="Z:/picture/008/save_picture_358841.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358713.jpg" />
+  <img src="Z:/picture/008/save_picture_358713.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358260.jpg" />
+  <img src="Z:/picture/008/save_picture_358260.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357939.jpg" />
+  <img src="Z:/picture/008/save_picture_357939.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356730.jpg" />
+  <img src="Z:/picture/008/save_picture_356730.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356646.jpg" />
+  <img src="Z:/picture/008/save_picture_356646.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356644.jpg" />
+  <img src="Z:/picture/008/save_picture_356644.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356618.jpg" />
+  <img src="Z:/picture/008/save_picture_356618.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356268.jpg" />
+  <img src="Z:/picture/008/save_picture_356268.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356176.jpg" />
+  <img src="Z:/picture/008/save_picture_356176.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356033.jpg" />
+  <img src="Z:/picture/008/save_picture_356033.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355016.jpg" />
+  <img src="Z:/picture/008/save_picture_355016.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354641.jpg" />
+  <img src="Z:/picture/008/save_picture_354641.jpg" />
 </div>
 
 
@@ -600,86 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B8DD41C17985F52204F731B1E425BD31763260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178846   (353969) от 29.10.2017
-
-А. А. Осипов | Откровенный разговор с верующими и неверующими: Размышления бывшего богослова (1978) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353969.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике избранных атеистических сочинений А. А. Осипова, порвавшего в 1959 году с религией и церковью, опубликованы его искренние, глубокие по содержанию и яркие по форме размышления о религии и атеизме. Они помогают решению задач научно-атеистического воспитания, пропаганде научных знаний среди населения.
-
-Книга адресована верующим и неверующим, пропагандистам (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33703767C2B48C47E9013E46FBF21665906F2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178842   (353706) от 29.10.2017
-
-В. М. Кувенева | Критика ревизионистской фальсификации научного атеизма [2-е изд.] (1988) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353706.jpg" />
-</div>
-
-
-###  Подробнее
-
-В научно-популярной книге дан марксистский анализ ревизионистской фальсификации научного атеизма с конца XIX века до наших дней. Автор показывает осуществление принципов научного атеизма в практике социалистического и коммунистического строительства, развенчивает мифы буржуазно-клерикальной пропаганды о положении религии и церкви в СССР.Жанр: История, политология, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2262EC08C58897559B3D6D63B41075EBCC417E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952875   (353667) от 02.11.2015
-
-М.Ю. Реутин | Мистическое богословие Майстера Экхарта (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является первым русскоязычным исследованием творчества великого средневекового мистика и мыслителя Иоанна Экхарта из Хоххайма. Экхартовское богословие рассматривается на широком культурно-историческом фоне. При этом особое внимание уделено сопоставлению доктрины Экхарта с доктриной его современника идеолога византийского исихазма Григория Паламы. В приложении (   Читать дальше...   )Жанр: Философия, богословиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4C50C46558B6537CB1D797C241BDE0A583164B
 ```
 
 https://mybot314.ru/tekegram_catalog/

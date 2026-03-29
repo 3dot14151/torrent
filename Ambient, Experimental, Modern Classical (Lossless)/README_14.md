@@ -1,3 +1,30 @@
+###  Публикация: 1325434   (412723) от 15.09.2019
+
+Michael Stearns - Planetary Unfolding (1981) Remastered, 2015, Earth Turtle Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetary Unfolding Side A (23:12)
+02. Planetary Unfolding Side B (22:02)Жанр: Ambient, Space AmbientПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F1C797AE0CE74A70B33B0345E9A04E573959C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413069   (412025) от 02.10.2020
 
 Chris Otchy - Recursive (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Minimal>
@@ -6,7 +33,7 @@ Chris Otchy - Recursive (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412025.jpg" />
+  <img src="Z:/picture/008/save_picture_412025.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Islands, Pt. 1 - Jupi/ter (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412022.jpg" />
+  <img src="Z:/picture/008/save_picture_412022.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Fossil Hunting Collective - Vacancy (2020) Ambientologist [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412018.jpg" />
+  <img src="Z:/picture/008/save_picture_412018.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Henrik Meierkord - Refuge (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411925.jpg" />
+  <img src="Z:/picture/008/save_picture_411925.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ Mathieu Karsenti - Bygones (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411923.jpg" />
+  <img src="Z:/picture/008/save_picture_411923.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ Halftribe - Cloud Dreaming And Shadows (2020) [FLAC|Lossless|tracks] <Ambient, E
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411921.jpg" />
+  <img src="Z:/picture/008/save_picture_411921.jpg" />
 </div>
 
 
@@ -180,7 +207,7 @@ Henrik Meierkord - Själ (Sjal) (2019) Ambientologist [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411917.jpg" />
+  <img src="Z:/picture/008/save_picture_411917.jpg" />
 </div>
 
 
@@ -209,7 +236,7 @@ Laura Luna Castillo - Laminares (2018) Genot Centre [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411305.jpg" />
+  <img src="Z:/picture/008/save_picture_411305.jpg" />
 </div>
 
 
@@ -238,7 +265,7 @@ Jean-Michel Jarre - Planet Jarre (50 Years Of Music) Deluxe Edition (2018) Colum
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410654.jpg" />
+  <img src="Z:/picture/008/save_picture_410654.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ Rinnovare - Ingrávido (Ingravido) (2020) Ambientologist [FLAC|Lossless|WEB-DL|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410000.jpg" />
+  <img src="Z:/picture/008/save_picture_410000.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ Julianna Barwick - Discography 16 Releases (2006-2020) [FLAC|Lossless|tracks+.cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409447.jpg" />
+  <img src="Z:/picture/008/save_picture_409447.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ VA - A Little Night Music: Aural Apparitions from the Geographic North (2020) Ge
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408442.jpg" />
+  <img src="Z:/picture/008/save_picture_408442.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Max Ananyev - Midday (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408352.jpg" />
+  <img src="Z:/picture/008/save_picture_408352.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Ouvala - Psychology Of Colour (2016) Fluid Audio / Home Normal [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408070.jpg" />
+  <img src="Z:/picture/008/save_picture_408070.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407242.jpg" />
+  <img src="Z:/picture/008/save_picture_407242.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ Ulver - Flowers Of Evil (2020) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Alte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407228.jpg" />
+  <img src="Z:/picture/008/save_picture_407228.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389640.jpg" />
+  <img src="Z:/picture/008/save_picture_389640.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ A Made Up Sound - At Klangendum (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388031.jpg" />
+  <img src="Z:/picture/008/save_picture_388031.jpg" />
 </div>
 
 
@@ -522,7 +549,7 @@ Ian Hawgood - Peace Fragments (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387878.jpg" />
+  <img src="Z:/picture/008/save_picture_387878.jpg" />
 </div>
 
 
@@ -550,7 +577,7 @@ Mathieu Karsenti - Downstream Blue (2020) Slowcraft Records [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387876.jpg" />
+  <img src="Z:/picture/008/save_picture_387876.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ Federico Mosconi - Il Tempo Della Nostra Estate (2020) Slowcraft Records [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387743.jpg" />
+  <img src="Z:/picture/008/save_picture_387743.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385622.jpg" />
+  <img src="Z:/picture/008/save_picture_385622.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Tomas Senkyrik - Fond (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385621.jpg" />
+  <img src="Z:/picture/008/save_picture_385621.jpg" />
 </div>
 
 
@@ -666,7 +693,7 @@ Sciama - Illusion of Separation (2020) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385617.jpg" />
+  <img src="Z:/picture/008/save_picture_385617.jpg" />
 </div>
 
 
@@ -695,7 +722,7 @@ Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383634.jpg" />
+  <img src="Z:/picture/008/save_picture_383634.jpg" />
 </div>
 
 
@@ -709,35 +736,6 @@ Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9BB0948906ECE95CFE9FEF3E6561CF795C8D19A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414669   (383515) от 09.10.2020
-
-worriedaboutsatan - Europa (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383515.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Sunk	5:39
-2.	Who Is A Hunter?	9:29
-3.	Vex	10:03
-4.	Cloaking	8:56(   Читать дальше...   )Жанр: Ambient, IDMПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502EBE06BE38D2F9FFF440AC243124966F26E7FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

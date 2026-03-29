@@ -1,3 +1,119 @@
+###  Публикация: 1270293   (214503) от 18.12.2018
+
+VA - BC2 Winter (2 CD) (2018) [MP3|320 Kbps] <House, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1: 
+01. Alec Araujo & Cryptic Realms - Katharsys (Original Mix)
+02. Julian Nates - Endless Lives (Original Mix)
+03. Volkan Erman - Black Shadow (Sam Scheme Remix)(   Читать дальше...   )Жанр: House, Deep House, Tech House, ProgressiveПродолжительность: 06:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A6C0E8CAD5C157AA8F6E5857C277E320C25E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270286   (214487) от 18.12.2018
+
+VA - Best of Lapsus Music (2 CD) (2018) [MP3|320 Kbps] <Tech House, Funky, Groove>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1: 
+01. Supernova Ft. Gene Farris - Ass On The Dancefloor (Original Mix)
+02. Ki Creighton - Nocturnal (Original Mix)
+03. Sasa Di Toma - Beach (Original Mix)(   Читать дальше...   )Жанр: Tech House, Funky, Groove, Jackin, MinimalПродолжительность: 03:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290DB0AA55F57A1ECE22F8F2A9316BD0EDF4C370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270402   (214445) от 18.12.2018
+
+VA - Top 40 Djs Club Beats'18 (2018) [MP3|320 Kbps] <House, Funky, Future House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Richmond - Deceiver (Original Mix)
+02. Mike Rivas - Sound of the Summer (Original Mix)
+03. Peyton Williams - All I Do (Teddy Brown Remix)
+04. Johanna Lopez - Feels Like Heaven (Original Mix)(   Читать дальше...   )Жанр: House, Funky, Future House, Deep HouseПродолжительность: 02:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1CE5667CE56F1D0DAE08E2D9FD28B6E33779D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270302   (214298) от 18.12.2018
+
+VA - Anjunadeep The Yearbook 2018 Vol 2 (2018) [MP3|320 Kbps] <House, Indietronica, Leftfield>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unmixed
+01. Antic & I_Cann - Jura (Original Mix) (07:37)
+02. Way Out West - Tuesday Maybe (Modd Extended Mix) (07:22)
+03. Dee Montero Ft. Meliha - In The Wild (Original Mix) (07:29)(   Читать дальше...   )Жанр: House, Indietronica, Leftfield, DowntempoПродолжительность: 02:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBFCDFEDA8583F39E1F78D09D9A6E627B3AD24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194074   (214031) от 23.12.2017
 
 VA - Dance On Abba - Remix Cover Collection Vol.2 (2017) [MP3|320 Kbps] <House, Dance>
@@ -6,7 +122,7 @@ VA - Dance On Abba - Remix Cover Collection Vol.2 (2017) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214031.jpg" />
+  <img src="Z:/picture/005/save_picture_214031.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - ADE2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, E
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212215.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212214.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Ibiza Summer 2023: The Sounds Of The Island (2023) [MP3|320 Kbps] <Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212103.jpg" />
+  <img src="Z:/picture/004/save_picture_212103.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Chicane - Nevertheless (2023) [MP3|320 Kbps] <House, Progressive House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211896.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Summer 2023: Best Of Deep House (2023) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211830.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Tropical & Deep House: Summer Mix 2023 [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211799.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Black Hole House Music 06-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211337.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Paradise Ibiza Summer 2023: Best of Deep & Tropical House (2023) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211320.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Ibiza Top Hits (2023) [MP3|320 Kbps] <Electro House, Dance, Club, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211170.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Club Megamix 2023: Summer Hits (2023) [MP3|320 Kbps] <Electro House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211163.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Armada Music - Ibiza 2023 [MP3|320 Kbps] <Progressive House, Deep House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208284.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Deep House Summer Hits 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206278.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Power Workout - Gym Hits - Fitness and Healthy Lifestyle (2023) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205989.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Deep House Sessions 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205483.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Ibiza House Classics - Armada Music (2023) [MP3|320 Kbps] <Funky, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205357.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Dance Top 100 - Summer 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204284.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Milk & Sugar Beach Sessions 2023 [MP3|320 Kbps] <House, Deep House, Organic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203609.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Deep-House World Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192044.jpg" />
+  <img src="Z:/picture/004/save_picture_192044.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Dancing Services, Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191915.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - I Love Ibiza 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191304.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - House It Up Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Funky House, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191107.jpg" />
+  <img src="Z:/picture/004/save_picture_191107.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - House It Up Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Funky House, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7868F1A9D503B33B4780DFFBD291B067BFEB013F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588794   (191082) от 06.11.2022
-
-VA - Club Sounds Best Of 2022 [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191082.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Imanbek & BYOR - Belly Dancer (2:31)
-02. Purple Disco Machine & Sophie And The Giants - In the Dark (3:05)
-03. Alok, Sigala, Ellie Goulding - All By Myself (2:51)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131822B72581091D582215981F65F758BBF964D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661512   (188562) от 15.09.2023
-
-VA - Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamantek - That's What You Need [03:15]
-02. Isaac Nightingale - On The Floor [02:57]
-03. George Kafetzis - Sailing [05:56]
-04. Pierluigi Di Prinzio - Fire In The Sky [02:50](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0F355C59C47DE128EB73D0C97F0D620D3447B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661597   (188554) от 15.09.2023
-
-VA - Nothing But...Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack District - Want You [06:27]
-02. Manager - I Can Feel It [06:34]
-03. Isaac Nightingale - On The Floor (Extended Mix) [04:11]
-04. George Kafetzis - Sailing (Radio Edit) [03:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89CFA6653CA662584058A14145CAAA09C69C2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661778   (188237) от 16.09.2023
-
-VA - Black Hole House Music 09-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone - Vision (BetweenUs Extended Remix) [05:50]
-02. ZOYA - Sonic Serenity (Extended Mix) [07:02]
-03. Britt Lari - The Controller (Beave Club Remix) [04:15]
-04. The Madison - Okay (Extended Mix) [05:36](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657D2505FEB2CFC61AE33E4F0EF3EDFF6469AD8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

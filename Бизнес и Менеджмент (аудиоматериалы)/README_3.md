@@ -1,3 +1,108 @@
+###  Публикация: 985318   (933983) от 12.02.2016
+
+Евгений Новосёлов | Банкротство: путеводитель по принятию решений (2015) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во многих случаях развитие бизнеса не возможно без привлечения ресурсов кредиторов. Но не всегда прогнозы развития бизнеса сбываются, и тогда компания не может своевременно расплатиться с долгами. В результате начинается самая пугающая любого бизнесмена процедура — банкротство.
+Как избежать банкротства? Как правильно действовать при угрозе банкротства и в процедуре (   Читать дальше...   )Жанр: Бизнес-литератураПродолжительность: 03:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBDCA0B71F18D251839722AD12931D6F863DDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985892   (932203) от 13.02.2016
+
+Евгений Бутман | Ритейл от первого лица. Как я строил бизнес Apple в России [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет в России, для тех, кто знал рынок, слова «Apple» и «Бутман», а затем «Apple» и «re:Store» были синонимами. История, написанная Евгением Бутманом о своем бизнесе, наполнена событиями и персонажами. Она о том, как зарождались идеи, крепли и обрушивались авторитеты, как «закалялась сталь» и проходило обучение в «яблочных» университетах. «Яблочных», потому (   Читать дальше...   )Жанр: Публицистика, бизнесПродолжительность: 06:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0589CF01D0C1A7C26FB131A5C77B80C0B0489C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365224   (930303) от 07.03.2020
+
+Андрей Мовчан | Россия в эпоху постправды: Здравый смысл против информационного шума. Том 3. Части 9-12 (2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем в эпоху постправды, когда техники манипуляций нашим сознанием достигли беспрецедентного уровня. Под видом разнообразных шоу и материалов в СМИ политики-маркетологи продают народу войны, терроризм, врагов, угрозы, кровь, грязь, неопределенность и чувство величия одновременно. В пространстве постправды каждый может найти факты, которые подтвердят любую гипотезу (   Читать дальше...   )Жанр: Публицистика, СМИПродолжительность: 08:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BAA80E79AEF93A0ECAD74DA58A09C284BB542D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365223   (930299) от 07.03.2020
+
+Андрей Мовчан | Россия в эпоху постправды: Здравый смысл против информационного шума. Том 2. Части 5-8 (2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем в эпоху постправды, когда техники манипуляций нашим сознанием достигли беспрецедентного уровня. Под видом разнообразных шоу и материалов в СМИ политики-маркетологи продают народу войны, терроризм, врагов, угрозы, кровь, грязь, неопределенность и чувство величия одновременно. В пространстве постправды каждый может найти факты, которые подтвердят любую гипотезу (   Читать дальше...   )Жанр: Публицистика, СМИПродолжительность: 05:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38ECB05D27A2B9E133446B4044847F90556D365D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094019   (930270) от 17.01.2017
 
 Анатолий Арлашин | Секреты Штирлица (2006) [MP3]
@@ -6,7 +111,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930270.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930152.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930109.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929966.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928641.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872640.jpg" />
+  <img src="Z:/picture/008/save_picture_872640.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845918.jpg" />
+  <img src="Z:/picture/008/save_picture_845918.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834358.jpg" />
+  <img src="Z:/picture/008/save_picture_834358.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830644.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830638.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830620.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830549.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830544.jpg" />
 </div>
 
 
@@ -354,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830476.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830475.jpg" />
 </div>
 
 
@@ -410,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830363.jpg" />
 </div>
 
 
@@ -436,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830358.jpg" />
 </div>
 
 
@@ -462,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830273.jpg" />
 </div>
 
 
@@ -490,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830198.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828609.jpg" />
 </div>
 
 
@@ -545,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828390.jpg" />
 </div>
 
 
@@ -572,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826889.jpg" />
 </div>
 
 
@@ -583,112 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A250626646CE54AE402B3D9A1E3FF204E523F0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006647   (826527) от 12.04.2016
-
-Роберт Кийосаки | Школа бизнеса (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге "Школа бизнеса" Роберт Т. Кийосаки освещает восемь скрытых ценностей бизнеса сетевого маркетинга (а они годятся не только для того, чтобы делать деньги!). Есть еще и три дополнительные скрытые ценности, о которых говорят авторы книги и Диана Кеннеди. Роберт объясняет, что бизнес сетевого маркетинга - это революционный путь достижения богатства, (   Читать дальше...   )Жанр: Предпринимательство, Психология бизнесаПродолжительность: 03:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4821E07C057E948EAC804F22D1B4758D0AF39708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006667   (826525) от 12.04.2016
-
-Стивен Кови | Восьмой навык (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826525.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Восьмой навык" - это не просто дополнение Семи навыков еще одним, о котором почему-то позабыли. Восьмой навык связан с пониманием значения третьего измерения, которое является ответом на самый главный вызов новой Эпохи работника интеллектуального труда, и с приданием семи навыкам энергии этого измерения. Восьмой навык заключается в том, чтобы Обрести свой (   Читать дальше...   )Жанр: Предпринимательство, Менеджмент и управлениеПродолжительность: 13:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E08EF15F8F1E6CC4232C7571EB8394629AF4D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199421   (800812) от 16.01.2018
-
-Дмитрий Портнягин | Трансформатор. Как создать свой бизнес и начать зарабатывать (2017) [MP3]
-
->>След.
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Портнягин – простой парень родом из Тынды, который рано потерял отца и, оказавшись в сложной ситуации, в окружении людей без целей, смог поднять себя за шиворот и привести к своей мечте – быть богатым и знаменитым.
-Его путь – дорога постоянных вызовов самому себе, суровых уроков и важных выводов. В книге Дмитрий раскрывает всего себя перед читателями, показывает (   Читать дальше...   )Жанр: Бизнес литератураПродолжительность: 07:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42EE5E7C5CF1E729845173E2E1977AA85140019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506147   (798975) от 02.11.2021
-
-Ричард Брэнсон | К черту все! Берись и делай! / Screw It, Let's Do It (2019) [MP3, Дмитрий Евстратов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее полная версия зачитки книги из существующих на дату публикации релиза.
-Ричард Брэнсон – легендарный британский предприниматель, один из самых богатых людей планеты, основавший корпорацию Virgin, которая сегодня объединяет под своим брендом почти 400 компаний в самых разных сферах – от издательской деятельности и авиаперевозок до космического и подводного (   Читать дальше...   )Жанр: Истории успеха, Мотивация, Саморазвитие, Личностный ростПродолжительность: 06:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1ED323D1A5AB2228FD0C0789E840642CB7FA97
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791980.jpg" />
+  <img src="Z:/picture/008/save_picture_791980.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791793.jpg" />
+  <img src="Z:/picture/008/save_picture_791793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791762.jpg" />
+  <img src="Z:/picture/008/save_picture_791762.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791693.jpg" />
+  <img src="Z:/picture/008/save_picture_791693.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791692.jpg" />
+  <img src="Z:/picture/008/save_picture_791692.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791687.jpg" />
+  <img src="Z:/picture/008/save_picture_791687.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791664.jpg" />
+  <img src="Z:/picture/008/save_picture_791664.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791663.jpg" />
+  <img src="Z:/picture/008/save_picture_791663.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Eclectic Ethno 3 by Nikko Sunset (2021) [AAC|~321 Kbps] <Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791647.jpg" />
+  <img src="Z:/picture/008/save_picture_791647.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Sundays from Harlem, Vol. 1 (2021) [AAC|~329 Kbps] <Deep House, Soulful Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791643.jpg" />
+  <img src="Z:/picture/008/save_picture_791643.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Sundays from Harlem, Vol. 2 (2021) [AAC|~321 Kbps] <Deep House, Soulful Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791638.jpg" />
+  <img src="Z:/picture/008/save_picture_791638.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791615.jpg" />
+  <img src="Z:/picture/008/save_picture_791615.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791611.jpg" />
+  <img src="Z:/picture/008/save_picture_791611.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791602.jpg" />
+  <img src="Z:/picture/008/save_picture_791602.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Day off Background Music (2021) [AAC|~297 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791591.jpg" />
+  <img src="Z:/picture/008/save_picture_791591.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Motörhead - Everything Louder Forever (2021) [AAC|~345 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791582.jpg" />
+  <img src="Z:/picture/008/save_picture_791582.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Grant Miller - Best Of Grant Miller (Greatest Hits & More) (2020) [AAC|~350 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791577.jpg" />
+  <img src="Z:/picture/008/save_picture_791577.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Deep In Chill: Instrumental House (Irma Dancefloor Chill House Selection) (
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791465.jpg" />
+  <img src="Z:/picture/008/save_picture_791465.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Study With Relaxing Jazz (2021) [AAC|~334 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791463.jpg" />
+  <img src="Z:/picture/008/save_picture_791463.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Mediterraneo 4 by Billy Esteban (2021) [AAC|~331 Kbps] <Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791462.jpg" />
+  <img src="Z:/picture/008/save_picture_791462.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791460.jpg" />
+  <img src="Z:/picture/008/save_picture_791460.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791459.jpg" />
+  <img src="Z:/picture/008/save_picture_791459.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Fancy - Locomotion (2021) [AAC|~336 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791454.jpg" />
+  <img src="Z:/picture/008/save_picture_791454.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791437.jpg" />
+  <img src="Z:/picture/008/save_picture_791437.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791324.jpg" />
+  <img src="Z:/picture/008/save_picture_791324.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791149.jpg" />
+  <img src="Z:/picture/008/save_picture_791149.jpg" />
 </div>
 
 

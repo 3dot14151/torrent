@@ -1,3 +1,235 @@
+###  Публикация: 1786589   (23948) от 21.03.2025
+
+Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Black Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Live Deliciously [5:33]
+02 - Demagoguery [6:17]
+03 - The Trinity Of Shadows [6:23]
+04 - Non Omnis Moriar [5:06](   Читать дальше...   )Жанр: Gothic Metal, Black Metal, Symphonic MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634BBEE815A61160A58D7D25E5C50018BBB0A410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786929   (23851) от 22.03.2025
+
+Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Dance With Somebody (Who Loves Me) 4:51
+02. Just The Lonely Talking Again 5:33
+03. Love Will Sure Save The Day 5:22
+04. Didn't We Almost Have It All 5:05(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143A88BB747975E1EE379A592487B6FFB3ED1B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786444   (23729) от 23.03.2025
+
+Adriano Celentano - Mr. Celentano (2025) Remaster [FLAC 24/44.1|Lossless|image + .cue] <Rock, Rock'n'Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Tuo Bacio e Come Un Rock (2:04)
+02. Ventiquattromila Baci (2:19)
+03. Impazzivo Per Te (2:05)
+04. I Ragazzi Del Juke Box (2:01)(   Читать дальше...   )Жанр: Rock, Rock'n'RollПродолжительность: 00:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F54A75A9BD619CE51C2BDC1C27307CA56F00A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787129   (23632) от 24.03.2025
+
+Бездна Анального Угнетения (Б.А.У.) - Суперспорт (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Про Тюрьму И Воров
+02. Ядерный Чемоданчик
+03. Люди С Разных Областей
+04. Молодость(   Читать дальше...   )Жанр: Alternative Metal, IndustrialПродолжительность: 00:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247CC0989A5919640AE88D251F7EF75BB36C60CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788010   (23216) от 28.03.2025
+
+Helloween - March of Time (The Best of 40 Years) (2025) Remastered, Compilation [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Walls of Jericho/Ride the Sky (2024 Remaster) [6:46]
+02 - Metal Invaders (2024 Remaster) [4:12]
+03 - Victim of Fate (2024 Remaster) [6:39]
+04 - How Many Tears (2024 Remaster) [7:17](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, MetalПродолжительность: 03:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3B2BEA004963274B92C2409C02FE182205DF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610278   (22937) от 31.03.2025
+
+W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22937.jpg" />
+</div>
+
+
+###  Подробнее
+
+W.E.T. - супергруппа мелодичного рока, созданная Джеффом Скоттом Сото, Эриком Мортенссоном и Робертом Саллом. Название группы состоит из инициалов групп, с которыми ранее работали музыканты: Work of Art (Сэлл), Eclipse (Мартенссон) и Talisman (Сото).2010 - W.E.T.
+2013 - Rise Up
+2018 - Earthrage
+2021 - RetransmissionЖанр: Melodic Hard RockПродолжительность: 04:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCFAF257650C5857C6100089E9DFD81AB49D79C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620765   (22898) от 31.03.2025
+
+Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Kingdom — бельгийская пауэр-метал-группа, основанная в 1998 году гитаристом Душаном Петросси.1999 - The Arrival
+2004 - Metallic Tragedy
+2010 - Symphony Of War
+2015 - Savage RequiemЖанр: Power MetalПродолжительность: 06:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E079493DE9AB9074D977482C4E2AF7AF0CC0E962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588379   (22656) от 03.04.2025
+
+Король и Шут - Студийные альбомы (13 релизов) (1993-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Хорор-панк, фолк-панк, панк-рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22656.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Король и Шут» (сокращённо – «КиШ») – российская рок-группа, история которой началась в 1988 году в Ленинграде. Коллектив прославился своим необычным для отечественной сцены стилем: его песни – это короткие сказки, рассказанные под жёсткую гитарную музыку. Группа прекратила своё существование в 2013 году в связи со смертью её лидера Михаила Горшенёва. Участники последнего (   Читать дальше...   )1993 (2018) - Истинный убийца
+1996 - Камнем по Голове
+1997 - Будь как дома, Путник…
+1998 - Акустический альбомЖанр: Хорор-панк, фолк-панк, панк-рокПродолжительность: 11:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830F24EFAA3B14D926C301B941C965B6F5BBEBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672508   (22601) от 03.04.2025
 
 Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
@@ -6,7 +238,7 @@ Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22601.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22347.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22308.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ polnalyubvi - Прощай и люби меня (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22285.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22281.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Primal Scream - Come Ahead: The Remixes Vol 1 (2024) Vocals, 2025, BMG[FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22268.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Haddaway - The Album (1993) Remastered, 2025, Craft Recordings [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22262.jpg" />
 </div>
 
 
@@ -206,7 +438,7 @@ Elton John, Brandi Carlile - Who Believes In Angels? (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22258.jpg" />
 </div>
 
 
@@ -235,7 +467,7 @@ Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22104.jpg" />
 </div>
 
 
@@ -264,7 +496,7 @@ Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21968.jpg" />
 </div>
 
 
@@ -293,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21866.jpg" />
 </div>
 
 
@@ -322,7 +554,7 @@ Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21792.jpg" />
 </div>
 
 
@@ -351,7 +583,7 @@ The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21239.jpg" />
 </div>
 
 
@@ -380,7 +612,7 @@ OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21216.jpg" />
 </div>
 
 
@@ -409,7 +641,7 @@ Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21212.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21109.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20958.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20803.jpg" />
 </div>
 
 
@@ -510,238 +742,6 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE3603A513220CB671C9F5056059B627B8C0FECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603407   (20464) от 24.04.2025
-
-Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
-1996 - Dusk And Her Embrace
-1998 - Cruelty And The Beast
-2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535212   (20431) от 24.04.2025
-
-Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
-1997 - The More Things Change
-1999 - The Burning Red
-2001 - SuperchargerЖанр: Thrash/Groove Metal, Nu-MetalПродолжительность: 18:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688359   (20404) от 24.04.2025
-
-Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bleed from Within — шотландская металкор-группа из Глазго, образованная в 2005 году.2008 - Welcome to the Plague Year (EP)
-2009 - Humanity
-2010 - Empire
-2013 - UprisingЖанр: Metalcore, Melodic Death Metal, Groove MetalПродолжительность: 06:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793517   (20403) от 24.04.2025
-
-Ghost - Skeletá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peacefield (5:41)
-02. Lachryma (4:36)
-03. Satanized (3:57)
-04. Guiding Lights (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD79FE03331AB3D9B81630A117B312C2251EB3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609862   (20398) от 24.04.2025
-
-Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nachtblut - немецкая дарк-метал группа, основанная в Оснабрюке в 2005 году.2007 - Das letzte Abendmahl
-2009 - Antik
-2012 - Dogma
-2014 - ChimonasЖанр: Extreme Gothic MetalПродолжительность: 06:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793491   (20385) от 24.04.2025
-
-Alice Cooper - Black Mamba (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mamba (4:58)Жанр: Hard RockПродолжительность: 00:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F082084B80709C7F776FB1A31A66FD636143A4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598981   (20179) от 26.04.2025
-
-H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Arena Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20179.jpg" />
-</div>
-
-
-###  Подробнее
-
-H.E.A.T — шведская рок-группа из Upplands Väsby, играющая в стиле Melodic Rock и AOR.
-Группа возникла в январе 2007 года в результате объединения двух шведских групп Dream и Trading Fate. В 2008 году был выпущен дебютный альбом H.e.a.t.
-Группа выступала на Melodifestivalen 2009 — шведском этапе Евровидения - но не одержала победу в финале.
-После долгих летних (   Читать дальше...   )2008 - H.E.A.T
-2010 - Freedom Rock
-2012 - Address The Nation
-2014 - Tearing Down The WallsЖанр: Arena Rock, Hard RockПродолжительность: 06:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793861   (20172) от 26.04.2025
-
-Noah Beatz - Noah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Legends in Harmony (3:52)
-02.  She Talks to Me (4:03)
-03.  Fly High (3:19)
-04.  Know My Name (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6220430AA85F7655DC1E86B5A8A56D7E35C35B76
 ```
 
 https://mybot314.ru/tekegram_catalog/

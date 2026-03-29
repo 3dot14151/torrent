@@ -1,3 +1,109 @@
+###  Публикация: 1650623   (226155) от 02.08.2023
+
+GarageSale 9.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006BA195CC3377FE1834046B0481B3338F5DD099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513311   (226152) от 28.11.2021
+
+eMail Address Extractor 3.5.8 fix [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226152.jpg" />
+</div>
+
+
+###  Подробнее
+
+eMail Address Extractor - ищем и извлекаем email адреса. eMail Address Extractor - приложение помогает извлекать корректные email адреса электронной почты, практически из любого текстового файла, при этом не требуется никаких настроек.
+Просто перетащите файл на главное окно приложения, выберите формат выходного файла и быстро получите список всех email адресов без (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2021Разработчик: SweetPProductionsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF64237C3F8DC953FA2974CC13012695F83DB62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650528   (226132) от 02.08.2023
+
+RAW Power 3.4.14 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2016-20213 Gentlemen Coders, LLC1Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F794D51BC136D5034A03DF744BEFE2E176F3BA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513319   (226127) от 28.11.2021
+
+GarageSale 8 v8.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF6411346C06B6F724F5417E9DE804163880D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513339   (226118) от 28.11.2021
 
 DoubleTake 2.6.8 [Multi/Ru]
@@ -6,7 +112,7 @@ DoubleTake 2.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226118.jpg" />
+  <img src="Z:/picture/005/save_picture_226118.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Airtool 2 v2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226117.jpg" />
+  <img src="Z:/picture/005/save_picture_226117.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ WiFiSpoof 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226116.jpg" />
+  <img src="Z:/picture/005/save_picture_226116.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Iridient Developer 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226112.jpg" />
+  <img src="Z:/picture/005/save_picture_226112.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ MediaInfo 0.7.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226109.jpg" />
+  <img src="Z:/picture/005/save_picture_226109.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ ShowKeyPro 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226106.jpg" />
+  <img src="Z:/picture/005/save_picture_226106.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Timemator 2 v2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226091.jpg" />
+  <img src="Z:/picture/005/save_picture_226091.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ aText 2.35.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226090.jpg" />
+  <img src="Z:/picture/005/save_picture_226090.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ PhotosRevive 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226084.jpg" />
+  <img src="Z:/picture/005/save_picture_226084.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ SQLPro Studio 2019.63 (build 110616) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226073.jpg" />
+  <img src="Z:/picture/005/save_picture_226073.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ Project Office Pro 9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226059.jpg" />
+  <img src="Z:/picture/005/save_picture_226059.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ Tipard Blu-ray Converter for Mac 10.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226041.jpg" />
+  <img src="Z:/picture/005/save_picture_226041.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ NetShred X 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226040.jpg" />
+  <img src="Z:/picture/005/save_picture_226040.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ Sublime Text 4.0 Build 4151 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226037.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ Network Radar 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226025.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ Network Radar 2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226005.jpg" />
+  <img src="Z:/picture/005/save_picture_226005.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ Mail Designer Pro 2 (2.5.2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225995.jpg" />
+  <img src="Z:/picture/005/save_picture_225995.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ BookMacster 2.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225981.jpg" />
+  <img src="Z:/picture/005/save_picture_225981.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Antivirus Zap Pro 3.8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225977.jpg" />
+  <img src="Z:/picture/005/save_picture_225977.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ Sketch 70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225968.jpg" />
+  <img src="Z:/picture/005/save_picture_225968.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ Mactracker 7.12.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225956.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ ON1 Photo RAW 2021 v15.0.1.9794 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225945.jpg" />
+  <img src="Z:/picture/005/save_picture_225945.jpg" />
 </div>
 
 
@@ -573,112 +679,6 @@ ON1 Photo RAW 2021 включает в себя ключевые обновле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2428209123146425EBC9B4FD2815BEAE781092AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650615   (225939) от 02.08.2023
-
-QLab 5.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225939.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2023 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFD4AF1B6D084C6021C36068E4DDC5EE3C48283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342390   (225938) от 01.12.2019
-
-Wondershare Recoverit 8 v8.3.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749CE825AC94815A415E943836AFEEF7B7BBD355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513437   (225937) от 28.11.2021
-
-PhotosBlender 2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225937.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosBlender - это приложение для комбинирования фотографий по горизонтали или вертикали с использованием градиентного смешивания на стыках. Если результат не такой, как вы ожидали, дважды проверьте, совпадают ли размер и разрешение изображений.
-PhotosBlender «обрежет» результат, чтобы он соответствовал ширине или высоте самой маленькой фотографии. Если вы хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2021Разработчик: © 2020 Limit Point LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964B9CA5D8131F00C4D083ED5A2B13AC744AD66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513376   (225929) от 28.11.2021
-
-VideoProc Converter 4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225929.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoProc - новая усовершенствованная версия прежнего MacX HD Video Converter, теперь более мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA13E42A56CF85932DED04074FD1104835EB30F
 ```
 
 https://mybot314.ru/tekegram_catalog/

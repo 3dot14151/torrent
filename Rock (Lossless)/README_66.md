@@ -1,3 +1,148 @@
+###  Публикация: 1541003   (648777) от 01.04.2022
+
+Colonel Petrov's Good Judgement - Hypomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hypomaniac (00:03:48)
+02 - Black Swan (00:06:51)
+03 - Mating Season (00:04:48)
+04 - Pendulum (00:05:31)(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69D02A6CFE0FE1729FD12E73EF7CBBB2204251D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540994   (648537) от 01.04.2022
+
+Dare - Road To Eden (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born In The Storm
+02. Cradle To The Grave
+03. Fire Never Fades
+04. Road To Eden(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5694C9652CBCE0F3367680BA20C9516A843BB388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541005   (648532) от 01.04.2022
+
+Colonel Petrov's Good Judgement - Among Servants (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fire and Fury (The Poetry of War) (00:06:02)
+02 - Resistor (00:03:45)
+03 - Providers (00:05:14)
+04 - Ascension (00:05:38)(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F350006FD193EF64244D136C79C236B61277F0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292289   (648522) от 28.03.2019
+
+Suzi Quatro - No Control (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Soul / No Control
+02. Going Home
+03. Strings
+04. Love Isn't Fair(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA0897F848F42E462AFEE94E78D475210120D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292166   (648398) от 28.03.2019
+
+Pink Floyd - The Dark Side Of The Moon (1973) Reissue, 1984 [FLAC|Lossless|image + .cue] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648398.jpg" />
+</div>
+
+
+###  Подробнее
+
+1a.	Speak To Me 1:10
+1b.	Breathe In The Air 2:47
+2.	On The Run 3:31
+3.	Time 7:05(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8681CBA88B2915C52A577F6A796CDEDBF9ADB60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031820   (647903) от 06.07.2016
 
 VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .cue] <Folk Rock, Pop Rock, Blues Rock, Soul>
@@ -6,7 +151,7 @@ VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647903.jpg" />
+  <img src="Z:/picture/008/save_picture_647903.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Morly Grey - The Only Truth (1972) Remastered /2010, Sundazed Music/ [FLAC|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647695.jpg" />
+  <img src="Z:/picture/008/save_picture_647695.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Mark Knopfler - Greatest Hits (2015) 2CD [FLAC|image +.cue]<Blues Rock, Soft roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647068.jpg" />
+  <img src="Z:/picture/008/save_picture_647068.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ T. Rex (Tyrannosaurus Rex) - Strange Orchestra - Volume One (2022) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646943.jpg" />
+  <img src="Z:/picture/008/save_picture_646943.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Flying Burrito Brothers - The Gilded Palace Of Sin & Burrito Deluxe (1969) 1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646910.jpg" />
+  <img src="Z:/picture/008/save_picture_646910.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ T. Rex (Tyrannosaurus Rex) - Strange Orchestra - Volume Two (2022) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646885.jpg" />
+  <img src="Z:/picture/008/save_picture_646885.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Roy Orbison - Collected (3CD) (2016) [FLAC|Lossless|image + .cue] <Rock-N-Roll, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645948.jpg" />
+  <img src="Z:/picture/008/save_picture_645948.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 2CD Deluxe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645521.jpg" />
+  <img src="Z:/picture/008/save_picture_645521.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Quatro, Scott & Powell - Quatro, Scott & Powell (2017) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645181.jpg" />
+  <img src="Z:/picture/008/save_picture_645181.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Bee Gees - Love Songs (2005) [FLAC|Lossless|image + .cue] <Soft Rock, Soul, Ball
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644847.jpg" />
+  <img src="Z:/picture/008/save_picture_644847.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Bob Dylan - The Real... Bob Dylan (2012) 3CD [FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644715.jpg" />
+  <img src="Z:/picture/008/save_picture_644715.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Pink Floyd - Wish You Were Here (1975) Reissue, 1986, Harvest [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644705.jpg" />
+  <img src="Z:/picture/008/save_picture_644705.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Nirvana - All Of Us (1968) Reissue, Remastered, 2003 [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644592.jpg" />
+  <img src="Z:/picture/008/save_picture_644592.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Vargton Projekt - Progxprimetal (2011) [FLAC|Lossless|image + .cue] <Prog Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644119.jpg" />
+  <img src="Z:/picture/008/save_picture_644119.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Little Richard - Live (2006) [FLAC|image+.cue]<Rock'n'Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643587.jpg" />
+  <img src="Z:/picture/008/save_picture_643587.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Van Der Graaf Generator - ALT (2012) [FLAC (tracks+cue)|Lossless]<Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643206.jpg" />
+  <img src="Z:/picture/005/save_picture_643206.jpg" />
 </div>
 
 
@@ -476,7 +621,7 @@ Luna Waves - Blood Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643133.jpg" />
+  <img src="Z:/picture/008/save_picture_643133.jpg" />
 </div>
 
 
@@ -505,7 +650,7 @@ Captives - Return To Mars (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643131.jpg" />
+  <img src="Z:/picture/008/save_picture_643131.jpg" />
 </div>
 
 
@@ -534,7 +679,7 @@ Find Me - Lightning In A Bottle (2022) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643002.jpg" />
+  <img src="Z:/picture/008/save_picture_643002.jpg" />
 </div>
 
 
@@ -563,7 +708,7 @@ Smokie - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642926.jpg" />
+  <img src="Z:/picture/008/save_picture_642926.jpg" />
 </div>
 
 
@@ -592,7 +737,7 @@ VA - Sixty Hits Of The 60s (1996) 3CD, Compilation, BMG[FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642724.jpg" />
+  <img src="Z:/picture/008/save_picture_642724.jpg" />
 </div>
 
 
@@ -606,157 +751,6 @@ VA - Sixty Hits Of The 60s (1996) 3CD, Compilation, BMG[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20A78BE5B7C7F50A245DCD465EF865D248D4216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541857   (642616) от 04.04.2022
-
-John Salvage & New Twenty Saints - Nikita (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waking Up The Horse (00:04:09)
-02 - Bound (00:05:14)
-03 - Nikita (00:02:51)
-04 - Fade Away (00:04:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198EA68105CF861978EBA5CE44DD3B722F804AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032678   (642115) от 09.07.2016
-
-David M'ore - Passion, Soul & Fire (2015) [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil's Ground [04:14]
-02. Love Again [05:05]
-03. Stronger Than I Realize [08:35]
-04. Johan Sebastian Blues [05:34](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D20723826C333700E5EBC16D14A73FCF8AE21DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032946   (642111) от 09.07.2016
-
-Lanterna - 3 Альбома (2001 - 2006) [APE|Lossless|image + .cue] <Folk Rock, Space Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elm Street    05:25
-02.  B Minor    05:13
-03.  Spirits    03:00
-04.  Thirty    04:10(   Читать дальше...   )Жанр: Folk Rock, Space Rock, AmbientПродолжительность: 02:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C5094505B09DD5AE2817349CC391A598CA39F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906524   (641845) от 10.06.2015
-
-Orange Bicycle - Hyacinth Threads: The Morgan Blue Town Recordings (2001) [FLAC|tracks+.cue]<Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura's Garden 03:16
-02. Competition 02:40
-03. Lavender Girl 02:20
-04. Rainy Jane 02:58(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2111A5E6AC9DAF905428AAF1B4AE237BA0707750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518773   (641526) от 04.07.2012
-
-2:54 - 2:54 (2012) [FLAC|Lossless]<Indie-Rock, Dream-Pop, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolving
-02. You’re Early
-03. Easy Undercover
-04. A Salute
-05. Scarlet
-06. Sugar
-07. Circuitry
-08. Watcher
-09. Ride
-10. CreepingЖанр: Indie-Rock, Dream-Pop, ShoegazeПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

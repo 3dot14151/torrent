@@ -1,3 +1,165 @@
+###  Публикация: 1760007   (37565) от 12.11.2024
+
+Немцы первыми в мире испытали в полёте клиновоздушный ракетный двигатель
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37565.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 октября 2024 года над Балтийским морем немецкий стартап Polaris Raumflugzeuge провёл испытательный полет масштабного прототипа самолёта MIRA II с клиновидным ракетным двигателем на борту. Двигатель включался всего на 3 секунды, но это было первое в мире испытание КРД в воздухе, а не в лаборатории. И оно было успешным.Клиновоздушные ракетные двигатели (aerospike) (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747391   (37547) от 12.11.2024
+
+Трасса (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана отправляется на поиски приёмной дочери, которая уехала искать настоящих родителей и пропала. В то же время в этом курортном городе тринадцатилетняя девочка расстреливает свою спящую семью — мать, отца и бабушку — после чего пытается повеситься. На выстрелы прибегает сосед, и вытаскивает девочку из петли. Глава полиции района поручает расследование громкого (   Читать дальше...   )Производство: Россия / «Среда», OkkoЖанр: драма, триллерРежиссер: Душан ГлигоровАктеры: Карина Разумовская, Александр Ильин мл., Анна Михалкова, Елизавета Ищенко, Семён Серзин, Алексей Фатеев, Василиса Немцова, Геннадий Смирнов, Елена Литвинова, Сергей УмановСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760049   (37533) от 12.11.2024
+
+Россия и страны Африки выступили за интернационализацию управления интернетом
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия и Африка выступают за интернационализацию управления интернетом, говорится в совместном заявлении первой министерской конференции Форума партнерства Россия – Африка о мерах по формированию справедливой и равноправной системы международной информационной безопасности. Документ опубликован на сайте МИД РФ.«Выступаем за интернационализацию управления интернетом, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760351   (37446) от 13.11.2024
+
+Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2314 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_11_business_editions_version_24h2_x64_dvd_f9b9b5d6
+ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDF907EFE9E53359C93D47DD37F1C6DB098F1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760388   (37320) от 14.11.2024
+
+На Rutube появилась кнопка «Подайте сведения в Роскомнадзор»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоплатформа Rutube приступила к маркировке каналов, аудитория которых превышает 10 тыс. подписчиков, и которые были внесены в реестр Роскомнадзора, передаёт ТАСС со ссылкой на пресс-службу сервиса.1 ноября вступил в силу закон, требующий, чтобы владельцы страниц и каналов в соцсетях регистрировались в реестре, который ведёт Роскомнадзор. Когда численность подписчиков (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759928   (37149) от 16.11.2024
+
+YTDisBystro (универсальная сборка на основе Zapret) 2.2 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37149.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDisBystro - сбока на основе zapret от KDS. Обеспечивает доступ к ютубу, дискорду и прочим заблокированным сайтам (инстаграм, фейсбук, x (твиттер) и т.д.).
+Не содержит никаких ненужных надстроек над zapret (лаунчеров), только командная строка и минимальный расход памяти.
+Режимы запуска: Окно программы либо как служба Windows
+Поддерживает настройку и изменение стратегий (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5943AABDB0283EA566E1973AA021307F64DB680A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760485   (37135) от 16.11.2024
 
 Квадроберы выходят на новый уровень
@@ -6,7 +168,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37135.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37128.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37039.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ JetBrains PhpStorm 2024.3 (x64-arm64) Repack by Sitego [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36944.jpg" />
 </div>
 
 
@@ -111,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36934.jpg" />
 </div>
 
 
@@ -137,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36840.jpg" />
 </div>
 
 
@@ -163,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36725.jpg" />
 </div>
 
 
@@ -189,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36639.jpg" />
 </div>
 
 
@@ -215,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36631.jpg" />
 </div>
 
 
@@ -241,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36513.jpg" />
 </div>
 
 
@@ -267,7 +429,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157) Repack Fit
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36430.jpg" />
 </div>
 
 
@@ -293,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36427.jpg" />
 </div>
 
 
@@ -319,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36329.jpg" />
 </div>
 
 
@@ -346,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36326.jpg" />
 </div>
 
 
@@ -372,7 +534,7 @@ SolidWorks 2024 SP5.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36325.jpg" />
 </div>
 
 
@@ -399,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36316.jpg" />
 </div>
 
 
@@ -425,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36307.jpg" />
 </div>
 
 
@@ -451,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36201.jpg" />
 </div>
 
 
@@ -477,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36115.jpg" />
 </div>
 
 
@@ -503,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36104.jpg" />
 </div>
 
 
@@ -514,165 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762231   (36008) от 27.11.2024
-
-GoodbyeDPI 0.2.3rc3 Launcher 9.5 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
-Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
-
-Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCB13B9250DD93EF11DE0B50F10BE9056047EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762561   (35919) от 28.11.2024
-
-АВТОВАЗ отправляет Lada Aura в дилерские центры
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35919.jpg" />
-</div>
-
-
-###  Подробнее
-
-На АВТОВАЗе начались отгрузки бизнес-седанов Lada Aura. Автомобили отправятся государственным и корпоративным заказчикам, а также в дилерские центры, сообщили в пресс-службе АВТОВАЗа.Lada Aura оснащаются моторами 1,8 EVO и автоматической бесступенчатой трансмиссией. Первые автомобили изготовлены в максимальной комплектации Status, которая предусматривает обивку салона (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762607   (35913) от 28.11.2024
-
-Антивирус-предатель: драйвер Avast стал ключом к полному контролю системы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специалисты Trellix обнаружили новую кампанию, в которой используются доверенные компоненты антивирусных программ для взлома систем. Вместо попыток обойти защиту злоумышленники применяют легальный драйвер Avast Anti-Rootkit, чтобы отключать защитное ПО и получать контроль над компьютером.Механизм атаки выглядит так: вредоносная программа сначала загружает драйвер (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751791   (35903) от 28.11.2024
-
-Последний богатырь. Наследие (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35903.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Ивана, которому как раз исполнилось 50, две дочери: старшая, богатырка Марья, и младшая, начинающая колдунья Софья. Все в Белогорье идет своим чередом, но визит колдуна Северина, которому привиделось страшное бедствие, вносит смуту в размеренную жизнь волшебников. Чтобы спасти и Белогорье, и жизнь собственного отца, Софье придется отправиться в Москву прошлого, (   Читать дальше...   )Производство: Россия / Yellow Black and White, ИРИЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Антон МасловАктеры: Виктор Хориняк, Арина Рожкова, Эвелина Мазурина, Елена Яковлева, Владислав Ветров, Кирилл Зайцев, Татьяна Догилева, Юлия Пересильд, Александра Урсуляк, Дмитрий ЛысенковСубтитры: русскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517816A7FF777F7345E1ACB8EC77D723FE5FA60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751122   (35797) от 29.11.2024
-
-Извне / From (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1-10 из 10) LostFilm, HDRezka Studio, AlexFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в безымянном городке, все жители которого прибыли сюда когда-то из самых разных точек США. Приехали и не смогли уехать. Кто-то находится в ловушке год, а кто-то - больше десяти лет и выглядит уже полностью морально разложившимся. То же самое происходит с семьей Мэттьюз. Папа, мама и двое детей на своем доме на колесах попытались проехать (   Читать дальше...   )Производство: США / AGBO, Epix Studios, MGM International TV ProductionsЖанр: ужасы, фантастика, триллер, драма, детективРежиссер: Джек Бендер, Джефф Ренфро, Дженнифер ЛиаоАктеры: Хэролд Перрино, Каталина Сандино Морено, Эйон Бэйли, Дэвид Алпей, Элизабет Сондерс, Скотт Маккорд, Рики Хе, Хлоя Ван Ландшут, Pegah Ghafoori, Кортен МурПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAF8866C5338D5B6D58EDD5AED75563BAAAC697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757730   (35696) от 30.11.2024
-
-Джокер: Безумие на двоих / Joker: Folie a Deux (2024) WEB-DL [H.265/2160p] [4K, Dolby Vision TV, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несостоявшийся комик Артур Флек встречает любовь всей своей жизни, Харли Квинн, находясь в заключении в государственной больнице Аркхэм. После его освобождения они начинают обреченное на провал романтическое приключение.Производство: США, DC Entertainment, Joint Effort, Village Roadshow PicturesЖанр: драма, мюзикл, криминал, триллерРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Леди Гага, Зази Битц, Кен Люн, Кэтрин Кинер, Брендан Глисон, Гарри Лоути, Стив Кугэн, Гэттлин Гриффит, Джейкоб ЛофлендПеревод: Дублированный (Movie Dubbing официальный; Red Head Sound, Jaskier не официальные)Язык озвучки: Русский, английскийСубтитры: Русские (4xForced, Full), английские (Full, SDH)Продолжительность: 02:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9CBC857D2DB4C7709905DCF9EED767991F5AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

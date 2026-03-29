@@ -6,7 +6,7 @@ Advanced SystemCare Pro 8.2.0.795 DC 13.04.2015 Repack D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756792.jpg" />
+  <img src="Z:/picture/008/save_picture_756792.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10 TP Language Pack build 10056 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756791.jpg" />
+  <img src="Z:/picture/008/save_picture_756791.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756698.jpg" />
+  <img src="Z:/picture/008/save_picture_756698.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.235 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756587.jpg" />
+  <img src="Z:/picture/008/save_picture_756587.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Skype 8.38.0.138 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756583.jpg" />
+  <img src="Z:/picture/008/save_picture_756583.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WSUS Offline Update 11.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756582.jpg" />
+  <img src="Z:/picture/008/save_picture_756582.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Nvidia DriverPack v.418.81 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756575.jpg" />
+  <img src="Z:/picture/008/save_picture_756575.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HiBit Uninstaller 2.7.35 + Portable (DC 07.01.2022) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756523.jpg" />
+  <img src="Z:/picture/008/save_picture_756523.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MediaInfo 18.03.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756486.jpg" />
+  <img src="Z:/picture/008/save_picture_756486.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ qBittorrent 4.4.0 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756475.jpg" />
+  <img src="Z:/picture/008/save_picture_756475.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Foxit PhantomPDF Business 9.4.1.16828 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756433.jpg" />
+  <img src="Z:/picture/008/save_picture_756433.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VSDC Video Editor Pro 6.3.1.939 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756428.jpg" />
+  <img src="Z:/picture/008/save_picture_756428.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ AAct 3.9.9.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756412.jpg" />
+  <img src="Z:/picture/008/save_picture_756412.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Zoner Photo Studio X 19.1803.2.60 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756352.jpg" />
+  <img src="Z:/picture/008/save_picture_756352.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ AMD Radeon Software Adrenalin Edition 18.3.4 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756347.jpg" />
+  <img src="Z:/picture/008/save_picture_756347.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Waterfox 56.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756346.jpg" />
+  <img src="Z:/picture/008/save_picture_756346.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Psiphon 3 build 171 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756321.jpg" />
+  <img src="Z:/picture/008/save_picture_756321.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mozilla Firefox ESR 52.7.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756227.jpg" />
+  <img src="Z:/picture/008/save_picture_756227.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Mozilla Firefox Quantum 59.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756224.jpg" />
+  <img src="Z:/picture/008/save_picture_756224.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Stellarium 0.18.0 + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756213.jpg" />
+  <img src="Z:/picture/008/save_picture_756213.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ RAM Saver Professional 18.3 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756112.jpg" />
+  <img src="Z:/picture/008/save_picture_756112.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VueMinder Ultimate 2018.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756110.jpg" />
+  <img src="Z:/picture/008/save_picture_756110.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756105.jpg" />
+  <img src="Z:/picture/008/save_picture_756105.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ IObit Malware Fighter Pro 5.6.0.4462 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756100.jpg" />
+  <img src="Z:/picture/008/save_picture_756100.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ArcSoft TotalMedia Theatre 3.0.1.175 Platinum SimHD [Eng+Rus] RePack by Nonsys
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756059.jpg" />
+  <img src="Z:/picture/005/save_picture_756059.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Soft4Boost Any Audio Grabber 5.9.5.393 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755927.jpg" />
+  <img src="Z:/picture/008/save_picture_755927.jpg" />
 </div>
 
 

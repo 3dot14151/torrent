@@ -1,3 +1,61 @@
+###  Публикация: 1522733   (756777) от 08.01.2022
+
+Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Ever After
+02. Sweet Hel
+03. Beatnik Trip
+04. Hallelujah(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522728   (756642) от 08.01.2022
+
+Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mademoiselle chante le blues
+02. Patou Blues
+03. Space In My Heart
+04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522677   (756329) от 08.01.2022
 
 VA - Наше Радио. Лучшее '2021 (2022) MP3 от DON Music [MP3|320 Kbps] <Русский Рок>
@@ -6,7 +64,7 @@ VA - Наше Радио. Лучшее '2021 (2022) MP3 от DON Music [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756329.jpg" />
+  <img src="Z:/picture/005/save_picture_756329.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Русский Популярный Хит Формат (2016) [MP3|256-320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755685.jpg" />
+  <img src="Z:/picture/008/save_picture_755685.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755313.jpg" />
+  <img src="Z:/picture/008/save_picture_755313.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Romantic Soul: Popular Lyric Collection (2020) [MP3|320 Kbps] <Romantic, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755284.jpg" />
+  <img src="Z:/picture/008/save_picture_755284.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Winter Pop Kaleidoscope (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755184.jpg" />
+  <img src="Z:/picture/008/save_picture_755184.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Beatport Hard Dance: Electro Sound Pack #394 (2022) [MP3|320 Kbps] <Hard El
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755179.jpg" />
+  <img src="Z:/picture/005/save_picture_755179.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Karen Cheryl - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755167.jpg" />
+  <img src="Z:/picture/008/save_picture_755167.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - German Top 100 Single Charts 07.01.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755154.jpg" />
+  <img src="Z:/picture/008/save_picture_755154.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Дискотечный хит-парад №12 (2016) [MP3|256 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753810.jpg" />
+  <img src="Z:/picture/008/save_picture_753810.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Ch
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752943.jpg" />
+  <img src="Z:/picture/008/save_picture_752943.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - German Top 100 Single Charts 02.04.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752938.jpg" />
+  <img src="Z:/picture/008/save_picture_752938.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752343.jpg" />
+  <img src="Z:/picture/008/save_picture_752343.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - German Top 100 Single Charts 10.07.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752197.jpg" />
+  <img src="Z:/picture/008/save_picture_752197.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - 100 пудовый хит. Выпуск 9 (2016) [MP3|256 кб/с] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752184.jpg" />
+  <img src="Z:/picture/008/save_picture_752184.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Летний дождь. Суперсборник от Русского р�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752093.jpg" />
+  <img src="Z:/picture/008/save_picture_752093.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Music 80s - Collection от ALEXnROCK часть 1 (2021) [MP3|320 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750985.jpg" />
+  <img src="Z:/picture/008/save_picture_750985.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - : Созвездие весеннее - 8 (2016) [MP3|256 кб/с] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750179.jpg" />
+  <img src="Z:/picture/008/save_picture_750179.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Direct Ministry Tracks Dance 2019 (2019) [MP3|320 Kbps] <Dance, Hands Up>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750007.jpg" />
+  <img src="Z:/picture/008/save_picture_750007.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Килобитный взрыв хитов - 5 (2016) [MP3|256 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748558.jpg" />
+  <img src="Z:/picture/008/save_picture_748558.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748458.jpg" />
+  <img src="Z:/picture/008/save_picture_748458.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748454.jpg" />
+  <img src="Z:/picture/008/save_picture_748454.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748452.jpg" />
+  <img src="Z:/picture/008/save_picture_748452.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748451.jpg" />
+  <img src="Z:/picture/008/save_picture_748451.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748355.jpg" />
+  <img src="Z:/picture/008/save_picture_748355.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019587   (748347) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O'Kay - The Wild Wild Western ( 1989 )
-02. Al Bano & Romina Power - Felicitа ( 1982 )
-03. Scotch - Delirio Mind ( 1985 )
-04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019572   (748332) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Colder Than Ice ( 1985 )
-02. Flirts - Boy Crazy ( 1982 )
-03. Lee Marrow - Shangai ( 1987 )
-04. Modern Talking - You Can Win If You Want ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
 ```
 
 https://mybot314.ru/tekegram_catalog/

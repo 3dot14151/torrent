@@ -1,3 +1,81 @@
+###  Публикация: 1753513   (41193) от 07.10.2024
+
+Джонни-гитара / Johnny Guitar (1954) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Салун Вьенн расположен на том участке земли, по которому скоро пройдет железная дорога. В салуне постоянно ошивается Танцующий Кид, который влюблен во Вьенн, и которого страстно желает заполучить старая дева Эмма Смол. Эмма собирает толпу, чтобы сжечь салун и повесить Кида.Производство: США / Republic Pictures (I)Жанр: вестерн, драмаРежиссер: Николас РэйАктеры: Джоан Кроуфорд, Стерлинг Хейден, Мерседес Маккэмбридж, Скотт Брейди, Уорд Бонд, Бен Купер, Эрнест Боргнайн, Джон Кэрредин, Ройал Дэно, Фрэнк ФергюсонПеревод: Авторский, С.КузнецовЯзык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57D9393D8EAB80A946333FEA230497CEB72D509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753910   (41105) от 08.10.2024
+
+Улыбка Фернанделя / L'amateur ou S.O.S. Fernand (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41105.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 новелл о Фернане, который помогает всем и вся... Находясь в пансионе, помогает Сомнамбуле. Перевозит маленький чемоданчик. Помогает избежать семейного скандала. Следит за клептоманкой. Помогая девушке вырваться из банды, сам попадает в руки бандитов. Попадает в дом к русской княгине, где нужно привести все в порядок и подготовиться к встрече с хозяйкой. И помогает (   Читать дальше...   )Производство: Франция / 	Office de Radiodiffusion Télévision Française (ORTF)Жанр: комедияРежиссер: Жан-Пьер Декур, Морис ДельбезАктеры: Фернандель, Анни Фарг, Доминик Зарди, Жак Динам, Доминик Лабурье, Мишель Грелье, Пьер Торнад, Жерар Дарьё, Анри-Жак Юэ, Филипп Кастелли и др.Перевод: Одноголосый профессиональный (ТК «TВ Центр»)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CDA88CAEF79B2DC2828B9A48DC3D893BB09F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754112   (40923) от 09.10.2024
+
+Ад в открытом море / Hell and High Water (1954) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа китайских коммунистов пытается развязать третью мировую войну. В ответ американский ученый вместе со своими товарищами нанимает бывшего офицера подводной лодки, чтобы он повел их субмарину в Арктику, где находится ядерный арсенал врага.Производство: США / 20th Century Fox Film CorporationЖанр: боевик, триллер, драмаРежиссер: Сэмюэл ФуллерАктеры: Ричард Уидмарк, Белла Дарви, Виктор Франсен, Кэмерон Митчелл, Джин Эванс, Дэвид Уэйн, Стивен Бекашши, Ричард Лу, Роберт Адлер, Вонг Артэрн, Юджин Борден, Лесли БрэдлиПеревод: Многоголосый профессиональный (5-й канал СПб)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 01:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C299A353A36C1822FDDEADE03A89FC20B076C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754270   (40784) от 10.10.2024
 
 Линкольн в Иллинойсе / Abe Lincoln in Illinois (1940) BDRip [H.264] [AVO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40784.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39688.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39676.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39633.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39428.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39305.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39280.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39232.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39099.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39067.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38986.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38754.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38673.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38191.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38095.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37246.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37005.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36803.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36523.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36182.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36097.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36057.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36037.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC43719B5BEBCBADE89CDFD4D50415B40D387BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 44186   (35806) от 29.11.2024
-
-Взвод / Platoon (1986) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - о борьбе за власть двух сержантов - Барнеса и Элиаса, поставивших на карту жизни бойцов взвода, о жестокости людей, привыкших к мысли о неминуемой смерти, о безумии и желании жить, о силе человеческого духа, побеждающего кошмар войны. Ад войны во Вьетнаме и кровавая реальность событий, увиденных глазами американского солдата Криса Тейлора...Жанр: Боевик, драмаРежиссер: Оливер Стоун /Oliver Stone/Актеры: Том Беренджер /Tom Berenger/, Уиллем Дэфоу /Willem Dafoe/, Чарли Шин /Charlie Sheen/, Джонни Депп /Johnny Depp/, Ричард Эдсон /Richard Edson/, Форест Уитакер /Forest WhitakerПеревод: Закадровый многоголосый переводПродолжительность: 1:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D813E69C75420B2E3AB61AA37046FDDE1AA9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397860   (35791) от 29.11.2024
-
-Кеймада / Queimada / Burn! (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 19 века. Сэр Уильям Уолкер отправляется на далекий остров Кеймада в одну из португальских колоний. Его задача — нарушить сахарную монополию, удерживаемую португальцами. Для этого сэр Уильям провоцирует бунт рабов на плантациях. «Революция» проходит удачно. Уолкер возвращается домой героем Британии. Но через десять лет ему приходится вернуться на остров для (   Читать дальше...   )Производство: Италия, Франция, Produzioni Europee Associate (PEA), Les Productions Artistes AssociésЖанр: боевик, драма, военныйРежиссер: Джилло ПонтекорвоАктеры: Марлон Брандо, Эваристо Маркес, Ренато Сальватори, Дана Гиа, Валерия Ферран Ванани, Джампьеро Альбертини, Карло Палмуччи, Норман Хилл, Thomas Lyons, Джозеф П. ПерсаудПеревод: Многоголосый закадровыйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A272535939219C2B72B4DB76CE3F48379FDADA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763650   (35418) от 02.12.2024
-
-Месье Венсан / Monsieur Vincent (1947) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнеописание католического священника, который с 1610 по 1660 годы прошёл путь от пленника турецких пиратов, проданного в рабство, до первого советника царственных особ, от индивидуальных исканий способов борьбы с последствиями эпидемии чумы до создания монастырских сообществ дочерей милосердия и викентийцев. Ватикан включил "Месье Венсан / Monsieur Vincent" (   Читать дальше...   )Производство: Франция / Office Familial de Documentaire Artistique (O.F.D.A.), Union Générale Cinématographique (UGC)Жанр: драма, биография, историяРежиссер: Морис КлошАктеры: Пьер Френе, Эме Кларион, Жан Дебюкур, Лиз Деламар, Жермена Дермо, Габриель Дорзиа, Пьер Дюкс, Ивонн Годо, Мишель Буке, Жан Карме, Габриель Фонтан, Марсель Перес, Марсель Валли, Жорж ВитреПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (leoferre24), английскиеПродолжительность: 01:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FAFC4DF17231C4FCF0759CA2F39334F7EBE275
 ```
 
 https://mybot314.ru/tekegram_catalog/

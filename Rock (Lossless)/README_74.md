@@ -1,3 +1,148 @@
+###  Публикация: 1300165   (594837) от 04.05.2019
+
+Hozier - Wasteland, Baby! (2019) [FLAC|lossless|image + .cue] <Rock, Indie Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Cried Power (Featuring Mavis Staples) (03:45)
+02. Almost (Sweet Music) (03:37)
+03. Movement (03:57)
+04. No Plan (05:31)(   Читать дальше...   )Жанр: Rock, Indie Rock, Blues RockПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E143567F464D1C57A80FA553FD9CF987B2878ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300071   (594530) от 04.05.2019
+
+Focus - 11 Albums, 1 Box Set (1970 - 2019) 24 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландская группа "Focus" начала работать в конце 60-х годов в следующем составе: Тийс Ван Леер (р. 31 марта 1948; орган, флейта), Мартин Дресден (бас) и Ханс Клевер (ударные). Эти музыканты хотели замутить что-нибудь в духе британской команды "Traffic", но вышло несколько иначе. Сначала коллектив оказался задействованным в постановке голландской (   Читать дальше...   )Список альбомов:
+1970 - In And Out Of Focus
+1971 - Moving Waves
+1972  - Focus 3Жанр: Progressive RockПродолжительность: 20:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36E51F9B783BE9FDF25E6CABAD2BAC9085D15FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039562   (594502) от 02.08.2016
+
+VA - Stars Of Rockabilly (2016) 3CD [FLAC|Lossless|image + .cue] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Cochran - Jeanie Jeanie Jeanie
+02. Gene Vincent - Who Slapped John?
+03. Wanda Jackson - Fujiyama Mama
+04. Johnny Horton - Honky Tonk Man(   Читать дальше...   )Жанр: RockabillyПродолжительность: 02:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A95A810D198AD67DF281EFAE4A055513403122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549237   (594021) от 06.05.2022
+
+Syberia - Statement on Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stolen Childhood (00:08:35)
+02 - Ain't.Care.About.Bullets (00:09:50)
+03 - Breathe (00:08:43)
+04 - Nothing Inside (00:07:06)(   Читать дальше...   )Жанр: Post-Rock, Post-MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4E95AB2A758D9DD54886B1BB5220CC5CBD2FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040060   (593656) от 03.08.2016
+
+Mashu - Elephants In Your Head? (1996) [WavPack|Lossless|image + .cue] <Сanterbury Scene, Prog Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжая давние традиции кентербери-супергрупп, Mashu родилась из десятилетнего сотрудничества Хью Хоппера и Марка Хюинса на почве импровизаций с широким использованием электрических инструментов и технологий Midi. С приходом Шьямала Мэйтры (Gong), родившегося, к слову, в Индии, к их музыке добавился совершенно новый, экзотический аромат, хотя она по-прежнему основывалась (   Читать дальше...   )1. Used To (5:42)
+2. Chariot (7:18)
+3. Sea Beyond (3:32)
+4. Jus De Peche (3:08)(   Читать дальше...   )Жанр: Сanterbury Scene, Prog Rock, Jazz RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D31A2AB0EA692969DB62DC428AE2B40977F575E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040075   (593645) от 03.08.2016
 
 Scott Weiland and the Wildabouts - Blaster (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
@@ -6,7 +151,7 @@ Scott Weiland and the Wildabouts - Blaster (2015) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593645.jpg" />
+  <img src="Z:/picture/008/save_picture_593645.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Led Zeppelin - Definitive Collection Mini LP Replica 12 CD Box Set, Atlantic / W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_593433.jpg" />
+  <img src="Z:/picture/005/save_picture_593433.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Queens Of The Stone Age - Villains (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593342.jpg" />
+  <img src="Z:/picture/008/save_picture_593342.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Eclipsed Sampler 69 (2019) [FLAC|Lossless|tracks + .cue] <Rock, Art Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593202.jpg" />
+  <img src="Z:/picture/008/save_picture_593202.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Starfish64 - Scattered Pieces Of Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592965.jpg" />
+  <img src="Z:/picture/008/save_picture_592965.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Kaleidobolt - Bitter (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592964.jpg" />
+  <img src="Z:/picture/008/save_picture_592964.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Fernando Perdomo - Out to Sea 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592961.jpg" />
+  <img src="Z:/picture/008/save_picture_592961.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Affirm featuring Bayley & Hunt - One More Moment (2022) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592958.jpg" />
+  <img src="Z:/picture/008/save_picture_592958.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Stöner (Stoner) - totally… (2022) [FLAC 2.0|44.1/16|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592936.jpg" />
+  <img src="Z:/picture/008/save_picture_592936.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Riccardo Romano Land - Spectrum (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592935.jpg" />
+  <img src="Z:/picture/008/save_picture_592935.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Rosetta Stone - Seems Like Forever (2019) [FLAC|Lossless|tracks + .cue] <Goth Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592750.jpg" />
+  <img src="Z:/picture/008/save_picture_592750.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Enneade - Withered Flowers and Cinnamon (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592670.jpg" />
+  <img src="Z:/picture/008/save_picture_592670.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Terra Nova - Ring That Bell (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592663.jpg" />
+  <img src="Z:/picture/008/save_picture_592663.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Edgar Winter - 20 Albums, 33 CD (1969-2022) [FLAC|Lossless|image + .cue | tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592450.jpg" />
+  <img src="Z:/picture/008/save_picture_592450.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Sto
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591235.jpg" />
+  <img src="Z:/picture/008/save_picture_591235.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591229.jpg" />
+  <img src="Z:/picture/008/save_picture_591229.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ The Doors - The Best Of The Doors (1973)/2015/Audio Fidelity [FLAC|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590857.jpg" />
+  <img src="Z:/picture/008/save_picture_590857.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Greenseeker - The Wish (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy psych, stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590785.jpg" />
+  <img src="Z:/picture/008/save_picture_590785.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Heart Rock - Rock Fur's Herz vol. 5 (1993) 2CD[FLAC|tracks + .cue]<Rock, So
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590407.jpg" />
+  <img src="Z:/picture/008/save_picture_590407.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Mudweiser - The Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Fuzz Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590248.jpg" />
+  <img src="Z:/picture/008/save_picture_590248.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ The Soft Eggs - Tantric Eels (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590247.jpg" />
+  <img src="Z:/picture/008/save_picture_590247.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ The Soft Eggs - Tantric Eels (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E098C54820DEE6346CD7F779F268ECCD9457687F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551198   (590243) от 15.05.2022
-
-Orkan - Livsgaranti (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Urskog (00:04:48)
-02 - Leva for att do (00:03:17)
-03 - Livsgaranti (00:04:37)
-04 - Vagrar vara tyst - forsta delen (00:05:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1ACE43E2CC969F8F11438811D8A9394B6C2380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551271   (590237) от 15.05.2022
-
-Jason Scheff - Here I Am (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will You Still Love Me (5:39)
-02. Here I Am (4:32)
-03. Look Away (4:18)
-04. Wonderful Day (4:08)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C7F18B37D6B6FF0B053083B4D1C0D2802CA258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551274   (590230) от 15.05.2022
-
-Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me (2:58)
-02. Feel The Fire (3:25)
-03. Angels Fear To Tread (3:50)
-04. Lonely To (3:03)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BFAFABDFFDCA6B9DE4EB30D2245DB3B59BB9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551332   (590194) от 15.05.2022
-
-Mark Riddell - Mark Riddell Presents: Corporeal Pilot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cover of the Year (00:02:43)
-02 - Crossing Wind (00:03:39)
-03 - Shakedown Mr. Bluebird (00:03:16)
-04 - All Around Us (00:04:11)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE2D1FD53D8D7411FAB57EFD9A6FA7C91C4B6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551523   (589775) от 16.05.2022
-
-Never Kenezzard - The Long And Grinding Road (2022) [FLAC|Lossless|image + .cue] <Stoner Rock, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity
-02. Genie
-03. Praer
-04. Ra(   Читать дальше...   )Жанр: Stoner Rock, Sludge MetalПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA10DA286BA755588BEA74504EDD73F02DB5B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1504311   (810477) от 24.10.2021
+
+Seven Sisters - Shadow of a Fallen Star, Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda Rising (2:43)
+02. Beyond The Black Stars (3:56)
+03. The Artifice (4:53)
+04. Whispers In The Dark (4:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087C7FD2E62DD6D3B0937D0EFAD6380765B259D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504482   (810476) от 24.10.2021
+
+Zornheym - The Zornheim Sleep Experiment (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corpus Vile
+02. An Evil Within
+03. Dead Silence
+04. Keep The Devil Away(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1465251BCB83B0DEBDDB41315BBD846F419522D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504266   (810474) от 24.10.2021
+
+Kaelis - Far Galaxy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_810474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation (04:23)
+02. Far Galaxy (04:23)
+03. Prophecy (04:37)
+04. Barren Land (05:54)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC83B05902925F47BE1141C1FD4D67AA8958EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504506   (810329) от 24.10.2021
 
 Tropa de Shock - The Circle of Spells (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Tropa de Shock - The Circle of Spells (2021) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810329.jpg" />
+  <img src="Z:/picture/008/save_picture_810329.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Armored Saint - Symbol of Salvation (2021) Live [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810197.jpg" />
+  <img src="Z:/picture/008/save_picture_810197.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Burzum - Filosofem (1996) Misanthropy Records [FLAC|Lossless|tracks+.cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810119.jpg" />
+  <img src="Z:/picture/008/save_picture_810119.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Nahemah - Second Philosophy (2007) [FLAC|Lossless|.iso.wv]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810106.jpg" />
+  <img src="Z:/picture/008/save_picture_810106.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Paradise Lost - Obsidian (2020) Limited Edition [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809973.jpg" />
+  <img src="Z:/picture/008/save_picture_809973.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ S.E. Project - Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808495.jpg" />
+  <img src="Z:/picture/008/save_picture_808495.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Sepultura - Roorback (2003) Remaster, 2021, BMG Rights Management [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808431.jpg" />
+  <img src="Z:/picture/008/save_picture_808431.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ We're Wolves - Evil Things (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808428.jpg" />
+  <img src="Z:/picture/008/save_picture_808428.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Clouds - Durere (2020) [FLAC|Lossless|Web-DL|tracks] <Melodic Doom, Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808275.jpg" />
+  <img src="Z:/picture/008/save_picture_808275.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Five Finger Death Punch - 11 Albums (2007-2020) 17 CD [FLAC|Lossless|Web-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807950.jpg" />
+  <img src="Z:/picture/008/save_picture_807950.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Enbound - The Blackened Heart (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807602.jpg" />
+  <img src="Z:/picture/008/save_picture_807602.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Harakiri for the Sky - III: Trauma (2016) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807493.jpg" />
+  <img src="Z:/picture/008/save_picture_807493.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Silent Opera - Reflections (2014) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806521.jpg" />
+  <img src="Z:/picture/008/save_picture_806521.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Ozzy Osbourne - Down To Earth (2001) 20th Anniversary Expanded Edition, Reissue,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806397.jpg" />
+  <img src="Z:/picture/008/save_picture_806397.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Dream Theater - A View from the Top of the World (2021) 2xCD, Limited Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806306.jpg" />
+  <img src="Z:/picture/008/save_picture_806306.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Striker - Striker (2017) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806067.jpg" />
+  <img src="Z:/picture/008/save_picture_806067.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Somnent - Gardens from Graves (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804556.jpg" />
+  <img src="Z:/picture/008/save_picture_804556.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Mephistos - Sunder (Sünder) (2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804551.jpg" />
+  <img src="Z:/picture/008/save_picture_804551.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Morthereon - Cultura Mortem (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804550.jpg" />
+  <img src="Z:/picture/008/save_picture_804550.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Evergrey - Monday Morning Apocalypse (2006) Remastered 2019, Fono Ltd. [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804549.jpg" />
+  <img src="Z:/picture/008/save_picture_804549.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Sepultura - Dante XXI (2006) Remaster, 2021, BMG Rights Management [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804543.jpg" />
+  <img src="Z:/picture/008/save_picture_804543.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Iron Fire - Among The Dead (2016) [FLAC|Lossless|image + .cue] <Power Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804514.jpg" />
+  <img src="Z:/picture/008/save_picture_804514.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Rage - The Soundchaser Archives (2014) 2xCD, Compilation, 30th Anniversary [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804464.jpg" />
+  <img src="Z:/picture/008/save_picture_804464.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847C516D881B356FDFB9348BFA8F73B5910AB449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505255   (804463) от 27.10.2021
-
-Portals Of Glory - Divine Alliance (2021) EP [FLAC|Lossless|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aurora Novum (00:04:28)
-02 - Blood and Steel (00:06:00)
-03 - Doom of Your Kingdom (00:05:57)
-04 - Glory, Honor, and Freedom, or Death (00:06:11)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9F53AE006D0D73087D32617A208D620543C233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505440   (804363) от 27.10.2021
-
-Judas Priest - Reflections: 50 Heavy Metal Years Of Music (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Prey / Call For The Priest
-02. You Don't Have To Be Old To Be Wise
-03. Fever
-04. Eat Me Alive(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E47DB15FA94B43BE2EE9581C1BAEDE8C6B9DD37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120222   (803647) от 30.03.2017
-
-Krypt - Preludes To Death (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worthless
-02. Krypt
-03. I Am God
-04. Misfits(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3886F6EAA6FE19792B2AB1B0FB84C5EAA0A94878
 ```
 
 https://mybot314.ru/tekegram_catalog/

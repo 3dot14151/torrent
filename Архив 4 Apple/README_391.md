@@ -1,3 +1,110 @@
+###  Публикация: 1065626   (419339) от 23.10.2016
+
+Vitamin-R 2 v2.40 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vitamin-R 2 — продвинутый таймер для техники Pomodoro
+Каждый из нас постоянно сталкивается с ситуацией, когда необходимо сфокусироваться на выполнении задачи, но желанное состояние потока так и не приходит. Или, когда начав работать над очень важным для вас проектом, вдруг, через некоторое время, вы обнаруживаете себя на странице Facebook или бесцельно блуждающим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2016Разработчик: Rights Reserved.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCC794775A6AA55B30D6A29BF31E292A07217FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065587   (419079) от 23.10.2016
+
+VueScan Pro 9.5.59 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419079.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 октября 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877F85903BD06BF137AF0AE8D6E3F322B6E6E199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412471   (418464) от 29.09.2020
+
+Cisdem ContactsMate 5 v5.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Cisdem ContactsMate — эффективное решение для управления контактными данными. Приложение позволяет осуществлять резервное копирование всей контактной информации, редактировать поля контактных данных, а также экспортировать адресную книгу в форматы CSV, vCard, TXT, DocX, HTML, Excel, обеспечивая удобное резервное копирование и синхронизацию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868C65831056BE7247E00CB522BBAB1A51543A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412476   (418463) от 29.09.2020
+
+Multitouch 1.18.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch!
+
+Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DA48F7E23EDDAF1CCF65578E4B0B7BE1F4C7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412468   (418461) от 29.09.2020
 
 MediaHuman Youtube Downloader 3.9.9.46 [Multi/Ru]
@@ -6,7 +113,7 @@ MediaHuman Youtube Downloader 3.9.9.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418461.jpg" />
+  <img src="Z:/picture/008/save_picture_418461.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ IconJar 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418366.jpg" />
+  <img src="Z:/picture/008/save_picture_418366.jpg" />
 </div>
 
 
@@ -64,7 +171,7 @@ Memory Clean 3 v1.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418204.jpg" />
+  <img src="Z:/picture/008/save_picture_418204.jpg" />
 </div>
 
 
@@ -92,7 +199,7 @@ QuarkXPress 2020 16.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418052.jpg" />
+  <img src="Z:/picture/008/save_picture_418052.jpg" />
 </div>
 
 
@@ -118,7 +225,7 @@ Elmedia Player Pro 7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418050.jpg" />
+  <img src="Z:/picture/008/save_picture_418050.jpg" />
 </div>
 
 
@@ -146,7 +253,7 @@ Cookie 5 v5.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418035.jpg" />
+  <img src="Z:/picture/008/save_picture_418035.jpg" />
 </div>
 
 
@@ -175,7 +282,7 @@ Privatus 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418034.jpg" />
+  <img src="Z:/picture/008/save_picture_418034.jpg" />
 </div>
 
 
@@ -201,7 +308,7 @@ Canary Mail 2.13 (v436) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418032.jpg" />
+  <img src="Z:/picture/008/save_picture_418032.jpg" />
 </div>
 
 
@@ -227,7 +334,7 @@ Redacted 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417931.jpg" />
+  <img src="Z:/picture/008/save_picture_417931.jpg" />
 </div>
 
 
@@ -256,7 +363,7 @@ PDF Protector 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417930.jpg" />
+  <img src="Z:/picture/008/save_picture_417930.jpg" />
 </div>
 
 
@@ -282,7 +389,7 @@ TouchDesigner Pro 099.2020.26630 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417907.jpg" />
+  <img src="Z:/picture/008/save_picture_417907.jpg" />
 </div>
 
 
@@ -308,7 +415,7 @@ eMail Address Extractor 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417854.jpg" />
+  <img src="Z:/picture/008/save_picture_417854.jpg" />
 </div>
 
 
@@ -337,7 +444,7 @@ Movavi Screen Recorder 5.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417850.jpg" />
+  <img src="Z:/picture/008/save_picture_417850.jpg" />
 </div>
 
 
@@ -363,7 +470,7 @@ Live Home 3D Pro 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417840.jpg" />
+  <img src="Z:/picture/008/save_picture_417840.jpg" />
 </div>
 
 
@@ -391,7 +498,7 @@ cDock 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417774.jpg" />
+  <img src="Z:/picture/008/save_picture_417774.jpg" />
 </div>
 
 
@@ -419,7 +526,7 @@ USBclean 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417772.jpg" />
+  <img src="Z:/picture/008/save_picture_417772.jpg" />
 </div>
 
 
@@ -445,7 +552,7 @@ iMazing 2.12.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417735.jpg" />
+  <img src="Z:/picture/008/save_picture_417735.jpg" />
 </div>
 
 
@@ -472,7 +579,7 @@ iMazing 2.7.1 (9565) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417502.jpg" />
+  <img src="Z:/picture/008/save_picture_417502.jpg" />
 </div>
 
 
@@ -499,7 +606,7 @@ NetWorker Pro 8.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417263.jpg" />
+  <img src="Z:/picture/008/save_picture_417263.jpg" />
 </div>
 
 
@@ -525,7 +632,7 @@ Screen Wonders 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417262.jpg" />
+  <img src="Z:/picture/008/save_picture_417262.jpg" />
 </div>
 
 
@@ -552,7 +659,7 @@ Mellel 5 v.5.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417253.jpg" />
+  <img src="Z:/picture/008/save_picture_417253.jpg" />
 </div>
 
 
@@ -579,7 +686,7 @@ Viper FTP 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417252.jpg" />
+  <img src="Z:/picture/008/save_picture_417252.jpg" />
 </div>
 
 
@@ -591,112 +698,6 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BFCC00DB4F8C9491F6794AEF5BDA349C3F6554E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573051   (417250) от 29.08.2022
-
-Hides 5.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повысьте производительность с помощью HidesТип издания: macOS SoftwareРелиз состоялся: 27.08.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C848B3EE8B88AC6316F54EC91B322AA20F110F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572991   (417249) от 29.08.2022
-
-Smart Converter Pro 3 v.3.1.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Converter Pro - Просто и эффективно конвертируем медиафайлы
-Smart Converter позиционируется разработчиками из компании Systemic Pty Ltd как «умный» и мощный конвертер аудио- и видео для всей линейки apple-устройств, а также ряда других девайсов, причем вся его мощь скрыта от пользователя — последнему остается нажать только пару кнопок, для того чтобы начать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2022Разработчик: © 2022 Systemic Pty LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439F98909B9B93FBCA59EDF9B99E6544D20510DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167436   (417197) от 20.09.2017
-
-Hands Off! 3.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D21F6CC2D34B185418B30E854093772B4DF8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573041   (417123) от 29.08.2022
-
-Wattagio 1.13 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wattagio информирует вас о текущем состоянии батареи и помогает снизить энергопотребление. Гибкие настройки в приложении предоставляют параметры для настройки вашего профиля в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © Volodymyr NehodovПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37FFA55EBBFCD2D73E9B2131ABA9C634A382A54
 ```
 
 https://mybot314.ru/tekegram_catalog/

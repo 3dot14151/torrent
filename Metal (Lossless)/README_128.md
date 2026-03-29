@@ -1,3 +1,90 @@
+###  Публикация: 1306508   (555582) от 05.06.2019
+
+Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Caravan Of Weird Figures
+02. Another Awful Hobs Tale
+03. From Blood To Stone
+04. Ask A Silly Question(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306552   (555580) от 05.06.2019
+
+Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (Napoleon's Sword) (02:28)
+2. Life Escaping through the Candle's Smoke (04:22)
+3. Forever Faithful to the Emperor (04:54)
+4. Catacombs Beneath the Castle of the Marquis (04:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306882   (555490) от 06.06.2019
+
+Texas Hippie Coalition - Dark Side Of Black (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Get It (3:43)
+ 02. Angel Fall (4:16)
+ 03. Shakin' Baby (3:15)
+ 04. Knee Deep (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953677557AE0B4F3E061BBD6A3545E369838EFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306889   (555485) от 06.06.2019
 
 Texas Hippie Coalition - Peacemaker (2012) [FLAC|Lossless|tracks + .cue] <Southern Rock, Heavy Metal>
@@ -6,7 +93,7 @@ Texas Hippie Coalition - Peacemaker (2012) [FLAC|Lossless|tracks + .cue] <Southe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555485.jpg" />
+  <img src="Z:/picture/008/save_picture_555485.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Rammstein - Rammstein (2019) [FLAC|Lossless|tracks + .cue] <Neue Deutsche Härte
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555391.jpg" />
+  <img src="Z:/picture/008/save_picture_555391.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Witchfinder General - Buried Amongst The Ruins (2007) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555253.jpg" />
+  <img src="Z:/picture/008/save_picture_555253.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Witchfinder General - Resurrected (2008) [FLAC|Lossless|image + .cue] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555252.jpg" />
+  <img src="Z:/picture/008/save_picture_555252.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Dope - The Early Years - 1997/1998 (2017) Compilation, Remastered [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555082.jpg" />
+  <img src="Z:/picture/008/save_picture_555082.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Darkthrone - Old Star (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555054.jpg" />
+  <img src="Z:/picture/008/save_picture_555054.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Soulskinner - Crypts of Ancient Wisdom (2014) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554932.jpg" />
+  <img src="Z:/picture/008/save_picture_554932.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Taste Of Blood - My Dragon (2007) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554929.jpg" />
+  <img src="Z:/picture/008/save_picture_554929.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Hermetica - Hermetica & Interpretes (1991) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554928.jpg" />
+  <img src="Z:/picture/008/save_picture_554928.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Dead to a Dying World - Elegy (2019) [FLAC|Lossless|tracks + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554921.jpg" />
+  <img src="Z:/picture/008/save_picture_554921.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Jordan Rudess - Wired for Madness (2019) [FLAC|Lossless|tracks + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554907.jpg" />
+  <img src="Z:/picture/008/save_picture_554907.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Gloryhammer - Legends from Beyond the Galactic Terrorvortex (2019) 2CD, Deluxe E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554878.jpg" />
+  <img src="Z:/picture/008/save_picture_554878.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Alkoholizer - Drunk or Dead... (2009) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554765.jpg" />
+  <img src="Z:/picture/008/save_picture_554765.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Inter Arma - Sulphur English (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554723.jpg" />
+  <img src="Z:/picture/008/save_picture_554723.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Megadeth - Cryptic Writings (1997) [FLAC|Lossless|tracks] <Heavy Metal, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554488.jpg" />
+  <img src="Z:/picture/008/save_picture_554488.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Gardsghastr - Slit Throat Requiem (2019) [FLAC|Lossless|tracks + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554213.jpg" />
+  <img src="Z:/picture/008/save_picture_554213.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Winterstorm - Cube Of Infinity (2016) [FLAC|Lossless|image + .cue] <Power, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553049.jpg" />
+  <img src="Z:/picture/008/save_picture_553049.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Sodom - Decision Day (2016) Japanese Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552907.jpg" />
+  <img src="Z:/picture/008/save_picture_552907.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Rammstein - Auslander (2019) Maxi-Single [FLAC|Lossless|image + .cue] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552768.jpg" />
+  <img src="Z:/picture/008/save_picture_552768.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Sabaton - The Last Stand (2016) Japanese Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551617.jpg" />
+  <img src="Z:/picture/008/save_picture_551617.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Lоst Sосiеtу - Fаst Lоud Dеаth (2013) Limitеd Еditiоn [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551245.jpg" />
+  <img src="Z:/picture/008/save_picture_551245.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Vader - Iron Times (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551016.jpg" />
+  <img src="Z:/picture/008/save_picture_551016.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Paean - Scorn Of Eternity (2015) [FLAC|Lossless|image + .cue] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550631.jpg" />
+  <img src="Z:/picture/008/save_picture_550631.jpg" />
 </div>
 
 
@@ -658,92 +745,6 @@ Paean - Scorn Of Eternity (2015) [FLAC|Lossless|image + .cue] <Progressive Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18F0D2512A4CE06A94955336F3F039E997F4B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047135   (550460) от 29.08.2016
-
-Lоst Sосiеtу - Теrrоr Нungrу (2014) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spurgatory
-02. Game Over
-03. Attaxic
-04. Lethal Pleasure(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EC1F1F92D5A09A35D1DE834FCE1498598C406D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047125   (550455) от 29.08.2016
-
-Defaillance - Contemplation Misanthropique De L'Humanite... (2008) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contemplation 12:52
-02. Misanthropique 12:42
-03. De l'Humanite... 05:24Жанр: Black MetalПродолжительность: 00:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3932F62915B2115C960A9A082EA6BFF05BE8BAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047066   (550260) от 29.08.2016
-
-Dеlаin - Мооnbаthеrs (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal, Gothic Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suckerpunch (Live In The Netherlands)
-02. Turn The Lights Out (Live In The Netherlands)
-03. The Glory and The Scum (Live In The Netherlands)
-04. Don't Let Go (Live In The Netherlands)(   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Melodic MetalПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B609CD4A7599C94F0A28E18CA6799F9AEA097C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

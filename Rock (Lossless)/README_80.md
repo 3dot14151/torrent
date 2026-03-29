@@ -1,3 +1,154 @@
+###  Публикация: 1556193   (561525) от 08.06.2022
+
+Joe Bouchard (ex-Blue Oyster Cult) - American Rocker (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Way is The Highway (00:02:45)
+02 - In The Golden Age (00:03:44)
+03 - Deadly Kisses (00:04:04)
+04 - Love Out of Thin Air (00:04:03)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C0CD016BF1646AE9CB062CDDF1C58B1BE1D199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556154   (561524) от 08.06.2022
+
+Reeper - Rise of Chaos (2021) Deluxe Edition, 2022, Art Gates Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebound (00:03:35)
+02 - Save Me (00:03:30)
+03 - Home (00:04:03)
+04 - Let It Go (00:03:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard, Desert, Stoner RockПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0A56A67D5B0B6A641A07BDB8477455624E3FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044833   (561395) от 22.08.2016
+
+Joe Satriani - Original Album Classic (1986 - 1998) 5CD Box set, 2008, Epic [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not of This Earth (4:04)
+ 02. The Snake (4:43)
+ 03. Rubina (5:57)
+ 04. Memories (4:06)(   Читать дальше...   )Жанр: Rock, Hard Rock, InstrumentalПродолжительность: 04:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1604A9717B7EACEF918DF96B62F7F8A44909548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045184   (561392) от 22.08.2016
+
+Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 1990, Polydor [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Fantastic And The Brown Dirt Cowboy
+02. Tower Of Babel
+03. Bitter Fingers
+04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30278A4A5C4EA9C1C73628131A55989A13E14F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528782   (560619) от 03.08.2012
+
+Jimi Hendrix - Sir James Marshall - Gypsy On Cloud Nine (1986) 2LP [FLAC|Lossless]<Rock, Blues Rock, Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_560619.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Further On Up The Road [01:57]
+ A2. Astro Man [03:17]
+ A3. The Things We Used To Do [07:01]
+ A4. Once I Had A Woman [05:30]
+ A5. Ezy Rider I (inst. jam) [03:58]
+ B1. Ezy Rider II [08:37]
+ B2. Message To Love (speed corrected) [05:05]
+ B3. Captain Coconut (MLK Jam Cherokee Mist) [06:37]
+ C1. Instrumental Jam (Ezy Rider Jam) [10:22]
+ C2. Peace In Mississippi [07:35](   Читать дальше...   )Жанр: Rock, Blues Rock, Psychedelic Rock, Classic RockФормат: vinyl bootleg 2 L.P. setПродолжительность: 01:40:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556467   (559731) от 09.06.2022
 
 Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic Rock, Shoegaze>
@@ -6,7 +157,7 @@ Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559731.jpg" />
+  <img src="Z:/picture/008/save_picture_559731.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ VA - Rock 'N' Roll Britannia (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559698.jpg" />
+  <img src="Z:/picture/008/save_picture_559698.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ The 69 Eyes - Wrap Your Troubles in Dreams (1997) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559590.jpg" />
+  <img src="Z:/picture/008/save_picture_559590.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Sting - The Soul Cages (1991) [FLAC|Lossless|image + .cue] <Blues Rock, Jazz-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559441.jpg" />
+  <img src="Z:/picture/008/save_picture_559441.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Queen - A Night At The Opera (1975) Remaster, 1993, Parlophone [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559321.jpg" />
+  <img src="Z:/picture/008/save_picture_559321.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ Joe Satriani - Shockwave Supernova (2015) [FLAC|image +.cue]<Instrumental Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558867.jpg" />
+  <img src="Z:/picture/008/save_picture_558867.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ Oceans Apart - The Hate Club (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558391.jpg" />
+  <img src="Z:/picture/008/save_picture_558391.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ Soft Machine Legacy - 6 альбомов (2005-2013) [WavPack|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556913.jpg" />
+  <img src="Z:/picture/008/save_picture_556913.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ John McLaughlin And The Mahavishnu Orchestra - The Collection (1991) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556848.jpg" />
+  <img src="Z:/picture/008/save_picture_556848.jpg" />
 </div>
 
 
@@ -267,7 +418,7 @@ Hothouse Flowers - People (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556615.jpg" />
+  <img src="Z:/picture/008/save_picture_556615.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ Yatra - Born into Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556476.jpg" />
+  <img src="Z:/picture/008/save_picture_556476.jpg" />
 </div>
 
 
@@ -325,7 +476,7 @@ Museum Of Light - Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedeli
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556470.jpg" />
+  <img src="Z:/picture/008/save_picture_556470.jpg" />
 </div>
 
 
@@ -354,7 +505,7 @@ Aawks - Heavy On The Cosmic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556466.jpg" />
+  <img src="Z:/picture/008/save_picture_556466.jpg" />
 </div>
 
 
@@ -383,7 +534,7 @@ The Sweet - New York Connection (2012) 10th Anniversary Edition, Remastered 2022
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556431.jpg" />
+  <img src="Z:/picture/008/save_picture_556431.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ Steve Jones - Mercy (2018) 2019, Rock Candy/Geffen/UMG [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556192.jpg" />
+  <img src="Z:/picture/008/save_picture_556192.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ The 69 Eyes - Paris Kills (2002) Special Edition, 2015, Nuclear Blast Germany [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556070.jpg" />
+  <img src="Z:/picture/008/save_picture_556070.jpg" />
 </div>
 
 
@@ -470,7 +621,7 @@ Le Orme ‎ - Sulle Ali Di Un Sogno (2019) [FLAC|Lossless|tracks + .cue] <Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555374.jpg" />
+  <img src="Z:/picture/008/save_picture_555374.jpg" />
 </div>
 
 
@@ -499,7 +650,7 @@ Mike + The Mechanics - Out of the Blue (2019) [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555353.jpg" />
+  <img src="Z:/picture/008/save_picture_555353.jpg" />
 </div>
 
 
@@ -528,7 +679,7 @@ Phil Collins - Other Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555325.jpg" />
+  <img src="Z:/picture/008/save_picture_555325.jpg" />
 </div>
 
 
@@ -557,7 +708,7 @@ Phil Collins - Remixed Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555011.jpg" />
+  <img src="Z:/picture/008/save_picture_555011.jpg" />
 </div>
 
 
@@ -586,7 +737,7 @@ The Lovemongers - Here Is Christmas (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554930.jpg" />
+  <img src="Z:/picture/008/save_picture_554930.jpg" />
 </div>
 
 
@@ -600,151 +751,6 @@ The Lovemongers - Here Is Christmas (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1214E6736CFE7586994857DDD049C86B8C11D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307230   (554918) от 10.06.2019
-
-The Head and the Heart - Living Mirage (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. See You Through My Eyes (03:54)
-2. Missed Connection (03:15)
-3. People Need a Melody (04:12)
-4. Honeybee (03:16)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A6DF587788C07FC469E75FDF83BCE321454CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307083   (554882) от 10.06.2019
-
-Santana - Africa Speaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Latin Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Africa Speaks (feat. Buika)[4:48]
- 2 - Batonga (feat. Buika)[5:43]
- 3 - Oye Este Mi Canto (feat. Buika)[5:59]
- 4 - Yo Me Lo Merezco (feat. Buika)[6:13](   Читать дальше...   )Жанр: Classic Rock, Latin RockПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6552C4B22B22C7BEC77563492ADAB3B68101B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307469   (554861) от 10.06.2019
-
-Mono Inc. - Symphonic: Live (2019) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Hell [4:04]
-02. Kein Weg zu weit [4:43]
-03. Long live death [4:23]
-04. If i fail [6:02](   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289FD484201ECD3B3BC503E59B8077DF9ECBBEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236306   (554708) от 16.07.2018
-
-Bon Jovi (Jon Bongiovi) - Hollywood Dreams (2018) Scene [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Said It Would Last Forever
-02. Open Your Heart
-03. Stringin' A Line
-04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715B9790DA82B06357BA6BBFA202DE0914A3625B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236299   (554656) от 16.07.2018
-
-Dire Straits - Six Blade Knife: The Magic Of Dire Straits (2018) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Six Blade Knife
-02. Where Do You Think You're Going
-03. Sultans Of Swing
-04. Brothers In Arms(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF69762B8C1D39410236C530302E3C5A33E0E91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1375581   (1039668) от 13.01.2021
+
+Миша портит все (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039668.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой серии приставучий гений Миша спасает среднестатистическую семью Горшковых от «разводов» маркетологов, стереотипов и навязанных традиций.Производство: Россия / СТС, кинокомпания МИМЖанр: комедияРежиссер: Всеволод БродскийАктеры: Михаил Галустян, Елена Николаева, Роман Богданов, Александра Абрамейцева, Артемий Падалка, Ирина Серова, и др.Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB78144781609A0A8433FC37AC82866C0E32FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612652   (1039458) от 18.02.2023
+
+Бескрайний бассейн / Infinity Pool (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парочка отдыхает на курорте, где «всё включено». Однажды на пляже происходит несчастный случай со смертельным исходом, после чего атмосфера отдыха резко меняется.Производство: Канада, Хорватия, Венгрия / Film Forge, Eurimages, NeonЖанр: ужасы, фантастика, триллер, криминал, детективРежиссер: Брэндон КроненбергАктеры: Александр Скарсгард, Миа Гот, Клеопатра Коулмэн, Жалиль Леспер, Томас Кречман, Аманда Бругел, Кэролайн Бултон, Джон Ралстон, Джефф Рикеттс, Dunja Sepcic BognerПеревод: Многоголосый профессиональный (Jaskier), двуголосый любительский (Yuka_chan & datynet)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH), испанскиеПродолжительность: 01:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80D8B4D0215FA90CCE33E44C0152C45E95A513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125171   (1039457) от 18.02.2023
+
+Лучше звоните Солу / Better Call Saul (2017) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф сериала «Во все тяжкие» от его создателя Винса Гиллигана.
+Главный герой сериала – адвокат Сол Гудман, все больше углубляется в криминальный мир. С каждым новым делом Сол набирается больше опыта и адвокатской практики, что позволяет ему стать еще находчивее и пронырливее в своем деле. Сол обретает в криминальном мире славу, как адвокат, который берется за (   Читать дальше...   )Производство: США / High Bridge Productions, Crystal Diner Productions, Gran Via ProductionsЖанр: драма, криминалРежиссер: Винс Гиллиган, Томас Шнауз, Питер ГулдАктеры: Боб Оденкёрк, Джонатан Бэнкс, Ри Сихорн, Майкл МакКин, Патрик Фабиан, Майкл Мэндо, Керри Кондон, Винсент Фуэнтес, Омар Маскати, Эйлин Фогарти и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: английскиеПродолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74C021D9C337148D7020043D581AFDA283BC2C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367800   (1039409) от 14.01.2021
+
+The Outer Worlds (2019) [Ru/Multi] (1.4.1.617/dlc) Repack xatab (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039409.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Outer Worlds — новая однопользовательская научно-фантастическая ролевая игра с видом от первого лица, над которой работают Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики.Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF146DF531E9FD8062F83263332D3AD836C72BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439194   (1039206) от 15.01.2021
 
 Huawei выпускает собственный браузер для ПК, чтобы конкурировать с Google Chrome
@@ -6,7 +111,7 @@ Huawei выпускает собственный браузер для ПК, ч�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039206.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038968.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038710.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Adobe After Effects 2020 (17.6.0.46) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038626.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Windows 7 SP1 6.1 (Build 7601.24564) (13in2) x86/x64 by Sergei Strelec [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038614.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.42/dlc) License GOG [Ultimate Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038468.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ Satisfactory (2019) [Ru/Multi] (0.3.7.7) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038389.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038384.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038228.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038160.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ WhatsApp капитулировал и перенёс новые правила 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038153.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0.14/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038133.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ Empress всё-таки взломала Hogwarts Legacy — пиратская 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037966.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ True Phone - Телефон, Контакты 2.0.18-2022-08-18 Pro (Полна�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037957.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ Adobe Photoshop 2023 24.2.0.315 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1037956.jpg" />
+  <img src="Z:/picture/005/save_picture_1037956.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037871.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037868.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 01.2021 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037867.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037864.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037700.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037690.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037600.jpg" />
 </div>
 
 
@@ -566,111 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3BD7A97678C830C9084C81AE69633BA792160D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614958   (1037413) от 26.02.2023
-
-Стук в хижине / Knock at the Cabin (2023) WEB-DLRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливая пара с семилетней дочерью отдыхает в лесном коттедже у озера. Внезапно у них на пороге возникают четыре незнакомца, вооруженных диковинными орудиями, и ставят отдыхающим ультиматум: либо те выбирают и убивают кого-то из собственной семьи, либо наступает апокалипсис, и остальное человечество погибает в адских муках.Производство: США / Blinding Edge Pictures, FilmNation Entertainment, Perfect World Pictures, Universal Pictures, WishmoreЖанр: триллерРежиссер: М. Найт ШьямаланАктеры: Дэйв Батиста, Джонатан Грофф, Бен Элдридж, Никки Амука-Бёрд, Руперт Гринт, Эбби Куинн, Кристен Цуй, МакКенна Керриган, Йен Мэрилл Пикс, Denise NakanoПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370FE83411A9D5EE5AE4331B750A25242F069D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441278   (1037363) от 22.01.2021
-
-Что такое цифровая реинкарнация человека
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровые технологии проникают во все сферы жизни человека: науку, производство, образование, медицину, быт, отдых. Специалисты американской компании Microsoft пошли дальше – они вторглись в загробную жизнь человека, запатентовав идею цифровой реинкарнации.В чем суть цифровой реинкарнации человека
-Авторы идеи предложили создать чат-бот на основе информации об умершем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990520   (1037310) от 22.01.2021
-
-Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложение для просмотра прогноза погоды (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037310.jpg" />
-</div>
-
-
-###  Подробнее
-
-WeatherBomb - Универсальное приложение, которое покажет вам прогноз погоды, в реальном времени. Не все так просто как кажется, здесь присутствует интерактивная карта, которая показывает вам прогноз погоды в реальном времени. Есть одно меню, благодаря которому пользователь может выбрать нужную ему информацию. Имеется такой уникальный пункт как высота волн, эти данные (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 16.01.2021Разработчик: Enzure DigitalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A41BF6F3F6BE0DABEEE54773BE041512892914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615276   (1037157) от 27.02.2023
-
-Учёные создали основу для полного слияния человека и машины — электроды научились выращивать прямо в организме
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многочисленные работы по интеграции электронных схем и биологических организмов строятся на тех или иных операциях по вживлению мёртвого в живое. Открытие шведских учёных может в корне изменить подход и привести к по-настоящему полной интеграции машины и человека. Разветвлённую сеть электродов можно будет создавать прямо в клетках и живых тканях с использованием (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

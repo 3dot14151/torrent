@@ -1,3 +1,163 @@
+###  Публикация: 535765   (8569) от 30.09.2025
+
+Король и Шут (Горшок) - 15 альбомов + 4 Live + 5 compilation + BoxSet + Soundtrack (1996-2025) [MP3|320 kbps] <Punk Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8569.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Король и Шут» (аббревиатура КиШ) — российская панк-рок-группа. Наиболее известна своим необычным для панк-рока стилем исполнения: тексты, представляющие собой фэнтези-рассказы в стиле хоррор, законченные истории, обычно мистические или исторические, наложены на ритмичную панк-рок музыку.
+Сценический имидж группы включает в себя пугающий грим, соответствующий тематике (   Читать дальше...   )1996 - Камнем по Голове (1999, Manchester Files)
+1996 - Будь как дома, Путник© (2000, Nox Music)
+1999 - Акустический альбом (2000, Nox Music)
+2000 - Герои и Злодеи (2002, Центр Музыкального Сервиса)Жанр: Punk RockПродолжительность: 34:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51888E385AC6B706DE67399E269025C7F9191EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811461   (8503) от 11.08.2025
+
+Операторы начали тестировать доступ в мобильный интернет с капчей и белым списком
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операторы связи РФ запустили тестирование механизмов, разработанных совместно с Минцифры, для доступа к интернету в условиях ограничений, обусловленных мерами безопасности. В операторе Т2 (ранее - Tele2) сообщили ТАСС, что его специалисты уже протестировали разработанный ими способ получения доступа в мобильную сеть для абонентов, включающий использование капчи.«Пройдя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733493   (8498) от 11.08.2025
+
+Место встречи изменить нельзя (1979) BDRip [H.264/1080p] (серии 1-5 из 5) [Handmade correction AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8498.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основе детективного романа Аркадия и Георгия Вайнеров "Эра милосердия". Убийства, засады, погони, перестрелки на фоне послевоенной Москвы. Сотрудники МУРа против таинственной и неуловимой банды "Чёрная кошка". Демобилизовавшийся офицер разведки Володя Шарапов начинает работать в отделе по борьбе с бандитизмом. Одно из первых дел, в расследовании (   Читать дальше...   )Производство: СССР, Гостелерадио СССР, Одесская киностудияЖанр: криминал, детектив, боевик, драмаРежиссер: Станислав ГоворухинАктеры: Владимир Высоцкий, Владимир Конкин, Сергей Юрский, Виктор Павлов, Наталья Фатеева, Наталья Данилова, Леонид Куравлёв, Светлана Светличная, Александр Белявский, Евгений Евстигнеев, Армен ДжигарханянПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русские, английскиеПродолжительность: ~01:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091B7E382A177D5E28749DB2E9B17629FF451741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799002   (8491) от 11.08.2025
+
+Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.7) Repack Decepticon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, представляющий собой новую главу в одноименной франшизе. Представлен совершенно новый сюжет и огромное количество новых механик. Улучшен искусственный интеллект в одиночном приключении, полностью обновлена физика воды и механика плавания, переработано управление транспортными средствами и многое другое.Тип издания: RepackРазработчик: Infinity Ward, Raven Software, Beenox, Treyarch, High Moon Studios, Sledgehammer Games, Activision Shanghai, Demonware, Toys for BobЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8782DB2F8862F6481CEF1889C4BE56CD15F8EFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609789   (7815) от 15.08.2025
+
+SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примерьте мантию своего могучего предшественника и станьте наследником его таинственной волшебной башни в пошаговой стратегической игре, действие которой происходит в фантастическом мире SpellForce. Изучите множество заклинаний и заколдуйте окружающие земли, вызывайте фантастических миньонов, обучайте могущественных воинов и путешествуйте по миру. Участвуйте в динамических, (   Читать дальше...   )Тип издания: LicenseРазработчик: Owned by GravityЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26526B8BFDD8D543362D2DB065AB3397852E8C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418815   (7813) от 15.08.2025
+
+Project Zomboid (2013) [Ru/Multi] (42.8.1) License GOG [Early Access]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Project Zomboid - многообещающая Survival-RPG, в которой вы будете пытаться выжить в городе наполненном миллионами зомби. Спасения нет, лекарства нет. Конец близок... приготовьтесь к нему. Полностью открытый мир, как сейчас модно называть - песочница. В любой дом можно зайти и обшарить любой шкафчик. Улицы не пустуют, постоянно происходит какое – то движение.Тип издания: LicenseРазработчик: The Indie StoneЖанр: Экшны, Симулятор, Open WorldЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F677AA504594460DE4485EE95E7971F337B939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235755   (7810) от 15.08.2025
 
 Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) License GOG [Deluxe Edition]
@@ -6,7 +166,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) Licens
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7810.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Incubation: Time Is Running Out / Incubation: Космодесант [Ru] (L) 19
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7599.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ MAX Desktop 25.8.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7410.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-4/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7392.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7372.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7121.jpg" />
 </div>
 
 
@@ -165,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6999.jpg" />
 </div>
 
 
@@ -191,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6987.jpg" />
 </div>
 
 
@@ -219,7 +379,7 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6878.jpg" />
 </div>
 
 
@@ -245,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6876.jpg" />
 </div>
 
 
@@ -271,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6868.jpg" />
 </div>
 
 
@@ -297,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6853.jpg" />
 </div>
 
 
@@ -323,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6721.jpg" />
 </div>
 
 
@@ -349,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6698.jpg" />
 </div>
 
 
@@ -375,7 +535,7 @@ De’Longhi переименовала кофемашину в компьюте�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6528.jpg" />
 </div>
 
 
@@ -401,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6375.jpg" />
 </div>
 
 
@@ -427,7 +587,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Scene Rune
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6228.jpg" />
 </div>
 
 
@@ -453,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6225.jpg" />
 </div>
 
 
@@ -479,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6220.jpg" />
 </div>
 
 
@@ -507,7 +667,7 @@ Robin Trower - 43 альбома, 2 Box Set (1973 - 2025) 84 CD [FLAC|Lossless|i
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6049.jpg" />
 </div>
 
 
@@ -521,164 +681,6 @@ Robin Trower - 43 альбома, 2 Box Set (1973 - 2025) 84 CD [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770B09D7A226D36529EF8FA36A36614E12AFC513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814457   (6022) от 25.08.2025
-
-Очередное достижение: 2000+ релизов от dark_elf2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 2000+ релизов от dark_elf2Дорогие друзья и гости клуба...
-Наш клуб 2000+ пополнился ещё одним неутомимым тружеником.
-Огромная Благодарность от лица всего коллектива модераторов и администрации трекера за твой неоценимый вклад в развитие трекера, за потраченное время и силы, за не угасающее желание поддерживать трекер, за доброе отношение ко (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814224   (5891) от 26.08.2025
-
-Apple обсуждает с властями РФ установку RuStore на iPhone
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5891.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Известия» со ссылкой на три источника на IT-рынке и в органах власти сообщают о переговорах между Apple и российской стороной по вопросу допуска RuStore на устройствах компании. По одному из каналов коммуникации, собеседники утверждают, что Apple «не будет препятствовать» размещению RuStore в экосистеме iOS, однако финальных договорённостей нет.Источники в VK (оператор (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921336   (5766) от 27.08.2025
-
-Лангольеры / The Langoliers (1995) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пассажиры самолета, летящего в Бостон из Лос-Анджелеса, попадают в «дыру во времени» и оказываются в ином мире, переживая невероятные приключения. Удастся ли им вернуться назад…Производство: СШАЖанр: Ужасы, Фантастика, Триллер, ПриключенияРежиссер: Том Холланд /Tom HollandАктеры: Патриция Уэттиг Дин Стокуэлл Дэвид Морс Марк Линдсэй Чэпман Фрэнки Фэйзон Бакстер Харрис Кимбер Риддл Кристофер Колле Кейт Маберли Бронсон ПинчотПеревод: Многоголосый закадровый, авторскийЯзык субтитров: АнглийскийПродолжительность: 02:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F5F32E3C26376ACFCC0E9E6A3040D7A92F8F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814475   (5745) от 27.08.2025
-
-У смартфонов Google Pixel 10 есть функция запрограммированного «старения» аккумулятора
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания рассказала, что внедрила в новинки функцию Battery Health Assistance, которая после определённого количества циклов зарядки начнёт фактически ухудшать батарею. Функция дебютировала на Pixel 9a, и теперь вот мы знаем, что она будет и у новинок. И отключить её нельзя.Это программное обеспечение будет поэтапно регулировать максимальное напряжение аккумулятора, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814498   (5464) от 29.08.2025
-
-Рыжая Соня / Red Sonja (2025) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соня - воин, последний представитель своего народа и хранительница магии в волшебном лесу. Император Дрейган покоряет мир с помощью науки и современных технологий. Его войска берут Соню в плен и отправляют на арену - теперь она гладиатор, участница самых зрелищных и жестоких боёв. Чтобы обрести свободу, ей предстоит пройти множество поединков и суровые испытания.Производство: США / Dynamite Entertainment Comics, Mark Canton ProductionsЖанр: фэнтези, боевикРежиссер: М. Дж. БассеттАктеры: Матильда Лутц, Роберт Шиэн, Рона Митра, Мартин Форд, Тревор Ив, Вероника Феррес, Майкл Биспинг, Уоллис Дэй, Люк Паскуалино, Элиза МатенгуПеревод: Дублированный (Dragon Studio)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD77FF551D4248BCA03C32ED6AD5AC63034282C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814778   (5460) от 29.08.2025
-
-Российская космическая компания SR Space признана банкротом
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арбитражный суд Москвы официально признал банкротом российскую компанию SR Space, которая могла составить конкуренцию SpaceX Илона Маска.Согласно информации на сайте суда, в отношении должника открыто конкурсное производство. Компания, обещавшая бросить вызов американскому лидеру в области спутниковой связи, столкнулась с финансовыми трудностями.Заявление о банкротстве (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1652689   (216355) от 13.08.2023
+
+Urne - A Feast On Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Flood Came Rushing In (00:06:05)
+02 - To Die Twice (00:05:52)
+03 - A Stumble Of Words (00:11:00)
+04 - The Burden (00:05:31)(   Читать дальше...   )Жанр: Stoner, Sludge Metal, MetalcoreПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447AA3D1E2260281F43E00C78822FFF25750506F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652726   (216284) от 13.08.2023
+
+VA - WORKOUT: Allenamento Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - What I’ve Done (03:25)
+02. Slipknot - Psychosocial (04:44)
+03. Pantera - Walk (05:15)
+04. Avenged Sevenfold - Hail to the King (05:05)(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E85D2716854E315FC7B4495DEE76A465B8FD423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586456   (216035) от 27.10.2022
+
+Tankard - Oldies & Goldies - The Very Best Of The Noise Years 1986-1995 (2016) (2CD) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Zombie Attack 3:49
+02 Mercenary 3:26
+03 Maniac Forces 5:08
+04 (Empty) Tankard 4:44(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0275286D067D437CC78EA22E67A88F75E7F9315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586473   (215991) от 27.10.2022
 
 Blowin Free - The Knife And The Floosie (1987) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
@@ -6,7 +93,7 @@ Blowin Free - The Knife And The Floosie (1987) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215991.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Embryonic Autopsy - Prophecies of the Conjoined (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215979.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Vorbid - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Thrash, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215867.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crimson - Black Carpet (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215794.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Debauchery - Back in Blood (2007) Reissue, 2021, Fono [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215764.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Corners Of Sanctuary - Blood And Steel: Fight Till The End (2021) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215664.jpg" />
+  <img src="Z:/picture/005/save_picture_215664.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Geist - Kainsmal (2006) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215642.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Eliminator - The One They Were Waiting For (2011) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215635.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Eliminator - And the Brokenhearted Balladeers (2011) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215629.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Sorg - Norðandrekar (2022) [FLAC|Lossless|WEB-DL|tracks] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215519.jpg" />
+  <img src="Z:/picture/005/save_picture_215519.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Etreum - Evolucion (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215472.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Various Artists - Immortal Randy Rhoads - The Ultimate Tribute (2015) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215328.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Unanimated - Annihilation (2018) EP [FLAC|Lossless|image + .cue] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215208.jpg" />
+  <img src="Z:/picture/005/save_picture_215208.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Mountaineer - Bloodletting (2020) [FLAC|Lossless|tracks + .cue] <Post Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215168.jpg" />
+  <img src="Z:/picture/005/save_picture_215168.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Motorhead - Unreleased Track (1990) Japan [APE|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215109.jpg" />
+  <img src="Z:/picture/005/save_picture_215109.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Armored Saint - Punching The Sky (2020) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215072.jpg" />
+  <img src="Z:/picture/005/save_picture_215072.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Callejon - Eternia (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214853.jpg" />
+  <img src="Z:/picture/005/save_picture_214853.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Malice - License To Kill (1987) Japanese Edition, Reissue, 2014, Atlantic [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214747.jpg" />
+  <img src="Z:/picture/005/save_picture_214747.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Fit For A King - The Hell We Create (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214740.jpg" />
+  <img src="Z:/picture/005/save_picture_214740.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Rob Rock - Eyes Of Eternity (2003) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214614.jpg" />
+  <img src="Z:/picture/005/save_picture_214614.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Therion - Leviathan II (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Operatic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214576.jpg" />
+  <img src="Z:/picture/005/save_picture_214576.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Fire From the Gods - Soul Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214524.jpg" />
+  <img src="Z:/picture/005/save_picture_214524.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Warrel Dane - Shadow Work (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214492.jpg" />
+  <img src="Z:/picture/005/save_picture_214492.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Warrel Dane - Shadow Work (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:615229275CD572C68FDF3F58F8A418A0F8BC744E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270203   (214468) от 18.12.2018
-
-Veiled in Scarlet - Atonement (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer to Dawn
-02. The Throne
-03. Prisoner's Sorrow
-04. Atonement(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97E8393BD8D588FC28A777602EEA4379A40CCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270233   (214295) от 18.12.2018
-
-Venom - Storm The Gates (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214295.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bring Out Your Dead [03:20]
-2. Notorious [04:15]
-3. I Dark Lord [04:40]
-4. 100 Miles To Hell [04:48](   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2369C65BB0C1E64C10CD0C00B5F20EE44C4FA8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270172   (214260) от 18.12.2018
-
-Slayer - God Hates Us All (2001) Japanese Edition [FLAC|Lossless|tracks + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_214260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Darkness of Christ (1:30)
-02.Disciple (3:36)
-03.God Send Death (3:46)
-04.New Faith (3:06)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2D808F98DF85E73A6FAEDDC369B5E9A7C136EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

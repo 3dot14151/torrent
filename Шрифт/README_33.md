@@ -1,3 +1,112 @@
+###  Публикация: 1787531   (23409) от 26.03.2025
+
+Шрифты - Alexander Shimanov - Behance - Free font ST-NIZHEGORODSKY - 114774303 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей - Нижегородский.
+Разработчик: Alexander ShimanovФормат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBCAEEF80BA1B87917B04635ECC9261C9F09A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787952   (23214) от 28.03.2025
+
+Шрифты - Mark Dubonosov - Behance - Belozersk Font - Free (Cyrillic and Latin) - 107142323 [TTF, OTF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей - Белозерск.
+Разработчик: Mark Dubonosov
+Материал раздается с официальной документацией.Формат: TTF, OTF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556316F06250929B97EE067CC973C7E7898241B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788368   (23006) от 30.03.2025
+
+Шрифты - Dmitri Zdorov - Dimka - Dimica [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Dmitri ZdorovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46709F4BC0B46DB9A30B30B0B835DBE269F8AF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789277   (22637) от 03.04.2025
+
+Шрифты - Alexander Shimanov - ST-ELBRUS [TTF, OTF, WOFF, WOFF2, EOT, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: TTF, OTF, WOFF, WOFF2, EOT, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9FED088704FD0568DE8A720A1C36F4753EC17A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789260   (22606) от 03.04.2025
 
 Шрифты - Alina Absaliamova - Behance - NIT - Free Display Font - 188881135 [OTF, WOFF, WOFF2]
@@ -6,7 +115,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22606.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22604.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22600.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22581.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22580.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22576.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22575.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22574.jpg" />
 </div>
 
 
@@ -228,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22567.jpg" />
 </div>
 
 
@@ -255,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22565.jpg" />
 </div>
 
 
@@ -284,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22564.jpg" />
 </div>
 
 
@@ -313,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22494.jpg" />
 </div>
 
 
@@ -340,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22491.jpg" />
 </div>
 
 
@@ -367,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22474.jpg" />
 </div>
 
 
@@ -396,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22471.jpg" />
 </div>
 
 
@@ -424,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22465.jpg" />
 </div>
 
 
@@ -452,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22457.jpg" />
 </div>
 
 
@@ -479,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22371.jpg" />
 </div>
 
 
@@ -505,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22257.jpg" />
 </div>
 
 
@@ -533,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22250.jpg" />
 </div>
 
 
@@ -559,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22186.jpg" />
 </div>
 
 
@@ -588,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22163.jpg" />
 </div>
 
 
@@ -601,117 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE285909C03F3F10A2D603D90F56984448A77D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790109   (22160) от 07.04.2025
-
-Шрифты - MyFonts - TT Norms Pro [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22160.jpg" />
-</div>
-
-
-###  Подробнее
-
-TT Norms® Pro — универсальный функциональный гротеск для красивых решений, бестселлер студии TypeType. Мы добавили в семейство шрифтов 22 начертания Compact, соответствующих базовым шрифтам, чтобы расширить сферу применения TT ​​Norms® Pro. Теперь в распоряжении дизайнеров есть еще более современная и функциональная версия шрифта.
-
-Кириллица поддерживается.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD6A436463DE078E54626EDB5898800E10448BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790058   (22152) от 07.04.2025
-
-Шрифты - Ilya Designgsta - Behance - Onmark Рукописный шрифт - 222944479 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Разработчик: Ilya Designgsta
-Материал раздаётся с официальной документацией.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3845F5CF2D01582C6FB249002AC2EC806C8CB871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790053   (22151) от 07.04.2025
-
-Шрифты - Svetoslav Simov - Null [TTF, OTF, WOFF, WOFF2, EOT, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Разработчик: Svetoslav Simov
-В добавленных файлах в папке "Null By He Rez AD" от "He Rez AD" расширенная кириллица (добавлена Украинская, Белорусская, Молдавская); им же добавлены файлы форматов WOFF, WOFF2, SVG.Формат: TTF, OTF, WOFF, WOFF2, EOT, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77A56F795EC8D6476C14CDD1FF50CB24DC4C3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790323   (22061) от 08.04.2025
-
-Шрифты - Sign Studio - Creative Market - Signate Grotesk - Black Style - 16053781 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.
-Разработчик: Sign StudioФормат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956465BDCB73524BB51B664BD0DFB2D138416A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

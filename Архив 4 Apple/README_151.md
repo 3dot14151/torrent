@@ -6,7 +6,7 @@ VMware Fusion Pro 8.5.4 (5115894) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839788.jpg" />
+  <img src="Z:/picture/008/save_picture_839788.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Commander One PRO 1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839762.jpg" />
+  <img src="Z:/picture/008/save_picture_839762.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ URL Manager Pro 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839633.jpg" />
+  <img src="Z:/picture/008/save_picture_839633.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ iBarcoder 3.11.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839574.jpg" />
+  <img src="Z:/picture/008/save_picture_839574.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ File Cabinet Pro 7.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839573.jpg" />
+  <img src="Z:/picture/008/save_picture_839573.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Screencast 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839572.jpg" />
+  <img src="Z:/picture/008/save_picture_839572.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ DoubleTake 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839570.jpg" />
+  <img src="Z:/picture/008/save_picture_839570.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ExactScan Pro 20.4.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839568.jpg" />
+  <img src="Z:/picture/008/save_picture_839568.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Logoist 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839567.jpg" />
+  <img src="Z:/picture/008/save_picture_839567.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Swift Publisher 5 v5.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839563.jpg" />
+  <img src="Z:/picture/008/save_picture_839563.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Blocs 3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839561.jpg" />
+  <img src="Z:/picture/008/save_picture_839561.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Comic Life 3.5.16 (v36563) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839460.jpg" />
+  <img src="Z:/picture/008/save_picture_839460.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Photo Editor 6 Movavi v6.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839457.jpg" />
+  <img src="Z:/picture/008/save_picture_839457.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Rhinoceros 6 v6.25.20114 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839453.jpg" />
+  <img src="Z:/picture/008/save_picture_839453.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Serviio Pro 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839437.jpg" />
+  <img src="Z:/picture/008/save_picture_839437.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DjVu To PDF Converter 1.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839436.jpg" />
+  <img src="Z:/picture/008/save_picture_839436.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ HyperDock 1.7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839401.jpg" />
+  <img src="Z:/picture/008/save_picture_839401.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Macsome iTunes Converter 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839339.jpg" />
+  <img src="Z:/picture/008/save_picture_839339.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VLC media player for Mac 3.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839063.jpg" />
+  <img src="Z:/picture/008/save_picture_839063.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ SteerMouse 5.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838979.jpg" />
+  <img src="Z:/picture/008/save_picture_838979.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ goPanel 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838707.jpg" />
+  <img src="Z:/picture/008/save_picture_838707.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DupeZap 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838643.jpg" />
+  <img src="Z:/picture/008/save_picture_838643.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Clearview 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838637.jpg" />
+  <img src="Z:/picture/008/save_picture_838637.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ReadKit 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838634.jpg" />
+  <img src="Z:/picture/008/save_picture_838634.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ TouchCopy 16.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838550.jpg" />
+  <img src="Z:/picture/008/save_picture_838550.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Araxis Merge Pro 2017.4855 (for macOS 10.12+) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838538.jpg" />
+  <img src="Z:/picture/008/save_picture_838538.jpg" />
 </div>
 
 

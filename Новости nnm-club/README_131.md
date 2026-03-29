@@ -1,3 +1,162 @@
+###  Публикация: 1098178   (607887) от 19.04.2019
+
+Heroes of Might and Magic V: Bundle (2006) [Ru/Multi] (2.1v2/3.1v2) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте свидетелем поразительной эволюции направляющей жанр стратегической игры, ставшей феноменом нового поколения игр, объединяющей классическое глубокое фэнтези с графикой и игровым процессом нового поколения. В известной вселенной Might & Magic толпы демонов распространяют хаос по всем землям в безжалостных нападениях. На кону судьба мира и Герои из различных (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C0392EAA1524ACB356429C2BCB4A7F973AF6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034972   (607776) от 27.07.2016
+
+Карты iGO HERE 2016.Q1 Europe [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты и контент для iGO 8.3-9 (fbl, fda, fpa, fsp, ftr, fjw, hnr, poi, 3dl, 3dc). Очередное обновление карт от HERE (NAVTEQ) по конец апреля 2016 года. Самой программы навигации в раздаче нет. В раздаче только карты, слои карт, пои, ландшафты и т.п.. Карт отдельных городов / областей/ островов НЕ СУЩЕСТВУЕТ. Компания-разработчик выпускает ТОЛЬКО карты стран.Релиз состоялся: 1.07.2016Поддерживаемая ОС: Android, WinCE, WM, iOSЯзык интерфейса: Русский / МультиФормат: fbl, fda, fpa, fsp, ftr, fjw, hnr, poi, 3dl, 3dc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78876D0355812AD348FE1D0086C82844B34F8991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038206   (607772) от 27.07.2016
+
+Kaspersky Anti-Virus 2017 17.0.0.611 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антивирус Касперского (Kaspersky Anti-Virus) обеспечивает базовую защиту в режиме реального времени от всех типов вредоносных программ. Как основа обороны вашего ПК, антивирус защищает вас от вирусов, шпионских программ, троянов, интернет-червей и многих других угроз. Это решение легко в использовании, а технологии безопасности, отмеченные многочисленными наградами (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1C74F6B16C3373DCF8B43112E5940C8251E93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805290   (607630) от 16.07.2014
+
+InSSIDer 4.0.0.20 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607630.jpg" />
+</div>
+
+
+###  Подробнее
+
+InSSIDer - бесплатная утилита, которая сканирует доступные Wi-Fi сети и предоставляет массу полезной информации о них, как например мощность сигнала, MAC-адрес роутера, его производителя, использующийся канал, идентификатор SSID или публичное название сети, тип безопасности, скорость сети и многое другое. Кроме того мощность сигнала можно отслеживать с помощью наглядных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E626E544C82BFCB31373430A0A2E03177583BE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546155   (607315) от 23.04.2022
+
+У ютубера отобрали лицензию пилота за видео крушения самолета
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_607315.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода ролика на YouTube «I Crashed My Plane» от видеоблогера Тревора Джейкоба, Федеральное авиационное управление США (FAA) решило лишить его лицензии и наложить штраф.В видео, которое набрало с декабря 2021 года почти 2 млн просмотров, Джейкоб выпрыгивает с парашютом из учебного самолета.В письме регулятор написал, что блогер «продемонстрировал отсутствие (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545982   (607302) от 23.04.2022
+
+Outline Client VPN 1.7.1 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите доступ к многочисленным бесплатным VPN серверами из 20 стран мира.
+Outline VPN – бесплатный VPN с неограниченным трафиком.
+VPN-проект, предлагающий как серверное, так и клиентское решение.
+В качестве VPN-протокола используется протокол с открытым исходным кодом – Shadowsocks, который обеспечивает доступ к открытому интернету, в то время как традиционные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D334DF672B0B560A1F47565E3C0D1BC81913A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018523   (607178) от 03.07.2017
 
 Подборка | Книги в кратком изложении Smart Reading [178 книги] (2017) [MP3]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607178.jpg" />
+  <img src="Z:/picture/008/save_picture_607178.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.16.06.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606518.jpg" />
+  <img src="Z:/picture/008/save_picture_606518.jpg" />
 </div>
 
 
@@ -62,7 +221,7 @@ Adobe Bridge CC (v6.1.1) x86-x64 Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606302.jpg" />
+  <img src="Z:/picture/008/save_picture_606302.jpg" />
 </div>
 
 
@@ -90,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606290.jpg" />
+  <img src="Z:/picture/008/save_picture_606290.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_606072.jpg" />
+  <img src="Z:/picture/005/save_picture_606072.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ Styx: Shards of Darkness (2017) [Ru/En] (1.05/dlc) Repack Mizantrop1337
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605988.jpg" />
+  <img src="Z:/picture/008/save_picture_605988.jpg" />
 </div>
 
 
@@ -168,7 +327,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605904.jpg" />
+  <img src="Z:/picture/008/save_picture_605904.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605757.jpg" />
+  <img src="Z:/picture/008/save_picture_605757.jpg" />
 </div>
 
 
@@ -220,7 +379,7 @@ CorelDRAW Graphics Suite X7 17.1.0.572 Retail [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605752.jpg" />
+  <img src="Z:/picture/008/save_picture_605752.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ Opera 46.0.2597.39 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605503.jpg" />
+  <img src="Z:/picture/008/save_picture_605503.jpg" />
 </div>
 
 
@@ -272,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605412.jpg" />
+  <img src="Z:/picture/008/save_picture_605412.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ Sniper Elite IV / Sniper Elite 4 (2017) [Ru/En] (1.4.1/dlc) Repack R.G. Меха
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605397.jpg" />
+  <img src="Z:/picture/008/save_picture_605397.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ Smart Driver Updater v 3.0.0.0 Portable [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_605033.jpg" />
+  <img src="Z:/picture/005/save_picture_605033.jpg" />
 </div>
 
 
@@ -360,7 +519,7 @@ Grand Theft Auto: San Andreas Premium Edition [Ru/En] (RePack/1.01) 2005 l VANSI
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605028.jpg" />
+  <img src="Z:/picture/008/save_picture_605028.jpg" />
 </div>
 
 
@@ -386,7 +545,7 @@ FreeTV v1.1.4 [Ru] - просмотр Online TV без внутренней ре
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604592.jpg" />
+  <img src="Z:/picture/008/save_picture_604592.jpg" />
 </div>
 
 
@@ -412,7 +571,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0/u4) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604515.jpg" />
+  <img src="Z:/picture/008/save_picture_604515.jpg" />
 </div>
 
 
@@ -438,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_604465.jpg" />
+  <img src="Z:/picture/005/save_picture_604465.jpg" />
 </div>
 
 
@@ -464,7 +623,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604371.jpg" />
+  <img src="Z:/picture/008/save_picture_604371.jpg" />
 </div>
 
 
@@ -490,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_604211.jpg" />
+  <img src="Z:/picture/005/save_picture_604211.jpg" />
 </div>
 
 
@@ -516,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604075.jpg" />
+  <img src="Z:/picture/008/save_picture_604075.jpg" />
 </div>
 
 
@@ -527,164 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35728E9F240A561B6AA4A33B3495469E118C3356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297375   (604011) от 22.04.2019
-
-Остановивший WannaCry исследователь признался в создании вредоносного ПО
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_604011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маркус Хатчинс признал свою вину в создании и распространении банковских троянов.Исследователь безопасности, два года назад остановивший волну атак WannaCry, признал свою вину в создании и распространении вредоносного ПО.Британец Маркус Хатчинс (Marcus Hutchins), использующий псевдоним MalwareTech, больше всего известен тем, что в 2017 году остановил распространение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296375   (603992) от 22.04.2019
-
-World War Z (2019) [Ru/Multi] (1.0) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603992.jpg" />
-</div>
-
-
-###  Подробнее
-
-World War Z — это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z — наследнице одноименного блокбастера от Paramount Pictures — вас ждет сверхдинамичный игровой процесс.Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AB64BCBD73C3583831D62D473E082985817606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 353146   (603735) от 06.07.2017
-
-Operation Flashpoint Антология [Ru] (L) 2001-2003
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Peacemaker — превосходное продолжение грандиозного шутера от первого лица Operation Flashpoint.
-
-Еще в 1985 году, задолго до операции "Буря Пустыне" на острове Эверон сошлись в смертельном поединке войска СССР и США, а также местные правительственные войска и повстанцы, манипулируемые советскими и американскими идеологами. Вас ждут масштабные баталии с (   Читать дальше...   )Тип издания: МодификацияРазработчик: flashpoint.ruЖанр: Action (Tactical / Shooter) / Strategy (Tactical) / Simulator (Flight Combat / Helicopter / Tank)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748A86A800C8002A00093C477CF5F547451069F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231753   (603630) от 20.06.2018
-
-Symantec Endpoint Protection 14.2 Build 758 (14.2.758.0000) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symantec Endpoint Protection - комплексный антивирус и фаервол с несколькими уровнями безопасности. Антивирусная и превентивная защита, защита от сетевых угроз и эксплойтов нулевого дня, система предотвращения вторженийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF507200362208E919A5E7685DFEAFAEC87B533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297517   (603519) от 23.04.2019
-
-Всё, что известно про Windows Core OS
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_603519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непросто следить за тем, как происходит развитие проекта Microsoft Windows Core OS (WCOS). Даже специализирующиеся на делах Microsoft издания испытывают трудности с различными кодовыми именами, планами и вносимыми в эти планы изменениями. Журналисты портала Windows Central предприняли попытку систематизировать известные на данный момент сведения относительно Windows (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035248   (603503) от 23.04.2019
-
-Shadows of Kurgansk (2016) [Ru/Multi] (0.1.51) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadows of Kurgansk — игра, в которой вам предстоит выжить в Зоне, населенной зомби и полной опасностей и загадок. Ваша главная цель – остаться в живых и найти дорогу домой, сражаясь с монстрами и выполняя сюжетные миссии. Чтобы не погибнуть, собирайте припасы, охотьтесь, стройте хранилища и убежища. Грамотно расходуйте ресурсы, и вы сможете создавать различные орудия (   Читать дальше...   )Тип издания: RepackРазработчик: Yadon StudioЖанр: Adventure, Action (Survival horror), 1st PersonЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8678B53699EED2C20CEF08C32CB285D6B2F3828
 ```
 
 https://mybot314.ru/tekegram_catalog/

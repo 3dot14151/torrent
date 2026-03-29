@@ -1,3 +1,407 @@
+###  Публикация: 1499743   (845828) от 03.10.2021
+
+3D модели - Daz 3D - Frontline Heroes Bundle - 69871 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frontline Heroes для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A95F7B2AC4F1D250B1FB6AF1E2A1ADF92301B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499748   (845826) от 03.10.2021
+
+3D модели - Daz 3D - Kota 8.1 Mech Warrior Bundle - 81850 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kota 8.1 для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9013FC7EE6DFB4874E0BD88D4FB93556B9EACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499735   (845821) от 03.10.2021
+
+3D модели - Daz 3D - Cyberpunk MEC Droid and Weapons Bundle - 82421 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk MEC Droid and Weapons для DAZ 3D из категории Props
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687F1944C2013DCA4A3867B99EE61A8ADC6CE10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499734   (845819) от 03.10.2021
+
+3D модели - Daz 3D - Cyberpunk Weapon Bundle - 80158 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk Weapon для DAZ 3D из категории Props
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4108CE998FCB34D8AE8CF6075EB153382DCF1EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747829   (844268) от 26.04.2020
+
+Растровый клипарт - Winter 2 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под голубыми небесами
+Великолепными коврами,
+Блестя на солнце, снег лежит;
+Прозрачный лес один чернеет,(   Читать дальше...   )Формат: JPGРазрешение файлов: 2122x1664 - 5000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AA278E380D9F10F63EB926EB12BAE668DE6671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499934   (844160) от 04.10.2021
+
+3D модели - Daz 3D - Juan Carlos 8 Streets of Cyberpunk Bundle - 79595 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Juan Carlos 8 для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27CDCE33B00F853CE94798421FCA3F2524AFF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499956   (844154) от 04.10.2021
+
+3D модели - Daz 3D - Jada 8.1 Undercover Roller Girl Bundle - 81580 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jada 8.1 для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9900F5C3277C1021482DD1997940C86B405536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499962   (844153) от 04.10.2021
+
+3D модели - Daz 3D - Topsy 8 Merry and Bright Bundle - 79588 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topsy 8 для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E03AAC6AC7627AED1B1251C7ED1D11D0BB0753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771599   (843351) от 29.03.2014
+
+Векторный клипарт - Животные / Animals [AI,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_843351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные и зверушкиФормат: AI,EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B85D26CB8EC989E0D4B11563FDD4B4D10FBBA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379101   (842908) от 27.04.2020
+
+Растровый клипарт - Клипарт пиратский остров [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на пиратскую тему.
+Автор serginionФормат: PNGРазрешение файлов: 1920x1280
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018CB816B2581D3E35E512352E57305B78A39520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379108   (842797) от 27.04.2020
+
+Шаблоны - NNM-Club - CD шаблоны от Snake1965 - 1379108 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD шаблоны от нашего одноклубника White1965.Формат: PSDРазрешение файлов: 600x600-850x600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02E3A8A06ABA1E71E2847FA9E60970EC2F547AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112285   (842694) от 08.03.2017
+
+Шрифты - Ice kingdom Bold [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт, как мультфильме "Холодное Сердце" (Frozen)
+Количество / Штук: 2
+Разработчик: KUSTREN
+(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D0B105E3034165B6B4DDC0EE04C6B4C77EC393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379116   (842656) от 27.04.2020
+
+Стили - Creative Market - 3D Text Effects Bundle Vol.4 - 4854498 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот комплект включает в себя 3 наших новейших продукта с трехмерными текстовыми эффектами, которые имеют новый размер 4000x3000 пикселей на 300 точек на дюйм по сравнению с нашими старыми эффектами с размером 2000x1500 пикселей.Формат: PSDРазрешение файлов: 4000×3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8CCED30AB21288947404609E034776C5FF0A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379120   (842651) от 27.04.2020
+
+Фоны - Creative Fabrica - 240 Pastel Backgrounds Bundle [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор пастельных фонов поставляется с 240 прекрасными фонами (20 комплектов).Формат: JPG, PNGРазрешение файлов: 3600x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9B97BC4C2C9B2B33265A635D72ED3DC36F555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379114   (842380) от 27.04.2020
+
+Сборник - Creative Market - The Icon Bundle 4000 - 618315 [AI, PNG, PSD, EPS, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет. Это мой новый большой набор иконок. В этом наборе вы не увидите, 500 значков стрелок или 300 значков сетки. Только разные и сложные иконки, только хардкор.Формат: AI, PNG, PSD, EPS, SVGРазрешение файлов: 16x16-512x512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8BF9C595104B439DD3A3031E7A08EEEB56377F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 771961   (841758) от 30.03.2014
 
 Растровый клипарт - Золотой Биткоин / Golden Bitcoin [JPEG]
@@ -6,7 +410,7 @@
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841758.jpg" />
+  <img src="Z:/picture/008/save_picture_841758.jpg" />
 </div>
 
 
@@ -35,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841073.jpg" />
+  <img src="Z:/picture/008/save_picture_841073.jpg" />
 </div>
 
 
@@ -61,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841065.jpg" />
+  <img src="Z:/picture/008/save_picture_841065.jpg" />
 </div>
 
 
@@ -87,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840961.jpg" />
+  <img src="Z:/picture/008/save_picture_840961.jpg" />
 </div>
 
 
@@ -113,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840955.jpg" />
+  <img src="Z:/picture/008/save_picture_840955.jpg" />
 </div>
 
 
@@ -139,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840953.jpg" />
+  <img src="Z:/picture/008/save_picture_840953.jpg" />
 </div>
 
 
@@ -165,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
+  <img src="Z:/picture/008/save_picture_840832.jpg" />
 </div>
 
 
@@ -191,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840828.jpg" />
+  <img src="Z:/picture/008/save_picture_840828.jpg" />
 </div>
 
 
@@ -217,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840751.jpg" />
+  <img src="Z:/picture/008/save_picture_840751.jpg" />
 </div>
 
 
@@ -243,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840682.jpg" />
+  <img src="Z:/picture/008/save_picture_840682.jpg" />
 </div>
 
 
@@ -269,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840060.jpg" />
+  <img src="Z:/picture/008/save_picture_840060.jpg" />
 </div>
 
 
@@ -281,400 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D96CD3894D75185FB1EBBE320633989E328F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500868   (839577) от 07.10.2021
-
-Шаблоны - Creative Market - Wrapping Paper Wooden Board Mockup - 6389448 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3A2753BF921A70BED0FE86D14844F345AC02A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500865   (839476) от 07.10.2021
-
-Шаблоны - Creative Market - Noissue Shipping Labels Mockup Set - 6451656 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональные и простые в использовании макеты упаковки для фотошопа и высококачественными продуктами Noissue.Формат: PSDРазрешение файлов: 2000x3000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20CD449FE367E6F8CA0C448E57C44FFA2E40326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500975   (839465) от 07.10.2021
-
-3D модели - 3ddd - Городской Автобус [Corona|V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839465.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автобуса марки KamazФормат: Corona|V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2C5EA0C0D17E572E2B85F020824A60A7539DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500869   (839354) от 07.10.2021
-
-Шаблоны - Creative Market - Sticker Mockup Bundle Logo Branding - 5142909 [PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом наборе 140 макетов стикеров.Формат: PSD, JPGРазрешение файлов: 4500x3500-6048x4032
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B718E5B8210DE34072C2A170A9F982F8750B1F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500875   (839350) от 07.10.2021
-
-Пресеты - Creative Market - THE BUNDLE 100 - Lightroom Presets - 6133635 [DNG, LRTEMPLATE, XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактируйте свои изображения как профессионал на мобильном или настольном устройстве одним щелчком мыши, загрузите бесплатное приложение Lightroom / Adobe Lightroom и наблюдайте, как волшебство наших предустановок меняет ваши изображения!.Формат: DNG, LRTEMPLATE, XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D70531EAD2E7247DFB0FCA2D426EDE487FD53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004125   (839284) от 05.04.2016
-
-Скрипты - miauu's Script Pack vol.2 ver.2.9 [MZP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839284.jpg" />
-</div>
-
-
-###  Подробнее
-
-miauu's Script Pack vol.2 - это набор скриптов, которые помогут решить некоторые рутиные задачи, при использовании 3ds max.Формат: MZP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7322A26DA2DAB7512DD1C959E977BC201778EEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379640   (839075) от 29.04.2020
-
-Шаблоны - NNM-Club - CD шаблоны от Snake1965 №2 - 1379640 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839075.jpg" />
-</div>
-
-
-###  Подробнее
-
-На CD можно наносить свои изображения, тексты и далее по списку. CD можно использовать как в боксе, так и отдельно.Формат: PSDРазрешение файлов: 2800x2800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127F5B777F219C4EDBB3D4214A8B292DEE686482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379654   (838927) от 29.04.2020
-
-Кисти - Creative Market - 150 Weather Photoshop Brushes - 3092149 [ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838927.jpg" />
-</div>
-
-
-###  Подробнее
-
-150 Weather Brushes - это коллекция из 150 кистей фотошопа. Дайте вашей работе уникальный красивый вид. Кисти идеально подходят для украшения и дополнения фотографий и произведений искусства! Эти кисти имеют высокое разрешение и поэтому подходят как для веб, так и для печатных проектов.Формат: ABRРазрешение файлов: 2500x2500-5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C425A923A13854A7EF8F9EC95E63D61C50C3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501051   (837858) от 08.10.2021
-
-3D модели - TurboSquid - Peugeot 508 PSE 2021 - 1683110 [Scanline|*.max, 3DS, C4D, FBX, LWO, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837858.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки PeugeotФормат: Scanline|*.max, 3DS, C4D, FBX, LWO, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44D373A6B16E3FF1E87DC572052395DA1556F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501054   (837767) от 08.10.2021
-
-3D модели - CGTrader - Hyundai Kona 2018 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837767.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиль марки Hyundai.Формат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D123B3D2EC11B1E77F81AC6130E592491CEE09C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772904   (836719) от 02.04.2014
-
-Векторный клипарт - Милые зверушки 2 / Cute animals 2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисованные зверушки
- :question: кого-то мне этот постер напоминает   :wink:Формат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6321C3A105E7D4CE1DCB247165E3999E03FE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773047   (836197) от 02.04.2014
-
-Шаблоны - Коллаж из фото / Collaga photo-frame template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблоны для создания коллажей из ваших фото и картинокФормат: PSDРазрешение файлов: 3000x2500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C92044BE16BFF1EEC9CEFEE90B44D6C47590B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501264   (836011) от 09.10.2021
-
-Экшены - GraphicRiver - Pen Watercolor Photoshop Action - 32930735 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pen Watercolor - профессиональное действие фотошоп, два в одном – рисунок пером и акварель. Дополнительные трансформаторы придадут вашей работе больше игривости и плавного артистизма. Действие лучше всего работает с архитектурой и городскими пейзажами. Дополнительные предустановки представлены готовыми к использованию комбинациями слоев и еще больше упрощают ваш (   Читать дальше...   )Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1992E53310068A8812B2AC5447389237CF2E8CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380032   (835550) от 01.05.2020
-
-Кисти - Gumroad - Terrain Brush Pack for Zbrush - 100 Brushes [TIF, ZBP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обширный набор кистей для создания ландшафта в Zbrush и других программ для лепки.Формат: TIF, ZBPРазрешение файлов: 1024x1024-4096x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E894CD97AC480D34959FC1A108FDEFB7718B3A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027776   (834968) от 13.03.2017
-
-Шрифты - Astakhov Morse code Cyr-Eng / Азбука Морзе [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифты в стиле "Азбука Морзе" (Morse code, морзянка) подходит для занимающихся в радиошколах и радиокружках.
-Количество / Штук: 4
-Разработчик: D. Astakhov
-Поддержка кириллицы: Есть (Русская)Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303368C8CBA1A14FBEA3EAD0ABFB594A6C01B779
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Magic DVD Copier 9.0.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708685.jpg" />
+  <img src="Z:/picture/008/save_picture_708685.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Icecream Image Resizer 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708684.jpg" />
+  <img src="Z:/picture/008/save_picture_708684.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ oCam 395.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708683.jpg" />
+  <img src="Z:/picture/008/save_picture_708683.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Battery Health 2 v1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708682.jpg" />
+  <img src="Z:/picture/008/save_picture_708682.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708681.jpg" />
+  <img src="Z:/picture/008/save_picture_708681.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Tipard Video Downloader 5.0.28 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708680.jpg" />
+  <img src="Z:/picture/008/save_picture_708680.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Insofta Cover Commander 5.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708678.jpg" />
+  <img src="Z:/picture/008/save_picture_708678.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708676.jpg" />
+  <img src="Z:/picture/008/save_picture_708676.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708671.jpg" />
+  <img src="Z:/picture/008/save_picture_708671.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708646.jpg" />
+  <img src="Z:/picture/008/save_picture_708646.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708638.jpg" />
+  <img src="Z:/picture/008/save_picture_708638.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708629.jpg" />
+  <img src="Z:/picture/008/save_picture_708629.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ One Chat - All in one Messenger 4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708620.jpg" />
+  <img src="Z:/picture/008/save_picture_708620.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Fate/Zero / Судьба: Начало [2011, TV, 25 ep] BDRip 1080p Rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708610.jpg" />
+  <img src="Z:/picture/008/save_picture_708610.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Insofta 3D Text Commander 4.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708584.jpg" />
+  <img src="Z:/picture/008/save_picture_708584.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Calibre 2.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708583.jpg" />
+  <img src="Z:/picture/008/save_picture_708583.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sorcim Technologies Clone Files Checker 5.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708577.jpg" />
+  <img src="Z:/picture/008/save_picture_708577.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6718.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708559.jpg" />
+  <img src="Z:/picture/008/save_picture_708559.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708553.jpg" />
+  <img src="Z:/picture/008/save_picture_708553.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ ZBrush 3.1 [ENG](2008)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708491.jpg" />
+  <img src="Z:/picture/008/save_picture_708491.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Movavi Video Converter 22.3.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708488.jpg" />
+  <img src="Z:/picture/008/save_picture_708488.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708475.jpg" />
+  <img src="Z:/picture/008/save_picture_708475.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708432.jpg" />
+  <img src="Z:/picture/008/save_picture_708432.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Icecream PDF Converter PRO 2.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708429.jpg" />
+  <img src="Z:/picture/008/save_picture_708429.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708411.jpg" />
+  <img src="Z:/picture/008/save_picture_708411.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Alcohol 52% 2.0.3.9902 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708352.jpg" />
+  <img src="Z:/picture/008/save_picture_708352.jpg" />
 </div>
 
 

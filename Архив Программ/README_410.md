@@ -6,7 +6,7 @@ KMSAuto Lite 1.3.1 DC 11.03.2017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834511.jpg" />
+  <img src="Z:/picture/008/save_picture_834511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BrowsingHistoryView 1.86 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834370.jpg" />
+  <img src="Z:/picture/008/save_picture_834370.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PicPick 4.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834368.jpg" />
+  <img src="Z:/picture/008/save_picture_834368.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slimjet 9.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834359.jpg" />
+  <img src="Z:/picture/008/save_picture_834359.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.66.7716 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834325.jpg" />
+  <img src="Z:/picture/008/save_picture_834325.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wolfram Mathematica 12.1.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834324.jpg" />
+  <img src="Z:/picture/008/save_picture_834324.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Office 2013-2019 C2R Install + Lite 7.0.5 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834321.jpg" />
+  <img src="Z:/picture/008/save_picture_834321.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SketchUp Pro 2020 20.1.229 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834320.jpg" />
+  <img src="Z:/picture/008/save_picture_834320.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ StartIsBack++ 2.9.1 StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834315.jpg" />
+  <img src="Z:/picture/008/save_picture_834315.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Avant Browser Ultimate 2016 build 5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834272.jpg" />
+  <img src="Z:/picture/008/save_picture_834272.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PrivaZer 2.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834262.jpg" />
+  <img src="Z:/picture/008/save_picture_834262.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft OneDrive 17.3.6381.0405 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834251.jpg" />
+  <img src="Z:/picture/008/save_picture_834251.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Telegram Desktop 0.9.40 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834248.jpg" />
+  <img src="Z:/picture/008/save_picture_834248.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834149.jpg" />
+  <img src="Z:/picture/008/save_picture_834149.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Pepakura Designer 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834090.jpg" />
+  <img src="Z:/picture/008/save_picture_834090.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834086.jpg" />
+  <img src="Z:/picture/008/save_picture_834086.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Chief Architect Premier X8 18.1.1.4 [En] Portable (X64) by Duero
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834072.jpg" />
+  <img src="Z:/picture/008/save_picture_834072.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Chief Architect Premier X8 18.1.1.4 [En] (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834064.jpg" />
+  <img src="Z:/picture/008/save_picture_834064.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Your Universal MultiBoot Installer 2.0.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834011.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mail.Ru Облако 15.06.0081 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834009.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Error Lookup 2.1.1247 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834007.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Avast Free Antivirus 2016 11.2.2261 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834002.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Double Commander 0.4.5.2 beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833945.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kaspersky Virus Removal Tool 15.0.19.0 (07.04.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833927.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Foundry MODO 10.0v1 Build 109580 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833919.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Chromodo Browser 48.12.18.254 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833912.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 494608   (251263) от 11.05.2012
+
+Владимир Кучеренко | Серая эльфийка [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cюжет этой книги достаточно прост и помещается в одном предложении: драконы и гномы, светлые эльфы и дроу, люди и орки, полиция и мафия, ФСБ и ЦРУ, любовь и ненависть, добро и зло, реинкарнация и обмен телами, единороги и вертолёты, луки и автоматы, казачьи сабли и самурайские мечи, фаерболы и гранаты, бронежилеты и защитные купола, бедные и богатые, короли и матриархи, находки и потери, технический университет и Академия Магии, Королевская Библиотека и Интернет, дворцы и пещеры, Курская битва и Межрасовая война, французский язык и синдарин, младенцы и старики, смерть и воскрешение, телепатия и мобильная связь, а также слежки, погони, взрывы, невидимки, ниндзя, сироты, богиня возмездия, Врата между мирами, кланы, стриптиз, бриллианты, Новый год, вольная борьба и Олимпийские игры.2012Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20DA88427D59748EAC908E48184D535A29DC72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495170   (251213) от 11.05.2012
+
+Виктор Баженов и Олег Шелонин | Дитя Стужи [2011] [FB2][TXT]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251213.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-я книга из серии "Ангелы Миллениума"2011Формат: FB2,ТХТ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9A5EEF28D9E0AC8D8D6A4D3764289B6B8F5D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618389   (250015) от 11.03.2023
 
 Монтегю Родс Джеймс | Рассказы о привидениях (2023) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250015.jpg" />
+  <img src="Z:/picture/004/save_picture_250015.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249969.jpg" />
+  <img src="Z:/picture/004/save_picture_249969.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249693.jpg" />
+  <img src="Z:/picture/004/save_picture_249693.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249646.jpg" />
+  <img src="Z:/picture/004/save_picture_249646.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248864.jpg" />
+  <img src="Z:/picture/004/save_picture_248864.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248848.jpg" />
+  <img src="Z:/picture/004/save_picture_248848.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248301.jpg" />
+  <img src="Z:/picture/004/save_picture_248301.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248207.jpg" />
+  <img src="Z:/picture/004/save_picture_248207.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_247925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_247925.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247642.jpg" />
+  <img src="Z:/picture/004/save_picture_247642.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246552.jpg" />
+  <img src="Z:/picture/004/save_picture_246552.jpg" />
 </div>
 
 
@@ -309,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246542.jpg" />
+  <img src="Z:/picture/004/save_picture_246542.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245565.jpg" />
+  <img src="Z:/picture/004/save_picture_245565.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245526.jpg" />
+  <img src="Z:/picture/004/save_picture_245526.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244954.jpg" />
+  <img src="Z:/picture/004/save_picture_244954.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244857.jpg" />
+  <img src="Z:/picture/004/save_picture_244857.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244839.jpg" />
+  <img src="Z:/picture/004/save_picture_244839.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244469.jpg" />
+  <img src="Z:/picture/004/save_picture_244469.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244364.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244217.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243989.jpg" />
+  <img src="Z:/picture/004/save_picture_243989.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243798.jpg" />
+  <img src="Z:/picture/004/save_picture_243798.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243164.jpg" />
+  <img src="Z:/picture/004/save_picture_243164.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241008.jpg" />
+  <img src="Z:/picture/004/save_picture_241008.jpg" />
 </div>
 
 
@@ -638,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0352CE2C28996F9267633F71441E5BF3C0C37DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570320   (240677) от 18.08.2022
-
-Дин Кунц | Холодный огонь (2022) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их свел случай, странное происшествие, которое могло стать трагедией, но, к счастью, все завершилось благополучно.
-Холли Торн, талантливый журналист, становится свидетельницей того, как неизвестный мужчина, появившийся словно бы из ниоткуда, выхватывает из-под колес машины школьника-подростка – в последний момент, когда гибель мальчика была уже, кажется, неминуема. (   Читать дальше...   )Жанр: МистикаПеревод: Илона РусаковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B0AA534C75A574446C3BAA0D7A7C576D991358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546150   (240055) от 22.04.2022
-
-София Эззиати | Дневник революции. Пятикнижие (2022) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастический роман Софии Эззиати «Дневник революции» состоит из пяти частей, первые три из которых вышли в 2017 году, а продолжение – в 2021-м. И вот теперь роман увидел свет целиком.
-Написан он в жанре антиутопии, в центре повествования – обаятельные герои: Аск и Сольвейг, из дневниковых записей которых читатель и узнает о происходящем. Борясь с диктатурой «Единое (   Читать дальше...   )Жанр: Космическая фантастика, Научная Фантастика, Социально-психологическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA92E1607B6564274166A76B0DCF3183058DF04
 ```
 
 https://mybot314.ru/tekegram_catalog/

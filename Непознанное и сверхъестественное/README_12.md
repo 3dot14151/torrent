@@ -1,3 +1,55 @@
+###  Публикация: 1027439   (698132) от 18.06.2016
+
+Экстрасенсы ведут расследование (2016.06.18) SATRip (сезон 7, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECBA63F7C29AC2FD756D1FB6E2BD8A7857850DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027343   (698128) от 18.06.2016
+
+Территория заблуждений с Игорем Прокопенко (2016.06.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592F2E74BD1A991E8972B47DF24F2DC2DFDD135B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027545   (696421) от 19.06.2016
 
 Экстрасенсы ведут расследование (2016.06.18) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 6)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696421.jpg" />
+  <img src="Z:/picture/008/save_picture_696421.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696231.jpg" />
+  <img src="Z:/picture/008/save_picture_696231.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695716.jpg" />
+  <img src="Z:/picture/008/save_picture_695716.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693241.jpg" />
+  <img src="Z:/picture/008/save_picture_693241.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693029.jpg" />
+  <img src="Z:/picture/008/save_picture_693029.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692988.jpg" />
+  <img src="Z:/picture/008/save_picture_692988.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691420.jpg" />
+  <img src="Z:/picture/008/save_picture_691420.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691292.jpg" />
+  <img src="Z:/picture/008/save_picture_691292.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690436.jpg" />
+  <img src="Z:/picture/008/save_picture_690436.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688188.jpg" />
+  <img src="Z:/picture/008/save_picture_688188.jpg" />
 </div>
 
 
@@ -284,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685995.jpg" />
+  <img src="Z:/picture/008/save_picture_685995.jpg" />
 </div>
 
 
@@ -315,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684416.jpg" />
+  <img src="Z:/picture/008/save_picture_684416.jpg" />
 </div>
 
 
@@ -341,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684295.jpg" />
+  <img src="Z:/picture/008/save_picture_684295.jpg" />
 </div>
 
 
@@ -367,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684293.jpg" />
+  <img src="Z:/picture/008/save_picture_684293.jpg" />
 </div>
 
 
@@ -393,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683452.jpg" />
+  <img src="Z:/picture/008/save_picture_683452.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683360.jpg" />
+  <img src="Z:/picture/008/save_picture_683360.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682908.jpg" />
+  <img src="Z:/picture/008/save_picture_682908.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682816.jpg" />
+  <img src="Z:/picture/008/save_picture_682816.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682202.jpg" />
+  <img src="Z:/picture/008/save_picture_682202.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679241.jpg" />
+  <img src="Z:/picture/008/save_picture_679241.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679126.jpg" />
+  <img src="Z:/picture/008/save_picture_679126.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679123.jpg" />
+  <img src="Z:/picture/008/save_picture_679123.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678811.jpg" />
+  <img src="Z:/picture/008/save_picture_678811.jpg" />
 </div>
 
 
@@ -635,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676998.jpg" />
+  <img src="Z:/picture/008/save_picture_676998.jpg" />
 </div>
 
 
@@ -647,58 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8EF42B4F318943DBCCA2422380CE4932C885BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136536   (673128) от 23.05.2017
-
-Раскрывая мистические тайны. Сделка с дьяволом (2017) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Множество людей мечтает о богатстве, славе, власти, удовольствиях, и готовы отдать за возможность получить это все что угодно. Немало найдется таких, которые, чтобы достичь желаемого, были бы готовы продать душу, заключив сделку с дьяволом. Но возможно ли это?Эзотерики утверждают, что история знает довольно много известных людей, продавших душу дьяволу в обмен на (   Читать дальше...   )Производство: Москва МедиаЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:4:
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185960AE36579863E3E91D4974464D325E9CAC87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031102   (670253) от 02.07.2016
-
-Экстрасенсы ведут расследование (2016.07.02) DVB [H.264] (сезон 7, выпуск 8)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A0FC3E718991FAF959CEC597D92AB20A7674B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

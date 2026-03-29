@@ -1,3 +1,29 @@
+###  Публикация: 1038796   (579303) от 12.08.2016
+
+Руководство по выживанию от Купера Баррэта / Cooper Barrett's Guide to Surviving Life (2016) WEB-DLRip [H.264] (сезон 1, серии 1-13 из 13) BaibaKo [MP4|720x400]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодежная комедия о компании молодых парней, которые решают поселиться в одной квартире, делать только то, что хочется, и ни от кого не зависеть. Правда, не все идет гладко: с завидной частотой друзья попадают в нелепые и даже опасные ситуации, но благодаря везению и взаимовыручке всегда каким-то образом из них выпутываются.Производство: СШАЖанр: комедияРежиссер: Джеймс ГриффитсАктеры: Линдон Смит, Джек Катмор-Скотт, Миган Рат, Чарли Сэкстон, Джеймс Эрл, Джастин Барта, Лиза Лапира и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~ 00:22:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFB493CD49E005E2B33A2C5928E74A5EB98E320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042364   (579190) от 12.08.2016
 
 Звездный путь: Дальний космос 9  / Star Trek: Deep Space Nine (1993) DVDRip [H.264] (сезон 1, серии 1-19 из 19) [MP4|768x576]
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579190.jpg" />
+  <img src="Z:/picture/008/save_picture_579190.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ AnyMemo Pro 10.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579002.jpg" />
+  <img src="Z:/picture/008/save_picture_579002.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ GEAK OS - launcher, dial, message 4.0.15190 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578780.jpg" />
+  <img src="Z:/picture/008/save_picture_578780.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578684.jpg" />
+  <img src="Z:/picture/008/save_picture_578684.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578024.jpg" />
+  <img src="Z:/picture/008/save_picture_578024.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578023.jpg" />
+  <img src="Z:/picture/008/save_picture_578023.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ MiXplorer версия: 5.3.0 / 5.3.8 beta [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577067.jpg" />
+  <img src="Z:/picture/008/save_picture_577067.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Slender Man Origins Трилогия [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576909.jpg" />
+  <img src="Z:/picture/008/save_picture_576909.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ GEAK OS 4.0.15195  - launcher, ТЕМЫ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575367.jpg" />
+  <img src="Z:/picture/008/save_picture_575367.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575131.jpg" />
+  <img src="Z:/picture/008/save_picture_575131.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575116.jpg" />
+  <img src="Z:/picture/008/save_picture_575116.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ GUNSHIP BATTLE: Helicopter 3D 1.7.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575041.jpg" />
+  <img src="Z:/picture/008/save_picture_575041.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ Boat Browser HD Pro 2.2 [Ru] - Браузер для планшета
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575027.jpg" />
+  <img src="Z:/picture/008/save_picture_575027.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574103.jpg" />
+  <img src="Z:/picture/008/save_picture_574103.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Warhammer 40,000: Space Wolf v1.1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573153.jpg" />
+  <img src="Z:/picture/008/save_picture_573153.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572702.jpg" />
+  <img src="Z:/picture/005/save_picture_572702.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572580.jpg" />
+  <img src="Z:/picture/005/save_picture_572580.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572542.jpg" />
+  <img src="Z:/picture/005/save_picture_572542.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572395.jpg" />
+  <img src="Z:/picture/008/save_picture_572395.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572341.jpg" />
+  <img src="Z:/picture/005/save_picture_572341.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572144.jpg" />
+  <img src="Z:/picture/008/save_picture_572144.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Simply HDR v3.82 [En] - создания HDR эффекта на фотогра�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571891.jpg" />
+  <img src="Z:/picture/008/save_picture_571891.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Kiss: Жизнь в Нюрбургринге / Kiss: Live in Nurburgring (2010) 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571692.jpg" />
+  <img src="Z:/picture/008/save_picture_571692.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ ScanWritr PRO 2.5.78 [Ru] - Сканер документов и PDF-конве�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571344.jpg" />
+  <img src="Z:/picture/008/save_picture_571344.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Kate Mobile Pro 40.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570199.jpg" />
+  <img src="Z:/picture/008/save_picture_570199.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Kate Mobile Pro 40.6 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9DF4EC38E89978C4767C1B42800CFD30DF0BCD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778078   (569988) от 17.08.2016
-
-Link2SD Plus v3.4.2 - перенос установленных приложений на карту памяти (16.04.2014) <Ru/Multi>
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа позволяет переносить на SD карту только те приложения, которые пользователь выберет. Т.е. в отличие от скрипта app2sd не переностит всю папку /data/app, а только выбранные apk. Управление приложениями осуществляется в самой программе. Для переноса apk на SD карту памяти - выделяем его и выбираем пункт Create link. Также есть возможность выбирать переносить (   Читать дальше...   )Разработчик: Bulent AkpinarЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71419BA898F9A17037439846FF68A858E2B21ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

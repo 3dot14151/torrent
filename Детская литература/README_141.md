@@ -1,3 +1,30 @@
+###  Публикация: 1257657   (343449) от 27.10.2018
+
+Александр Круглов | Картины русской жизни (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести и рассказы русских писателей.
+Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4A60FF53F399B6251EA9DF7186B4722CFC7C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257655   (343444) от 27.10.2018
 
 А. Сегал (пер.) | Маленькая проказница (1912) [PDF]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343444.jpg" />
+  <img src="Z:/picture/008/save_picture_343444.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343441.jpg" />
+  <img src="Z:/picture/008/save_picture_343441.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343381.jpg" />
+  <img src="Z:/picture/008/save_picture_343381.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343071.jpg" />
+  <img src="Z:/picture/008/save_picture_343071.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340721.jpg" />
+  <img src="Z:/picture/008/save_picture_340721.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340451.jpg" />
+  <img src="Z:/picture/008/save_picture_340451.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340304.jpg" />
+  <img src="Z:/picture/008/save_picture_340304.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338826.jpg" />
+  <img src="Z:/picture/008/save_picture_338826.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338807.jpg" />
+  <img src="Z:/picture/008/save_picture_338807.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338753.jpg" />
+  <img src="Z:/picture/008/save_picture_338753.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338751.jpg" />
+  <img src="Z:/picture/008/save_picture_338751.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338694.jpg" />
+  <img src="Z:/picture/008/save_picture_338694.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338692.jpg" />
+  <img src="Z:/picture/008/save_picture_338692.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338670.jpg" />
+  <img src="Z:/picture/008/save_picture_338670.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338299.jpg" />
+  <img src="Z:/picture/008/save_picture_338299.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337912.jpg" />
+  <img src="Z:/picture/008/save_picture_337912.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335930.jpg" />
+  <img src="Z:/picture/008/save_picture_335930.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335929.jpg" />
+  <img src="Z:/picture/008/save_picture_335929.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335841.jpg" />
+  <img src="Z:/picture/008/save_picture_335841.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335683.jpg" />
+  <img src="Z:/picture/008/save_picture_335683.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334736.jpg" />
+  <img src="Z:/picture/008/save_picture_334736.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334708.jpg" />
+  <img src="Z:/picture/008/save_picture_334708.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334694.jpg" />
+  <img src="Z:/picture/008/save_picture_334694.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334691.jpg" />
+  <img src="Z:/picture/008/save_picture_334691.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334685.jpg" />
+  <img src="Z:/picture/008/save_picture_334685.jpg" />
 </div>
 
 
@@ -658,35 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:619548B62BD208EE5CA67D9803B9282A7326415D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420346   (333998) от 31.10.2020
-
-Валентина Дмитриева (сост.) | Волк и семеро козлят. Три поросёнка (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем маленьких читателей в волшебный мир сказок. Слушая и читая любимые сказки, дети сопереживают героям, учатся понимать, что такое добро и зло, знакомятся с окружающим миром.
-
-А интересные задания, собранные в книге, развивают мышление, внимание и речь, помогают научиться рисовать и подготовить руку к письму.
-(   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F777C5929753A7B94BADA6AA9601E49F2F7411
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1623099   (243857) от 31.03.2023
+
+Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Life
+02. I M Alone Wolf
+03. Hear My Voice
+04. Control(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714D5BA0004AA2AFB2338435C37567727603A29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567607   (243851) от 03.08.2022
+
+VA - Summer Light Deep (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faraon - Dreams You Don't Forget (Original Mix) (7:01)
+02. Nefretle - Infinity (Original Mix) (2:28)
+03. Nando Fortunato - New Love Life (Original Mix) (4:16)
+04. Marc Philippe, Pete Bellis & Tommy - Wanna Dance In The Rain (Original Mix) (3:41)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AF9B68B872086D934FF274209A91E0F3F0ED78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623157   (243842) от 31.03.2023
 
 Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
@@ -6,7 +64,7 @@ Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243842.jpg" />
+  <img src="Z:/picture/004/save_picture_243842.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Compilation  part 16 Electronic (2023) [MP3|224-320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243796.jpg" />
+  <img src="Z:/picture/004/save_picture_243796.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Digital Confession (2021) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243677.jpg" />
+  <img src="Z:/picture/004/save_picture_243677.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - R&B Nation (2021) [MP3|320 Kbps] <R%B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243597.jpg" />
+  <img src="Z:/picture/004/save_picture_243597.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Sunshine Live Vol.59 (2016) [MP3|320 Kbps] <Future House, Trance, Nu Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243571.jpg" />
+  <img src="Z:/picture/004/save_picture_243571.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 011 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243448.jpg" />
+  <img src="Z:/picture/004/save_picture_243448.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Sunshine Universe Harmonies (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243438.jpg" />
+  <img src="Z:/picture/004/save_picture_243438.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Hayit Murat - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243431.jpg" />
+  <img src="Z:/picture/004/save_picture_243431.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243225.jpg" />
+  <img src="Z:/picture/004/save_picture_243225.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243200.jpg" />
+  <img src="Z:/picture/004/save_picture_243200.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Best Chillout Vol.21 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243136.jpg" />
+  <img src="Z:/picture/004/save_picture_243136.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Clubbing Techno: Electro Sound Pack #260 (2021) [MP3|320 Kbps] <Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243099.jpg" />
+  <img src="Z:/picture/004/save_picture_243099.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Electro House: Sound Pack #259 (2021) [MP3|320 Kbps] <Electro, Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243075.jpg" />
+  <img src="Z:/picture/004/save_picture_243075.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Consciousness Melodies Phonetics (2016) [MP3|320 Kbps] <Trance, Harmonic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243015.jpg" />
+  <img src="Z:/picture/005/save_picture_243015.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Record Super Chart 625 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242844.jpg" />
+  <img src="Z:/picture/005/save_picture_242844.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Beatport Techno Electronic: Sound pack #263 (2021) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242551.jpg" />
+  <img src="Z:/picture/005/save_picture_242551.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Beatport Electro House: Sound Pack #262 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242476.jpg" />
+  <img src="Z:/picture/004/save_picture_242476.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Hypnotic Sunset In Jungle (2023) [MP3|320 Kbps] <Techno, Minimal, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242302.jpg" />
+  <img src="Z:/picture/004/save_picture_242302.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Uplifting Trance: Spring Episode (2023) [MP3|320 Kbps] <Uplifting, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242234.jpg" />
+  <img src="Z:/picture/004/save_picture_242234.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - House Complex Keeped (2023) [MP3|320 Kbps] <Deep Groove, Electronica, Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241869.jpg" />
+  <img src="Z:/picture/005/save_picture_241869.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Beatport Disco House: Sound Pack #267 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241767.jpg" />
+  <img src="Z:/picture/004/save_picture_241767.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Exclusive Nightclub Vibes Party (2021) [MP3|320 Kbps] <Dance, Clud, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241760.jpg" />
+  <img src="Z:/picture/004/save_picture_241760.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Beatport Electro House: Sound Pack #269 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241665.jpg" />
+  <img src="Z:/picture/004/save_picture_241665.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - E-Dance: Synergetic Nightclub (2021) [MP3|320 Kbps] <EDM, Club, Dance, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241610.jpg" />
+  <img src="Z:/picture/004/save_picture_241610.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - E-Dance: Synergetic Nightclub (2021) [MP3|320 Kbps] <EDM, Club, Dance, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D838431A2F8B62098E577B09BB4A5BE1BF3340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378282   (241542) от 25.04.2020
-
-VA - Drum Night DJ Set (2020) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B-Plexx - Remedy
-002. Mako - Offline
-003. Trn18 - Ufo (Original Mix)
-004. Scocho - Lost Forever(   Читать дальше...   )Жанр: Drum And Bass, Electro BassПродолжительность: 11:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FA192FDC62478C9BEA0D0A3A29E867416C38B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625186   (241418) от 09.04.2023
-
-VA - Record Super Chart 08.04.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - Lay Low (2:33)
-02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
-03. Miley Cyrus - Flowers (3:20)
-04. The Future X - This Kind Of Love (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C190B90217B5EBBB504E24D877FD33AF16D332
 ```
 
 https://mybot314.ru/tekegram_catalog/

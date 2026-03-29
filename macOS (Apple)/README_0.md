@@ -6,7 +6,7 @@ Mac Box Set Mac OS X 10.6, iLife 09, iWork 09
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_346905.jpg" />
+  <img src="Z:/picture/005/save_picture_346905.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ macOS Mojave 10.14.1 (18B75) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332727.jpg" />
+  <img src="Z:/picture/008/save_picture_332727.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ macOS High Sierra 10.13.1 (17B48) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290630.jpg" />
+  <img src="Z:/picture/008/save_picture_290630.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ macOS Sierra 10.12.1 (16В2659) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275486.jpg" />
+  <img src="Z:/picture/008/save_picture_275486.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ macOS Sierra 10.12.2 (16C67) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275357.jpg" />
+  <img src="Z:/picture/008/save_picture_275357.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ macOS High Sierra 10.13.2 (17C88) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266535.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ macOS Mojave 10.14.2 (18C54) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264802.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ macOS Big Sur 11.0.1 (20B50) [Multi/Ru] (Installer)
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217207.jpg" />
+  <img src="Z:/picture/005/save_picture_217207.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ macOS 13 Ventura 13.0 Beta (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209213.jpg" />
+  <img src="Z:/picture/005/save_picture_209213.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ macOS 13 Ventura 13.5.0 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208047.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ macOS 13 Ventura 13.4.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196687.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ macOS 14 Sonoma Public 1 Beta (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195136.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ macOS Big Sur 11.7.9 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195106.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ macOS 13 Ventura 13.5.2 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189590.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ macOS 13 Ventura 13.0.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177055.jpg" />
+  <img src="Z:/picture/005/save_picture_177055.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ macOS 14 Sonoma 14.014 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173139.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ macOS 13 Ventura 13.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162844.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ macOS 13 Ventura 13.6.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121185.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ macOS 12 Monterey 12.7.4 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63014.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ macOS 14 Sonoma 14.4.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61686.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ macOS 15 Sequoia 15.0 (24A335) ISO [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42175.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ macOS 16 Tahoe (25A354) ISO [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2388.jpg" />
 </div>
 
 

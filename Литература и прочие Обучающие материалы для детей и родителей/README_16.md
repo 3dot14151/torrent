@@ -1,3 +1,135 @@
+###  Публикация: 1444143   (1034945) от 31.01.2021
+
+Алена Бессонова | Ух, какие классные сказки! Сказочные истории [12 книг] (2015) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная российская писательница, сочинительница сказок.
+Алена Бессонова о себе:
+Меня зовут Алёна Бессонова. Всю сознательную жизнь работала в бизнесе. Была генеральным директором достаточно крупной фирмы в большом провинциальном городе. Когда родилась внучка, решила что это теперь самое главное. Сказки начала придумывать для неё. В 2012 году послала сборник сказок (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0ADDA2955ECEE0E9C1A88D354E07B8BF07CAB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444123   (1034940) от 31.01.2021
+
+Кеннет Грэм | Ветер в ивах (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Ветер в ивах» была написана шотландским писателем Кеннетом Грэмом в начале XX века и быстро стала известной. Спустя пятьдесят лет после первой публикации произведение, уже ставшее классикой мировой детской литературы, получило международную премию «Полка Льюиса Кэрролла» – она присуждалась книгам, достойным стоять рядом с «Алисой в Стране чудес». За прошедшее (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234CE8254106BCFCA4C635307F9641B18705E6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444127   (1034932) от 31.01.2021
+
+Эксмо | Приключения Синдбада-морехода (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синдбад-мореход, находчивый и отважный путешественник, пускается в увлекательные плаванья в поисках чудес и опасностей! В далёких странах он встретит великанов и неведомых зверей, пролетит на лапе огромной птицы Рока, найдёт несметные богатства и благодаря своей смекалке и храбрости избежит гибели. В эту книгу вошли все семь историй о невероятных приключениях Синдбада, (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB91D9758F0EA53DF087013FE428BCC87E35BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444125   (1034926) от 31.01.2021
+
+Рудольф Распе | Приключения барона Мюнхгаузена (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто не слышал про знаменитого барона Мюнхгаузена и его фантастические приключения! Чего только не случалось с этим храбрецом и выдумщиком! Довелось ему пролететь на пушечном ядре, с одного раза подстрелить семь куропаток, выбраться из брюха огромной рыбы и даже побывать на Луне! Правда это или ложь – решать читателю. Но сам барон Мюнхгаузен действительно существовал. (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E01C5E5402140B629CBBF6414A9322A2E31AF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444121   (1034920) от 31.01.2021
+
+Эрин Груэлл | Писатели свободы. Как 150 «трудных» подростков и учительница бросили вызов стереотипам (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой учительнице Эрин Груэлл достался трудный класс, на который остальные давно махнули рукой. Проявляя любовь и поддержку, она помогла подросткам рассказать свои истории и побороться за новое будущее.Жанр: Педагогика, Воспитание детей, Истории из жизниПеревод: Ульяна СапцинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F1C37819474F6E2519267B01E34C0A427BA483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444214   (1034851) от 31.01.2021
 
 Н.С. Пурышева, Е.Э. Ратбиль | Физика. Новый полный справочник для подготовки к ЕГЭ (2021) [PDF]
@@ -6,7 +138,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034851.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034848.jpg" />
 </div>
 
 
@@ -62,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034808.jpg" />
 </div>
 
 
@@ -88,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034777.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034765.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034696.jpg" />
 </div>
 
 
@@ -168,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034663.jpg" />
 </div>
 
 
@@ -195,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034660.jpg" />
 </div>
 
 
@@ -223,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034648.jpg" />
 </div>
 
 
@@ -250,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034637.jpg" />
 </div>
 
 
@@ -277,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034612.jpg" />
 </div>
 
 
@@ -304,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034590.jpg" />
 </div>
 
 
@@ -331,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034576.jpg" />
 </div>
 
 
@@ -357,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034555.jpg" />
 </div>
 
 
@@ -383,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034535.jpg" />
 </div>
 
 
@@ -410,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034515.jpg" />
 </div>
 
 
@@ -436,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034510.jpg" />
 </div>
 
 
@@ -464,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034462.jpg" />
 </div>
 
 
@@ -490,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034447.jpg" />
 </div>
 
 
@@ -518,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034443.jpg" />
 </div>
 
 
@@ -544,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034429.jpg" />
 </div>
 
 
@@ -555,138 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA9B8DAE3A0B90BFB039BF94EED492F6C2C6DDF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444617   (1034415) от 02.02.2021
-
-Книжная серия | Дневник слабака [16 книг] (2016-2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги о школьной жизни из серии «Дневник слабака» американского писателя и мультипликатора Джеффа Кинни стали мировыми бестселлерами. На сегодняшний день они переведены более чем на 50 языков, а по всему свету продано уже более 200 миллионов их копий.
-Ученик средней школы Грегори ведет дневник, где записывает грустные и смешные истории, которые происходят с ним каждый (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4074399001C52A727466C9377D30112554D9A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690115   (1034326) от 02.02.2021
-
-В.П. Пенова | Рисуем пейзажи (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это прекрасное практическое руководство научит вас рисовать пейзажи в разных живописных техниках. От наброска до законченного произведения - все этапы создания картины подробно описаны и проиллюстрированы. От вас требуется лишь немного упорства, чтобы изобразить опушку леса, поле, цветущий луг, городской дворик, высокое небо с облаками, берег реки и многое другое, (   Читать дальше...   )Жанр: Изобразительное исскуствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE0D4A0317B320FF9CBA08EFCF74C611F9521A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394301   (1034311) от 02.02.2021
-
-М.Г. Дрезнина | Учимся рисовать. Обучение композиции (2003) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рабочая тетрадь знакомит детей с понятием композиции. Автор рассказывает об основных композиционных орентирах на листе бумаги: вертикали, горизонтали, центре, углах, диагонали, равновесии, расположении фигур по всему листу бумаги.
-Творческие задания учат детей различным построениям фигур, использованию цветов и предметов, обучают располагать предметы на листе прямоугольной (   Читать дальше...   )Жанр: Рабочая тетрадьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05E837899FA14D9CD1CE6C8C48BC2BEF64D6C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534649   (1034309) от 02.02.2021
-
-В.А. Грек | Рисую штрихом (1992) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034309.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается оригинальная, доступная ребенку методика обучения рисованию штрихом. Для детей старших групп детских садов и учеников начальных классов.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73088C06A78265970A170D24D2BCFD6405AD7BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288214   (1034273) от 02.02.2021
-
-Сборник | Рабочие тетради дошкольника. Солнечные ступеньки. Часть 6 (2007-2009) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается серия папок для дошкольного образования "Солнечные ступеньки". "Солнечные ступеньки" предназначены для всестороннего развития способностей ребенка. Все задания соответствуют задачам умственного развития и воспитания, определенным "Типовой программой обучения и воспитания в детском саду". Тысячи детишек, обучаясь (   Читать дальше...   )Жанр: Рабочие тетради дошкольникаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BB7E5A65EEDFB0EBF003257DB92AE39BCF4621
 ```
 
 https://mybot314.ru/tekegram_catalog/

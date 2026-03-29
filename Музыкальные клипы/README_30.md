@@ -1,3 +1,81 @@
+###  Публикация: 584646   (307911) от 04.12.2012
+
+Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний клипЖанр: RapПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584559   (307902) от 04.12.2012
+
+Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584650   (307582) от 04.12.2012
+
+The Best of...(vol.3) (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка, Pop, Easy Listening,Prog rock, Folk rock, Big beat,DiscoПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585195   (305745) от 05.12.2012
 
 Slim - Шлягер (2012) WEBRip
@@ -6,7 +84,7 @@ Slim - Шлягер (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305745.jpg" />
+  <img src="Z:/picture/008/save_picture_305745.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300795.jpg" />
+  <img src="Z:/picture/008/save_picture_300795.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296941.jpg" />
+  <img src="Z:/picture/008/save_picture_296941.jpg" />
 </div>
 
 
@@ -90,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296750.jpg" />
+  <img src="Z:/picture/008/save_picture_296750.jpg" />
 </div>
 
 
@@ -119,7 +197,7 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296560.jpg" />
+  <img src="Z:/picture/008/save_picture_296560.jpg" />
 </div>
 
 
@@ -148,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295119.jpg" />
+  <img src="Z:/picture/008/save_picture_295119.jpg" />
 </div>
 
 
@@ -177,7 +255,7 @@ Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294715.jpg" />
+  <img src="Z:/picture/008/save_picture_294715.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ VA - Зимний марафон № 209: Дискотека с доставко
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294585.jpg" />
+  <img src="Z:/picture/008/save_picture_294585.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294480.jpg" />
+  <img src="Z:/picture/008/save_picture_294480.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293122.jpg" />
+  <img src="Z:/picture/008/save_picture_293122.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292872.jpg" />
+  <img src="Z:/picture/008/save_picture_292872.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292758.jpg" />
+  <img src="Z:/picture/008/save_picture_292758.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Ageless rock (2015) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292639.jpg" />
+  <img src="Z:/picture/008/save_picture_292639.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291230.jpg" />
+  <img src="Z:/picture/008/save_picture_291230.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285646.jpg" />
+  <img src="Z:/picture/008/save_picture_285646.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285488.jpg" />
+  <img src="Z:/picture/008/save_picture_285488.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ VA - Зимний марафон № 211: Коктейль Хитовых Нов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285130.jpg" />
+  <img src="Z:/picture/008/save_picture_285130.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282289.jpg" />
+  <img src="Z:/picture/008/save_picture_282289.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282171.jpg" />
+  <img src="Z:/picture/008/save_picture_282171.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282030.jpg" />
+  <img src="Z:/picture/008/save_picture_282030.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278470.jpg" />
+  <img src="Z:/picture/008/save_picture_278470.jpg" />
 </div>
 
 
@@ -600,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278171.jpg" />
+  <img src="Z:/picture/008/save_picture_278171.jpg" />
 </div>
 
 
@@ -630,7 +708,7 @@ Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277070.jpg" />
+  <img src="Z:/picture/008/save_picture_277070.jpg" />
 </div>
 
 
@@ -644,90 +722,6 @@ Thunder - британская команда, играющая мелодичн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6F8544B5539FEDBBAF4F161CBBCB898819EB922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187879   (276877) от 30.11.2017
-
-Сборник клипов - Казахстанские клипы от ALEXnROCK (2017) WEBRip (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276877.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 1я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
-001 Кайрат Баекенов & Формат тобы - Махаббат
-002 Lashyn - Казагымнын арулары-ай
-003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопФормат: AVIПродолжительность: 03:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE8850CBD30062B5EF47F539EAD4F429CBE0496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082753   (275429) от 14.12.2016
-
-Сборник - This is a Beautiful World (2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё один отличный сборник клипов специально подобранные для отдыха и интима вдвоем, где присуствуют красивые лирические мелодии в современной электронной аранжировке. Эта музыка создает особую атмосферу интима и сближения....01. Enigma - Between Generations [04:34]
-02. Leo Rojas - Winnetou [04:42]
-03. Stive Morgan - Back In The Past [04:41]
-04. Flaer Smin–November 23 [03:47](   Читать дальше...   )Жанр: Ambient, Chillout, New Age, LoungeПродолжительность: 04:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3D02C966DB881B2CCB3D879883331098D5B0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273832   (272327) от 24.12.2010
-
-Вера Брежнева - Любовь спасет мир (Подарочное издание) (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272327.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD с нового Альбома Веры Брежневой "Любовь спасет мир (Подарочное издание)Актеры: Вера БрежневаПеревод: ОригинальныйПродолжительность: (00:03:28+00:03:57+00:04:04+00:03:32+00:03:52)=00:17:73
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

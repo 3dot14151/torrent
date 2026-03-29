@@ -1,3 +1,119 @@
+###  Публикация: 1728638   (108253) от 08.06.2024
+
+Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Build a Better Mousetrap [3:06]
+02. At the Darktown Strutter's Ball [2:27]
+03. When the Roses Bloom Again [2:56]
+04. Jersey Bounce [2:57](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878EDE4E8FCB3A6B7696927938B5DF67597D12B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728643   (108252) от 08.06.2024
+
+Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Good Man Is Hard to Find [2:56]
+02. Washington and Lee Swing [2:57]
+03. Dixie Flyer [2:52]
+04. Lazy Piano Man [2:43](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6707748F280C7D791BC6AD3F8E1F70A2AB8BBCC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729023   (108214) от 09.06.2024
+
+Алексей Кузнецов - В старом стиле (2022) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108214.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Случайная встреча / Sluchainaya Vstrecha 3:21
+02. Garota de Ipanema 6:34
+03. Верные друзья / Vernye Druzja 7:20(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B80A218CBEFAA61F219443F5E3409EFC263BCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728919   (108211) от 09.06.2024
+
+Kool&Klean - Volume XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know That Look (3:51)
+02. Ride Like the Wind (3:37)
+03. Spellbound (3:59)
+04. One of a Kind (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E4CC3E758FFC620D94C62F287588D9E7FF0353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728886   (108169) от 09.06.2024
 
 Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108169.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lee Ritenour - Rit/2 (1982) 2005, Collectables [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108162.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dizzy Gillespie - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108159.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sonny Stitt - 1951 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108150.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Etta Jones - 1944 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108147.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Jazzy Covers 80's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108046.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108045.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108034.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108031.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108024.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108013.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108012.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108006.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107980.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Tom Harrell, Kenny Werner, Andre Ceccarelli, Paul Imm - Sail Away (1991) Musidis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107977.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Vince Guaraldi - A Flower Is A Lovesome Thing (1957) Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107976.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107962.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107908.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107893.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107892.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107888.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107884.jpg" />
 </div>
 
 
@@ -629,120 +745,6 @@ Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9541B2FB855B865DC60A9BE1D9B11C260ACC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730168   (107883) от 15.06.2024
-
-Vince Guaraldi & Bola Sete - Vince & Bola (1963, 1966) 2000, Fantasy [FLAC|Lossless|tracks + .cue] <Latin Jazz, Piano Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casaba [7:56]
-02. Mambossa [8:40]
-03. Star Song [4:48]
-04. Moon Rays [7:03](   Читать дальше...   )Жанр: Latin Jazz, Piano Jazz, Guitar JazzПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3AE209E8808C71ED2616971E0BD5DAA207F667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730486   (107876) от 16.06.2024
-
-The Jive Aces - Keeping The Show On The Road (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесспорные короли джайва и свинга The Jive Aces вернулись со своим новым альбомом Keeping the Show on the Road, 14 треков которого охватывают захватывающие живые выступления и непоколебимую страсть к музыке. The Jive Aces очаровывал публику по всему миру на протяжении десятилетий – от восхищения судей конкурса Britain's Got Talent до аншлага на первом в истории the (   Читать дальше...   )01. Rockin' Is Our Bizness (2:36)
-02. Clementine (3:07)
-03. It Don't Mean A Thing (If It Ain't Got That Swing) (3:18)
-04. The Pink Panther Theme (3:04)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC08A87764250C6B90DA8511F4E69C5770051E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730719   (107838) от 17.06.2024
-
-VA - Norman Granz' Jam Session #4 (1953) 2004, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, Lady Be Good [19:51]
-02. Blues for the Count [15:39]Жанр: Bop, Mainstream JazzПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0835DE257B5F3B1F2B56108D8A33150B576F049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730905   (107804) от 18.06.2024
-
-Jimmie Noone - Apex Blues (1928 - 1930) 1994, Decca Jazz [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know That You Know [2:57]
-02. Sweet Sue (Just You) [3:11]
-03. Four or Five Times [3:13]
-04. Every Evening (I Miss You) [2:38](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CF224CDA86CFC33FFD9B9D89944BCCF61CBF33
 ```
 
 https://mybot314.ru/tekegram_catalog/

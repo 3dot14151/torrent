@@ -6,7 +6,7 @@ Ubuntu ServerPack 24.04 (август 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6032.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LinuxPHB 12.25.0002 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5404.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3381.jpg" />
 </div>
 
 

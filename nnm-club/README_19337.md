@@ -1,446 +1,22 @@
-###  Публикация: 1625825   (240700) от 12.04.2023
+###  Публикация: 1569128   (242078) от 11.08.2022
 
-VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Viva La Vida                                          [04:02]
-   02. Jay-Z - Numb / Encore                                            [03:25]
-   03. Gorillaz - Feel Good Inc                                         [03:42]
-   04. Green Day - Wake Me Up When September Ends                       [04:45](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C4595A5F51FC882575A82E63545E02F0DFF65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463160   (240699) от 18.04.2021
-
-Kansas City 5, 6 & 7 - 1938 - 1944 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at Life [3:05]
-02. Good Morning Blues [2:52]
-03. I Know That You Know [3:05]
-04. Love Me or Leave Me [2:44](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E92E9BF3073444E5706E09CDEDAB2270BEA8C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632239   (240698) от 09.05.2023
-
-Big Matt Wallace - Stereo Stereo Stereo (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changed the Locks (4:55)
-02. You're Gonna Need Me (2:52)
-03. When I'm Gone (2:34)
-04. Wicked as It Seems (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E7E23427E3E6AA97CEE94BA537642EA58E3C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626322   (240697) от 14.04.2023
-
-Кристоф Гальфар | Простая сложная Вселенная (2019) [MP3, Пожилой Ксеноморф]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что вы оказались далеко в космосе рядом с умирающей звездой. Или сжались до размеров атома и отправились в невероятное приключение в крошечном мире.
-Квантовая физика, черные дыры, теория струн, темная материя, параллельные вселенные – если мы хотим действительно понять эти явления, то нам приходится окунаться в мир чисел и жутких формул.
-Кристоф Гальфар (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 10:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196AB603D603976C94F2C33C3F0DA0C1F210EA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549092   (240696) от 06.05.2022
-
-Nest of Plagues - To Kill A God (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Message From Us
-2. Helion
-3. Unimprint
-4. Heredity(   Читать дальше...   )Жанр: Alternative, Metalcore, ElectronicПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E5AD50AE7C22FF4B7E7DA9AAC52527845514E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620384   (240695) от 20.03.2023
-
-Nuevo Orden - Rehenes del Tiempo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rehenes (05:17)
-02 - Cerbero (05:26)
-03 - Mar de Absolucion (05:20)
-04 - Heredero de la Desolacion (05:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CEF5E179B1C937A051FBA83E92994A7BA2B454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570665   (240694) от 18.08.2022
-
-Месть / Vengeance (2022) WEB-DLRip [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоведущий из Нью-Йорка по имени Бен (Новак) пытается раскрыть убийство своей девушки и отправляется на Юг, чтобы лично изучить обстоятельства ее смерти и разобраться в том, что произошло.Производство: США / Blumhouse Productions, Divide/ConquerЖанр: Триллер, комедия, детективРежиссер: Б.Дж. НовакАктеры: Изабелла Амара, Натаниэл Аугустсон, Грэйсон Берри, Эли Бикел, Дав Кэмерон, Мелисса Чэмберс, Шон Диллинхэм, Райан Хэммонд, Иван Эрнандес, Дэвид ХайтПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:46:38Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545509   (240693) от 19.04.2022
-
-Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CEFBFA8F664BA69BB89690A730DE711BF4B7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463374   (240692) от 18.04.2021
-
-Outline 3.2103.4 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outline для Maс это интуитивное приложение для заметок с удобной организацией рабочего пространства: блокноты, секции, группы секций и страницы помогут Вам содержать записи в порядке независимо от сложности их структуры.
-Outline для Маc идеален для студентов, преподавателей, врачей, юристов, руководителей и всех, чья повседневная жизнь включает ведение записей любого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.04.2021Разработчик: © GORILLIZED CORPORATIONПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CC95230A517C4BEE05DAE3C9B7B207E616D028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626040   (240691) от 12.04.2023
-
-PDF24 Creator 11.11.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240691.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
-Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F7F0E1B7DBF491F63A038B40350ADEE4F03729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632243   (240690) от 09.05.2023
-
-Chris Kramer feat Jens Filser - Roots Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Harp River (2:07)
-02. Blues As Blues Can Get (3:58)
-03. Now I Know (6:01)
-04. Got To Go Back Home (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D91E9602CF7A7C4EE97D9744BC08C179595A218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626373   (240689) от 14.04.2023
-
-Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notches
-02. The Heart That Never Waits
-03. Curtain Call
-04. Mind’s Eye(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270750B674A54D5FF5B5DCB6A80EE111C01EAF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548927   (240688) от 06.05.2022
-
-Black Mask - Queen of the Beasts (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March of the Queen
-02. Queen of the Beasts
-03. Spikes & Chains
-04. La Batalla(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4DA3F242F8C870DCE3975D015FF322A846C7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406774   (240687) от 05.09.2020
-
-Damn Fine Coffee - For Richmond or Poorer (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home of the Strange (04:44)
- 02. Point Click Aim (05:30)
- 03. Weight of the World (03:56)
- 04. If Only (05:18)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2834411BD0F11A60947A69F1EEFC3BEF40994A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545501   (240686) от 19.04.2022
-
-Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 October 2020 Update (под кодовым названием "20H2") является десятым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за май 2020 года и имеет номер сборки 10.0.19042.
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1645.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82ED0F07BF082CBF3366EFB47F389B140905A4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562753   (240685) от 18.08.2022
-
-Улисс: Тёмная Одиссея / Ulysses: A Dark Odyssey (2018) BDRemux [MPEG-2/1080p]  [MVO]
+Снайпер: Миссия Изгой / Sniper: Rogue Mission (2022) BDRip [H.264/1080p-LQ]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240685.jpg" />
+  <img src="Z:/picture/004/save_picture_242078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джонни Фэрроу по кличке Улисс возвращается домой, в столицу Соединённых Штатов Европы, после семилетнего провала в памяти и узнаёт, что он объявлен вне закона и на него охотятся люди самого могущественного олигарха государства. Но он обещал своей жене, Пенелопе, что вернётся к ней во что бы то ни стало и для этого ему придётся проникнуть в самое логово врага.Производство: Италия / Adrama, Regione Piemonte, Film Commission Torino-PiemonteЖанр: фантастика, фэнтези, боевик, триллер, драма, криминал, детективРежиссер: Федерико АлоттоАктеры: Дэнни Гловер, Удо Кир, Анамария Маринка, Джанни Капальди, Андреа Зирио, Шарлотта Кирк, Дрю Кенни, Уолтер Нудо, Джессика Польски, Сигал ДайэмантПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:55:34
+Когда продажный федеральный агент оказывается замешанным в торговле людьми, снайпер и новичок ЦРУ Брэндон Бекетт уходит в подполье, объединившись со своими бывшими союзниками, чтобы разоблачить продажного агента и уничтожить преступную организацию.Производство: США / Destination FilmsЖанр: боевик, триллерРежиссер: Оливер ТомпсонАктеры: Чад Коллинз, Райан Роббинс, Саяка Акимото, Джош Бренер, Брендан Секстон III, Дэннис Хэйсбёрт, Джослин Хадон, Дэвид МакИннис, Пол Эссимбр, Эрик АтхавалеПеревод: Многоголосый профессиональный (Лицензия)Субтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0584557E5926CC67FE9401E0D674FF8688E42E33
+magnet:?xt=urn:btih:0F65E09FC961BEF27D2B5331387BE4F22AEAB84D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632248   (240684) от 09.05.2023
+###  Публикация: 1624981   (242077) от 08.04.2023
 
-Marcus Malone and the Motor City Hustlers - Interstate 75 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240684.jpg" />
+  <img src="Z:/picture/004/save_picture_242077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ain't No Telling (4:23)
-02. Can't Make It (3:50)
-03. Can't Take The Fight (3:54)
-04. Good Lovin' Angel (3:33)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:33
+001. RAF Camora & Luciano - All Night (2:33)
+002. Udo Lindenberg & Apache 207 - Komet (2:47)
+003. Apache 207 - Breaking your heart (2:50)
+004. Miley Cyrus - Flowers (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D29B45E3A673DC96E4F69FBC8383EE12E92922F6
+magnet:?xt=urn:btih:B13C006B9EE00CAB6956CBBB2CB440E236044E34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,25 +53,166 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463563   (240683) от 18.04.2021
+###  Публикация: 1543979   (242076) от 13.04.2022
 
-iCollections 6 v6.8.3 [Multi]
+Gumroad, Danny Mac | Step by Step Base Meshes - Marie Antoinette (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242076.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 базовых мешей для повышения уровня вашего искусства, сосредоточившись на основах формы и пропорций вместо того, чтобы беспокоиться о программном обеспечении!
+Эти базовые меши могут быть использованы в любом приложении для создания скульптур и предназначены для использования в качестве справочного инструмента.
+Каждый меш представляет собой различную ключевую форму (   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 00:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DF5CA1008312C9C964A716843CCAAD94A98971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458901   (242075) от 30.03.2021
+
+Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spaghetti Sugar And Tomato (4:35)
+02. Badaduba (3:44)
+03. Nicole (4:25)
+04. Birimbao (2:26)(   Читать дальше...   )Жанр: Electronic, Disco, Pop, InstrumentalПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796F0186FEAB6E3C5397147E28940BA9075EC639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372248   (242074) от 03.04.2020
+
+Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Cha
+02. Quédate
+03. Y Quién Eres Tú
+04. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617142   (242073) от 06.03.2023
+
+Nightrider - Nightrider (1979) Reissue, 1992, Musea Records [MP3|320 Kbps] <Heavy Progressive Rock, Progressive Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Change In Time [00:06:21]
+02 - Juggernaut [00:05:51]
+03 - Blinded [00:05:51]
+04 - Hard Rock Kid [00:05:15](   Читать дальше...   )Жанр: Heavy Progressive Rock, Progressive Art RockПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C8744254B745EF94018749F57815D5C6D11B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624615   (242072) от 06.04.2023
+
+MassTube Plus 16.5.4.659 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242072.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube Plus — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD8E1301C22A2A43B3185F8E3D5841B03485D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544356   (242071) от 15.04.2022
+
+Artstudio Pro 4.0.11 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240683.jpg" />
+  <img src="Z:/picture/004/save_picture_242071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многие люди предпочитают держать их настольный компьютер Mac в чистоте, чтобы избавиться от каких-либо предметов, которые не являются абсолютно необходимыми. Тем не менее, если вы хотите иметь различные приложения, документы или папки в пределах досягаемости, но держать их организованными в то же время, вы можете попробовать iCollections.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2021Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AEFC6872D290A4964CFDCEEAF23EB76329DBC62
+magnet:?xt=urn:btih:594233FDE4DE3BE4FC63E09BFA07E497503BE54F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,25 +220,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197149   (240682) от 19.04.2022
+###  Публикация: 1106486   (242070) от 19.02.2017
 
-Ясновидец / Третий глаз / Shut Eye (2017) WEBRip [H.264/720p] (сезон 2, серии 1-10 из 10) LostFilm
+VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (20.02.2017) [MP3|320 Kbps] <Uplifting Trance, Emotional Trance, Orchestral Trance>
 
->>Зарубежные сериалы
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240682.jpg" />
+  <img src="Z:/picture/004/save_picture_242070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда Чарли Хэверфорд жил в Лас-Вегасе, то зарабатывал тем, что придумывал всяческие фокусы. Перебравшись в Лос-Анджелес, он сменил квалификацию и превратился в медиума, с улыбкой на лице обманывающего доверчивых людей. Все бы ничего, но Чарли приходится платить отчисления местной мафии, контролирующей весь бизнес подобного рода в Городе ангелов. И поскольку Чарли (   Читать дальше...   )Производство: США / Gran Via, TriStar TelevisionЖанр: ДрамаРежиссер: Стивен Джилленхол, Майкл Трим, Джон ШибанАктеры: Джеффри Донован, Мел Харрис, Изабелла Росселлини, Энгус Сэмпсон,Дилан Шмид, КаД и Стрикленд, Дэвид Зайас, Эммануэль Шрики, Сьюзэн Миснер, Хавана ГуппиПеревод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийПродолжительность: ~00:50:00 серия
+01. Kelly Andrew - Timeless (Orchestral Trance Mix) (9:14)
+02. Illitheas - Last Forever (Original Mix) (7:46)
+03. Darren Porter - To Feel Again (Extended Mix) (6:42)
+04. Aly & Fila - Kingdoms (Radio Edit) (3:30)(   Читать дальше...   )Жанр: Uplifting Trance, Emotional Trance, Orchestral TranceПродолжительность: 04:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8B14F51FB7BBB7FF7EC6AED6F96036E32DCAD6F
+magnet:?xt=urn:btih:B9124F2ED066C18D72058782B4024A485CB6ACD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +249,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632247   (240681) от 09.05.2023
+###  Публикация: 1624721   (242069) от 08.04.2023
 
-Hurts Like Hell - In Through the Eye (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240681.jpg" />
+  <img src="Z:/picture/004/save_picture_242069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take All The Money (4:02)
-02. Looking Glass (feat. Dennis Hastings) (4:14)
-03. Highway of Regret (5:00)
-04. In Through The Eye (5:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:29
+01. Mark Eteson & Luke Bond ft. Bullysongs - Only Love
+02. KASIA - Universal NationЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF15C84A7A286ECF9F49F6CA3DB4916C203F9C25
+magnet:?xt=urn:btih:05B6043DCC4FBFB8F13E34B1A6C155A2AF4EFF4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +276,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620319   (240680) от 20.03.2023
+###  Публикация: 1628602   (242068) от 23.04.2023
 
-Nighted - Absence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
+Жизнь пчелы / A Bee's Diary (2020) HDTVRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240680.jpg" />
+  <img src="Z:/picture/004/save_picture_242068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Aeons (06:32)
-02 - Sigil (05:19)
-03 - Nighted (05:31)
-04 - Blind (07:26)(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:46:31
+Откройте для себя мир медоносной пчелы Виннифрид! В течение альпийской весны и лета фильм рассказывает о двух пчелах, которые собирают еду, разведывают и сражаются с захватчиками - каждая со своим поведением и индивидуальностью. Эта волнующая картина отражает красоту и сложность мира пчелы, проблемы, с которыми она сталкивается, и решения, которые ей предстоит принять. (   Читать дальше...   )Производство: Германия, aglicht media, handful of filmsЖанр: документальный, природа, флора, фаунаРежиссер: Деннис УэллсПеревод: одноголосый профессиональный (1 ТВЧ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FF9F6DC44238DEF54DF0C74E6EF398861A7344C
+magnet:?xt=urn:btih:D6D6C0F814846BBDD2005D986730801588E6ABA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,28 +302,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407038   (240679) от 05.09.2020
+###  Публикация: 1458815   (242067) от 30.03.2021
 
-Merzy - Merzy (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
+Affinity Designer 1.9.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для графического дизайна для Mac.
+Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99C8E5804F7B7906B30BC177929712E359FC5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635031   (242066) от 24.05.2023
+
+Circus Of Rock - Lost Behind The Mask (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240679.jpg" />
+  <img src="Z:/picture/005/save_picture_242066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can't Get You Out Of My Mind (03:38)
-02. Fighting In The Ghetto (05:29)
-03. Nobody Does It Better (04:12)
-04. Don't Mess With The Hangman (04:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:29
+Почти два года назад появился сольный проект финского барабанщика и автора песен Mirk'и Rantanen группа Circus Of Rock с альбомом Come One, Come All. Сосредоточившись на сильной композиции песен, Rantanen соединил мелодичный хард-рок и метал с набором талантливых вокалистов поющих в этом же жанре. Дебютный альбом стал успешным началом для Mirk'а. Так что ничего удивительного (   Читать дальше...   )01. Alive And Kicking ft. Girish Pradhan (3:50)
+02. Keep On Shining ft. Jeff Scott Soto (4:20)
+03. Holdin' The Gun ft. Santiago Ramonda (3:52)
+04. The Beast ft. Sevi (4:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47FF195AD2435841C69D63597516B5C1A7ABBE7A
+magnet:?xt=urn:btih:BA64742333B2F42ABA16480D48B138F2922EE31E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,84 +358,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463258   (240678) от 18.04.2021
+###  Публикация: 1617210   (242065) от 06.03.2023
 
-Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 2017, Hiatus [FLAC|Lossless|image + .cue] <Folk Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Better Believe [00:03:16]
-02. Muddy Ground [00:03:59]
-03.The Juggler [00:03:56]
-04. Agape [00:06:00](   Читать дальше...   )Жанр: Folk Rock, FolkПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0328ED82757A031A5BA3CCE347F7B4A32DBA0368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570320   (240677) от 18.08.2022
-
-Дин Кунц | Холодный огонь (2022) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их свел случай, странное происшествие, которое могло стать трагедией, но, к счастью, все завершилось благополучно.
-Холли Торн, талантливый журналист, становится свидетельницей того, как неизвестный мужчина, появившийся словно бы из ниоткуда, выхватывает из-под колес машины школьника-подростка – в последний момент, когда гибель мальчика была уже, кажется, неминуема. (   Читать дальше...   )Жанр: МистикаПеревод: Илона РусаковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B0AA534C75A574446C3BAA0D7A7C576D991358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620354   (240676) от 20.03.2023
-
-Evilleaf - Slow Burn (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom>
+Majesties - Vast Reaches Unclaimed (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240676.jpg" />
+  <img src="Z:/picture/004/save_picture_242065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disquiet [00:05:39]
-02. Folium Messis [00:00:58]
-03. Summoned by Smoke [00:04:54]
-04. Tenebris [00:06:08](   Читать дальше...   )Жанр: Stoner DoomПродолжительность: 00:24:46
+01. In Yearning, Alive [00:04:24]
+02. The World Unseen [00:03:43]
+03. Our Gracious Captors [00:03:51]
+04. Verdant Paths To Radiance [00:03:30](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2706241C226E8277E60519CEA261144FD83A3A4
+magnet:?xt=urn:btih:97D2AC2C332A8A6108A8C205DA1F71133897647F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +387,333 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632236   (240675) от 09.05.2023
+###  Публикация: 1372032   (242064) от 03.04.2020
 
-Andreas Diehlmann Band - Long Way To Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240675.jpg" />
+  <img src="Z:/picture/004/save_picture_242064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Long Way To Go (5:17)
-02. Pretty Baby (3:46)
-03. Way To Hell (4:13)
-04. Broken (Into Little Bits) (6:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
+01. Вставляет нормально [04:55]
+02. Лови [06:07]
+03. Убойный камень [03:22]
+04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF3DDED3ABD9E4B1794860901EEDCA79E313BC38
+magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106077   (242063) от 19.02.2017
+
+Imperial State Electric - Pop War (2012) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uh Huh 1:44
+02. The Narrow Line 2:33
+03. Can't Seem To Shake It Off My Mind 2:28
+04. Back On Main 3:11(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B57ACEA24FEDA8B9E9E6D2440FE1C1ACFABECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544464   (242062) от 15.04.2022
+
+Omni Recover 3 v3.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
+Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD08CFE22DDD827882034EE95084DC89BCBE798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215934   (242061) от 13.04.2022
+
+Юрий Гагарин. Последний миг (2018) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катастрофа самолета в результате которой 50 лет назад погибли космонавт Юрий Гагарин и летчик-инструктор Владимир Серегин, долгое время была окутана завесой тайны. Авторы фильма исследовали рассекреченные архивные материалы, разобрали интервью коллег и близких погибших и очевидца аварии, а также смоделировали тот злополучный полет, чтобы понять, что произошло в небе (   Читать дальше...   )Телекомпания: Россия, Студия «Русский космос» ФГУП «ЦЭНКИ»Жанр: Документальный, биография, космосРежиссер: Алексей КитайцевПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A34616845EDFAD42FA708725A797132513D385D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624983   (242060) от 08.04.2023
+
+Счастливый человек (1970) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло пять лет с тех пор, как Димка покинул родной город и уехал на Крайний Север. Вернувшись на родину, он понял, что потерял друзей и любимую, которая собралась выйти замуж за его друга. Дима решил восстановить справедливость и это ему удалось...Производство: СССР / БеларусьфильмЖанр: драмаРежиссер: Игорь ДобролюбовАктеры: Вячеслав Захаров, Виталий Коняев, Эльвира Осипова, Павел Кормунин, Валентина Владимирова, Борис Гитин, И. Горбунов, Николай Еременко ст., Людмила Зайцева, Г. ЗагорскийСубтитры: отсутствуютПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3567CB99255A847D2B78584A18EC0FCF125139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624626   (242059) от 06.04.2023
+
+Radiant Photo 1.1.1.263 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo /ex. Perfectly Clear Complete - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0D8C9D29622CD3AD780C4ECDBEFB77469D6966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628559   (242058) от 23.04.2023
+
+Слава Вольный - Песни ГУЛАГА (2002) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не печалься, любимая
+02. Тайга
+03. Товарищ Сталин
+04. Ты не плач мой друг(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B864B0C18F050487EC446FD8CB6959E9062F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635238   (242057) от 24.05.2023
+
+Helestios - Road to Ecstasy (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctuary (4:55)
+02. In Cage (3:15)
+03. Cycles (4:10)
+04. Fight (3:32)(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7B11D555903E3C99B9190ECC8B76F50A4A7ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106545   (242056) от 19.02.2017
+
+Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  The Good Times (Never Last)  (04:52) 
+02|  Low Expectations  (03:43) 
+03|  If I'd a Let You  (04:04) 
+04|  Tappin on an Empty Head  (04:13) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153238ACBD2155BFEAB519A9DD9174749C844E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542464   (242055) от 15.04.2022
+
+VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bar & Bar - Night in Rio (Radio Edit) (3:56)
+02. Madeja Blanca - Cinco de la Tarde (Latin Mix) (4:22)
+03. Jeanclaudemaurice - Ultimo Tango A Santiago (4:51)
+04. Bessie Boni, Massimo Mantovani - Skylark (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617C52031504BCB3845B1169CAFC733854179573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617195   (242054) от 06.03.2023
+
+Siena Root - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Psychodelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coincidence & Fate [00:04:40]
+02. Professional Procrastinator [00:03:09]
+03. No Peace [00:02:48]
+04. Fighting Gravity [00:03:32](   Читать дальше...   )Жанр: Prog Rock, Psychodelic RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775232CAE39CCCD6143EACB95F75E9ECC8CC3795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544039   (242053) от 13.04.2022
+
+Роберт Т. Сатор | Танец с кубитами. Как на самом деле работают квантовые вычисления (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квантовые вычисления заставляют нас изменить отношение к компьютерам. Кубиты способны решать задачи, которые еще совсем недавно казались неразрешимыми. Вы узнаете о принципиальных различиях между квантовыми и классическими вычислениями, вспомните матанализ, чтобы разобраться с такими понятиями, как суперпозиция, запутанность и интерференция, от алгоритмов и схем (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

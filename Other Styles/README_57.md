@@ -6,7 +6,7 @@ Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736334.jpg" />
+  <img src="Z:/picture/008/save_picture_736334.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735838.jpg" />
+  <img src="Z:/picture/008/save_picture_735838.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735125.jpg" />
+  <img src="Z:/picture/008/save_picture_735125.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Anais Mitchell (Anaïs Mitchell) - Xoa (2014) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734956.jpg" />
+  <img src="Z:/picture/008/save_picture_734956.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Waykey (2007) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733870.jpg" />
+  <img src="Z:/picture/008/save_picture_733870.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733837.jpg" />
+  <img src="Z:/picture/005/save_picture_733837.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Willie Nelson - The Willie Nelson Family (2021) Japanese Edition [FLAC|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733164.jpg" />
+  <img src="Z:/picture/008/save_picture_733164.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732824.jpg" />
+  <img src="Z:/picture/008/save_picture_732824.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Deep Forest - Evo-Devo (2016) [MP3|320 кб/с] <New-Age, World-Music, Electroni
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732556.jpg" />
+  <img src="Z:/picture/008/save_picture_732556.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732471.jpg" />
+  <img src="Z:/picture/008/save_picture_732471.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732083.jpg" />
+  <img src="Z:/picture/008/save_picture_732083.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, F
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732076.jpg" />
+  <img src="Z:/picture/008/save_picture_732076.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/�
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732002.jpg" />
+  <img src="Z:/picture/008/save_picture_732002.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731857.jpg" />
+  <img src="Z:/picture/008/save_picture_731857.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731836.jpg" />
+  <img src="Z:/picture/008/save_picture_731836.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [FLAC|Lossless|image + .
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731640.jpg" />
+  <img src="Z:/picture/008/save_picture_731640.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Absolute Country (1995) [APE|Lossless|image + .cue] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731047.jpg" />
+  <img src="Z:/picture/008/save_picture_731047.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731000.jpg" />
+  <img src="Z:/picture/008/save_picture_731000.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su 
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730981.jpg" />
+  <img src="Z:/picture/008/save_picture_730981.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730976.jpg" />
+  <img src="Z:/picture/008/save_picture_730976.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, S
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730969.jpg" />
+  <img src="Z:/picture/008/save_picture_730969.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unoffici
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730946.jpg" />
+  <img src="Z:/picture/008/save_picture_730946.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730742.jpg" />
+  <img src="Z:/picture/008/save_picture_730742.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730681.jpg" />
+  <img src="Z:/picture/008/save_picture_730681.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [MP3|320 кб/с] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730495.jpg" />
+  <img src="Z:/picture/008/save_picture_730495.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730477.jpg" />
+  <img src="Z:/picture/008/save_picture_730477.jpg" />
 </div>
 
 

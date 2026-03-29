@@ -6,7 +6,7 @@ WindowsPlayer 3.2.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837823.jpg" />
+  <img src="Z:/picture/008/save_picture_837823.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 7.22.32.108 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837815.jpg" />
+  <img src="Z:/picture/008/save_picture_837815.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sisulizer 2010 build 311 Enterprise Edition [многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837807.jpg" />
+  <img src="Z:/picture/008/save_picture_837807.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SaveGameBackup Version:1.0.3.0 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837795.jpg" />
+  <img src="Z:/picture/008/save_picture_837795.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinNTSetup 5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837770.jpg" />
+  <img src="Z:/picture/008/save_picture_837770.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 Manager 3.5.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837765.jpg" />
+  <img src="Z:/picture/008/save_picture_837765.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ KMSAuto Lite 1.5.9 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837760.jpg" />
+  <img src="Z:/picture/008/save_picture_837760.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stardock Groupy 1.50 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837756.jpg" />
+  <img src="Z:/picture/008/save_picture_837756.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ UC Browser 5.6.11651.1011 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837749.jpg" />
+  <img src="Z:/picture/008/save_picture_837749.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Icecream Ebook Reader 3.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837746.jpg" />
+  <img src="Z:/picture/008/save_picture_837746.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ xrecode II 1.0.0.231 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837736.jpg" />
+  <img src="Z:/picture/008/save_picture_837736.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DVDFab 8.0.8.3 Final [Multi/Rus] + Portable "PortableAppz"
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837698.jpg" />
+  <img src="Z:/picture/008/save_picture_837698.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Universal Media Creation Tool 05.10.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837649.jpg" />
+  <img src="Z:/picture/008/save_picture_837649.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Office 2013-2021 C2R Install + Lite 7.3.4 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837645.jpg" />
+  <img src="Z:/picture/008/save_picture_837645.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Auslogics BoostSpeed 12.2.0.0 (DC 04.10.2021) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837638.jpg" />
+  <img src="Z:/picture/008/save_picture_837638.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ W10 Digital Activation 1.4.2 by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837636.jpg" />
+  <img src="Z:/picture/008/save_picture_837636.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PDFMaster 1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837625.jpg" />
+  <img src="Z:/picture/008/save_picture_837625.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Bridge CC 2017 7.0.0.93 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837592.jpg" />
+  <img src="Z:/picture/008/save_picture_837592.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ScreenToGif 2.23.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837576.jpg" />
+  <img src="Z:/picture/008/save_picture_837576.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Viber 12.8.1.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837564.jpg" />
+  <img src="Z:/picture/008/save_picture_837564.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Icecream Screen Recorder PRO 6.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837549.jpg" />
+  <img src="Z:/picture/008/save_picture_837549.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ IObit Driver Booster Pro 3.3.1.749 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837526.jpg" />
+  <img src="Z:/picture/008/save_picture_837526.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ DriverPack Solution Online 17.6.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837525.jpg" />
+  <img src="Z:/picture/008/save_picture_837525.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Muse CC 2015.1.2 Multilingual Update 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837522.jpg" />
+  <img src="Z:/picture/008/save_picture_837522.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837481.jpg" />
+  <img src="Z:/picture/008/save_picture_837481.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ashampoo Burning Studio 21.6.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837461.jpg" />
+  <img src="Z:/picture/008/save_picture_837461.jpg" />
 </div>
 
 

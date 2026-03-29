@@ -1,3 +1,90 @@
+###  Публикация: 1568074   (466024) от 06.08.2022
+
+Temperance - Diamanti (2021) [FLAC|Lossless|image + .cue] <Modern Heavy Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure Life Unfolds (5:06)
+02. Breaking the Rules of Heavy Metal (4:43)
+03. Diamanti (4:32)
+04. Black is My Heart (4:06)(   Читать дальше...   )Жанр: Modern Heavy Metal, Male Female VocalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0940F366CC86D8B2E2F7EFF6229D8DE092B6A0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568023   (466011) от 06.08.2022
+
+Moonlight Haze - Animus (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nothing
+02. It's Insane
+03. Kintsugi
+04. Animus(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F149952A040681940326F9B2E468F218CEA7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 50609   (465856) от 07.09.2020
+
+Metallica - Reload (1997) [APE|Lossless|image + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuel (4:30)
+02. The Memory Remains (4:39)
+03. Devil's Dance (5:19)
+04. The Unforgiven II (6:36)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FE91CA89B1EBE50F1B652C90CC635CD84F2C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246024   (465752) от 09.09.2018
 
 Sunn O))) - Kannon (2015) [FLAC|Lossless|tracks + .cue] <Doom Metal, Drone>
@@ -6,7 +93,7 @@ Sunn O))) - Kannon (2015) [FLAC|Lossless|tracks + .cue] <Doom Metal, Drone>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465752.jpg" />
+  <img src="Z:/picture/008/save_picture_465752.jpg" />
 </div>
 
 
@@ -34,7 +121,7 @@ Running Wild - Death Or Glory (1989) 2CD, Deluxe Expanded Edition, 2017, Noise [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465630.jpg" />
+  <img src="Z:/picture/008/save_picture_465630.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ Killswitch Engage - Atonement (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465389.jpg" />
+  <img src="Z:/picture/008/save_picture_465389.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Slipknot - We Are Not Your Kind (2019) Japan [FLAC|Lossless|tracks + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465111.jpg" />
+  <img src="Z:/picture/008/save_picture_465111.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Runamok - Dance Of The Dead (2005) [FLAC|image +.cue]<Heavy/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465065.jpg" />
+  <img src="Z:/picture/008/save_picture_465065.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Abyssal Ascendant - Chronicles of the Doomed Worlds - Part II. Deacons of Abhorr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464224.jpg" />
+  <img src="Z:/picture/008/save_picture_464224.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Age Of Agony - War, Hate, Blasphemy (2005) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464223.jpg" />
+  <img src="Z:/picture/008/save_picture_464223.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Abyssal Ascendant - Chronicles of the Doomed Worlds - Part I. Enlightenment from
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464222.jpg" />
+  <img src="Z:/picture/008/save_picture_464222.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Allen-Olzon - Worlds Apart (2020) [FLAC|Lossless|image + .cue] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464219.jpg" />
+  <img src="Z:/picture/008/save_picture_464219.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Altaria - Wisdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464111.jpg" />
+  <img src="Z:/picture/008/save_picture_464111.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Soulfly - Totem (2022) [FLAC|Lossless|image + .cue] <Death Metal, Nu Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464077.jpg" />
+  <img src="Z:/picture/008/save_picture_464077.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Pain - Coming Home (2016) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464030.jpg" />
+  <img src="Z:/picture/008/save_picture_464030.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Doro - Forever Warriors Forever United (2018) 2CD, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463451.jpg" />
+  <img src="Z:/picture/008/save_picture_463451.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Blut Aus Nord - 777 - Sect(s) (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463391.jpg" />
+  <img src="Z:/picture/008/save_picture_463391.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Acod - The Divine Triumph (2018) [FLAC|Lossless|image + .cue] <Melodic Blackened
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463388.jpg" />
+  <img src="Z:/picture/008/save_picture_463388.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Abbath - Outstrider (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463381.jpg" />
+  <img src="Z:/picture/008/save_picture_463381.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Starblind - Black Bubbling Ooze (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462751.jpg" />
+  <img src="Z:/picture/008/save_picture_462751.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Wings of Destiny - Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462592.jpg" />
+  <img src="Z:/picture/008/save_picture_462592.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Leverage - Tides (2006) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462280.jpg" />
+  <img src="Z:/picture/008/save_picture_462280.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Amken - Theater of the Absurd (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462274.jpg" />
+  <img src="Z:/picture/008/save_picture_462274.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Communic - Hiding from the World (2020) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462271.jpg" />
+  <img src="Z:/picture/008/save_picture_462271.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Amken - Adrenaline Shot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462270.jpg" />
+  <img src="Z:/picture/008/save_picture_462270.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Steve Grimmett's Grim Reaper - Walking In The Shadows (2016) Japanese Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462114.jpg" />
+  <img src="Z:/picture/008/save_picture_462114.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Steve Grimmett's Grim Reaper - Walking In The Shadows (2016) Japanese Edition [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:994FA05B8B9428C649CBB9C5947DC39C4B4F3DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568407   (462097) от 08.08.2022
-
-Anathema - A Vision of a Dying Embrace (Live in Krakow 1996) (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Restless Oblivion (00:07:51)
-02 - Shroud of Frost (00:07:07)
-03 - We, The Gods (00:06:10)
-04 - Sunset of Age (00:06:45)(   Читать дальше...   )Жанр: Doom, Gothic, Death MetalПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1416833DD40020465ABF3A420B95D2717636A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568536   (462096) от 08.08.2022
-
-Oceans of Slumber - Starlight And Ash (2022) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Waters Rising (04:22)
-02. Hearts of Stone (03:56)
-03. The Lighthouse (03:34)
-04. Red Forest Roads (04:08)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730B0D8ECF90CBCC48E4D7CC4398A1A5BDFCD009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568385   (461814) от 08.08.2022
-
-Arch Enemy - Deceivers (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handshake with Hell (5:39)
-02. Deceiver, Deceiver (3:52)
-03. In the Eye of the Storm (4:09)
-04. The Watcher (4:58)(   Читать дальше...   )Жанр: Melodic Death Metal, Heavy MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF78E5A701E77616EB29C70F01CFA956E539BAB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

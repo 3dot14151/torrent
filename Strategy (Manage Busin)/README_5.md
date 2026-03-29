@@ -1,3 +1,81 @@
+###  Публикация: 1078055   (556647) от 28.07.2017
+
+Halcyon 6: Starbase Commander (2016) [En] (1.3.1.9) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Halcyon 6: Starbase Commander – это космическая RPG стратегия, где на начальном этапе вам будет выдана старая космическая станция. Путешествуя по случайно генерируемому космосу, вы будете искать редкие ресурсы, которые позволят модернизировать ваш корабль. Конечно же, по пути вас будут ждать приключения и сражения с самыми различными противниками, причем сражения (   Читать дальше...   )Тип издания: LicenseРазработчик: Massive Damage, Inc.Жанр: Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417FED0F6C22485250531AE02007F774F124D8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013668   (535872) от 09.09.2016
+
+Blood Bowl 2 (2015) [Ru/Multi] (2.3.17.1/dlc) License CODEX
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_535872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение видеоигровой адаптации знаменитой настольной стратегии, объединившей американский футбол и фэнтезийную вселенную Warhammer.      Оставаясь верной основной концепции оригинальной Blood Bowl, принесшей ей огромный успех, вторая часть выводит игру на новый уровень качества. Специально разработанный графический движок позволил существенно улучшить визуальную составляющую. (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyanide StudiosЖанр: Strategy (Real-time, Turn-based), Sport (Futuristic), 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC8324FAE0392D2D9B3B106400858A1C3C61178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533356   (532310) от 10.08.2012
+
+Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегическая игра. Вам предстоит управлять авиакомпанией(   Читать дальше...   )Тип издания: RePackРазработчик: InterActive Vision GamesЖанр: Экономический симулятор, бизнес стратегияЯзык озвучки: -\-Язык интерфейса: Русский (7 волк)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063463   (531956) от 04.07.2019
 
 Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
@@ -6,7 +84,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531956.jpg" />
+  <img src="Z:/picture/008/save_picture_531956.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ TransRoad: USA (2017) [En] (1.2.1) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531138.jpg" />
+  <img src="Z:/picture/008/save_picture_531138.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.2.1) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522620.jpg" />
+  <img src="Z:/picture/008/save_picture_522620.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Project Highrise (2016) [Ru/Multi] (1.6.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518898.jpg" />
+  <img src="Z:/picture/008/save_picture_518898.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Theme Park (1994) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502122.jpg" />
+  <img src="Z:/picture/008/save_picture_502122.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Traffic Giant / Транспортный гигант (2001) [Ru/En] (1.0) Unoff
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496573.jpg" />
+  <img src="Z:/picture/008/save_picture_496573.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Endzone - A World Apart (2021) [Ru/En] (1.2.8206.20181/dlc) Repack Other s [Save
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488049.jpg" />
+  <img src="Z:/picture/008/save_picture_488049.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ City of Gangsters (2021) [Ru/Multi] (1.4.4/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469769.jpg" />
+  <img src="Z:/picture/008/save_picture_469769.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Caravan (2016) [Ru/Multi] (1.0.16891) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467748.jpg" />
+  <img src="Z:/picture/008/save_picture_467748.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Industry Manager: Future Technologies (2016) [Ru/Multi] (1.0.9) License HI2U
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456655.jpg" />
+  <img src="Z:/picture/008/save_picture_456655.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Planet Coaster (2016) [Multi] (1.3.6.45104/dlc) License STEAMPUNKS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456365.jpg" />
+  <img src="Z:/picture/008/save_picture_456365.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Rise of Venice (2013) [Ru/En] (1.1.2.4789/3dlc) Repack z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454213.jpg" />
+  <img src="Z:/picture/008/save_picture_454213.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Tropico Anthology (2001-2014) [Ru/Multi] Repack/Rip R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445714.jpg" />
+  <img src="Z:/picture/008/save_picture_445714.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443499.jpg" />
+  <img src="Z:/picture/008/save_picture_443499.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Prison Architect (2015) [Ru/Multi] (1.0) License SKiDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439549.jpg" />
+  <img src="Z:/picture/008/save_picture_439549.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Mars Horizon (2020) [Ru/Multi] (1.4.2.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435335.jpg" />
+  <img src="Z:/picture/008/save_picture_435335.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428073.jpg" />
+  <img src="Z:/picture/008/save_picture_428073.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Jurassic World Evolution (2018) [Ru/Multi] (1.4.3/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428071.jpg" />
+  <img src="Z:/picture/008/save_picture_428071.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ SPORE™ Collection (2008) [Ru/Multi] (1.2.0.2818/3.0.0.2818/dlc) Repack R.G. Ca
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420342.jpg" />
+  <img src="Z:/picture/008/save_picture_420342.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Settlers®: Rise of an Empire (2008) [Multi] (1.71.4289/dlc) License GOG [Go
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420019.jpg" />
+  <img src="Z:/picture/008/save_picture_420019.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.4.3.37142/dlc) Repack R.G. Механ
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419279.jpg" />
+  <img src="Z:/picture/008/save_picture_419279.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Sheltered (2016) [Ru/Multi] (1.9) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411771.jpg" />
+  <img src="Z:/picture/008/save_picture_411771.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394618.jpg" />
+  <img src="Z:/picture/008/save_picture_394618.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A072E676B5F4C2459746FF1AF57ACF26672E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568436   (394560) от 31.10.2012
-
-Virtual Villagers 3: The Secret City / Робинзоны. Затерянный город [Eu] (L) 2008
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерпевшие крушение на райском тропическом островке и не подозревали, что в джунглях покоятся руины древней цивилизации. Кто же на самом деле жил на острове раньше и куда делись прежние обитатели загадочного города? Помогите героям нового симулятора жизни маленьких человечков пополнить запасы провизии, построить свою деревушку и раскрыть тайны ушедших веков. Кто из героев станет настоящим лидером, кто сможет принести наибольшую пользу маленькой общине и как будет развиваться их история, зависит только от вас. Приключения Робинзонов начинаются!Тип издания: ЛицензияЖанр: Strategy (Manage/Busin)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F1FDB0573B85544CD7434F43B944DBA5844078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011862   (377461) от 02.11.2016
-
-Offworld Trading Company (2016) [Ru/Multi] (1.8.13949/dlc) Repack Other s
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий дизайнер игры Civilization IV создал новую стратегию — Offworld Trading Company. На этот раз — экономическую. Марс колонизирован, и вам предлагают протянуть руку помощи новой колонии и обеспечить ей процветание. Однако вы не единственный, кого для этого пригласили — ваши конкуренты также прибыли на планету, и они не будут стесняться играть грязно, чтобы занять (   Читать дальше...   )Тип издания: RepackРазработчик: Mohawk GamesЖанр: Strategy, Simulator, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FA6E50ABB4F0AEBBD7D6B176889E8C2BED7BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411597   (368983) от 15.10.2020
-
-Port Royale 4 (2020) [Ru] (1.1.1.16203) Repack xatab [Extended Edition]
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ставьте паруса и присоединяйтесь к одной из колониальных держав XVII века: Испании, Англии, Нидерландам или Франции, чтобы сражаться за господство над Карибским морем. В игре Port Royale 4 вам предстоит стать юным и амбициозным правителем колонии, который мечтает выяснить, как же превратить небольшое поселение в оживленный торговый город.Тип издания: RepackРазработчик: Gaming MindsЖанр: Симуляторы, СтратегииЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEB9EDFB2508D385066E5D8AA9AB9215004B896
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1570320   (240677) от 18.08.2022
+
+Дин Кунц | Холодный огонь (2022) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их свел случай, странное происшествие, которое могло стать трагедией, но, к счастью, все завершилось благополучно.
+Холли Торн, талантливый журналист, становится свидетельницей того, как неизвестный мужчина, появившийся словно бы из ниоткуда, выхватывает из-под колес машины школьника-подростка – в последний момент, когда гибель мальчика была уже, кажется, неминуема. (   Читать дальше...   )Жанр: МистикаПеревод: Илона РусаковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B0AA534C75A574446C3BAA0D7A7C576D991358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546150   (240055) от 22.04.2022
+
+София Эззиати | Дневник революции. Пятикнижие (2022) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастический роман Софии Эззиати «Дневник революции» состоит из пяти частей, первые три из которых вышли в 2017 году, а продолжение – в 2021-м. И вот теперь роман увидел свет целиком.
+Написан он в жанре антиутопии, в центре повествования – обаятельные герои: Аск и Сольвейг, из дневниковых записей которых читатель и узнает о происходящем. Борясь с диктатурой «Единое (   Читать дальше...   )Жанр: Космическая фантастика, Научная Фантастика, Социально-психологическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA92E1607B6564274166A76B0DCF3183058DF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627546   (239463) от 19.04.2023
 
 Лидия Юкнавич | Потрясение (2023) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239463.jpg" />
+  <img src="Z:/picture/005/save_picture_239463.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239439.jpg" />
+  <img src="Z:/picture/005/save_picture_239439.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239341.jpg" />
+  <img src="Z:/picture/004/save_picture_239341.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238593.jpg" />
+  <img src="Z:/picture/005/save_picture_238593.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238322.jpg" />
+  <img src="Z:/picture/004/save_picture_238322.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238149.jpg" />
+  <img src="Z:/picture/004/save_picture_238149.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237781.jpg" />
+  <img src="Z:/picture/004/save_picture_237781.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236981.jpg" />
+  <img src="Z:/picture/005/save_picture_236981.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236351.jpg" />
+  <img src="Z:/picture/005/save_picture_236351.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235942.jpg" />
+  <img src="Z:/picture/005/save_picture_235942.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235319.jpg" />
+  <img src="Z:/picture/004/save_picture_235319.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234345.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233744.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232200.jpg" />
+  <img src="Z:/picture/004/save_picture_232200.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231410.jpg" />
+  <img src="Z:/picture/004/save_picture_231410.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230808.jpg" />
+  <img src="Z:/picture/005/save_picture_230808.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230063.jpg" />
+  <img src="Z:/picture/005/save_picture_230063.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229131.jpg" />
+  <img src="Z:/picture/004/save_picture_229131.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227930.jpg" />
+  <img src="Z:/picture/005/save_picture_227930.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227763.jpg" />
+  <img src="Z:/picture/005/save_picture_227763.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227512.jpg" />
+  <img src="Z:/picture/005/save_picture_227512.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227388.jpg" />
+  <img src="Z:/picture/005/save_picture_227388.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227273.jpg" />
 </div>
 
 
@@ -635,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227146.jpg" />
+  <img src="Z:/picture/005/save_picture_227146.jpg" />
 </div>
 
 
@@ -649,60 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80339B235786965043308410229685658BDB4C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851593   (226967) от 19.12.2014
-
-Георгий Зотов | Асмодей Pictures (2014) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Староанглийский демон Корнелий Этельвульф живет в Москве уже 500 лет. Он – полукровка, бес низшего, девятого, разряда: без надежды на карьеру. Его давняя задача – подбить на грех самого обычного священника. Качественные секс-соблазны, погром в храме и попытки подсунуть в пост ветчину ни к чему не приводят. Этельвульф в ужасе понимает, что стоит на краю гибели. В (   Читать дальше...   )Жанр: Ужасы и Мистика, Детективная фантастика, Юмористическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E21D310280FF0C6D2492814715492904EB3332D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341873   (226735) от 30.11.2019
-
-Евгений Щепетнов | День непослушания: Будем жить! (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «День непослушания».
-
-Метеориты занесли на Землю смертоносные вирусы, и почти все взрослые погибли, а те, кто не погиб, переродились в кровожадных мутантов. Погибли или превратились в мохнатых злобных мутантов и маленькие дети – те, кому не исполнилось 10 лет. Выжили и сохранили рассудок только подростки 10–15 лет. Им и пришлось создавать новый (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946910C868DA7098ED2C359C97FCF0F5ABE23E24
 ```
 
 https://mybot314.ru/tekegram_catalog/

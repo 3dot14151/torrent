@@ -1,3 +1,29 @@
+###  Публикация: 1556922   (230284) от 11.06.2022
+
+The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material System Overview (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230284.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом всеобъемлющем семинаре из 18 глав, который проводит ведущий инженер по цифровым проектам Чарлстон Сильверман, дается полный обзор системы Материалов Unreal. Предоставляя ценную информацию о функциях Unreal и демонстрируя, как использовать многие из функций, доступных в этой мощной системе, Чарлстон проводит зрителя как по основным, так и по расширенным настройкам, (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Создание материаловЯзык озвучки: Русский (отдельным файлом)Продолжительность: 03:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A0D24C5B66972EB1AC6536EF965223F54113BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415140   (230275) от 11.06.2022
 
 Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN, RU]
@@ -6,7 +32,7 @@ Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230275.jpg" />
+  <img src="Z:/picture/005/save_picture_230275.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230038.jpg" />
+  <img src="Z:/picture/005/save_picture_230038.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Stan Air | AirHair Tutorial (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229940.jpg" />
+  <img src="Z:/picture/005/save_picture_229940.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229806.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229672.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229553.jpg" />
+  <img src="Z:/picture/004/save_picture_229553.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227303.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ lectoroom, Елена Базанова | Веточки яблони аквар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227271.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227256.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ Ctrl + Paint, Matt Kohr | Custom Brush Design (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226965.jpg" />
+  <img src="Z:/picture/005/save_picture_226965.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Ctrl + Paint, Matt Kohr | Vehicle Design Start To Finish (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226938.jpg" />
+  <img src="Z:/picture/005/save_picture_226938.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ Ctrl + Paint, Matt Kohr | Let's Paint (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226924.jpg" />
+  <img src="Z:/picture/005/save_picture_226924.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226886.jpg" />
+  <img src="Z:/picture/005/save_picture_226886.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226862.jpg" />
+  <img src="Z:/picture/005/save_picture_226862.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226831.jpg" />
+  <img src="Z:/picture/005/save_picture_226831.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226798.jpg" />
+  <img src="Z:/picture/005/save_picture_226798.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226760.jpg" />
+  <img src="Z:/picture/005/save_picture_226760.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226739.jpg" />
+  <img src="Z:/picture/005/save_picture_226739.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 1: Gesture (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226708.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Kantemir Bitokov | Курс по моделингу автомобиля кла�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226673.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ CGEvent | Подборка мастерклассов по трехмерке К
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225385.jpg" />
+  <img src="Z:/picture/005/save_picture_225385.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225377.jpg" />
+  <img src="Z:/picture/005/save_picture_225377.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ CGEvent | Подборка мастерклассов по трехмерке П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225185.jpg" />
+  <img src="Z:/picture/005/save_picture_225185.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ CGEvent | Подборка мастерклассов по трехмерке М
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225168.jpg" />
+  <img src="Z:/picture/005/save_picture_225168.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224786.jpg" />
+  <img src="Z:/picture/005/save_picture_224786.jpg" />
 </div>
 
 
@@ -674,33 +700,6 @@ Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B8981DBB3F237DB032EA3C2DC4C1832F1B608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513212   (224764) от 28.11.2021
-
-Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе по Maya мы рассмотрим три обычных типа животных, с котрыми приходится работать аниматору. Начнем с небольшой легкой птички, а затем перейдем к походке четвероного на примере пумы и закончим тяжелым носорогом.
-Мы рассмотрим линию движения и сосредоточимся на постановке поз для создания правдоподобного ощущения веса. Мы также используем некоторые приемы (   Читать дальше...   )Производство: Digital TutorsЖанр: АнимацияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B6C73202C8F9A9B7E42ABFF8E9EF1237FB146F
 ```
 
 https://mybot314.ru/tekegram_catalog/

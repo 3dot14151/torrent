@@ -1,3 +1,120 @@
+###  Публикация: 1582222   (323341) от 09.10.2022
+
+Театр Теней - Дискография (2006 - 2022) [MP3|320 Kbps] <Rock, Metal, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вдоль обрыва [3:57]
+02. Буревестник [3:56]
+03. Дикий [4:00]Жанр: Rock, Metal, BalladПродолжительность: 07:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D1CD3BF2AB7F0ED15885BF240400849EA6F0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410903   (323159) от 09.10.2022
+
+ESSE - Рок-опера «Дорога без возврата» (2011) [MP3|320 Kbps] <Symphonic Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323159.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дорога без возврата» — российская фэнтези-рок-опера группы «ESSE» по мотивам саги «Ведьмак» Анджея Сапковского.
+
+Чародеи и чудовища, эльфы и люди, весь мир брошен колдуном Вильгефорцем на алтарь войны, истоки которой лежат в древнем пророчестве о гене старшей крови. Возродившись, этот ген даст его обладателю власть над временем и мирами. Чародей жаждет власти, и (   Читать дальше...   )01. Пророчество Итлины [6:36]
+02. Ласточка [4:05]
+03. Вестник бури [0:41]
+04. Прощаю [2:58](   Читать дальше...   )Жанр: Symphonic Rock OperaПродолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD5CE0B0AFD90C55C42A799AC272A7C6C07E852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421109   (322295) от 03.11.2020
+
+The Landscape Garden - Gild the Lily (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grain of Sand (09:08)
+ 02. Flat Earth (07:26)
+ 03. The River (07:26)
+ 04. Ghost Surfer (07:40)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CBE06C497710DE2ED3398320C0395436F5DD00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421179   (321902) от 03.11.2020
+
+Обе-Рек - Пикник на обочине (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выжил
+2. Бесконечность
+3. Маленький принц
+4. Мой рок-н-ролл(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622F4A2408D0E3FC225670761B4F95E0B9A8C0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958826   (321878) от 22.11.2015
 
 KROLiki - В моей голове (2015) [MP3|320 kbps] <Rock>
@@ -6,7 +123,7 @@ KROLiki - В моей голове (2015) [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321878.jpg" />
+  <img src="Z:/picture/008/save_picture_321878.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321787.jpg" />
+  <img src="Z:/picture/008/save_picture_321787.jpg" />
 </div>
 
 
@@ -61,7 +178,7 @@ Sympuls-E - Immensity (2022) [MP3|320 Kbps] <Technical Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320985.jpg" />
+  <img src="Z:/picture/008/save_picture_320985.jpg" />
 </div>
 
 
@@ -90,7 +207,7 @@ Stay Away - Олдэйджер (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320983.jpg" />
+  <img src="Z:/picture/008/save_picture_320983.jpg" />
 </div>
 
 
@@ -119,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320981.jpg" />
+  <img src="Z:/picture/008/save_picture_320981.jpg" />
 </div>
 
 
@@ -148,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320978.jpg" />
+  <img src="Z:/picture/008/save_picture_320978.jpg" />
 </div>
 
 
@@ -177,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320977.jpg" />
+  <img src="Z:/picture/008/save_picture_320977.jpg" />
 </div>
 
 
@@ -206,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320776.jpg" />
+  <img src="Z:/picture/008/save_picture_320776.jpg" />
 </div>
 
 
@@ -235,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320204.jpg" />
+  <img src="Z:/picture/008/save_picture_320204.jpg" />
 </div>
 
 
@@ -270,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319379.jpg" />
+  <img src="Z:/picture/008/save_picture_319379.jpg" />
 </div>
 
 
@@ -299,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319270.jpg" />
+  <img src="Z:/picture/008/save_picture_319270.jpg" />
 </div>
 
 
@@ -328,7 +445,7 @@ The Korea - Cosmogonist (2015) [MP3|233-320 кб/с]<Metalcore, Djent>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319264.jpg" />
+  <img src="Z:/picture/008/save_picture_319264.jpg" />
 </div>
 
 
@@ -357,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319096.jpg" />
+  <img src="Z:/picture/008/save_picture_319096.jpg" />
 </div>
 
 
@@ -384,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319061.jpg" />
+  <img src="Z:/picture/008/save_picture_319061.jpg" />
 </div>
 
 
@@ -413,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318759.jpg" />
+  <img src="Z:/picture/008/save_picture_318759.jpg" />
 </div>
 
 
@@ -442,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318257.jpg" />
+  <img src="Z:/picture/008/save_picture_318257.jpg" />
 </div>
 
 
@@ -471,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316999.jpg" />
+  <img src="Z:/picture/008/save_picture_316999.jpg" />
 </div>
 
 
@@ -500,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316766.jpg" />
+  <img src="Z:/picture/008/save_picture_316766.jpg" />
 </div>
 
 
@@ -529,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316390.jpg" />
+  <img src="Z:/picture/008/save_picture_316390.jpg" />
 </div>
 
 
@@ -558,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316370.jpg" />
+  <img src="Z:/picture/008/save_picture_316370.jpg" />
 </div>
 
 
@@ -587,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315918.jpg" />
+  <img src="Z:/picture/008/save_picture_315918.jpg" />
 </div>
 
 
@@ -621,7 +738,7 @@ VA - Реальная музыка (3 CD от Real Records) (2002) [MP3|192 kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315470.jpg" />
+  <img src="Z:/picture/005/save_picture_315470.jpg" />
 </div>
 
 
@@ -635,122 +752,6 @@ Zемфира - Земфира (1998)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421824   (315442) от 06.11.2020
-
-Astirium - Время Перемен (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (The Beginning of Change) (01:12)
- 02. Взгляд безумия (03:05)
- 03. Герой одиночества (04:24)
- 04. Время перемен (04:38)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B1B0B533A0E06ECD2848B7F33F4BA09F434AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422009   (315430) от 06.11.2020
-
-KDRR - Корея (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315430.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эхо наших голосов
-2. Вавилон
-3. Будет ласковый дождь
-4. Корея(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76046F6D85EC23997467BFA8D7A01C406249EF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421899   (315231) от 06.11.2020
-
-Сергей Бобунец - Одиночество навсегда (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Спасибо
-2. Просто музыка, просто слова
-3. Декабрь
-4. Куда пропали звёзды(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF9B577D44D74D92738B94A3D8D468A620D2F5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421904   (315067) от 06.11.2020
-
-VA - Территория ДДТ (2020) [MP3|320 Kbps] <Rock, Pop & etc.>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Amatory - Родина
-2. Animal ДжаZ - Предчувствие гражданской войны
-3. Fontaliza - За тобой пришли
-4. Sellout - Песня о свободе(   Читать дальше...   )Жанр: Rock, Pop & etc.Продолжительность: 03:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE34B35E33ECDFC2913881EA6C22C264005F066
 ```
 
 https://mybot314.ru/tekegram_catalog/

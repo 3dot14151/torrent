@@ -1,3 +1,84 @@
+###  Публикация: 477869   (86446) от 04.04.2012
+
+Lone Survivor [En] (L) 2012
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный хоррор от создателя игр Soul Brother и Soundless Mountain 2.
+Главный герой, скрывающий лицо под белой маской, должен выбраться из опустошенного  неизвестным вирусом города. Обессиленный, измученный голодом, он должен найти выход из ситуации, даже когда происходящее настолько ужасно, что не хочется верить своим глазам.
+В новой адвенчуре только вы выбираете тот способ выжить, который вам ближе. Крадитесь без единого выстрела или убивайте все, что встанет у вас на пути. Отдыхайте когда устали и добывайте еду если голодны или глотайте наркотики и идите дальше. Ищите выживших или выбирайтесь из города в одиночку. Следите за рассудком или съезжайте с катушек...Тип издания: ЛицензияЖанр: Platformer / horrorЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BB6F83E08D7F342066444A098615EFE9301AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475537   (85568) от 31.03.2012
+
+Gemini Rue / Gemini Rue: Заговор на Барракусе [En] (P) 2011
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gemini Rue - приключенческая инди-игра, разработанная калифорнийским студентом Joshua Nuernberger. Игра представляет собой классический квест в стиле нуара и киберпанка. Азриэль Один, бывший наёмный убийца, прибывает на утопающую в дождях планету Барракус, чтобы найти кое-кого. Но всё оборачивается совершенно не так, как планировалось и ему приходится искать помощи у преступников, на которых он раньше работал. В тоже время, на другом конце галактики, человек, называемый Дельта-Шесть, приходит в себя в больнице, память его стёрта. Не зная, что ждёт за следующим поворотом и кому можно верить, он пытается выбраться наружу, пока окончательно не утратил личность. По мере того, как судьба сводит этих двух людей всё ближе, мы открываем для себя мир, в котором жизнь - бросовый товар, личность продаётся и покупается, и простые попытки спастись могут изменить судьбу всей галактики. В Gemini Rue игрока ждут интересный сюжет, множество загадок, а также непривычные для жанра боевые вставки.Тип издания: ПираткаЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD9371CFD84479BD375C454BF16DE4ECDD3E3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474903   (85416) от 30.03.2012
+
+To the Moon (P) [Ru] 2011
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85416.jpg" />
+</div>
+
+
+###  Подробнее
+
+To the Moon рассказывает о двух докторах — Dr. Eva Rosalene и Dr. Neil Watts, которые занимаются достаточно необычным делом. Они, буквально говоря, дают людям ещё один шанс прожить жизнь — путём создания искусственных воспоминаний в разуме пациента. Однако возникающий конфликт между настоящим и искусственным позволяет практиковать такие операции только для людей, которые находятся на своём смертном одре. Чтобы осуществить то, что они мечтали сделать за свою жизнь… но не сделали.
+Очередной клиент — умирающий пожилой мужчина по имени Джонни. Путешествуя по воспоминаниям, коллеги раскрывают новые фрагменты его прошлого. Необходимо собрать воедино кусочки событий его жизни, чтобы выяснить причину такого предсмертного желания, и исполнить его. А последнее желание Джонни, конечно же — отправиться на Луну.Тип издания: ПираткаЖанр: Adventure, RPG, indieЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8758FB93397488BF632051BDF667E517F37EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472660   (84202) от 24.03.2012
 
 Особенности национального развода [Ru] (P) 2007
@@ -6,7 +87,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84202.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83808.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83776.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack/1.0.0.1) 2012|
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83585.jpg" />
 </div>
 
 
@@ -119,7 +200,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83561.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83515.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82983.jpg" />
 </div>
 
 
@@ -208,7 +289,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82734.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81919.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81511.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81487.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81445.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79273.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74563.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69655.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65896.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65891.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65798.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65795.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65664.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65662.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65661.jpg" />
 </div>
 
 
@@ -605,7 +686,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65641.jpg" />
 </div>
 
 
@@ -616,84 +697,6 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54AECE2A3A74F89F0C27842D655B059D563DE074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705030   (63780) от 07.03.2024
-
-The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63780.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bunker 69 – приключенческая игра, что обладает взрослым рейтингом из-за наличия "18+" контента, что носит интимный характер. Изометрическая камера предоставляет отличный обзор на локацию, где располагается протагонист – молодой парень, что окружен 4 красотками, с которыми можно строить романтические отношения, что перетекают в нечто большее. Проект (   Читать дальше...   )Тип издания: RepackРазработчик: xxxmenshxxx, FeodosiyЖанр: Adventure, ArcadeЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC83A04B291508CE29E5AF5A2E7C21DDE1E8C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705147   (63754) от 07.03.2024
-
-Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протагонист Evil Nun: The Broken Mask был приглашен побывать в религиозном лагере. Он ожидал веселья, узнать что-то новое и познакомиться с новыми людьми. Как только он прибывает на место, то монахиня бьет его молотком, а тот теряет сознание. Приключение начинается с пробуждения в заброшенной школе. Главный герой оценивает опасность ситуации и понимает, что требуется (   Читать дальше...   )Тип издания: RepackРазработчик: Keplerians, Carlos CoronadoЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFC0BC00D9530825EFE37B26985E06AA2BCDD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705499   (63676) от 08.03.2024
-
-REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра с уникальной историей и привлекательной графикой станет испытанием для ума. Разнообразные головоломки, вопросы без ответов, сбивающие с толку подсказки и расшатанная психика... Чтобы со всем этим совладать, игроку, как и главному герою Уолтеру Томпсону, придется приложить немало усилий. Сумеете ли вы во всем разобраться? Найти ответы поможет упорство.Тип издания: RepackРазработчик: PixelsplitЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A804BDCD072961732C1798DBD895A8E64EE92803
 ```
 
 https://mybot314.ru/tekegram_catalog/

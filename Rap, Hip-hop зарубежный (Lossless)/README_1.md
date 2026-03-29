@@ -6,7 +6,7 @@ Insane Clown Posse - The Marvelous Missing Link (Lost) (2015) [FLAC|Lossless|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907061.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chillhop Essentials Spring (2020) [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905441.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kanye West - Jesus Is King (2019) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898377.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896785.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884509.jpg" />
+  <img src="Z:/picture/005/save_picture_884509.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Chillhop Raw Cuts (2017) [FLAC|Lossless|Web-DL|tracks] <Chill Hop, Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879610.jpg" />
+  <img src="Z:/picture/005/save_picture_879610.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chillhop Essentials Fall (2021) [FLAC|Lossless|Web-DL|tracks] <Chillhop, In
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864771.jpg" />
+  <img src="Z:/picture/008/save_picture_864771.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860490.jpg" />
+  <img src="Z:/picture/008/save_picture_860490.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842902.jpg" />
+  <img src="Z:/picture/008/save_picture_842902.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840841.jpg" />
+  <img src="Z:/picture/008/save_picture_840841.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840836.jpg" />
+  <img src="Z:/picture/008/save_picture_840836.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836096.jpg" />
+  <img src="Z:/picture/008/save_picture_836096.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Atmosphere - WORD? (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819489.jpg" />
+  <img src="Z:/picture/008/save_picture_819489.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lil Nas X - Montero (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Pop Rap, Trap
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819399.jpg" />
+  <img src="Z:/picture/008/save_picture_819399.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kool Keith & Thetan - Space Goretex (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800347.jpg" />
+  <img src="Z:/picture/008/save_picture_800347.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ alyona alyona - Пушка (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788362.jpg" />
+  <img src="Z:/picture/008/save_picture_788362.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Migos - Culture III (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749894.jpg" />
+  <img src="Z:/picture/008/save_picture_749894.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abs
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724776.jpg" />
+  <img src="Z:/picture/008/save_picture_724776.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lil Pump - Harverd Dropout (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713049.jpg" />
+  <img src="Z:/picture/008/save_picture_713049.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, J
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696284.jpg" />
+  <img src="Z:/picture/008/save_picture_696284.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nyctophiliac - Ill Side Of Town (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, D
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684224.jpg" />
+  <img src="Z:/picture/008/save_picture_684224.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Chillhop Essentials - Spring (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678241.jpg" />
+  <img src="Z:/picture/008/save_picture_678241.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hard
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665381.jpg" />
+  <img src="Z:/picture/008/save_picture_665381.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642729.jpg" />
+  <img src="Z:/picture/008/save_picture_642729.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627317.jpg" />
+  <img src="Z:/picture/008/save_picture_627317.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625793.jpg" />
+  <img src="Z:/picture/008/save_picture_625793.jpg" />
 </div>
 
 

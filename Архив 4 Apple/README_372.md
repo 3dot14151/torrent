@@ -1,3 +1,113 @@
+###  Публикация: 1408572   (455292) от 12.09.2020
+
+CleanMyMac X 4.6.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте CleanMyMac X!
+В программе все, что вы знали об уходе за Mac, но в X раз лучше!
+CleanMyMac сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии. CleanMyMac имеет красивый интерфейс, который не оставит равнодушным никого. Все выполнено в стандартном виде Mac OS: красиво, удобно и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2020Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34713E7423E8EB9C230CAB24855248107A6DD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942320   (455266) от 30.09.2015
+
+VMware Fusion Professional 8.0.1 (3094680) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455266.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
+
+VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2015Разработчик: VMware, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A38BB4FB9BF30C6BFF83350AABC0DB56DAD13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942391   (455261) от 30.09.2015
+
+TotalFinder 1.7.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455261.jpg" />
+</div>
+
+
+###  Подробнее
+
+TotalFinder – это набор полезных утилит, расширяющих исходную функциональность файлового менеджера Mac OS X Finder. Главной особенностью предлагаемого продукта является поддержка вкладок, в которых могут открываться отдельные окна «проводника».
+
+Приложение TotalFinder обладает исключительной производительностью, удобным пользовательским интерфейсом, компактными размерами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 сентября 2015Разработчик: BinaryageПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Французский, Итальянский, Финский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C27D90A82A06E0CC384969E8CF20850A4E3B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060533   (454906) от 07.10.2016
+
+WinX DVD Ripper for Mac 4.9.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454906.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinX DVD Ripper for Mac - конвертер DVD дисков, в том числе с защитой от копирования, в следующие форматы: MP4, MOV, MPEG, AVI, FLV, MP3, для iPhone, iPod, iPad, Apple TV, PSP и другие. Mac DVD Ripper способен разблокировать все технологии защиты от копирования, например, CSS, региональный код, Sony ARccOS, UOPs, Disney X-проект DRM, и т.д.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2016Разработчик: Digiarty Software, IncПоддерживаемая ОС: macOS 10.6 - 10.12Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F98E4DDBB8804823708E2395F08D57B56DBCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060565   (454905) от 07.10.2016
 
 Nimble Commander 1.1.5 [Multi/Ru]
@@ -6,7 +116,7 @@ Nimble Commander 1.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454905.jpg" />
+  <img src="Z:/picture/008/save_picture_454905.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Audio Hijack 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454898.jpg" />
+  <img src="Z:/picture/008/save_picture_454898.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ Airmail 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454895.jpg" />
+  <img src="Z:/picture/008/save_picture_454895.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ Lyn 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454862.jpg" />
+  <img src="Z:/picture/008/save_picture_454862.jpg" />
 </div>
 
 
@@ -117,7 +227,7 @@ iMazing 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454847.jpg" />
+  <img src="Z:/picture/008/save_picture_454847.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ TG Pro (Temperature Gauge Pro) 2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454822.jpg" />
+  <img src="Z:/picture/008/save_picture_454822.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ Movist 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454612.jpg" />
+  <img src="Z:/picture/008/save_picture_454612.jpg" />
 </div>
 
 
@@ -198,7 +308,7 @@ Wondershare Recoverit 9.0.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453774.jpg" />
+  <img src="Z:/picture/008/save_picture_453774.jpg" />
 </div>
 
 
@@ -225,7 +335,7 @@ Network Radar 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453710.jpg" />
+  <img src="Z:/picture/008/save_picture_453710.jpg" />
 </div>
 
 
@@ -253,7 +363,7 @@ Jettison 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453708.jpg" />
+  <img src="Z:/picture/008/save_picture_453708.jpg" />
 </div>
 
 
@@ -282,7 +392,7 @@ MindNode 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453550.jpg" />
+  <img src="Z:/picture/008/save_picture_453550.jpg" />
 </div>
 
 
@@ -311,7 +421,7 @@ DayLite 6.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453539.jpg" />
+  <img src="Z:/picture/008/save_picture_453539.jpg" />
 </div>
 
 
@@ -339,7 +449,7 @@ Airmail 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453413.jpg" />
+  <img src="Z:/picture/008/save_picture_453413.jpg" />
 </div>
 
 
@@ -367,7 +477,7 @@ DaisyDisk 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453402.jpg" />
+  <img src="Z:/picture/008/save_picture_453402.jpg" />
 </div>
 
 
@@ -394,7 +504,7 @@ One Chat - All In One Messenger 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453230.jpg" />
+  <img src="Z:/picture/008/save_picture_453230.jpg" />
 </div>
 
 
@@ -423,7 +533,7 @@ Tuxera NTFS 2015 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452829.jpg" />
+  <img src="Z:/picture/008/save_picture_452829.jpg" />
 </div>
 
 
@@ -451,7 +561,7 @@ OS X El Capitan 10.11 (15A284) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452819.jpg" />
+  <img src="Z:/picture/008/save_picture_452819.jpg" />
 </div>
 
 
@@ -478,7 +588,7 @@ Aurora HDR 2017 v1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452776.jpg" />
+  <img src="Z:/picture/008/save_picture_452776.jpg" />
 </div>
 
 
@@ -504,7 +614,7 @@ PullTube 0.10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452716.jpg" />
+  <img src="Z:/picture/008/save_picture_452716.jpg" />
 </div>
 
 
@@ -533,7 +643,7 @@ Cocktail Sierra Edition 10.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452710.jpg" />
+  <img src="Z:/picture/008/save_picture_452710.jpg" />
 </div>
 
 
@@ -559,7 +669,7 @@ Serial Box 09-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452408.jpg" />
+  <img src="Z:/picture/008/save_picture_452408.jpg" />
 </div>
 
 
@@ -588,7 +698,7 @@ GrandTotal 6 v6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451837.jpg" />
+  <img src="Z:/picture/008/save_picture_451837.jpg" />
 </div>
 
 
@@ -601,116 +711,6 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C321C80E60864707EEFE286C83B0B90404C25D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408960   (451834) от 14.09.2020
-
-DoYourData AppUninser Pro 5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451834.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A435D3558ABF088F89C022E6A84395E472DC513D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408917   (451833) от 14.09.2020
-
-MiniNote Pro 5.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451833.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
-
-В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D99D0883F845DBDCF70FC1C569679C535C4F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409014   (451832) от 14.09.2020
-
-Multitouch 1.18.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch!
-
-Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF18A88B58F7C0DAD6D7FA72EFC9CB2FC0B3CFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409013   (451825) от 14.09.2020
-
-Slidepad 1.0.36 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451825.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6259F65D529E30BCAEACD17340168DB1FEA12A81
 ```
 
 https://mybot314.ru/tekegram_catalog/

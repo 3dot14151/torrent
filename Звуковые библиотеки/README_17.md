@@ -1,3 +1,84 @@
+###  Публикация: 1336167   (282198) от 05.11.2019
+
+CL Projects - ROLAND JD-850 - RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_282198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к погружению в мир звуков одного из большинства культовых и легендарных синтезаторов начала девяностых годов. Воссозданный для работы в инструменте KONTAKT, Roland JD-850 cодержит вдохновляющие арпеджио, пышные подклады, жирные басы, яркие лиды и потрясающие звуки синтезатора в любой комбинации.Формат: Kontakt: NICNT, NKC, NKR, NCW, NKI, NKM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80FA86777A136434807D7031C5AFEE5B6285C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264487   (280872) от 23.11.2018
+
+Звуковые библиотеки - Christmas and New Year Music Sound Bundle [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas and New Year Music Sound Bundle - сборник музыкальных треков, объединенных общей тематикой - Рождество, Новый Год.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA34B4754392FAAF0AA5458A4773AC9FC59E24D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336670   (278838) от 07.11.2019
+
+Echo Sound Works - X Grand Piano - RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы знаем, что вы думаете. Еще одно пианино? Вероятно, существует больше библиотек сэмплов для фортепиано, чем для библиотек любого другого типа, но нет таких, как X Grand.
+
+Когда мы собирались создать X Grand, у нас были две цели:
+(   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NCW, NKI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9E36CAF2A189D962CD2E0C1024B14A3889D441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111678   (272185) от 12.11.2019
 
 Motion Array - Stock Music Collection by FFie & STouR [MP3, WAV]
@@ -6,7 +87,7 @@ Motion Array - Stock Music Collection by FFie & STouR [MP3, WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272185.jpg" />
+  <img src="Z:/picture/008/save_picture_272185.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Blastwave FX - Action Movie Sound Effects Library [WAV, MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271359.jpg" />
+  <img src="Z:/picture/008/save_picture_271359.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ NNM-Club Sound Cleaner's - Cleared Music Tracks (No Watermark) - Vol.01 [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270367.jpg" />
+  <img src="Z:/picture/008/save_picture_270367.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Soundiron - Hyperion Strings Elements [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264623.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Soundiron - David Oliver's Rhythmic Odyssey [Kontakt, WAV, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264229.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261371.jpg" />
+  <img src="Z:/picture/005/save_picture_261371.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Prime Loops - XXL R&B Drums by SYNTHiC4TE for Kontakt[NKI|WAV][английск�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258400.jpg" />
+  <img src="Z:/picture/005/save_picture_258400.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Monster Sounds - Heavy Weight Analogue Subs [WAV|Sampler Pathes Kontakt|Halion|E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258370.jpg" />
+  <img src="Z:/picture/005/save_picture_258370.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ The LoopLoft - Rock Steady vol.1 by DYNAMiCS[AiFF/Apple Loops/REX2/WAV][англ
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258330.jpg" />
+  <img src="Z:/picture/005/save_picture_258330.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ Inspiration Sounds - Pure Live Breaks Vol.1[ACID/APPLE LOOPS/REX/WAV][англи
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258328.jpg" />
+  <img src="Z:/picture/005/save_picture_258328.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ Wavesfactory - Royal Guitar for Kontakt [NKI|WAV][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258175.jpg" />
+  <img src="Z:/picture/005/save_picture_258175.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ Live Soundz Productions - All That Jazz Vol 3 (WAV/Reason/MIDI/Demo MP3)[анг�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258121.jpg" />
+  <img src="Z:/picture/005/save_picture_258121.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ Packs 10 000 Presets for Ni Massive[KSD/WAV/MIDI/Patches NMSV/EXE][англий�
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255978.jpg" />
+  <img src="Z:/picture/005/save_picture_255978.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ Looptroniks - Rock Hard (Fruity Loops/MIDI/WAV)[английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253506.jpg" />
+  <img src="Z:/picture/005/save_picture_253506.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251753.jpg" />
+  <img src="Z:/picture/005/save_picture_251753.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250158.jpg" />
+  <img src="Z:/picture/004/save_picture_250158.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249651.jpg" />
+  <img src="Z:/picture/004/save_picture_249651.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249285.jpg" />
+  <img src="Z:/picture/005/save_picture_249285.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248584.jpg" />
+  <img src="Z:/picture/004/save_picture_248584.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245613.jpg" />
+  <img src="Z:/picture/004/save_picture_245613.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245532.jpg" />
+  <img src="Z:/picture/004/save_picture_245532.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244179.jpg" />
 </div>
 
 
@@ -618,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243942.jpg" />
+  <img src="Z:/picture/004/save_picture_243942.jpg" />
 </div>
 
 
@@ -629,84 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0634836DD2E9825561E921538E0C1ABF8713BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542454   (243529) от 07.04.2022
-
-Звуковые библиотеки - Film Masters - Interstellar Movie Trailer Sound Effects [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью готовые звуковые эффекты для ваших постановок. 100% оригинальный контент от профессионалов звуковой индустрии.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097EF53F967E7E7849AE90682ADB0693425CF60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545124   (240826) от 18.04.2022
-
-Звуковые библиотеки -  Native Instruments - Session Bassist Prime Bass [Kontakt, OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240826.jpg" />
-</div>
-
-
-###  Подробнее
-
-PRIME BASS обеспечивает классическое звучание одного из самых культовых электрических басов в мире, запечатленное на оригинальной цельнокорпусной бас-гитаре 1981 года выпуска, изготовленной в США. Благодаря обилию риффов, петель и мелодий, сочиненных и исполненных профессиональными сессионными музыкантами, PRIME BASS предлагает все необходимое для создания проникновенных (   Читать дальше...   )Формат: Kontakt: NKSN, NKI, NKR, NICNT, NKC, NKX, NKA; OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0200C081FC56EFDE1CDEBD5B8E727DD8BF329040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576775   (235003) от 15.09.2022
-
-Звуковые библиотеки - Triune Digital - Monster SFX [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте дополнительное напряжение в своем фильме с помощью этого увлекательного материала из пакета Triune Digital Monster SFX .Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9B433A340FC27E24660DFB3BE0A5EFC7E9182C
 ```
 
 https://mybot314.ru/tekegram_catalog/

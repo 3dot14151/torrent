@@ -1,3 +1,112 @@
+###  Публикация: 1230938   (610522) от 15.06.2018
+
+iExplorer 4.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+
+iExplorer - утилита для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macroplant LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FE974DEA40C99AA9DDB479BEF1B97ABB9181DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230959   (610521) от 15.06.2018
+
+Pillars of Eternity II: Deadfire v1.1.0.0035 (2018) [Multi/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр. Подчините мир своей воле — исследуйте массу безграничных возможностей, включая детальную персонализацию героя, полную свободу в исследовании мира и (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Obsidian EntertainmentПоддерживаемая ОС: OS X 10.13.3 High Sierra 64-bit (or newer)Жанр: Adventure, RPGЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BAADA8B20DE32CC667FADB8B17C3F5C2A5C5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912512   (610492) от 26.06.2015
+
+Shadowrun: Dragonfall Director's Cut v. 1.0 (2014) [Ru] [OS X Native game]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610492.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании Director’s Cut исправлено все что только можно исправить. Текстуры более высокого разрешения, новая музыка и звуки, новая система инвентаря, обновленный HUD, исправленный баланс классов и оружия, добавлены новые более маленькие истории, новые виды оружия и кибернетических имплантов.
+
+На дворе 2052 год. Главный герой присоединяется к своей подруге Монике (   Читать дальше...   )Тип издания: OS X Native gameРелиз состоялся: 18.03.2014Разработчик: Harebrained SchemesПоддерживаемая ОС: 10.6+Жанр: Adventure, arcadeЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C635D400548C3F8A5F0B332CED39C11A795E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230923   (610446) от 15.06.2018
+
+TechTool Pro 10.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610446.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechTool Pro — диагностику заказывали?
+Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CD0843F156A5DB806CB5A97D687E513B8568C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296464   (610238) от 18.04.2019
 
 Movist 2.0.7 [En]
@@ -6,7 +115,7 @@ Movist 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610238.jpg" />
+  <img src="Z:/picture/008/save_picture_610238.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Mate: Universal Tab Translator 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610139.jpg" />
+  <img src="Z:/picture/008/save_picture_610139.jpg" />
 </div>
 
 
@@ -62,7 +171,7 @@ Boom 3D 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610124.jpg" />
+  <img src="Z:/picture/008/save_picture_610124.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ Autodesk Maya 2017 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609767.jpg" />
+  <img src="Z:/picture/008/save_picture_609767.jpg" />
 </div>
 
 
@@ -115,7 +224,7 @@ TurnTable 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609718.jpg" />
+  <img src="Z:/picture/008/save_picture_609718.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609632.jpg" />
+  <img src="Z:/picture/008/save_picture_609632.jpg" />
 </div>
 
 
@@ -171,7 +280,7 @@ RAR Extractor Max-Unzip Winrar 8.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609628.jpg" />
+  <img src="Z:/picture/008/save_picture_609628.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609612.jpg" />
+  <img src="Z:/picture/008/save_picture_609612.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ Swinsian 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609602.jpg" />
+  <img src="Z:/picture/008/save_picture_609602.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ Wondershare Filmora Х 11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609486.jpg" />
+  <img src="Z:/picture/008/save_picture_609486.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608784.jpg" />
+  <img src="Z:/picture/008/save_picture_608784.jpg" />
 </div>
 
 
@@ -304,7 +413,7 @@ iStat Menus 5.20 (669) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608748.jpg" />
+  <img src="Z:/picture/008/save_picture_608748.jpg" />
 </div>
 
 
@@ -333,7 +442,7 @@ Framer Studio 67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608604.jpg" />
+  <img src="Z:/picture/008/save_picture_608604.jpg" />
 </div>
 
 
@@ -362,7 +471,7 @@ iTools Pro 1.7.8.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608547.jpg" />
+  <img src="Z:/picture/008/save_picture_608547.jpg" />
 </div>
 
 
@@ -389,7 +498,7 @@ Oxygen Not Included v273690 (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608416.jpg" />
+  <img src="Z:/picture/008/save_picture_608416.jpg" />
 </div>
 
 
@@ -415,7 +524,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608204.jpg" />
+  <img src="Z:/picture/008/save_picture_608204.jpg" />
 </div>
 
 
@@ -442,7 +551,7 @@ Beamer 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607719.jpg" />
+  <img src="Z:/picture/008/save_picture_607719.jpg" />
 </div>
 
 
@@ -470,7 +579,7 @@ Hands Off! 3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607040.jpg" />
+  <img src="Z:/picture/008/save_picture_607040.jpg" />
 </div>
 
 
@@ -497,7 +606,7 @@ ChronoSync 4.8.7 & ChronoAgent 1.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606890.jpg" />
+  <img src="Z:/picture/008/save_picture_606890.jpg" />
 </div>
 
 
@@ -526,7 +635,7 @@ Wondershare Video Converter Ultimate 10.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605579.jpg" />
+  <img src="Z:/picture/008/save_picture_605579.jpg" />
 </div>
 
 
@@ -554,7 +663,7 @@ Things 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605570.jpg" />
+  <img src="Z:/picture/008/save_picture_605570.jpg" />
 </div>
 
 
@@ -582,7 +691,7 @@ Movavi PDF Editor 1.4.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605243.jpg" />
+  <img src="Z:/picture/008/save_picture_605243.jpg" />
 </div>
 
 
@@ -593,112 +702,6 @@ Movavi PDF Editor 1.4.0 [En/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5464685426832E6DFFF266A5A6878092EF440B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231557   (605238) от 18.06.2018
-
-KCNcrew Pack 06-15-18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605238.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на июнь 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7698D3A3E6DA431D3FE784B4E16B83AFC04CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231519   (605168) от 18.06.2018
-
-PDF Expert 2.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605168.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert — это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: Mac OS Х 10.11 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCECD3AAE5DF2A7EB3182E1C3E2FFF6C4BCE740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231449   (605157) от 18.06.2018
-
-IObit MacBooster 7.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605157.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacBooster поможет настроить и ускорить работу OS X. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: IObitПоддерживаемая ОС: Mac OS Х 10.7 +Язык интерфейса: Английский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370FCAD8408287AC5E89477AB3BEF4ADD3B7AA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231540   (605086) от 18.06.2018
-
-Movavi Photo Editor 5.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете хорошую программу для обработки фото на Mac? Вы только что ее нашли! Попробуйте автоматическую коррекцию качества, удобные ручные настройки и интеллектуальные инструменты – и редактируйте фотографии в свое удовольствие. Экспериментируйте с фонами, ретушируйте кожу и наносите макияж, удаляйте лишние предметы, применяйте эффекты и фильтры, выравнивайте горизонт, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B95187802452213E0C37C209C5F595C5854DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Cabela's African Adventures [Wii] [NTSC] [ENG] (2013)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369338.jpg" />
+  <img src="Z:/picture/008/save_picture_369338.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Borderlands 2 (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 1.07 / 6 DLC] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369096.jpg" />
+  <img src="Z:/picture/008/save_picture_369096.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Magic Orbz (2009) [PS3] [EUR] 4.21 [Repack / 1.03 / 3 DLC] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368343.jpg" />
+  <img src="Z:/picture/008/save_picture_368343.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bayonetta (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368320.jpg" />
+  <img src="Z:/picture/008/save_picture_368320.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ The Chronicles of Narnia: Prince Caspian (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367687.jpg" />
+  <img src="Z:/picture/008/save_picture_367687.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ PAC-MAN and the Ghostly Adventures (2013) [PS3] [USA] 4.46 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367523.jpg" />
+  <img src="Z:/picture/008/save_picture_367523.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ori and the Blind Forest: Definitive Edition (2019) [Switch] [EUR] 8.1.0 [Licens
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367392.jpg" />
+  <img src="Z:/picture/008/save_picture_367392.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Disney Epic Mickey 2: The Power of Two [Wii] [NTSC] [Eng] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367369.jpg" />
+  <img src="Z:/picture/008/save_picture_367369.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Marvel Avengers: Battle for Earth [ENG] (RegionFree) (LT+3.0/15574) (2012) [KINE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367361.jpg" />
+  <img src="Z:/picture/008/save_picture_367361.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ WWE 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367195.jpg" />
+  <img src="Z:/picture/008/save_picture_367195.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Burnout Paradise: The Ultimate Box (2009) [XBOX360] JTAG [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367065.jpg" />
+  <img src="Z:/picture/008/save_picture_367065.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sly Cooper: Thieves in Time / Sly Cooper: Прыжок во времени (2013
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366957.jpg" />
+  <img src="Z:/picture/008/save_picture_366957.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ NBA 2K18 (2017) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366955.jpg" />
+  <img src="Z:/picture/008/save_picture_366955.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Just Dance Disney Party 2 (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [M
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366091.jpg" />
+  <img src="Z:/picture/008/save_picture_366091.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365912.jpg" />
+  <img src="Z:/picture/008/save_picture_365912.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ The Walking Dead - Survival Instinct (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365909.jpg" />
+  <img src="Z:/picture/008/save_picture_365909.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Fight Night Champion [PS3] [USA] [En] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365793.jpg" />
+  <img src="Z:/picture/008/save_picture_365793.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365761.jpg" />
+  <img src="Z:/picture/008/save_picture_365761.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Assetto Corsa Competizione (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/En
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365628.jpg" />
+  <img src="Z:/picture/008/save_picture_365628.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mario + Rabbids Kingdom Battle (2017) [Switch] [EUR] 5.1.0 [License / DLC] [Ru/E
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365226.jpg" />
+  <img src="Z:/picture/008/save_picture_365226.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364945.jpg" />
+  <img src="Z:/picture/008/save_picture_364945.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tower of Guns: Special Edition (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364941.jpg" />
+  <img src="Z:/picture/008/save_picture_364941.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Phineas and Ferb: Across the 2nd Dimension / Финес и Ферб: Покор�
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364849.jpg" />
+  <img src="Z:/picture/008/save_picture_364849.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Space Hulk (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364818.jpg" />
+  <img src="Z:/picture/008/save_picture_364818.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364680.jpg" />
+  <img src="Z:/picture/008/save_picture_364680.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Injustice: Gods Among Us (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363633.jpg" />
+  <img src="Z:/picture/008/save_picture_363633.jpg" />
 </div>
 
 

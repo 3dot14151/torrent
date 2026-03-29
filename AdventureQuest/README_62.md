@@ -1,3 +1,81 @@
+###  Публикация: 1592630   (182713) от 23.11.2022
+
+Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bendy and the Dark Revival - это хоррор-игра на выживание от первого лица и долгожданное продолжение Bendy and the Ink Machine. Играйте за Одри, когда она исследует глубины удивительно жуткой анимационной студии, которая полностью сошла с ума. Сражайтесь с испачканными чернилами врагами, решайте головоломки и уклоняйтесь от постоянно скрывающегося Чернильного демона, (   Читать дальше...   )Тип издания: RepackРазработчик: Joey Drew StudiosЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83971873B0FF027D5C18491B8264842CF33D6877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665358   (182043) от 30.09.2023
+
+Return of the Phantom (1993) [En] (1.01) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы инспектор Рауль Монтан. Вы пришли в здание Парижского оперного театра, чтобы насладиться первым представлением «Торжествующего Дон Жуана» – оперы, написанной почти 100 лет назад Эриком, Призраком Оперы. Однако во время премьеры на зрителей падает люстра. Управляющий оперным театром месье Бри просит вас провести расследование, чтобы выяснить, кто несёт ответственность (   Читать дальше...   )Тип издания: LicenseРазработчик: MPS LabsЖанр: Приключение, Квест, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21CC24117CBE2CB0C454A822EB75590530A99CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427638   (181746) от 29.11.2020
+
+The Dark Pictures Anthology: Little Hope (2020) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Hope – вторая игра в антологии The Dark Pictures. Отрезанные от мира, застрявшие в городке Little Hope без надежды выбраться четверо студентов и их преподаватель отчаянно пытаются спастись  от кошмарных порождений ужаса, преследующих их в непроницаемом тумане.Тип издания: RepackРазработчик: Supermassive GamesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028A40B4236C929747CEF111B907CA0B9512FAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665775   (181211) от 01.10.2023
 
 realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
@@ -6,7 +84,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181208.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181113.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181033.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181032.jpg" />
+  <img src="Z:/picture/005/save_picture_181032.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181017.jpg" />
+  <img src="Z:/picture/005/save_picture_181017.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180618.jpg" />
+  <img src="Z:/picture/005/save_picture_180618.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ ZED (2019) [En] (1.3) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180507.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179834.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Demonologist (2023) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_179794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179794.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179789.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179616.jpg" />
+  <img src="Z:/picture/005/save_picture_179616.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179602.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Amok Runner (2022) [Ru/Multi] (9865847) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179471.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Twin Mirror (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176976.jpg" />
+  <img src="Z:/picture/005/save_picture_176976.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Bilkins Folly (2023) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176568.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Bilkins Folly (2023) [En] (1.0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176443.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176429.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176418.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176371.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176312.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176233.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595167   (175912) от 04.12.2022
-
-Escape from Monkey Island (2000) [Multi] (1.1) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отплевываясь от песка острова Обезьян, я продолжал гадать, не слишком ли превозносят жизнь лихого пирата. Я постарался не думать о недавних событиях, так сильно бередящих мне душу. Обо всем, начиная со стычки жены со смертью и заканчивая притеснением пиратской братии одним австралийским мультимиллионером.Тип издания: LicenseРазработчик: LucasArtsЖанр: Приключение, Квест, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский, Испанский и другиеЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595161   (175882) от 04.12.2022
-
-Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175882.jpg" />
-</div>
-
-
-###  Подробнее
-
-ales of Monkey Island Complete Pack – интереснейший компьютерный квест, который является продолжением серии одноимённых игр. Всё повествование ведётся от третьего лица. Сюжет повествует нам о молодом парне – пирате, который пытается спасти свою возлюбленную из кровожадных лап его зрейшего врага. Оба персонада сражаются на 2 совершенно разных. Происходит пальба из (   Читать дальше...   )Тип издания: LicenseРазработчик: TelltaleЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A9FF06DABDA7C4D6387EA3DE7413923A6A0FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595175   (175747) от 04.12.2022
-
-Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hello Neighbor 2 создана в мультяшном стиле, а вы исследуете открытый мир в поисках пропавшего Мистера Питерсона, являющегося соседом главного героя. Во время путешествия, персонаж замечает, что его самого проследует странное существо, желающее что-то плохое протагонисту. Антагонист, идущий по стопам все прохождение, постоянно улучшает свои способности в слежке и (   Читать дальше...   )Тип издания: LicenseРазработчик: Eerie Guest, tinyBuildЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3287998483FF35C2F362E57EE7E77D12A13D1D49
 ```
 
 https://mybot314.ru/tekegram_catalog/

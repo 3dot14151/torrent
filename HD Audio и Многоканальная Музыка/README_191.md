@@ -1,3 +1,235 @@
+###  Публикация: 1787578   (68726) от 26.03.2025
+
+Switch Opens - Switch Opens (2009) Released, 2010, GMR Music Group [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68726.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Express Death
+A2 - Pyramids
+A3 - Paper Walls
+A4 - He Dives Down(   Читать дальше...   )Жанр: Sludge, Stoner MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787687   (68724) от 26.03.2025
+
+Massimo Rosner - Long Rest (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Free Jazz & Avant-Garde>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long Rest? (6:07)
+02.  Funky Black Cat (5:00)
+03.  Massimo Rosner & Fernando Britto - Jund Midrange (6:03)
+04.  Mono-Red Burn (5:02)(   Читать дальше...   )Жанр: Free Jazz & Avant-GardeПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3CE4972D0E4CE3841693279889B6E2EAE27F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787666   (68723) от 26.03.2025
+
+Geraint Watkins and The Mosquitoes - Here and There (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deep In The Heart Of Texas (3:50)
+02.  House On The Prairie (3:09)
+03.  Go West (3:45)
+04.  Rollin' Man (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DA9700352E609E2AD2A34C2F2759ED5FCB97C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787669   (68720) от 26.03.2025
+
+Horse Drawn Cadillac - Mapless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kinda (3:22)
+02.  Chasing (5:11)
+03.  I'm Still Holding Beers (4:03)
+04.  Copyright Wrong (7:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A39E85CA637C85F4090BFDAF49E582E12343EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787662   (68718) от 26.03.2025
+
+Diem Gartopolus - Nor Th (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  New York (3:45)
+02.  Detroit (3:19)
+03.  New Orleans (3:42)
+04.  San Luis (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78FFBC82B399017CB50642F05BA08508B494AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787677   (68717) от 26.03.2025
+
+Huckleberry - Huck it (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You're only foolin' (2:17)
+02.  Sorry (3:54)
+03.  Sweet thing (3:33)
+04.  Everybody else (5:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BEA449A8D7C3D25EA446EA0358491C5D4F5734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787655   (68716) от 26.03.2025
+
+Albert White - The Definitive Albert White (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let's Go (2:45)
+02.  Untie Me (2:56)
+03.  Little Mixed Up (3:36)
+04.  Gypsy Woman (2:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297ADCFEE710739FCB6ECEE439C049D97A637AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787830   (68707) от 27.03.2025
+
+Ancient Silence - The 1st Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunter of the Night (3:14)
+02. Heart Survivor (4:23)
+03. Good Love (4:18)
+04. You're My Heartbeat Melody (3:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72A1867488D4B20F14CE8A05A267ACEC13F0465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787788   (68695) от 27.03.2025
 
 Savatage - Handful of Rain (1994) Released, 2022, Ear Music Classics [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy, Power Metal, Progressive Metal, Rock>
@@ -6,7 +238,7 @@ Savatage - Handful of Rain (1994) Released, 2022, Ear Music Classics [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68695.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68689.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Autopsy - The Tomb Within (2010) EP, Released, 2017, Peaceville [WavPack|32/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68679.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68678.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68663.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Desire - Games People Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68657.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Yelena Eckemoff - Scenes From the Dark Ages (2025) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68656.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68655.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Kalya Scintilla - Tales from the Path, Pt. 1 (2025) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68649.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Metallica - Load (1996) Released, 2001, Vertigo [FLAC|24/192|tracks|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68645.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Forlorn - Aether (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68642.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ The Crown - Crown of Thorns (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68640.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Black & Damned - Resurrection (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68639.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Bad Valentine - I Am A Mess (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68638.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Nightwish - Century Child (2002) Released, 2007, Universal Music Group Internati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68635.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Vampyros Lesbos - Vi Per Sanguinem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68629.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68627.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Ryder - Menagerie (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68626.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Ryder - Menagerie (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F7970C3ECD30024326CCB6CED6CC75DFC3C4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788132   (68620) от 28.03.2025
-
-Judicator - Concord (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Us Out of Slumber [00:06:37]
-02. Sawtooth [00:04:48]
-03. Johannah's Song [00:05:11]
-04. A Miracle of Life [00:05:17](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3D774C4E76FA7D15058763D326A3C9B42820B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787999   (68619) от 28.03.2025
-
-Solefald - Norron livskunst (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Post-Black Metal, Avant-garde>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68619.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Song Til Stormen
-A2 - Hugferdi
-A3 - Tittentattenteksti
-B1 - Stridsljod / Blackabilly(   Читать дальше...   )Жанр: Post-Black Metal, Avant-gardeПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFBA7B32CA4FBFFD904673A99A77E8B834C8392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788334   (68598) от 29.03.2025
-
-Ariana Grande - eternal sunshine deluxe: brighter days ahead (2024) brighter days ahead, 2025, Ariana Grande LP6 [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary R&B, Dance-pop, Downtempo,  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro (end of the world) [00:01:32]
-02. bye [00:02:44]
-03. don't wanna break up again [00:02:54]
-04. Saturn Returns Interlude [00:00:42](   Читать дальше...   )Жанр: Contemporary R&B, Dance-pop, Downtempo, Trap, VocalПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9EA5CB44C675E8C8D25BC76E06A71D18EAF3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788267   (68595) от 29.03.2025
-
-Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kicking & Screaming
-02. My Own Worst Enemy
-03. Tunnelvision
-04. Dance On Your Grave(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997305471A5AE30EF150B4697C7C8AF8E76C561F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788215   (68581) от 29.03.2025
-
-Mechina - Bellum Interruptum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric, Industrial, Symphonic, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68581.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Cruelty Is the Point [00:05:23]
-00. The Plague Pit [00:05:20]
-00. The Wasteful Energy of Words [00:06:17]
-00. Bellum Interruptum [00:10:12](   Читать дальше...   )Жанр: Atmospheric, Industrial, Symphonic, Death MetalПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB351C25706FC20139CC4C03321744A38D23C4E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788333   (68579) от 29.03.2025
-
-Maya Delilah - The Long Way Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin Again [00:03:58]
-02. Look At The State Of Me Now [00:03:18]
-03. Man Of The House [00:03:38]
-04. Maya, Maya, Maya [00:02:59](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEB1CB3FFF76013C5320FBF77FD3B351E4021FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788293   (68574) от 29.03.2025
-
-Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bless the Child
-02. End of All Hope
-03. Dead to the World
-04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD31883508A9DBDE2F31EA8BA8AD110031E65DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788246   (68561) от 29.03.2025
-
-Occult - 1992-1993 (2016) (Compilation) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studio Demo 1993
-A1 - Intro
-A2 - Leader In War
-A3 - Almighty Horde(   Читать дальше...   )Жанр: Death Metal, Black Metal, Thrash MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC02E8C804E3F74393D12EE84A6F8DC83C17676
 ```
 
 https://mybot314.ru/tekegram_catalog/

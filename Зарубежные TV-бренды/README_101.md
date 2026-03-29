@@ -1,3 +1,108 @@
+###  Публикация: 191811   (265498) от 07.12.2018
+
+BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (1996) DVDRip (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Дневник большой кошки» рассказывает нам о судьбах африканских больших кошек: львов, леопардов и гепардов.
+Съемочная группа из 8-ми операторов наблюдает за жизнью этих животных в заповеднике Масаи-Мара в Кении. Авторы фильма не просто рассказывают о больших кошках, как о видах, но и прослеживают судьбы каждого конкретного животного день за днём, неделя за неделей, (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC), Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6648B436703B798B533DC85A83C9AEEE5AD81A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140798   (264933) от 12.12.2017
+
+Лучшая десятка шедевров архитектуры / Top 10 the Art of Architecture (2015) DVB [H.264] (серии 10 из 10)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество наделено великими дарами. Возможно, самый великий из них – это наше воображение, потому что именно воображение даёт нам возможность преображать окружающий мир. Самые очевидные примеры этого – прекрасные здания, архитектура вокруг нас. Но какие произведения архитектуры мы должны увидеть хотя бы однажды? Узнать это нам поможет программа "Десятка лучших (   Читать дальше...   )Производство: Чехия, США, KM plus Media & Big MediaЖанр: Документальный, архитектура, строительствоРежиссер: Макс Серио, Войтех ФилчевПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: ~00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1666A76C02C82D01009481F21242A46B6A2AA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262273   (264798) от 08.12.2018
+
+Династии / Dynasties (2018) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-5 из 5) [EN / RU Sub]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный цикл является духовным наследником фильмов Планета Земля и Голубая Планета. Автор - знаменитый документалист Дэвид Аттенборо, в рассказах которого раскрываются настоящие истории о пяти из самых знаменитых, но находящихся в опасности видов животных: пингвины, шимпанзе, львы, гиены и тигры. Эти животные живут семьями, героически сражаясь против своих соперников (   Читать дальше...   )Производство: США, Великобритания, BBC America, BBC Studios, France TélévisionsЖанр: Документальный, природа, путешествие, исследование, флора, фаунаРежиссер: Рози ТомасПеревод: ОтсутствуетСубтитры: Русские, английские (отдельным файлом)Продолжительность: серии x ~00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91401C8CC45AA7175C8CE8D93BEC47348CD5082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340579   (263551) от 24.11.2019
+
+Неизведанные Территории / No Maps for These Territories (2000) DVDRip [AVO]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм-интервью с Уильямом ГибсономПроизводство: Великобритания, Mark Neale ProductionsЖанр: Документальный, загадки, путешествияРежиссер: Марк НилПеревод: Одноголосый закадровый, авторскийСубтитры: отсутствуютПродолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3D3DC45A126ADC0D0AC8DD0B1EBB1D65E255FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333877   (263505) от 24.11.2019
 
 Discovery. Хранители болот Эверглейдс / Guardians of the Glades (2019) HDTVRip (серии 6 из 6)
@@ -6,7 +111,7 @@ Discovery. Хранители болот Эверглейдс / Guardians of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263505.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263354.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263224.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263060.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ RD: Удивительные подземные секреты (Природны
 >>Readers Digest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263012.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262863.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262439.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262050.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260921.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ NG: Секретные материалы древности: Расшифров
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260008.jpg" />
+  <img src="Z:/picture/005/save_picture_260008.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258512.jpg" />
+  <img src="Z:/picture/005/save_picture_258512.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257948.jpg" />
+  <img src="Z:/picture/005/save_picture_257948.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257206.jpg" />
+  <img src="Z:/picture/005/save_picture_257206.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ Discovery: Знакомство с Лох-Несским чудовищем / Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257132.jpg" />
+  <img src="Z:/picture/005/save_picture_257132.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ NG: Суперсооружения: Мегакорабли. Крупнейший
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256171.jpg" />
+  <img src="Z:/picture/005/save_picture_256171.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ NG: Титаник: Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255834.jpg" />
+  <img src="Z:/picture/005/save_picture_255834.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255815.jpg" />
+  <img src="Z:/picture/005/save_picture_255815.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ Animal Planet & BBC: Дикая планета / Wild Planet (2003-2005) TVRip [
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254514.jpg" />
+  <img src="Z:/picture/005/save_picture_254514.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254430.jpg" />
+  <img src="Z:/picture/005/save_picture_254430.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ Discovery: Апокалипсис 2012-Откровения / Maya 2012 Prophecy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253706.jpg" />
+  <img src="Z:/picture/005/save_picture_253706.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253279.jpg" />
+  <img src="Z:/picture/005/save_picture_253279.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ NG: Взгляд изнутри. Супертрава марихуанна / Ins
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252709.jpg" />
+  <img src="Z:/picture/005/save_picture_252709.jpg" />
 </div>
 
 
@@ -564,111 +669,6 @@ NG: Взгляд изнутри. Супертрава марихуанна / Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6F1628B1E0E6C17C7E9ED3C986EEC3B53F2902D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496043   (252393) от 13.05.2012
-
-Discovery: Путешествие в Долину Царей / Journey Through the Valley of the Kings (2002) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странствуя по виртуальной долине, раскрываем тайны одного из самых знаменитых кладбищ мира, которым является Долина Царей... Долина Царей — долина в Египте, где за период примерно в 500 лет с 16 по 11 век до н. э. были построены гробницы для захоронения фараонов — царей Древнего Египта. Долина расположена на западном берегу Нила, напротив городка Фивы (современный Луксор). Состоит из 2-ух долин, Восточная долина, где находится большая часть гробниц, и Западная долина. Эта территория с конца XVIII века стала центром археологических и египтологических исследований, и до сих пор её гробницы и захоронения продолжают притягивать внимание исследователей. В наше время долина стала известной благодаря открытию гробницы Тутанхамона (после слухов о проклятии фараонов) и одним из самых знаменитых археологических мест в мире. В 1979 году, вместе с остатками Фивского некрополя, долина была признана ЮНЕСКО Всемирным наследием. В начале 2006 года учёные нашли в Долине Царей новую нетронутую однокамерную гробницу (ей присвоили (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F611C84ED6EE732A775802D2025C46AC1E1CA51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465174   (252043) от 25.05.2023
-
-NG: Расследования авиакатастроф / Air Crash Investigation (2021) HDTV [H.264/1080i] (сезон 21, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Двуголосый профессиональныйПродолжительность: серии по ~ 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4801252B94830178A8BEA8FB051BCECF4E0FE210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634808   (252018) от 26.05.2023
-
-Доисторическая планета / Prehistoric Planet (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 5) Невафильм
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая серия документальных фильмов от Джона Фавро и продюсеров сериала «Планета Земля» познакомит вас с прежде невиданными чудесами нашего мира. Вы вернётесь на 66 миллионов лет назад, когда землю, океаны и небо населяли величественные динозавры и множество других необычайных существ.Производство: США, Великобритания / Apple TV, BBC StudiosЖанр: документальный, доисторический мир, реконструкцияРежиссер: Энди Джонс, Адам ВалдезПеревод: Профессиональный многоголосый (Невафильм)Язык озвучки: русский, английскийСубтитры: русские (forced, full, SDH), английские (full, SDH), иврит, украинскиеПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92E844D50C4F850CC982539BB0A992BC67F8362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495571   (251547) от 12.05.2012
-
-Печать богов - Кайлас / Printing of Gods is Kailash (2003) WEBRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайлас сбрасывает любого, кто посмеет взобраться на него, а у тех, кто прикоснулся к горе возникают язвы, не заживающие несколько недель. «Никто из смертных не смеет взойти на гору, где обитают боги, тот, кто увидит лики богов, должен умереть» - так говоится в манускриптах.
-Эта гора считается священной многие тысячелетия у всех народностей, проживающих в близлежащих странах. В Индии каждый индуист почитает за огромное счастье увидеть ее раз в жизни. В древних книгах - ведах - написано, что все Гималаи священны и считаются обителью Богов, но Кайлас - это излюбленное место пребывания Шивы. А Шива, согласно вере индуистов, мастер сжигания дурной кармы и разрушения иллюзий. Из его трезубца устремляются на землю потоки невидимого небесного огня, и грязь превращается в кристально чистый поток энергии. Многие йоги и искренние искатели истины провели здесь не один год в медитациях и молитвах. И сегодня здесь иногда можно встретить людей, из глаз которых словно горная река из ледника, непрерывно льется поток любви и благодати. (   Читать дальше...   )Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA8566E3804EB4E05462EC44ACBEFF8D434667C
 ```
 
 https://mybot314.ru/tekegram_catalog/

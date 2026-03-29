@@ -1,3 +1,29 @@
+###  Публикация: 1064622   (425673) от 20.10.2016
+
+Военная приемка. Ка-52. Бросок «Аллигатора» (16.10.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой этого выпуска - российский ударно-разведывательный вертолет Ка-52 «Аллигатор». Его часто называют «летающим танком спецназа» и сравнивают со знаменитым американским «Апачем», причём совсем не в пользу последнего. Мощное вооружение: 24 управляемые ракеты «земля-воздух», 80 неуправляемых ракет, ракеты «воздух-воздух», авиабомбы общим весом до двух тонн (   Читать дальше...   )Телекомпания: ЗвездаЖанр: Телепередача, ДокументальныйПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D624B60EFD2E91D0D4F75409CF14B51268E49863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166543   (423912) от 17.09.2017
 
 Военная приемка. На колёсах в броне. На Эльбрус - Часть 1 я (17.09.2017) SATRip
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423912.jpg" />
+  <img src="Z:/picture/008/save_picture_423912.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418751.jpg" />
+  <img src="Z:/picture/008/save_picture_418751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415744.jpg" />
+  <img src="Z:/picture/008/save_picture_415744.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412264.jpg" />
+  <img src="Z:/picture/008/save_picture_412264.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411390.jpg" />
+  <img src="Z:/picture/008/save_picture_411390.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410713.jpg" />
+  <img src="Z:/picture/008/save_picture_410713.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410699.jpg" />
+  <img src="Z:/picture/008/save_picture_410699.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403929.jpg" />
+  <img src="Z:/picture/008/save_picture_403929.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380289.jpg" />
+  <img src="Z:/picture/008/save_picture_380289.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379584.jpg" />
+  <img src="Z:/picture/008/save_picture_379584.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379193.jpg" />
+  <img src="Z:/picture/008/save_picture_379193.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373813.jpg" />
+  <img src="Z:/picture/008/save_picture_373813.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372462.jpg" />
+  <img src="Z:/picture/008/save_picture_372462.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370173.jpg" />
+  <img src="Z:/picture/008/save_picture_370173.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369408.jpg" />
+  <img src="Z:/picture/008/save_picture_369408.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367761.jpg" />
+  <img src="Z:/picture/008/save_picture_367761.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367559.jpg" />
+  <img src="Z:/picture/008/save_picture_367559.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362749.jpg" />
+  <img src="Z:/picture/008/save_picture_362749.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360135.jpg" />
+  <img src="Z:/picture/008/save_picture_360135.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354178.jpg" />
+  <img src="Z:/picture/008/save_picture_354178.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353454.jpg" />
+  <img src="Z:/picture/008/save_picture_353454.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353421.jpg" />
+  <img src="Z:/picture/008/save_picture_353421.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347614.jpg" />
+  <img src="Z:/picture/008/save_picture_347614.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347478.jpg" />
+  <img src="Z:/picture/008/save_picture_347478.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345542.jpg" />
+  <img src="Z:/picture/008/save_picture_345542.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70A46D21D7F2CCD2866B6C5CC0018EFBF2BDEBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266948   (345271) от 08.10.2019
-
-Ракетный щит Родины (2018) WEB-DL [H.264/720p-LQ] (1-8 серия из 8)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холодная война между СССР и США послужила катализатором стремительного совершенствования различных видов вооружений. И наиболее бурно развивалось ракетное оружие. Оно проникло во все области военного дела. Ракетами вооружили самолёты и вертолёты, бронетехнику, надводные корабли и подводные лодки. Ракеты стали надёжным средством борьбы с танками, живой силой, средствами (   Читать дальше...   )Производство: Россия, ООО «Студия «КРЫЛЬЯ», ООО «ВИАНЖ ПРОДАКШН»Жанр: Документальный, вооружение, историяПродолжительность: 8 х ~ 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CC0A550343ABE4975F5A3A7A5C5CD732D95137
 ```
 
 https://mybot314.ru/tekegram_catalog/

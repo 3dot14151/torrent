@@ -1,3 +1,81 @@
+###  Публикация: 1621772   (1030635) от 26.03.2023
+
+Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планета Адельфа готова к исследованиям в ролевом шутере от третьего лица. Опасность и бойни здесь развиты настолько же, насколько мир и равноправие между игровыми персонажами. В Outcast - Second Contact мы будем играть за Cutter Slade. Он бывший солдат элитного подразделения войск. В его понимании - исследование - может стать смыслом жизни, поэтому он отправляется (   Читать дальше...   )Тип издания: LicenseРазработчик: AppealЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6223AF28CEB6183A23C80FEA01C27EBC70933031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575823   (1030617) от 26.03.2023
+
+Broken Pieces (2022) [Ru/Multi] (1.3.1 Build 10795835) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Pieces — это психологический триллер, действие которого разворачивается в прибрежном французском городке, по неизвестной причине оказавшемся вне времени. Разгадайте все загадки и соберите историю по кусочкам, чтобы раскрыть тайну этого мистического места.Тип издания: RepackРазработчик: Elseware Experience, Benoit Dereau, Mael VignauxЖанр: Adventure (Thriller), Action, Puzzle, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F14B921120AD1B7CA25C17E40F5FBD0C04A1E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443731   (1030543) от 18.02.2021
+
+Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в программу «Первопроходец» от «Киндред Аэроспейс», 4-ой по рейтингам компании по исследованию космоса! Твоя задача - определить, пригодна ли планета ARY-26 для жизни. И пусть мы тебя не обучили и не снабдили нужным оборудованием, всё равно удачи! В ярком приключении для одного или двух игроков вы играете за нового работника корпорации. Вас выбросили (   Читать дальше...   )Тип издания: LicenseРазработчик: TyphoonЖанр: Экшн, ExplorationЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1A82B490C1A6755FEE4A90ED4F4A49E1AB27C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448881   (1030340) от 19.02.2021
 
 The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
@@ -6,7 +84,7 @@ The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030340.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Shore (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029839.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ A Space for the Unbound (2023) [Multi] (1.0.30.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029764.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Find Yourself (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029425.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Breathedge (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028957.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ ColdSide (2020) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028760.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.3.27878/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028759.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ DISTRAINT (2015) [Ru/Multi] (1.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027661.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/En] (1.30/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027267.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Mundaun (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025870.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.8.0.1Fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025866.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025363.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Lust from Beyond (2021) [Ru/Multi] (1.0) License CODEX [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024967.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) Repack SpaceX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024689.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Arkham Horror: Mother's Embrace (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024662.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Visage (2020) [Ru/Multi] (3.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024655.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.19351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024330.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Genesis Noir (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024118.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Clea 2 (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024116.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024112.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Paradise Lost (2021) [Ru/Multi] (12490.1383cl.shipping) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023712.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ From The Darkness (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023355.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022685.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Raji: An Ancient Epic — это action-adventure, которая отправи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A4CEA75A32C41D9A13B6DE2D614EE5C71378EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414739   (1022658) от 04.04.2021
-
-The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022658.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Uncertain: Light At The End — игра в приключенческом жанре, действие которой происходит в постапокалиптическом мире. Окунитесь в загадочную атмосферу и примите решения, от которых будет зависеть судьба вашего героя.Тип издания: RepackРазработчик: New Game OrderЖанр: Adventure, Action, Puzzle, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591E12FDD465D996DC9C580AFF414E15DCB16192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460704   (1022353) от 06.04.2021
-
-ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры ENCODYA разворачивается в анитиутопическом будущем. Это приключение в жанре «укажи и щелкни», в котором очарование и творческий потенциал Studio Ghibli сочетаются с атмосферой «Бегущего по лезвию» и игровым юмором «Острова обезьян». Нео-Берлин, 2062 год. Девятилетняя сирота Тина и СЭМ-53, огромный неуклюжий робот-телохранитель, живут в самодельном домике (   Читать дальше...   )Тип издания: RepackРазработчик: Chaosmonger StudioЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB575C3A8DA3CA9B20632C758EE8EE10EC3575B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460945   (1022169) от 07.04.2021
-
-Lost Words: Beyond the Page (2021) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Words — атмосферное повествовательное приключение, которое разворачивается в личных дневниковых записях девочки по имени Иззи. В них вы исследуете фантастическую страну Эсторию, где слова обладают огромной силой. Благодаря захватывающей истории, мастерски воплощённой сценарным талантом Рианны Пратчетт, Lost Words: Beyond the Page завораживает игроков своим уникальным (   Читать дальше...   )Тип издания: LicenseРазработчик: Sketchbook Games, Fourth StateЖанр: Action, Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9246005148ED5A9CF87755DCD56E05B9E7555BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

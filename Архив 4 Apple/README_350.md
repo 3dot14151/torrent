@@ -1,3 +1,111 @@
+###  Публикация: 933693   (505190) от 02.09.2015
+
+Carbon Copy Cloner 4.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 сентября 2015Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2743F7AA310DBDDAD1C40D56197677859D211F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933898   (504175) от 03.09.2015
+
+DaisyDisk 4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_504175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случалось ли так, что Вы не знаете, куда подевался ЖД на 600 ГБ? Для того, чтобы выяснить кто занял всю площадь, еcть замечательная программа и имя ей — DaisyDisk.
+Данная программа предоставляет удобное визуальное представление вашего жесткого диска, позволяя пользователю определить, какие файлы наиболее «прожорливы» по части свободного дискового пространства и удалить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 сентября 2015Разработчик: Software Ambience Corp.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E21CD4603583A29CF8AF91A6D6833127D9A10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563715   (503824) от 15.07.2022
+
+Artstudio Pro 4.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1220CE06FC2E036C1290F6A1B67E5626BB51618B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563659   (503819) от 15.07.2022
+
+4K YouTube to MP3 Pro 4.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503819.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2022 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30DB6365A66B4793742AA19E580E3BE2413F151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563669   (503818) от 15.07.2022
 
 FontLab 8 v8.0.1.8228 beta [En]
@@ -6,7 +114,7 @@ FontLab 8 v8.0.1.8228 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503818.jpg" />
+  <img src="Z:/picture/008/save_picture_503818.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Athentech Perfectly Clear Video for Mac 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503815.jpg" />
+  <img src="Z:/picture/008/save_picture_503815.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ OmniPlayer Pro - Media Player 2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503814.jpg" />
+  <img src="Z:/picture/008/save_picture_503814.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ EditReady 22.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503813.jpg" />
+  <img src="Z:/picture/008/save_picture_503813.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ RAR Extractor  - unzi‪p‬ 10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503729.jpg" />
+  <img src="Z:/picture/008/save_picture_503729.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ Infuse PRO 7 v7.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503725.jpg" />
+  <img src="Z:/picture/008/save_picture_503725.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503724.jpg" />
+  <img src="Z:/picture/008/save_picture_503724.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Finder Windows 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503723.jpg" />
+  <img src="Z:/picture/008/save_picture_503723.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Path Finder 2135 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503721.jpg" />
+  <img src="Z:/picture/008/save_picture_503721.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ Magic Battery 7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503720.jpg" />
+  <img src="Z:/picture/008/save_picture_503720.jpg" />
 </div>
 
 
@@ -273,7 +381,7 @@ Sketch 90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503718.jpg" />
+  <img src="Z:/picture/008/save_picture_503718.jpg" />
 </div>
 
 
@@ -299,7 +407,7 @@ Worksheet Crafter Premium Edition 2022.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503711.jpg" />
+  <img src="Z:/picture/008/save_picture_503711.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ TechSmith Camtasia 2022 Studio 2022.0.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503613.jpg" />
+  <img src="Z:/picture/008/save_picture_503613.jpg" />
 </div>
 
 
@@ -351,7 +459,7 @@ UninstallPKG 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503559.jpg" />
+  <img src="Z:/picture/008/save_picture_503559.jpg" />
 </div>
 
 
@@ -379,7 +487,7 @@ Wondershare Filmora X 11.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503515.jpg" />
+  <img src="Z:/picture/008/save_picture_503515.jpg" />
 </div>
 
 
@@ -406,7 +514,7 @@ Algoriddim djay Pro 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503471.jpg" />
+  <img src="Z:/picture/008/save_picture_503471.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ Wondershare UniConverter 14.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503436.jpg" />
+  <img src="Z:/picture/008/save_picture_503436.jpg" />
 </div>
 
 
@@ -459,7 +567,7 @@ TechTool Pro 15 v15.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503430.jpg" />
+  <img src="Z:/picture/008/save_picture_503430.jpg" />
 </div>
 
 
@@ -486,7 +594,7 @@ Audio Hijack 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503426.jpg" />
+  <img src="Z:/picture/008/save_picture_503426.jpg" />
 </div>
 
 
@@ -513,7 +621,7 @@ Apple Final Cut Pro X 10.2.2,  Motion 5.2.2 & Compressor 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502952.jpg" />
+  <img src="Z:/picture/008/save_picture_502952.jpg" />
 </div>
 
 
@@ -542,7 +650,7 @@ PDF Search 12.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502768.jpg" />
+  <img src="Z:/picture/008/save_picture_502768.jpg" />
 </div>
 
 
@@ -568,7 +676,7 @@ Synkmark 2.12.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502767.jpg" />
+  <img src="Z:/picture/008/save_picture_502767.jpg" />
 </div>
 
 
@@ -579,110 +687,6 @@ Synkmark - это приложение для синхронизации зак�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:300A56E84E6B1D2459757DF2F6B89243D8549545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563971   (502766) от 16.07.2022
-
-BookMacster 2.12.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502766.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие битых ссылок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Sheep SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33172C86A02B54DC9DE17D57D5293E1CDFB7245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564000   (502715) от 16.07.2022
-
-Darkroom: Photo & Video Editor 6.0.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A157C58B52DB51E0916A4AE96A3987B8DCC6CB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563976   (502710) от 16.07.2022
-
-TunesKit AceMovi Video Editor 4.9.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502710.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.05.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A239774B1429DB9152E185FBDEFAAA9B2F5A01B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563899   (502709) от 16.07.2022
-
-Iridient Developer 3.7.1 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D495CD7859BCD28F0E3243AC1AC1311B0C745A19
 ```
 
 https://mybot314.ru/tekegram_catalog/

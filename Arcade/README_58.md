@@ -1,3 +1,29 @@
+###  Публикация: 1072683   (14676) от 14.06.2025
+
+Creatures: Village (2004) [En] (1.11) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норны - сообразительные фантастические существа. Вам предстоит заботится о них, играть с ними и исследовать гигантский мир Деревни Норнов, где вас ожидает знакомство с местной фауной и противостояние с подлыми эттинами и заразными гренделями. Приключения начинаются!Тип издания: LicenseРазработчик: Gameware DevelopmentЖанр: Logic, Virtual petsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801981   (14650) от 14.06.2025
 
 Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
@@ -6,7 +32,7 @@ Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14650.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Downward (2017) [Multi] (2.0.2) Scene Rune [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14552.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14522.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14507.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14261.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14052.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13915.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Reality Rash (2025) [Multi] (1.0.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13815.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13781.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13660.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13633.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13528.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2013.012.003.008.007/dlc) Scene R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13471.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Capcom Fighting Collection 2 (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13407.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Nanomon Virtual Pet (2025) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13170.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Too Many Clothes Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13009.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12985.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12958.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.5.1.23830) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12881.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12823.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Frog Jump (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12601.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12385.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12336.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12155.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11703.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31407A4B1409B6624187F273BDE6D2D6F1060153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762150   (11371) от 16.07.2025
-
-Ale & Tale Tavern (2024) [Ru/Multi] (1.5.8) Repack Pioneer
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ale and Tale Tavern - это кооперативный фэнтезийный симулятор таверны от первого лица с открытым миром. Геймеры вступают в роль владельца таверны, которому поручено восстановить заброшенное заведение до его былой славы. Тайтл предлагает множество занятий, включая кулинарию, рыбалку, охоту и исследования. Юзеры могут выполнять разнообразные квесты, взаимодействовать (   Читать дальше...   )Тип издания: RepackРазработчик: Scienart GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23138750ED8C78F7D8C8FBF60DE232D2941AFF9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

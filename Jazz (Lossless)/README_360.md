@@ -1,3 +1,119 @@
+###  Публикация: 1744184   (46185) от 20.08.2024
+
+Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Universal [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Norman Granz [0:34]
+02. Come Out, Come Out Wherever You Are [3:51]
+03. Baubles, Bangels and Beads [5:13]
+04. Laura [4:31](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A476A8E2A17DD788C076D89C028D04FD7802557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744373   (46102) от 21.08.2024
+
+VA - Ultimate Chilly Soothing Instrumentals for Rest, Study or Travel (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - One of a Kind (4:06)
+02. eJazz Artistry - Beautiful (4:26)
+03. Chillaxing Jazz Kollektion - Changing Seasons (5:18)
+04. Konstantin Klashtorni - Nice and Easy (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B8CB093D3A85D33B283BBE786E30DBD100350E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744368   (46091) от 21.08.2024
+
+VA - Jazz & Blues Smooth Mix for Warm Summer Nights (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivo Kvesta - Romanza (4:24)
+02. Evan Cauble-Johnson - Running up That Hill (5:16)
+03. JJ Soul Band - Moonbright-Moonlight (5:00)
+04. Gantt Mann Kushner - End of the Sweet Dreams (7:02)(   Читать дальше...   )Жанр: Smooth Jazz, BluesПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28986AE6E55F831E7C63C18E0A7DDA6338C5CA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744341   (46082) от 21.08.2024
+
+Chet Baker - Stairway To The Stars (1965) 1996, Prestige [FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherokee [6:56]
+02. Bevan Beeps [5:04]
+03. Comin' On [5:42]
+04. Stairway to the Stars [4:45](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64929F88513B72456E995B1C22478E97FEEBFD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744372   (46078) от 21.08.2024
 
 VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -6,7 +122,7 @@ VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46078.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46075.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46073.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Lao Tizer Band - Amplify (2024) [FLAC|Lossless|image + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43252.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43148.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42618.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42615.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Frank Sinatra - S'Wonderful (1996) Razamataz [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42510.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42414.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42300.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Frank Sinatra & Tommy Dorsey - Love Songs (1940 - 1941) 1997, RCA Victor [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41889.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Phos Toni - Electro Swing Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41783.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Chick Corea - Priceless Jazz Collection (1986 - 1993) 1997, GRP [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41669.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Frank Sinatra - Everybody Loves Somebody (1939 - 1954) 2005, MCSA Entertainment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41664.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Joe Pass - The Best Of Joe Pass (1973 - 1982) 1991, Pablo [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41581.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Romantic Piano Music Masters - Jazz Music for Sex & Romance (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41174.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Art Tatum - Jewels In The Treasure Box (1953) 3CD, 2024, Resonance Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41158.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Marilyn Monroe - Deluxe: I Wanna Be Loved By You (2012) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40895.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Vintage Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40775.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40771.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40769.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40768.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Main
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1A69A8E839231A486D054D3055FCFAF50AD005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755272   (40352) от 14.10.2024
-
-Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sign of the Times [2:15]
-02. The Phoenix Love Theme (Senza Fine) [2:53]
-03. Nowhere Man [2:41]
-04. Dindi [2:21](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755546   (40194) от 16.10.2024
-
-VA - Soothing & Soft Lounge Playlist to Unwind and Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - The Way You Look Tonight (4:55)
-02. Chillaxonic - Together We Fly (4:08)
-03. Love Suggestions - Can't Hold Us (4:00)
-04. Chillaxonic - So Far, But so Near (4:32)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF94031BCE7EF0DD2F0D3060A2985ECE145F1DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755541   (40172) от 16.10.2024
-
-VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Reality (4:01)
-02. Chillaxonic - Iridescent (5:10)
-03. Konstantin Klashtorni - Used to Love You (4:08)
-04. Chillaxing Jazz Kollektion - Touch (3:52)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD05AC40AC168E3FC6EBB629A209A253B9A025DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755540   (40171) от 16.10.2024
-
-VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - My World (5:25)
-02. Chillaxing Jazz Kollektion - Blessings (4:34)
-03. Chillaxonic - Ethereal (5:09)
-04. Chillaxing Jazz Kollektion - One Hundred Ways (3:54)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E02737E3C64713EE3DE821228B998031190648
 ```
 
 https://mybot314.ru/tekegram_catalog/

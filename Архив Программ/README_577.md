@@ -6,7 +6,7 @@ Master PDF Editor 5.3.02 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762004.jpg" />
+  <img src="Z:/picture/008/save_picture_762004.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Wipe & Clean 20.0 Build 2223 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762002.jpg" />
+  <img src="Z:/picture/008/save_picture_762002.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Registry Cleaner 7.0.22.0 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762000.jpg" />
+  <img src="Z:/picture/008/save_picture_762000.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GeoGebra 6.0.523 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761995.jpg" />
+  <img src="Z:/picture/008/save_picture_761995.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Display Driver Uninstaller 18.0.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761992.jpg" />
+  <img src="Z:/picture/008/save_picture_761992.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TweakPower 1.101 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761986.jpg" />
+  <img src="Z:/picture/008/save_picture_761986.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MEmu 7.2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761976.jpg" />
+  <img src="Z:/picture/008/save_picture_761976.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Any Video Converter Ultimate 7.0.3 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761970.jpg" />
+  <img src="Z:/picture/008/save_picture_761970.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Windows 10 Manager 3.2.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761948.jpg" />
+  <img src="Z:/picture/008/save_picture_761948.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Free Download Manager 5.1.38 Build 7312 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761873.jpg" />
+  <img src="Z:/picture/008/save_picture_761873.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Athentech Perfectly Clear + Essentials v3.6.3.1435 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761868.jpg" />
+  <img src="Z:/picture/008/save_picture_761868.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ WinToHDD 4.4 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761860.jpg" />
+  <img src="Z:/picture/008/save_picture_761860.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Flash Player Pro v4.7 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761858.jpg" />
+  <img src="Z:/picture/008/save_picture_761858.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Google Chrome 97.0.4692.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761771.jpg" />
+  <img src="Z:/picture/008/save_picture_761771.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MediaHuman YouTube Downloader 3.9.9.65 (0201) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761767.jpg" />
+  <img src="Z:/picture/008/save_picture_761767.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ashampoo UnInstaller 11.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761764.jpg" />
+  <img src="Z:/picture/008/save_picture_761764.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Paint.NET 4.3.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761763.jpg" />
+  <img src="Z:/picture/008/save_picture_761763.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NetLimiter Pro 4.0.40.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761733.jpg" />
+  <img src="Z:/picture/008/save_picture_761733.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ AAct 3.9.8 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761730.jpg" />
+  <img src="Z:/picture/008/save_picture_761730.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Movavi Video Suite 2020 20.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761699.jpg" />
+  <img src="Z:/picture/008/save_picture_761699.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NoxPlayer 6.6.1.1002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761687.jpg" />
+  <img src="Z:/picture/008/save_picture_761687.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Google Chrome 97.0.4692.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761655.jpg" />
+  <img src="Z:/picture/008/save_picture_761655.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sandboxie 5.55.5 / Sandboxie Plus 1.0.5 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761646.jpg" />
+  <img src="Z:/picture/008/save_picture_761646.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Windows 10 Manager 3.5.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761639.jpg" />
+  <img src="Z:/picture/008/save_picture_761639.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ qBittorrent 4.1.5 Dark (x64) Repack by Vladislav Suratov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761581.jpg" />
+  <img src="Z:/picture/008/save_picture_761581.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Advanced Installer Enterprise 8.1.1 Build 34480 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_761570.jpg" />
+  <img src="Z:/picture/005/save_picture_761570.jpg" />
 </div>
 
 

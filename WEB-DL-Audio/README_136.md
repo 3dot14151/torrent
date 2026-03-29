@@ -6,7 +6,7 @@ Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15557.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15555.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15552.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15551.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15541.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15535.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ WellBad - Oyster & Pearl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15534.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15467.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15464.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15356.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15350.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15147.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15146.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15144.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15143.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15142.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15141.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15139.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15138.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15137.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15136.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15132.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15043.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15037.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15026.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14825.jpg" />
 </div>
 
 

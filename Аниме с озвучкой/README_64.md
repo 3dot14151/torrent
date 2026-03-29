@@ -1,3 +1,30 @@
+###  Публикация: 1714365   (21087) от 18.04.2025
+
+Операция: Семейка Ёдзакура [ТВ-1] | Yozakura-san Chi no Daisakusen | Mission: Yozakura Family [2024, TV, 27 из 27] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21087.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти родителей Тайё Асано остался один-одинёшенек. Произошедшее так травмировало парня, что он замкнулся в себе и стал избегать друзей, и только Муцуми Ёдзакура, его подруга детства, смогла сохранить с ним связь.
+И всё бы ничего, но в один прекрасный день выясняется, что семья Муцуми — шпионы под прикрытием! Более того, её брат видит в Тайё угрозу, которую (   Читать дальше...   )Производство: Япония / Студия Silver LinkЖанр: Приключения, комедия, романтикаРежиссер: Минато МирайЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 27 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0885EB28C211E4E348C6C2E51B41F367BE79D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766778   (20655) от 22.04.2025
 
 Я перевоплотился в седьмого принца [ТВ-1] | Tensei Shitara Dai Nana Ouji Datta no de, Kimamani Majutsu o Kiwamemasu [2024, TV, 12 из 12] BDRip 1080p Raw+Rus
@@ -6,7 +33,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20655.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Super Lovers | Больше, чем возлюбленные [2016, TV, 10 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20371.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20200.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 Bonus Stage | Да благословя
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20084.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19772.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19767.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19386.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18641.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18600.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ Oshi no Ko 2 | Ребёнок идола | Звёздное дитя [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18599.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Chi. Chikyuu no Undou ni Tsuite | Orb: On the Movements of the Earth | О дви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18424.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 из 24] BDRip 1080p H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18224.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ Undead Unluck | Нежить и Неудача [2023, TV, 24 из 24] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17977.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ NEET Kunoichi to Nazeka Dousei Hajimemashita | Somehow, I Started Living With a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17613.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16705.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ Devil May Cry | Adi Shankar's Devil May Cry | И дьявол может пла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16396.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16033.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Гала
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15045.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14499.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14357.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14162.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14058.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13881.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13846.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13836.jpg" />
 </div>
 
 
@@ -648,33 +675,6 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:497DF086B6B2BD57C3E6CC091207B65A1404F4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790402   (13817) от 22.06.2025
-
-Я 300 лет убивала слизь и прокачалась на максимум [ТВ-2] | Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita Sono Ni [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встретились как-то в исекае слегка перекачанная ведьма, две драконихи, два слизёнка, призрак, эльфийка и демоница и... нет, это не анекдот! Это история про перерождённую Адзусу Аидзаву, что абсолютно случайно нафармила себе максимальный уровень и ну уж очень хотела спокойной жизни без приключений.
-Только вышло всё совсем наоборот: что ни день, то новая весёлая история. (   Читать дальше...   )Производство: Япония / Студия TeddyЖанр: Приключения, комедия, повседневность, фэнтези.Режиссер: Сугисима КунихисаЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B58117B5EB40110FB717A69CA3F76293FAA2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

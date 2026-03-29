@@ -6,7 +6,7 @@ VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514272.jpg" />
+  <img src="Z:/picture/008/save_picture_514272.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ C.C. Catch - Super Disco Hits (1989) [FLAC|Lossless]<Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513090.jpg" />
+  <img src="Z:/picture/008/save_picture_513090.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - ZYX Italo Disco New Generation. Vol. 1-6 (2012-2015) [FLAC|image+.cue]<Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511620.jpg" />
+  <img src="Z:/picture/008/save_picture_511620.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Ottawan - The Best (2006) [FLAC|Lossless]<Disco, Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511112.jpg" />
+  <img src="Z:/picture/008/save_picture_511112.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Lipps, Inc. - Disco collection (2001) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508385.jpg" />
+  <img src="Z:/picture/008/save_picture_508385.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Katz - Female Of The Species (1986) Reissue, Remastered, 2017 [FLAC|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507049.jpg" />
+  <img src="Z:/picture/008/save_picture_507049.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Zodiac - Disco Alliance & Music In The Universe (2003) Compilation[FLAC|image + 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505109.jpg" />
+  <img src="Z:/picture/008/save_picture_505109.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Dina Summer - Rimini (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503519.jpg" />
+  <img src="Z:/picture/008/save_picture_503519.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Fun Fun - The 12'' Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502599.jpg" />
+  <img src="Z:/picture/008/save_picture_502599.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Umberto Tozzi - Yesterday Today  1976-2012  (2012) 2CD [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500977.jpg" />
+  <img src="Z:/picture/008/save_picture_500977.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Disco Discharge - Cruising The Beats (2011) 2CD [FLAC|Lossless]<Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500221.jpg" />
+  <img src="Z:/picture/008/save_picture_500221.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Silvetti - Spring Rain  (2006) [FLAC|Lossless]<Disco,Funk,Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499169.jpg" />
+  <img src="Z:/picture/008/save_picture_499169.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Disco Discharge - Classic Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499115.jpg" />
+  <img src="Z:/picture/008/save_picture_499115.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Disco Discharge - Euro Disco (2009) 2CD [FLAC|Lossless]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499108.jpg" />
+  <img src="Z:/picture/008/save_picture_499108.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Pop & Rock Klub80 (2007) 2CD[FLAC|Lossless]<Pop, Rock, Disco, Oldes>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499053.jpg" />
+  <img src="Z:/picture/008/save_picture_499053.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Joy - Enjoy (2011) [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498069.jpg" />
+  <img src="Z:/picture/008/save_picture_498069.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ F.R. David - Reference 80 (2011) [FLAC|Lossless]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498065.jpg" />
+  <img src="Z:/picture/008/save_picture_498065.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Eddy Huntington - Greatest Hits & Remixes (2018) 2CD, Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496588.jpg" />
+  <img src="Z:/picture/008/save_picture_496588.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Super Eurobeat Vol. 240 - Anniversary Нits 100 Tracks (2016)2CD [FLАС|Lo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496468.jpg" />
+  <img src="Z:/picture/008/save_picture_496468.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ London Boys - Golden Disco Hits (2001) [FLAC|image + .cue]<Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495925.jpg" />
+  <img src="Z:/picture/008/save_picture_495925.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Baltimora - Tarzan Boy: The World Of Baltimora (2010) [FLAC|Lossless|image + .cu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494097.jpg" />
+  <img src="Z:/picture/008/save_picture_494097.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Arabesque - The Best - Легенды дискотек 80-х (2008) Compilation[
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493722.jpg" />
+  <img src="Z:/picture/008/save_picture_493722.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - Italo Dance Club (2005) 2CD[FLAC|Lossless]<Disc, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493435.jpg" />
+  <img src="Z:/picture/008/save_picture_493435.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ VA - Disco Discharge. Disco Boogie (2010) 2CD[FLAC|Lossless]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493162.jpg" />
+  <img src="Z:/picture/008/save_picture_493162.jpg" />
 </div>
 
 
@@ -779,7 +779,7 @@ VA - Italo Made In Spain (2017) CDr, Compilation, Partially Mixed [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492621.jpg" />
+  <img src="Z:/picture/008/save_picture_492621.jpg" />
 </div>
 
 
@@ -808,7 +808,7 @@ Bad Boys Blue - 25-The Long Mixes (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492188.jpg" />
+  <img src="Z:/picture/008/save_picture_492188.jpg" />
 </div>
 
 

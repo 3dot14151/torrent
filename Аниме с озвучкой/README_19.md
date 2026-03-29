@@ -1,3 +1,29 @@
+###  Публикация: 1204780   (784224) от 07.02.2018
+
+Gokudou-kun Manyuuki | Gokudo | Путешественник Гокудо [1999, TV, 26 из 26] DVDRip 480p raw + rus + eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будь у Лины Инверс сын или племянник, его точно бы звали Гокудо Юкотт Киканский! Этот нахальный блондинчик 17 лет не отягощен ни моралью, ни принципами, а хочет от жизни лишь одного – денег, славы и девочек. Он и старушку-гадалку ограбить может – нечего предсказывать всякую ерунду. Отсюда начинается цепочка приключений, в ходе которых к эгоисту-цинику Гокудо присоединяются (   Читать дальше...   )Производство: студия TransartsЖанр: приключения, комедия, фэнтезиРежиссер: Сугисима КунихисаПеревод: русские субтитры Vik Pol; английские субтитры Discotech MediaЯзык озвучки: Русский, Японский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 26 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD32941BC346DA0F689284F036F3C42BA16AAA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389312   (784121) от 11.06.2020
 
 Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Movie] BDRip 1080p 10-bit raw+rus
@@ -6,7 +32,7 @@ Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Mov
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784121.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782989.jpg" />
+  <img src="Z:/picture/008/save_picture_782989.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kuroshitsuji / Black Butler / Темный дворецкий [2008, TV, 24 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782986.jpg" />
+  <img src="Z:/picture/008/save_picture_782986.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781750.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Shokugeki no Souma: San no Sara | Кулинарные поединки Сомы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781749.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ New Game! | Новая игра! [TV-1] [2016, TV, 12 ep + OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780920.jpg" />
+  <img src="Z:/picture/008/save_picture_780920.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Hajimete no Gal | My First Girlfriend Is a Gal | Моя первая гяру [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776260.jpg" />
+  <img src="Z:/picture/008/save_picture_776260.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Noragami | Noragami Aragoto | Бездомный Бог | Бог-Бродяга 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774875.jpg" />
+  <img src="Z:/picture/008/save_picture_774875.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Ajin (2016) / Получеловек [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774680.jpg" />
+  <img src="Z:/picture/008/save_picture_774680.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Sewayaki Kitsune no Senko-san | Заботливая Лисица Сэнко [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772430.jpg" />
+  <img src="Z:/picture/008/save_picture_772430.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Strike Witches 2 | Штурмовые Ведьмы [ТВ-2] [2010, TV, 12 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772429.jpg" />
+  <img src="Z:/picture/008/save_picture_772429.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772428.jpg" />
+  <img src="Z:/picture/008/save_picture_772428.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Yesterday o Utatte | Sing "Yesterday" for Me | Спой мне "Yesterday" [2020
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772427.jpg" />
+  <img src="Z:/picture/008/save_picture_772427.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772223.jpg" />
+  <img src="Z:/picture/008/save_picture_772223.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Akatsuki no Yona / Рассвет Йоны (2014, TV, 24) HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770335.jpg" />
+  <img src="Z:/picture/008/save_picture_770335.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ ReLife | Повторная Жизнь [2016, TV, 13 ep + 4 OVA] BDRip 1080p 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770275.jpg" />
+  <img src="Z:/picture/008/save_picture_770275.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Ore no Imouto | Ну не Может Моя Сестрёнка Быть Тако
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770273.jpg" />
+  <img src="Z:/picture/008/save_picture_770273.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Another | Иная [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770271.jpg" />
+  <img src="Z:/picture/008/save_picture_770271.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 из 12 эп.] WEB-DL 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769266.jpg" />
+  <img src="Z:/picture/008/save_picture_769266.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Tachibanakan to Lie Angle | Любовные Страсти Пансиона Т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768908.jpg" />
+  <img src="Z:/picture/008/save_picture_768908.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Carnival Phantasm | Карнавальный Фантазм [2011, TV, 12 ep + 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768903.jpg" />
+  <img src="Z:/picture/008/save_picture_768903.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Сред�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768837.jpg" />
+  <img src="Z:/picture/008/save_picture_768837.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Sora no Otoshimono Final: Eternal My Master | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768836.jpg" />
+  <img src="Z:/picture/008/save_picture_768836.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768835.jpg" />
+  <img src="Z:/picture/008/save_picture_768835.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768833.jpg" />
+  <img src="Z:/picture/008/save_picture_768833.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BF1F2EC434E5C2BBA2FFF0AB36AC9A0777624A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392874   (768832) от 28.06.2020
-
-Sora no Otoshimono: Forte | Утраченное Небесами: Сильнейшая [TV-2] [2010, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно Томоки Сакурай привыкает к жизни с двумя ангелоидами, Икар и Нимфой, однако он по-прежнему видит странные сны и, в конце концов, просит своих друзей помочь ему разобраться с этим.
-Нимфа призывает устройство, позволяющее людям (но не ангелоидам) проникать в чужие сны. Хотя поначалу устройство не срабатывает, впоследствии они всё же попадают в сон Томоки, (   Читать дальше...   )Производство: AIC, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Сайто ХисасиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6BF10895545F9ED95445CE26C788714C2FB56C
 ```
 
 https://mybot314.ru/tekegram_catalog/

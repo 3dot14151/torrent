@@ -6,7 +6,7 @@ Free Studio 6.6.33.213 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860653.jpg" />
+  <img src="Z:/picture/008/save_picture_860653.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Java SE Runtime Environment 8 Update 77 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860641.jpg" />
+  <img src="Z:/picture/008/save_picture_860641.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.6.59347 Stable DC 24.03.2016 + Portable (x86/x64) by SamLab [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860640.jpg" />
+  <img src="Z:/picture/008/save_picture_860640.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860567.jpg" />
+  <img src="Z:/picture/008/save_picture_860567.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Daum PotPlayer 1.6.59347 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860531.jpg" />
+  <img src="Z:/picture/008/save_picture_860531.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FastStone Capture 8.4 RePack (&Portable) by VIPol (23.03.2016) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860529.jpg" />
+  <img src="Z:/picture/008/save_picture_860529.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AnyDesk 2.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860523.jpg" />
+  <img src="Z:/picture/008/save_picture_860523.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FreeFileSync 10.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860484.jpg" />
+  <img src="Z:/picture/008/save_picture_860484.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IObit Driver Booster Pro 3.3.0.744 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860412.jpg" />
+  <img src="Z:/picture/008/save_picture_860412.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ DriverPack Solution 16.3 Full + Драйвер-Паки 16.03.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860404.jpg" />
+  <img src="Z:/picture/008/save_picture_860404.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SUMo Pro 5.10.15.453 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860378.jpg" />
+  <img src="Z:/picture/008/save_picture_860378.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860327.jpg" />
+  <img src="Z:/picture/008/save_picture_860327.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ KeepVid Pro 6.1.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860315.jpg" />
+  <img src="Z:/picture/008/save_picture_860315.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860310.jpg" />
+  <img src="Z:/picture/008/save_picture_860310.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Network Scanner 4.2.0 build 207 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860304.jpg" />
+  <img src="Z:/picture/008/save_picture_860304.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Acrobat Pro DC 2015.010.20060 Lite Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860295.jpg" />
+  <img src="Z:/picture/008/save_picture_860295.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ FastStone Capture 8.4 RePack (& Portable) by D!akov (24.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860284.jpg" />
+  <img src="Z:/picture/008/save_picture_860284.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Q-Dir 8.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860275.jpg" />
+  <img src="Z:/picture/008/save_picture_860275.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PureSync 5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860271.jpg" />
+  <img src="Z:/picture/008/save_picture_860271.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860265.jpg" />
+  <img src="Z:/picture/008/save_picture_860265.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wise System Monitor 1.5.2.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860257.jpg" />
+  <img src="Z:/picture/008/save_picture_860257.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860244.jpg" />
+  <img src="Z:/picture/008/save_picture_860244.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Wi-Fi Scanner 3.3.0 build 119 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860180.jpg" />
+  <img src="Z:/picture/008/save_picture_860180.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Remote Manipulator System 6.5.0.8 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860178.jpg" />
+  <img src="Z:/picture/008/save_picture_860178.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Viber 12.8.0.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860171.jpg" />
+  <img src="Z:/picture/008/save_picture_860171.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ K-Lite Codec Pack Update 15.4.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860168.jpg" />
+  <img src="Z:/picture/008/save_picture_860168.jpg" />
 </div>
 
 

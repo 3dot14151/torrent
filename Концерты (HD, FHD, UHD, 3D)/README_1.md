@@ -1,3 +1,84 @@
+###  Публикация: 1446897   (1032172) от 11.02.2021
+
+Милен Фармер - Заключительное действо / Mylene Farmer L'Ultime Creation (2020) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3) [EN / RU Sub]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о подготовке Милен и её команды к грандиозному шоу, которое состоялось в июне 2019 в Paris La Défense Arena. Все 9 концертов были аншлаговым, суммарно разошлось 240 тыс. билетов. Позднее, в том же году, о шоу был выпущен BluRay 4K "Mylene Farmer – Le Film". Предлагаемый Вашему вниманию фильм получил название «l’Ultime Création» (   Читать дальше...   )Производство: Франция, Amazon StudiosЖанр: Документальный, музыкаРежиссер: Матье СпадароПеревод: ОтсутствуетСубтитры: Русские (неотключаемые)Продолжительность: 3x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2152C9ED55D5971E85013046445BF320E1383B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450075   (1029331) от 24.02.2021
+
+Квартирник НТВ у Маргулиса. Группа КняZz (22.02.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в 2011 году группа «КняZz» собрала воедино талантливых музыкантов и единомышленников: сегодня это настоящий творческий тандем во главе с бывшим участником «Короля и Шута» Андреем Князевым. Их дебютный макси-сингл «Человек-загадка» успешно стартовал в чартах, а одноименный трек стал визитной карточкой коллектива. Но настоящая популярность к ним пришла после (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A319947B7ED6DB8186DA03F962A323BC2BA22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449941   (1028835) от 27.02.2021
+
+Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные рок-иконы Uriah Heep были в отличном настроении, когда солнечным августовским вечером отыграли на тридцатой годовщине Wacken Open Air при огромной толпе!01. Grazed by Heaven
+02. Too Scared to Run
+03. Take Away My Soul
+04. Rainbow Demon(   Читать дальше...   )Производство: WackenTVЖанр: RockПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96E7C0BAD07D2D8CBDDECB6B43369B5534D12AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450928   (1028702) от 28.02.2021
 
 Квартирник НТВ у Маргулиса. Группа Louna (27.02.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +87,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028702.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028152.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027530.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Accept - Герои мирового рока в честь 25-летия АО �
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027509.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026556.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026404.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025420.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025302.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Within Temptation - Videos and Live - Essentials (Compilation) (2021) Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024853.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023582.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022365.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021579.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020483.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019266.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018532.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018346.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015771.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015718.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015714.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014812.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014521.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014487.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014112.jpg" />
 </div>
 
 
@@ -602,84 +683,6 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DEB1E52404CC375773CD0E82D5EAD6C4257D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471926   (1013806) от 28.05.2021
-
-Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия заключительного концерта группы Motley Crue, состоявшегося в Лос-Анджелесе 28, 30 и 31 декабря 2015 года.Производство: США | Eagle Rock EntertainmentЖанр: Glam Metal, Heavy MetalРежиссер: Christian LambПеревод: ОтсутствуетПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0581D5793FDACEF27D08C21C0F1949DB6BD121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476960   (1011265) от 13.06.2021
-
-Квартирник НТВ у Маргулиса. Группа Нейромонах Феофан (12.06.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011265.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — одна из самых необычных групп отечественной эстрады. Участникам удалось совместить несовместимые вещи — drum ’n’ bass и русско-народные мотивы. Музыкальная троица, состоящая из Нейромонаха Феофана, личность которого долгое время находилась в тени, Никодима и Медведя вот уже более 10 лет будоражит всех своими композициями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93997FDC496CCD414C74C133C682FE804C1FA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477176   (1011097) от 14.06.2021
-
-One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финские хард рокеры One Desire выпустили 11 июня свою новую концертную работу "One Night Only - Live In Helsinki" в вариантах CD/DVD, Blu-ray, LP. Это первый и долгожданный концертный альбом и видео группы (образовалась в 2012, а в 2017 выпустили свой дебютный альбом с одноименным названием). В марте 2020 года группа отправилась в путь с оркестром Night (   Читать дальше...   )Производство: Европа, Frontiers, Nuclear Blast RecordsЖанр: Концертная программа, рокАктеры: Андре Линман, Джимми Вестерлунд, Осси Сивула, Йонас КухлбергПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6FB1F8C0DF7DF4C9352DA9E03507827922B125
 ```
 
 https://mybot314.ru/tekegram_catalog/

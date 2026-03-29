@@ -1,3 +1,118 @@
+###  Публикация: 1678915   (142361) от 23.11.2023
+
+Николай Некрасов | Три страны света (2013) [MP3, Светлана Раскатова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
+Малоизвестный современному читателю роман «Три страны света», написанный русским поэтом Н.А. Некрасовым (при участии А.Я. Панаевой), – одно из увлекательных произведений русской прозы.
+Захватывающая приключенческая фабула, полные драматизма ситуация, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 40:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2481E8F83ACE6F4DB53EEAB15A9A0CAD2FAEE6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678956   (142329) от 23.11.2023
+
+Николай Некрасов | Жизнь Александры Ивановны (Радиоспектакль) (2018) [MP3, Игорь Дмитриев, Лидия Мельникова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Гостелерадиофонд. Редкие Записи.
+Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
+Инсценированный рассказ Николая Алексеевича Некрасова. В этом произведении Некрасов впервые затрагивает проблему положения женщины, изображает ее стремление к независимости, к самостоятельному труду.
+О главной (   Читать дальше...   )Жанр: Русская литература, классика, проза, драмаИздательство: ТРК «Петербург-Пятый канал»Продолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E6C733DE1749100F6152C8CE5C33BB4935619C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678946   (142306) от 23.11.2023
+
+Николай Некрасов | Похождения Хлыщова (Радиоспектакль) (2021) [MP3, Бруно Фрейндлих, Игорь Дмитриев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Гостелерадиофонд. Редкие Записи.
+Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
+Радиопостановка по мотивам рассказа Николая Алексеевича Некрасова «Новоизобретенная привилегированная краска братьев Дирлинг и Ко».
+1850 год. В надежде получить приданное в 200 000, несколько потрёпанный жизнью (   Читать дальше...   )Жанр: Русская литература, классика, водевильИздательство: ТРК «Петербург-Пятый канал»Продолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F757D4E0E8147F38E876DF71F63E4BFDB99DE93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678924   (141704) от 23.11.2023
+
+М. Кропивницкий, Николай Некрасов, Александр Писарев и др. | Старинные русские водевили (2012) [MP3, Михаил Яншин, Фаина Раневская и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Театр у микрофона. Гостелерадиофонд.
+Вашему вниманию предлагаются аудиопостановки известных водевилей XIX века, в которых участвуют знаменитые артисты Алексей Грибов, Николай Гриценко, Василий Меркурьев, Фаина Раневская, Рубен Симонов, Бруно Фрейндлих, Людмила Целиковская, Михаил Яншин и многие другие.
+
+ Николай Некрасов на NoNaMe Club (   Читать дальше...   )Жанр: Русская литература, классика, водевильИздательство: Студия «АРДИС»Продолжительность: 05:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D11FD7C5671A50339C276BBDE6E1B8EB527ACE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377466   (141331) от 23.11.2023
 
 Мигель де Сервантес Сааведра | Саламанская пещера (Радиоспектакль) (2003) [MP3, Людмила Касаткина и др.]
@@ -6,7 +121,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141331.jpg" />
 </div>
 
 
@@ -34,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141262.jpg" />
 </div>
 
 
@@ -60,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141240.jpg" />
 </div>
 
 
@@ -87,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141168.jpg" />
 </div>
 
 
@@ -114,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141078.jpg" />
 </div>
 
 
@@ -141,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141051.jpg" />
 </div>
 
 
@@ -168,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140925.jpg" />
 </div>
 
 
@@ -195,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140836.jpg" />
 </div>
 
 
@@ -221,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140621.jpg" />
 </div>
 
 
@@ -247,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140447.jpg" />
 </div>
 
 
@@ -274,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140354.jpg" />
 </div>
 
 
@@ -301,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140216.jpg" />
 </div>
 
 
@@ -329,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140153.jpg" />
 </div>
 
 
@@ -355,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139829.jpg" />
 </div>
 
 
@@ -382,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139410.jpg" />
 </div>
 
 
@@ -408,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139239.jpg" />
 </div>
 
 
@@ -434,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139232.jpg" />
 </div>
 
 
@@ -460,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139191.jpg" />
 </div>
 
 
@@ -488,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138988.jpg" />
 </div>
 
 
@@ -515,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138816.jpg" />
 </div>
 
 
@@ -542,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138607.jpg" />
 </div>
 
 
@@ -569,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138529.jpg" />
 </div>
 
 
@@ -582,115 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90741CAFC2A51C175763BAE6277FD0C978F2916F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679462   (138469) от 25.11.2023
-
-Дени Дидро | Монахиня (2005) [MP3, Вероника Язькова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «XVIII век. Зарубежная проза».
-Дени Дидро (05.10.1713 – 31.07.1784) – французский энциклопедист, беллетрист, драматург, просветитель и философ.
-В романе «Монахиня» развертывается трагическая история Сюзанны Симонен, насильно отданной в монастырь. Разоблачение института монашества перерастает в осуждение всякого насилия над правами человека: «Дать обет бедности (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 08:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A848B33F598C0C6AED06E233FC26374D0137A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679324   (138294) от 25.11.2023
-
-Денис Фонвизин | Недоросль (Радиоспектакль) (2006) [MP3, Сергей Харченко, Элла Далматова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шедевр русской драматургии XVIII века комедия «Недоросль», занимает особое место в русской культуре и является одним из основных произведений русской классической литературы, изучаемых в школе.
-Фонвизин – талантливый психолог, мыслитель, художник, был одним из наиболее ярких представителей русского дворянства, особенно остро воспринимавших нравственное опустошение (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: ИДДК, Бизнессофт, ГостелерадиофондПродолжительность: 02:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD8A91213AD98429F55F922646DB470A4CD89CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679493   (138267) от 25.11.2023
-
-Дени Дидро | Нескромные сокровища (2008) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дени Дидро (1713–1784) – французский писатель, философ-просветитель и драматург, основавший «Энциклопедию, или толковый словарь наук, искусств и ремёсел» (1751).
-В романе «Нескромные сокровища» старый колдун дарит императору Конго серебряный перстень, наделенный таинственной силой вызывать на откровение любую женщину. И вот «нескромные» женские сокровища, ко всеобщему (   Читать дальше...   )Жанр: Зарубежная литература, классика, фривольный романИздательство: МедиаКнигаПродолжительность: 12:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF50928CCA795F261F029F47D1B7EF1ED07F6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679458   (137985) от 25.11.2023
-
-Джон Эрнст Стейнбек | Заблудившийся автобус (2020) [MP3, Игорь Гмыза]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Эрнст Стейнбек (1902–1968) – американский прозаик, автор многих известных романов и повестей: «Гроздья гнева» (1939), «К востоку от рая» (1952), «О мышах и людях» (1937), «Зима тревоги нашей» (1961) и других, лауреат Нобелевской премии по литературе (1962).
-Джон Стейнбек не зря предварил этот блестящий, простой и глубоко психологичный роман эпиграфом из старинного (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Аудиокнига (АСТ)Продолжительность: 09:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204E63FC6A1440098FE92A49325AF6808BCD2C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1353467   (991969) от 18.01.2020
+
+Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 100% Alive [2:49]
+ 02 - How Proud You Must Feel [4:00]
+ 03 - The Party at the End of the World [3:45]
+ 04 - Heaven Can Wait [3:28](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A47C3443721BE8E1BFDFE987BAA45CCDFC6F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353534   (991743) от 18.01.2020
 
 VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Rock, Pop>
@@ -6,7 +35,7 @@ VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991743.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bonnie Tyler - All The Best (3CD) (1996) [MP3|320 кб/с]<pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991148.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Buddy Holly - The Ultimate Best Of Buddy (2011) [MP3|320 кб/с]<Rock-n-Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989398.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988617.jpg" />
 </div>
 
 
@@ -134,7 +163,7 @@ Ramona Falls - Intuit (2009) [MP3|320 kbps]<Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988500.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Elvis Presley - Elvis Best Hits (2010) [MP3|128 kbps]<Rock-n-Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988423.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ Mono Inc. - The Book of Fire (2020) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987014.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Ataraxia - Adolescence Of An Ancient (1986) [MP3|320 кб/с]<Rok>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984424.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ David Knopfler - Heartlands (2019) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983451.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ David Knopfler - Last Train Leaving (2020) [MP3|320 Kbps] <Classic Rock, Blues R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983448.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_982660.jpg" />
+  <img src="Z:/picture/005/save_picture_982660.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982261.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, G
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980700.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ David Bowie - Blackstar (2016) [MP3|320 кб/с] <Art Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980044.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Rainbow - Since You Been Gone - The Best Of Rainbow (2014) [MP3|320 кб/с]<Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978083.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977836.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Beefeaters - Beefeaters (1967) Remastered, 2004, Second Life [MP3|320 кб/с] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972191.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ VA - Original Hits - Rock 'N' Roll (2009) [MP3|320 кб/с] <Rock & Roll, Doo Wo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970748.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969638.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ My Left Boot - Summer Songs (2012) [MP3|320 кб/с]<Stoner Psychedelic Fuzz Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967818.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ The Victors - Victorious 1964-1966 (2006) Compilation [MP3|320 кб/с|CBR] <Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965739.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ VA - Nonplusultra: Rock (2007) 5CD Box-Set [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965681.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ VA - Nonplusultra: Melodic Rock (2008) 5CD Box-Set [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965608.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965114.jpg" />
 </div>
 
 
@@ -732,7 +761,7 @@ VA - Covered In Blues (2014) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962046.jpg" />
 </div>
 
 
@@ -746,35 +775,6 @@ VA - Covered In Blues (2014) [MP3|320 кб/с] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45AE6D28007CD4E713AB2B9C74198ED1DC417EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360117   (961856) от 14.02.2020
-
-David Bowie - Is It Any Wonder? (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Man Who Sold The World (ChangesNowBowie Version)
-2. I Can't Read '97
-3. Stay '97
-4. Baby Universal '97(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D31E4CAC475727EEA1B14B428B1C499FBD380E
 ```
 
 https://mybot314.ru/tekegram_catalog/

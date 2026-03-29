@@ -1,3 +1,135 @@
+###  Публикация: 1840096   (1047010) от 02.12.2025
+
+Ян Грабовский | Тузик, Рыжий и гости (2015) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ян Грабовский (1882—1950) — польский писатель, педагог, математик, этнограф — писал великолепные книги о домашних животных, полные легкого юмора, доброго подсмеивания и глубокого понимания привычек, характеров и настроения своих героев.
+Повесть «Тузик, Рыжий и гости» построена на принципе »очеловечивания» животных. Её герои — собаки и другие домашние животные — все (   Читать дальше...   )Жанр: ПовестьИздательство: Мелик - ПашаевФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8127158172065C79986346E29FD72A7040FF1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601623   (1046427) от 01.01.2023
+
+Феникс (изд.) | Зимние истории. Сказки и рассказы русских писателей (2022) [PDF, FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходит время, и зовёт зимушка-зима своих помощников: вьюгу да метель, мороз да стужу, сугробы да снежинки. Соберутся они вместе и давай узоры на окнах рисовать, реку льдом покрывать, одевать деревья в белые шубы. Лучше всего про это время года расскажут вашим детям русские писатели: Константин Ушинский, Владимир Одоевский, Дмитрий Мамин-Сибиряк, Алексей Толстой. (   Читать дальше...   )Жанр: Литературно-художественное издание. Проза. СказкиФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A380DF50DBC019594FBBF23FDC5E79798A1B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539451   (1046417) от 01.01.2023
+
+Эксмо | Disney. Сказки на ночь. Рождественские сказки [Сборник] (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное Рождество уже на пороге: вот-вот красивая ёлка запестрит россыпью цветных огоньков, а праздничный стол украсят чудесные угощения. Любимые герои заканчивают последние приготовления, чтобы поскорее насладиться волшебным торжеством. Русалочка собирается удивить всё подводное королевство, Винни готовит необычные сюрпризы для друзей, смешные гномы собирают (   Читать дальше...   )Жанр: Детская литература, Приключения, СказкаПеревод: Ольга ВолковаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18D573031C09B8286FF64440E2101C38D0994EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601877   (1046326) от 02.01.2023
+
+Валентина Александровна Осеева | Сборник произведений [38 книг] (1946—2017) [FB2, PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валентина Александровна Осеева (1902—1969) — советская детская писательница. В юные годы мечтала стать актрисой и даже поступила на актёрский факультет Института имени Н. В. Лысенко в Киеве. Однако всё изменил переезд семьи в Москву, а затем в Солнечногорск. В 21 год юная Валя Осеева, придя однажды в трудовую коммуну для беспризорных детей, поняла, что её настоящее (   Читать дальше...   )Жанр: Детская, подростковая литература, сказки, стихиФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DD7C1E631ED3D3A1580876EE2BA737443726E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602353   (1046100) от 05.01.2023
+
+Николай Иванович Сладков | Сборник произведений [54 книги] (1954—2018) [FB2, PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Иванович Сладков — писатель, автор книг о природе. Николай Иванович родился 5 января 1920 года в Москве, но всю свою жизнь прожил в Ленинграде, в Царском Селе. Здесь, неподалеку от его дома, было много старых лесопарков, где будущий писатель открыл для себя целый мир, необычайно богатый тайнами природы.
+Со второго класса начал вести дневник, куда вписывал (   Читать дальше...   )Жанр: Детская, подростковая литература, Книги о животных, природе, СказкиФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF18A97432FE865C7D4E00941E41F2C07E349DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602645   (1046025) от 06.01.2023
 
 Роальд Даль | Ведьмы (2020) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046025.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045812.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045752.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045591.jpg" />
 </div>
 
 
@@ -115,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045560.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045559.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045557.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045495.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045419.jpg" />
 </div>
 
 
@@ -249,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045416.jpg" />
 </div>
 
 
@@ -275,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045413.jpg" />
 </div>
 
 
@@ -301,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045409.jpg" />
 </div>
 
 
@@ -327,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045393.jpg" />
 </div>
 
 
@@ -355,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045372.jpg" />
 </div>
 
 
@@ -382,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045368.jpg" />
 </div>
 
 
@@ -408,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045322.jpg" />
 </div>
 
 
@@ -434,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045282.jpg" />
 </div>
 
 
@@ -462,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045266.jpg" />
 </div>
 
 
@@ -490,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045265.jpg" />
 </div>
 
 
@@ -518,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045254.jpg" />
 </div>
 
 
@@ -544,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045229.jpg" />
 </div>
 
 
@@ -556,141 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C062A7CB0A867D4EC21811B4C82374C325A88F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604740   (1045226) от 15.01.2023
-
-Лев Толстой | Котенок (1928) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два рассказа: про котенка, которого дети взяли погулять, и чуть было не загрызли собаки. И про щенка, который защитил детей от бешеной собаки.
-Для детей младшего школьного возраста. Иллюстрации Г.Васильева.Жанр: РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBFC02F8F585775908165AE847B8C4C729B775C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604692   (1045213) от 15.01.2023
-
-Эльжбета | Флон-Флон и Мюзетт (2020) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как разговаривать о войне с детьми? Ведь они с малых лет должны понимать, что война бессмысленна и люди сами выдумывают себе врагов. Благодаря этой простой, но глубокой истории о двух друзьях-зайчатах Флон-Флоне и Мюзетт, разлучённых войной, даже самые маленькие читатели поймут, как страшна и жестока любая война и как ценен мир.
-
-В выразительных иллюстрациях мягких (   Читать дальше...   )Жанр: зарубежные детские книги, книги для дошкольников, сказкиПеревод: Ирина БалахоноваФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D9C78BE675908E285DBC800FAAC32813E4D6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604770   (1045209) от 15.01.2023
-
-Анне-Катрине Вестли | Папа, мама, бабушка, восемь детей и грузовик (сборник) (2014) [PDF, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть книги, которые необходимо прочитать в детстве. Среди них – книги известной норвежской писательницы Анне-Катрине Вестли. На родине её имя известно каждому, а её популярность можно сравнить только с популярностью Астрид Линдгрен. К счастью, книги Вестли хорошо известны и в нашей стране.«Жила-была большая-пребольшая семья: папа, мама и целых восемь детей… И ещё (   Читать дальше...   )Жанр: детская проза, детские приключения, зарубежные детские книгиПеревод: Любовь ГорлинаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5449B59CF5074E3CC8164D10D34639D533688B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604698   (1045182) от 15.01.2023
-
-П.А. Знаменский (ред.) | Сборник вопросов и задач по физике для 8—10 классов средней школы (1958) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический задачник по физике для средней школы. Пережил множество изданий.
-В сборник включены задачи по всем разделам школьного курса для 8-10 классов.
-Представлено 10-е изданиеЖанр: учебное пособиеИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B767A38C5AB0B46326F1B93836535B65289DCC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604699   (1045180) от 15.01.2023
-
-Л.С. Фридланд | Большие находки (1951) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для детей и подростков в популярной форме рассказывает о некоторых открытиях в области медицины.Жанр: научно-популярная, рассказы о медицинеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CD4964DB6E6FAEBD66F4899E80C71731F10EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

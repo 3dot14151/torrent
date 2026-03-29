@@ -1,3 +1,159 @@
+###  Публикация: 943843   (440809) от 07.10.2015
+
+Обзор. Чемпионат Англии 2015-16. The Championship. 10 тур. Обзор матчей (2015) PDTV [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Нижних Чемпионатов Англии. The Championship, Лиги 1 и Лиги 2.Телекомпания: BBC 5 ChannelЖанр: Спорт, ТелепередачаПродолжительность: Качество видео: PDTV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEE3CE63C31F9511DFC593576C8934FEB84ACB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944435   (440684) от 07.10.2015
+
+Международная панорама. Эфир от 05.10.2015 (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обсуждение прошедших матчей европейских чемпионатов.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150D79F8A8F7FF974EB337F7585C6938774321B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944453   (440683) от 07.10.2015
+
+Футбол. Чемпионат Испании 2015-16. 7 тур. Liga BBVA. Атлетико Мадрид - Реал Мадрид (2015) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2015-16, Liga BBVA. 7 тур. Атлетико Мадрид - Реал Мадрид.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E192E1618D274502101D7401B75F13D408A0EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944424   (440682) от 07.10.2015
+
+Обзор. Чемпионат Германии 2015-16. 8 тур. Обзор тура. (2015) HDTV [H.264/720p-LQ]]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Германии 2015-2016 года.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15CCA7B0B05CF9410C572A864530D7C42F3C160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944432   (440681) от 07.10.2015
+
+Обзор. Английский акцент. 2015-2016. 8 тур. Обзор тура (2015) IPTV [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440681.jpg" />
+</div>
+
+
+###  Подробнее
+
+В программе "Английский акцент" обсуждаются актуальные события в мире английского футбола. Ведущий вместе со спортивными экспертами уделяют большое внимание футбольным матчам и другим событиям футбольной жизни.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD84094D937AED8C5CD7451E8FBBEA4B697E93B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944465   (440680) от 07.10.2015
+
+Обзор. Чемпионат Англии 2015-16. 8 тур. Обзор тура (2015) IPTV [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Англии 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF05ED0828BD969E043CF2CC553DD56A2244A9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944226   (440235) от 07.10.2015
 
 Планета рыбака (2010) DVBRip
@@ -6,7 +162,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440235.jpg" />
+  <img src="Z:/picture/008/save_picture_440235.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440192.jpg" />
+  <img src="Z:/picture/008/save_picture_440192.jpg" />
 </div>
 
 
@@ -62,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440189.jpg" />
+  <img src="Z:/picture/008/save_picture_440189.jpg" />
 </div>
 
 
@@ -91,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440120.jpg" />
+  <img src="Z:/picture/008/save_picture_440120.jpg" />
 </div>
 
 
@@ -120,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440119.jpg" />
+  <img src="Z:/picture/008/save_picture_440119.jpg" />
 </div>
 
 
@@ -149,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440117.jpg" />
+  <img src="Z:/picture/008/save_picture_440117.jpg" />
 </div>
 
 
@@ -178,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440018.jpg" />
+  <img src="Z:/picture/008/save_picture_440018.jpg" />
 </div>
 
 
@@ -207,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439799.jpg" />
+  <img src="Z:/picture/008/save_picture_439799.jpg" />
 </div>
 
 
@@ -233,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439686.jpg" />
+  <img src="Z:/picture/008/save_picture_439686.jpg" />
 </div>
 
 
@@ -259,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439614.jpg" />
+  <img src="Z:/picture/008/save_picture_439614.jpg" />
 </div>
 
 
@@ -285,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439310.jpg" />
+  <img src="Z:/picture/008/save_picture_439310.jpg" />
 </div>
 
 
@@ -314,7 +470,7 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439174.jpg" />
+  <img src="Z:/picture/008/save_picture_439174.jpg" />
 </div>
 
 
@@ -340,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438913.jpg" />
+  <img src="Z:/picture/008/save_picture_438913.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2014) HDTVRip [H.264
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438858.jpg" />
+  <img src="Z:/picture/008/save_picture_438858.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438515.jpg" />
+  <img src="Z:/picture/008/save_picture_438515.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438416.jpg" />
+  <img src="Z:/picture/008/save_picture_438416.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438415.jpg" />
+  <img src="Z:/picture/008/save_picture_438415.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438413.jpg" />
+  <img src="Z:/picture/008/save_picture_438413.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438033.jpg" />
+  <img src="Z:/picture/008/save_picture_438033.jpg" />
 </div>
 
 
@@ -531,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438028.jpg" />
+  <img src="Z:/picture/008/save_picture_438028.jpg" />
 </div>
 
 
@@ -545,180 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B33ECBD6D6DBE6369D6705CFF6710A79DC8FB6C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248849   (438021) от 22.09.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа E. 1-й тур. Арсенал (Англия) — Ворскла (Украина) (20.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438021.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 сентября 2018 года, четверг. 22:00 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа E. 1-й тур.
-Арсенал (Лондон, Англия) — Ворскла (Полтава, Украина)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D37E748D2D614744A5D87FEE4B9F9E316EC27C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248998   (438019) от 22.09.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа L. 1-й тур. ПАОК (Греция) — Челси (Англия) (20.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438019.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 сентября 2018 года, четверг. 19:55 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа L. 1-й тур.
-ПАОК (Салоники, Греция) — Челси (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE41EE9627E56AC37F98BB717101B58661B2155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248816   (438014) от 22.09.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа G. 1-й тур. Рапид (Австрия) — Спартак (Россия) (20.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438014.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 сентября 2018 года, четверг. 19:55 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа G. 1-й тур.
-Рапид (Вена, Австрия) — Спартак (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED8C69600906F86F6724F27E23556E497CE0C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062967   (438006) от 15.10.2016
-
-Хоккей. НХЛ 2016-2017. Бостон Брюинз — Коламбус Блю Джекетс (13.10.2016) WEB-DL [H.264/720p-LQ][EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438006.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 октября 2016, пятница. 02:05 МСК
-НХЛ 2016-2017, Регулярный чемпионат
-
-Стадион: Нейшнвайд-Арена (Коламбус, США), 18144 зрителя (95 % при вместимости 19027)(   Читать дальше...   )Телекомпания: NESNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC285C543C04456E0887AE983F2A3EBF5DC65917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062946   (438004) от 15.10.2016
-
-Хоккей. НХЛ 2016-2017. Монреаль Канадиенс — Баффало Сэйбрз (13.10.2016) WEB-DL [H.264/720p-LQ][EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438004.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 октября 2016, пятница. 02:05 МСК
-НХЛ 2016-2017, Регулярный чемпионат
-
-Стадион: КиБэнк-центр (Баффало, США), 19070 зрителей (100 % при вместимости 19070)(   Читать дальше...   )Телекомпания: SportsNetЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FA8441F79CA7FB8ABABD71B1FA38AC4544FC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062977   (438002) от 15.10.2016
-
-Хоккей. НХЛ 2016-2017. Детройт Ред Уингз — Тампа-Бэй Лайтнинг (13.10.2016) WEB-DL [H.264/720p-LQ][EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438002.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 октября 2016, пятница. 02:30 МСК
-НХЛ 2016-2017, Регулярный чемпионат
-
-Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Fox SportsЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D521A767E2000CB482FCE1F3DA900E7D83414EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

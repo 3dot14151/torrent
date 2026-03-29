@@ -1,3 +1,84 @@
+###  Публикация: 1560956   (127407) от 17.12.2023
+
+Антуан де Сент-Экзюпери | Le Petit Prince / Маленький принц (2006) [MP3, Clotilde Tonnerre]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127407.jpg" />
+</div>
+
+
+###  Подробнее
+
+…Всегда этим взрослым нужно всё объяснять! Желательно в фактах и цифрах. И совершенно бесполезно говорить об удавах, о джунглях и о звёздах. Но однажды и в их жизни появится Маленький принц и скажет: «Пожалуйста… нарисуй мне барашка!» И тогда прощай всякое здравомыслие! Главного ведь глазами не увидишь, не пощупаешь, не измеришь. Главное можно почувствовать только (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиЯзык озвучки: французскийИздательство: АРДИСПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340BA74811399579F3AC115BB65A33CC3E4358B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527197   (127406) от 17.12.2023
+
+Пэм Муньос Райан | Эхо (2020) [MP3, Иван Литвинов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127406.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о любви, человечности, красоте и музыке, развернувшаяся на фоне Второй мировой войны и объединившая несколько поколений детей из разных уголков мира.
+
+Когда юный Отто заблудился в лесу, на выручку ему пришли три таинственные девушки. Они подарили мальчику музыкальный инструмент и пообещали, что придёт день, и он спасёт чью-то душу от неминуемой гибели.
+(   Читать дальше...   )Жанр: Книги для подростков, Современная зарубежная литератураПеревод: Майя Д. Лахути, Константин И. Мольков, Антонина А. ВасильеваИздательство: ЭксмоПродолжительность: 10:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5443484F81E842B05704646DF3548FA51A34DC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471815   (127404) от 17.12.2023
+
+Сборник | Бемби и другие сказки (2013) [MP3, Александр Лазарев, Василий Бочкарев, Алина Покровская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем музыкальный аудиоспектакль с участием Александра Лазарева, Василия Бочкарева и актёров московских театров.Жанр: Зарубежные детские книги, СказкиПеревод: Марк ТарловскийИздательство: Литрес ПаблишингПродолжительность: 02:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E9F121E44014B3A500DF118F076476F2D567E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532382   (127400) от 17.12.2023
 
 Александр Лукин | Наша планета. Чудеса природы: самые удивительные обитатели Земли (2016) [MP3, Владимир Левашев и др.]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127400.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127381.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127379.jpg" />
 </div>
 
 
@@ -90,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127362.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127226.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127176.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127173.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126867.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126865.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126819.jpg" />
 </div>
 
 
@@ -281,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126795.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126793.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126747.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126742.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126740.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126726.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126657.jpg" />
 </div>
 
 
@@ -473,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126651.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126647.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126416.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126367.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126327.jpg" />
 </div>
 
 
@@ -606,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126243.jpg" />
 </div>
 
 
@@ -619,90 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15B8E57DADDBD9926EED942F22C6612975035F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686905   (126235) от 24.12.2023
-
-Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 1). Встречи начинаются (2010) [MP3, Ростислав Плятт, Василий Качалов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
-В 40-80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
-...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и спешили (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4481381097618C4939B80B8A506493C614CE42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686909   (126227) от 24.12.2023
-
-Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 2). Встречи продолжаются (2010) [MP3, Валентина Сперантова, Ростислав Плятт и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
-В 40-х – 80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
-...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1668B96DC2093CBD94E6A752CDDB36BAA6CFFC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686910   (126225) от 24.12.2023
-
-Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 3). На воде и под водой (2010) [MP3, Александр Хованский, Валентина Сперантова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
-В 40-х – 80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
-...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357A96EF7ACA5662F017806834989E58BB137170
 ```
 
 https://mybot314.ru/tekegram_catalog/

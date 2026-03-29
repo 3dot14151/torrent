@@ -1,3 +1,113 @@
+###  Публикация: 1150008   (596546) от 13.07.2017
+
+WiFi Explorer Pro 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сканируй, ищи и устраняй проблемы в беспроводных сетях с помощью WiFi Explorer!
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 июня 2017Разработчик: Adrian Granados-MurilloПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF81682B6AA3B6528A2AD0F2439FD0EFEDB644B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149759   (596542) от 13.07.2017
+
+Sketch 45.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов для macOS! Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.07.2017Разработчик: Bohemian CodingПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613021FDA792E48E554012FD1974D329EE57EF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232794   (596363) от 26.06.2018
+
+Path Finder 8.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C06ADD03C7C247CE23DF3000EF807B28E3CA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039554   (595957) от 01.08.2016
+
+Serial Box 08-2016 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595957.jpg" />
+</div>
+
+
+###  Подробнее
+
+База серийных номеров проекта iSerial по состоянию на август 2016 года.
+В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: август 2016Разработчик: iSerialПоддерживаемая ОС: OS X 10.3.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B836EB2F6C9E96AF124B88968A7366B9984A325B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039486   (595905) от 01.08.2016
 
 Vipor Plus CRM 2.0.1 [En]
@@ -6,7 +116,7 @@ Vipor Plus CRM 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595905.jpg" />
+  <img src="Z:/picture/008/save_picture_595905.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ CloudMounter 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595893.jpg" />
+  <img src="Z:/picture/008/save_picture_595893.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ TechTool Pro 9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595803.jpg" />
+  <img src="Z:/picture/008/save_picture_595803.jpg" />
 </div>
 
 
@@ -89,7 +199,7 @@ AirServer 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595540.jpg" />
+  <img src="Z:/picture/008/save_picture_595540.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ iWatermark Pro 2.00fc3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595221.jpg" />
+  <img src="Z:/picture/008/save_picture_595221.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ iMazing 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595066.jpg" />
+  <img src="Z:/picture/008/save_picture_595066.jpg" />
 </div>
 
 
@@ -169,7 +279,7 @@ Folx Pro 5.2.13690 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594953.jpg" />
+  <img src="Z:/picture/008/save_picture_594953.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ Network Radar 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594696.jpg" />
+  <img src="Z:/picture/008/save_picture_594696.jpg" />
 </div>
 
 
@@ -225,7 +335,7 @@ Darkest Dungeon v.23917/dlc (2016) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594642.jpg" />
+  <img src="Z:/picture/008/save_picture_594642.jpg" />
 </div>
 
 
@@ -251,7 +361,7 @@ Dash 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594510.jpg" />
+  <img src="Z:/picture/008/save_picture_594510.jpg" />
 </div>
 
 
@@ -278,7 +388,7 @@ Rise of Industry (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594447.jpg" />
+  <img src="Z:/picture/008/save_picture_594447.jpg" />
 </div>
 
 
@@ -306,7 +416,7 @@ Charles Web Debugging Proxy 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594365.jpg" />
+  <img src="Z:/picture/008/save_picture_594365.jpg" />
 </div>
 
 
@@ -334,7 +444,7 @@ Airmail 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594362.jpg" />
+  <img src="Z:/picture/008/save_picture_594362.jpg" />
 </div>
 
 
@@ -362,7 +472,7 @@ DCommander 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594349.jpg" />
+  <img src="Z:/picture/008/save_picture_594349.jpg" />
 </div>
 
 
@@ -390,7 +500,7 @@ Toast Titanium 15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594214.jpg" />
+  <img src="Z:/picture/008/save_picture_594214.jpg" />
 </div>
 
 
@@ -416,7 +526,7 @@ Apple iWork: Keynote 6.6.2, Numbers 3.6.2 & Pages 5.6.2 (upd 10.05.2016) [Multi/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594145.jpg" />
+  <img src="Z:/picture/008/save_picture_594145.jpg" />
 </div>
 
 
@@ -442,7 +552,7 @@ PDF Expert 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593998.jpg" />
+  <img src="Z:/picture/008/save_picture_593998.jpg" />
 </div>
 
 
@@ -471,7 +581,7 @@ TechSmith Snagit 2018.2.0 (90445) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593930.jpg" />
+  <img src="Z:/picture/008/save_picture_593930.jpg" />
 </div>
 
 
@@ -498,7 +608,7 @@ Sketch 45.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593859.jpg" />
+  <img src="Z:/picture/008/save_picture_593859.jpg" />
 </div>
 
 
@@ -525,7 +635,7 @@ iMazing 2.6.3 (9098) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593755.jpg" />
+  <img src="Z:/picture/008/save_picture_593755.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ Cashew 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593657.jpg" />
+  <img src="Z:/picture/008/save_picture_593657.jpg" />
 </div>
 
 
@@ -581,7 +691,7 @@ Yummy FTP Pro 1.11.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593581.jpg" />
+  <img src="Z:/picture/008/save_picture_593581.jpg" />
 </div>
 
 
@@ -595,117 +705,6 @@ Yummy FTP - “вкусный клиент” для ФТП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CCFCE3C9EAA4BB0432A36BEE90AF8FFCCEA28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040092   (593573) от 03.08.2016
-
-LensFlare Studio 5.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593573.jpg" />
-</div>
-
-
-###  Подробнее
-
-LensFlare Studio послужит основным инструментом для фотографов.
-Добавить красивые вспышки и световые эффекты для ваших фотографий.
-С более чем 100 эффектами, вы можете выбрать из бликов, полос, свечение, боке и многое другое.
-LensFlare Studio - инструмент, который должен иметь любой фотограф или дизайнер.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 августа 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749CB1ADF08F5ACEE53EEECFAFDCAF6DC069A575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040168   (593537) от 03.08.2016
-
-SkyLab Studio 1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593537.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вдохновленный своей собственной любовью к красивому небу".
-SkyLab Studio - изменит ваше представление о небе на фотографии.
-Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 августа 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0A01B4A5B8C0704731BCE9AB72B01915447C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233366   (593401) от 29.06.2018
-
-Tooth Fairy 2.4.5 (26) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tooth Fairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
-Tooth Fairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: июнь 2018Разработчик: Lu YibinПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8829C57C5C2EFC5D0A91F3B3DDB1310C2F31FDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233325   (593239) от 29.06.2018
-
-Павел, апостол Христа / Paul, Apostle of Christ (2018) BDRip [1080p] ATV (MVO)
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593239.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни и смерти апостола Павла, который прошёл путь от беспощадного гонителя христиан до одного из основателей христианской церкви. Его последнее миссионерское путешествие заканчивается в тюрьме, куда он был заточён по приказу римского императора Нерона. Пока плененный Павел ждёт казни и размышляет о своей посмертной участи, его последователь Лука пишет новое (   Читать дальше...   )Производство: США /  Affirm Films, ODB Films, Outside Da BoxЖанр: Драма, ИсторияРежиссер: Эндрю ХайаттАктеры: Джеймс Кэвизел, Джеймс Фолкнер, Оливье Мартинес, Джоанн Уолли, Джон Линч, Гиоргос Карамихос, Антония Кэмпбелл-Хьюз, Алессандро Спердути, Александра Вино, Мануэль КошиПеревод: Профессиональный (многоголосый, закадровый) (License)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1C7478C86822256D700EFD268351E75043BAC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

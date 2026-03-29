@@ -1,3 +1,116 @@
+###  Публикация: 1258767   (334337) от 31.10.2018
+
+Чёрный Обелиск - X (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Надоело
+02. Молитва
+03. Пауки
+04. Звезда(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED796A08C6804452860099993BC527E4746736D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955556   (333791) от 11.11.2015
+
+Aillion - Война миров (2015) [MP3|320 кб/с]<Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыканты комментируют свою работу так: "Альбом получился проблемным и, на наш взгляд, вполне отражающим ситуацию в нашем сегодняшнем мире. Красной нитью сквозь него проходит антивоенная тема, а также борьба за светлые идеалы, несмотря на массу окружающих нас проблем как в социальном, так и в духовном планах. Вера и надежда на лучшее никогда не должны оставлять (   Читать дальше...   )01. Под огнем
+02. Война миров
+03. Зверь
+04. Пустые слова(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFB420709D87C53311BE870652516351865739B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955665   (333780) от 11.11.2015
+
+VA - Dawai Rock'n'Roll - Давай Рок'н'Ролл (1989) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звуки Му - Постовой
+02. Мистер Твистер - Давай Рок-н-Ролл
+03. АукцЫон - Вечер
+04. Чудо Юдо - Чудо Юдо(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90BCC61F04DA6C34AC88ECEA9B1EF4BD67BFCFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955468   (333610) от 11.11.2015
+
+Пилот - Нелюбовь (2015) Single [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас музыканты работают сразу над двумя пластинками, «Нелюбовь» - это песня, как раз, с еще невыпущенного альбома группы: "Ну, если работа пойдет по плану, то я, надеюсь, что фолковый альбом под рабочим названием пока что «Кукушка». Он будет, наверное, видимо выходить весной 2016 года. Где-нибудь ближе к концу весны. А еще следующая пластинка под рабочим названием (   Читать дальше...   )01. НелюбовьЖанр: RockПродолжительность: 00:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A2A5D7F80D93211F246157FE17376FC70D0071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955466   (333475) от 11.11.2015
 
 Линда - Карандаши и спички (2015) [MP3|320 kbps] <Rock, Female Vocal>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333475.jpg" />
+  <img src="Z:/picture/008/save_picture_333475.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332981.jpg" />
+  <img src="Z:/picture/008/save_picture_332981.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Ocean Jet - BAD GOOD (2020) EP [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332602.jpg" />
+  <img src="Z:/picture/008/save_picture_332602.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332147.jpg" />
+  <img src="Z:/picture/008/save_picture_332147.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331611.jpg" />
+  <img src="Z:/picture/008/save_picture_331611.jpg" />
 </div>
 
 
@@ -157,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331279.jpg" />
+  <img src="Z:/picture/008/save_picture_331279.jpg" />
 </div>
 
 
@@ -186,7 +299,7 @@ Biopsyhoz (Биопсихоз) - Демонстрация 15 (2015) [MP3|320 к�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330215.jpg" />
+  <img src="Z:/picture/008/save_picture_330215.jpg" />
 </div>
 
 
@@ -215,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329999.jpg" />
+  <img src="Z:/picture/008/save_picture_329999.jpg" />
 </div>
 
 
@@ -244,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329990.jpg" />
+  <img src="Z:/picture/008/save_picture_329990.jpg" />
 </div>
 
 
@@ -273,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329976.jpg" />
+  <img src="Z:/picture/008/save_picture_329976.jpg" />
 </div>
 
 
@@ -302,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329925.jpg" />
+  <img src="Z:/picture/008/save_picture_329925.jpg" />
 </div>
 
 
@@ -331,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329902.jpg" />
+  <img src="Z:/picture/008/save_picture_329902.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ VA - Рок против шерсти (приложение к журналам 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329364.jpg" />
+  <img src="Z:/picture/008/save_picture_329364.jpg" />
 </div>
 
 
@@ -389,7 +502,7 @@ Dolphin (Дельфин) - Андрей (2014) Remastered Deluxe Version, 2015 [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329201.jpg" />
+  <img src="Z:/picture/008/save_picture_329201.jpg" />
 </div>
 
 
@@ -418,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329030.jpg" />
+  <img src="Z:/picture/008/save_picture_329030.jpg" />
 </div>
 
 
@@ -449,7 +562,7 @@ Dёргать! (Дергать!) - Я Молодой (2015) [MP3|320 кб/с]<Pu
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328287.jpg" />
+  <img src="Z:/picture/008/save_picture_328287.jpg" />
 </div>
 
 
@@ -478,7 +591,7 @@ SMAZKA - 2 Albums (2021-2022) [MP3|320 Kbps] <Punk Rapcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328137.jpg" />
+  <img src="Z:/picture/008/save_picture_328137.jpg" />
 </div>
 
 
@@ -507,7 +620,7 @@ CWT - XX YEARS OF FAIR PLAY (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328135.jpg" />
+  <img src="Z:/picture/008/save_picture_328135.jpg" />
 </div>
 
 
@@ -536,7 +649,7 @@ Absent Sunday - 2 Albums (2018-2022) [MP3|320 Kbps] <Dark Cabaret , Female Vocal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328134.jpg" />
+  <img src="Z:/picture/008/save_picture_328134.jpg" />
 </div>
 
 
@@ -565,7 +678,7 @@ Other in June - Stalks and Oaks (2022) [MP3|320 Kbps] <Alt Country, Southern Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328132.jpg" />
+  <img src="Z:/picture/008/save_picture_328132.jpg" />
 </div>
 
 
@@ -594,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328058.jpg" />
+  <img src="Z:/picture/008/save_picture_328058.jpg" />
 </div>
 
 
@@ -623,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327336.jpg" />
+  <img src="Z:/picture/008/save_picture_327336.jpg" />
 </div>
 
 
@@ -637,128 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031F9676F3B0C932297855E9C65A4E017DE5FDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581279   (327289) от 05.10.2022
-
-SHALAVA boys - Ужасы современного поколения (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Interlude [00:00:30]
-02 - Орбуз Онжелла [00:01:09]
-03 - Продолговатый пельмешек [00:01:54]
-04 - Ты похож на катях [00:02:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CD92DF549A280294197FB7EB18B484D82E07DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581490   (327223) от 05.10.2022
-
-Группа Ширли Мырли - Обратный отсчёт (2022) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Привокзальные зайчики [00:02:50]
-02 - Нарисуй меня в спам [00:03:40]
-03 - Парковщик [00:02:17]
-04 - Стреляй бух [00:03:51](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D99D03ADD1F0BBA48E11D5414F1EC712812876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581344   (327215) от 05.10.2022
-
-Тролль Гнёт Ель - Девять (2022) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Танцуй, танцуй!
-2. Я люблю зелёный
-3. Фру Маннелиг
-4. Оседлай дракона(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4517EF7D2E7A806D08F69551CE97BE0EA114540A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413532   (326904) от 25.11.2011
-
-Ex.T.R.A. - Сткло и сталь (2010) [MP3|320 kbps]<Ska, Alco ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Que Paso Amigos
-02 - Один на миллион
-03 - Кабак
-04 - Ska Moscow
-05 - Mr. Beerman
-06 - Безобразный Алкоголик
-07 - Так Прохидят Годы
-08 - Коля
-09 - Стекло и Сталь
-10 - Алиса(   Читать дальше...   )2010Жанр: Ska, Alco skaПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEFF3F4277CEAC5327655C26316FA7195592B50
 ```
 
 https://mybot314.ru/tekegram_catalog/

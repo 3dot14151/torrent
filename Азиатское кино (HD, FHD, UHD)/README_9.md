@@ -1,3 +1,107 @@
+###  Публикация: 1478613   (1010124) от 20.06.2021
+
+Бродяга Кэнсин: Великий киотский пожар / Ruroni Kenshin: Kyoto taika-hen (2014) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010124.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Кэнсин вступает в противостояние с самим Макото Сисио - злодеем, вознамерившимся свергнуть правительство Мэйдзи и подчинить себе всю Японию. Судьба страны висит на волоске, и скиталец-самурай Химура вновь берет в руки меч, к которому он поклялся никогда не прикасаться.Производство: Япония / Warner Bros., Amuse, ShueishaЖанр: Боевик, ДрамаРежиссер: Кэиси ОтомоАктеры: Такэру Сато, Тацуя Фудзивара, Рюносукэ Камики, Юсукэ Исэя, Тао Цутия, Ю АоиПеревод: Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, Японский, АнглийскийСубтитры: АнглийскиеПродолжительность: 02:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C2288561190392ED664647350D02C344FC6620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478984   (1009961) от 21.06.2021
+
+Ип Ман 4 / Yip Man 4 (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1964 год. Уже немолодой Ип Ман узнаёт, что у него рак, а сына отчисляют из школы за очередную драку. Тут как раз Брюс Ли присылает учителю приглашение на чемпионат по карате и билет на самолёт в Штаты. Великий мастер отправляется в Сан-Франциско подыскать школу для сына и заодно посмотреть, как там живёт китайская диаспора. Выясняется, что в частные школы не берут (   Читать дальше...   )Производство: Гонконг, Китай / Bullet Films, Mandarin Motion PicturesЖанр: Боевик, Биография, ДрамаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Дублированный, Многоголосый, АвторскийСубтитры: Русские (Forced), АнглийскиеПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF418D9844D9F3247ADFC72B40CB6FA520EAC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479267   (1009667) от 23.06.2021
+
+Кисло-сладкий вкус любви / Saekomdalkom / Sweet & Sour (2021) WEB-DL [H.265/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пухляш Чан-хёк попал в больницу с гепатитом и там встретил симпатичную заботливую медсестру Чон Да-ын. Парень постепенно влюбляется, она называет его Хёк, они начинают встречаться и, хотя друзья и родители не верят, что у такого толстяка могут быть отношения, девушка приглашает его вместе съездить на Чеджу. Поскольку парная футболка для парочек ему сильно мала, Хёк (   Читать дальше...   )Производство: Южная Корея, 26 Company, NetflixЖанр: Мелодрама, комедияРежиссер: Ли Ге-бёкАктеры: Чан Ги-ён, Кристал Чон, Чхэ Су-бин, Пак Чхоль-мин, Юн Бён-хи, Пак Чи-хун, Ё Мин-джу, Ли Гён-ён, Ю СонПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские, корейские, финские, французские, немецкие, итальянские, польские, португальские, испанскиеПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFF6D828AB25D283E5406693727A947BB4460A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479478   (1009549) от 24.06.2021
+
+Свободно и легко / Qingsong +yukuai / Free and Easy (2016) BDRemux [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия – маленький и почти безлюдный городок на северо-востоке Китая. Появление таинственного торговца мылом влечёт за собой череду событий с участием местной полиции, буддийского монаха и других довольно странных жителей городка.Производство: Китай, The Old Avant-Garde Films, U. Lan Media HongkongЖанр: КомедияРежиссер: Гэн ЦзюньАктеры: Сюй Ган, Чжан Чжиюн, Сюэ Баохэ, Чжан Сюнь, Гу Бэньбинь, Ван СюйсюйПеревод: Одноголосый любительский (Franek Monk)Субтитры: ФранцузскиеПродолжительность: 01:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47DE8F44B6A30F13CC3D0316F779848CB25E832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479588   (1009376) от 25.06.2021
 
 Чумовая семейка: Зомби на продажу  / Zombie for Sale / Gimyohan gajok / 기묘한 가족  (2019) BDRemux [H.264/1080p] [AVO]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009376.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008951.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008555.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008280.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008272.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008154.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008141.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007972.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007762.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007586.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007273.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007261.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006835.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006365.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006174.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005578.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005556.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005177.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004502.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004245.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004218.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002885.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D39E327DE3C9B9515A4D84D2456A8B8DBB95F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352192   (1001261) от 13.01.2020
-
-Мистер Крутой / Yat goh ho yan / Mr. Nice Guy (1997) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий кулинарного телешоу в Мельбурне Джеки случайно становится обладателем видеокассеты с записью кровавой разборки между бандами наркоторговцев. На этом спокойные дни для Джеки закончились и превратились в бесконечную гонку на выживание. Он бы с удовольствием отдал кассету бандитам или полиции, ведь на ней улика. Но те не задавали вопросов, а у Джеки все равно (   Читать дальше...   )Производство: Гонконг / Golden Harvest CompanyЖанр: боевик, комедия, криминалРежиссер: Саммо ХунАктеры: Джеки Чан, Ричард Нортон, Мики Ли, Карен МакЛаймонт, Гэбриэлль Фицпатрик, Винс Полетто, Бэрри Отто, Саммо Хун, Эмиль Чау, Джойс ГодензиПеревод: Многоголосый профессиональный, двухголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7AB515075D12570044C9DF7404549F37017648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489085   (1001132) от 14.08.2021
-
-Девственный блюз / Virgin Blues (1974) WEB-DL [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мами и Тиаки живут в женском общежитии и готовятся к вступительным экзаменам в университет. В свободное время девушки с подругами совершают мелкие кражи в магазинах и однажды попадаются охранникам. Мами и Тиаки удается сбежать, а остальных арестовывает полиция. В общежитие теперь не вернешься и девушки бродят по городу, не зная, что им делать. Случайная встреча с (   Читать дальше...   )Производство: Япония, NikkatsuЖанр: Драма, криминалРежиссер: Тосия ФудзитаАктеры: Кумико Акиёси, Хироюки Нагато, Кэндзи Такаока, Миёко Акадза, Ютака Хаяси, Аои НакадзимаПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A487A9962243513F9C1763C3BEB8D5F30B85A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489157   (1001113) от 14.08.2021
-
-Инран: Волчья бригада / Illang: The Wolf Brigade / Inrang (2018) BDRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001113.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем территориальные споры с Китаем вынуждают Японию вновь вооружиться, что обостряет ситуацию в регионе. Чтобы усилить мощь и влияние, в 2024 году две Кореи объявляют пятилетний план по объединению, но ведущие мировые державы оказываются этим недовольны и устанавливают экономические санкции. Жизнь в стране ухудшается, былое воодушевление корейцев (   Читать дальше...   )Производство: Южная Корея / Lewis PicturesЖанр: Боевик, фантастикаРежиссер: Ким Джи-унАктеры: Кан Дон-вонЮ, Чон У-сон, Хан Хё-джу, Ким Му-ёль, Хан Е-ри, Минхо, Хо Джун-хо, Щин Ын-су, Чхве Джин-хо, Ким Бом-нэПеревод: Авторский (Ю.Сербин)Субтитры: Английские .srt, корейские .pgsПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68A157FE07D36774BDE42C88739655011092289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599779   (998832) от 08.01.2013
-
-Мой путь / My Way (2011) [1080p] BDRemux
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шел 1938 год. Время японского колониального правления в Корее... Чжун Щик мечтал принять участие в олимпийском марафоне, а Тацуо был лучшим бегуном Японии. Все изменил один день. Чжун Щик был призван служить в японскую армию, где как по велению судьбы он встречает Тацуо, который в то время уже был там командующим. Вдвоем они оказались участниками Второй мировой войны (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Кан Чже ГюАктеры: Дон Гон Чан, Фан Бинбин, Ким Ин Гвон, Ким Хи Вон, О Тхэ Гён, Гвак Чжон Ук, Ким Щи Ху0, Юн Хи Вон, Таро Ямомото, Манабу Хамада, Шинго Цуруми, Чжо Мин А, Ким Ин У, Измаил Дениз, Су Ро КимПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскиеПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

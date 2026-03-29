@@ -1,3 +1,58 @@
+###  Публикация: 1626633   (240547) от 15.04.2023
+
+О. Иванов, С. Климчук | Математический анализ для первокурсников (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, предлагаемая вниманию читателя, состоит из двух формально независимых текстов, дополняющих как друг друга, так и стандартный курс математического анализа (как часть курса высшей математики ) для первокурсников нематематических специальностей вузов.
+С точки зрения хронологии первой была написана и издана (на английском языке) ее вторая часть – Контрпримеры (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C81C2C67A4BD9D4A6FDB02F82FDD7A9C9727910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545748   (240219) от 21.04.2022
+
+Нейман Л.Р., Демирчян К.С. | Теоретические основы электротехники [2 книги] (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для студентов электротехнических, энергетических и радиотехнических высших учебных заведений и факультетов, изучающих эту дисциплину с отрывом и без отрыва от производства. Содержание книги соответствует программе Министерства высшего и среднего специального образования СССР по одноименной дисциплине.
+Труд делится на четыре части:
+ч. 1 — «Основные (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90742BE3944EA3FF192DBD78A9472CB93DC4822E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571487   (239893) от 22.08.2022
 
 А.М. Колобов | Избранные главы высшей математики [3 книги] (1965 - 1971) [DJVU]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239893.jpg" />
+  <img src="Z:/picture/004/save_picture_239893.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239453.jpg" />
+  <img src="Z:/picture/004/save_picture_239453.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239116.jpg" />
+  <img src="Z:/picture/004/save_picture_239116.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239074.jpg" />
+  <img src="Z:/picture/004/save_picture_239074.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238854.jpg" />
+  <img src="Z:/picture/005/save_picture_238854.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238710.jpg" />
+  <img src="Z:/picture/005/save_picture_238710.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238687.jpg" />
+  <img src="Z:/picture/005/save_picture_238687.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238567.jpg" />
+  <img src="Z:/picture/005/save_picture_238567.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238222.jpg" />
+  <img src="Z:/picture/004/save_picture_238222.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237316.jpg" />
+  <img src="Z:/picture/005/save_picture_237316.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235961.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235341.jpg" />
+  <img src="Z:/picture/004/save_picture_235341.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235076.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234915.jpg" />
+  <img src="Z:/picture/005/save_picture_234915.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234889.jpg" />
+  <img src="Z:/picture/005/save_picture_234889.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234819.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234716.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234700.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234366.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234272.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233986.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233728.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233541.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233413.jpg" />
+  <img src="Z:/picture/004/save_picture_233413.jpg" />
 </div>
 
 
@@ -624,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631B7A448324979398F0FF174981A3B19AF65750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634671   (233303) от 21.05.2023
-
-С.А. Немнюгин | Программирование на Intel Cilk Plus (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс представляет собой краткое введение в основы программирования на Intel® CilkTM Plus. В курсе излагаются сведения о структуре Intel® CilkTM Plus и компонентах Cilk. Среди них ключевые слова, расширенная индексная нотация, редукторы, элементные функции и т.д. Рассматриваются вопросы диспетчеризации исполнения параллельной Cilk-программы, особенности распараллеливания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17077A5EF193AA97AEECEB76DEF34D4BC3BBE00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634575   (233266) от 21.05.2023
-
-Ю.В. Дашко, А.А. Заика | Основы разработки компьютерных игр в XNA Game Studio (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящен основным методам разработки компьютерных игр в XNA Game Studio 2.0., разработке документации и реализации самостоятельных игровых проектов. Он предназначен для C#-программистов (студентов специальности «Прикладная информатика»). Курс будет реализован в виде дисциплины регионального компонента учебного плана указанной специальности.
-Курс начинается с (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1463D5FC8CEF328E7CD5621AD348077E279D07
 ```
 
 https://mybot314.ru/tekegram_catalog/

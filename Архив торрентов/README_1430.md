@@ -6,7 +6,7 @@ Muska - Artist Focus 57 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729033.jpg" />
+  <img src="Z:/picture/008/save_picture_729033.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Progressive House & Trance Vol 4 (2016) [MP3|320 кб/с] <Trance, Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729032.jpg" />
+  <img src="Z:/picture/008/save_picture_729032.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729031.jpg" />
+  <img src="Z:/picture/008/save_picture_729031.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729013.jpg" />
+  <img src="Z:/picture/008/save_picture_729013.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729009.jpg" />
+  <img src="Z:/picture/008/save_picture_729009.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Crimson Fire - Fireborn (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729005.jpg" />
+  <img src="Z:/picture/008/save_picture_729005.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VirtualHostX 7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728996.jpg" />
+  <img src="Z:/picture/008/save_picture_728996.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Antarcticats - I Know You Are, But What Am I? (2018) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728969.jpg" />
+  <img src="Z:/picture/008/save_picture_728969.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Chronicle Pro 9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728966.jpg" />
+  <img src="Z:/picture/008/save_picture_728966.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728948.jpg" />
+  <img src="Z:/picture/008/save_picture_728948.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Fokuz Recordings Presents: Hateful Eighty (2016) CD1 [MP3|320 кб/с] <Dru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728943.jpg" />
+  <img src="Z:/picture/008/save_picture_728943.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Free Studio 6.6.17.530 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728942.jpg" />
+  <img src="Z:/picture/008/save_picture_728942.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728940.jpg" />
+  <img src="Z:/picture/008/save_picture_728940.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728935.jpg" />
+  <img src="Z:/picture/008/save_picture_728935.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Aiseesoft Screen Recorder 2.2.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728916.jpg" />
+  <img src="Z:/picture/008/save_picture_728916.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ CrystalDiskInfo 8.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728910.jpg" />
+  <img src="Z:/picture/008/save_picture_728910.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728909.jpg" />
+  <img src="Z:/picture/008/save_picture_728909.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ SmallCubed MailSuite 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728907.jpg" />
+  <img src="Z:/picture/008/save_picture_728907.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - The Sound Of Trance Vol.03 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728902.jpg" />
+  <img src="Z:/picture/008/save_picture_728902.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SQL Dynamite 2.1.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728899.jpg" />
+  <img src="Z:/picture/008/save_picture_728899.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ ExactScan Pro 17.3.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728896.jpg" />
+  <img src="Z:/picture/008/save_picture_728896.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Adam Sobiech - Artist Focus 68 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728894.jpg" />
+  <img src="Z:/picture/008/save_picture_728894.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Maxthon Browser 5.2.7.1000 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728891.jpg" />
+  <img src="Z:/picture/008/save_picture_728891.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Blocs 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728885.jpg" />
+  <img src="Z:/picture/008/save_picture_728885.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Statsey - app usage statistics in your menu bar 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728881.jpg" />
+  <img src="Z:/picture/008/save_picture_728881.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - ROXO 02 (2016) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Fu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728877.jpg" />
+  <img src="Z:/picture/008/save_picture_728877.jpg" />
 </div>
 
 

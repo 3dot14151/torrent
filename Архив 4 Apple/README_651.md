@@ -1,3 +1,108 @@
+###  Публикация: 1678686   (144229) от 22.11.2023
+
+FoneDog Toolkit for Android on Mac 2.1.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144229.jpg" />
+</div>
+
+
+###  Подробнее
+
+FoneDog Android Data Recovery специализируется на восстановлении удаленных контактов (номера телефонов, имена, электронные письма), текстовых сообщений (контент, номера телефонов, дата отправки / получения) и истории вызовов (имена, номера телефонов, тип вызова, продолжительность), WhatsApp (сообщения / вложения), фотографии, видео, аудио файлы и документы с устройств (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2016 - 2023 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64CF3ACD922518EFFA6E6E87607C26E0343BBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678749   (144165) от 22.11.2023
+
+FonesGo Location Changer for Mac 6.8.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имитируйте движение по GPS более реалистично на iOS/Android. FonesGo Location Changer — лучший партнер во время игры в Pokemon Go. Вы можете имитировать движение GPS с настраиваемой скоростью, например ходьбу, езду на велосипеде или вождение. Какой бы ни была причина, по которой вы застряли дома, вы всегда можете использовать этот инструмент, чтобы играть в Pokemon (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2023 FonesGoПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CECF57103E92C9281C23D3677DF802D269B020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520362   (144058) от 27.12.2021
+
+TG Pro (Temperature Gauge Pro) 2.64 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144058.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8F3D8FFB5F05B5BDB687E8CC8BE4402BFEE7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520257   (144049) от 27.12.2021
+
+ColorWell 7.3.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144049.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABB32EB8FAD9779B4536830EBCE15E82A0ABA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520255   (144034) от 27.12.2021
 
 Xliff Editor 2.9.7.1 [Multi]
@@ -6,7 +111,7 @@ Xliff Editor 2.9.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144034.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Invisible 2.5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144021.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ SyncTime 3.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144010.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Native Instruments Komplete Kontrol 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143995.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Adguard 1.5.3 (435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143983.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Hides 5.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143981.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ PullTube 1.8.5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143977.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Finder Windows 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143959.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Vidmore Video Fix for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143954.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ Native Instruments Kontakt 7.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143947.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Stats 2.6.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143934.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ USBclean 3.6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143909.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ eMail Address Extractor 3.5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143903.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ PhotoBulk: watermark in batch 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143835.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ ProPresenter 7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143819.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143802.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ FonesGo iPhone Unlocker for Mac 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143795.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ MovieSherlock 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143791.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ Allavsoft Video Downloader Converter 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143768.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ Folder-Factory 5.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143728.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ Outline 3.22.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143692.jpg" />
 </div>
 
 
@@ -568,7 +673,7 @@ Steuererklärung 2.10.3 (build 144) [De]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143671.jpg" />
 </div>
 
 
@@ -580,114 +685,6 @@ Steuererklärung 2.10.3 (build 144) [De]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7EE40AD8A2973FE268908D51A40F38A9FE16658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348446   (143547) от 28.12.2019
-
-AnyMP4 Mac Blu-ray Ripper 8.2.20 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143547.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Mac Blu-ray Ripper разработан с наиболее эффективными решениями для копирования дисков Blu-ray в любой популярный видеоформат, такой как MP4, TS, MKV, MOV, M4V, AVI, WMV, VOB, DivX, XviD, MPEG, F4V, WebM. и даже больше, и даже конвертировать Blu-ray в HD-видео 4K и 1080p с кодеком H.265, H.264, MPEG4, XviD, VP8, VP9 и другими. Он также извлекает фоновую музыку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BB229DF289AB9A29E7961A24620046FC7190D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348696   (143508) от 28.12.2019
-
-DxO ViewPoint 3.1.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143508.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO ViewPoint — окончательная победа над геометрическими искажениями
-DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский , Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C199CBED3EEE2A74CAB889634DD6A481FD66B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520353   (143434) от 27.12.2021
-
-Nik Complete 4 Collection by DxO v4.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
-Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © DxOПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA50B516C81C76B8A4C3A22EFB68C37DD3F8480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348451   (143405) от 28.12.2019
-
-MarginNote 3 Pro v3.5.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делать аннотации и примечания к книгам, организовывать их в карты разума или быстро создавать карточки, чтобы быстрее запоминать их содержимое. MarginNote предлагает новый подход к чтению книг и созданию ярких, примечательных или аннотаций. Утилита отслеживает каждую запись и позволяет вам организовывать данные в карты разума или карточки.
-
-Независимо от вашей профессии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2019Разработчик: Sun MinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338E47A66CD6BE2BEB71F776F2447CB7850DB02C
 ```
 
 https://mybot314.ru/tekegram_catalog/

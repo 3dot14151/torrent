@@ -6,7 +6,7 @@ Glary Disk Cleaner 5.0.1.204 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888481.jpg" />
+  <img src="Z:/picture/005/save_picture_888481.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JRiver Media Center 26.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888480.jpg" />
+  <img src="Z:/picture/005/save_picture_888480.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pale Moon 28.9.0.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888476.jpg" />
+  <img src="Z:/picture/005/save_picture_888476.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Process Lasso Pro 9.7.0.48 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888474.jpg" />
+  <img src="Z:/picture/005/save_picture_888474.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 80.0.3987.162 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888473.jpg" />
+  <img src="Z:/picture/005/save_picture_888473.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 80.0.3987.162 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888470.jpg" />
+  <img src="Z:/picture/005/save_picture_888470.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Complete Internet Repair 5.2.3.4058 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888468.jpg" />
+  <img src="Z:/picture/005/save_picture_888468.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RadioMaximus 2.27 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888466.jpg" />
+  <img src="Z:/picture/005/save_picture_888466.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Video Thumbnails Maker Platinum 14.2.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888437.jpg" />
+  <img src="Z:/picture/005/save_picture_888437.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wondershare UniConverter 11.7.3.1 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888417.jpg" />
+  <img src="Z:/picture/005/save_picture_888417.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Complete Internet Repair 5.2.3.4058 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888411.jpg" />
+  <img src="Z:/picture/005/save_picture_888411.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Viber 12.7.0.54 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888357.jpg" />
+  <img src="Z:/picture/005/save_picture_888357.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PowerRun v1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888346.jpg" />
+  <img src="Z:/picture/005/save_picture_888346.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MAGIX Sound Forge Pro 14.0 Build 43 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888308.jpg" />
+  <img src="Z:/picture/005/save_picture_888308.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Skype 8.58.0.98 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888291.jpg" />
+  <img src="Z:/picture/005/save_picture_888291.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Skype 8.58.0.98 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888195.jpg" />
+  <img src="Z:/picture/005/save_picture_888195.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888169.jpg" />
+  <img src="Z:/picture/005/save_picture_888169.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ReNamer Pro 7.2 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888160.jpg" />
+  <img src="Z:/picture/005/save_picture_888160.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Microsoft Windows and Office ISO Download Tool 8.34.0.140 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888140.jpg" />
+  <img src="Z:/picture/005/save_picture_888140.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Windows Update Blocker v1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888076.jpg" />
+  <img src="Z:/picture/005/save_picture_888076.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Comodo IceDragon 44.0.0.11 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888064.jpg" />
+  <img src="Z:/picture/005/save_picture_888064.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Cyberfox 45.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888061.jpg" />
+  <img src="Z:/picture/005/save_picture_888061.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ashampoo Photo Optimizer 6.0.19.136 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887997.jpg" />
+  <img src="Z:/picture/005/save_picture_887997.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Norton Internet Security 22.20.2.57 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887965.jpg" />
+  <img src="Z:/picture/005/save_picture_887965.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ WinRAR 5.90 Final (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887890.jpg" />
+  <img src="Z:/picture/005/save_picture_887890.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ O&O Defrag Professional 19.5 Build 222 RePack by Zhmak [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887784.jpg" />
+  <img src="Z:/picture/005/save_picture_887784.jpg" />
 </div>
 
 

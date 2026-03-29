@@ -1,3 +1,29 @@
+###  Публикация: 909724   (625680) от 18.06.2015
+
+Журнал | UPgrade №18 (723) (июнь 2015) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625680.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5A5EB0F3752E3E549818810B331C9D5DF57F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014305   (625429) от 09.04.2019
 
 Подшивка журналов | Linux Journal [+ Special, Geek Guides] (2005-2018) [PDF] [En] [Обновлено 08.04.2019]
@@ -6,7 +32,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625429.jpg" />
+  <img src="Z:/picture/008/save_picture_625429.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624019.jpg" />
+  <img src="Z:/picture/008/save_picture_624019.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622521.jpg" />
+  <img src="Z:/picture/008/save_picture_622521.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622479.jpg" />
+  <img src="Z:/picture/008/save_picture_622479.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621898.jpg" />
+  <img src="Z:/picture/008/save_picture_621898.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621350.jpg" />
+  <img src="Z:/picture/008/save_picture_621350.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621065.jpg" />
+  <img src="Z:/picture/008/save_picture_621065.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620726.jpg" />
+  <img src="Z:/picture/008/save_picture_620726.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620295.jpg" />
+  <img src="Z:/picture/008/save_picture_620295.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619311.jpg" />
+  <img src="Z:/picture/008/save_picture_619311.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619233.jpg" />
+  <img src="Z:/picture/008/save_picture_619233.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618529.jpg" />
+  <img src="Z:/picture/008/save_picture_618529.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617062.jpg" />
+  <img src="Z:/picture/008/save_picture_617062.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616822.jpg" />
+  <img src="Z:/picture/008/save_picture_616822.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616800.jpg" />
+  <img src="Z:/picture/008/save_picture_616800.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615858.jpg" />
+  <img src="Z:/picture/008/save_picture_615858.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615296.jpg" />
+  <img src="Z:/picture/008/save_picture_615296.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614465.jpg" />
+  <img src="Z:/picture/008/save_picture_614465.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614239.jpg" />
+  <img src="Z:/picture/008/save_picture_614239.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614141.jpg" />
+  <img src="Z:/picture/008/save_picture_614141.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612850.jpg" />
+  <img src="Z:/picture/008/save_picture_612850.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612362.jpg" />
+  <img src="Z:/picture/008/save_picture_612362.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612270.jpg" />
+  <img src="Z:/picture/008/save_picture_612270.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610431.jpg" />
+  <img src="Z:/picture/008/save_picture_610431.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610376.jpg" />
+  <img src="Z:/picture/008/save_picture_610376.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F441D2BBEBE180A8BE3E79295A8D26FBFC417F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685770   (609950) от 03.08.2013
-
-Журнал | Computer Power User (CPU) №9 (сентябрь  2013) [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный популярный журнал, посвящённый компьютерной тематике, сопутствующим товарам, продуктам и услугам, цифровой технике, а также программному обеспечению. В каждом номере журнала представлены обзоры новинок компьютерных комплектующих, программного обеспечения и игр.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FFE9F2C4B81EBE18977086BF6C2C6CACCB34EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

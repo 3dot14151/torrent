@@ -1,3 +1,57 @@
+###  Публикация: 1762249   (36298) от 24.11.2024
+
+М.Ф. Иваницкий | Анатомия человека. Учебник для институтов физической культуры (1985) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник написан в соответствии с программой по анатомии человека, утвержденной Комитетом по физической культуре и спорту при Совете Министров СССР для институтов физической культуры.
+
+В учебнике кроме анатомических данных включены материалы по возрастной, конституциональной и спортивной морфологии, половому диморфизму, основным анатомо-антропометрическим методам (   Читать дальше...   )Жанр: спорт, анатомия, биологияИздательство: Физкультура и спортФормат: DJVU, PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878DD5F052619C3E86B32647FDA49D92F93EE6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762246   (36297) от 24.11.2024
+
+Честер Байерс | Метание лассо. Метание ножа (2006) [FB2, PDF, DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы видели, как бросают лассо герои «ковбойских» фильмов. Но мало кто из нас имеет представление о том, какова техника метания лассо и можно ли овладеть ею, например, в условиях современного города. Обо всем этом в доступной и увлекательной форме рассказывает признанный мастер по метанию лассо американец Честер Байерс, чьи рекомендации составляют первый раздел (   Читать дальше...   )Жанр: боевые искусства, физкультура и спорт, хобби, увлеченияПеревод: М.М. ЛанинаИздательство: ОСТ, АСТФормат: FB2, PDF, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1DE18FAE3E433423D39BF41A5960CF5716A9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762414   (36200) от 25.11.2024
 
 А. Морозов | Подтягивания с нуля до киборга v.2.0 (2024) [PDF]
@@ -6,7 +60,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36200.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32532.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28398.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28034.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26176.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26023.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24613.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22097.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20444.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18947.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16882.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16428.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16182.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16146.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15512.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15254.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14455.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14451.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13039.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11621.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10936.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9246.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6314.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4153.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA9F18C0E6D40C31E577431D0ABFD84A2B731EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816513   (4133) от 06.09.2025
-
-Андрей Вильк | Методическое пособие по кумитэ WKF (2025) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого эта книга? Тренеров – поможет грамотно выстраивать подготовку бойцов, корректировать ошибки, развивать их физические и технические качества. Спортсменов – научит работать над скоростью, выносливостью, тактикой и ментальной подготовкой для выхода на новый уровень. Что получит читатель? Готовые тренировочные схемы: Подробные программы физической подготовки, (   Читать дальше...   )Жанр: Учебное пособие, спорт, единоборстваИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3886B78A11A9985B26C6C54E66290C6886164459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817264   (3611) от 09.09.2025
-
-А.В. Ткачев (ред.) | Руководство для арбитров. Русская версия (2025) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3611.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Руководство для арбитров» — это незаменимый ресурс для арбитров, игроков и организаторов, стремящихся глубже понять шахматные правила. Созданное командой Комиссии арбитров ФИДЕ, оно включает актуальные изменения в правилах и их применение. Книга охватывает важные аспекты, такие как правила игры, турнирные процедуры и швейцарская система, а также предлагает практические (   Читать дальше...   )Жанр: Руководство, шахматы, арбитражПеревод: Г. БарановИздательство: Библиотека ФШРФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8753A10D07C400F57E8CB42A402357C63E628713
 ```
 
 https://mybot314.ru/tekegram_catalog/

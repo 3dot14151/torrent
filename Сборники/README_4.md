@@ -1,3 +1,29 @@
+###  Публикация: 1804395   (65625) от 29.06.2025
+
+Сборники - Chroma Supply - Ruminate: Experimental 3D Paint Textures [JPG, PSD, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти работы были созданы посредством экспериментального процесса слияния физических картин с цифровым 3D-программным обеспечением. Результатом является уникальная коллекция форм и структур.  Они привнесут оригинальность в различные проекты, такие как дизайн упаковки, брендинг/фирменная работа, концертные постеры, обложки альбомов и многое другое.Формат: JPG, PSD, ABRРазрешение файлов: 5000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF03EAD8034CB7286C6CE7B22388C14861079346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808035   (65074) от 22.07.2025
 
 Сборники - Sc6ut Video Editing Pack #3 [AEP, MP4, MOV, EXE, TTF, OTF, TTC, FFX, GIF, MP3, JPG, MBLOOK, OFX]
@@ -6,7 +32,7 @@
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65074.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64841.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63458.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31632.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30548.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28314.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25738.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25668.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25537.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25336.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24254.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23643.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17397.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15071.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13384.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13302.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11690.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11201.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10976.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10765.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10080.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10068.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10056.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10042.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9724.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Cello от Studio Yorktown — это универсальная коллекц�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F105ED6C203388EA11FE5E2C9485FDF24E253759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810662   (9229) от 05.08.2025
-
-Сборники - UI8 - InkJar People Illustrations - Pack 1 [AI, FIG, PDF, PNG, PSD, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9229.jpg" />
-</div>
-
-
-###  Подробнее
-
-InkJar People Illustrations — это коллекция из 30 прекрасных иллюстраций, нарисованных от руки чернилами.Формат: AI, FIG, PDF, PNG, PSD, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4ABDD1169AAF748D5142A93D716ED1DD61EFC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1080810   (287586) от 07.12.2016
+
+Ленинград - Обезьяна и орёл (2016) Single [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Обезьяна и орёлЖанр: Rock, SkaПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19094793CCF0DF4BF4CCAF26691DCFB05B42DEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335404   (287561) от 02.11.2019
+
+Catharsis - Зеркало Судьбы (2019) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я вернусь
+02. Время потерь
+03. Лечу за тобой
+04. Зеркало судьбы(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086552C191EA63124BD36B6F763BB4A98D4894CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848391   (287541) от 09.12.2014
+
+Дельфин (Dolphin) - Андрей (2014) [MP3|320 кб/с]<Alternative Rock, Experimental>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Листья
+02. Девять
+03. Двое
+04. Обман(   Читать дальше...   )Жанр: Alternative Rock, ExperimentalПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2A0F6111414EF3176942CD18FE844B4EF07F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081004   (285701) от 08.12.2016
+
+Louna - Дивный новый мир (2016) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Громче и злей!
+ 02. Весна (feat. Владимир Котляров)
+ 03. Пропаганда
+ 04. За гранью(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64331BC845F45604F902EB2609AD4DF98FC58488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081216   (284769) от 09.12.2016
 
 Стимфония - АКТ III (2016) [MP3|320 Kbps] <Steampunk, Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284769.jpg" />
+  <img src="Z:/picture/008/save_picture_284769.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Lorelei - Тени Октября (2017) [MP3|320 Kbps] <Gothic Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284607.jpg" />
+  <img src="Z:/picture/008/save_picture_284607.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284271.jpg" />
+  <img src="Z:/picture/008/save_picture_284271.jpg" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283409.jpg" />
+  <img src="Z:/picture/008/save_picture_283409.jpg" />
 </div>
 
 
@@ -125,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283005.jpg" />
+  <img src="Z:/picture/008/save_picture_283005.jpg" />
 </div>
 
 
@@ -154,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282899.jpg" />
+  <img src="Z:/picture/008/save_picture_282899.jpg" />
 </div>
 
 
@@ -183,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282892.jpg" />
+  <img src="Z:/picture/008/save_picture_282892.jpg" />
 </div>
 
 
@@ -213,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282308.jpg" />
+  <img src="Z:/picture/008/save_picture_282308.jpg" />
 </div>
 
 
@@ -242,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282305.jpg" />
+  <img src="Z:/picture/008/save_picture_282305.jpg" />
 </div>
 
 
@@ -271,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281163.jpg" />
+  <img src="Z:/picture/008/save_picture_281163.jpg" />
 </div>
 
 
@@ -298,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280981.jpg" />
+  <img src="Z:/picture/008/save_picture_280981.jpg" />
 </div>
 
 
@@ -327,7 +440,7 @@ Change of Loyalty - Breathtaker (2015) [MP3|320 кб/с]<Progressive Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280926.jpg" />
+  <img src="Z:/picture/008/save_picture_280926.jpg" />
 </div>
 
 
@@ -356,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280638.jpg" />
+  <img src="Z:/picture/008/save_picture_280638.jpg" />
 </div>
 
 
@@ -385,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279783.jpg" />
+  <img src="Z:/picture/008/save_picture_279783.jpg" />
 </div>
 
 
@@ -414,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279116.jpg" />
+  <img src="Z:/picture/008/save_picture_279116.jpg" />
 </div>
 
 
@@ -443,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278949.jpg" />
+  <img src="Z:/picture/008/save_picture_278949.jpg" />
 </div>
 
 
@@ -472,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278782.jpg" />
+  <img src="Z:/picture/008/save_picture_278782.jpg" />
 </div>
 
 
@@ -498,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278702.jpg" />
+  <img src="Z:/picture/008/save_picture_278702.jpg" />
 </div>
 
 
@@ -527,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278687.jpg" />
+  <img src="Z:/picture/008/save_picture_278687.jpg" />
 </div>
 
 
@@ -556,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277332.jpg" />
+  <img src="Z:/picture/008/save_picture_277332.jpg" />
 </div>
 
 
@@ -585,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277064.jpg" />
+  <img src="Z:/picture/008/save_picture_277064.jpg" />
 </div>
 
 
@@ -614,7 +727,7 @@ para bellvm - Почти оружие (2018) [MP3|320 Kbps] <Gothic Rock, Indie 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276596.jpg" />
+  <img src="Z:/picture/008/save_picture_276596.jpg" />
 </div>
 
 
@@ -628,122 +741,6 @@ para bellvm - Почти оружие (2018) [MP3|320 Kbps] <Gothic Rock, Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2162045E2E9A23450BABD0B4BAF36EAF87F0C548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188013   (275831) от 01.12.2017
-
-Тараканы! - Много шума из ничего: альбом (2017) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дом-666
-02. Львиный рёв
-03. Stacy Hairy (feat. Иван Глобин & Дарья Глобина)
-04. Позор российского панк-рока (Инфа 100%) (feat. Порнофильмы & Андрей Шморгун)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B1BB7C579EFC3BC93B33A0377743B23891730C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188237   (275824) от 01.12.2017
-
-Distemper - Мир, разделённый пополам (2017) [MP3|320 Kbps] <Ska Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дрогнул мир монотонный
-02. Мы у жизни не просим прощения
-03. Буря
-04. Самое лучшее время(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C8FEC77F3368B1E27FBB036EF8C9D8AF166B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188014   (275647) от 01.12.2017
-
-Аквариум feat. Kyiv Virtuosi - Symphonia БГ (2017) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Увертюра / Сирин, Алконост, Гамаюн (Live)
-2. Дело мастера Бо (Live)
-3. Из хрустального захолустья (Live)
-4. Навигатор (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DF843DD5841FAD2FD03CF82F0435AE999F3C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188064   (275527) от 01.12.2017
-
-The Hatters - Forever Young Forever Drunk (2017) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FYFD (Forever Young, Forever Drunk)
-02. Кайфмэн
-03. F*сk You
-04. Мама(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFBA814990B506EE0A640AC7A217148D4DBDCEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

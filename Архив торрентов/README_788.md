@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872398.jpg" />
+  <img src="Z:/picture/008/save_picture_872398.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872397.jpg" />
+  <img src="Z:/picture/008/save_picture_872397.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872396.jpg" />
+  <img src="Z:/picture/008/save_picture_872396.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ User Time Control Center 4.9.4.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872385.jpg" />
+  <img src="Z:/picture/008/save_picture_872385.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Visual Studio Community/Professional/Enterprise 2015 14.0.25431.01 Upd
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872383.jpg" />
+  <img src="Z:/picture/008/save_picture_872383.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872378.jpg" />
+  <img src="Z:/picture/008/save_picture_872378.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872349.jpg" />
+  <img src="Z:/picture/008/save_picture_872349.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ R-Studio 8.13 Build 176093 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872345.jpg" />
+  <img src="Z:/picture/008/save_picture_872345.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Acme CAD Converter 2019 8.9.8.1510 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872342.jpg" />
+  <img src="Z:/picture/008/save_picture_872342.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Cockos REAPER 6.08 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872341.jpg" />
+  <img src="Z:/picture/008/save_picture_872341.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Bat! Professional 9.1.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872281.jpg" />
+  <img src="Z:/picture/008/save_picture_872281.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Comedy Баттл. Новый сезон (10.04.2020) WEB-DL [H.264/1080p-LQ] (�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872278.jpg" />
+  <img src="Z:/picture/008/save_picture_872278.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tor Browser Bundle 9.0.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872220.jpg" />
+  <img src="Z:/picture/008/save_picture_872220.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872212.jpg" />
+  <img src="Z:/picture/008/save_picture_872212.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VLC Media Player 3.0.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872209.jpg" />
+  <img src="Z:/picture/008/save_picture_872209.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Illustrator 2020 24.1.2.402 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872203.jpg" />
+  <img src="Z:/picture/008/save_picture_872203.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ V-Ray Next 4.30.02 for 3ds Max 2016-2021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872170.jpg" />
+  <img src="Z:/picture/008/save_picture_872170.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Bat! Voyager 9.1.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872168.jpg" />
+  <img src="Z:/picture/008/save_picture_872168.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.25.5400 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872152.jpg" />
+  <img src="Z:/picture/008/save_picture_872152.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872136.jpg" />
+  <img src="Z:/picture/008/save_picture_872136.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872135.jpg" />
+  <img src="Z:/picture/008/save_picture_872135.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872134.jpg" />
+  <img src="Z:/picture/008/save_picture_872134.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872133.jpg" />
+  <img src="Z:/picture/008/save_picture_872133.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872131.jpg" />
+  <img src="Z:/picture/008/save_picture_872131.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872130.jpg" />
+  <img src="Z:/picture/008/save_picture_872130.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872129.jpg" />
+  <img src="Z:/picture/008/save_picture_872129.jpg" />
 </div>
 
 

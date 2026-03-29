@@ -6,7 +6,7 @@ The KMPlayer 4.0.8.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746251.jpg" />
+  <img src="Z:/picture/008/save_picture_746251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Picosmos Tools 1.5.1 Portable by poni-koni [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746243.jpg" />
+  <img src="Z:/picture/008/save_picture_746243.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Viber 10.0.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746216.jpg" />
+  <img src="Z:/picture/008/save_picture_746216.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Game WideScreener 1.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746207.jpg" />
+  <img src="Z:/picture/008/save_picture_746207.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BlueStacks Tweaker 5.10.2 beta Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746203.jpg" />
+  <img src="Z:/picture/008/save_picture_746203.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ WhatsApp 0.3.2043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746202.jpg" />
+  <img src="Z:/picture/008/save_picture_746202.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Readiris Corporate 15.2.0 Build 8693 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746172.jpg" />
+  <img src="Z:/picture/008/save_picture_746172.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PowerISO 6.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746165.jpg" />
+  <img src="Z:/picture/008/save_picture_746165.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Internet Download Manager 6.25 Build 20 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746163.jpg" />
+  <img src="Z:/picture/008/save_picture_746163.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ MediaHuman YouTube Downloader 3.9.9.65 (1301) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746150.jpg" />
+  <img src="Z:/picture/008/save_picture_746150.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Total Commander Ultima Prime 8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746147.jpg" />
+  <img src="Z:/picture/008/save_picture_746147.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Phase One Capture One Pro 22 15.0.1.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746146.jpg" />
+  <img src="Z:/picture/008/save_picture_746146.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ActivePresenter Professional Edition 7.2.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746129.jpg" />
+  <img src="Z:/picture/008/save_picture_746129.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Allavsoft Video Downloader Converter 3.15.6.6666 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746128.jpg" />
+  <img src="Z:/picture/008/save_picture_746128.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ BlueStacks App Player 4.50.0.1043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746092.jpg" />
+  <img src="Z:/picture/008/save_picture_746092.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Internet Download Manager 6.32 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746082.jpg" />
+  <img src="Z:/picture/008/save_picture_746082.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mem Reduct 3.3.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746077.jpg" />
+  <img src="Z:/picture/008/save_picture_746077.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Sysinternals Suite Portable 03.06.2013 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746069.jpg" />
+  <img src="Z:/picture/008/save_picture_746069.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ The KMPlayer 4.0.8.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746052.jpg" />
+  <img src="Z:/picture/008/save_picture_746052.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ GenArts Sapphire Plugin 9.021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746040.jpg" />
+  <img src="Z:/picture/008/save_picture_746040.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WinPE 10 Sergei Strelec (x64) 2016.05.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746038.jpg" />
+  <img src="Z:/picture/008/save_picture_746038.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746014.jpg" />
+  <img src="Z:/picture/008/save_picture_746014.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Opera 52.0.2871.40 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746011.jpg" />
+  <img src="Z:/picture/008/save_picture_746011.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ LibreOffice 6.0.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746009.jpg" />
+  <img src="Z:/picture/008/save_picture_746009.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Glary Utilities Pro 5.95.0.117 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746007.jpg" />
+  <img src="Z:/picture/008/save_picture_746007.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MyDraw 2.1.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745999.jpg" />
+  <img src="Z:/picture/008/save_picture_745999.jpg" />
 </div>
 
 

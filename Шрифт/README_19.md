@@ -1,3 +1,113 @@
+###  Публикация: 1782047   (70103) от 26.02.2025
+
+Шрифты - WELTKERN - Lausanne [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lausanne — необычайно сложный шрифт без засечек с ультраорганической эстетикой, предлагающий исключительную читаемость в малых размерах, при этом раскрывающий изысканные, сложные детали в дисплейных размерах. Его универсальность и вневременной дизайн делают его незаменимым инструментом для широкого спектра творческих проектов.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222F3D6A36A4D78AEC4130D67D2AA5E9B3236AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781962   (70087) от 26.02.2025
+
+Шрифты - LettError Type - LTR Limited Grotesque [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70087.jpg" />
+</div>
+
+
+###  Подробнее
+
+LTR Limited Grotesque — семейство низкоконтрастных гуманистических гротесков с дерзким римским и курсивом с крутым углом. Нацелено на полуофициальные сообщения, которые приглашают вас на чашку чая. Limited содержит коллекцию тщательно прорисованных стилей, которые, хотя и не всегда следуют установленным нормам последовательности в цифровом шрифте, выглядят приветливыми (   Читать дальше...   )Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB927870A39598A6FAF48E1577AA548E88ED76E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782221   (70070) от 27.02.2025
+
+Шрифты - Creative Market - Beyork - A Classic Sans Serif Font - 290876760 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем новый фирменный шрифт Beyork — классический шрифт без засечек, воплощающий элегантность и силу, что делает его отличным выбором для сложных дизайнов. Семейство шрифтов предлагает шесть различных стилей: Regular, Italic, Semibold, Semibold Italic, Bold и Bold Italic, что обеспечивает универсальность для широкого спектра применений.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BE5E3C13C8D4BC66DAC85A61A54A421D964C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782217   (70069) от 27.02.2025
+
+Шрифты - Creative Market - CS Axone – Ancient Greek Font - 290819982 [OTF, TTF. WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленный древнегреческим шрифт CS Axone — это шрифт, вдохновленный элегантностью и величием древнегреческих рукописей. Он передает суть классического письма с его отчетливыми формами и изысканными деталями, привнося нотку исторической изысканности в современный дизайн.
+
+Кириллица не поддерживается.Формат: OTF, TTF. WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10FF078C4E9FB9DC9E58B54CBD8C0B5D92A6CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782160   (70064) от 27.02.2025
 
 Шрифты - MyFonts - Munchio [OTF, TTF]
@@ -6,7 +116,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70064.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70042.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70037.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70034.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70032.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70030.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70007.jpg" />
 </div>
 
 
@@ -196,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70005.jpg" />
 </div>
 
 
@@ -224,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70004.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69983.jpg" />
 </div>
 
 
@@ -278,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69972.jpg" />
 </div>
 
 
@@ -304,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69970.jpg" />
 </div>
 
 
@@ -330,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69949.jpg" />
 </div>
 
 
@@ -356,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69936.jpg" />
 </div>
 
 
@@ -382,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69933.jpg" />
 </div>
 
 
@@ -408,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69905.jpg" />
 </div>
 
 
@@ -434,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69894.jpg" />
 </div>
 
 
@@ -460,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69884.jpg" />
 </div>
 
 
@@ -488,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69865.jpg" />
 </div>
 
 
@@ -516,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69862.jpg" />
 </div>
 
 
@@ -544,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69834.jpg" />
 </div>
 
 
@@ -572,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69814.jpg" />
 </div>
 
 
@@ -585,110 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C271B82A71EE9C1CD324DB43895250C9DFA5B25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783500   (69813) от 06.03.2025
-
-Шрифты - MyFonts - Bari Sans [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bari Sans — это сплошной гротескный шрифт с напряженными изгибами и компактными пропорциями, но также и с более тонкими деталями, такими как угловые окончания, двухэтажная g и характерная форма строчной a. Разработанный, чтобы выглядеть крепким и мужественным, этот шрифт также довольно универсален с его 9 весами, от тонкого до черного, плюс соответствующий курсив. (   Читать дальше...   )Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783452   (69812) от 06.03.2025
-
-Шрифты - MyFonts - Kelpt Sans [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kelpt Sans — это измененная модифицированная форма оригинального шрифта Kelpt. Разработанный как более корпоративный, шрифт имеет плоские концы, которые гармонируют с острыми углами. Благодаря всем этим особенностям «Kelpt Sans» — это заметный, привлекающий внимание и уникальный шрифт. Он поставляется с 9 начертаниями с 2 вариантами высоты, чтобы подходить для многофункционального (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA0B82C1DA75C16A48297545FB0B20BEBB4D77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783498   (69807) от 06.03.2025
-
-Шрифты - MyFonts - Rapor [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rapor — это мощное и элегантное сочетание, созданное из сочетания гротесковых шрифтов с прочными гемометрическими основами, такими как Futura, и гротескных шрифтов, основанных на системе равной ширины. Его слегка смягченные, равномерно сходящиеся диагональные углы добавляют ему отличительности. Он имеет 10 начертаний от тонкого до черного. Он состоит из двадцати (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755DE7EF8FE146F76CD4AB9150F09397176BDDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783475   (69805) от 06.03.2025
-
-Шрифты - MyFonts - Nsai [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nsai — это минималистичный и аккуратный шрифт без засечек. Его можно легко подобрать к невероятно большому набору проектов, поэтому добавьте его в свои творческие идеи и обратите внимание, как он выделяет их!Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E493999DE609085EDB5A4D484CC15FBA5B391F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

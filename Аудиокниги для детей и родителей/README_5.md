@@ -1,3 +1,83 @@
+###  Публикация: 1461201   (1022135) от 08.04.2021
+
+Энди Шеферд | Мальчик, который летал с драконами. Книга 3 (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас не может представить свою жизнь без маленького дракончика Блика. Для него это не просто питомец, а настоящий лучший друг! Но Томас пообещал дедушке, что отпустит дракончика домой, на волю. Проблема только в том, что это ужасно непросто. Им же так весело вместе! А еще нужно понять, где у драконов дом и как заставить их уйти. И что за тайну скрывает дерево с (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 04:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5D0042178CE0507752EC5C5D7AD8680B47BC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461200   (1022134) от 08.04.2021
+
+Энди Шеферд | Мальчик, который воспитывал драконов. Книга 2 (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огненное шоу с драконами и фейерверками продолжается!
+
+У Томаса и его друзей есть большой секрет – это дракончик Блик, выросший на особом драконьем дереве в дедушкином саду. Но очень сложно скрыть своего питомца, когда он, словно непредсказуемый вулкан в твоем кармане, дышит огнем, норовит обжечь в любую минуту и вообще ведет себя как захочет. Томасу придется проявить (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 03:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C913B89DB86B5B88FA3E41088B6B0DBE81C11A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461195   (1022122) от 08.04.2021
+
+Энди Шеферд | Мальчик, который выращивал драконов. Книга 1 (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Томас считал себя опытным огородником и твердо знал, что ничего непредсказуемого в дедушкином саду быть не может. Поэтому странный фрукт, выросший на каком-то кактусе, особого подозрения не вызвал. Томас наверняка не принес бы его домой, если бы знал, что из чего-то, похожего на ананас, вылупится прелестный дракончик и превратит его жизнь в сплошные проблемы (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 03:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224060F4F5277B9C35663BC3634B71D2B01D0D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461212   (1022104) от 08.04.2021
 
 Лия Гераскина | В стране невыученных уроков. Книги 1,2,3 (2010, 2020) [MP3]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022104.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022029.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022012.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022008.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021999.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021848.jpg" />
 </div>
 
 
@@ -171,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021841.jpg" />
 </div>
 
 
@@ -200,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021682.jpg" />
 </div>
 
 
@@ -229,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021674.jpg" />
 </div>
 
 
@@ -258,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021630.jpg" />
 </div>
 
 
@@ -286,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021580.jpg" />
 </div>
 
 
@@ -312,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021492.jpg" />
 </div>
 
 
@@ -341,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021246.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021222.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021077.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020556.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020525.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020329.jpg" />
 </div>
 
 
@@ -503,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020169.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020165.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020156.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019669.jpg" />
 </div>
 
 
@@ -609,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019503.jpg" />
 </div>
 
 
@@ -622,90 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E7B210979E188E90C808BE0D4B6A248E1E48BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465045   (1019501) от 24.04.2021
-
-Фрида Нильсон | Хедвиг наконец-то идёт в школу! Книга 1 (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семилетней Хедвиг кажется, что она – единственный ребёнок во всём мире. Ведь они с родителями живут в такой глуши, где даже поговорить не с кем. И каждый день похож на предыдущий – это невыносимо скучно! Но очень скоро всё изменится, потому что Хедвиг наконец то пойдёт в школу!
-
-Остроумная и немного хулиганская серия книг известнейшей шведской писательницы Фриды (   Читать дальше...   )Жанр: Детские приключенияПродолжительность: 02:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F050DD32CC4F994547DBC0C0634F67D72C68710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206630   (1019410) от 24.04.2021
-
-Жан де Лафонтен | Мировая коллекция басен (2006) [MP3, Владимир Конкин, Ирина Маликова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник басен знаменитого французского баснописца Жана де Лафонтена из 8 дисков.
-Басни Лафонтена - величайшее явление всемирной литературы. Они не только заключают в себе гениальные литературные достоинства, но и представляют читателю в аллегорических образах веками накопленную практическую мудрость всех народов. До сих пор они дают полезные советы и предостерегают (   Читать дальше...   )Жанр: Детские басниИздательство: ПрестижСтудио-МПродолжительность: 06:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E3D84EAA87686870043095AA90BED4F2C0C231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 55430   (1019402) от 24.04.2021
-
-Квадро-Диск | Сказка с нами спать ложится (2006) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колыбельные сказки - это спокойная вечерняя программа, которая поможет Вам уложить малыша спать.
- Старинные русские сказки в удивительно добром изложении сказочного дедушки Дрёмы и нежные,
-ласковые мелодии колыбельных успокоят Вашего малыша и помогут ему легко заснуть.
-Роль дедушки Дрёмы исполняет народный артист России Александр Сергеевич Леньков.Жанр: Детские сказки, музыкаПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9599545425380409C0D8E8A98754F6049678F33
 ```
 
 https://mybot314.ru/tekegram_catalog/

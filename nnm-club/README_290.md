@@ -1,24 +1,22 @@
-###  Публикация: 1850247   (1054162) от 27.01.2026
+###  Публикация: 1851836   (1055414) от 04.02.2026
 
-Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
+Потерянная душа / Anima persa (1977) BDRip [H.264]
 
->>Научная и техническая литература
->>Здоровье и медицина
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
+  <img src="Z:/picture/005/save_picture_1055414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
-
-Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Фильм основан на романе "L'anima persa" Джованни Арпино (1966)... 19-летний молодой человек Тино приезжает в Венецию, чтобы учиться в художественной академии, и селится в большом доме у своих дяди и тёти. Вскоре он начинает подозревать, что за фасадом благополучия и обеспеченности супругов скрывается какая-то тайна и в доме кроме них и экономки есть кто-то (   Читать дальше...   )Производство: Франция, Италия / Dean Film, Les Productions Fox EuropaЖанр: драма, детектив, триллерРежиссер: Дино РизиАктеры: Витторио Гассман, Катрин Денёв, Данило Маттеи, Анисе Альвина, Эстер Карлони, Мишель Капнист, Джино Кавальери, Анджело БоскариольПеревод: профессиональный двухголосый (ТВЦ)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
+magnet:?xt=urn:btih:BF69A596A234A446703567AF78A464EAE8CC5DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850251   (1054161) от 27.01.2026
+###  Публикация: 1851838   (1055413) от 04.02.2026
 
-Цзинь Юйцзян | Тепло светлячков. О маленьких чудесах, что делают жизнь полной  (2026) [FB2]
+SoftPerfect RAM Disk 26.2 [Multi/Ru]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054161.jpg" />
+  <img src="Z:/picture/005/save_picture_1055413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Каждый человек как светлячок. Он светит недолго, но если рядом много таких огоньков, становится теплее всем». Цзинь Юйцзян пишет о памяти, любви, одиночестве и о том, как уязвимость превращается в силу. В книге собраны истории о свете, который рождается в самых темных местах. Просто и трогательно она говорит о самом важном: о тепле и любви, которые человек может (   Читать дальше...   )Жанр: Популярная психологияПеревод: с кит. Д. ЖигульскойИздательство: Москва: МИФФормат: FB2Качество: Изначально электронное (ebook)
+SoftPerfect RAM Disk - программа для создания виртуального диска в оперативной памяти. Так как память намного быстрее, чем физические жесткие диски, имеет смысл для достижения более высокой производительности хранить временные данные в быстродействующей оперативной памяти. Современные компьютеры оснащены большим количеством оперативной памяти, однако большую часть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8598492C18C6C16E3CAB592F8AC11CDF8E2C3C6D
+magnet:?xt=urn:btih:C2E982244704103781B28073257A1AE6D4C78553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850373   (1054160) от 27.01.2026
+###  Публикация: 1851839   (1055412) от 12.02.2026
 
-Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening, French Deep House, AI>
+Горничная / The Housemaid (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit] [MVO]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054160.jpg" />
+  <img src="Z:/picture/005/save_picture_1055412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bonne Nuit
-02 - Décembre
-03 - Disparu
-04 - Noël(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 00:34:41
+Сюжет основан на романе-бестселлере Фриды МакФадден. Молодая девушка Милли пытается сбежать от своего прошлого и устраивается горничной в богатый дом семьи Винчестер. Кажется, это шанс начать всё заново… но скоро она понимает, что под роскошью скрываются тёмные тайны, опасные игры и психологические манипуляции. А её комната в мансарде запирается снаружи. Чем ближе (   Читать дальше...   )Производство: США / Lionsgate, Hidden Pictures, Pretty Dangerous PicturesЖанр: Триллер, драмаРежиссер: Пол ФигАктеры: Сидни Суини, Брэндон Скленар, Аманда Сайфред, Микеле Морроне, Элизабет Перкинс, Меган Фергюсон, Эллен Тамаки, Indiana Elle, Алайна Сердженер, Арабелла Оливия КларкПеревод: Многоголосый (HDRezka Studio, UltradoxStudio)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (Full, SDH)Продолжительность: 02:11:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
+magnet:?xt=urn:btih:5A5959EE67942BB1839ADABFFE641F302470837E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850362   (1054159) от 27.01.2026
+###  Публикация: 1851844   (1055411) от 04.02.2026
 
-Журнал | Садовод и огородник №1 (568) (январь 2026) [PDF]
+MediaHuman YouTube Downloader 3.9.18 (0202) (x64) [Multi/Ru]
 
->>Журналы
->>Домоводство (журналы)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054159.jpg" />
+  <img src="Z:/picture/005/save_picture_1055411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D6676E27C3E811B74AC5117A3294FDA11AD9E70
+magnet:?xt=urn:btih:EBC0E03AAC27C35095C29A4ED6221D4B6B77FCDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,25 +102,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850352   (1054158) от 27.01.2026
+###  Публикация: 1851843   (1055410) от 04.02.2026
 
-Журнал | Сабрина №01 (2026) [PDF]
+Неизвестная... (1966) WEBRip [H.264/1080p]
 
->>Журналы
->>Хобби (журналы)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054158.jpg" />
+  <img src="Z:/picture/005/save_picture_1055410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+По мотивам повести Акимова И., Карпенко В. "На чужом пороге", основанной на реальных событиях.
+Осень 1944 года. Советские войска вышли к Балтийскому побережью, отрезав значительные боеспособные группировки немецких войск на Курляндском полуострове. Верхушка армии чуяла правду: рейх накануне гибели. В Берлине пытались нащупать сепаратные связи с западными (   Читать дальше...   )Производство: СССР / Центральное телевидениеЖанр: военный, драмаРежиссер: Мария МуатАктеры: Руфина Нифонтова, Владимир Муравьёв, Леонид Губанов, Григорий Михайлов, Леонид Броневой, Юрий Багинян, Евгений Кузнецов, Владимир МуравьевПродолжительность: 01:33:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E77B17A6C16B6BC2C4E554273735B9896507CA2B
+magnet:?xt=urn:btih:E13544C9FD54A1F25B819617E132CED6211EC233
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,25 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850351   (1054157) от 27.01.2026
+###  Публикация: 1851849   (1055409) от 04.02.2026
 
-Журнал | Сабрина №12 (2025) [PDF]
+Чаклун и Румба (2007) WEB-DL [H.264/1080p]
 
->>Журналы
->>Хобби (журналы)
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054157.jpg" />
+  <img src="Z:/picture/005/save_picture_1055409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: ВязаниеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+В центре лирико-драматического повествования — фронтовая судьба одного из миллионов простых солдат Великой Отечественной — сапера Федора Чаклуна и его четвероногого помощника — специально обученной овчарки по кличке Румба. С помощью Румбы Федор обнаруживает заминированный участок дороги и предупреждает об этом старшего по званию — младшего лейтенанта Светлану. Но (   Читать дальше...   )Производство: Беларусь / БеларусьфильмЖанр: Драма, военныйРежиссер: Андрей ГолубевАктеры: Андрей Федорцов, Ольга Рептух, Алексей Шедько, Юлия Полубинская, Александр Ткаченок, Андрей Голубев, Николай Чиндяйкин, Алла Пролич, Зоя Белохвостик, Владимир МищанчукЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DEC1DF6AEEBAE681B535D3008FEDFE67997278A
+magnet:?xt=urn:btih:B8B46FE5DA4E8E2F3F3E19354BDEC496463FDFEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,26 +155,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850345   (1054156) от 27.01.2026
+###  Публикация: 1851657   (1055408) от 04.02.2026
 
-Борис Батыршин | Московский лес (Книга 1). День Ботаника (2025) [MP3, Дмитрий Хазанович]
+Николай Дубчиков | Пятна (2025) [MP3, Артём Чугуев (CHUGA)]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054156.jpg" />
+  <img src="Z:/picture/005/save_picture_1055408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если мегаполис вокруг тебя превратился в непроходимую чащобу, если на руинах спальных районов выросли гигантские, выше сталинских высоток, деревья, а улицы оказались во власти странных растений и ещё более странных существ - это ещё не повод, чтобы самому становиться зверем.
-Останься человеком - и неважно, с карабином в руках или с котомкой бродячего торговца за (   Читать дальше...   )Жанр: ПостапокалипсисИздательство: Аудиокнига своими руками (Творческая группа «СамИздат»)Продолжительность: 11:01:45
+Конец света наступил, но не из-за ядерного удара или вторжения инопланетян. Всему виной пандемия бурой чесотки. Первый признак болезни — пятна на коже. Она медленно, но верно уносит жизни тех, кого коснулась.
+Теперь всё измеряется банками тушёнки, литрами бензина и патронами. Общество разделилось на «чистых» и «чесоточников». Первые создают общины, чтобы защитить (   Читать дальше...   )Жанр: Постапокалипсис, ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 14:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:364CA02BF4C90CEA453498382410848495F04878
+magnet:?xt=urn:btih:60AF605C29CC57C147C4ECFAFF0AC1C6314EFC31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,28 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850319   (1054155) от 27.01.2026
+###  Публикация: 1851685   (1055407) от 04.02.2026
 
-VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Дмитрий Иванов | Барин (Книга 3). Барышни и барыши (2026) [MP3, Илья Кочетков]
 
->>Electronic
->>Trance
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
+  <img src="Z:/picture/005/save_picture_1055407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
-02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
-03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
-04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
+Нелёгка доля попаданца. Особенно если угодил не в эльфийский лес, не в королевский дворец, в Россию XIX века – в шкуру самого обычного небогатого дворянина. И даже наличие рядом в теле конюха пронырливого армянского таксиста из будущего мало помогает. Зато есть природа, барышни и, возможно, денежные доходы. В голове, конечно… ладно, признаю – пусто. Но коммерческая (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРесПродолжительность: 08:04:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
+magnet:?xt=urn:btih:4CA630931BABD75D1B3161DC0A44FD28AE3ABCAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,27 +208,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850287   (1054154) от 27.01.2026
+###  Публикация: 1851692   (1055406) от 04.02.2026
 
-Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Volume 2. Advanced Networking and Security (2024) [PDF, EPUB] [EN]
+Александрия Рихтер | Кристофер Клин (Книга 1). Кристофер Клин и два короля (2022) [MP3, Станислав Иванов, Александрия Рихтер]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054154.jpg" />
+  <img src="Z:/picture/005/save_picture_1055406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pass the Cisco Certified Network Associate (CCNA) exam on your very first try!
-
-Acing the CCNA Exam comes directly from Jeremy McDowell, a much-loved Cisco tutor who’s amazing courses have helped hundreds of thousands of students pass their exams. This comprehensive guide is split over two volumes—Acing the CCNA Exam, Volume 1 Fundamentals and Protocols and Acing (   Читать дальше...   )Жанр: LANs, Cisco Certification Guides, Computer Networking, Security CertificationsЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Долгожданная аудионовинка про дружбу, любовь и преданность.
+Первая часть захватывающей истории про дружбу, соперничество и магию для всех фанатов «Страны сказок» Криса Колфера и «Школы добра и зла» Сомана Чайнани.
+Кристоферу нужно добраться до рыцарской Академии и пробудить в себе силу, справится ли он с предназначением?
+Кристофер Клин живет на Краю Cвета, мечтает (   Читать дальше...   )Жанр: ФэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 08:35:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6279A8E2DF769837123567565D05B09044AFEC1
+magnet:?xt=urn:btih:66FD92E1C9D82D50B9CEA4FEEAC716255737A60E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,25 +237,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850285   (1054153) от 27.01.2026
+###  Публикация: 1851693   (1055405) от 04.02.2026
 
-Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical Guide to Boosting Software Development with ChatGPT, GitHub Copilot, Ollama, Aider, and Beyond (Rheinwerk Computing) ...
+Анастасия Безденежных | Бюро магических расследований (Книга 1). Дело Теней (2025) [MP3, Дмитрий Чепусов]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054153.jpg" />
+  <img src="Z:/picture/005/save_picture_1055405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Generative AI is transforming software development. Stay on the cutting edge with this guide to AI pair programming! Learn how to make the most of modern tools like ChatGPT and GitHub Copilot to improve your coding. Automate refactoring, debugging, and other tedious tasks, and use techniques such as prompt engineering and retrieval-augmented generation to get the (   Читать дальше...   )Жанр: Software Design Tools, Generative AI, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Смесь атмосферного городского фэнтези и детектива в сеттинге альтернативной магической России. Эстетика волшебной Академии, интриги в Управлении делами магов и очарование московских улочек. Магическая Москва, наши дни. Из Академии стихий пропадают студенты. Их находят мертвыми со следами теней – пугающих тварей из мира хаоса. Подозрения падают на стражей – магов, (   Читать дальше...   )Жанр: Фантастика, фэнтези, детективИздательство: ЭксмоПродолжительность: 12:36:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE80C91A7DB585100D1187D9C8FE3DC3278650D3
+magnet:?xt=urn:btih:21546DFCFCFEF9FE70675FD37AE7888134FEC2F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,27 +263,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850284   (1054152) от 27.01.2026
+###  Публикация: 1851694   (1055404) от 04.02.2026
 
-Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automation Study Guide: In-Depth Guidance and Practice (2025) [PDF, EPUB] [EN]
+Анастасия Безденежных | Бюро магических расследований (Книга 2). Обитель Теней (2025) [MP3, Дмитрий Чепусов]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054152.jpg" />
+  <img src="Z:/picture/005/save_picture_1055404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-With the Ansible automation tool, developers and system administrators in the enterprise can automate the provisioning, configuration, and management of distributed and on-premises systems. This study guide prepares you for the Red Hat Certified Engineer (RHCE) certification exam, 90% of which covers Ansible.
-
-Red Hat's Alex Soto Bueno and Andrew Block walk you through (   Читать дальше...   )Жанр: Linux Certification Guides, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Смесь атмосферного городского фэнтези и детектива в сеттинге альтернативной магической России.
+Эстетика волшебной Академии, интриги в Управлении делами магов и очарование московских улочек.
+По всей Москве вскрываются печати стражей, а тени – чудовища из мира хаоса – проникают в мир людей.
+Расследуя нападения этих тварей, начальник Службы стражей Николай Поулг вместе (   Читать дальше...   )Жанр: Фантастика, фэнтези, детективИздательство: ЭксмоПродолжительность: 09:00:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FECFC46FE3654C346AA8780B005F81D54856362
+magnet:?xt=urn:btih:A0C465AD8A82512A8C014870FAB6D042D6F1C789
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,25 +292,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850283   (1054151) от 27.01.2026
+###  Публикация: 1851696   (1055403) от 04.02.2026
 
-Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python. Your Practical Guide to Building Smart AI Systems with Machine Learning and Deep Learning (Rheinwerk Computing) (20 ...
+Алексей Котейко | Мои дорогие привидения (2025) [MP3, Александр Кудринский]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054151.jpg" />
+  <img src="Z:/picture/005/save_picture_1055403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Neural networks are at the heart of AI—so ensure you’re on the cutting edge with this guide! For true beginners, get a crash course in Python and the mathematical concepts you’ll need to understand and create neural networks. Or jump right into programming your first neural network, from implementing the scikit-learn library to using the perceptron learning algorithm. (   Читать дальше...   )Жанр: Introductory & Beginning Programming, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Прочь из шумного, перегретого города! Каких-то четыре часа электричкой – и вот они, живописные пейзажи, вековые сосны и дубы, чистейшая речка. А воздух! Солнце, тишь, благодать, приветливая старушка-хозяйка и вкуснейшие завтраки-обеды-ужины. Что ещё нужно для написания добротного, леденящего кровь хоррора?
+Федя искренне полагал, что если взять одного никому не известного (   Читать дальше...   )Жанр: Городское фэнтезиИздательство: ЛитнетПродолжительность: 07:03:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA4EA16B88AA76E6F09E150CE7B140784DA4747A
+magnet:?xt=urn:btih:AE8E9A89D6CAAF6313E9E8A67F69820A103928F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850282   (1054150) от 27.01.2026
+###  Публикация: 1851697   (1055402) от 04.02.2026
 
-Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps Teams - Unlock the Power of Containerization. Skills for Building, Securing, and Orchestrating with Docker (Rheinwerk  ...
+Андрей Васильев | Отель Перекресток (Книга 1). Отель Перекресток (2025) [MP3, Олег Троицкий, Светлана Шаклеина]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054150.jpg" />
+  <img src="Z:/picture/005/save_picture_1055402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn the ins and outs of containerization in Docker with this practical guide! Begin by installing and setting up the platform. Then master the basics: get to know important terminology, understand how to run containers, and set up port redirecting and communication. You’ll learn to create custom images, work with commands, and use key containerization tools. Gain (   Читать дальше...   )Жанр: Software Design Tools, Computer Operating Systems, Computer Network AdministrationЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Казалось бы, что может быть проще и понятнее, чем гостиница? Ну да, та самая, в которой останавливаются люди, отправившиеся в путешествие или те, которые ездят из города в город в соответствии со служебными обязанностями. Гостиница – это островок покоя в безумном мире, там усталый странник всегда получит постель, стол и внимание персонала в той мере, которую подразумевает (   Читать дальше...   )Жанр: МистикаИздательство: ЛитРесПродолжительность: 10:01:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6D2C6800B2409A122EE69FCFE4896244A316F47
+magnet:?xt=urn:btih:D74DE6F5E8CC5096A2AA8E2E7F075FBA3B434A24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +345,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850280   (1054149) от 27.01.2026
+###  Публикация: 1851702   (1055401) от 04.02.2026
 
-Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Installation to Security, Virtualization, and System Administration Across All Major Distributions (Rheinwerk Computing) (202 ...
+Арина Цимеринг | Как поймать монстра (Книга 1). Как поймать монстра. Круг первый (2024) [MP3, Алина Лихачёва]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054149.jpg" />
+  <img src="Z:/picture/005/save_picture_1055401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beginner or expert, professional or hobbyist, this is the Linux guide you need! Install Linux and walk through the basics: working in the terminal, handling files and directories, using Bash, and more. Then get into the nitty-gritty details of configuring your system and server, from compiling kernel modules to using tools like Apache, Postfix, and Samba. With information (   Читать дальше...   )Жанр: Computer Operating Systems, Linux Networking & System Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Джемма Роген зарабатывает на жизнь охотой на монстров. Когда в Ирландии пропадают двое ее коллег, группа Джеммы отправляется на поиски. Опытным охотникам на нечисть придется использовать весь свой арсенал, чтобы понять, что скрывают туманные холмы.Жанр: МистикаИздательство: МИФПродолжительность: 16:10:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4E0AEFA8ACA68CA93F2F3BA56455D5C8921111
+magnet:?xt=urn:btih:37EF8CF76B9CE7520CDE159F9C1A060192773B13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,25 +371,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850275   (1054148) от 27.01.2026
+###  Публикация: 1851711   (1055400) от 04.02.2026
 
-Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basics to Advanced Concepts with Hands-on Examples, and Best Practices for Writing Efficient, Secure, and Scalable Code ( ...
+Арина Цимеринг | Как поймать монстра (Книга 2). Как поймать монстра. Круг второй (2025) [MP3, Алина Лихачева]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054148.jpg" />
+  <img src="Z:/picture/005/save_picture_1055400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-If you need to know C++, look no further! This comprehensive guide has everything you need to master the modern C++23 language, from syntax fundamentals to advanced development concepts. Follow practical code examples as you learn object-oriented programming, work with standard library containers, program concurrent applications, and more. Don’t just learn how to (   Читать дальше...   )Жанр: Object-Oriented Software Design, C++ Programming Language, Object-Oriented DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Продолжение трилогии в долбаной Ирландии. Чем дальше охотников за нечистью уводит лес, тем больше размывается граница между «охотником» и «жертвой». Ночи становятся темнее, и в этой темноте все сложнее отличить правду от лжи, а врага – от друга…Жанр: Героическое фэнтезиИздательство: МИФПродолжительность: 17:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58AC16053360638447ECF0B5ACB3CC28225F7748
+magnet:?xt=urn:btih:192BDE38835902C6534996EDEE509D0EC1AB6340
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,26 +397,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850272   (1054147) от 27.01.2026
+###  Публикация: 1851712   (1055399) от 04.02.2026
 
-Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
+Арина Цимеринг | Как поймать монстра (Книга 3). Как поймать монстра. Круг третий (Книга 1) (2025) [MP3, Алина Лихачева]
 
->>Компьютерная литература
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054147.jpg" />
+  <img src="Z:/picture/005/save_picture_1055399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The industry gold standard in Linux guides, fully updated
-In the newly updated eleventh edition of the Linux Bible, veteran Linux author and trainer Christopher Negus walks you through the latest and most popular Linux distributions, including Red Hat Enterprise 9, Ubuntu 24 LTS, and Fedora 41. Whether you're a brand new or power user, you'll learn hands-on ways (   Читать дальше...   )Жанр: Linux & UNIX Administration, Linux Networking & System Administration, Cloud ComputingЯзык: АнглийскийИздательство: SybexФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Продолжение цикла «Как поймать монстра», жгучая смесь мистики, триллера и приключений.
+Долбаная Ирландия держит их крепче, чем монстр – свою добычу. Запертые в ловушке, охотники наконец понимают, с чем столкнулись, но выбираться уже поздно: капкан захлопнулся. То, что спало под землей тысячи лет, готово разорвать последний круг и вырваться на свободу. Но что случится, (   Читать дальше...   )Жанр: ФэнтезиИздательство: МИФПродолжительность: 12:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6924716470702716E78D42C690A985F8FE519CDC
+magnet:?xt=urn:btih:09DD6621B4CEE0FAEBC0E92328E37097246EDB64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,26 +424,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850271   (1054146) от 27.01.2026
+###  Публикация: 1851713   (1055398) от 04.02.2026
 
-Тони Парсонс | Сборник аудиокниг [2 книги] (2013-2015) [AAC, Nikosho]
+Арина Цимеринг | Как поймать монстра (Книга 4). Как поймать монстра. Круг третий (Книга 2) (2025) [MP3, Любовь Конева]
 
->>Аудио и Видео
->>Аудиокниги (AAC)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054146.jpg" />
+  <img src="Z:/picture/005/save_picture_1055398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта маленькая светлая книга возвращает человеку его естественное величие и неповторимую ценность. Тайна, которой нет, то единственное и прекрасное, что никогда нам не изменит, не будет никем похищено или разрушено. Тони Парсонс один из немногих, кто говорит о высочайших наслаждениях духа столь просто и доступно.
-Освобождение по своей природе очевидно, просто и естественно, (   Читать дальше...   )Жанр: АдвайтаИздательство: Аудиокнига своими рукамиПродолжительность: 01:25:38
+Финальный том цикла «Как поймать монстра», жгучая смесь мистики, триллера и приключений.
+Джемма. Кэл. Норман. Сайлас. Теперь – каждый сам за себя. Разделенные лесом и туманом, застрявшие в ловушке вечной зимы, они должны противостоять Самайну.
+Но как бороться с тем, кому известен каждый твой шаг до того, как ты его совершил? С тем, кто говорит твоим голосом? И как (   Читать дальше...   )Жанр: ФэнтезиИздательство: МИФПродолжительность: 16:20:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50E6432EBF630C7F3F21293C3EC5A09D84D14B6E
+magnet:?xt=urn:btih:9D258C177210A2941A5D847ED3D88C4F29EBE80C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,25 +452,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850264   (1054145) от 27.01.2026
+###  Публикация: 1851720   (1055397) от 04.02.2026
 
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+Татьяна Корсакова | Стражевая башня. Свечная башня (Книга 2). Светочи Тьмы (2022) [MP3, Григорий Метелица]
 
->>Научная и техническая литература
->>Техническая литература
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
+  <img src="Z:/picture/005/save_picture_1055397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+Все прекрасно в усадьбе Горисветово! Отреставрированный дом, ухоженный парк, оранжерея с диковинными растениями, теннисные корты, конные прогулки. И апофеозом самобытности – Свечная башня, созданная по проекту гениального Августа Берга. Рай на земле!
+Стараниями новых владельцев исполнилась мечта прежней хозяйки Агнии Горисветовой, больше века назад основавшей в усадьбе (   Читать дальше...   )Жанр: мистика, триллеры, ужасыИздательство: ЛитРесПродолжительность: 09:30:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+magnet:?xt=urn:btih:5D005BD34BB003153326225FD0E68057AAC669FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850265   (1054144) от 27.01.2026
+###  Публикация: 1851653   (1055396) от 04.02.2026
 
-Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+Михаил Павлов | Метод Тайной Комнаты. Техника исполнения желаний (2020) [MP3, Олег Томилин]
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Обучающие аудиоматериалы
+>>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
+  <img src="Z:/picture/005/save_picture_1055396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+Да, это та самая книга! Книга, которая раскроет секреты исполнения желаний. Книга, в которой содержится максимально подробная инструкция. Книга, после прослушивания которой не останется вопросов и не придется искать дополнительную информацию. Книга, в которой самое полное описание техники исполнения желаний Метод Тайной Комнаты. Книга, после прослушивания которой, (   Читать дальше...   )Жанр: Практическая эзотерика, Прикладная литератураИздательство: БОМБОРАПродолжительность: 03:03:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
+magnet:?xt=urn:btih:4FCBECAE5BFD5D3127B3210C71FB0AB6972ED450
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,27 +505,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850268   (1054143) от 27.01.2026
+###  Публикация: 1851755   (1055394) от 04.02.2026
 
-Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
+Василий Звягинцев, Геннадий Хазанов | Одиссей покидает Итаку (Книги 1-19, 21) (2013-2026) [MP3, Евгений Бочкарев, Екатерина Сизых, Роман Горбунов и др.]
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
+  <img src="Z:/picture/005/save_picture_1055394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
-
-In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+Цикл Василия Звягинцева «Одиссей покидает Итаку» — один из самых масштабных и амбициозных проектов в русской фантастике. Это не просто серия приключений, а огромная альтернативно‑историческая сага, где главный герой — человек из нашего времени — получает возможность менять ход мировой истории.
+Главная идея:
+Современный человек, офицер‑подводник Алексей (   Читать дальше...   )Жанр: историческая фантастика, космическая фантастикаИздательство: Аудиокнига своими руками, ЛитРес, Нигде не купишьПродолжительность: 432:35:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
+magnet:?xt=urn:btih:A86EC0832EB0E0DB0B093D9A593B85776B9A5011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,25 +533,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850269   (1054142) от 27.01.2026
+###  Публикация: 1851859   (1055393) от 04.02.2026
 
-Andrew Tanenbaum, Herbert Bos | Modern Operating Systems. 5th Edition (2023) [PDF] [EN]
+Потерянная душа / Anima persa (1977) BDRip [H.264/720p]
 
->>Компьютерная литература
->>
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054142.jpg" />
+  <img src="Z:/picture/005/save_picture_1055393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Operating Systems incorporates the latest developments and technologies in operating systems (OS) technologies. Author Andy Tanenbaum's clear and entertaining writing style outlines the concepts every OS designer needs to master. In-depth topic coverage includes processes, threads, memory management, file systems, I/O, deadlocks, interface design, multimedia, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
+Фильм основан на романе "L'anima persa" Джованни Арпино (1966)... 19-летний молодой человек Тино приезжает в Венецию, чтобы учиться в художественной академии, и селится в большом доме у своих дяди и тёти. Вскоре он начинает подозревать, что за фасадом благополучия и обеспеченности супругов скрывается какая-то тайна и в доме кроме них и экономки есть кто-то (   Читать дальше...   )Производство: Франция, Италия / Dean Film, Les Productions Fox EuropaЖанр: драма, детектив, триллерРежиссер: Дино РизиАктеры: Витторио Гассман, Катрин Денёв, Данило Маттеи, Анисе Альвина, Эстер Карлони, Мишель Капнист, Джино Кавальери, Анджело БоскариольПеревод: профессиональный двухголосый (ТВЦ)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4CE95A007BAA059E295740DCC0FD5CE2A4100A9
+magnet:?xt=urn:btih:C473631B227FB4C2519249036B3EF031FE10FE80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,28 +559,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850304   (1054141) от 27.01.2026
+###  Публикация: 1851860   (1055392) от 04.02.2026
 
-VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - Overture, Waltz and other (1968) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054141.jpg" />
+  <img src="Z:/picture/005/save_picture_1055392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Vienna State Opera Orchestra - The Merry Wives Of Windsor : Overture Nicolai
-A2 The Beecham Promenade Orchestra - The Thieving Magpie : Overture Rossini
-A3 The Vienna State Opera Orchestra - Faust Waltzes Gounod
-B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) Brahms(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:51
+Protector — метал-группа из Вольфсбурга, Нижняя Саксония, Германия, образованная в 1986 году.1987 - Misanthropy
+1988 - Golem
+1989 - Urm The Mad
+1990 - Leviathan's DesireЖанр: Thrash/Death MetalПродолжительность: 06:02:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
+magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +588,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850341   (1054140) от 27.01.2026
+###  Публикация: 1851811   (1055391) от 04.02.2026
 
-The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
+Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064p raw+rus
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054140.jpg" />
+  <img src="Z:/picture/005/save_picture_1055391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dave (LP Version)
-A2 Hard Times
-Lazun Gemmun - The Boomtown Rats Live
-B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
+На берегу моря с давних пор стоит город прославившейся своими деликатесами из осьминогов. Данный факт просто не мог не заинтересовать столь прожорливых друзей как Лина и Гаури. Оказавшись в городе наши герои приступают к дегустации местных кулинарных шедевров. Но они ещё не знают, что над городом нависла тьма и её тёмные путы уже тянуться к ним. Что их ждёт? Как (   Читать дальше...   )Производство: Япония, HAL Film MakerЖанр: приключения, комедия, фэнтезиРежиссер: Сато ДзюнъитиЯзык озвучки: Русский закадровый (Get Smart Group - Persona99)Субтитры: ASS (Русский, Полные)Продолжительность: 32 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
+magnet:?xt=urn:btih:CA78062FF6C6E630FF7395DF3C9AEACB0EC75E20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,25 +614,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850380   (1054139) от 27.01.2026
+###  Публикация: 1851812   (1055390) от 04.02.2026
 
-Проекты - VideoHive - Phone Notifications (Liquid Glass Style) - 61576187 [AEP]
+Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] BDRip 720p raw+rus
 
->>Проекты
->>Элементы (проекты)
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054139.jpg" />
+  <img src="Z:/picture/005/save_picture_1055390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автоматизированные уведомления в стиле «жидкого стекла»: создавайте мобильные уведомления в стиле «жидкого стекла» за считанные минуты с помощью этого шаблона. Настройте все параметры в интуитивно понятной панели управления всего за несколько кликов. Встроенные звуковые эффекты и пошаговое видеоруководство делают настройку доступной даже для новичков.Формат: AEP
+В первой серии будет раскрыто несколько скандальных и очень имущественно-вредительских подробностей знакомства Лины со Змеюкой, во второй серии у Змеюки появится подопечная, хотя и довольно странным образом, а в третей будет традиционное лобовое противостояние Лины и Наги с привлечением "типа мотивирующей массовки", все почти традиционно. До кучи туда влезут (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Get Smart Group - Persona99)Субтитры: ASS (Русский, Полные)Продолжительность: OVA, 3 серии по 28 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25AD609373CACC0607A65CB27539D48406038907
+magnet:?xt=urn:btih:BDF4BA5AF0E4778FFAF5FA3CEF83B896FB11FC6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,28 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850383   (1054138) от 27.01.2026
+###  Публикация: 1851810   (1055389) от 04.02.2026
 
-Пресеты - Alex Hutchinson - Lightroom & ACR Preset Pack: 35mm Film [XMP, LRTEMPLATE]
+Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720p raw+rus
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054138.jpg" />
+  <img src="Z:/picture/005/save_picture_1055389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это мой набор пресетов для Adobe Lightroom и Photoshop. Пресеты не универсальны, но достаточно близки к идеалу.
-
-Эта коллекция пресетов разрабатывалась годами, в течение которых я снимал на плёнку и стремился воспроизвести тонкий цветовой баланс в своих цифровых работах.
-(   Читать дальше...   )Формат: XMP, LRTEMPLATE
+Против Лины решили, хоть и не по своей воле, выступить драконы. И все у них было бодро, собрались в кучу, доспехи получили, напутствие от госпожи услышали и пошли войной против местного феодала... Только вот любимое заклинание Лины носит гордое название "Драконодёр!!!", посмотрим, кто сильнее!Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Get Smart Group - Persona99)Субтитры: SubRip (Русский, Полные)Продолжительность: 60 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C7030EA925623A519FD3599B46C2CD1240D26DF
+magnet:?xt=urn:btih:A6F1E6D1E6681A8DEC9685BBA4C03D01F687024E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,26 +666,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850385   (1054137) от 27.01.2026
+###  Публикация: 1851807   (1055388) от 04.02.2026
 
-Perfectly Clear WorkBench 5.0.1.3057 + AddonsPack [Multi/Ru]
+Slayers | Рубаки [1995, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054137.jpg" />
+  <img src="Z:/picture/005/save_picture_1055388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Когда непроходимо тупой воин Гаури Габриев решил спасти рыжеволосую девочку от злобных разбойников, он не знал, с кем связался. Ведь этой "девочкой" была Лина Инверс, самая могучая, алчная и плоскогрудая волшебница в мире! Вскоре Гаури осознал свою ошибку - когда "беззащитная" Лина одним заклинанием убила огромного дракона. Но к тому времени воин (   Читать дальше...   )Производство: Япония, E&G FilmsЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ТакасиЯзык озвучки: Профессиональный закадровый (Студия "Камертон")Продолжительность: ТВ, 26 серий по 22 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EA45E4166DD6F0AB0575AECC84390F10CBA9A5B
+magnet:?xt=urn:btih:949A3106C72DDDE52FCB906DA9E4A975DB7DAFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

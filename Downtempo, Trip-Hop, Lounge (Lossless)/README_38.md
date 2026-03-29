@@ -1,3 +1,90 @@
+###  Публикация: 1806795   (11489) от 14.07.2025
+
+VA - Best of Label Cantroll, Pt. 7-9 (2023-2025) [FLAC|Lossless|WEB-DL|tracks] <trip-hop, downtempo, chill-hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Best of Label Cantroll, Pt. 7
+2024 - Best of Label Cantroll, Pt. 8
+2025 - Best of Label Cantroll, Pt. 9Жанр: trip-hop, downtempo, chill-hop, atmospheric electronic, ambient, abstract hip-hopПродолжительность: 3 CD, 03:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED79335E339D5DEA8184F692D264B1C1C823B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807969   (10766) от 21.07.2025
+
+VA - Chill Out Paradise, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lemongrass - Something True (04:32)
+ 02.  Marc Hartman - I'll Never (04:11)
+ 03.  Steen Thottrup - Seeking Theta, Pt. 2 (Instrumental Mix) (05:08)
+ 04.  Living Room - Waikiki Beach Dreaming (02:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABECF6295CB83DD844AADA5F973FC708D13930F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815247   (5322) от 29.08.2025
+
+VA - Chill Mode On: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Wait for Me (4:27)
+02. Beamy - Cici (5:09)
+03. Gian Delly - Chill Jam Session (4:15)
+04. Digby Jones - Oasis (3:59)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157B0320981BEC2D4A83AFAD43594B869886B177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815626   (4914) от 31.08.2025
 
 VA - Electronic Garden, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -6,7 +93,7 @@ VA - Electronic Garden, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4914.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Lounge Obsession, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3585.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Lounge Obsession, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3579.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2593.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - A Spa & Wellness Chill Experience (2025) [FLAC|Lossless|WEB-DL|tracks] <Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2157.jpg" />
 </div>
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1291195   (670688) от 24.03.2019
+
+Librarian Pro 4 v4.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7650E122518B96F6E148052457960E500C049491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 828393   (670670) от 20.05.2015
+
+iMazing 1.1.5 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670670.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing  - это новое имя менеджера DiskAid
+Приложение iMazing, поможет легко выгрузить данные с вашего девайса без физического подключения к компьютеру. Утилита, полностью избавит вас от необходимости запускать iTunes. Так же она позволяет узнать подробную информацию (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 мая 2015Разработчик: DigiDNAПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134669E24DB9864CE0FD9C46C479F604EC35DB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136868   (670636) от 24.05.2017
+
+VLC media player 2.2.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670636.jpg" />
+</div>
+
+
+###  Подробнее
+
+VLC Media Player - Представляет собой мощный медиацентр-проигрыватель все в одном. Одной из особенностей является возможность проигрывания практически любого типа потокового видео. Умеет также конвертировать и захватывать видео. Есть возможность установки видео в качестве обоев рабочего стола. Может быть использован в качестве сервера для трансляции потока по протоколам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 мая 2017Разработчик: VideoLANПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DBC91C6B506A4EB858BB52B811E58DA5CFE781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136700   (670628) от 24.05.2017
+
+Charles Web Debugging Proxy 4.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Charles Web Debugging Proxy – это набирающий популярность зарубежный веб-прокси-сервер, работающий на вашем персональном компьютере, или ноутбуке, который зачастую относят к разделу программ HTTP Monitor. Свою популярность данная программа получила из-за высокой функциональности, быстроты работы и отличного, понятного и доступного дизайна.
+
+Множество работников IT-отделов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.05.2017Разработчик: Karl von RandowПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E8136558B8306E457137F1B91488754D7651BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536965   (670596) от 14.03.2022
 
 Ableton Live Suite 11 v11.1.1 U2B [En]
@@ -6,7 +113,7 @@ Ableton Live Suite 11 v11.1.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670596.jpg" />
+  <img src="Z:/picture/008/save_picture_670596.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Capture Gif 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670321.jpg" />
+  <img src="Z:/picture/008/save_picture_670321.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ Translate Tab 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669988.jpg" />
+  <img src="Z:/picture/008/save_picture_669988.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ Carbon Copy Cloner 5.1.1 (5406) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669877.jpg" />
+  <img src="Z:/picture/008/save_picture_669877.jpg" />
 </div>
 
 
@@ -117,7 +224,7 @@ Imagenomic Plug-in for Photoshop, Aperture 3 and Lightroom (upd 02.07.2016)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669756.jpg" />
+  <img src="Z:/picture/008/save_picture_669756.jpg" />
 </div>
 
 
@@ -144,7 +251,7 @@ Hands Off! 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669626.jpg" />
+  <img src="Z:/picture/008/save_picture_669626.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ TextSoap 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669466.jpg" />
+  <img src="Z:/picture/008/save_picture_669466.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ TextLab 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669463.jpg" />
+  <img src="Z:/picture/008/save_picture_669463.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ Marked 2 v2.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669419.jpg" />
+  <img src="Z:/picture/008/save_picture_669419.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ AirFoil+Airfoil Satellite 5.10.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669415.jpg" />
+  <img src="Z:/picture/008/save_picture_669415.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ BusyContacts 1.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669414.jpg" />
+  <img src="Z:/picture/008/save_picture_669414.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ Stock + Pro 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669401.jpg" />
+  <img src="Z:/picture/008/save_picture_669401.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ PriceWatcher 1.2.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669399.jpg" />
+  <img src="Z:/picture/008/save_picture_669399.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ FSMonitor 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669289.jpg" />
+  <img src="Z:/picture/008/save_picture_669289.jpg" />
 </div>
 
 
@@ -388,7 +495,7 @@ Screens VNC 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669226.jpg" />
+  <img src="Z:/picture/008/save_picture_669226.jpg" />
 </div>
 
 
@@ -417,7 +524,7 @@ Flux 7.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669223.jpg" />
+  <img src="Z:/picture/008/save_picture_669223.jpg" />
 </div>
 
 
@@ -443,7 +550,7 @@ Smultron 9.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669220.jpg" />
+  <img src="Z:/picture/008/save_picture_669220.jpg" />
 </div>
 
 
@@ -472,7 +579,7 @@ App Cleaner & Uninstaller Pro 7.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669185.jpg" />
+  <img src="Z:/picture/008/save_picture_669185.jpg" />
 </div>
 
 
@@ -500,7 +607,7 @@ Affinity Publisher 1.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669176.jpg" />
+  <img src="Z:/picture/008/save_picture_669176.jpg" />
 </div>
 
 
@@ -527,7 +634,7 @@ Luminar Neo 1.0.2  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669173.jpg" />
+  <img src="Z:/picture/008/save_picture_669173.jpg" />
 </div>
 
 
@@ -553,7 +660,7 @@ Logic Pro X 10.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669171.jpg" />
+  <img src="Z:/picture/008/save_picture_669171.jpg" />
 </div>
 
 
@@ -579,7 +686,7 @@ VueScan Pro 9.5.78 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669145.jpg" />
+  <img src="Z:/picture/008/save_picture_669145.jpg" />
 </div>
 
 
@@ -590,112 +697,6 @@ VueScan — программа для работы со сканерами HP, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A42E6A13878C5A6F926EEE310D9CC624822D594C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537162   (668973) от 15.03.2022
-
-macOS 12 Monterey 12.3 (Installer) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668973.jpg" />
-</div>
-
-
-###  Подробнее
-
-macOS Monterey открывает новые возможности для общения, обмена данными и творчества. Пользуйтесь улучшенными функциями аудио и видео, такими как пространственное аудио и режим «Портрет». Легко справляйтесь с делами благодаря таким мощным инструментам, как фокусирование, быстрые заметки и группы вкладок в Safari. Переключайтесь между устройствами благодаря трансляции (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 14.03.2022Разработчик: © 2020 Apple, Inc.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6644ACF266249B7EC491CF8DEEBC0FBE7885E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137136   (668951) от 25.05.2017
-
-Path Finder v7.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов, управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.05.2017Разработчик: CocoatechПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1FE6E02B75B8669E2B49F0329FB340D99C50AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291529   (668797) от 25.03.2019
-
-Movist 2.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.12.2018Разработчик: MovistПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979F6D87D441DEF4D7D01AEFBA06FD040D625391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537250   (668721) от 15.03.2022
-
-Adobe Photoshop for Mac 2022 v23.2.2 U2B [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 1990-2022 AdobeПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A552BB0AC817D261CE7D62D8656A4E62FDD66B31
 ```
 
 https://mybot314.ru/tekegram_catalog/

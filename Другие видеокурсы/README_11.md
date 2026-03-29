@@ -1,3 +1,32 @@
+###  Публикация: 1631414   (198892) от 05.05.2023
+
+Уроки Легенд, Максим Суханов | Курс «Актёрское мастерство» (2020) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие навыки вы освоите?
+Как стать востребованным актёром.
+Из чего строится долговременный успех.
+Что значит «быть интересным» для зрителей, продюсеров и режиссёров.(   Читать дальше...   )Производство: Уроки ЛегендЖанр: актёрское мастерствоЯзык озвучки: русскийПродолжительность: 03:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1749B22EC7EEADC12D3952B504D88FA3393945E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633944   (198250) от 18.05.2023
 
 Синхронизация, Д.Скворцов и др. | Кино глазами режиссёров (2023) WEB-DL [RU]
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198250.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197824.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197584.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197190.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196280.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196028.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195947.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195845.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195833.jpg" />
 </div>
 
 
@@ -260,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195435.jpg" />
 </div>
 
 
@@ -286,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194350.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193759.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192607.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192604.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192584.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191723.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187885.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Gift Cookies, Ирина Мошкина | 3 в 1. Совершенство в к
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185725.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Liveclasses, Анатолий Ясинский | Массовый человек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184401.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182857.jpg" />
+  <img src="Z:/picture/004/save_picture_182857.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177182.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Udemy, Fabrizio Guerrieri | Базовый курс по электричест�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176192.jpg" />
+  <img src="Z:/picture/004/save_picture_176192.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175793.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Udemy, Krista King | Станьте Мастером Теории Вероятн
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175606.jpg" />
+  <img src="Z:/picture/004/save_picture_175606.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174512.jpg" />
 </div>
 
 
@@ -680,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD95A58D9290A8EAACF50D5820F3845A2C160E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668006   (174234) от 11.10.2023
-
-Sinclair Intimacy Institute, Марк Шон | Pro секс: Обратная сторона луны (2002) DVDRip [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа выпущена всемирно известным американским ИНСТИТУТОМ СЕКСОЛОГИИ СИНКЛЕР и содержит большой объем информации об нестандартных способах секса. Если вы думаете, что нестандартные способы секса не популярны, то вы ошибаетесь, опросы показывают обратное. Если между двумя взрослыми людьми достигнуто соглашение о занятии безопасным, не приводящим к нежелательной (   Читать дальше...   )Производство: Sinclair Intimacy InstituteЖанр: эротика, обучающее видеоЯзык озвучки: РусскийПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7251555B938F34F865F2C555A1A237F691B050D
 ```
 
 https://mybot314.ru/tekegram_catalog/

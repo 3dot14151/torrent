@@ -1,3 +1,29 @@
+###  Публикация: 547444   (474454) от 15.09.2012
+
+Журнал | Диетика №9-10 (сентябрь-октябрь 2012)
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_474454.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии. «Диетика» - ключик к твоей стройности.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C5E845CB3789F96F613FDFC1A484AA18FDE806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547590   (474450) от 15.09.2012
 
 Журнал | Tattoo is Pain №№4,5 (Spain) [2012] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474450.jpg" />
+  <img src="Z:/picture/008/save_picture_474450.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474445.jpg" />
+  <img src="Z:/picture/008/save_picture_474445.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474444.jpg" />
+  <img src="Z:/picture/008/save_picture_474444.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474442.jpg" />
+  <img src="Z:/picture/008/save_picture_474442.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474283.jpg" />
+  <img src="Z:/picture/008/save_picture_474283.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474276.jpg" />
+  <img src="Z:/picture/008/save_picture_474276.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474181.jpg" />
+  <img src="Z:/picture/008/save_picture_474181.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474089.jpg" />
+  <img src="Z:/picture/008/save_picture_474089.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473860.jpg" />
+  <img src="Z:/picture/008/save_picture_473860.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473735.jpg" />
+  <img src="Z:/picture/008/save_picture_473735.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473641.jpg" />
+  <img src="Z:/picture/008/save_picture_473641.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473468.jpg" />
+  <img src="Z:/picture/008/save_picture_473468.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473381.jpg" />
+  <img src="Z:/picture/008/save_picture_473381.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473211.jpg" />
+  <img src="Z:/picture/008/save_picture_473211.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472518.jpg" />
+  <img src="Z:/picture/008/save_picture_472518.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472428.jpg" />
+  <img src="Z:/picture/008/save_picture_472428.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472291.jpg" />
+  <img src="Z:/picture/008/save_picture_472291.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472286.jpg" />
+  <img src="Z:/picture/008/save_picture_472286.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472285.jpg" />
+  <img src="Z:/picture/008/save_picture_472285.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472283.jpg" />
+  <img src="Z:/picture/008/save_picture_472283.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472272.jpg" />
+  <img src="Z:/picture/008/save_picture_472272.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472036.jpg" />
+  <img src="Z:/picture/008/save_picture_472036.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472034.jpg" />
+  <img src="Z:/picture/008/save_picture_472034.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471948.jpg" />
+  <img src="Z:/picture/008/save_picture_471948.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471863.jpg" />
+  <img src="Z:/picture/008/save_picture_471863.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A0714607429CA670B7284AE7441F55010BCE482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940148   (471449) от 23.09.2015
-
-Зоя Сокол | Лучшая подруга Мэри Сью (2015) [FB2, EPUB]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попасть можно по-разному. Можно умереть, стать жертвой неправильного ритуала или же банального несчастного случая. Можно провалиться в межмировой переход, коснуться случайно найденного артефакта. А можно просто оказаться не в том месте, не в то время и… не с теми людьми. Казалось бы, ничего особенного: две подруги, чужой мир, бездна обаятельных мужчин и Великая Миссия (   Читать дальше...   )Жанр: Юмористическое фэнтези, попаданцыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCA6667F756AE3330C12723E6470553684C7658
 ```
 
 https://mybot314.ru/tekegram_catalog/

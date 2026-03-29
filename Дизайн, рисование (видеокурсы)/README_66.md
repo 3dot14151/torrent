@@ -1,3 +1,29 @@
+###  Публикация: 1579190   (207266) от 26.09.2022
+
+CG Cookie, Jonathan Lampel | PRESS START: Your Simple First Blender Project (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новички в Blender, этот проект создан для вас: попрактикуйтесь в базовых рабочих процессах Blender, таких как моделирование, текстурирование и освещение. Создайте свою собственную модель в Blender и изучите основы создания 3D моделей.Производство: CG CookieЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 02:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5136A22B392BCB6F076A85ECF5FB67DA6002EE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579785   (207091) от 28.09.2022
 
 Дмитрий Курилов | Corona Render (2022) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207091.jpg" />
+  <img src="Z:/picture/005/save_picture_207091.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207064.jpg" />
+  <img src="Z:/picture/005/save_picture_207064.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Ground Control, Casey Faris | Pro Editing Workflow in DaVinci Resolve (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206970.jpg" />
+  <img src="Z:/picture/005/save_picture_206970.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206951.jpg" />
+  <img src="Z:/picture/005/save_picture_206951.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ Flipped Normals, Nexttut, Abraham Leal | Complete Guide to Marmoset Toolbag 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206671.jpg" />
+  <img src="Z:/picture/005/save_picture_206671.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ Gumroad, Mohammad Fakhri | Texturing And Shading Realistic Skin In Maya Mari And
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206625.jpg" />
+  <img src="Z:/picture/005/save_picture_206625.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ Artstation, Florian Neumann |  Stylized Game Character (2022) PCRec [Tutorial] [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206543.jpg" />
+  <img src="Z:/picture/005/save_picture_206543.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Lectoroom, Елена Базанова | Зимний этюд акварель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205811.jpg" />
+  <img src="Z:/picture/005/save_picture_205811.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ Udemy, Victory 3D, Corazon Bryant | Female Game Character Creation in Blender Co
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205579.jpg" />
+  <img src="Z:/picture/005/save_picture_205579.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ The Gnomon Workshop, Nick Reynolds | Creating Props for Games (2017) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205480.jpg" />
+  <img src="Z:/picture/005/save_picture_205480.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ The Gnomon Workshop, Kristin Farrensteiner | Creating Creature Hair & Fur Grooms
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205477.jpg" />
+  <img src="Z:/picture/005/save_picture_205477.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Cubebrush, Marc Brunet | Ultimate Career Guide: 3D Artist Part 1-7 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205383.jpg" />
+  <img src="Z:/picture/005/save_picture_205383.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ Udemy, Nexttut, Nikolay Naydenov | Male Character Creation in Zbrush (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205288.jpg" />
+  <img src="Z:/picture/005/save_picture_205288.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Udemy, Ali Ncir | Blender 2.8 and Substance Painter - 3D Modeling Game Assets (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204934.jpg" />
+  <img src="Z:/picture/004/save_picture_204934.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Prop
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204925.jpg" />
+  <img src="Z:/picture/004/save_picture_204925.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204867.jpg" />
+  <img src="Z:/picture/004/save_picture_204867.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204855.jpg" />
+  <img src="Z:/picture/004/save_picture_204855.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204854.jpg" />
+  <img src="Z:/picture/004/save_picture_204854.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204828.jpg" />
+  <img src="Z:/picture/004/save_picture_204828.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204768.jpg" />
+  <img src="Z:/picture/004/save_picture_204768.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204258.jpg" />
+  <img src="Z:/picture/004/save_picture_204258.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204127.jpg" />
+  <img src="Z:/picture/004/save_picture_204127.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204119.jpg" />
+  <img src="Z:/picture/004/save_picture_204119.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204104.jpg" />
+  <img src="Z:/picture/004/save_picture_204104.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204062.jpg" />
+  <img src="Z:/picture/004/save_picture_204062.jpg" />
 </div>
 
 
@@ -672,34 +698,6 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E7C8D53514CC155CBE0A366A6FEF5A696879075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604617   (204047) от 14.01.2023
-
-Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204047.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы узнаем, как создать универсальный нож от начала до конца с помощью Blender 3.3.
-В этом курсе мы сосредоточимся на моделировании и узнаем, как создавать твердотельные модели, используя простые техники.
-После раздела моделирования мы узнаем, как создать простые красивые реалистичные материалы для ножа, я не собираюсь делать UV развёртку модели, но я (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C90ECD9DC899EEC3DB3EF74DEBE494E83A451E
 ```
 
 https://mybot314.ru/tekegram_catalog/

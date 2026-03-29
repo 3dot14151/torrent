@@ -1,3 +1,112 @@
+###  Публикация: 1336540   (279053) от 07.11.2019
+
+Battery Health 3 v1.0.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
+
+Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B377C9E59123047E81C6FB69EA1C15A145B7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082369   (279009) от 12.12.2016
+
+HandsFree 2.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте любой телефон Bluetooth для звонков, текстовых сообщений, записи ….
+HandsFree 2 позволяет использовать Mac, для совершения телефонных звонков, отправлять / получать текстовые сообщения *, записывать разговоры, см списки вызовов и многое другое. Hands Free 2 работает в фоновом режиме (с всегда доступным значком в меню состояния), вам не придется беспокоиться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 октября 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DADBA5F6B2EE4904643BF87D19E900D2D6538D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082341   (278994) от 12.12.2016
+
+Switch 3 Pro 3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Switch – профессиональный инструмент для воспроизведения медиа, контроля качества и конвертирования
+Switch позволяет Вам воспроизводить разнообразные Web- и профессиональные видео-форматы, анализировать и подстраивать свойства файла и экспортировать в новый файл.  Встроенный анализатор отображает свойства медиа: аудио каналы, соотношение сторон, битрейт и форматы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 ноября 2016Разработчик: Telestream, IncПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36337EF87351BCB12E9E93A50798589CB89BDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187496   (278722) от 29.11.2017
+
+Debookee 6.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Debookee - инструмент анализа сети.
+Debookee - Программа, анализирующая соединение с интернетом и способная определить, с какого устройства был выход в сеть через вашу точку доступа. Вы сможете проверить траффик, исходящий с любого устройства: iPhone, iPad, Android, BlackBerry, PC, Mac и тп. Модуль сетевого анализа (NA) осуществляет мониторинг сети и в настоящее (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2017Разработчик: iwaxx Ltd.Поддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB7638CBD3F1BB8CB68F04FEDECA36CA500A74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187494   (278712) от 29.11.2017
 
 Movavi Screen Recorder 5.1 [Multi/Ru]
@@ -6,7 +115,7 @@ Movavi Screen Recorder 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278712.jpg" />
+  <img src="Z:/picture/008/save_picture_278712.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Movavi Video Editor 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278710.jpg" />
+  <img src="Z:/picture/008/save_picture_278710.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ Principle 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278595.jpg" />
+  <img src="Z:/picture/008/save_picture_278595.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ Ableton Live 10 Suite v10.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278461.jpg" />
+  <img src="Z:/picture/008/save_picture_278461.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ Axure RP Team Edition 8.1.0.3366 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278112.jpg" />
+  <img src="Z:/picture/008/save_picture_278112.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ iStatistica 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277768.jpg" />
+  <img src="Z:/picture/008/save_picture_277768.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ Navicat Premium 12 v12.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277706.jpg" />
+  <img src="Z:/picture/008/save_picture_277706.jpg" />
 </div>
 
 
@@ -191,7 +300,7 @@ Spy Cam 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277681.jpg" />
+  <img src="Z:/picture/008/save_picture_277681.jpg" />
 </div>
 
 
@@ -220,7 +329,7 @@ RAR Extractor Expert Pro 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277626.jpg" />
+  <img src="Z:/picture/008/save_picture_277626.jpg" />
 </div>
 
 
@@ -246,7 +355,7 @@ Find Any File (FAF) 2.0.1 b9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277601.jpg" />
+  <img src="Z:/picture/008/save_picture_277601.jpg" />
 </div>
 
 
@@ -273,7 +382,7 @@ Video Editor MovieMator Pro 2.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277596.jpg" />
+  <img src="Z:/picture/008/save_picture_277596.jpg" />
 </div>
 
 
@@ -299,7 +408,7 @@ Unclutter 2.1.19d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277595.jpg" />
+  <img src="Z:/picture/008/save_picture_277595.jpg" />
 </div>
 
 
@@ -327,7 +436,7 @@ Default Folder X 5.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277594.jpg" />
+  <img src="Z:/picture/008/save_picture_277594.jpg" />
 </div>
 
 
@@ -353,7 +462,7 @@ CopyClip 2 v2.9.95 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277593.jpg" />
+  <img src="Z:/picture/008/save_picture_277593.jpg" />
 </div>
 
 
@@ -381,7 +490,7 @@ Adguard 2.2.0.643 beta (CL - 1.5.99) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277533.jpg" />
+  <img src="Z:/picture/008/save_picture_277533.jpg" />
 </div>
 
 
@@ -407,7 +516,7 @@ Disk Xray 2.7.1 (build 27120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277529.jpg" />
+  <img src="Z:/picture/008/save_picture_277529.jpg" />
 </div>
 
 
@@ -436,7 +545,7 @@ Handy Note 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277522.jpg" />
+  <img src="Z:/picture/008/save_picture_277522.jpg" />
 </div>
 
 
@@ -462,7 +571,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277521.jpg" />
+  <img src="Z:/picture/008/save_picture_277521.jpg" />
 </div>
 
 
@@ -488,7 +597,7 @@ Audirvana 3.5.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277435.jpg" />
+  <img src="Z:/picture/008/save_picture_277435.jpg" />
 </div>
 
 
@@ -514,7 +623,7 @@ File Cabinet Pro 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277390.jpg" />
+  <img src="Z:/picture/008/save_picture_277390.jpg" />
 </div>
 
 
@@ -543,7 +652,7 @@ Sound Studio 4.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277384.jpg" />
+  <img src="Z:/picture/008/save_picture_277384.jpg" />
 </div>
 
 
@@ -571,7 +680,7 @@ Ulysses 2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277381.jpg" />
+  <img src="Z:/picture/008/save_picture_277381.jpg" />
 </div>
 
 
@@ -583,114 +692,6 @@ Ulysses — работа с текстом для профи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663E7D5F166AD873842ED59A12FB9BB3F9683038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082791   (277373) от 13.12.2016
-
-DockShelf 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277373.jpg" />
-</div>
-
-
-###  Подробнее
-
-DockShelf: функциональная замена док-панели (Mac)
-Док-панель является одной из главных особенностей настольной операционной системы от компании Apple. В ней пользователи могут разместить не только ярлыки часто используемых приложений, но и ссылки на отдельные папки, файлы или интернет-страницы. Однако некоторые разработчики считают, что стандартная док-панель не (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12.12.2016Разработчик: The Alchemist Guild LLCПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327D6EFB3152EE493306BD4C84337E00F49550E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082723   (277371) от 13.12.2016
-
-Dash 3.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash  - браузер документации и примеров кода
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9486046EE6DDC51488CB65A4797E1BC2E97B531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336972   (277341) от 08.11.2019
-
-Memory Clean 3 v1.0.13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Clean - приложение для оптимизации памяти вашего Mac и лучше всего использовать утилиту после того как вы закончили интенсивное использование памяти (RAM) в приложении или игре.
-
-У каждого пользователя найдутся «тяжелые» приложения для работы которых не помешает небольшая уборка оперативной памяти. Даже работа с браузером порой может отнять приличное количество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320D837B1C5FA1325CDF2203587275776E4DE0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336969   (277327) от 08.11.2019
-
-Lyn 1.13 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2019Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D80FD6CA9FF3B70A3EFB3A8154851793063821
 ```
 
 https://mybot314.ru/tekegram_catalog/

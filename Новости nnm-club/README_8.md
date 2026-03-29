@@ -1,3 +1,109 @@
+###  Публикация: 1620102   (1030396) от 27.03.2023
+
+Нападение на Рио Браво / Gunfight at Rio Bravo (2023) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030396.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1873 году небольшой приграничный городок в Восточном Техасе подвергается нападению злобной, кровожадной банды преступников, известной как «Адские гончие». Иммигрант из России, русский полковник лейб-гвардии Российской Империи Иван Турчанинов, маршал округа и шериф города бесстрашно противостоят нашествию жестоких убийц.Производство: США / Hollywood Storm, ETA Films, San Rafael ProductionsЖанр: боевик, вестернРежиссер: Джо КорнетАктеры: Александр Невский, Оливье Грюнер, Джо Корнет, Маттиас Хьюз, Натали Денис Шперл, Керри Гудвин, Трэвис Миллс, Уильям Карр, Джон Маррс, Роберт ЛивингстонПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B234C4DEB5B905989EB2DA2FEECACB108FDC48F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408961   (1030326) от 19.02.2021
+
+Служебный роман (1977) BDRip [H.264/1080p-LQ] [реставрация]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Ефремович Новосельцев, рядовой служащий одного статистического управления, — человек робкий и застенчивый. Для него неплохо бы получить вакантное место зав. отделом, но он не знает как подступиться к этому делу. Старый приятель Самохвалов советует ему приударить за Людмилой Прокофьевной Калугиной, — сухарем в юбке и директором заведения…Производство: СССР / МосфильмЖанр: Драма, мелодрама, комедияРежиссер: Эльдар РязановАктеры: Андрей Мягков, Алиса Фрейндлих, Светлана Немоляева, Олег Басилашвили, Лия Ахеджакова, Георгий Бурков, Зоя Исаева, Людмила Иванова, Петр Щербаков, Мария ВиноградоваСубтитры: ОтсутствуютПродолжительность: 02:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87CF2044F99133461905AFA60CCFF2B8299136D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603563   (1030164) от 28.03.2023
+
+Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi / Король-герой переродился мастером боевых искусств и стал сильнейшей ученицей рыцаря [2023, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030164.jpg" />
+</div>
+
+
+###  Подробнее
+
+С благословения богини Инглис основал королевство и стал известен как Король-герой, божественный рыцарь и повелитель всего. Он посвятил большую часть жизни управлению государством и благополучию своих подданных. Но перед смертью у него осталось одно невыполненное желание — снова жить как обычный воин, каковым Инглис и был до прихода к власти. И его богиня-покровительница (   Читать дальше...   )Жанр: комедия, приключения, фэнтези.Режиссер: Кудзуя НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F477C4FAC5C266DB49934F2038431E8267F751E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621983   (1030162) от 28.03.2023
+
+Сбербанк заявляет о новой схеме мошенничества в интернет-магазинах
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мошенники атакуют покупателей интернет-магазинов
+с помощью хитрой схемы возврата денег
+Мошенники начали обманывать людей, используя схему возврата средств за покупки в интернет-магазинах, сообщила пресс-служба Сбера 23 марта.Оказывается, злоумышленники возвращают средства клиентам магазина, которые недавно получили заказ. Затем поступает сообщение, якобы от представителя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448229   (1030112) от 20.02.2021
 
 Мурат Гайсин | Современная теоретическая физика это лженаука. Новое представление физической реальности (2020) [EPUB]
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030112.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030106.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ theHunter: Call of the Wild (2017) [Ru/En] (1959233/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030076.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029832.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029756.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029656.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Amnesia: Rebirth (2020) [Ru/Multi] (1.23) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029634.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Windows 11 22H2 (Build 22621.1413) Revi-OS [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029550.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029544.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029366.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029356.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029253.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029250.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029246.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029223.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ Telegram превращается в Clubhouse. В мессенджере поя
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029135.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029125.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ MInstAll v.22.02.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029103.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028948.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Windows 10 20H2 (19042.804) x64 Home + Pro + Enterprise (3in1) by Brux v.02.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028932.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028787.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028583.jpg" />
 </div>
 
 
@@ -576,114 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B87F1FEAF495A0A5907EC78050686F15326E2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450361   (1028578) от 28.02.2021
-
-Земфира - бордерлайн (2021) [MP3|320 Kbps] <Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. таблетки
-2. ок
-3. этим летом
-4. пальто(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86F69A88C6351A7EAD1F24F84BCBC3D5A99B7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341001   (1028572) от 28.02.2021
-
-Hearts of Iron IV / Hearts of Iron 4 (2016) [Ru/En] (1.10.4/dlc) Repack xatab [La Resistance]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры посвящен событиям Второй мировой войны. Через изометрическую перспективу и стратегическую мировую карту геймеры любым способом пытаются привести выбранное государство к стопроцентной победе; управляют войсками (авиацией, флотом, бронетехникой, пехотой), ведут дипломатические беседы и осуществляют разнообразные боевые задачи.Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B0A09B3E8DFEA6B0A1EE0BC7969906B46E4021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450694   (1028404) от 01.03.2021
-
-Обзор черного рынка “ПРОБИВА” российских физлиц за 2020 год
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важно помнить, что анализ предлагаемых данных, услуг и цен на них делался по объявлениям на различного рода теневых форумах и площадках в Dark Web. Мы не можем гарантировать подлинность предложений третьих лиц по любой отдельно взятой компании или банку. Вся информация в этом обзоре представлена исключительно для ознакомительных целей и основана на информации, на которую мы не оказываем никакого влияния.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327379   (1028392) от 01.03.2021
-
-Дылды (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-21 из 21)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тренер Михаил Ковалёв теряет работу из-за скандального характера и неуважительного отношения к женщинам. Чтобы вернуться в Суперлигу, ему нужно выиграть чемпионат по волейболу с провинциальной студенческой женской командой. Помешать ему в этом постараются проректор-перфекционист Ирина и затаившая обиду экс-девушка Наталья.Производство: Россия / Art Pictures Vision по заказу телеканала СТСЖанр: комедия, спортРежиссер: Сергей СенцовАктеры: Павел Деревянко, Анна Невская, Дарья Урсуляк, Татьяна Орлова, Ангелина Поплавская, Дарья Пицик, Изабель Эйдлен, Юлия Макарова, Сергей Рубеко, Анна Антонова и др.Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E66B3F1EE34F21EAA2DA8FF2346A761AAE26F66
 ```
 
 https://mybot314.ru/tekegram_catalog/

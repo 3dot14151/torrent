@@ -1,3 +1,90 @@
+###  Публикация: 1649526   (229331) от 28.07.2023
+
+Tantrum - Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Life
+02. Hellion
+03. Sands Of Time
+04. Black And White(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856D4C173DBBAE189F7080FF2F8497AE749300D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649505   (229324) от 28.07.2023
+
+DiGelsomina - Sic Itur Ad Astra (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahanaim [00:07:16]
+02. Harbinger of Doom [00:06:24]
+03. Otherworldly [00:05:42]
+04. Winternacht [00:11:02](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6402697FB5BAD837693C8F6D0EE558BF798F675E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649558   (229304) от 28.07.2023
+
+Girlschool - WTFortyfive? (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Is What It Is
+02. Cold Dark Heart
+03. Bump In The Night
+04. Barmy Army(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAA0C3FE8EC861B3F2D720FD74D39C9C86F7A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649566   (229289) от 28.07.2023
 
 Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -6,7 +93,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229289.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Victory - Gods Of Tomorrow (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229252.jpg" />
+  <img src="Z:/picture/004/save_picture_229252.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Eternity's End - Embers Of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229239.jpg" />
+  <img src="Z:/picture/004/save_picture_229239.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Epica - Consign To Oblivion (Live At The Afas Live) (2023) EP [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229185.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Korn (KoЯn) - Untitled (2007) Deluxe, 2023, Tempo Music [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229156.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Decharot - Vemana (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229140.jpg" />
+  <img src="Z:/picture/004/save_picture_229140.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Devouror - Diabolos Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229132.jpg" />
+  <img src="Z:/picture/004/save_picture_229132.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Torian - God Of Storms (2018) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229124.jpg" />
+  <img src="Z:/picture/004/save_picture_229124.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Distruster - Sic Semper Tyrannis (2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229112.jpg" />
+  <img src="Z:/picture/004/save_picture_229112.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Diabology - Father of Serpents (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229105.jpg" />
+  <img src="Z:/picture/004/save_picture_229105.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ NorthTale - Eternal Flame (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229090.jpg" />
+  <img src="Z:/picture/004/save_picture_229090.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Decembre Noir - Pale Serenades (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229038.jpg" />
+  <img src="Z:/picture/004/save_picture_229038.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Hellspike - Dynasties Of Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228990.jpg" />
+  <img src="Z:/picture/004/save_picture_228990.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228903.jpg" />
+  <img src="Z:/picture/004/save_picture_228903.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Imperialist - Zenith (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228785.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|tracks + .cue] <Industrial Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228757.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Evangelist (Ævangelist) - Harmony Of The Sinister (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228731.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed, Remastered, 2023, Ann
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228723.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228637.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ U.D.O. - The Legacy (Best Of) (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228534.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Wastefall - Fallen Stars And Rising Scars (2003) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228249.jpg" />
+  <img src="Z:/picture/005/save_picture_228249.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Intronaut - Fluid Existential Inversions (2020) [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228157.jpg" />
+  <img src="Z:/picture/005/save_picture_228157.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Disharmonic Orchestra - Fear of Angst (2016) Limited edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228113.jpg" />
+  <img src="Z:/picture/005/save_picture_228113.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Disharmonic Orchestra - Fear of Angst (2016) Limited edition [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7998AF87ED4443D0B5B62894E7684E701666391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649905   (228030) от 30.07.2023
-
-Ashtar - Wandering Through Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Gloom [00:08:34]
-02. The Submerged Empire [00:06:34]
-03. Deep Space and High Waters [00:06:15]
-04. Voices (Collide Again) [00:03:49](   Читать дальше...   )Жанр: Doom Metal, Black MetalПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD499208694B0464B6CE0FAA297022891794ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649780   (228022) от 30.07.2023
-
-Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (E)motionless
-02. Sweet Taste Of Sickness
-03. Bleeding
-04. A Perfect Failure(   Читать дальше...   )Жанр: Industrial, Thrash MetalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC06AB9D6125FD7ED4EA850EB54A87AAFABA240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424546   (228020) от 17.11.2020
-
-BPMD - American Made (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wang Dang Sweet Poontang (Ted Nugent cover)
-02. Toys In The Attic (Aerosmith cover)
-03. Evil (Cactus cover)
-04. Beer Drinkers & Hell Raisers (ZZ Top cover)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E7D19B25AE56146C4E7C3AF06EAEB140672E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

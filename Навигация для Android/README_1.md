@@ -1,3 +1,29 @@
+###  Публикация: 1821902   (91169) от 04.10.2025
+
+GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение работает с помощью известных данных о расположении стационарных камер и радаров ДПС (такие как Стрелка или Старт СТ) и других объектов. Есть возможность добавить недостающие камеры вручную и синхронизация их между пользователями! Вам не нужно ждать пока мы добавим камеры, она пополняется просто и удобно самими пользователями!Тип издания: ProРелиз состоялся: 01.10.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A38CA1FC66EB1F5ED50EAD79D867751484E177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821901   (91168) от 04.10.2025
 
 Антирадар HUD Speed v73.0 Mod by Slavatv5 [Ru]
@@ -6,7 +32,7 @@
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91168.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ GPS Locker Prime v2.4.9 Mod by Dymonyxx [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69716.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65256.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ OsmAnd - озвучка альтернативными голосами TTS [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63012.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ All-In-One Offline Maps v3.15 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61579.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Gaia GPS (Topo Maps) v2024.4 b7878 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58053.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57599.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.17 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56574.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Navier HUD 3.4.22 Lite-Mod by NURIK [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55448.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Navier HUD 3.4.22 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55433.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Navier HUD 3.4.22 Mod by youarefinished [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55429.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.1 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50767.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.6 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47184.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33481.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28258.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27465.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Circuit - Планировщик маршрутов v3.42.1 Mod by Balatan [Ru/M
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24487.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15258.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ GPS Data Premium / GPS данные Glonass координаты v2.9.00 Mod by 
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14875.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14561.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14559.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Guru Maps Pro & GPS Tracker v5.8.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11768.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Ozi Explorer for Android OS v1.38m [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8674.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Strava: бег, велоезда, хайкинг v424.13 Mod by PieMods [Ru/Mult
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7255.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.9 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6824.jpg" />
 </div>
 
 
@@ -654,33 +680,6 @@ OsmAnd+ - это приложение с картами всего мира на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DC20963DE2E055AD0EC14505D24B547BE96DB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814406   (6175) от 24.08.2025
-
-Антирадар HUD Speed v72.3 Mod by Slavatv5 [Ru]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
-HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.08.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B571FDB312E95A00E007A48B265750BC64FCF46
 ```
 
 https://mybot314.ru/tekegram_catalog/

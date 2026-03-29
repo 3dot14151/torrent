@@ -1,3 +1,172 @@
+###  Публикация: 1192046   (263282) от 17.12.2017
+
+Cкелетон. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины (08.12.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263282.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 декабря 2017 года, пятница. 17:30 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Cкелетон. Мужчины
+Стадион: Уистлер Слидинг Центр (Уистлер, Канада)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAF856E53A30E95D2F2B8B7700DED20BDB5A175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192289   (263281) от 17.12.2017
+
+Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. Выпуск 4 (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 16.12.2017
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE58C2D8A67347FEF49197DE3B2F2261C6F14A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192466   (263280) от 17.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 3-й Этап. Анси (Франция). Мужчины. Гонка преследования (16.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263280.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 декабря 2017 года, суббота. 16:45 МСК
+3-й этап Кубка Мира по биатлону 2017-2018. Анси (Франция)
+Мужчины. Гонка преследования 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CDE550DC6100643E46420A9359027C26CCB35C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192275   (263279) от 17.12.2017
+
+Конькобежный спорт. Кубок мира 2017-2018. 4-й Этап. Солт-Лейк Сити (США). 1-й день соревнований (08.12.2017) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263279.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 декабря 2017 года, пятница
+Кубок мира 2017-2018. 4-й Этап. Солт-Лейк Сити (США)
+1-й день соревнований:
+1. Женщины / Мужчины - 500 м 1-й забег(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8484723BE75543EFCDFA7554D61AB69425B48F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340780   (263273) от 25.11.2019
+
+MotoGP. Этап 19/19. Гран-При Валенсии. Гонка. (17.11.2019) HDTVRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263273.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 ноября 2019, воскресенье. 16:00 МСК
+Этап 19, Валенсия, Испания
+Гран-при Валенсии (27 кругов, 108.1 км)Телекомпания: Моторспорт ТВЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Сергей Беднарук)Субтитры: ОтсутствуютПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0440345A796D2A4BDE59C6DFAE6148101E9E6754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192268   (263258) от 17.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 3-й Этап. Анси (Франция). Мужчины. Спринт (15.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263258.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 декабря 2017 года, пятница. 16:15 МСК
+3-й этап Кубка Мира по биатлону 2017-2018. Анси (Франция)
+Мужчины. Спринт 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CB577355DF51F243F7693F877159836AF8A55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192499   (263255) от 17.12.2017
 
 Хоккей. Еврохоккейтур 2017—2018. Кубок Первого канала 2017. Южная Корея – Швеция (16.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +175,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263255.jpg" />
 </div>
 
 
@@ -35,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263240.jpg" />
 </div>
 
 
@@ -64,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263206.jpg" />
 </div>
 
 
@@ -90,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263088.jpg" />
 </div>
 
 
@@ -117,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262987.jpg" />
 </div>
 
 
@@ -143,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262923.jpg" />
 </div>
 
 
@@ -171,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262848.jpg" />
 </div>
 
 
@@ -199,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262847.jpg" />
 </div>
 
 
@@ -228,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_262844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262844.jpg" />
 </div>
 
 
@@ -256,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262838.jpg" />
 </div>
 
 
@@ -285,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262537.jpg" />
 </div>
 
 
@@ -314,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262535.jpg" />
 </div>
 
 
@@ -343,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262533.jpg" />
 </div>
 
 
@@ -372,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262532.jpg" />
 </div>
 
 
@@ -401,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262499.jpg" />
 </div>
 
 
@@ -430,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262341.jpg" />
 </div>
 
 
@@ -458,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262339.jpg" />
 </div>
 
 
@@ -486,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262275.jpg" />
 </div>
 
 
@@ -515,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_262274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262274.jpg" />
 </div>
 
 
@@ -544,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262151.jpg" />
 </div>
 
 
@@ -558,177 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:553685EF81111A84F2B014E3F379543461C14C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193332   (262150) от 21.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Альта-Бадия (Италия). Мужчины. Гигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262150.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2017 года, воскресенье. 11:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Альта-Бадия (Италия).
-Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193308   (262149) от 21.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 2-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262149.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 декабря 2017 года, суббота. 17:00 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Мужчины-Двойки. 2-я попытка
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193303   (261995) от 22.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 1-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261995.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 декабря 2017 года, суббота. 15:30 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Мужчины-Двойки. 1-я попытка
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065A14050303E6CAB51027C67B92061429111AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193298   (261991) от 22.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Женщины (09.12.2017) WEB-DLRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261991.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 декабря 2017 года, суббота. 11:45 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Женщины
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193904   (261796) от 23.12.2017
-
-Плавание. Чемпионат Европы на короткой воде 2017. Копенгаген (Дания). 5-й День Финалы (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261796.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2017 года
-Чемпионат Европы по плаванию на короткой воде 2017 года.
-Копенгаген (Дания). Финалы
-5-й День(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAFDCB268171A1901CCA9513C1149FE1DD48350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194085   (261768) от 23.12.2017
-
-Военная тайна с Игорем Прокопенко (2017.12.23) WEB-DLRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261768.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 03:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AD926E83B2526B921B1947D62CF3E275E9B689
 ```
 
 https://mybot314.ru/tekegram_catalog/

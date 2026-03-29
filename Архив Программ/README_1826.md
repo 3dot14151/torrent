@@ -1,3 +1,296 @@
+###  Публикация: 1428813   (178304) от 04.12.2020
+
+PDF24 Creator 10.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178304.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
+Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60B927E4675217571636996CAC47F3D4D3900A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666997   (178292) от 06.10.2023
+
+Brave Browser 1.58.137 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A3C20F84FD26F11CE26C404CBC1BCF3270C823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666894   (178285) от 06.10.2023
+
+O&O DiskImage Professional 18.4 Build 322 RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178285.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O DiskImage позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время – даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов – даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами UEFI.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2146F7C35ECCE385A72AFE94967A1C3D4813213F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428860   (178281) от 04.12.2020
+
+K-Lite Codec Pack Update 15.9.1 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178281.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AB0ED9ACE8A5AFF72C0D46BCC6184924BD87B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667028   (178272) от 06.10.2023
+
+NIUBI Partition Editor 9.8.0 Pro / Unlimited / Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178272.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD391FE1E22D91169012B14646A9A672BA0281CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667027   (178269) от 06.10.2023
+
+Skype 8.105.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9502EA3DB1D441577866B6A9C6A5341EB2F207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667050   (178265) от 06.10.2023
+
+Q-Dir 11.38 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827E94B37C7A552956A0B7A49F6EBA4C835F6C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667070   (178262) от 06.10.2023
+
+Viber 21.1.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого
+можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям
+Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране
+находятся.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321762B014B89313625DD42B521074CE516B77D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666963   (178256) от 06.10.2023
+
+NIUBI Partition Editor 9.8.0 Technician Edition Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178256.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor (Repack & Portable) – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B13F2333A360A659984624A4201A4E55087598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667001   (178246) от 06.10.2023
+
+Chromium 117.0.5938.150 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBD0FE361C194DF8A6165F35D639DA9426A84A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428805   (178231) от 04.12.2020
+
+LDPlayer 4.0.42 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178231.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer - Android-эмулятор для запуска мобильных игр на ПК. Имеется поддержка запуска нескольких копий, есть возможность управления с клавиатуры, присутствует запись видео, скриншоты и запись скриптов, а также полноценная поддержка Google Play Market и всех приложений внутри него.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA1AC47AAE5AB036C0C3D6D04EF9F9EA945C3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666960   (178230) от 06.10.2023
 
 Vivaldi 6.2.3105.58 include standalone [Multi/Ru]
@@ -6,7 +299,7 @@ Vivaldi 6.2.3105.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178230.jpg" />
 </div>
 
 
@@ -32,7 +325,7 @@ Macrorit Partition Expert 8.0.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178217.jpg" />
 </div>
 
 
@@ -58,7 +351,7 @@ Sigil 1.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178212.jpg" />
+  <img src="Z:/picture/005/save_picture_178212.jpg" />
 </div>
 
 
@@ -84,7 +377,7 @@ WinCatalog 2024.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178186.jpg" />
 </div>
 
 
@@ -110,7 +403,7 @@ XYplorer 25.00.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178182.jpg" />
 </div>
 
 
@@ -137,7 +430,7 @@ Sandboxie plus 1.11.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178178.jpg" />
 </div>
 
 
@@ -163,7 +456,7 @@ Wondershare PDFelement 10.0.7.2464 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178176.jpg" />
 </div>
 
 
@@ -189,7 +482,7 @@ ChrisPC Win Experience Index 7.22.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178173.jpg" />
 </div>
 
 
@@ -216,7 +509,7 @@ Wise Auto Shutdown 2.0.4.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178166.jpg" />
 </div>
 
 
@@ -242,7 +535,7 @@ DesktopDigitalClock 5.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178147.jpg" />
 </div>
 
 
@@ -269,7 +562,7 @@ Macrorit Partition Expert 8.0.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178145.jpg" />
 </div>
 
 
@@ -295,7 +588,7 @@ EssentialPIM Pro 11.7.1 RePack (& portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178142.jpg" />
 </div>
 
 
@@ -322,7 +615,7 @@ Soft Organizer Pro 9.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178137.jpg" />
 </div>
 
 
@@ -349,7 +642,7 @@ Files Inspector Pro 3.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178109.jpg" />
 </div>
 
 
@@ -376,7 +669,7 @@ Ashampoo UnInstaller 12.00.12 (DC 18.09.2023) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178107.jpg" />
 </div>
 
 
@@ -387,294 +680,6 @@ Ashampoo UnInstaller — это ваша подушка безопасности
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4EC8046B96DC6F9166011BC2D0BB330C7A1D528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667067   (178098) от 06.10.2023
-
-Bandicam 7.0.0.2117 RePack (& portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD3C542AE57BA1225DB4D660FAF5DE43617B6F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666826   (178093) от 06.10.2023
-
-Auslogics File Recovery 11.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics File Recovery — простая и эффективная в использовании программа, которая предназначена для восстановления случайно удаленных файлов, а также файлов утерянных из-за атак вирусов или системных сбоев. С помощью данной программы можно вытащить файлы с неисправного флеш носителя.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F053BB83865CB61916D4A5DEA8AE703452749E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667066   (178086) от 06.10.2023
-
-NIUBI Partition Editor 9.8.0 Technician Edition RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178086.jpg" />
-</div>
-
-
-###  Подробнее
-
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EF5FA4B980D8939B6362449A3E9517101043F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667033   (178064) от 06.10.2023
-
-Total Commander 11.01 (04.10.2023) Portable by MiG [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портативная сборка Total Commander 10.0 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 10 появился новый мультимедиа плеер (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C8B40D62903696E0089228DC116F41980A2552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666981   (178062) от 06.10.2023
-
-Nitro Pro 14.14.0.13 Enterprise RePack by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nitro Pro – программа, которая является альтернативой Adobe Acrobat. При помощи этого решения можно создавать файлы PDF, преобразовывать PDF в файлы Word и RTF, редактировать содержимое документов. Nitro Pro предлагает средства для добавления комментариев, которые могут просматривать в том числе и пользователи Adobe Acrobat и Reader. Программа также содержит средства (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0EFCDBE23BE24A3FEF4BC2BEDD8454A475EFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666886   (178053) от 06.10.2023
-
-ФотоМОНТАЖ 2.15 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178053.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоМОНТАЖ – редактор фото с поддержкой слоев. Вы сможете освоить профессиональную ретушь лица, соединить несколько изображений, убрать лишние объекты, заменить фон и улучшить качество снимков. Содержит 180+ объектов и текстур, современные фильтры и 3D LUT. Можете сделать коррекцию тона и освещения автоматически или вручную.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7B1CB4D63FDDB3066B8FB4FA076833D39B837C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666818   (178051) от 06.10.2023
-
-CoolUtils Total Doc Converter 5.1.0.318 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Doc Converter — профессиональное решение для преобразования документов: (файлы Word, Doc, DocX, DocM, RTF, RVF или TXT) в PDF, DOCX, XLS, JPEG, PNG, TIFF, HTML, XHTML, RTF, DOC, TXT в пакетном режиме. Благодаря интуитивно понятному дизайну интерфейса новые пользователи убедятся на собственном опыте, что конвертировать один или множество документов легко и просто. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EFB5207004BA78EBF6680491478E80938D7B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666833   (178047) от 06.10.2023
-
-FileMenu Tools 8.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178047.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMenu Tools настраивает пункты контекстного меню проводника Windows, позволяя самостоятельно составить список нужных команд. Одним щелчком мыши можно переименовать, скопировать, переместить, удалить файлы, запустить нужные программы, скопировать выделение в буфер обмена, вызвать антивирусный сканер, открыть интернет-ссылки и многое другое. Программа позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6594ED2599C4D3B42A373A610C50013E0A47AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666957   (178027) от 06.10.2023
-
-Topaz Photo AI 2.0.4 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE0B5B25D458A141AE11B0D33ADBE435C3CE369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666888   (178022) от 06.10.2023
-
-4K Downloader 5.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178022.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD.
-Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DE58BC77B87B08D5693DB4B2BF9D357952C43B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666821   (177957) от 06.10.2023
-
-CoolUtils Total PDF Converter 6.1.0.308 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coolutils Total PDF Converter — данный программный продукт быстро и качественно преобразует Ваши PDF файлы в Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG). Основное преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и несколько PDF файлов одновременно. Вам теперь не потребуется использовать дорогой Adobe Acrobat, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C13C510212B198C2D16E6133DF2C3D33AAAF752
 ```
 
 https://mybot314.ru/tekegram_catalog/

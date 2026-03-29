@@ -1,3 +1,55 @@
+###  Публикация: 952242   (353435) от 02.11.2015
+
+Земля. Территория загадок. Гипогей: Храм смерти (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зловещее подземное сооружение Гипогей, расположенное на Мальте, представляет собой запутанную систему ходов, залов и ловушек. Опасный лабиринт будто притягивает людей и животных. Любопытство заводит детей и туристов в темные коридоры тоннеля, и лишь немногим удается вернуться обратноТелекомпания: МИРЖанр: ДокументальныйПродолжительность: 00:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCE8023C94413A27B1F3A9508FF4547FAABCF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072379   (352147) от 13.11.2016
+
+Битва экстрасенсов (2016.11.12) DVB (сезон 17, выпуск 11)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352147.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA11815F53C17D650E41C2D594FB3535429A50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072391   (351710) от 13.11.2016
 
 Битва экстрасенсов (2016.11.12) WEB-DL [H.264/720p] (сезон 17, выпуск 11)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351710.jpg" />
+  <img src="Z:/picture/008/save_picture_351710.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348666.jpg" />
+  <img src="Z:/picture/008/save_picture_348666.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347422.jpg" />
+  <img src="Z:/picture/008/save_picture_347422.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347420.jpg" />
+  <img src="Z:/picture/008/save_picture_347420.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346321.jpg" />
+  <img src="Z:/picture/008/save_picture_346321.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342606.jpg" />
+  <img src="Z:/picture/008/save_picture_342606.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342144.jpg" />
+  <img src="Z:/picture/008/save_picture_342144.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341680.jpg" />
+  <img src="Z:/picture/008/save_picture_341680.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341278.jpg" />
+  <img src="Z:/picture/008/save_picture_341278.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340946.jpg" />
+  <img src="Z:/picture/008/save_picture_340946.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340804.jpg" />
+  <img src="Z:/picture/008/save_picture_340804.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340564.jpg" />
+  <img src="Z:/picture/008/save_picture_340564.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340141.jpg" />
+  <img src="Z:/picture/008/save_picture_340141.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339270.jpg" />
+  <img src="Z:/picture/008/save_picture_339270.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338595.jpg" />
+  <img src="Z:/picture/008/save_picture_338595.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337647.jpg" />
+  <img src="Z:/picture/008/save_picture_337647.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337510.jpg" />
+  <img src="Z:/picture/008/save_picture_337510.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337462.jpg" />
+  <img src="Z:/picture/008/save_picture_337462.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337375.jpg" />
+  <img src="Z:/picture/008/save_picture_337375.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336020.jpg" />
+  <img src="Z:/picture/008/save_picture_336020.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335834.jpg" />
+  <img src="Z:/picture/008/save_picture_335834.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335279.jpg" />
+  <img src="Z:/picture/008/save_picture_335279.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334546.jpg" />
+  <img src="Z:/picture/008/save_picture_334546.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334406.jpg" />
+  <img src="Z:/picture/008/save_picture_334406.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030CBD8CA44ADE63D662AF38B6152A9A815D39B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578860   (333221) от 29.09.2022
-
-Психотронные вышки. Изотопное начертание (2018) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нанесение начертания (метки зверя) в наше время. Воздействие психотронных вышек на людей. Что скрывает за собой сбор биометрических данных.Производство: РоссияЖанр: документальный, мистика, вымыслыПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5857BAC8A3CDA2480D874995A06FD89367DDE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579296   (332971) от 29.09.2022
-
-Россией правят двойники? (2014) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двойники первых лиц государства - вымысел или реальность, в которую трудно поверить? И если от имени президентов вещают похожие на них двойники, - кто стоит за их спинами и на самом деле правит миром?Производство: РоссияЖанр: документальный, вымыслы, теории заговораПродолжительность: 00:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E54A7A4EFDC2B6BFE2F6F9C5F6A0088D9A4616
 ```
 
 https://mybot314.ru/tekegram_catalog/

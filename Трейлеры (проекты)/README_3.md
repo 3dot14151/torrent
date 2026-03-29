@@ -1,3 +1,29 @@
+###  Публикация: 1232172   (602702) от 22.06.2018
+
+Проекты - VideoHive - Fantasy Epic Battle Intro - 21950550 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantasy Epic Battle Intro - это кинематографический, выполненный в средневековом стиле шаблон, который вы можете использовать для презентации своих фотографий, видеороликов, трейлеров к фильмам, или в качестве интро для своего канала YouTube.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D012655942500248062CD924649F53C3BAA6D1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232791   (596019) от 26.06.2018
 
 Проекты - VideoHive - Insomnia - Thriller / Horror Trailer - 19674854 [AEP]
@@ -6,7 +32,7 @@
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596019.jpg" />
+  <img src="Z:/picture/008/save_picture_596019.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595543.jpg" />
+  <img src="Z:/picture/008/save_picture_595543.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594631.jpg" />
+  <img src="Z:/picture/008/save_picture_594631.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ VideoHive - Blockbuster Trailer Toolbox - 5659979 [AEP]
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591005.jpg" />
+  <img src="Z:/picture/008/save_picture_591005.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590463.jpg" />
+  <img src="Z:/picture/008/save_picture_590463.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ VideoHive - Blockbuster Trailer 1 - 5071437 [AEP]
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590434.jpg" />
+  <img src="Z:/picture/008/save_picture_590434.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590305.jpg" />
+  <img src="Z:/picture/008/save_picture_590305.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589468.jpg" />
+  <img src="Z:/picture/008/save_picture_589468.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Videohive - The Legend Cinematic Trailer - 3894607 [AEP]
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588701.jpg" />
+  <img src="Z:/picture/008/save_picture_588701.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588081.jpg" />
+  <img src="Z:/picture/008/save_picture_588081.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ VideoHive - Mystical Rings - Epic Trailer - 125272 [AEP]
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584304.jpg" />
+  <img src="Z:/picture/008/save_picture_584304.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578638.jpg" />
+  <img src="Z:/picture/008/save_picture_578638.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577636.jpg" />
+  <img src="Z:/picture/008/save_picture_577636.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575128.jpg" />
+  <img src="Z:/picture/008/save_picture_575128.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575057.jpg" />
+  <img src="Z:/picture/008/save_picture_575057.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571988.jpg" />
+  <img src="Z:/picture/008/save_picture_571988.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568887.jpg" />
+  <img src="Z:/picture/008/save_picture_568887.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557629.jpg" />
+  <img src="Z:/picture/008/save_picture_557629.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557427.jpg" />
+  <img src="Z:/picture/008/save_picture_557427.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552610.jpg" />
+  <img src="Z:/picture/008/save_picture_552610.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547823.jpg" />
+  <img src="Z:/picture/008/save_picture_547823.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543502.jpg" />
+  <img src="Z:/picture/008/save_picture_543502.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539892.jpg" />
+  <img src="Z:/picture/008/save_picture_539892.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539778.jpg" />
+  <img src="Z:/picture/008/save_picture_539778.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534930.jpg" />
+  <img src="Z:/picture/008/save_picture_534930.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9A0DD9AC0E17D6DD3259E95E60797D2409232EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155204   (532900) от 03.08.2017
-
-Проекты - VideoHive - Shatter Wind Epic Trailer - 11780022 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный, кинематографический шаблон After Effects. Эффект разрыва в сочетании с легкими частицами передает сильные эмоции и создает потрясающую эпическую атмосферу. Shatter Wind Epic Trailer очень динамичный трейлер для фильмов и игр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A5482AD3B16A1CAC58E82535A1D1271B1F9DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

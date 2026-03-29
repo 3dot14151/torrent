@@ -6,7 +6,7 @@ SamDrivers 16.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776233.jpg" />
+  <img src="Z:/picture/008/save_picture_776233.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DriverPack Solution 16.5 Full + Драйвер-Паки 16.04.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776232.jpg" />
+  <img src="Z:/picture/008/save_picture_776232.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776163.jpg" />
+  <img src="Z:/picture/008/save_picture_776163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Air Explorer Pro 1.8.2 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776145.jpg" />
+  <img src="Z:/picture/008/save_picture_776145.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIMP 4.02 Build 1717 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776142.jpg" />
+  <img src="Z:/picture/008/save_picture_776142.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Air Explorer Pro 1.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776140.jpg" />
+  <img src="Z:/picture/008/save_picture_776140.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Anvir Task Manager 8.0.4 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776117.jpg" />
+  <img src="Z:/picture/008/save_picture_776117.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Anvir Task Manager 8.0.4 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776106.jpg" />
+  <img src="Z:/picture/008/save_picture_776106.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ R-Studio 8.0 Build 164464 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776074.jpg" />
+  <img src="Z:/picture/008/save_picture_776074.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Duplicate File Detective 6.1.67 Enterprise [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776044.jpg" />
+  <img src="Z:/picture/008/save_picture_776044.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AIMP 4.02 Build 1717 Final + Portable DC 08.05.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776035.jpg" />
+  <img src="Z:/picture/008/save_picture_776035.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Artweaver Plus 6.0.8 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776018.jpg" />
+  <img src="Z:/picture/008/save_picture_776018.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FileOptimizer 12.50.2231 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775970.jpg" />
+  <img src="Z:/picture/008/save_picture_775970.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Movavi Video Converter 18.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775968.jpg" />
+  <img src="Z:/picture/008/save_picture_775968.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Dism++ 10.1.1000.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775967.jpg" />
+  <img src="Z:/picture/008/save_picture_775967.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AIMP 4.02 Build 1717 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775910.jpg" />
+  <img src="Z:/picture/008/save_picture_775910.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Movavi Video Converter 16.0.2 RePack by PooShock [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775890.jpg" />
+  <img src="Z:/picture/008/save_picture_775890.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Auslogics Disk Defrag Free 8.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775774.jpg" />
+  <img src="Z:/picture/008/save_picture_775774.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Amazing Carousel Enterprise 4.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775772.jpg" />
+  <img src="Z:/picture/008/save_picture_775772.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ R-Studio 8.0 Build 164486 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775756.jpg" />
+  <img src="Z:/picture/008/save_picture_775756.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ WinUtilities Professional Edition 15.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775751.jpg" />
+  <img src="Z:/picture/008/save_picture_775751.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Wise Care 365 Pro 4.8.2.464 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775742.jpg" />
+  <img src="Z:/picture/008/save_picture_775742.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FxSound Enhancer 13.020 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775735.jpg" />
+  <img src="Z:/picture/008/save_picture_775735.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Wise Program Uninstaller 1.93.101 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775714.jpg" />
+  <img src="Z:/picture/008/save_picture_775714.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ R-Studio 8.0 Build 164486 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775713.jpg" />
+  <img src="Z:/picture/008/save_picture_775713.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ R-Drive Image Technician 6.2 Build 6200 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775709.jpg" />
+  <img src="Z:/picture/008/save_picture_775709.jpg" />
 </div>
 
 

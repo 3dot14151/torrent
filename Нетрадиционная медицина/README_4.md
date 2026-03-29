@@ -1,3 +1,29 @@
+###  Публикация: 1104749   (879624) от 15.02.2017
+
+Виктор Панов | Люстра Чижевского - прибор долголетия (2006) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайна долголетия горцев разгадана! Сегодня науке известно, что в горах воздух обогащен отрицательными аэроионами, именно они обеспечивают здоровое долголетие. Они нужны живым организмам также, как и витамины. Их полное отсутствие приводит к гибели, а повышенное содержание оказывает лечебное действие и значительно продлевает жизнь. Еще перед войной советский ученый (   Читать дальше...   )Жанр: Человек и окружающая средаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028AC00F2085EEDA399308125F8C0977B061C640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996579   (879061) от 14.03.2016
 
 В. С. Городинская | Тайны целебных трав (1989) [PDF]
@@ -6,7 +32,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879061.jpg" />
+  <img src="Z:/picture/005/save_picture_879061.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878878.jpg" />
+  <img src="Z:/picture/005/save_picture_878878.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878588.jpg" />
+  <img src="Z:/picture/005/save_picture_878588.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876957.jpg" />
+  <img src="Z:/picture/005/save_picture_876957.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876837.jpg" />
+  <img src="Z:/picture/005/save_picture_876837.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876655.jpg" />
+  <img src="Z:/picture/005/save_picture_876655.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876376.jpg" />
+  <img src="Z:/picture/005/save_picture_876376.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875987.jpg" />
+  <img src="Z:/picture/005/save_picture_875987.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875333.jpg" />
+  <img src="Z:/picture/005/save_picture_875333.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875259.jpg" />
+  <img src="Z:/picture/005/save_picture_875259.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874134.jpg" />
+  <img src="Z:/picture/008/save_picture_874134.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874092.jpg" />
+  <img src="Z:/picture/008/save_picture_874092.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873449.jpg" />
+  <img src="Z:/picture/008/save_picture_873449.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870157.jpg" />
+  <img src="Z:/picture/008/save_picture_870157.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870138.jpg" />
+  <img src="Z:/picture/008/save_picture_870138.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868532.jpg" />
+  <img src="Z:/picture/008/save_picture_868532.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867808.jpg" />
+  <img src="Z:/picture/008/save_picture_867808.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867436.jpg" />
+  <img src="Z:/picture/008/save_picture_867436.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867334.jpg" />
+  <img src="Z:/picture/008/save_picture_867334.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867025.jpg" />
+  <img src="Z:/picture/008/save_picture_867025.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866945.jpg" />
+  <img src="Z:/picture/008/save_picture_866945.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866853.jpg" />
+  <img src="Z:/picture/008/save_picture_866853.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865299.jpg" />
+  <img src="Z:/picture/008/save_picture_865299.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865243.jpg" />
+  <img src="Z:/picture/008/save_picture_865243.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864618.jpg" />
+  <img src="Z:/picture/008/save_picture_864618.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA9E1D474E90FAFE93D44D111FD67A93174A8DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768065   (863632) от 18.03.2014
-
-Н. Кузнецова, Т. Лосева (ред.) | Массаж Шиацу (2000) [DJVU]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Массаж Шиацу - безопасный метод улучшить свое самочувствие и избавиться от множества заболеваний. Простая методика для начинающих и три более сложные методики для желающих совершенствоваться. Техника диагностики для выбора приемов массажа в соответствии с вашими потребностями.Жанр: Нетрадиционная медицинаИздательство: АСТ, ВнешсигмаФормат: DJVUКачество: Удовлетворительный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAE83A0D068B9446FEC3759C60B990149109925
 ```
 
 https://mybot314.ru/tekegram_catalog/

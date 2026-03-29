@@ -6,7 +6,7 @@ ThunderSoft GIF to Video Converter 3.6.0 Repack & Portable by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882307.jpg" />
+  <img src="Z:/picture/005/save_picture_882307.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FastStone Capture 9.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882183.jpg" />
+  <img src="Z:/picture/005/save_picture_882183.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ KeePass Password Safe 2.49 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882179.jpg" />
+  <img src="Z:/picture/005/save_picture_882179.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CoolUtils Total PDF Converter 6.1.0.279 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882163.jpg" />
+  <img src="Z:/picture/005/save_picture_882163.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hotspot Shield Elite 5.20.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882134.jpg" />
+  <img src="Z:/picture/005/save_picture_882134.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882110.jpg" />
+  <img src="Z:/picture/005/save_picture_882110.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WinSnap 5.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882099.jpg" />
+  <img src="Z:/picture/005/save_picture_882099.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.475 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882092.jpg" />
+  <img src="Z:/picture/005/save_picture_882092.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ TinyWall 2.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882091.jpg" />
+  <img src="Z:/picture/005/save_picture_882091.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Tor Browser Bundle 10.5.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882089.jpg" />
+  <img src="Z:/picture/005/save_picture_882089.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vivaldi 2.11.1811.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882078.jpg" />
+  <img src="Z:/picture/005/save_picture_882078.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Pano2VR Pro 6.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881993.jpg" />
+  <img src="Z:/picture/005/save_picture_881993.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ FastStone Capture 9.7 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881964.jpg" />
+  <img src="Z:/picture/005/save_picture_881964.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ TeamViewer 15.21.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881958.jpg" />
+  <img src="Z:/picture/005/save_picture_881958.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MediaInfo 20.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881884.jpg" />
+  <img src="Z:/picture/005/save_picture_881884.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Rainlendar Lite 2.15.4 Build 166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881820.jpg" />
+  <img src="Z:/picture/005/save_picture_881820.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Tor Browser Bundle 9.0.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881804.jpg" />
+  <img src="Z:/picture/005/save_picture_881804.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Light Alloy 4.9.2 Build 2516 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881799.jpg" />
+  <img src="Z:/picture/005/save_picture_881799.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Victoria 5.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881794.jpg" />
+  <img src="Z:/picture/005/save_picture_881794.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881748.jpg" />
+  <img src="Z:/picture/005/save_picture_881748.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Adobe Shockwave Player 12.2.5.196 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881727.jpg" />
+  <img src="Z:/picture/005/save_picture_881727.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Light Alloy 4.9.2 Build 2516 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881679.jpg" />
+  <img src="Z:/picture/005/save_picture_881679.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BELOFF [dp] 2020.04 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881607.jpg" />
+  <img src="Z:/picture/005/save_picture_881607.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AIMP 4.13 Build 1886 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881572.jpg" />
+  <img src="Z:/picture/005/save_picture_881572.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ MediaCoder 0.8.61 Build 6010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881547.jpg" />
+  <img src="Z:/picture/005/save_picture_881547.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SIV (System Information Viewer) 5.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881541.jpg" />
+  <img src="Z:/picture/005/save_picture_881541.jpg" />
 </div>
 
 

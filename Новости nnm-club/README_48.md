@@ -1,3 +1,108 @@
+###  Публикация: 1370223   (891305) от 30.03.2020
+
+Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bright Memory — это сверхскоростной микс из жанров FPS и экшен, созданный студией разработки FYQD, за которой стоит всего один человек, на базе движка Unreal Engine. Объединяйте широкий спектр умений и способностей, чтобы обрушить на врагов умопомрачительные комбо-атаки. Приключение Шелии, агента SRO (Организации Сверхестественных Научных Исследований) вот-вот начнется.Тип издания: RepackРазработчик: FYQD-StudioЖанр: Action, Adventure, 1st Person, 3DЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2327D9891276AAFDA0E8F7EC26103A759B96FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371406   (891300) от 30.03.2020
+
+Зов предков / The Call of the Wild (2020) WEB-DL [H.264/720p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891300.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Бака, дружелюбного пса, чья размеренная домашняя жизнь перевернулась с ног на голову во времена золотой лихорадки в 1880-х, когда его вырвали из дома в Калифорнии и перевезли в дикую и холодную Аляску. Будучи новичком в упряжке почтовой службы, а впоследствии лидером, Бак попадает в невероятное приключение, находит свое место в мире и становится хозяином (   Читать дальше...   )Производство: США, Канада / 3 Arts Entertainment, TSG EntertainmentЖанр: Драма, Приключения, СемейныйРежиссер: Крис СандерсАктеры: Харрисон Форд, Омар Си, Кара Ги, Дэн Стивенс, Брэдли Уитфорд, Джин Луиса КеллиПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCDD6E7C8FFD972166EF8E065488CE4FAD97A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994231   (890805) от 07.03.2016
+
+Waterfox 44.0.3 x64 Final RePack (& Portable) by D!akov [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05E54AFFFEC872C24A797584323A8F281C36861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994273   (890772) от 07.03.2016
+
+Хакеры создали первый вирус-вымогатель для компьютеров Apple
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи продукции Apple, прежде считавшиеся практически неуязвимой для вирусов, оказались беззащитны перед новой программой, которую специалисты в области кибербезопасности классифицировали как "вымогатель", сообщает Рейтер.App Store подвергся первой крупной атаке хакеров
+Вирус-вымогатель, один из наиболее быстро растущих видов кибер-угроз, шифрует (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994024   (890689) от 07.03.2016
 
 Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/720p] [Line]
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890689.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ The Sims 4 v.1.13.104.1010 (2015) [En] [OS X WineSkin]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890674.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890279.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890210.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890064.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890059.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Mass Effect 3 Digital Deluxe Edition + 10 DLC [Ru/En] (RePack/1.05.5427.124) 201
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889931.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Minecraft (2011) [Ru/Multi] (1.7.5) Repack Kron
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889866.jpg" />
 </div>
 
 
@@ -222,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889806.jpg" />
 </div>
 
 
@@ -248,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889699.jpg" />
+  <img src="Z:/picture/005/save_picture_889699.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ AIMP for Android 3.01 (build 972) [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889693.jpg" />
+  <img src="Z:/picture/005/save_picture_889693.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889666.jpg" />
+  <img src="Z:/picture/005/save_picture_889666.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889657.jpg" />
+  <img src="Z:/picture/005/save_picture_889657.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889152.jpg" />
+  <img src="Z:/picture/005/save_picture_889152.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889150.jpg" />
+  <img src="Z:/picture/005/save_picture_889150.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ NewBlue Titler Pro Utlimate 4.0 build 160210 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888965.jpg" />
+  <img src="Z:/picture/005/save_picture_888965.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Fallout 4 (2015) [Ru/Multi] (1.4.132) License PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888897.jpg" />
+  <img src="Z:/picture/005/save_picture_888897.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888867.jpg" />
+  <img src="Z:/picture/005/save_picture_888867.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888770.jpg" />
+  <img src="Z:/picture/005/save_picture_888770.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ Greyscale - Label-Pack 76 Releases (2012-2021) [FLAC|Lossless|tracks+.cue, track
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888716.jpg" />
+  <img src="Z:/picture/005/save_picture_888716.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888689.jpg" />
+  <img src="Z:/picture/005/save_picture_888689.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ AT&T готовится запустить интернет по линиям э
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888664.jpg" />
+  <img src="Z:/picture/005/save_picture_888664.jpg" />
 </div>
 
 
@@ -574,113 +679,6 @@ AT&T — крупнейшая в мире телекоммуникационна
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102604   (888629) от 10.02.2017
-
-Total Commander 9.0a (x86) Freemen 17.2 slim RePack (& Portable) by notn [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FEE4AB442DEB51FC3B17D75C17CEB7C43A811D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202636   (888596) от 07.09.2021
-
-Из коллекции Жан-Поль Бельмондо / De la collection de Jean-Paul Belmondo (1960-2001) DVDRip, TVRip, VHSRip (Частичная фильмография)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная подборка фильмов великого французского актера Жана-Поля Бельмондо является продолжением  существующей на этом трекере 1 части фильмографии Коллекция Жан-Поль Бельмондо / Collection Jean-Paul Belmondo (1958-2008) DVDRip
-Автору вышеуказанного релиза спасибо за его релиз и идейную поддержку в создании данного.
-Все чего нет в этой раздаче Вы найдете у него.
-Недостающие (   Читать дальше...   )Жанр: Комедия, Драма, Мелодрама, Военный, Криминал, Приключения, короткометражка… (см. описания отдельных фильмов в раздаче)Актеры: Жан-Поль Бельмондо и другие (см. описания отдельных фильмов в раздаче)Перевод: Разные… см. описания отдельных фильмов в раздачеПродолжительность: см. описания отдельных фильмов в раздаче
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C600FA7ABC4283777F155DCB5B4BDD856A8C1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479080   (888593) от 07.09.2021
-
-Рик и Морти / Rick and Morty (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 5, серии 10 из 10) Сыендук
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёный-социопат вовлекает своего невинного внука в опасные межпространственные приключения.Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсАктеры: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровый, СыендукСубтитры: Английские (отключаемые), Русские (отключаемые)Продолжительность: ~ 00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2021E891D09A23F7207EE3B997A15F3F454CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762872   (888250) от 04.03.2014
-
-Август / August: Osage County (2013) BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888250.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе Талса, штат Оклахома, в отчий дом съезжаются члены большой семьи Уэстонов. Случилось несчастье и три дочери Барбара, Карен и Иви, их мать Виолетта, тетя Метти Фей, а также их мужья, дети и ухажеры собираются под одной крышей, пьют виски и выясняют отношения, обвиняя друг друга в предательствах, подавленных чувствах и изломанных судьбах. У каждого есть свой (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Джон Уэллс / John WellsАктеры: Мэрил Стрип, Джулия Робертс, Юэн МакГрегор, Эбигейл Бреслин, Крис Купер, Марго Мартиндейл, Джулианна Николсон, Бенедикт Камбербэтч, Дермот Малруни, Джульетт ЛьюисПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15AB7637EA38FC5FE2100460343036381126A32
 ```
 
 https://mybot314.ru/tekegram_catalog/

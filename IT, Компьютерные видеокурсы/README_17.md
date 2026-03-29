@@ -1,3 +1,143 @@
+###  Публикация: 1461194   (1022067) от 08.04.2021
+
+Udemy, Cronis Academy | Complete Algorithms Complexity and Big O Notation Course  (2019) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для разработки эффективного кода каждый разработчик должен уметь оценивать сложность алгоритмов.
+Курс на простом языке объясняет математику, лежащую в основе сложности алгоритмов, случаев сложности, сложности рекурсии, строк, амортизированного анализа и пространственной сложности. Вдобавок мы решаем 15 примеров, некоторые из которых встречаются в интервью в Google, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BDD598014218B4B18CB9BFBDECC6B35CCC7306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461190   (1022060) от 08.04.2021
+
+Udemy, Paulo Dichone | d3.js - Complete Developer Data Visualization Guide  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались, как из необработанных данных создаются потрясающие графики и визуализации на основе данных?
+Вы хотите четко и эффективно передавать информацию своей организации, работе, школе и т. Д.?
+Если да, то вы должны записаться на этот курс полной визуализации данных с помощью библиотеки D3.Js.
+D3.js - это библиотека JavaScript для специалистов (   Читать дальше...   )Производство: UdemyЖанр: Программирование, визуализация данныхЯзык озвучки: АнглийскийПродолжительность: 17:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92455224B87119F8CBA15740C805A765E1217A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461182   (1022049) от 08.04.2021
+
+Maven Analytics, Dustin Cabral | Intro to Tableau Desktop (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tableau Desktop - одна из самых популярных платформ визуализации данных в мире и важный навык для профессионалов в области аналитики и бизнес-аналитики.
+Этот курс представляет собой практическое введение в Tableau на основе проектов, призванное научить вас связывать, анализировать и визуализировать необработанные данные с реальными практическими примерами.
+Вы будете (   Читать дальше...   )Производство: Maven AnalyticsЖанр: Визуализация, аналитикаЯзык озвучки: АнглийскийПродолжительность: 27:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866A9FD7701950CCEF812AE23ECDCA1E16EED0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461196   (1022045) от 08.04.2021
+
+Udemy, Danil Chigirev | Angular Architecture. How to Build Scalable Web Applications  (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная цель курса - научиться создавать масштабируемые приложения, которые будет легко поддерживать и над которыми вам будет удобно работать в команде.
+Вы увидите, что правильно подобранная архитектура позволяет сосредоточиться на задачах бизнес-логики и экономит время, если вы разрабатываете большой проект.
+Если ваше приложение стало запутанным и сложным в обслуживании, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7C707A1BD7C1A7914BA67546B0D148B691D858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461197   (1021983) от 08.04.2021
+
+Udemy, Stephane Maarek | Apache Kafka Series - Kafka Connect Hands-on Learning  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный и совершенно новый курс для изучения Apache Kafka Connect Framework с практическим обучением - (запущен в апреле 2017 г.)
+Kafka Connect - это инструмент для масштабируемой и надежной потоковой передачи данных между Apache Kafka и другими системами данных. Apache Kafka Connect - это общая платформа для производителей и потребителей Apache Kafka.
+Apache (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1485C91B36E8D099640DC6180DC42FD0E4A8997E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461379   (1021910) от 09.04.2021
 
 The Tech Resume, Gergely Orosz | The Tech Resume. Inside out [Video Course + Ebook] (2021) PCRec [En]
@@ -6,7 +146,7 @@ The Tech Resume, Gergely Orosz | The Tech Resume. Inside out [Video Course + Ebo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021910.jpg" />
 </div>
 
 
@@ -34,7 +174,7 @@ Udemy, Денис Цветцих | Как улучшить Enterprise архит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021879.jpg" />
 </div>
 
 
@@ -60,7 +200,7 @@ Udemy, Shikhar Verma | Red Hat System Administration I-II (RH124, SA1-SA2, RHEL8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021872.jpg" />
 </div>
 
 
@@ -87,7 +227,7 @@ Udemy, Inder Singh | MERN Stack:React, Socket io, Nextjs, Express,MongoDb, Nodej
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021868.jpg" />
 </div>
 
 
@@ -116,7 +256,7 @@ Udemy, Денис Цветцих | Чистая архитектура на пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021851.jpg" />
 </div>
 
 
@@ -142,7 +282,7 @@ Udemy, Skills Factory | Онлайн курс по HTML+CSS. Верстка са
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021830.jpg" />
 </div>
 
 
@@ -169,7 +309,7 @@ DevelopedByEd, Dev Ed  | The Creative Javascript Course (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021705.jpg" />
 </div>
 
 
@@ -198,7 +338,7 @@ SF Education, Барсукова Юлия | Презентации для про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021692.jpg" />
 </div>
 
 
@@ -227,7 +367,7 @@ SF Education, Роман Павлов | Word: продвинутые возмо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021691.jpg" />
 </div>
 
 
@@ -256,7 +396,7 @@ Udemy, Colt Steele | The Web Developer Bootcamp 2021 (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021673.jpg" />
 </div>
 
 
@@ -283,7 +423,7 @@ Puzzle Brain, Андрей Кисюк | Создание чат-бота в Tele
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021665.jpg" />
 </div>
 
 
@@ -312,7 +452,7 @@ Udemy, Rob Percival | The Complete Web Developer Course 2.0  (2021) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021553.jpg" />
 </div>
 
 
@@ -341,7 +481,7 @@ Udemy, Stephen Grider | Webpack 2: The Complete Developer's Guide  (2021) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021541.jpg" />
 </div>
 
 
@@ -369,7 +509,7 @@ Servers for Hackers | Scaling Laravel (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021519.jpg" />
 </div>
 
 
@@ -398,7 +538,7 @@ CSS Demystified, Kevin Powell | Start writing CSS with confidence  (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021518.jpg" />
 </div>
 
 
@@ -427,7 +567,7 @@ Udemy, Kunal Gupta | C++ Programming Bootcamp 2021: A-Z  (2021) PCRec [En / En S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021511.jpg" />
 </div>
 
 
@@ -455,7 +595,7 @@ Udemy, ZTM Academy, Andrei Neagoie | Complete Python Developer in 2021: Zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021502.jpg" />
 </div>
 
 
@@ -482,7 +622,7 @@ Udemy, ZTM Academy, Andrei Neagoie | Master the Coding Interview: Data Structure
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021496.jpg" />
 </div>
 
 
@@ -508,7 +648,7 @@ Udemy, ZTM Academy, Andrei Neagoie | Подготовка к собеседов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021489.jpg" />
 </div>
 
 
@@ -536,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021345.jpg" />
 </div>
 
 
@@ -562,7 +702,7 @@ Udemy, Google Cloud Platform Gurus ! | Ultimate Google Cloud Certifications: All
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021122.jpg" />
 </div>
 
 
@@ -574,140 +714,6 @@ Udemy, Google Cloud Platform Gurus ! | Ultimate Google Cloud Certifications: All
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644B04E2D09953DAD07FA7A71B65D54BC2A40F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462530   (1021097) от 14.04.2021
-
-Udemy, Maximilian Schwarzmüller | JavaScript - The Complete Guide 2021 (Beginner + Advanced)  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021097.jpg" />
-</div>
-
-
-###  Подробнее
-
-JavaScript - это САМЫЙ важный язык программирования, который вам нужно выучить как веб-разработчик, и, пройдя этот курс, вы убедитесь, что не пропустите ни одной вещи, которую вам нужно знать как разработчику JavaScript!
-Это наиболее полный и современный курс, который вы можете найти по JavaScript - он основан на всех моих знаниях JavaScript И опыте преподавания. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 50:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE68F71E08616558F038DED7A5E540B0F60705DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462538   (1021096) от 14.04.2021
-
-Udemy, Maximilian Schwarzmüller | NodeJS - The Complete Guide (MVC, REST APIs, GraphQL, Deno)  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс был обновлен и теперь включает разделы на Deno.js - в дополнение к более чем 30 часам контента на Node.js!
-Node.js, вероятно, самый популярный и современный язык программирования на стороне сервера, в который вы можете погрузиться в наши дни!
-Разработчики на Node.js пользуются большим спросом, и этот язык используется для всего: от традиционных веб-приложений (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 38:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0D2B35941165FCB327141857EDFBB27873EE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462630   (1020988) от 15.04.2021
-
-Leigh Halliday | Next Level Next.js (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устали проходить уроки и изучать инструменты, но никогда ничего не строить? Устали понимать только половину приложения? Готовы вывести свою карьеру на новый уровень? Этот курс предназначен для любого разработчика, который хочет использовать новейшие технологии (Next.js, React, TypeScript, GraphQL, Prisma и т. д.), и на самом деле создать целое приложение, интерфейс (   Читать дальше...   )Производство: Leigh HallidayЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3076B4EBAF7C6417A36F6303C18233A9A18A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462753   (1020980) от 15.04.2021
-
-Udemy, Rafael Silva Pinto | Optimization with Python: all you need for LP-MILP-NLP-MINLP  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативное планирование и долгосрочное планирование для компаний в последние годы стали более сложными. Информация меняется быстро, и принятие решений - сложная задача. Поэтому для поиска оптимальных решений этих проблем используются алгоритмы оптимизации. Профессионалы в этой сфере - самые ценные.
-В этом курсе вы узнаете, что необходимо для решения проблем с применением: (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4354AADAA47ADC646855201FBB4C29529CC42C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462679   (1020938) от 15.04.2021
-
-Jeff Minakata | OSINT for hackers and penetration testers (2020) PCRec [En / En, Ru Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020938.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы узнаем об OSINT (разведке), ориентированной на этичный хакинг и тестирование на проникновение. В ходе  курса мы будем создавать виртуальную машину, загружать Kali Linux и использовать ряд веб-инструментов для определения и отслеживания наших целей. OSINT - важный навык, который необходимо знать любому хакеру и пентестеру.Производство: UdemyЖанр: OSINT, Интернет, ПентестЯзык озвучки: АнглийскийПродолжительность: 04:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46217961D7CF10ADB1D87E88A60AE333D1828071
 ```
 
 https://mybot314.ru/tekegram_catalog/

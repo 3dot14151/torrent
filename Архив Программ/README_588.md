@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2015.016.20041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755111.jpg" />
+  <img src="Z:/picture/008/save_picture_755111.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains PyCharm Professional 2016.1.3 Build #PY-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755099.jpg" />
+  <img src="Z:/picture/008/save_picture_755099.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JetBrains WebStorm 2016.1.2b Build #WS-145.972 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755093.jpg" />
+  <img src="Z:/picture/008/save_picture_755093.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Xhun Audio - LittleOne 3.1.0 VSTi, VSTi3 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755089.jpg" />
+  <img src="Z:/picture/008/save_picture_755089.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ XnConvert 1.79 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755087.jpg" />
+  <img src="Z:/picture/008/save_picture_755087.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755086.jpg" />
+  <img src="Z:/picture/008/save_picture_755086.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Torch Browser 65.0.0.1617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755078.jpg" />
+  <img src="Z:/picture/008/save_picture_755078.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Icecream PDF Editor 1.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755077.jpg" />
+  <img src="Z:/picture/008/save_picture_755077.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Vivaldi 2.3.1440.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755076.jpg" />
+  <img src="Z:/picture/008/save_picture_755076.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Icecream Screen Recorder PRO 5.92 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755073.jpg" />
+  <img src="Z:/picture/008/save_picture_755073.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Topaz Video Enhance AI 1.3.8 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755043.jpg" />
+  <img src="Z:/picture/008/save_picture_755043.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Start Menu X 5.41 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755029.jpg" />
+  <img src="Z:/picture/008/save_picture_755029.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google Chrome 42.0.2311.90 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755017.jpg" />
+  <img src="Z:/picture/008/save_picture_755017.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754976.jpg" />
+  <img src="Z:/picture/005/save_picture_754976.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MAGIX Video Pro X10 16.0.2.306 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754960.jpg" />
+  <img src="Z:/picture/008/save_picture_754960.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Icecream Password Manager 1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754959.jpg" />
+  <img src="Z:/picture/008/save_picture_754959.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754954.jpg" />
+  <img src="Z:/picture/008/save_picture_754954.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Reg Organizer 8.25 DC 06.02.2019 Final RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754953.jpg" />
+  <img src="Z:/picture/008/save_picture_754953.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Chromium 97.0.4692.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754947.jpg" />
+  <img src="Z:/picture/008/save_picture_754947.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Spotify 1.1.76.447 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754936.jpg" />
+  <img src="Z:/picture/008/save_picture_754936.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754902.jpg" />
+  <img src="Z:/picture/008/save_picture_754902.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe Flash Player 17.0.0.169 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754897.jpg" />
+  <img src="Z:/picture/008/save_picture_754897.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Google Chrome 42.0.2311.90 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754895.jpg" />
+  <img src="Z:/picture/008/save_picture_754895.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VLC media player 2.2.1 Final + Portable (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754887.jpg" />
+  <img src="Z:/picture/008/save_picture_754887.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Bandicam 2.2.0.778 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754885.jpg" />
+  <img src="Z:/picture/008/save_picture_754885.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Universal Viewer Pro 6.7.0.2 + Portable[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754838.jpg" />
+  <img src="Z:/picture/008/save_picture_754838.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1167413   (417208) от 20.09.2017
+
+Deuter - Sрасе (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Endless Horizon
+2. White Light
+3. Warmer Sommerabend
+4. Silent Alchemy(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D66320DFF05E7BE9FE935B2C59A419395371BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251671   (415500) от 02.10.2018
+
+Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Forgotten	05:04
+02. As the Night Blooms	06:22
+03. When Stillness Comes	04:11
+04. In Search of Somewhere New	04:13(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F928D2F21C8CF95E866E9CBE38332F3AB2893A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251777   (415248) от 02.10.2018
 
 Александр Зацепин - Музыка и песни из кинофильмов Леонида Гайдая (2003) [APE|Lossless|image + .cue] <Soundtrack>
@@ -6,7 +64,7 @@
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415248.jpg" />
+  <img src="Z:/picture/008/save_picture_415248.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415180.jpg" />
+  <img src="Z:/picture/008/save_picture_415180.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415092.jpg" />
+  <img src="Z:/picture/008/save_picture_415092.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415032.jpg" />
+  <img src="Z:/picture/008/save_picture_415032.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414881.jpg" />
+  <img src="Z:/picture/008/save_picture_414881.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Romantic Strings Orchestra - Ebb Tide: Romantic Piano & Orchestra (1996) Com
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414874.jpg" />
+  <img src="Z:/picture/008/save_picture_414874.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Prabodhi - 2 albums (1989, 1991) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414738.jpg" />
+  <img src="Z:/picture/008/save_picture_414738.jpg" />
 </div>
 
 
@@ -214,7 +272,7 @@ Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414571.jpg" />
+  <img src="Z:/picture/008/save_picture_414571.jpg" />
 </div>
 
 
@@ -243,7 +301,7 @@ Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414516.jpg" />
+  <img src="Z:/picture/008/save_picture_414516.jpg" />
 </div>
 
 
@@ -272,7 +330,7 @@ Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414110.jpg" />
+  <img src="Z:/picture/008/save_picture_414110.jpg" />
 </div>
 
 
@@ -301,7 +359,7 @@ VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412848.jpg" />
+  <img src="Z:/picture/008/save_picture_412848.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412722.jpg" />
+  <img src="Z:/picture/008/save_picture_412722.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411399.jpg" />
+  <img src="Z:/picture/008/save_picture_411399.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411200.jpg" />
+  <img src="Z:/picture/008/save_picture_411200.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411196.jpg" />
+  <img src="Z:/picture/008/save_picture_411196.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ Liquid Bloom - 2 альбома (2007-2015) [MP3|320 кб/с]<Shamanic, Trance, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411106.jpg" />
+  <img src="Z:/picture/008/save_picture_411106.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Johan Onvlee - Relaxation With Guitar (1998) [FLAC|Lossless|tracks + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410981.jpg" />
+  <img src="Z:/picture/008/save_picture_410981.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410963.jpg" />
+  <img src="Z:/picture/008/save_picture_410963.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410835.jpg" />
+  <img src="Z:/picture/008/save_picture_410835.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Alan Menken - Enchanted (2007) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410611.jpg" />
+  <img src="Z:/picture/008/save_picture_410611.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Nathaniel Mechaly - Taken (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410610.jpg" />
+  <img src="Z:/picture/008/save_picture_410610.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ James Horner - A Beautiful Mind (2001) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410596.jpg" />
+  <img src="Z:/picture/008/save_picture_410596.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Angus Gill - Nomad (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410511.jpg" />
+  <img src="Z:/picture/008/save_picture_410511.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Kami Thompson - Love Lies (2011) [MP3|320 Kbps] <Folk, Pop-Rock, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409912.jpg" />
+  <img src="Z:/picture/008/save_picture_409912.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Kami Thompson - Love Lies (2011) [MP3|320 Kbps] <Folk, Pop-Rock, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CFBB2B59A93334E08AEE55B7504FA95C46CE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066553   (409753) от 27.10.2016
-
-VA - Spa Relaxation Ambient Music Vol 1 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stiller - Kling Klang Klung 06:06
-02. Rafal Kulik - Into The Unknown 03:45
-03. Mark Down - Tea Of Star 02:30
-04. Makia Blue - Mystic River 02:53(   Читать дальше...   )Жанр: Downtempo, Balearic, MeditationПродолжительность: 04:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C56B41D5C0B5334EF0A32F8EA9D01084F082B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066975   (409750) от 27.10.2016
-
-Magna Canta - Deep Spirits (2000) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aethera Et Terra 5:20
-02. Silentium 3:54
-03. Agnus Dei 5:04
-04. Gregoria 4:43(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB0F1D3BBA1DA0905B492C4D34854B33B0CC660
 ```
 
 https://mybot314.ru/tekegram_catalog/

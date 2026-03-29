@@ -1,3 +1,57 @@
+###  Публикация: 1425603   (220713) от 21.11.2020
+
+Андрей Богдарин | Моя первая книга обо всём на свете. Как лодка подводной стала? (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Андрея Богдарина «Как лодка подводной стала?» познакомит вас с самыми разными подводными лодками, расскажет, как они устроены, как «видят» и «слышат» под водой, какие субмарины строили при Петре I, что такое батискаф и как выглядел первый акваланг.
+
+Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AFD87FB06039DD14937E84912DB22FE0A3E9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342859   (220614) от 04.12.2019
+
+Игорь Воронин, Вероника Воронина | Программирование для детей. От основ к созданию роботов (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нашу жизнь невозможно представить без разнообразных цифровых устройств. Ноутбуки, планшеты, мобильники и другие гаджеты доступны детям буквально с рождения. «Разум» внедряется в привычные вещи – пылесосы, стиральные машины, холодильники, автомобили. Как не потеряться в этом мире? Как управлять умными вещами? Вероника и Игорь Воронины просто и увлекательно рассказывают (   Читать дальше...   )Жанр: Программирование и электроника для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02062C1EF1C23DE283AE85454252E004593D2305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736960   (220602) от 21.12.2013
 
 М. Ильин | Сто тысяч почему (1936) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220602.jpg" />
+  <img src="Z:/picture/005/save_picture_220602.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220583.jpg" />
+  <img src="Z:/picture/005/save_picture_220583.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220535.jpg" />
+  <img src="Z:/picture/005/save_picture_220535.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220500.jpg" />
+  <img src="Z:/picture/005/save_picture_220500.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220462.jpg" />
+  <img src="Z:/picture/005/save_picture_220462.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220263.jpg" />
+  <img src="Z:/picture/005/save_picture_220263.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220136.jpg" />
+  <img src="Z:/picture/005/save_picture_220136.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220089.jpg" />
+  <img src="Z:/picture/005/save_picture_220089.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219840.jpg" />
+  <img src="Z:/picture/005/save_picture_219840.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219024.jpg" />
+  <img src="Z:/picture/005/save_picture_219024.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218941.jpg" />
+  <img src="Z:/picture/005/save_picture_218941.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218885.jpg" />
+  <img src="Z:/picture/005/save_picture_218885.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218836.jpg" />
+  <img src="Z:/picture/005/save_picture_218836.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218688.jpg" />
+  <img src="Z:/picture/005/save_picture_218688.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218637.jpg" />
+  <img src="Z:/picture/005/save_picture_218637.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218487.jpg" />
+  <img src="Z:/picture/005/save_picture_218487.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216766.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216692.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216638.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216528.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216395.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216328.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216254.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215406.jpg" />
+  <img src="Z:/picture/005/save_picture_215406.jpg" />
 </div>
 
 
@@ -633,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFAEDC69B8EA65F80EC2230E711A4A6B2A2F7748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343856   (215093) от 08.12.2019
-
-Ельвира Милевская-Шмидт | Пробелы в образовании интеллигентных матерей (1915) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Педагогика семейного воспитания. Воспитание в семье.Жанр: Образование, обучение и развитие детейФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2518D153887520CFDC147BCE93A26D462057AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270075   (215077) от 17.12.2018
-
-Амаяк Акопян | И никакого волшебства! (1986) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215077.jpg" />
-</div>
-
-
-###  Подробнее
-
-А эта книжка станет первым учебником по волшебству для юных магов. В ней собраны несложные фокусы, с помощью которых ваш ребенок удивит и порадует своих друзей.Жанр: Познавательная литература, фокусыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569A41DDC06BB7796A269E8C20FE776F6B48A7FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

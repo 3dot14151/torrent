@@ -6,7 +6,7 @@ Hippie Sabotage - The Sunny Album (2014) Deluxe Edition [MP3|320 Kbps] <Electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718451.jpg" />
+  <img src="Z:/picture/008/save_picture_718451.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Adobe Flash Player 26.0.0.89 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718449.jpg" />
+  <img src="Z:/picture/008/save_picture_718449.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MEmu 7.6.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718437.jpg" />
+  <img src="Z:/picture/008/save_picture_718437.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ iMazing 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718426.jpg" />
+  <img src="Z:/picture/008/save_picture_718426.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ JetBrains IntelliJ IDEA Ultimate 2018.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718389.jpg" />
+  <img src="Z:/picture/008/save_picture_718389.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Debookee 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718387.jpg" />
+  <img src="Z:/picture/008/save_picture_718387.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ WinRAR 5.70 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718386.jpg" />
+  <img src="Z:/picture/008/save_picture_718386.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ PDF Expert 2.4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718384.jpg" />
+  <img src="Z:/picture/008/save_picture_718384.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ WinRAR 5.70 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718380.jpg" />
+  <img src="Z:/picture/008/save_picture_718380.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ StartAllBack 3.3.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718367.jpg" />
+  <img src="Z:/picture/008/save_picture_718367.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe XD 48.0.12.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718364.jpg" />
+  <img src="Z:/picture/008/save_picture_718364.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AutoRuns 14.09 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718363.jpg" />
+  <img src="Z:/picture/008/save_picture_718363.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Animate 2022 22.0.4.185 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718361.jpg" />
+  <img src="Z:/picture/008/save_picture_718361.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ R-Studio Network 9.0 Build 190295 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718358.jpg" />
+  <img src="Z:/picture/008/save_picture_718358.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ StartAllBack 3.3.1.4280 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718355.jpg" />
+  <img src="Z:/picture/008/save_picture_718355.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WinTools.net Premium 17.4.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718340.jpg" />
+  <img src="Z:/picture/008/save_picture_718340.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FileZilla 3.25.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718335.jpg" />
+  <img src="Z:/picture/008/save_picture_718335.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe After Effects 2022 22.3.0 Beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718285.jpg" />
+  <img src="Z:/picture/008/save_picture_718285.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718272.jpg" />
+  <img src="Z:/picture/008/save_picture_718272.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718270.jpg" />
+  <img src="Z:/picture/008/save_picture_718270.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718268.jpg" />
+  <img src="Z:/picture/008/save_picture_718268.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718266.jpg" />
+  <img src="Z:/picture/008/save_picture_718266.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718264.jpg" />
+  <img src="Z:/picture/008/save_picture_718264.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718262.jpg" />
+  <img src="Z:/picture/008/save_picture_718262.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Trance Dawn (2016) [MP3|320 кб/с] <Trance,Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718261.jpg" />
+  <img src="Z:/picture/008/save_picture_718261.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Tyme2 v1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718256.jpg" />
+  <img src="Z:/picture/008/save_picture_718256.jpg" />
 </div>
 
 

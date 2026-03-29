@@ -1,3 +1,81 @@
+###  Публикация: 371168   (720934) от 04.08.2020
+
+Валентин Постников | Карандаш и Самоделкин на необитаемом острове (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебный художник Карандаш и мастер Самоделкин отправляются в кругосветное путешествие на подводной лодке. Но внезапно разбушевавшийся океан выбрасывает их маленькое судно на необитаемый остров. Это ничуть не испугало отважных путешественников. Они, снарядив экспедицию, отправляются в глубь острова на поиски воды. Но остров оказался не таким уж и необитаемым. Случилось (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55CB701E96FBB26F620457501E849C9077C8AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531632   (720638) от 16.02.2022
+
+Братья Гримм | Большая коллекция сказок братьев Гримм (2017) [MP3, Наталья Истарова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые немецкие филологи-фольклористы братья Гримм, Якоб и Вильгельм, по сей день остаются одними из самых известных сказочников планеты. Вниманию слушателей - и маленьких, и больших - предлагается собрание лучших волшебных историй из числа сказок, записанных и литературно обработанных братьями Гримм. В этих историях добро одерживает победу над злом, а находчивые (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 22:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A396F314C850ECD676AD3532CA877D3DF6CA89CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400553   (719413) от 05.08.2020
+
+Алексей Олейников | Дженни Далфин и Скрытые Земли. Дети утренней звезды. Книга 5. (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в лагерь «Утренняя звезда»! Альберт Фреймус, лучший алхимик современности и глава Ковена Западной Англии, собрал здесь самых одаренных представителей молодого поколения темников. Дети колдунов со всего мира прошли жесткий отбор, но одна студентка попала в лагерь совершенно волшебным образом. Она не сдавала экзамены, так как ничего не знает об алхимии, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 11:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD451388369694ABBE4B8A352B22C755CD4831B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400542   (719407) от 05.08.2020
 
 Алексей Олейников | Дженни Далфин и Скрытые Земли. Девочка и химера. Книга 1. (2017) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719407.jpg" />
+  <img src="Z:/picture/008/save_picture_719407.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719404.jpg" />
+  <img src="Z:/picture/008/save_picture_719404.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719403.jpg" />
+  <img src="Z:/picture/008/save_picture_719403.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719256.jpg" />
+  <img src="Z:/picture/008/save_picture_719256.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ VA - 333 Лучшие Детские Песни (2004) 12 CD BoxSet [FLAC|Lossle
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718917.jpg" />
+  <img src="Z:/picture/008/save_picture_718917.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718851.jpg" />
+  <img src="Z:/picture/008/save_picture_718851.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718658.jpg" />
+  <img src="Z:/picture/008/save_picture_718658.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718639.jpg" />
+  <img src="Z:/picture/008/save_picture_718639.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718547.jpg" />
+  <img src="Z:/picture/008/save_picture_718547.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717412.jpg" />
+  <img src="Z:/picture/008/save_picture_717412.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717218.jpg" />
+  <img src="Z:/picture/008/save_picture_717218.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717104.jpg" />
+  <img src="Z:/picture/008/save_picture_717104.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715293.jpg" />
+  <img src="Z:/picture/008/save_picture_715293.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715285.jpg" />
+  <img src="Z:/picture/008/save_picture_715285.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715279.jpg" />
+  <img src="Z:/picture/008/save_picture_715279.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715199.jpg" />
+  <img src="Z:/picture/008/save_picture_715199.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714836.jpg" />
+  <img src="Z:/picture/008/save_picture_714836.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713505.jpg" />
+  <img src="Z:/picture/008/save_picture_713505.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713242.jpg" />
+  <img src="Z:/picture/008/save_picture_713242.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712874.jpg" />
+  <img src="Z:/picture/008/save_picture_712874.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712861.jpg" />
+  <img src="Z:/picture/008/save_picture_712861.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712719.jpg" />
+  <img src="Z:/picture/008/save_picture_712719.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711342.jpg" />
+  <img src="Z:/picture/008/save_picture_711342.jpg" />
 </div>
 
 
@@ -599,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87322339A32933590A1EDE81CA5A169CB8208FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532929   (710899) от 21.02.2022
-
-Лев Семенович Выготский | Проблема обучения и умственного развития в школьном возрасте (2016) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710899.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лекции «Проблема обучения и умственного развития в школьном возрасте» Лев Семенович Выготский размышляет над вопросами развития мышления школьников и о связи процесса обучения и умственного развития ребёнка.Жанр: Воспитание детей, Детская психология, Классики психологии, ПедагогикаПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF223A56C28061115A069C0E9B98B314E064C221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219773   (709955) от 16.04.2018
-
-Сергей Голицын | Сорок изыскателей (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая повесть об одном пионерском отряде, который во время туристического похода занимался поисками пропавшей картины выдающегося художника. Вместе с изыскателями мы узнаем, можно ли убить сразу 3 зайцев, сколько можно съесть мороженого, какие роковые последствия могут произойти из-за непродуманной подмазки сковороды, раскроем тайну старой рукописи, которая (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 06:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3744E8218CB29E16FD2FDA82370A7B076F283E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792961   (706029) от 04.06.2014
-
-Михаил Зощенко | Русские классики детям. Рассказы (2011) [MP3, Ольга Вяликова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Зощенко известен в первую очередь как «взрослый» писатель-сатирик. Но у него есть и несколько десятков замечательных «детских» рассказов.
-
-Зощенко ценил своего маленького читателя и сумел найти удивительно верный тон разговора с детьми. В его рассказах всегда присутствует мораль, назидание, поучение. Он рассуждает о том, что хорошо, а что плохо, но при этом (   Читать дальше...   )Жанр: Детская литература, рассказыИздательство: Студия АРДИСПродолжительность: 03:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5D8315A9C34FC3D7C523919E3FF359DAB0C67F
 ```
 
 https://mybot314.ru/tekegram_catalog/

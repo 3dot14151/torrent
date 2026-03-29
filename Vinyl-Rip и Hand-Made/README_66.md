@@ -1,3 +1,235 @@
+###  Публикация: 1702286   (115799) от 24.02.2024
+
+Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115799.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 - Uroboric Forms (Demo 1991)
+A2 - The Eagle Nature (Demo 1991)
+A3 - Pleading For Preservation (Demo 1991)
+A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702515   (115698) от 25.02.2024
+
+VA - Александр Зацепин, Леонид Дербенев - Песни из к-ф "Узнай Меня" (1980) [FLAC 24/192|Lossless|tracks] <Pop, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+1. Узнай меня - Татьяна Анциферова (8.26)
+2. Знаю, что ты придешь - Группа "Аракс" (4.20)
+3. Ты поверь, поверь - Татьяна Анциферова (4.13)(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07E7EFD82AE6DE81FEB18A9F29D62684A271157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702591   (115684) от 25.02.2024
+
+Kyuss - Studio Albums (4 releases) (1991-1995) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kyuss — американская стоунер-рок-группа, образованная в Палм-Дезерт, Калифорния, в 1987 году и считающаяся одним из пионеров этого жанра.1991 - Wretch
+1992 - Blues for the Red Sun
+1994 - Welcome to Sky Valley
+1995 - ... And the Circus Leaves TownЖанр: Stoner RockПродолжительность: 04:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93F25AEA29F1A18F38064095A3A9A56D4AB36F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702543   (115680) от 25.02.2024
+
+Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01 Machine Messiah
+02 White Car
+03 Does It Really Happen?(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22259174722198FBDA1B17E0E78CA4C4919794A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703178   (115170) от 28.02.2024
+
+Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Puddle of Mudd — американская рок-группа, сформированная в Канзас-Сити, штат Миссури в 1992 году.1994 - Stuck (EP)
+2002 - Come Clean
+2003 - Life On Display
+2007 - FamousЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 06:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703238   (115066) от 29.02.2024
+
+2 Unlimited - No Limits (1993) [FLAC 24/192|Lossless|tracks] <Eurodance, Euro House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 No Limit
+2 Tribal Dance
+3 Mysterious
+4 Where Are You Now(   Читать дальше...   )Жанр: Eurodance, Euro House, TechnoПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBC3B58AD6E6DB9FE834D19748206D60A2985E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703061   (115057) от 29.02.2024
+
+VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115057.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона
+01 - Олимпиада-80 (6.23) Д. Тухманов — Р. Рождественский
+Тынис Мяги
+02 - Крестики-Нолики (2.38) В. Баснер — М. Матусовский(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703213   (115049) от 29.02.2024
+
+«Рок-Ателье» Криса Кельми - Мы знаем (1988) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01 - Мы знаем (М. Пушкина)
+02 - Альбатрос (А. Маркевич)
+03 - Хамелеон (М. Пушкина)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A05DE17838DCD1B077DD57B9E6D67AD2622E5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703547   (115048) от 29.02.2024
 
 Автограф - Рок-группа "Автограф" (1985) [FLAC 24/192|Lossless|tracks] <Rock>
@@ -6,7 +238,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115048.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115029.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115026.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115020.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114998.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114996.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114991.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114989.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114835.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114834.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114821.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114816.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114809.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114808.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114791.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114698.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114681.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114665.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DB0C737ADDE994DF09A34B8DD4899AAC245CD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703915   (114663) от 02.03.2024
-
-VA - Андрей Петров - Музыка из к/ф "Жестокий романс" (1985) [FLAC 24/192|Lossless|tracks] <Soundtrack, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Романс о романсе (Б. Ахмадулина) - Валентина Пономарева
-02. Вальс - Оркестр Госкино СССР
-03. Снегурочка (Б. Ахмадулина) - Валентина Пономарева(   Читать дальше...   )Жанр: Soundtrack, FolkПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE9793F36D1E7AD68ED27AB1BC3A21A29DE0531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704067   (114657) от 02.03.2024
-
-Аркадий Хоралов - Где я и ты (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01-Где я и ты (А.Хоралов - В.Сауткин)
-02-А снег рисует (А.Хоралов, А.Кондратьев - В.Попов)
-03-Убежать бы (А.Хоралов, А.Кондратьев - С.Лазо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF5602CD802393F9BC8BCD3CEF36F5DCE507ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704069   (114632) от 02.03.2024
-
-Аркадий Хоралов - Странный Мир (1988) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01.Лишний билет
-2.Странный Мир
-3.Эдельвейс(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C4F37F605D7F87275569B1B3A0E190BDD6F72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703937   (114610) от 02.03.2024
-
-Ансамбль «ИТС» - Это любовь (1987) [FLAC 24/192|Lossless|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Наша любовь вечна. Our Love Is Here To Stay. (G.Gershwin - I.Gershwin)
-02 - Тайная любовь. Secret Love. (S.Fain - P.F.Webster)
-03 - Письма о любви. Love Letters. (V.Young - E.Heyman)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541548   (114406) от 04.03.2024
-
-R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114406.jpg" />
-</div>
-
-
-###  Подробнее
-
-R.E.M. — американская рок-группа, сформированная в городе Атенс (штат Джорджия) в 1980 году музыкантами Майклом Стайпом (вокал), Питером Баком (гитара), Майком Миллзом (бас-гитара) и Биллом Берри (ударные и перкуссия). Один из наиболее важных и авторитетных коллективов, оказавших влияние на альтернативный рок.1991 - Out Of Time
-1992 - Automatic for the People
-1994 - Monster
-1996 - New Adventures in Hi-FiЖанр: Alternative RockПродолжительность: 08:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704416   (114372) от 04.03.2024
-
-Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дороже золота) (1982) 1987 [FLAC 24/192|Lossless|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Telegraph Road. Телеграф.
-02 - Private Investigations. Поиски истины.
-Сторона 2.(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FB71AD21295D625C353F6AC2B144102B8ED9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704372   (114368) от 04.03.2024
-
-София Ротару - Коллекция Винила (1973-1984) [FLAC 1.0/2.0|24/96|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01:14:33
-
-Песни Из К.Ф. «Где Ты, Любовь»
-A1 Красная Стрела(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9202D179DFE1B0A29B53B2E56224393935B38D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704402   (114361) от 04.03.2024
-
-Deep Purple - Дым над водой. Архив популярной музыки 8 (1987) [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Black Night
-02. Fireball
-03. Space Truckin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

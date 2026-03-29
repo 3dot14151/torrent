@@ -1,3 +1,136 @@
+###  Публикация: 613162   (982457) от 04.02.2013
+
+Эрик Хобсбаум | Сборник произведений (4 книги) [1999-2004] [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрик Хобсбаум - выдающийся британский историк, член Британской Академии и Американской Академии Искусств и Наук, обладатель почетных степеней университетов ряда стран.
+Его книги неизменно попадают во все каталоги книг по всеобщей истории, предлагаемые англоязычному читателю. Разгадка этого феноменального успеха проста: после нескольких десятилетий упорного и кропотливого (   Читать дальше...   )Издательство: Феникс, Независимая газетаФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4188B558A614D0CFB72975BDD169EBD6A612F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355601   (982211) от 27.01.2020
+
+Джин Манко | Как заселялась Европа. От первых людей до викингов (2019) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Джин Манко «Как заселялась Европа» дает ответ на вопрос, кто такие современные европейцы и их предки. Откуда они пришли? В последние годы новые археологические и палеогенетические исследования заставили переосмыслить историю Европы. Речь идет о новом взгляде на миграции и их роль в становлении европейских культур и народов. Автор исследует происхождение современных (   Читать дальше...   )Жанр: Всемирная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F267C1E83F2370D5A0595827B79393EE03801FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972570   (982067) от 06.01.2016
+
+С. Ф. Платонов | Москва и Запад в XVI-XVII веках (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие автора:
+
+В предлагаемом труде автор не имел претензии  дать исчерпывающий очерк сложного и не во всем  объеме исследованного вопроса европеизации России.  Его целью было указать на главные моменты этого  культурного процесса; материалом же служил тот  круг научных пособий, в котором слагался его университетский курс. Автор (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CB30743B6158D902A811F988290BF1D97317F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972709   (981996) от 06.01.2016
+
+Б. Г. Кузнецов | Галилей (1964) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981996.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге воспроизводится научная биография ученого, рассматриваются некоторые стороны мировоззрения, стиля и жизни Галилея; оценивается содержание и стиль физических идей, вклад в мировую науку.Жанр: Биографии и МемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28A8176D089DDFCD88741F3B3530A49106FAB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972566   (981930) от 06.01.2016
+
+И. И. Минц, Е. Н. Городецкий (ред.) | Документы о разгроме германских оккупантов на Украине в 1918 году (1942) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикуемые в сборнике документы показывают грабительскую колониальную политику германских оккупантов на  Украине, вскрывают подлинную роль лакеев германских  империалистов — буржуазных и мелкобуржуазных украинских партий. Из документов видно, как украинский народ  поднялся на борьбу с иноземными захватчиками и при братской помощи  Советской (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C2C1F3392933F74CF8B786AB9E0DC620726303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972721   (981846) от 06.01.2016
 
 Николай Страхов | Карманная книжка для приезжающих на зиму в Москву (2016) [FB2]
@@ -6,7 +139,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981846.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980774.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980769.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980687.jpg" />
 </div>
 
 
@@ -114,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980549.jpg" />
 </div>
 
 
@@ -140,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980536.jpg" />
 </div>
 
 
@@ -166,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980391.jpg" />
 </div>
 
 
@@ -195,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980295.jpg" />
 </div>
 
 
@@ -224,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980284.jpg" />
 </div>
 
 
@@ -250,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980282.jpg" />
 </div>
 
 
@@ -276,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980114.jpg" />
 </div>
 
 
@@ -302,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980109.jpg" />
 </div>
 
 
@@ -328,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980104.jpg" />
 </div>
 
 
@@ -357,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979404.jpg" />
 </div>
 
 
@@ -384,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979259.jpg" />
 </div>
 
 
@@ -411,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976811.jpg" />
 </div>
 
 
@@ -437,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975874.jpg" />
 </div>
 
 
@@ -463,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975873.jpg" />
 </div>
 
 
@@ -489,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975872.jpg" />
 </div>
 
 
@@ -515,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975871.jpg" />
 </div>
 
 
@@ -541,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975801.jpg" />
 </div>
 
 
@@ -554,140 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB81C9626C9329A1C6F351AFC3D5CD248EAD284C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974721   (975794) от 12.01.2016
-
-И. Стоун | Закулисная история войны в Корее (1953) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корейская война, бесспорно, является одним из важнейших событий нашего времени. Из всех современных событий она получила, пожалуй, наиболее широкую гласность. Но огромный поток широко рекламируемых сообщений, поступающий по всем каналам самых совершенных современных средств связи, дает американскому народу лишь одностороннее освещение событий, преподносит ему только (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C645FCB439B8BF6206EF5B369026D726CF1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974745   (975792) от 12.01.2016
-
-М. Горев | Голод (1922) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра об ужасах голода, разразившегося в 1921 году на Поволжье и в др. местах России.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B363559392D2D5FDB529418CE7A0DCECAEA5BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974673   (975639) от 12.01.2016
-
-Эдвард Радзинский | Боги и люди (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975639.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пророки и безумцы, властители дум, земные боги... Тайна славы, загадки решений, менявшие судьбы мира, губительные молнии истории и, наконец, чертеж Господа в судьбах людей... Обо всем этом - в книге".
-
-Эдвард РадзинскийЖанр: Биографии и мемуары, историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0C845124B1DFB9F31D7125D4A905A76CDBECFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974549   (975631) от 12.01.2016
-
-Эдвард Радзинский | Убийство императора. Александр II и тайная Россия (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы до сих пор ищем ответы на мучительные вопросы: почему от царя, названного русской Историей «Царем-Освободителем», уничтожившего постыдное русское рабство, реформировавшего всю русскую жизнь, к концу его правления отвернулось русское общество? Почему плодом первой русской перестройки стала могущественнейшая террористическая организация, до той поры невиданная в (   Читать дальше...   )Жанр: Биографии и Мемуары, Историческая литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672D701AD3A6EF28FB09218EABE05FB8C81003C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974858   (975625) от 12.01.2016
-
-Крисанн Бреннан | Червивое яблоко. Моя жизнь со Стивом Джобсом (2014) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Джобс – идол высоких технологий, создатель современного образа жизни, циничный делец, превративший мечту о свободе в многомиллиардный бизнес.
-
-Но Крисанн Бреннан – первая любовь Стива и мать его ребенка – помнит Джобса совсем другим и знает его лучше многих. В ее глазах юный Стив предстал мечтателем и идеалистом, стремящимся изменить мир – ни на что меньшее (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E1FF04DD89EB2B43F0ABC2E2BD5D0AA90EFA81
 ```
 
 https://mybot314.ru/tekegram_catalog/

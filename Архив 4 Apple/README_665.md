@@ -1,3 +1,108 @@
+###  Публикация: 1692535   (122383) от 17.01.2024
+
+4K Video Downloader + 1.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C2906E44013717889DB500E3C49CA462E3FD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692747   (122366) от 17.01.2024
+
+VideoProc Converter 4K 6.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имея более 420 выходных форматов, VideoProc Converter 4K удовлетворит взыскательные потребности пользователей. Независимо от того, хотите ли вы конвертировать H.264 в H.265 (HEVC), MKV в MP4 / для iPhone, AVI для YouTube, 3D в 2D и другие. Им легко пользоваться даже новичкам.Тип издания: macOS SoftwareРелиз состоялся: 16ю01ю2024Разработчик: © 2023 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F573BF993D52603F3BBB6813718A4C91C83D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692543   (122364) от 17.01.2024
+
+FSNotes 6.6.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122364.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9996FA7925A169E47C9EEE4781965F6A9ECC8B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692539   (122363) от 17.01.2024
+
+DirEqual 5.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122363.jpg" />
+</div>
+
+
+###  Подробнее
+
+DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
+Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC03B41C42376181D5EA165DEF33ACE7092AA52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692536   (122362) от 17.01.2024
 
 4K YouTube to MP3 Pro for Mac 5.1.0 [Multi/Ru]
@@ -6,7 +111,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122362.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Aiseesoft Mac FoneTrans 9.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122357.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Unclutter 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122356.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ VideoProc Converter 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122350.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122338.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122335.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ MarkMyWords 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122328.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ Boinx FotoMagico Pro 6 v.6.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122327.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ EazyDraw 11.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122325.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ Navicat Charts Creator for Mac 1.2.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122323.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ SnippetsLab 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122322.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ RightFont 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122320.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ Capture One 23 Pro 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122190.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ SponsorBlock for YouTube 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122159.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122158.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ dBpoweramp Music Converter 2023-12-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122147.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ Text Workflow 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122139.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ QuickLinks 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122138.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ PullTube 1.8.5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122134.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ Topaz Photo AI for Mac 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122079.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ App Cleaner & Uninstaller Pro 8.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121959.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ Capture One 23 Enterprise 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121880.jpg" />
 </div>
 
 
@@ -571,112 +676,6 @@ Capture One 23 Enterprise — решение для редактирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F5BBE5543FB58A8F8B91FE94C09807B4FEDBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693353   (121878) от 20.01.2024
-
-PDF Expert 3.8.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121878.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - редактор  PDF. Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому.
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2015-2024 Readdle Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A2E22409BAC981ADD9A0B3151D9C844F7560B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693468   (121874) от 20.01.2024
-
-Topaz Video AI for Mac 4.1.1 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14BF751A7E3F39A0EB9C835A5E3627B0EBAF3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693337   (121867) от 20.01.2024
-
-ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ACDSee Photo Studio — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio.
-Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2021 ACD Systems International Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87A56D86E94C723C11AA31570AEBA5BA5C96F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693432   (121857) от 20.01.2024
-
-Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2024Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEB571DAEC3F6364A1A1E56D158F68F7D6B8A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

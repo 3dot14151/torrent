@@ -1,3 +1,139 @@
+###  Публикация: 1025016   (711289) от 11.06.2016
+
+Maple 2015.1 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_711289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maple - cистема может использоваться для проведения численных и символьных вычислений, позволяет моделировать многокомпонентные технические системы и предлагает инструменты для подготовки технической документации. Версия Maple предоставляет набор новых инструментов, упрощающих подготовку визуально привлекательных и легко интерпретируемых трехмерных чертежей. Вычислительная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: maplesofПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFE2694CA85DF8CC9BE33FBD5F00B3F191865E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219610   (711121) от 15.04.2018
+
+Movavi Video Converter 8.3.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_711121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальное приложение для конвертации видео, фото и аудио на macOS! Movavi Конвертер Видео поможет сохранить ваши медиафайлы в любой формат и экспортировать их для мобильных устройств, чтобы вы могли наслаждаться любимыми фильмами и музыкой, где бы вы ни находились. При этом пользоваться нашим видеоконвертером невероятно просто: загрузите файлы в программу, укажите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55B8694496985E4D4E85812D7BDFB4B5F82C6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401430   (710709) от 09.08.2020
+
+Nik Complete 3 Collection by DxO v3.0.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2020Разработчик: DxOПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEF39BBC0A36E4566D54412A34736151C9A28B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131082   (710670) от 04.05.2017
+
+Orion Markup - image notes and annotations 3.04 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет открыть изображение (в том числе  скриншоты), и добавить все виды аннотаций в виде текста, графических элементов, подчеркиваний, выносок, и многое другое.
+
+- Добавлять заметки и в файлы изображений и PDF-документов
+- Увеличение: создает увеличенные версии выбранных областей изображения(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2017Разработчик: Aidaluu Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5ECCE33A7BEBF68BF8B55BDDF4BD7B3D0B63E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130158   (710388) от 04.05.2017
+
+Git For Command Line on Mac OS X (Git v. 2.7.1) [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Git для штатного Терминала macOS. Распределённая система контроля версий. Была создана Линусом Торвальдсом для работы над ядром Linux. Следствие - широкое распространение в узких кругах, мощь и сложность.
+
+Установить Git можно из портов MacPorts или Fink. Но этот метод чем дальше, тем меньше мне нравится - за нужным пакетом тянется длинный хвост зависимостей, часть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2016Разработчик: timcharperПоддерживаемая ОС: macOS Snow Leopard or laterЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBA9C8ED0CCE0B3A220A14B0D3FBAC44AEAF827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131134   (710148) от 04.05.2017
 
 AppDelete 4.3.3 [Multi/Ru]
@@ -6,7 +142,7 @@ AppDelete 4.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710148.jpg" />
+  <img src="Z:/picture/008/save_picture_710148.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ Outline – note app with local storage & cloud sync 3.19 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708910.jpg" />
+  <img src="Z:/picture/008/save_picture_708910.jpg" />
 </div>
 
 
@@ -64,7 +200,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708847.jpg" />
+  <img src="Z:/picture/008/save_picture_708847.jpg" />
 </div>
 
 
@@ -90,7 +226,7 @@ Blocs 3.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707802.jpg" />
+  <img src="Z:/picture/008/save_picture_707802.jpg" />
 </div>
 
 
@@ -118,7 +254,7 @@ FoldersSynchronizer 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707708.jpg" />
+  <img src="Z:/picture/008/save_picture_707708.jpg" />
 </div>
 
 
@@ -145,7 +281,7 @@ Tenorshare UltData - Mac 3.0.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707527.jpg" />
+  <img src="Z:/picture/008/save_picture_707527.jpg" />
 </div>
 
 
@@ -174,7 +310,7 @@ Bills 1.10.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706947.jpg" />
+  <img src="Z:/picture/008/save_picture_706947.jpg" />
 </div>
 
 
@@ -203,7 +339,7 @@ Wolf 1.35.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706830.jpg" />
+  <img src="Z:/picture/008/save_picture_706830.jpg" />
 </div>
 
 
@@ -231,7 +367,7 @@ Offline Pages Pro 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706725.jpg" />
+  <img src="Z:/picture/008/save_picture_706725.jpg" />
 </div>
 
 
@@ -260,7 +396,7 @@ Canary Mail 2.19 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706682.jpg" />
+  <img src="Z:/picture/008/save_picture_706682.jpg" />
 </div>
 
 
@@ -286,7 +422,7 @@ MacPaw Hider 2 2.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706680.jpg" />
+  <img src="Z:/picture/008/save_picture_706680.jpg" />
 </div>
 
 
@@ -314,7 +450,7 @@ Themes for iBooks Author 4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706627.jpg" />
+  <img src="Z:/picture/008/save_picture_706627.jpg" />
 </div>
 
 
@@ -342,7 +478,7 @@ Business Template Lab - Templates for MS Word 1.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706618.jpg" />
+  <img src="Z:/picture/008/save_picture_706618.jpg" />
 </div>
 
 
@@ -368,7 +504,7 @@ Stellar Drive Defrag 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706585.jpg" />
+  <img src="Z:/picture/008/save_picture_706585.jpg" />
 </div>
 
 
@@ -396,7 +532,7 @@ iStatistica 1.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706041.jpg" />
+  <img src="Z:/picture/008/save_picture_706041.jpg" />
 </div>
 
 
@@ -425,7 +561,7 @@ Printworks 2 v2.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705520.jpg" />
+  <img src="Z:/picture/008/save_picture_705520.jpg" />
 </div>
 
 
@@ -453,7 +589,7 @@ CyberByte Antivirus and Internet Security Premium 3.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705360.jpg" />
+  <img src="Z:/picture/008/save_picture_705360.jpg" />
 </div>
 
 
@@ -479,7 +615,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.152 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705212.jpg" />
+  <img src="Z:/picture/008/save_picture_705212.jpg" />
 </div>
 
 
@@ -508,7 +644,7 @@ USB Overdrive 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704921.jpg" />
+  <img src="Z:/picture/008/save_picture_704921.jpg" />
 </div>
 
 
@@ -536,7 +672,7 @@ BusinessTasks - Tasks, Notes & Todos Manager 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703967.jpg" />
+  <img src="Z:/picture/008/save_picture_703967.jpg" />
 </div>
 
 
@@ -565,7 +701,7 @@ IconKit 10.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703935.jpg" />
+  <img src="Z:/picture/008/save_picture_703935.jpg" />
 </div>
 
 
@@ -579,141 +715,6 @@ IconKit 10.1.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675F91F6962E4994069E8DA43585CECBC14BDCF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026359   (703841) от 15.06.2016
-
-Sketches Pro 1.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные инструменты — залог превосходных рисунков, поэтому мы создали приложение Sketches с еще более широким набором реалистичных инструментов.
-С удивительным набором инструментов и современным пользовательским интерфейсом  Sketches  является наиболее универсальным и удобным приложением для  создания рисунков.
-
-• Возможности(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 июня 2016Разработчик: TayasuПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7D5BC8D0531A2085DA4550DC4FB3C457BA4F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287470   (703473) от 07.03.2019
-
-Elimisoft PDF Creator 1.0.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как преобразовать Word (.docx) в PDF-файлы? В отличие от других приложений, Elimisoft PDF Creator - это отличный способ помочь вам создавать PDF из Word (.docx), PowerPoint (.pptx), простого текста, RTFD, HTML, EPUB и изображений (.png, .gif,. TIF, JPEG и т. д.).
-Он также сохраняет исходное форматирование после создания!Тип издания: macOS SoftwareРелиз состоялся: 07.03.2019Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB9F476498A88F595C4FDA534EC138616D670FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533754   (703342) от 25.02.2022
-
-Querious 3 v3.2 U2B [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотреть, найти, редактировать, импортировать, экспортировать, настраивать и контролировать ваши MySQL и MariaDB базы проще, чем раньше. С Querious, вы можете даже открыть исходные CSV или Tab файлы и легко разделить, объединить, изменить порядок, добавлять, удалять изменить колонки процесса и строк, а затем конвертировать весь файл в другой формат.
-Querious 3 (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 25.02.2022Разработчик: © 2016-2021 Araelium GroupПоддерживаемая ОС: macOS X 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9144DC4B69342CD80A31B580723A6ECA18EC3FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533750   (703340) от 25.02.2022
-
-A-Zippr Pro: Better Unarchiver 1.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703340.jpg" />
-</div>
-
-
-###  Подробнее
-
-A-Zippr - небольшая, довольно простая, быстрая и мощная утилита для работы с ZIP, RAR и другими архивами, включая, SIT, TAR и еще более 80 различных форматов архивных файлов, с поддержкой нескольких вариантов компрессии.Тип издания: macOS SoftwareРелиз состоялся: 24.02.2022Разработчик: © 2022 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA5F062F9CF87E030197813FFD795C268C3EF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287312   (702959) от 07.03.2019
-
-Wondershare Video Converter Ultimate 10.3.2 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое быстрое универсальное решение для развлечений с цифровым видео. Скачивайте видео на сверхвысокой скорости одним нажатием мыши! А ещё оцените мощь универсального медиа-плеера, встроенного видео-редактора, интегрированного DVD-привода и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2019Разработчик: Software Co., Ltd.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B8FC8D6AF3E508F2599A7F08D7B25CB7380207
 ```
 
 https://mybot314.ru/tekegram_catalog/

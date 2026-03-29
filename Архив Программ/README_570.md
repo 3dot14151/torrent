@@ -6,7 +6,7 @@ CPU-Z 1.84.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764860.jpg" />
+  <img src="Z:/picture/008/save_picture_764860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CCEnhancer 4.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764858.jpg" />
+  <img src="Z:/picture/008/save_picture_764858.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BurnAware Professional 11.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764830.jpg" />
+  <img src="Z:/picture/008/save_picture_764830.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Registry First Aid Platinum 11.1.0 Build 2495 RePack (& portable) by  elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764826.jpg" />
+  <img src="Z:/picture/008/save_picture_764826.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 65.0.3325.181 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764821.jpg" />
+  <img src="Z:/picture/008/save_picture_764821.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Araxis Merge 2018.4988 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764819.jpg" />
+  <img src="Z:/picture/008/save_picture_764819.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AusLogics BoostSpeed 10.0.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764813.jpg" />
+  <img src="Z:/picture/008/save_picture_764813.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ CCleaner 5.41.6446 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764780.jpg" />
+  <img src="Z:/picture/008/save_picture_764780.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Trojan Killer 2.1.31 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764641.jpg" />
+  <img src="Z:/picture/008/save_picture_764641.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinNTSetup 4.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764637.jpg" />
+  <img src="Z:/picture/008/save_picture_764637.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FinePrint Software (FinePrint 10.31 / pdfFactory Pro 7.31) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764633.jpg" />
+  <img src="Z:/picture/008/save_picture_764633.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Wise Program Uninstaller 2.3.3.134 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764590.jpg" />
+  <img src="Z:/picture/008/save_picture_764590.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Trojan Killer 2.1.32 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764587.jpg" />
+  <img src="Z:/picture/008/save_picture_764587.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Any Video Converter Professional 7.0.3 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764580.jpg" />
+  <img src="Z:/picture/008/save_picture_764580.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Soft4Boost Document Converter 6.3.9.505 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764579.jpg" />
+  <img src="Z:/picture/008/save_picture_764579.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CrystalDiskInfo 8.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764578.jpg" />
+  <img src="Z:/picture/008/save_picture_764578.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IObit Software Updater Pro 3.1.0.1572 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764577.jpg" />
+  <img src="Z:/picture/008/save_picture_764577.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Free Download Manager 6.10.1.3069 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764575.jpg" />
+  <img src="Z:/picture/008/save_picture_764575.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ IObit Uninstaller Pro 9.6.0.2 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764574.jpg" />
+  <img src="Z:/picture/008/save_picture_764574.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ K-Lite Codec Pack Update 13.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764557.jpg" />
+  <img src="Z:/picture/008/save_picture_764557.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Mozilla Thunderbird 60.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764535.jpg" />
+  <img src="Z:/picture/008/save_picture_764535.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Waterfox 56.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764533.jpg" />
+  <img src="Z:/picture/008/save_picture_764533.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Telegram Desktop 2.1.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764526.jpg" />
+  <img src="Z:/picture/008/save_picture_764526.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ YouTube By Click Premium 2.2.133 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764520.jpg" />
+  <img src="Z:/picture/008/save_picture_764520.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Media Player Classic Home Cinema 1.9.6 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764519.jpg" />
+  <img src="Z:/picture/008/save_picture_764519.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ O&O Defrag Professional 23.5 Build 5019 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764517.jpg" />
+  <img src="Z:/picture/008/save_picture_764517.jpg" />
 </div>
 
 

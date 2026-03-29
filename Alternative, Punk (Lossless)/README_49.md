@@ -1,3 +1,32 @@
+###  Публикация: 1192045   (263524) от 16.12.2017
+
+My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Lost Our Way (4:52)
+02. It's So Damn Easy (4:16)
+03. If Only... (God Only Knows) (3:44)
+04. (All these) Days (3:00)(   Читать дальше...   )Жанр: Alternative Rock, Shoegaze |Продолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340678   (263297) от 25.11.2019
 
 Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk, Avantgarde, Experimental>
@@ -6,7 +35,7 @@ Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263297.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Cha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262633.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Regina Spektor - What We Saw From The Cheap Seats (2012) [FLAC (tracks+cue)|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259974.jpg" />
+  <img src="Z:/picture/005/save_picture_259974.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Papa Roach - Сollection (1997 - 2022) 17 CD [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259858.jpg" />
+  <img src="Z:/picture/005/save_picture_259858.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257712.jpg" />
+  <img src="Z:/picture/005/save_picture_257712.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256173.jpg" />
+  <img src="Z:/picture/005/save_picture_256173.jpg" />
 </div>
 
 
@@ -187,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255554.jpg" />
+  <img src="Z:/picture/005/save_picture_255554.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ Stereophonics - 14 альбомов (1997 - 2022) 18 CD [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251982.jpg" />
+  <img src="Z:/picture/004/save_picture_251982.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Serj Tankian - Perplex Cities (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250293.jpg" />
+  <img src="Z:/picture/004/save_picture_250293.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Devil's Black Shoes - Devil's Black Shoes, Vol. 1-2 (2023) 2CD [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249873.jpg" />
+  <img src="Z:/picture/004/save_picture_249873.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247790.jpg" />
+  <img src="Z:/picture/004/save_picture_247790.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247788.jpg" />
+  <img src="Z:/picture/004/save_picture_247788.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245432.jpg" />
+  <img src="Z:/picture/004/save_picture_245432.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245425.jpg" />
+  <img src="Z:/picture/004/save_picture_245425.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ The Classic Crime - GRIM AGE (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245399.jpg" />
+  <img src="Z:/picture/004/save_picture_245399.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Sekta Core - En la Zona del Terror (En Vivo) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245388.jpg" />
+  <img src="Z:/picture/004/save_picture_245388.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ The Birthday Massacre - Fascination (2022) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245340.jpg" />
+  <img src="Z:/picture/004/save_picture_245340.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ The Bar Stool Preachers - Above the Static (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245304.jpg" />
+  <img src="Z:/picture/004/save_picture_245304.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245118.jpg" />
+  <img src="Z:/picture/004/save_picture_245118.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Dead Original - Bought & Sold (2021) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245009.jpg" />
+  <img src="Z:/picture/004/save_picture_245009.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ The Hara - Survival Mode (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244870.jpg" />
+  <img src="Z:/picture/004/save_picture_244870.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Rise of the Northstar - Showdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244845.jpg" />
+  <img src="Z:/picture/004/save_picture_244845.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244565.jpg" />
+  <img src="Z:/picture/004/save_picture_244565.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Hurry - Every Little Thought (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244547.jpg" />
+  <img src="Z:/picture/004/save_picture_244547.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244153.jpg" />
 </div>
 
 
@@ -724,35 +753,6 @@ Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1116EA5B2A7F29B0A3C2D8B5D89276CF92964ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610850   (244144) от 09.02.2023
-
-Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, Ska-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Love Revolution (00:03:48)
-02 - Druschba (You're Not Alone) (00:03:15)
-03 - No One Is Illegal (00:03:37)
-04 - Here is the News (Papa's Got a Brand New Pigbag) (00:03:46)(   Читать дальше...   )Жанр: Gypsy Punk, Ska-PunkПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8920C3EB5E3771BC579D7844CC545C908634059C
 ```
 
 https://mybot314.ru/tekegram_catalog/

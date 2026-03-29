@@ -1,3 +1,135 @@
+###  Публикация: 1592824   (18308) от 14.05.2025
+
+Сказка о рыбаке и рыбке (1950) BDRemux [H.264/1080i]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили-были старик со старухой у самого синего моря. Закинул невод старик в море и поймал рыбку, да не простую, а золотую...Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Михаил ЦехановскийАктеры: Анастасия Зуева, Мария Бабанова, Борис Чирков, Владимир Грибков, Георгий МиллярСубтитры: ОтсутствуютПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F010C6DFB363086AD00B6F6D417DB46D70F44372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799921   (16216) от 30.05.2025
+
+Завещание (1937) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16216.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Италии аббат хоронит на кладбище любимого пса-воришку, как христианина. Чтобы искупить этот грех, он дает взятку епископу в виде завещания, оставленного псом.
+В основе мультфильма - новелла итальянского писателя XV века Поджо Браччолини, разоблачающей ханжество и продажность средневекового духовенства.Производство: СССР / МосфильмЖанр: кукольный, короткометражный, экранизация, для взрослыхРежиссер: Иосиф СклютСубтитры: отсутствуютПродолжительность: 00:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B3336054EE0D4245B3703C2FFAB676EFEAB0A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505462   (16016) от 01.06.2025
+
+Маугли (1973) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая сказка о человеческом детеныше, попавшем в волчью стаю. Постепенно на наших глазах малыш Маугли превращается в могучего человека, которого не без оснований боится тот, кто не смог его убить в детстве. Он вместе с другими волчатами познает мир, взрослеет в гармонии с природой, изучает ее мудрость, учится дружить по-настоящему и соблюдать неприкосновенные (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, приключения, детский, семейныйРежиссер: Роман ДавыдовАктеры: Степан Бубнов, Людмила Касаткина, Юрий Хржановский, Лев Любецкий, Сергей Мартинсон, Александр Назаров, Люсьена Овчинникова, Анатолий Папанов, Юрий Пузырев, Владимир УшаковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041EB2449211C9E0C61299D0DB766BA224C943EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800219   (15930) от 01.06.2025
+
+Снежная королева (1957) WEB-DLRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В один из морозных зимних вечеров, когда сквозь расписанные причудливым узором окна уютных тёплых домов прокрадывается темнота, а во дворе тревожно завывает вьюга, Снежная королева умчала маленького Кая в свои ледяные владения и превратила его доброе отзывчивое сердце в осколок льдинки. На поиски друга отправляется девочка Герда.Производство: СССР / СоюзмультфильмЖанр: мультфильм, мюзикл, детский, фэнтези, сказка, приключенияРежиссер: Лев АтамановАктеры: Владимир Грибков, Мария Бабанова, Янина Жеймо, Сергей Мартинсон, Анна Комолова, Галина Кожакина, Варвара Попова, Алексей Консовский, Ирина Мурзаева, Елена Понсова и другиеСубтитры: отсутствуютПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BDE2DF71B4D9A33998C774D50693FA2BF2CB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800502   (15623) от 04.06.2025
+
+Сказка о рыбаке и рыбке (1937) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация сказки Пушкина "О рыбаке и рыбке".
+Жили-были старик со старухой у самого синего моря. Закинул невод старик в море и поймал рыбку, да не простую, а золотую. А рыбка та - волшебная, три желания исполнить может.Производство: СССР / МосфильмЖанр: кукольный, короткометражный, детский, экранизацияРежиссер: Александр ПтушкоСубтитры: отсутствуютПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DF9C76D097AB37BCFC4F16F802B562B27624E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801302   (15083) от 10.06.2025
 
 Ивашко и Баба-Яга (1938) WEBRip [H.264/1080p]
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15083.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14738.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14296.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14007.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11930.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11383.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10363.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9975.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9129.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9128.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8903.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7889.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7714.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7693.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6897.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6192.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5834.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5544.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4661.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3740.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3636.jpg" />
 </div>
 
 
@@ -541,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C75E537FA2144838315A3FA6690F650CC5FFBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818679   (2158) от 18.09.2025
-
-Лис, который ничего не умел (1976) 35mm Film Scan [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лис ничего не умеет и мешает заниматься любимыми делами окружающим. Особенно сильно ему не нравится Кролик. В один прекрасный день Лис обнаруживает у себя способность к ваянию и перестает преследовать Кролика...Производство: СССР / АрменфильмЖанр: мультфильм, короткометражкаРежиссер: Роберт СаакянцСубтитры: отсутствуютПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3E78F60E733C587E8048AAFA0FD20013A68733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819432   (1453) от 22.09.2025
-
-Достать до неба (1975) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети с помощью Космонавта возвращают на небо упавшую звездочку.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Гарри БардинАктеры: Анна Рыбникова, Петр Дегтярев, Кирилл ХаритоновСубтитры: отсутствуютПродолжительность: 00:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5269BD88E3C7649F1E71895ADD21558292797BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

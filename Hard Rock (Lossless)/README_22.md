@@ -1,3 +1,61 @@
+###  Публикация: 1501080   (838128) от 08.10.2021
+
+Jeff Scott Soto - The Duets Collection, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin’ The Life (ROCK STAR) with Erik Martensson (Eclipse/W.E.T.)
+02. Don’t Let It End (YNGWIE MALMSTEEN) - with Dino Jelusick (Animal Drive)
+03. Mysterious (TALISMAN) - with Eric Martin (Mr. Big)
+04. Believe in Me (JSS) - with Nathan James (Inglorious)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488F8B7F402EE02E753AE89BBF14BD165C608106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004804   (836883) от 07.04.2016
+
+Nelson - Peace Out (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Everybody (3:12)
+02. Back In The Day (3:53)
+03. Invincible (5:00)
+04. Let It Ride (4:48)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D11E87517331C63C4E4422F64CBF9C1489FCB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114087   (835289) от 13.03.2017
 
 Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835289.jpg" />
+  <img src="Z:/picture/008/save_picture_835289.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Grinder Blues - El Dos (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835194.jpg" />
+  <img src="Z:/picture/008/save_picture_835194.jpg" />
 </div>
 
 
@@ -66,7 +124,7 @@ Deep Purple - Limitless (2017) Compilation [FLAC|Lossless|tracks + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834976.jpg" />
+  <img src="Z:/picture/008/save_picture_834976.jpg" />
 </div>
 
 
@@ -95,7 +153,7 @@ BlackRain - Released (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834566.jpg" />
+  <img src="Z:/picture/008/save_picture_834566.jpg" />
 </div>
 
 
@@ -124,7 +182,7 @@ Bullet Train Blast - Shake Rattle Racing (2015) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834452.jpg" />
+  <img src="Z:/picture/008/save_picture_834452.jpg" />
 </div>
 
 
@@ -153,7 +211,7 @@ Cheap Trick - Bang, Zoom, Crazy... Hello (2016) [FLAC|Lossless|tracks + .cue] <R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832548.jpg" />
 </div>
 
 
@@ -182,7 +240,7 @@ Eve To Adam - Odyssey (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternati
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832075.jpg" />
 </div>
 
 
@@ -211,7 +269,7 @@ Uriah Heep - Live At Koko [Delux Edition] (2015) 2CD [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831711.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ American Dog - Six Pack: Songs About Drinkin' And Fuckin' (2001) EP, Live [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830073.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ Place Vendome - Close To The Sun (2017) [FLAC|Lossless|track + .cue] <Melodic Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829966.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Black Swan - Shake The World (Japanese Edition) (2020) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829513.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ Gary Hoey - Bug Alley (1996) series Rock Guitar Heroes, Unofficial Release [APE|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829198.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ Kingdom Come (Lenny Wolf,  Stone Fury: pre-Kingdom Come) - 19 Albums, 1 Box Set 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828956.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ Frank Marino - Full Circle (1986) [FLAC|Lossless|tracks + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826939.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ Scarlet Rain - Eleventh Hour (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824967.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ Wicked Smile - Wait For The Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824942.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Alcatrazz - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824940.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824781.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ Whitesnake - Greatest Hits (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824451.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ Bailout - ...As the Winds Blow On (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821616.jpg" />
+  <img src="Z:/picture/008/save_picture_821616.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Bangkok Dollars - Lost Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821443.jpg" />
+  <img src="Z:/picture/008/save_picture_821443.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Eclipse - Monumentum (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821044.jpg" />
+  <img src="Z:/picture/008/save_picture_821044.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ David Coverdale & Whitesnake - Best Ballads (2018) [FLAC|Lossless|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820521.jpg" />
+  <img src="Z:/picture/008/save_picture_820521.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Fallen Angels - Otherside (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819494.jpg" />
+  <img src="Z:/picture/008/save_picture_819494.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Fallen Angels - Otherside (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4610B1D0971936B11B2369D5E621A3C5B2E12ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503259   (819492) от 19.10.2021
-
-The Wildhearts - 21st Century Love Songs (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 21st Century Love Songs
-02. Remember These Days
-03. Splitter
-04. Institutional Submission(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8F480A3FBE874B38B3640C1A9C71F03A62D08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196904   (819063) от 05.01.2018
-
-Hard Action - Hot Wired Beat (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Fall
-02. Nothing Ever Changed
-03. Hostile Street
-04. The Losing Side(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B5EF3440F64519053305C2714D2AE9852BE6EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

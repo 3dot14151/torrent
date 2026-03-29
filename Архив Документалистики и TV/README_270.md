@@ -1,3 +1,159 @@
+###  Публикация: 953318   (344940) от 06.11.2015
+
+Обзор. Чемпионат Испании 2015-16. 10 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Испании 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA77500BDCAD8EE18F4546A7232F3EF11D300F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953326   (344939) от 06.11.2015
+
+Обзор. Чемпионат России 2015-16. 14 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата России 2015-2016 года.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4442C0350F89AD6079B7FA01EF58B0A3BFD18FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953331   (344938) от 06.11.2015
+
+Обзор. Чемпионат Франции 2015-16. 12 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Франции 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8055B63B5ACECE10246DD26CD98AFB8CAE697FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953327   (344937) от 06.11.2015
+
+90 минут плюс. Итоги 14 тура. (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344937.jpg" />
+</div>
+
+
+###  Подробнее
+
+90 минут лучшая аналитическая программа о российском футболе. В течение полутора-двух-трёх часов рассказывается о самых интересных и актуальных вопросах нашего футбола. Каждую неделю Георгий Черданцев приглашает к себе в студию гостей, где обсуждает с ними самые заметные явления в футболе, произошедшие за неделю.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC645EE25FDA0A3EB4BB0C624DD5352AD655DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952978   (344936) от 06.11.2015
+
+Футбол. Чемпионат России 2015-2016. РФПЛ. 14 тур. Кубань - Локомотив (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016, 14 тур. Кубань - Локомотив.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A86EB8094DCFA19159EAE466E727F84A2D86D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953328   (344935) от 06.11.2015
+
+Обзор. Чемпионат Италии 2015-16. 11 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Италии 2015-2016 годаТелекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4945C868FCF4B09B1887A93A30F5D8D93A5110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953315   (344934) от 06.11.2015
 
 Обзор. Чемпионат Германии 2015-16. 11 тур. Обзор тура. (2015) HDTV [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +162,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344934.jpg" />
+  <img src="Z:/picture/008/save_picture_344934.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344810.jpg" />
+  <img src="Z:/picture/008/save_picture_344810.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344807.jpg" />
+  <img src="Z:/picture/008/save_picture_344807.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344805.jpg" />
+  <img src="Z:/picture/008/save_picture_344805.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344797.jpg" />
+  <img src="Z:/picture/008/save_picture_344797.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344792.jpg" />
+  <img src="Z:/picture/008/save_picture_344792.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344789.jpg" />
+  <img src="Z:/picture/008/save_picture_344789.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_344739.jpg" />
+  <img src="Z:/picture/005/save_picture_344739.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344682.jpg" />
+  <img src="Z:/picture/008/save_picture_344682.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344580.jpg" />
+  <img src="Z:/picture/008/save_picture_344580.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344504.jpg" />
+  <img src="Z:/picture/008/save_picture_344504.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344104.jpg" />
+  <img src="Z:/picture/008/save_picture_344104.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343633.jpg" />
+  <img src="Z:/picture/008/save_picture_343633.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343586.jpg" />
+  <img src="Z:/picture/008/save_picture_343586.jpg" />
 </div>
 
 
@@ -381,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343585.jpg" />
+  <img src="Z:/picture/008/save_picture_343585.jpg" />
 </div>
 
 
@@ -410,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343584.jpg" />
+  <img src="Z:/picture/008/save_picture_343584.jpg" />
 </div>
 
 
@@ -439,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343583.jpg" />
+  <img src="Z:/picture/008/save_picture_343583.jpg" />
 </div>
 
 
@@ -468,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343581.jpg" />
+  <img src="Z:/picture/008/save_picture_343581.jpg" />
 </div>
 
 
@@ -497,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343578.jpg" />
+  <img src="Z:/picture/008/save_picture_343578.jpg" />
 </div>
 
 
@@ -526,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343570.jpg" />
+  <img src="Z:/picture/008/save_picture_343570.jpg" />
 </div>
 
 
@@ -540,180 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:667D8DE160034177ACC9D8E03A15014D60BC1D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257646   (343447) от 27.10.2018
-
-Формула 1. Сезон 2018. 19-й Этап. Гран-при Мексики. Свободная практика 2 (26.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343447.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 октября 2018 года, пятница. 22:00 МСК
-Формула 1. 19-й Этап сезона 2018 года. Гран-при Мексики. Мехико (Мексика).
-Свободная практика 2
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6470284520DFF151DC6DE34288B20E0B59524CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257918   (343446) от 27.10.2018
-
-Формула 1. Сезон 2018. 19-й Этап. Гран-при Мексики. Свободная практика 3 (27.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343446.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 октября 2018 года, суббота. 18:00 МСК
-Формула 1. 19-й Этап сезона 2018 года. Гран-при Мексики. Мехико (Мексика).
-Свободная практика 3
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD03D44B6643ABEE041CE40F14CABA813146A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257643   (343440) от 27.10.2018
-
-Формула 1. Сезон 2018. 19-й Этап. Гран-при Мексики. Свободная практика 1 (26.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343440.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 октября 2018 года, пятница. 18:00 МСК
-Формула 1. 19-й Этап сезона 2018 года. Гран-при Мексики. Мехико (Мексика).
-Свободная практика 1
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D9B61EC99CA096E1E55CE31601EBB79AB6D1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257420   (343295) от 27.10.2018
-
-Художественная гимнастика. Чемпионат мира 2018. София (Болгария). Групповое первенство. Финалы в отдельных видах (2018) HDTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343295.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 сентября 2018 года, воскресенье
-36-й Чемпионат мира по художественной гимнастике 2018 года.
-Групповое  первенство:
-1. Финал упражнения с обручами(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E38AF492A29B3AB877650751BA3DA72E5EAD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073743   (343248) от 17.11.2016
-
-Футбол. Товарищеский матч 2016. Англия – Испания (15.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343248.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 ноября 2016, вторник. 23:00 МСК
-Товарищеский матч 2016.
-
-Стадион: Уэмбли (Лондон, Англия), вместимость: 90000(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич), ИнтершумПродолжительность: 01:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECC9F8783E7549962059A78C646984F1D8FA073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073667   (343244) от 17.11.2016
-
-Футбол. Товарищеский матч 2016. Россия - Румыния (15.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343244.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 ноября 2016, вторник. 19:00 МСК
-Товарищеский матч 2016.
-
-Стадион: Ахмат-Арена (Грозный, Россия), 30000 зрителей (98 % при вместимости 30597)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Георгий Черданцев)Продолжительность: 01:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F9A1D2587E0A07AB401E437D07795FE64F500E
 ```
 
 https://mybot314.ru/tekegram_catalog/

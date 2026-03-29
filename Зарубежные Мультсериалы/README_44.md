@@ -1,3 +1,55 @@
+###  Публикация: 1611412   (207609) от 11.02.2023
+
+Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/720p] (сезон 2, серии 1-12 из 12) HDrezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джин, Алисия Чан, Young HellerПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (SDH)Продолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C046AC721E5F13E8A4613862D852F60DAAB5E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611582   (207581) от 12.02.2023
+
+Велма / Velma (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) RuDub
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207581.jpg" />
+</div>
+
+
+###  Подробнее
+
+О жизни главной умницы корпорации «Тайна» Велмы Динкли до её встречи со Скуби и компанией.Производство: США / Warner Bros. AnimationЖанр: мультфильм, комедия, криминал, детектив, приключенияРежиссер: Энн Уокер Фаррелл, Meg Waldow, Cal RamseyПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536E1413DD301B28501FBBBFAE26E1AC135B5FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249453   (207455) от 24.09.2022
 
 Тобот / Tobot (2010) WEB-DL [H.264/720p] (сезоны 3-4, серии 44 из 44)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207455.jpg" />
+  <img src="Z:/picture/005/save_picture_207455.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207436.jpg" />
+  <img src="Z:/picture/005/save_picture_207436.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207433.jpg" />
+  <img src="Z:/picture/005/save_picture_207433.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Secrets o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207410.jpg" />
+  <img src="Z:/picture/005/save_picture_207410.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207223.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206082.jpg" />
+  <img src="Z:/picture/005/save_picture_206082.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206075.jpg" />
+  <img src="Z:/picture/005/save_picture_206075.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205837.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205795.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204967.jpg" />
+  <img src="Z:/picture/004/save_picture_204967.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204960.jpg" />
+  <img src="Z:/picture/004/save_picture_204960.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204731.jpg" />
+  <img src="Z:/picture/004/save_picture_204731.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204677.jpg" />
+  <img src="Z:/picture/004/save_picture_204677.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204469.jpg" />
+  <img src="Z:/picture/004/save_picture_204469.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204164.jpg" />
+  <img src="Z:/picture/004/save_picture_204164.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203523.jpg" />
+  <img src="Z:/picture/004/save_picture_203523.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203473.jpg" />
+  <img src="Z:/picture/004/save_picture_203473.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203384.jpg" />
+  <img src="Z:/picture/004/save_picture_203384.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202357.jpg" />
+  <img src="Z:/picture/004/save_picture_202357.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201751.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201321.jpg" />
+  <img src="Z:/picture/005/save_picture_201321.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201311.jpg" />
+  <img src="Z:/picture/005/save_picture_201311.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201048.jpg" />
+  <img src="Z:/picture/005/save_picture_201048.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201033.jpg" />
+  <img src="Z:/picture/005/save_picture_201033.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F347369B7BC4A106A0F9579FB0A3D9CAA201A32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567598   (201022) от 21.03.2023
-
-Харли Квинн / Harley Quinn (2022) WEB-DL [H.264/720p-LQ] (сезон 3, серия 1-10 из 10 + спецвыпуск) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Язык озвучки: русский, английскийСубтитры: русские (сообщество UGN SUBZ Translators), английские, испанские, португальскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E670D5CC0D6F27BC57685E1AE78629E9A7C52D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567599   (200948) от 21.03.2023
-
-Харли Квинн / Harley Quinn (2022) WEB-DLRip (сезон 3, серия 1-10 из 10 + спецвыпуск) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный  (NewStation) - присутствует ненормативная лексика.Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C2A7CE4B56889D4BEFDAE550CC725E60798FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

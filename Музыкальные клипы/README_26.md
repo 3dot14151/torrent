@@ -1,3 +1,81 @@
+###  Публикация: 571523   (388016) от 07.11.2012
+
+Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD716F14FA7D971328EBA8D33D680BF394CDA0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571878   (388003) от 07.11.2012
+
+Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEEC113215ED1FE4E4D7B8B7ABF89E368987D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571525   (387865) от 07.11.2012
+
+Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Relax, Chill OutПродолжительность: 00:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497DD0C72E6C5304EBB80B2DB837311C4925EA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571733   (387741) от 07.11.2012
 
 Израиль Камакавивиоле / Israel Kamakawiwo'ole Facing Future 14 Somewhere Over The Rainbow [H.264] (2012) Mp4
@@ -6,7 +84,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387741.jpg" />
+  <img src="Z:/picture/008/save_picture_387741.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Enigmatic Chill-Out Lounge (2012) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385280.jpg" />
+  <img src="Z:/picture/008/save_picture_385280.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385082.jpg" />
+  <img src="Z:/picture/008/save_picture_385082.jpg" />
 </div>
 
 
@@ -92,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382676.jpg" />
+  <img src="Z:/picture/008/save_picture_382676.jpg" />
 </div>
 
 
@@ -121,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382668.jpg" />
+  <img src="Z:/picture/008/save_picture_382668.jpg" />
 </div>
 
 
@@ -150,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382639.jpg" />
+  <img src="Z:/picture/008/save_picture_382639.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380505.jpg" />
+  <img src="Z:/picture/008/save_picture_380505.jpg" />
 </div>
 
 
@@ -208,7 +286,7 @@ Rihanna - Bitch Better Have My Money (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379153.jpg" />
+  <img src="Z:/picture/008/save_picture_379153.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379093.jpg" />
+  <img src="Z:/picture/008/save_picture_379093.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378112.jpg" />
+  <img src="Z:/picture/008/save_picture_378112.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Akcent / Коллекция видео (2002-2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377111.jpg" />
+  <img src="Z:/picture/008/save_picture_377111.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ VA - Осенний марафон № 199 / Видеоклипы (Свежие 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377040.jpg" />
+  <img src="Z:/picture/008/save_picture_377040.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376421.jpg" />
+  <img src="Z:/picture/008/save_picture_376421.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376072.jpg" />
+  <img src="Z:/picture/008/save_picture_376072.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375342.jpg" />
+  <img src="Z:/picture/008/save_picture_375342.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374410.jpg" />
+  <img src="Z:/picture/008/save_picture_374410.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374111.jpg" />
+  <img src="Z:/picture/008/save_picture_374111.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374069.jpg" />
+  <img src="Z:/picture/008/save_picture_374069.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ VA - Viva Music (1996) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373927.jpg" />
+  <img src="Z:/picture/008/save_picture_373927.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369192.jpg" />
+  <img src="Z:/picture/008/save_picture_369192.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ Assorti Creative 50 (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368450.jpg" />
+  <img src="Z:/picture/008/save_picture_368450.jpg" />
 </div>
 
 
@@ -606,7 +684,7 @@ DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367907.jpg" />
+  <img src="Z:/picture/008/save_picture_367907.jpg" />
 </div>
 
 
@@ -632,7 +710,7 @@ Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367808.jpg" />
+  <img src="Z:/picture/008/save_picture_367808.jpg" />
 </div>
 
 
@@ -643,84 +721,6 @@ Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F55F773E2A68E01CA6EC1FB92D89EB18B235D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406067   (367786) от 04.11.2011
-
-VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367786.jpg" />
-</div>
-
-
-###  Подробнее
-
-“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: МузыкаРежиссер: N/AАктеры: DEV, Jennifer Lopez, Selena Gomez & The SceneПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 5x ~00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B797F046A5D5D8FCF9DBAF8ACFF7BA3C8F95172A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575992   (366309) от 16.11.2012
-
-Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0162E116B62BE3E0CB4CFE25737F42C7737EA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575574   (365576) от 16.11.2012
-
-JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E807D639FB6BCC86C805AE8083F6CC555963D947
 ```
 
 https://mybot314.ru/tekegram_catalog/

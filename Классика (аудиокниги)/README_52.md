@@ -1,3 +1,110 @@
+###  Публикация: 1678111   (147821) от 20.11.2023
+
+Гастон Леру | Человек, который видел дьявола (2021) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гастон Леру (1868–1927) – французский писатель, один из основоположников детективного жанра. Его романы по праву завоевали огромную популярность, а сыщик-любитель Жозеф Рультабий не без основания считается прототипом целой плеяды легендарных героев частного сыска.
+
+Заветная мечта всех игроков – не знать проигрыша, на деле может оказаться настоящим проклятьем. Подтверждение (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистический рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B201C83B7FB7AFFB7689EAC8E0D12C529273F2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678201   (147506) от 20.11.2023
+
+Александр Дюма | Учитель фехтования (2023) [MP3, Андрей Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиостудия «Ардис» представляет один из первых исторических романов Александра Дюма «Учитель фехтования», написанный в 1840 году. Учитель фехтования Грезье передаёт Александру Дюма свои записи, сделанные во время поездки в Россию. В них рассказывается, как он поехал в Санкт-Петербург и начал преподавать уроки фехтования. Все его ученики – будущие декабристы…...Жанр: ПриключенияИздательство: АрдисПродолжительность: 06:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B78035EC72BD903B08F61E914EBFC9162D8715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348758   (146665) от 20.11.2023
+
+Гастон Леру | Призрак Оперы (2005) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гастон Леру (1868–1927) – французский писатель, один из основоположников детективного жанра. Его романы по праву завоевали огромную популярность, а сыщик-любитель Жозеф Рультабий не без основания считается прототипом целой плеяды легендарных героев частного сыска.
+«Призрак Оперы действительно существовал» – он не был плодом суеверного воображения артистов и директоров, (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, романПродолжительность: 12:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57390B1A264EF781BF01CC010EB1E370D1E0CA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678546   (146118) от 21.11.2023
+
+Жозеф Бедье | Роман о Тристане и Изольде (2010) [MP3, Анатолий Фролов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый роман французского литературоведа и писателя Жозефа Бедье основан на средневековых сказаниях о любви отважного рыцаря Тристана и златовласой красавицы Изольды. Тристан поклялся своему государю - королю Марку привезти из-за моря его избранницу, принцессу Изольду, а мать Изольды приготовила любовный напиток для молодоженов, и тем, кто его испьет, суждено (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 06:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BD056B3A75102BB81B5D70F79A0D080F7A3968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678278   (145990) от 21.11.2023
 
 Стендаль | Красное и чёрное (2011) [MP3, Вячеслав Герасимов]
@@ -6,7 +113,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145990.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145922.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145778.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145513.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145135.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145113.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145074.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145054.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145036.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144972.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144964.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144952.jpg" />
 </div>
 
 
@@ -327,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144903.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144896.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144887.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144839.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144717.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144656.jpg" />
 </div>
 
 
@@ -488,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144271.jpg" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143925.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143142.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143118.jpg" />
 </div>
 
 
@@ -580,121 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17E069D032659A96121FCDF90A50AE9DA4BCFD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678915   (142361) от 23.11.2023
-
-Николай Некрасов | Три страны света (2013) [MP3, Светлана Раскатова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
-Малоизвестный современному читателю роман «Три страны света», написанный русским поэтом Н.А. Некрасовым (при участии А.Я. Панаевой), – одно из увлекательных произведений русской прозы.
-Захватывающая приключенческая фабула, полные драматизма ситуация, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 40:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2481E8F83ACE6F4DB53EEAB15A9A0CAD2FAEE6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678956   (142329) от 23.11.2023
-
-Николай Некрасов | Жизнь Александры Ивановны (Радиоспектакль) (2018) [MP3, Игорь Дмитриев, Лидия Мельникова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Гостелерадиофонд. Редкие Записи.
-Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
-Инсценированный рассказ Николая Алексеевича Некрасова. В этом произведении Некрасов впервые затрагивает проблему положения женщины, изображает ее стремление к независимости, к самостоятельному труду.
-О главной (   Читать дальше...   )Жанр: Русская литература, классика, проза, драмаИздательство: ТРК «Петербург-Пятый канал»Продолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E6C733DE1749100F6152C8CE5C33BB4935619C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678946   (142306) от 23.11.2023
-
-Николай Некрасов | Похождения Хлыщова (Радиоспектакль) (2021) [MP3, Бруно Фрейндлих, Игорь Дмитриев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Гостелерадиофонд. Редкие Записи.
-Николай Алексеевич Некрасов (1821–1878) – русский поэт, писатель и публицист. Признанный классик мировой литературы.
-Радиопостановка по мотивам рассказа Николая Алексеевича Некрасова «Новоизобретенная привилегированная краска братьев Дирлинг и Ко».
-1850 год. В надежде получить приданное в 200 000, несколько потрёпанный жизнью (   Читать дальше...   )Жанр: Русская литература, классика, водевильИздательство: ТРК «Петербург-Пятый канал»Продолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F757D4E0E8147F38E876DF71F63E4BFDB99DE93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678924   (141704) от 23.11.2023
-
-М. Кропивницкий, Николай Некрасов, Александр Писарев и др. | Старинные русские водевили (2012) [MP3, Михаил Яншин, Фаина Раневская и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Театр у микрофона. Гостелерадиофонд.
-Вашему вниманию предлагаются аудиопостановки известных водевилей XIX века, в которых участвуют знаменитые артисты Алексей Грибов, Николай Гриценко, Василий Меркурьев, Фаина Раневская, Рубен Симонов, Бруно Фрейндлих, Людмила Целиковская, Михаил Яншин и многие другие.
-
- Николай Некрасов на NoNaMe Club (   Читать дальше...   )Жанр: Русская литература, классика, водевильИздательство: Студия «АРДИС»Продолжительность: 05:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D11FD7C5671A50339C276BBDE6E1B8EB527ACE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

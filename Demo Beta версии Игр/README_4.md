@@ -1,3 +1,133 @@
+###  Публикация: 1025391   (711207) от 11.06.2016
+
+House of the Dying Sun (2016) [En] (6.08.2016) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_711207.jpg" />
+</div>
+
+
+###  Подробнее
+
+House of the Dying Sun - это космический экшен с поддержкой VR-устройств, в котором игроки в роли пилотов космолетов бороздят просторы космоса, уничтожая противников и улучшая свой корабль.Тип издания: RepackРазработчик: Marauder Interactive, LLCЖанр: Simulator (Space), Action, 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E37C74D9D9962FE667C2D3157258F5E6F2788E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027864   (693880) от 20.06.2016
+
+Youtubers Life (2016) [Ru/Multi] (0.7.11) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Youtubers Life - самый реалистичный симулятор летсплейщика! Попробуйте себя в роли ведущего канала на YouTube, узнайте каково это зарабатывать себе на жизнь, публикуя ролики. Помимо сиденья за компьютером Вы также будете заниматься повседневными делами, как в The Sims. Начните вести первые трансляции из «уютной спальни родителей», зарабатывая на новое оборудование (   Читать дальше...   )Тип издания: RepackРазработчик: U-Play onlineЖанр: Simulation, Strategy, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EFA97FBAC6D70B96CB61B97ED5A4D2B25AAEDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136453   (674217) от 22.05.2017
+
+Bio Inc. Redemption (2017) [Ru/Multi] (0.90) Repack VseTop
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bio Inc.: Redemption это сложный биомедицинский симулятор, в котором вы выбираете Смерть или Жизнь. Создавайте не вероятные болезни, чтобы поиздеваться над своей жертвой или перейти на сторону медицинской бригады, чтобы выявить болезнь и найти лекарство, чтобы спасти своего пациента. Благодаря более 600 реальных болезней, симптомам, диагностическим анализам, лечению (   Читать дальше...   )Тип издания: RepackРазработчик: DryGin StudiosЖанр: Инди, Симуляторы, Стратегии, Ранний доступЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C94960C8DF66C4F218B73F16FF952747E927E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136731   (670442) от 24.05.2017
+
+Oxygen Not Included (2017) [Ru/En] (217565) SteamRip Let'sPlay
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oxygen Not Included – это новый проект от нашумевшей студии Klei Entertainment, до этого момента известной по игре Don`t Starve. Теперь игроков ждет неожиданное путешествие в космосе внутри астероида. Готовитесь к тому, что вам придется выживать в этих тяжелых условиях и пытаться прокормить свою маленькую колонию людей.Тип издания: SteamRipРазработчик: Klei EntertainmentЖанр: Strategy (Real-time), Indie, SimulationЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F73AB82F7E9301C8EB176A9AFE6D366DFED350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136879   (670421) от 24.05.2017
+
+Sudden Strike 4 (2017) [En] (22.05.17) Repack VseTop
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегия в реальном времени «Sudden Strike» возвращается. В четвертой части вас ждет улучшенная графика, увеличенные поля сражений, новая техника, а также легендарные главнокомандующие с уникальными характеристиками. В игре собрана реальная техника Второй Мировой войны, бомбардировщик Heinkel He 111, советский танк Т-34, британский истребитель Hawker Typhoon и многое (   Читать дальше...   )Тип издания: RepackРазработчик: Kite GamesЖанр: Strategy (Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840D515AE725BF7F20EA7D47268554F054BBF01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032914   (641492) от 09.07.2016
 
 ASTROKILL (2016) [En] (0.5.0.6) Repack Other s
@@ -6,7 +136,7 @@ ASTROKILL (2016) [En] (0.5.0.6) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641492.jpg" />
+  <img src="Z:/picture/008/save_picture_641492.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.4.2H) SteamRip Let'sPlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636523.jpg" />
+  <img src="Z:/picture/008/save_picture_636523.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Cliff Empire (2018) [Ru/Multi] (1.9.12) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623592.jpg" />
+  <img src="Z:/picture/008/save_picture_623592.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Raw Data (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622290.jpg" />
+  <img src="Z:/picture/008/save_picture_622290.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Deck of Ashes (2019) [Ru/Multi] (1016730) Repack xatab
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620220.jpg" />
+  <img src="Z:/picture/008/save_picture_620220.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ CDF Starfighter VR (2016) [En] (0.55) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613122.jpg" />
+  <img src="Z:/picture/008/save_picture_613122.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Dropship Down (2016) [En] (0.2.0.23) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611529.jpg" />
+  <img src="Z:/picture/008/save_picture_611529.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ Envoy 2 (2016) [Ru/En] (Experimental version) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611522.jpg" />
+  <img src="Z:/picture/008/save_picture_611522.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ Darkwood (2014) [En] (alpha 5.0) RePack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610184.jpg" />
+  <img src="Z:/picture/008/save_picture_610184.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Crea (2014) [En] (0.18.0) Repack YaKrevetko [Steam Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610179.jpg" />
+  <img src="Z:/picture/008/save_picture_610179.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ Black The Fall (2017) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605495.jpg" />
+  <img src="Z:/picture/008/save_picture_605495.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ Steel Division: Normandy 44 (2017) [Ru/En] (300093748/dlc) Repack =nemos=
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604881.jpg" />
+  <img src="Z:/picture/008/save_picture_604881.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ Depth (2014) [Ru/Multi] (25657) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599715.jpg" />
+  <img src="Z:/picture/008/save_picture_599715.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ Boid (2015) [En] (0.6.223) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591730.jpg" />
+  <img src="Z:/picture/008/save_picture_591730.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ Diesel Guns (2015) [Ru/Multi] (0.7.1.0 DEMO) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587130.jpg" />
+  <img src="Z:/picture/008/save_picture_587130.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579500.jpg" />
+  <img src="Z:/picture/008/save_picture_579500.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Pro Evolution Soccer 2013 (Demo) [Ru/En/Multi35] 2012
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578366.jpg" />
+  <img src="Z:/picture/008/save_picture_578366.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ Feed and Grow: Fish (2016) [En] (0.5.0/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573863.jpg" />
+  <img src="Z:/picture/008/save_picture_573863.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ Last Will (2016) [En] (Beta) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564748.jpg" />
+  <img src="Z:/picture/008/save_picture_564748.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (1.01) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559378.jpg" />
+  <img src="Z:/picture/008/save_picture_559378.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ Stranded Deep (2015) [En] (0.15h1) Repack VSETOP [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558885.jpg" />
+  <img src="Z:/picture/008/save_picture_558885.jpg" />
 </div>
 
 
@@ -543,136 +673,6 @@ Stranded Deep - новый инди-проект от независимой а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3241ABB406DF61F11609C35C5BAD101340E9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052799   (527093) от 15.09.2016
-
-Outbreak: Pandemic Evolution (2016) [En] (Patch 8) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outbreak — выживание на красивой открытой карте с видом от первого лица, где вам предстоит собирать припасы днём, а ночь переживать в вашей высокотехнологичной базе расположенной в горах. Собирайте всё, что сможете найти, чтобы потом усовершенствовать турели, боеприпасы, ловушки, оружие, пищу и гаджеты. Другие враждебные представители мира попытаются убить вас при (   Читать дальше...   )Тип издания: RepackРазработчик: TurnTec Studios LLC, Octagon Interactive Ltd.Жанр: Action (Survival horror), Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06457FE8C9C7B01DB418D193B2438488F5B510CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927894   (522284) от 16.08.2015
-
-Turmoil (2015) [En] (0.0.0.185) License  [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turmoil - экономическая стратегия с генерируемыми уровнями, в которой вашей главной задачей станет добыча нефти. Хорошая игра с красивой графикой и приятным саундтреком. События игры разворачиваются в 1899 году, смысл довольно прост: Вы первые люди, которые добывают нефть на американской земле.Тип издания: ЛицензияРазработчик: GamiousЖанр: Инди, СимуляторЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477FE985C5ED0CF947C84C7A71AB8BA87E07312A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938301   (481307) от 18.09.2015
-
-Mighty No. 9 (2015) [En] (Beta 1.0) Repack Let'sРlay
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mighty No. 9 - духовный наследник легендарной серии Mega Man. Игрок возьмет под контроль Бека (Beck), девятую модель в линейке мощных роботов, которых не поразил компьютерный вирус. Вам предстоит найти источник опасного вируса и ликвидировать его, попутно сражаясь с врагами и преодолевая различные препятствия.Тип издания: RepackРазработчик: Comcept / Inti CreatesЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D4E5B40EF54DD2ACB02ACA4811C8E9D7CDC2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382676   (478512) от 01.09.2020
-
-ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обновляемая)
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание: ввиду того, что Трудоград продолжает события Atom RPG мы советуем пройти оригинал прежде чем играть в продолжение. Трудоград - пошаговая ролевая игра, действия которой разворачиваются в постапокалиптическом СССР. Игра вдохновлена классическими компьютерными ролевыми играми, такими как Fallout 1-2, Wasteland 1 и Baldur’s Gate. 22 года назад СССР и страны (   Читать дальше...   )Тип издания: RepackРазработчик: AtomTeamЖанр: Ролевые игры, Ранний доступЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057194   (476788) от 27.09.2016
-
-Void Destroyer 2 (2016) [En] (0.1) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Void Destroyer — гибрид космического симулятора и RTS. Игрок волен взять под контроль любой из кораблей своего флота, будь то истребитель или огромный флагман. Вы станете одним из немногих жителей космического пространства. Учитывая, что футуристический мир уже настал, космические корабли стали обыденным делом, и теперь каждый может без проблем приобрести себе крейсер (   Читать дальше...   )Тип издания: RepackРазработчик: Iteration 11Жанр: Adventure, Strategy (RTS), Simulator (Space), 3D, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699A93CE729B5259201675A31F285957B1FBFCBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

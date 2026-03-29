@@ -1,3 +1,116 @@
+###  Публикация: 1190814   (267045) от 10.12.2017
+
+ТАйМСКВЕР - Скафандр и бабочка (2017) [MP3|320 Kbps] <Alternative Rock, Electronic Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крошечное солнце
+02. Тени
+03. Реквием
+04. Из вечносолнечного льда(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Modern RockПродолжительность: 00:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F32F78A35CEC55A064B70797A355110FF54F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201232   (266948) от 18.11.2019
+
+Мэd Dог / Mad Dog / Мэд Дог - 7 Альбомов, 1 Сингл (1997-2018) [MP3|320 Kbps] <Alternative, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266948.jpg" />
+</div>
+
+
+###  Подробнее
+
+МЭD DОГ культовая группа Российской рок-сцены. Группа основана в феврале 1995-го года Дмитрием «Снэйком» Хакимовым, музыкантом и продюсером, известным по работе с такими группами как НАИВ, Агата Кристи, Блондинка КсЮ, The Matrixx и т.д. Первый концерт состоялся 20 февраля 1995-го года в клубе «In toyo», и этот концерт считается Днём Рождения группы. Стилистически (   Читать дальше...   )1997 - Mad Dog
+1999 - 6.3.0.
+2000 - Избранное 1995-97
+2001 - На Заре(   Читать дальше...   )Жанр: Alternative, Post-GrungeПродолжительность: 05:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DB98DEE746D2D96B5B992F279EA003275570A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276856   (266636) от 30.12.2010
+
+Ленинград - Все Хиты (2CD) (2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC3AE23A228DB6E697162A42E61615529172512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190880   (265981) от 11.12.2017
+
+Оптимальный вариант - Песни из садов Диониса (2017) [MP3|320 Kbps] <Art Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лень в садах – I (03:13)
+02. Пихтовый танец (04:10)
+03. Сандалии (04:03)
+04. Бравурный хор: Вакханки и Пан (02:36)(   Читать дальше...   )Жанр: Art Rock, Folk RockПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A74EA4E0FFA514A84EB9D193A8EAFA89AD4CBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190902   (265925) от 11.12.2017
 
 Ocean Jet - Glowing Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
@@ -6,7 +119,7 @@ Ocean Jet - Glowing Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265925.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265146.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264666.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264543.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264509.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264470.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264405.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264373.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264224.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ Plotnik82 - Смерть глотает блесну (2019) [MP3|320 Kbps] <Elec
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264015.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263992.jpg" />
 </div>
 
 
@@ -322,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263984.jpg" />
 </div>
 
 
@@ -348,7 +461,7 @@ VA - С Новым годом, землячки! (2017) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263776.jpg" />
 </div>
 
 
@@ -377,7 +490,7 @@ Infornal FuckЪ - Край родной (2017) [MP3|320 Kbps] <Parody Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263729.jpg" />
 </div>
 
 
@@ -406,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263714.jpg" />
 </div>
 
 
@@ -432,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263442.jpg" />
 </div>
 
 
@@ -461,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263367.jpg" />
 </div>
 
 
@@ -490,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_263117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_263117.jpg" />
 </div>
 
 
@@ -519,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263072.jpg" />
 </div>
 
 
@@ -548,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262471.jpg" />
 </div>
 
 
@@ -577,7 +690,7 @@ CG Bros. - За Единый народ и Единую Власть! (2012) [MP
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261195.jpg" />
 </div>
 
 
@@ -612,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260327.jpg" />
+  <img src="Z:/picture/005/save_picture_260327.jpg" />
 </div>
 
 
@@ -623,125 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE4F42A50B132756C894DEE7E7CD8796CAE39A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499534   (259666) от 30.05.2012
-
-Гран-Куражъ - 4 альбома (2006-2012) [MP3|320 кб/с]<Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy / Power MetalПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F54A0CE3DA51FAAF89591600D2665426BDAEAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502554   (259008) от 28.05.2012
-
-Шторм - С ветром на спицах (ЕР) (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259008.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не теряй друзей!
-2. Дороги
-3. С ветром на спицах
-4. Страшный сон2012Жанр: Heavy MetalПродолжительность: 00:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA76DB9F32C61350E88CE8B4E58C83D7D590BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502038   (258482) от 26.05.2012
-
-Врата - Дорога зовёт (2010) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 — R 35
- 02 — Сезон открыт
- 03 — Вперёд
- 04 — Вольный рокер
- 05 — Одинокий волк
- 06 — Забытая трасса
- 07 — Старый город
- 08 — Воин тысячи дорог
- 09 — Н.М.В.В.
- 10 — Мы снова в пути(   Читать дальше...   )2010Жанр: Heavy MetalПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF563057CF57F44C908F5E1F0E6E2666DCBB477F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423941   (255692) от 12.11.2025
-
-Линда - 13 альбомов, 4 сборника, 8 синглов & etc (1994-2020) [MP3|320 Kbps] <Alternative, Independent, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана Львовна Гейман (29 апреля 1977, Кентау, Чимкентская область), более известная под псевдонимом Линда — российская певица, исполняющая в электроном и этническом стилях. Чаще всего Линду относят к жанру трип-хоп. Первое время автором музыки для Линды был композитор Максим Фадеев. После расставания с Фадеевым Линда начала писать песни самостоятельно, а также (   Читать дальше...   )1994 - Песни тибетских лам
-1996 - Ворона
-1999 - Плацента
-2001 - ЗрениеЖанр: Alternative, Independent, ElectronicПродолжительность: 23:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BFE4F4FBEC18F1F1A0A370BAAEDB50BC35D993
 ```
 
 https://mybot314.ru/tekegram_catalog/

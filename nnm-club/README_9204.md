@@ -1,25 +1,23 @@
-###  Публикация: 1134983   (685229) от 17.05.2017
+###  Публикация: 506694   (687609) от 06.06.2012
 
-Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа A. 6-й тур. Россия – Латвия (15.05.2017) HDTV [H.264/1080i]
+А. Некрасов | Приключения капитана Врунгеля [1980] [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685229.jpg" />
+  <img src="Z:/picture/008/save_picture_687609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 мая 2017, понедельник. 21:15 МСК
-81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
-Группа A. 6-й тур
-Россия – Латвия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русскиe (Вшитые, отключаемые)Продолжительность: 01:39:32
+"Приключения капитана Врунгеля" - это веселая повесть о фантастическом кругосветном путешествии бесстрашного капитана Врунгеля, его старшего помощника Лома и матроса Фукса. С героями случаются разные смешные приключения, они подвергаются невероятным испытаниям, но, руководимые находчивым и всезнающим капитаном, с честью завершают свое увлекательное путешествие на яхте "Беда".
+"Для миллионов мальчишек и девчонок капитан Врунгель стал признанным героем, таким как, хвастливый Мюнхгаузен, отважный Робинзон или озорной Том Сойер. Тем, кто впервые открывает эту книжку, я немножко завидую: они узнают много интересного, наверное, полюбят море и во всяком случае посмеются от души", - Сергей Михалков.1980Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8543CB8BDEC89EA0ECBA500D6217ED10B31E7D0
+magnet:?xt=urn:btih:9A9C0164487FA091256F03E34712F4C3720D44A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135046   (685228) от 17.05.2017
+###  Публикация: 796032   (687604) от 13.06.2014
 
-Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Игра / The Game (1997) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николас Ван Ортон - само воплощение успеха. Он преуспевает, он невозмутим и спокоен, привык держать любую ситуацию под контролем. На день рождения Николас получает необычный подарок - билет для участия в "Игре". Ему обещают, что игра вернет яркие чувства, позволит ощутить вкус и остроту жизни. Вступив в игру, Николас начинает осознавать, что это игра всерьез, (   Читать дальше...   )Жанр: Триллер, ПриключенияРежиссер: Дэвид ФинчерАктеры: Майкл Дуглас, Шон Пенн, Дебора Кара Ангер, Джеймс Ребхорн, Питер Донат, Кэррол Бейкер, Анна Катарина, Армин Мюллер-Шталь, Чарльз Мартине, Юдзи ОкумотоПеревод: Профессиональный (дублированный), Профессиональный (многоголосый, закадровый)x3, Профессиональный (двухголосый, закадровый)x3, Авторский (одноголосый закадровый)x3Язык субтитров: Русский x2, Английский x4Продолжительность: 02:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865601AF201B69F1414A9EE682A736465E96F50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791301   (687601) от 13.06.2014
+
+Лего. Фильм / The Lego Movie (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (SDH)Продолжительность: 01:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C889CA9F1B6C1AEE5499BF22732F85CDC5C74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134372   (687598) от 16.05.2017
+
+VA - Chill Trackz 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vienna Sky - Spring Garden
+02. French Skies - Fluorescence - Vechigen Lights of Ambient Remix
+03. The Rex-Factor - Dog Ate My Shoe - Chill Mix
+04. Stars Over Foy - At the End of the Ocean(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EABCC199454ACFADD9EE63B11BD1789A0BAF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134717   (687596) от 16.05.2017
+
+Duke Ellington - Live from the 1956 Stratford Festival (1989) Music and Arts Programs of America [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685228.jpg" />
+  <img src="Z:/picture/008/save_picture_687596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Old Circus Train [07:29]
-02. Swamp Goo [04:41]
-03. Trombone Buster [03:17]
-04. Bourbon Street Jingling Jollies [03:54](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:24
+01. Hark, the Duke's Trumpets! [03:47]
+02. Harlem Air Shaft [03:36]
+03. Clarinet Melodrama [05:52]
+04. Theme Trambene [03:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:54:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3285FFCC7A3B5DEB4AEF4A11EE9AEA9F5FC6472C
+magnet:?xt=urn:btih:612CC213D14ECE87FAFD54A6F45F2A2867D0707A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,199 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134997   (685227) от 17.05.2017
+###  Публикация: 1134726   (687594) от 16.05.2017
 
-Хоккей. Чемпионат мира 2017. Предварительный раунд. Группа A. 7-й тур. Россия – США (16.05.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685227.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 мая 2017, вторник. 17:15 МСК
-81-й Чемпионат мира по хоккею с шайбой 2017. Предварительный раунд
-Группа A. 7-й тур
-Россия – США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5BF026B4D18468994CF6FB11A18AEDAA1920ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135037   (685226) от 17.05.2017
-
-Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Dorothy Donegan - One Night with the Virtuoso (1957 - 1960) 2CD, 2012, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beautiful Indians - Hiawatha [02:48]
-02. The Beautiful Indians - Minnehaha [03:01]
-03. It Shouldn't Happen to a Dream [03:07]
-04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134641   (685225) от 17.05.2017
-
-НАСА начинает криогенные испытания конструкции телескопа James Webb Space Telescope
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_685225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не так давно специалисты НАСА начали проведение заключительного испытания конструкции нового телескопа James Webb Space Telescope при криогенной температуре. Эти испытания проводятся в низкотемпературной камере Космического центра НАСА имени Джонсона, куда телескоп был доставлен из Центра космических полетов НАСА имени Годдарда. Сейчас телескоп уже находится в камере (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134923   (685224) от 17.05.2017
-
-Oil 10 - Links (2001) [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days (06:09)
-02. Solar Tides (07:29)
-03. Baby Boom (05:15)
-04. The Deep (06:22)(   Читать дальше...   )Жанр: Abstract, IDM, AmbientПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A4FBEB0A74519A6719AFDA39C50BD26AFB9CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135039   (685223) от 17.05.2017
-
-Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Perfume Suite: Balcony Serenade/Strange Feeling/Dancers in Love/Coloratura [11:46]
-02. Take the 'A' Train [04:37]
-03. Black and Tan Fantasy [05:11]
-04. Perdido [03:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E09BB6010AB087439CD67E14012BED225C1328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135033   (685222) от 17.05.2017
-
-Duke Ellington - The 1954 Los Angeles Concert (1988) GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smada [02:33]
-02. Black and Tan Fantasy [05:13]
-03. How High the Moon [05:10]
-04. Serious Serenade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6CA00206AF000384A5B6C8A7111D7EA277FB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135051   (685221) от 17.05.2017
-
-Duke Ellington - 40 Great Jazz Performances (1990) 3CD, That's Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685221.jpg" />
+  <img src="Z:/picture/008/save_picture_687594.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Take the 'A' Train [03:03]
-02. Do Nothing Till You Hear from Me [01:41]
-03. Everything Goes [04:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:30
+01. That Old Black Magic [03:46]
+02. Over the Rainbow [02:30]
+03. Sweet Georgia Brown [02:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F484F492B92106CAB044C84578A5C7D35155EA2
+magnet:?xt=urn:btih:5EFE2890F7A6A6CD42B33A9DD0D052BFDFF03088
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,86 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135058   (685220) от 17.05.2017
+###  Публикация: 1222131   (687592) от 28.04.2018
 
-Duke Ellington - The Essential Duke Ellington (1990) CBS Disques SA [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [02:58]
-02. Sophisticated Lady [03:01]
-03. Perdido [04:32]
-04. I Got It Bad and That Ain't Good [03:39](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769FF28FE400A0719129E54DACCE99BAC64509A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134988   (685219) от 17.05.2017
-
-Duke Ellington - The English Concert (1971) 1999, BGO Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Togo Brava-Brava Togo Suite: Part I & II [12:02]
-02. Togo Brava-Brava Togo Suite: Part III & IV [04:45]
-03. C-Jam Blues [04:42]
-04. Happy Reunion [04:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3550C72B222166B759C0C44E3ACBE123135278C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135042   (685218) от 17.05.2017
-
-Cookie 5.5.6 [Multi]
+Хоккей. Юниорский Чемпионат мира 2018. 1/4 финала. Финляндия U18 — Беларусь U18 (26.04.2018) IPTV [H.264/1080p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685218.jpg" />
+  <img src="Z:/picture/008/save_picture_687592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
-
-•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
-•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 мая 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+26 апреля 2018 года, четверг. 13:30 МСК
+20-й Чемпионат мира по хоккею с шайбой среди юниорских команд 2018 года
+Плей-офф. 1/4 финала.
+Финляндия U18 — Беларусь U18(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B692E06DBF7D6C264219258B2978BF63035C018
+magnet:?xt=urn:btih:1F8D311E726EDC4039D8AB1FC7F89BE4D7BCACDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134938   (685217) от 17.05.2017
+###  Публикация: 1134876   (687591) от 16.05.2017
 
-VA - Chillout Stars (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+SVNTY6 - Universal (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental Hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685217.jpg" />
+  <img src="Z:/picture/008/save_picture_687591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Monodeluxe - Watching You (Original Mix)  3:55
-02.  Ingo Herrmann - Amorph (Original Mix)  3:09
-03.  Ruhr Chill Factory - Urban Lounge Factor (Original Mix)  4:46
-04.  Peter Pearson - Lost In A Dream (Original Mix)  3:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:14
+01. HellloStar (3:01)
+02. TheMourrrning (1:23)
+03. MaeLondrrres (4:05)
+04. Astrrral (3:11)(   Читать дальше...   )Жанр: Hip-Hop, Beats, Instrumental HopПродолжительность: 00:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE0D9D61F8C52B4F7253080D68D6C3BCBF3D3DE2
+magnet:?xt=urn:btih:376F2DD1CA1E0BEEF720CBAC8BBB11F7CA772E87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134978   (685216) от 17.05.2017
+###  Публикация: 1221979   (687590) от 28.04.2018
 
-Hazel 4.1.1 [En]
+Баскетбол. Евролига 2017-2018. Женщины. "Финал 4-х". Шопрон (Венргия). Финал. УГМК (Россия) – БК Шопрон (Венгрия) (22.04.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685216.jpg" />
+  <img src="Z:/picture/008/save_picture_687590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2017Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+22 апреля 2018 года
+Евролига 2017-2018. Женщины. "Финал 4-х". Шопрон (Венргия)
+Финал
+УГМК (Екатеринбург, Россия) – БК Шопрон (Шопрон, Венгрия)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5794E29846DCBFB7AD6710D9CA8D4E616522981
+magnet:?xt=urn:btih:49F0EE9683F6BEE057260783ABE7B49ECD014B91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +251,193 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134943   (685215) от 17.05.2017
+###  Публикация: 1134821   (687588) от 16.05.2017
 
-VA - Total Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Георгий Зеленцов | Артель клубничников (1928) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02AFCC56765F4F4457187AFED71E5AF73D26132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351235   (687587) от 13.06.2014
+
+В поисках капитана Гранта (1985) DVDRip (7 серий из 7)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687587.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Жюля Верна "Дети капитана Гранта". Капитан Грант пустился в опасное плавание, чтобы основать вольное шотландское поселение на островах Тихого океана. Его корабль терпит крушение и лишь полуразмытая записка в бутылке доносит обрывочные сведения о Гранте. Лорд Гленарван на свой страх и риск отправляется на поиски, взяв с собой детей капитана - Мэри (   Читать дальше...   )Производство: СССР, Болгария / Киностудия «Бояна», Гостелерадио СССР, Одесская киностудияЖанр: приключенияРежиссер: Станислав ГоворухинАктеры: Владимир Смирнов, Лембит Ульфсак, Марина Влади, Николай Ерёменко мл., Тамара Акулова, Олег Штефанко, Руслан Курашов, Галина Струтинская, Анатолий Рудаков, Борис Хмельницкий и др.Продолжительность: 07:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927DB4B5A7603FA07238D7EB34AA6A763042A4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222263   (687586) от 28.04.2018
+
+Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, Trip Hop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тот самый случай, когда яблоко упало прямо под яблоней: Беате - дочь польского джазового скрипача Здзислава Леха и норвежской преподавательницы музыки. Родилась и выросла в Норвегии. Уже во время учёбы в университете Осло познакомилась с будущим мужем, музыкантом Мариусом Рексо. С ним они сначала учавствовали в группах "Insertcoin" и "Folk og Røvere", (   Читать дальше...   )01. Cowboy & Indianer 4:48
+02. Prozac 5:19
+03. Bris 5:48
+04. Banemesterkhan 3:52(   Читать дальше...   )Жанр: Breaks, Trip Hop, Synth-popПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134204   (687585) от 16.05.2017
+
+VA - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NoMosk - Duel (Radio Edit)  3:55
+02.  Farhad Mahdavi & Kiran M Sajeev - Higher (Radio Edit)  3:50
+03.  Michael Li - Infinity (Original Mix)  3:28
+04.  Ozo Effy - Cassiopeia (Original Mix)  4:04(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B4FEED9F071BC16C71E759180233163462F9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795898   (687584) от 13.06.2014
+
+VideoHive – Photo Slideshow - 5255231 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект простого и строгого слайдшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F978A3ECB7ACC27B3B8BCDA5FAB1DA54D274C658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222196   (687583) от 28.04.2018
+
+AzTek - Summit (2018) Courteous Family [FLAC|Lossless|WEB-DL|tracks] <Abstract, Drum n Bass, IDM, Experimental, Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That’s a Dead Guy (04:00)
+02. Gastown (01:21)
+03. CrumblyBumpkin’s Demise (02:33)
+04. Over There is Water (01:39)(   Читать дальше...   )Жанр: Abstract, Drum n Bass, IDM, Experimental, BassПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C920C8869A5DC4F28171501575B6F7740207E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134535   (687582) от 16.05.2017
+
+VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Easy listening
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685215.jpg" />
+  <img src="Z:/picture/008/save_picture_687582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sealovers - Wild Huntress  4:33
-02.  Panamera Project - Pratty Night  3:55
-03.  Don Markus - I Don't Won't Illusion  5:10
-04.  Midtempo Lovers - Neutral Wonder  3:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:09
+01.  Rodrigo Deem - You Said It All (feat. Karra) (Extended Mix)  7:52
+02.  Fabio XB & Marell - Can't Let Go (feat. Christina Novelli) (Extended Mix)  5:47
+03.  Alexandre Bergheau & Mohamed Ragab - At Night (Original Mix)  3:45
+04.  ReOrder - Spirit Of Ecstasy (Original Mix)  3:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46E18C01B1B708F81C2069DDBEBC4D212B3D4D95
+magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +445,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134944   (685214) от 17.05.2017
+###  Публикация: 1134584   (687581) от 16.05.2017
 
-VA - Lunch Break Vol.1 (Chilling Dining Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Monster Energy NASCAR Cup Series 2017. Этап 11 - Kansas. Гонка (2017) HDTVRip [H.264/720p-LQ] [VO]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685214.jpg" />
+  <img src="Z:/picture/008/save_picture_687581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Kai French - Balearic Dreams (Original Mix)  3:05
-02.  Urban Phunk Society - Night Train (Original Mix)  3:21
-03.  Castlebed - Hazy Place (Original Mix)  3:50
-04.  Zer - Yellow Reflections (Original Mix)  5:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:01
+11 этап Monster Energy NASCAR Cup Series Go Bowling 400, Kansas Speedway (267 laps, 400.5 miles).Телекомпания: FS1Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 03:46:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAF91108BD373496C6A56A98939334ADCB3A737B
+magnet:?xt=urn:btih:EF786B5585060C1C88F2A0D1F9B009A070398951
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,109 +471,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134953   (685213) от 17.05.2017
+###  Публикация: 795726   (687580) от 13.06.2014
 
-VA - Exotic Liquors Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ingo Herrmann - Serenata (Original Mix)  3:51
-02.  Vitali And His Lounge Orchestra - Smooth Dance (Original Mix)  5:15
-03.  Kulyela - Rare Mambo (Original Mix)  3:56
-04.  Pulse Tone - Zeus (Original Mix)  3:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A090639BBEB9C2D32DBAA521B8EFE1E74E78E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134961   (685212) от 17.05.2017
-
-Django Reinhardt & Stephane Grappelli - Jazz Anthology (1938 - 1946) 2007, Promo Sound [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daphne [03:15]
-02. Honeysuckle Rose [03:00]
-03. Sweet Georgia Brown [03:13]
-04. Liza [02:58](   Читать дальше...   )Жанр: SwingПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0974387C2683F565ED44C68C601BB37AB0C8CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335324   (685209) от 11.05.2011
-
-Опять двойка (1957) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный корреспондент Мурзилка отправляется на задание, цель которого — выяснить, за что поставили двойку мальчику с известной картины Фёдора Решетникова «Опять двойка». Выясняется, что двойка поставлена по географии, но мальчик не хочет признаться, что её не учил, в результате чего вместо экватора попадает на южный полюс.Жанр: Мультфильм, короткометражкаРежиссер: Борис Степанцев, Евгений РайковскийПродолжительность: 00:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06705C170D0F619ED6F626E4AE840AD2C072753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213137   (685178) от 25.06.2010
-
-Дезорганизованная преступность / Disorganized Crime (1989) DVDRip
+22 минуты (2014) Blu-ray [1080p]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_685178.jpg" />
+  <img src="Z:/picture/008/save_picture_687580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идеальных преступлений не бывает. В справедливости этого утверждения на собственной шкуре убедился вор Фрэнк Салазар, задумавший ограбить банк в Монтане. Он разработал отличный план налета, подобрал четырех опытнейших подельников, предусмотрел все мелочи и был готов поклясться, что все пойдет как по маслу. К несчастью, его оптимизм угас, когда прямо накануне "дела" на хвосте героя повисают копы. Тем временем, не дождавшись своего заводилы в условленном месте в срок, другие "джентльмены удачи" начинают заметно нервничать и совершать одну глупейшую ошибку за другой. Число анекдотичных промахов незадачливых грабителей растет как снежный ком, на глазах погребая под собой хваленый план Салазара. И вскоре герои обнаруживают, что находятся на грани самого большого профессионального позора в своей преступной жизниЖанр: Криминал, КомедияРежиссер: Джим Кауф / Jim KoufАктеры: Хойт Экстон / Hoyt Axton/, Корбин Бернсен / Corbin Bernsen/, Рубен Блэйдс / Ruben Blades/, Лу Даймонд Филлипс / Lou Diamond Phillips/, Уильям Расс / William Russ/, Дэниэл Ройбак / Daniel Roebuck/,Перевод: Профессиональный (многоголосый, закадровый) + Авторский (одноголосый) Александр Готлиб + оригинальный английский
+Морпех — первогодок Саня Ежов оказывается среди пиратов на захваченном танкере. Он знает — товарищи не бросят. Ему нужно выжить и помочь своим, когда начнется штурм. Фильм основан на реальных событиях 5 мая 2010 года, когда морские пехотинцы БПК «Маршал Шапошников» освободили захваченный в водах Аденского залива российский танкер «Московский университет». У них было (   Читать дальше...   )Производство: Россия, Централ ПартнершипЖанр: БоевикРежиссер: Василий СериковАктеры: Макар Запорожский, Денис Никифоров, Виктор Сухоруков, Екатерина Маликова, Гаэль Камилинди, Александр Галибин, Владислав Демин, Ибрагим Тооре, Софья Козко, Иван ПородновПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:22:52
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FAB17BA3361FA6A68661A2929F6C80ACCCFF86BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,25 +497,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222519   (685171) от 29.04.2018
+###  Публикация: 1222230   (687579) от 28.04.2018
 
-NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
+NX1, Stephanie Sykes, Jay Quentin - ://About Blank 004 (2018) ://about blank [FLAC|Lossless|WEB-DL|tracks] <Techno>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В любое время суток животные используют свет и темноту для охоты, отдыха или любовных игр. Морские черепахи откладывают яйца только ночью, а большие тигровые акулы охотятся за сардинами и морскими котиками только при ярком освещении на рассвете.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+01. NX1 - AB1 (07:10)
+ 02. Stephanie Sykes - Blur (05:08)
+ 03. Jay Quentin - Information Superhighway (07:40)Жанр: TechnoПродолжительность: 00:19:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C433AA2404169C7C418878C3283AEE2000722AE0
+magnet:?xt=urn:btih:613572E020C514ED75DADE2880C1C0C39CB9082D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +525,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222427   (685170) от 29.04.2018
+###  Публикация: 1134875   (687578) от 16.05.2017
 
-VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
+SVNTY6 - Unlimited (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamiiily (2:13)
+02. ApriiilComes (2:57)
+03. RaiiinGentle (2:52)
+04. YouForrrget (3:17)(   Читать дальше...   )Жанр: Hip-Hop, Beats, Instrumental HopПродолжительность: 00:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39C2E02CFDC9F375325F592F596FFD6824042B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795926   (687577) от 13.06.2014
+
+VideoHive - Epic Logos Pack - 6860521 [AEP]
+
+>>След.
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, для Эпичного демонстрация вашего логотипа. Имеет три разных варианта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7121A9A7770F5ACBFFEB1DA21C465D957A2C6051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222141   (687576) от 28.04.2018
+
+Хоккей. Юниорский Чемпионат мира 2018. 1/4 финала. Россия U18 – США U18 (26.04.2018) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_687576.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 апреля 2018 года, четверг. 17:30 МСК
+20-й Чемпионат мира по хоккею с шайбой среди юниорских команд 2018 года
+Плей-офф. 1/4 финала.
+Россия U18 – США U18(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5306CB349F25BE0D0FB081CA9167113DC15EC99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134649   (687575) от 16.05.2017
+
+VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685170.jpg" />
+  <img src="Z:/picture/008/save_picture_687575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
-02. Moguai, Zonderling - Lee
-03. Bingo Players, Goshfather - Everybody
-04. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita(   Читать дальше...   )Жанр: DanceПродолжительность: 02:49:34
+001. Davu - Sociopath (Original Mix)
+002. Tommy Harmond - Stay Together Forever (Extended Mix)
+003. Archi Nova - At A Depth (Original Mix)
+004. Esra Kahraman - Ex Love (Regard Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:42:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
+magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,25 +638,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222396   (685169) от 29.04.2018
+###  Публикация: 1222238   (687574) от 28.04.2018
 
-Газета | 1000 секретов [Украина] №8 (апрель 2018) [PDF]
+Георгий Балл | Малышка (1960) [FB2]
 
->>Журналы
->>Домоводство (журналы)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685169.jpg" />
+  <img src="Z:/picture/008/save_picture_687574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C85ED551965174A1EBFF8CFF79832CCBB5EB2C6
+magnet:?xt=urn:btih:0D15C1456961A1A354CA0DC2307C24EEA3129245
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,25 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222363   (685168) от 29.04.2018
+###  Публикация: 1134879   (687572) от 16.05.2017
 
-Текстуры - GraphicBurger - 5 Marble Textures Vol.1 [JPG]
+SVNTY6 - SheMovesMe (2017) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental Hop>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685168.jpg" />
+  <img src="Z:/picture/008/save_picture_687572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные мраморные текстуры с официальной документацией.Формат: JPGРазрешение файлов: 4876 x 3340 - 5172 x 3396
+01. RiiightWithMe (3:26)
+02. IfIHadYouuu (2:11)
+03. BelievvveYou (2:37)
+04. LoveSeeeds (2:05)(   Читать дальше...   )Жанр: Hip-Hop, Beats, Instrumental HopПродолжительность: 00:31:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E7E546F0E29E19EEB47076736682549074DE9C3
+magnet:?xt=urn:btih:516F33507DB36AFFC9FF59B959594EF21742F9BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,51 +693,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222476   (685167) от 29.04.2018
+###  Публикация: 795912   (687571) от 13.06.2014
 
-Текстуры - PSDkeys - MARBLE! textures - 2041765 [JPG]
+Кухня в Париже (2014) Blu-ray [1080p]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685167.jpg" />
+  <img src="Z:/picture/008/save_picture_687571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные мраморные текстуры.Формат: JPGРазрешение файлов: 488 x 3524 - 4956 x 3431
+Модный столичный ресторан «Клод Моне» процветает. Именно здесь, в родном заведении Вика и Максим хотят отпраздновать долгожданную свадьбу. Но планы меняются, когда в ресторане назначают переговоры Президентов России и Франции! Команда ресторана терпит фиаско и вынуждена отправиться в «изгнание» — в Париж. Там Шеф с Максом сталкиваются с опасными конкурентами: Шеф (   Читать дальше...   )Производство: Россия / Yellow, Black & WhiteЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Дмитрий Назаров, Марк Богатырев, Елена Подкаминская, Дмитрий Нагиев, Олег Табаков, Венсан Перес, Михаил Тарабукин, Сергей Лавыгин, Никита Тарасов, Виктор ХоринякПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:46:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:313CA3B25181391E5EABE780C66BBD8EF1A1A30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222471   (685166) от 29.04.2018
-
-Энергоблок "Академик Ломоносов" доставят в Мурманск
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_685166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плавучий энергоблок (ПЭБ) для плавучей атомной теплоэлектростанции (ПАТЭС) "Академик Ломоносов" вышел с Балтийского судостроительного завода (Санкт-Петербург) в Мурманск для зарядки ядерным топливом."Сегодня, можно сказать, историческое событие. Сегодня завершен этап сооружения плавучего энергоблока на Балтийском заводе. Начинается буксировка в Мурманск (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:F5EED9DC88D9F4393EA23CA348423F8E51EF71EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

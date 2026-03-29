@@ -1,3 +1,109 @@
+###  Публикация: 477620   (86992) от 07.04.2012
+
+BBC: Век эгоизма. Часть 4 – Вся власть Хомячкам / The Century of the Self. Part 4 - Eight people sipping wine in Kettering (2002) TVRip (2002) TVRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86992.jpg" />
+</div>
+
+
+###  Подробнее
+
+О фильме:
+Это история о становлении идеи, которая стала доминирующей в нашем обществе. Идеи о том, что самое главное в жизни – удовлетворение своих желаний. В предыдущих эпизодах было показано, как бизнес сформировал и развил в обществе идею удовлетворения неосознанных желаний. Он использовал идеи Зигмунда Фрейда для разработки методов выявления скрытых желаний потребителей, и затем начал удовлетворять эти желания, предлагая соответствующие товары. В завершающем эпизоде мы расскажем о том, как идея эгоизма стала доминировать в политике. В нем рассказывается история о том, как левые политики в Америке и Великобритании обратились к этим методам, чтобы вернуть себе власть. Они верили, что создают новые и лучшие формы демократии, которая действительно отражает чаяния людей. Но они не понимали, что целью тех, кто создавал эти методы, было не освобождение людей, а создание новых средств их контроля в эпоху массовой демократии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: нетПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356092D8AF308F04D3F31E970C78BA97E4E1EFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475186   (86558) от 05.04.2012
+
+NG: Забытый соперник Египта / Egypt's lost rival (2010) IPTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Археологи воссоздают историю древнего города-государства Катна, некогда существовавшего на границе с Древним Египтом и остававшегося забытым более трех тысяч лет.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0736B788E8666F06B7C1E8BAAA8E108B82C1396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475897   (85393) от 30.03.2012
+
+Загадки истории. Большая история НЛО. Вторжение пришельцев  (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадки истории. Большая история НЛО. Вторжение пришельцев
+Фильм расскажет нам о наиболее загадочных случаях, связанных с инопланетянами. Мы попробуем разобраться со многими аспектами изучения НЛО, ведь трудно судить о том, что в большинстве случаев даже не видел, о том какую роль играют инопланетяне в жизни человечества.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40644FDD790E6EC01EF06E47DAB0CB42B89DB965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475498   (85308) от 30.03.2012
+
+BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2010) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взаимоотношения человека с собакой воистину уникальны. Ни с одним животным на планете нам не удается контактировать более тесно. В настоящее время исследования в области кинологии набирают все большие обороты. Подвергаясь многочисленным исследованиям, собаки стремительно обретают славу шимпанзе, помогая человеку более глубоко познать самого себя. Но откуда появилась такая непреодолимая тяга человека к собаке? Шведским ученым удалось дать ответ на этот вопрос. Оказывается, наши отношения с собаками контролируются сильнейшим гормоном, схожим на тот, что отвечает за связь между матерью и младенцем. Но как собакам так хорошо удается читать наши мысли? Съемочная группа «Горизонт» приветствует Бетси, пожалуй, - самую умную собаку на планете, для того, чтобы сравнить ее умственные способности с детским интеллектом. Совсем недавно нашему лучшему другу удалось совершить еще один шаг вперед, - собаки научились выявлять гены, ответственные за человеческие болезни.Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF872D29E015CA816BB18161CF8A5DC8D7382B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475278   (85157) от 29.03.2012
 
 Загадки истории. Большая история НЛО. Послания пришельцев (2012) SATRip
@@ -6,7 +112,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85157.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84473.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82450.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82063.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82023.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Animal Planet: Нашествие саранчи: Насекомые, сожра
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81688.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ BBC: Век эгоизма. Часть 3 – В твоей голове сиди
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81679.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81669.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81616.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81397.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80994.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80218.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80184.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79664.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79548.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79212.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79153.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76498.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ BBC: Век эгоизма. Часть 2 – Конструирование со
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75683.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63918.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ Animal Planet: Заповедная Аляска / Into Alaska (2018) HDTV [H.26
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63671.jpg" />
 </div>
 
 
@@ -566,7 +672,7 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63642.jpg" />
 </div>
 
 
@@ -577,110 +683,6 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:596274ED5FB7EA4DCEC5AB6F6F6189C80C628F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306670   (63636) от 08.03.2024
-
-Animal Planet: Живой или вымерший. Флоридский черный волк / Extinct or Alive (2018) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если вымершие животные на самом деле не вымерли? Биолог Форрест Галланте путешествует по земному шару и, вооружившись новейшими технологиями, ищет виды, которые мир уже прекратил искать. Поиски доказательств и свидетельств, благодаря которым, возможно, удастся выследить и вернуть к жизни животных, ошибочно считающихся исчезнувшими, приводят энтузиаста Форреста (   Читать дальше...   )Производство: США, Hot Snakes Media, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Форрест ГалантеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A6358BBE9EA3657CB77B68C0C64519C7E72B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285254   (63623) от 08.03.2024
-
-Animal Planet: Дом для рептилий. Агамы Дикого Запада / Scaled (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA182805136EF494AF1435A853934855843E27DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255827   (63621) от 08.03.2024
-
-Animal Planet. Природа Ближнего Востока / Wildest Middle East (2015) HDTV [H.264/1080i-LQ] (сезон 1, эпизоды 5 из 5)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63621.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Ближнем Востоке исключительные природные условия и переменчивый климат стали причиной появления совершенно уникальных типов животных. На первый взгляд животный мир Ближнего Востока может показаться немногочисленным – однако это обманчивое впечатление можно легко развеять, если внимательнее присмотреться к его обитателям. От жарких пустынь до заснеженных горных (   Читать дальше...   )Производство: США, Великобритания, Канада, Off The Fence, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс ХеммингПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 5 x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD876F564DD4185464A3D736476E5FE5479D0708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279820   (63614) от 08.03.2024
-
-Animal Planet: Дом для рептилий. Дино-террариум / Scaled (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рептилии конкурируют с кошками и собаками за звание самых популярных домашних питомцев. Грэг Уэст и его команда, состоящая из лучших зоологов и искусных мастеров, предлагают свои уникальные услуги заводчикам и владельцам рептилий, которые мечтают об оригинальном жилище для своих чешуйчатых любимцев. Яркий дизайн и знание особенностей этих животных позволяет делать (   Читать дальше...   )Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5870C21B7E82B0E1119B30E391268B484AF17E
 ```
 
 https://mybot314.ru/tekegram_catalog/

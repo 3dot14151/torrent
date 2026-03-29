@@ -6,7 +6,7 @@ VA - Floating Pyramids: Ambient Meditation (2022) [MP3|320 Kbps] <Ambient, Medit
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625532.jpg" />
+  <img src="Z:/picture/008/save_picture_625532.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Ambient Compilation (2017) [MP3|320 Kbps] <Ambient, New Age, Chillout, Drea
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625527.jpg" />
+  <img src="Z:/picture/008/save_picture_625527.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Hoa Tau Guitar Latin (2CD) (2011) [MP3|320 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624836.jpg" />
+  <img src="Z:/picture/008/save_picture_624836.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Piano Moods: Peaceful Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624653.jpg" />
+  <img src="Z:/picture/008/save_picture_624653.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Zen Relaxation and Serenity Music: Bien-Etre Anti-Stress Evasion Relaxation
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622662.jpg" />
+  <img src="Z:/picture/008/save_picture_622662.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Earth: Sounds of Summer (2015) [MP3|320 кб/с]<World music, Folk, Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608820.jpg" />
+  <img src="Z:/picture/008/save_picture_608820.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Niels Eje - MusiCure 1 - 10 (2003 – 2011) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607082.jpg" />
+  <img src="Z:/picture/008/save_picture_607082.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Arpegio Respira: New Age Music Compilation (2019) [MP3|320 Kbps] <Downtempo
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602628.jpg" />
+  <img src="Z:/picture/008/save_picture_602628.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Classical Music (2017) [MP3|320 Kbps] <Classical, Classical Crossover, Voca
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602401.jpg" />
+  <img src="Z:/picture/008/save_picture_602401.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mehdi - Compilation (2022) [MP3|320 Kbps] <New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601992.jpg" />
+  <img src="Z:/picture/008/save_picture_601992.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Yoga Groove Album (2016) [MP3|320 Kbps] <Downtempo, Chill Out, New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599652.jpg" />
+  <img src="Z:/picture/008/save_picture_599652.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Crystal Bowl Music: Chakra Sound (2016) [MP3|320 Kbps] <Downtempo, Chillout
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595951.jpg" />
+  <img src="Z:/picture/008/save_picture_595951.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - New Age Style - Enigmatic 32 (2022) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593730.jpg" />
+  <img src="Z:/picture/008/save_picture_593730.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Total Eclipse Of The Moon (Enigmatic) (2022) 7CD [MP3|320 Kbps] <Electronic
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592597.jpg" />
+  <img src="Z:/picture/008/save_picture_592597.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Leo Rojas - Compilation (2022) [MP3|320 Kbps] <Instrumental, New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592460.jpg" />
+  <img src="Z:/picture/008/save_picture_592460.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Julian Anderson & Igor Presnyakov - Good Times (Happy Guitar Instrumentals, Vol.
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587675.jpg" />
+  <img src="Z:/picture/008/save_picture_587675.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Alexandr Misko - Covers and New Versions, Vol. 1 (2019) [MP3|320 Kbps] <Fingerst
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587673.jpg" />
+  <img src="Z:/picture/008/save_picture_587673.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Alexandr Misko - Covers and New Versions, Vol. 2 (2020) [MP3|320 Kbps] <Fingerst
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587671.jpg" />
+  <img src="Z:/picture/008/save_picture_587671.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Italian Chillout Cafe (2022) [MP3|320 Kbps] <Chillout>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587627.jpg" />
+  <img src="Z:/picture/008/save_picture_587627.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Alexandr Misko - Roundtrip (2019) [MP3|320 Kbps] <Fingerstyle, Guitar>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586757.jpg" />
+  <img src="Z:/picture/008/save_picture_586757.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Aria - The Best Of Aria (2019) [MP3|320 Kbps] <Classical, Classical Crossover>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586681.jpg" />
+  <img src="Z:/picture/008/save_picture_586681.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Dreams of a shaman 3 (2015) [MP3|320 кб/с]<Native American, World, Ethni
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585937.jpg" />
+  <img src="Z:/picture/008/save_picture_585937.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Easy Morning, Relaxing New Age for a Soft Awakening (2016) [MP3|320 Kbps] <
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584472.jpg" />
+  <img src="Z:/picture/008/save_picture_584472.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Down
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584461.jpg" />
+  <img src="Z:/picture/008/save_picture_584461.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583895.jpg" />
+  <img src="Z:/picture/008/save_picture_583895.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583894.jpg" />
+  <img src="Z:/picture/008/save_picture_583894.jpg" />
 </div>
 
 

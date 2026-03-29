@@ -1,3 +1,83 @@
+###  Публикация: 1456726   (1024865) от 23.03.2021
+
+Клаудия Хохбрунн, Андреа Боттлингер | Герои книг на приеме у психотерапевта. Прогулки с врачом по страницам литературных произведений (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024865.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем произведении персонажи изображены настолько точно, что кажутся реальными людьми. Они по воле автора сталкиваются с трудностями, встают перед моральным выбором, рискуют здоровьем и даже жизнью.
+Что, если бы литературные герои прошлого и настоящего, потерпевшие трагическую неудачу, обратились вовремя к психотерапевту? Уберегла бы родителей царя Эдипа от катастрофы (   Читать дальше...   )Жанр: Литературоведение, О психологии популярноПеревод: Анна БалакинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D8F60A08B65C32CB5CF4CAD030ECF76EFB407D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457278   (1024569) от 25.03.2021
+
+Махо Молфино | Мифы о хорошей девочке. Как разрушить стереотипы и начать жить по своим правилам (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психолог и коуч женщин-лидеров Махо Молфино на практических примерах и случаях из собственной практики анализирует мифы о хорошей девочке. Вы узнаете, какой именно миф проявляется в вашей жизни сильнее всего, как на нее влияет и чему препятствует. Множество упражнений помогут проработать собственные «слепые пятна» и раскрыть внутренний потенциал, который есть у каждой (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Мария Чомахидзе-ДоронинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFA2C428F3EB3180A35CC6C929747679EA7E884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457618   (1024356) от 26.03.2021
+
+Сергей Белан | Путь к осознанности. Авторская методика развития внимания (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Белан – основатель и генеральный директор онлайн-платформы для улучшения работоспособности мозга «Викиум», эксперт в области управления вниманием, создатель методик управления вниманием, ведущий собственных вебинаров по управлению вниманием и повышению осознанности, инвестор и серийный предприниматель.
+Качество жизни и уровень осознанности значительно повышаются, (   Читать дальше...   )Жанр: Психология, Личная эффективностьФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6AB666B82F43FC3B23BE8243A960032CCD4240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458210   (1024032) от 28.03.2021
 
 Нора Олсен | Счастье по-норвежски. Флируфтслив – искусство жить и не париться (2021) [EPUB]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024032.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023658.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023627.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023597.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023450.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023391.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ William F. Cornell, Anne de Graaf, Trudi Newton, Moniek Thunnissen | Into TA: A 
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023313.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022526.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021743.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021721.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021710.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021550.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021533.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021434.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021175.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021162.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020983.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020917.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020050.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019913.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019263.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019236.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019228.jpg" />
 </div>
 
 
@@ -599,89 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416446CBC55A840BA6F47DD9AC7F77A2DE56D98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464889   (1019213) от 25.04.2021
-
-Александр Барышев | Биофакер (2020 (с редакцией 2021)) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019213.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОБНОВЛЕНИЕ 2021: Книга больше на 25-30%: больше конкретики, графиков и уточнений! Так как западный мир декриминализует некоторые запрещенные вещества - разобрал их подробнее. Добавлены комбинации из ноотропов + еще больше про управление гормонами!
-Больше 450 научных источников и 1,5 года работы над книгой (с обновлением от 2021 года уже 544 источника)
-
-Фундамент (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7454DC3A825317E16F1C059C66DF861B11CA4EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465801   (1018905) от 27.04.2021
-
-Ганс Айзенк, Курт Бартол | Эксперимент. Самые жестокие исследования в психологии [сборник] (2021) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Г. Айзенк – британский ученый-психолог, один из лидеров биологического направления в психологии, создатель факторной теории личности, автор популярного теста интеллекта.
-К. Бартол – профессор психологии, бихевиорист, профайлер, автор самого популярного в мире учебника по криминальной психологии.
-Как люди на полном серьезе стали поддерживать идею геноцида евреев в (   Читать дальше...   )Жанр: О психологии популярноПеревод: А. Боричев, А. Можаев, В. Гуринович, Л. ОрдановскаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226348A928C36E9C9A44C42CC83BCE0A1A48E736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465762   (1018876) от 27.04.2021
-
-Дэвид Граймс | Неразумная обезьяна. Почему мы верим в дезинформацию, теории заговора и пропаганду (2021) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Роберт Граймс – ирландский физик, получивший образование в Дублине и Оксфорде. Его профессиональная деятельность в основном связана с медицинской физикой, в частности – с исследованиями рака. Однако известность Граймсу принесла его борьба с лженаукой: в своих полемических статьях на страницах The Irish Times, The Guardian и других изданий он разоблачает шарлатанов, (   Читать дальше...   )Жанр: О психологии популярно, Социальная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F707F83866E4C459B4BD41BC571C9F6C8D07BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

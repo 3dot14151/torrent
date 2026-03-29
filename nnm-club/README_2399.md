@@ -1,311 +1,98 @@
-###  Публикация: 600697   (997598) от 13.01.2013
+###  Публикация: 599139   (999783) от 05.01.2013
 
-VA - Союз Четырех - (2 альбома) (2013) [MP3|256 кб/с]<Electronic, Trance & Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transexstasy - 	Intro 	00:00:49
-02. Transexstasy  -	Andorphine 	00:06:45
-03. Transexstasy -	Next 	00:05:11
-04. Strannik -	Old Story 	00:07:07
-05. Arcana Crux  -	Province Alee 	00:04:08
-06. Strannik  -	Diamonds Sky 	00:06:01
-07. Alex Navigator - Deep River 	00:06:58
-08. Transexstasy  -	Neuro Trance 	00:03:28
-09. Transexstasy -  	Uvula 	00:05:42
-10. Transexstasy -  	Dervish In Jump 	00:06:29(   Читать дальше...   )Жанр: Electronic, Trance & Ambient, New AgeПродолжительность: 01:17:21+01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA011EDB665BB9611A87712E40D1E9B73EDD949A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602511   (997597) от 13.01.2013
-
-MadLove - White With Foam (2009) [MP3|~245 кб/с (V0)]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rats With Wings
-02. Thread
-03. Absence & Noise
-04. Dirty
-05. In Love (In Theory)
-06. As Sad As It Was Beautiful
-07. Broke
-08. Left With Nothing
-09. Knowing
-10. The Mute Number(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B631919C923BC2507AE7ACE95AAF47A75655666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602528   (997596) от 13.01.2013
-
-Somado Brata - alkoDEMO (2011) [MP3|320 кб/с]<Dramatic Grindcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Summer Day
-02 - Das Toten Tango
-03 - Zombieland
-04 - Sexytime
-05 - Мракобилли
-06 - Afdgtay Yafgdtaide!Жанр: Dramatic GrindcoreПродолжительность: 00:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83C481F4B76ABC3311EC772A4FB381E248B8456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602721   (997594) от 13.01.2013
-
-Газета | Ждём гостей №1 [январь 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8480FDFE81EFBE7F87E6D61E727CF4FE74D564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601607   (997593) от 13.01.2013
-
-Ra Ra Riot - Beta Love (2013) [MP3|320 кб/с]<Indie Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With Me
-02. Binary Mind
-03. Beta Love
-04. Is It Too Much
-05. For Once
-06. Angel, Please
-07. What I Do For U
-08. When I Dream
-09. That Much
-10. Wilderness(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781483B5F20C490D3CD936CBF17CBDCCB05674DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601766   (997592) от 13.01.2013
-
-Beanie Sigel - Beans (2012) [MP3|192 кб/с]<Rap | Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pay Back
-02. Murder
-03. Blow My Mind
-04. Shot Caller
-05. Dollar Sign
-06. All Night
-07. Heavy Artillery
-08. Stand Up
-09. Black Thought
-10. Let It Rock(   Читать дальше...   )Жанр: Rap, Hip-Hop |Продолжительность: 00:53:50 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D90A3FD8A7B3B7F80209D64AF5A1081CF8AE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602731   (997588) от 13.01.2013
-
-VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re Dupre - Get Down & Dirty! (Original Mix)
-02. Marcello V.O.R., Dashdot - B-Side (Original Mix)
-03. Velkro - HighWay (Original Mix)
-04. Re Dupre, Angelo Fracalanza - Kiss Me (Original Mix)
-05. Gabe - Truly Fucked Feat. M.Adam (Original Mix)
-06. Dashdot - Senseless Static Thing Feat. Zz (Original Mix)
-07. Sex Shop - Renascenca (Original Mix)
-08. Angelo Fracalanza - Long Time (Original Mix)
-09. Marcello V.O.R., Facing Odds - Street Rules (Original Mix)
-10. Andre Marques, Pattern2 - The Chamber (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Indie DanceПродолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602115   (997585) от 13.01.2013
-
-Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Arrow Chamber 11 [00:08:16]
-02. Ancient Arrow Chamber 12 [00:08:13]
-03. Ancient Arrow Chamber 13 [00:10:32]
-04. Ancient Arrow Chamber 14 [00:04:27]
-05. Ancient Arrow Chamber 15 [00:06:38]
-06. Ancient Arrow Chamber 16 [00:06:53]
-07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602693   (997582) от 13.01.2013
-
-VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dmitriy Gordov Feat. Maryana Dan - Love Station (Radio Edit)
-002. Cara Lee - The Sax Man (Radio Edit)
-003. Linda Jo Rizzo - You're My First, You're My Last 2k13 (New Radio Edit)
-004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
-005. Modana & Carlprit - Hot Spot (Radio Edit)
-006. Gummibar - Gummy Style
-007. Kelly Clarkson - Catch My Breath
-008. Shockolady Feat. Mr. Smith - I Like It Like That
-009. Basto - I Rave You (Original Mix)
-010. Christopher S Feat. Max Urban - Star (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600604   (997581) от 13.01.2013
-
-Nature Wallpapers (07.01.13) [Wallpapers]
+[Wallpapers] A selection of beautiful girls Pack 13
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E655F3CFEECDD53D6FE5ED8DA7FAED2DA732AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599129   (999781) от 05.01.2013
+
+[Wallpapers] Christmas mood Pack 1 (05.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999781.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Christmas mood Pack 1 (05.01.13)
+Название: Christmas mood Pack 1 (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A6DED6845F052D0AEAFC41A6F6FC151B31818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599128   (999780) от 05.01.2013
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999780.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 2
+Название: New 2013 Nature Wallpaper Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCDC30C1D102114AD6F663A8EF75111664884CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598787   (999779) от 05.01.2013
+
+Nature Wallpapers (04.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999779.jpg" />
 </div>
 
 
@@ -315,7 +102,7 @@ Nature Wallpapers (07.01.13) [Wallpapers]
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C15D82E94CA44638B36909958FD899B64F0E13B7
+magnet:?xt=urn:btih:0C1AE04603E5F7668416C13134CCFDC15C1A439F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +110,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602655   (997580) от 13.01.2013
+###  Публикация: 599107   (999778) от 05.01.2013
 
-Водная жизнь (серия 23 из 26) / Water Life (2007) BDRip [H.264/720p]
+[Wallpapers] New 2013 Wallpaper Pack 7
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999778.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 7
+Название: New 2013 Wallpaper Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80400221235E775B989C9436472B904630B7852D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598742   (999777) от 05.01.2013
+
+Sexy Girls Wallpapers (03.01.13) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету. Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный -Продолжительность: 00:27:59
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:826386B4209E68260637B12B25AD737B6071EA6A
+magnet:?xt=urn:btih:E5DD051807F3083CBDD58F77F21EB4B0D2B81A37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,60 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602777   (997579) от 13.01.2013
+###  Публикация: 598741   (999775) от 05.01.2013
 
-VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electrofashion Feat. Mc Жан - Пришелец
- 002. Вне Времени - Не Звони Мне
- 003. В Двух Шагах - Сердце
- 004. Elvira T - Одержима
- 005. Макс Барских - Supermassive Black Hole
- 006. Ранетки - Ревность
- 007. Ирина Кулькова - Я Искала Тебя
- 008. Натаника - Налетели
- 009. Светлана Разина - Радио НАХ
- 010. Isamin - О Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602560   (997578) от 13.01.2013
-
-Бен Кей | Инстинкт [2011] [RTF, FB2]
+Sexy Girls Pack Wallpapers (03.01.13) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если человек заигрывает с природой - не важно, какую он преследует цель: создать эффективное лекарство или новое оружие, - то природа обязательно отвечает на игру. При этом ответ может быть несимметричным. В книге английского писателя Бена Кея ответ природы очень несимметричный. В секретнейшей лаборатории, затерявшейся посреди джунглей Венесуэлы, американские военные и ученые создают невиданное биологическое оружие, предназначенное для борьбы с террористами: гигантских насекомых. Это страшно, но не очень. По-настоящему страшно становится тогда, когда осы размером с крупную птицу, пауки размером с теленка и тараканы размером с человека вырываются на свободу и начинают пожирать своих создателей...Формат: RTF, FB2
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:703126DE8E432C98A4FB52294163725226C556E2
+magnet:?xt=urn:btih:73A4FE52CAE56886C81CB5176C5219226E3DB9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,104 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602290   (997577) от 13.01.2013
+###  Публикация: 598735   (999774) от 05.01.2013
 
-Strangefish - Fortune Telling (2006) [MP3|320 кб/с]<Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Happy as I am (8:48)
-2. It could be me (7:02)
-3. Random (5:04)
-4. 360° (1:18)
-5. Keep the exits clear (6:32)
-6. Have you seen the light? (5:51)
-7. Lightswitch (0:37)
-8. Ignorance of bliss (8:28)
-9. Reflection
-1) Reflection (3:02)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B336A5FE443FDA357E62B08E4168B953EAAEDB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602670   (997576) от 13.01.2013
-
-VA - Voices in my Head Volume 53 (2013) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Serge Devant feat. Emma Hewitt - Take Me With You
-002. Gareth Emery - The Saga (Original Mix)
-003. Headstrong feat. Shelley Harland - Here in the Dark (Aurosonic Progressive Mix)
-004. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
-005. Nash & Pepper pres. Ostrega - First Scream (Mike Foyle Remix)
-006. Max Graham & Susana - Down To Nothing (Original Mix)
-007. Ronski Speed & Ana Criado - Afterglow (Ronski Speed Remix)
-008. Faruk Sabanci - Oriental Sentiment (Nurettin Colak Remix)
-009. Miroslav Vrlik - See The Sun (Pierre In The Air Remix)
-010. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE37CCDC3F13D641E5C850120ABBAEAE8217C897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601928   (997571) от 13.01.2013
-
-iSv - GHz (2013) [FLAC|Lossless]<Chiptune>
+Computer Desktop Wallpapers Collection (03.01.13) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. CD-R (3:28)
-2. GHz (3:42)
-3. DTE (LD50) (3:34)
-4. 012 (2:10)
-5. LIL 500 (3:12)
-6. PEP! (4:03)
-7. 011 (2:10)
-8. P65 (2:31)
-9. UGG (3:44)
-10. 010Жанр: ChiptuneПродолжительность: 00:46:33
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:874CFC885A9686B3D23F2CBF7802A67DA4391D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,34 +218,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602403   (997563) от 13.01.2013
+###  Публикация: 599130   (999772) от 05.01.2013
 
-Некомплект - Дискография (2009-2011) [MP3|320 кб/с]<SkaPunk>
+[Wallpapers] Christmas mood Pack 2 (05.01.13)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Весна
-2. Как мне плохо с утра
-3. Форест Гамп
-4. Маленький мир
-5. Пазл
-6. Башня
-7. Когда я ушёл
-8. Хреново
-9. Бонд
-10. Я не знаю(   Читать дальше...   )Жанр: SkaPunkПродолжительность: 00:37:48
+[Wallpapers] Christmas mood Pack 2 (05.01.13)
+Название: Christmas mood Pack 2 (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D9136DD6EB9B4612DDC7079A89EBAD378F364A0
+magnet:?xt=urn:btih:876CBE89BC9AA44991ECD484B22AD2A203BE2A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,30 +248,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602734   (997561) от 13.01.2013
+###  Публикация: 599077   (999771) от 05.01.2013
 
-Сигел Джеймс | Сошедший с рельсов [2006] [PDF, DJVU]
+Incredible Mixed Wallpapers (05.01.13) [Wallpapers]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всего лишь опоздание на привычный поезд, на котором Чарлз Шайн каждый день ездил на работу...
-Всего лишь — красивая женщина, сидящая напротив...
-Всего лишь — легкое, ни к чему не обязывающее знакомство?!
-Нет. Просто — первый шаг в опасный мир шантажа, предательства и преступлений.
-В мир, где жизнь превращается в хаос, ложь тянет за собой новую ложь, а конца кошмару нет и не предвидится.
-И гибель грозит уже не только самому Чарлзу, но и его семье...Формат: PDF, DJVU
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A6B8FCFEB4D99A9C079ABBFC17263FCB6659D0F
+magnet:?xt=urn:btih:02AA005140699625465121DD3EC30AEDF0EF7D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,62 +274,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602334   (997558) от 13.01.2013
+###  Публикация: 599141   (999769) от 05.01.2013
 
-Glass Delirium - Diamond Lullabies (2012) [MP3|320 кб/с]<Alternative Rock, Piano, Female, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility
-02. Reality
-03. Snowy London
-04. Beautiful Plaything
-05. Over The Ice
-06. Funeral of Eighty Days
-07. Untitled Lullaby
-08. Convalescence Dawn
-09. Consequential Halo
-10. Simple LifeЖанр: Alternative Rock, Piano, Female, VocalПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5E398155B4CC92003FFF4E8B5E0B192C141571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602606   (997557) от 13.01.2013
-
-Sumatra PDF 2.2.1 Final + Portable [MULTi / Русский]
+[Wallpapers] A selection of beautiful girls Pack 14
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader...
-
-(   Читать дальше...   )Название программы: Sumatra PDFЯзык интерфейса: MULTi / Русский
+Разрешение файлов: 1920x1080 - 2560х1600
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2E6A71667041D756AEBBD1D0F010A391AA96484C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,34 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602619   (997555) от 13.01.2013
+###  Публикация: 598739   (999767) от 05.01.2013
 
-VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
+55 HQ Wallpapers (03.01.13) [Wallpapers]
 
->>Electronic
->>House
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Bubba – Nudenight (Original Mix) 6:04
-2. F3 – What You Need (Downtown Party Network Remix) 5:56
-3. Finnebassen – If You Only Knew (Original Mix) 6:22
-4. Finnebassen Gundelach – When It Rains (Digital Exclusive) (Original Mix)8:36
-5. Flow & Zeo Marcello V.O.R – N.Y Candy (Original Mix) 6:52
-6. Jobe – This Feeling (Original Mix) 6:19
-7. Jobe – My Life (Max Belobrov Remix) 8:04
-8. Lula Circus – Light Outside (Original Mix) 7:20
-9. Made To Move – Shaman (Cera Alba Remix) 7:56
-10. Markus Eden – With Me (Original Mix) 7:08(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:46:19
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
+magnet:?xt=urn:btih:19F43B7FD8A212AE325F225B38E5F3EEAAAEC1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,33 +326,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602825   (997554) от 13.01.2013
+###  Публикация: 598743   (999766) от 05.01.2013
 
-Газета | Коммуна № 667 [8 марта 1921] [PDF]
+HQ Wallpapers for a desktop (03.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DB8B2B22CFCF1EF6E00156771642F745638FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598736   (999765) от 05.01.2013
+
+Best HD Wallpapers Pack (03.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965CE7C18D9FA3F40A9233D5A357B602ECBDE37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598698   (999764) от 05.01.2013
+
+Журнал | 3DWorld №165 [февраль 2013] [PDF] [En]
 
 >>Журналы
->>Другие журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Орган Самарского Губернского Комитета РКП и Губернского Исполнительного Комитета Советов.
-В настоящее время газета выходит под названием «Волжская коммуна».
-
-Сегодня в номере:
-— Контр-революционные выступления белогвардейцев в Кронштадте;
-— Гражданская война в Италии;
-— В Чехословацкой республике жандармы стреляли в рабочих, убито несколько человек, тяжело ранено 16.
-
-В газете 2 страницы, собственный скан.Формат: PDF
+Издание представляет описание технических приемов, обучающие статьи, интервью, FAQ, обзоры проектов, галереи и многие другие материалы по 3D графике.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F887F7C4923D812D59AB1AD5FE1B668DB8389378
+magnet:?xt=urn:btih:7C7AD46BD084A227243074FC911A87FE97352807
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,25 +404,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602119   (997552) от 13.01.2013
+###  Публикация: 599202   (999763) от 05.01.2013
 
-Jay Ferguson - Кошмар на улице Вязов 5: Дитя сна / A Nightmare On Elm Street 5: The Dream Child [Original Soundtrack] (1989) [MP3, 320 Kbps] <Score>
+[Wallpapers] New 2013 Wallpaper Pack 13
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ScoreФормат: MP3Продолжительность: 00:45:25
+[Wallpapers] New 2013 Wallpaper Pack 13
+Название: New 2013 Wallpaper Pack 13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ED1411E1014600CCB654BF16C2DA30812C37727
+magnet:?xt=urn:btih:A8735F54B8A7B1568DABBAF66D64978CDB274E03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -739,104 +434,283 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 602663   (997551) от 13.01.2013
+###  Публикация: 599207   (999759) от 05.01.2013
 
-Corroded - State of Disgrace (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oderint Dum Metuant
-02. Let Them Hate As Long As They Fear
-03. More Than You Can Chew
-04. I Will Not
-05. Uncommon Sense
-06. I Am the God
-07. Believe in Me
-08. Beautiful Revolution
-09. Dirt
-10. As I Am(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA0AB971AA3B7ED09953797F511D662F149DB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602763   (997547) от 13.01.2013
-
-VA-Зажигательные Зимние Хиты (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Yolanda Be Cool - Before Midnight (Yolanda Be Cool's Mentalmen Mix)
-002 Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit)
-003 Tom Pulse feat. Fit4Funk - Flying Through The Air (Original Edit)
-004 Carlprit - Fiesta (Michael Mind Project Radio Edit)
-005 Far East Movement feat. Flo Rida & Sidney Sampson - Change Your Life
-006 Alex Clare - Too Close (DJ Yonce Radio Remix)
-007 DJ Stretch feat. Di Land - I Need You (Radio Edit)
-008 Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)
-009 Owl City feat. Carly Rae Jepsen - Good Time
-010 Sisi - Never Bye Bye (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4756D1D9F294F5C45EC90770E936908F2584B84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602268   (997546) от 13.01.2013
-
-Synthetic Epiphany - The Archives (06.01.2013) [MP3|320 кб/с]<Chillstep, Future Garage, Bass, Dubstep, Drum & Bass>
+[Wallpapers] Christmas mood Pack 3 (05.01.13)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dusk Dreams
-02. Abstract
-03. Blue Shadows On The Trail
-04. Hallowed
-05. Endgame
-06. Green Heat
-07. Auld Lang Syne
-08. Siamo Persi
-09. Tanglewood
-10. Secrets(   Читать дальше...   )Жанр: Chillstep, Future Garage, Bass, Dubstep, Drum & BassПродолжительность: 01:06:45
+[Wallpapers] Christmas mood Pack 3 (05.01.13)
+Название: Christmas mood Pack 3 (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC1355503CEBF32930FDDFA98BF4A8D76C439810
+magnet:?xt=urn:btih:4D706B440A8DFC6B1FBD4870D1E8E11EF9CBB9A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599140   (999758) от 05.01.2013
+
+[Wallpapers] Car wallpapers (05.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999758.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers (05.01.13)
+Название: Car wallpapers (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BCBCCF6520977F7090FB2516E553BF64B15345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599201   (999756) от 05.01.2013
+
+[Wallpapers] New 2013 Wallpaper Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999756.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 12
+Название: New 2013 Wallpaper Pack 12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1DCE45D8ED83422B2385D16FBA76AA4860509E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599075   (999754) от 05.01.2013
+
+Sexy Girls Pack Wallpapers (05.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37B5C1A122F09CDB2F878F5EDC9B0139C5B63A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599208   (999752) от 05.01.2013
+
+[Wallpapers] Christmas mood Pack 4 (05.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999752.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Christmas mood Pack 4 (05.01.13)
+Название: Christmas mood Pack 4 (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531FB2A2FDEB7F9399556203A8C8717CC767B79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598790   (999750) от 05.01.2013
+
+Sexy Girls Pack Wallpapers (04.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47A61B451E4075CA243432A9CE3003167C13187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599127   (999747) от 05.01.2013
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999747.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 1
+Название: New 2013 Nature Wallpaper Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BC07DE64F3EFCF6BF6F1DB995CCDC505A36F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598785   (999746) от 05.01.2013
+
+Computer Desktop Wallpapers Collection (04.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6973B5EE66333B101F9138DE817C467257253117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599204   (999745) от 05.01.2013
+
+[Wallpapers] New 2013 Wallpaper Pack 14
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999745.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 14
+Название: New 2013 Wallpaper Pack 14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5041BE04BDA40E744A2879565A017B80407E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598791   (999744) от 05.01.2013
+
+Sexy Girls Wallpapers (04.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C0A87E09BF1889BF7E9D2EF85A8ADE410DDDC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

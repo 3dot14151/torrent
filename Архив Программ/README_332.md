@@ -6,7 +6,7 @@ VSO ConvertXtoHD 2.0.0.27 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884388.jpg" />
+  <img src="Z:/picture/005/save_picture_884388.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PC Cleaner Pro 8.1.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884374.jpg" />
+  <img src="Z:/picture/005/save_picture_884374.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NewFileTime 5.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884346.jpg" />
+  <img src="Z:/picture/005/save_picture_884346.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DesktopOK 9.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884336.jpg" />
+  <img src="Z:/picture/005/save_picture_884336.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884322.jpg" />
+  <img src="Z:/picture/005/save_picture_884322.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PhotoInstrument 7.4 Build 832 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884317.jpg" />
+  <img src="Z:/picture/005/save_picture_884317.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Uninstall Tool 3.5.2 Build 5557 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884316.jpg" />
+  <img src="Z:/picture/005/save_picture_884316.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Office 2016 Standard 16.0.4498.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884291.jpg" />
+  <img src="Z:/picture/005/save_picture_884291.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Google Chrome 49.0.2623.87 Stable Portable by PortableApps (Веб-устано�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884285.jpg" />
+  <img src="Z:/picture/005/save_picture_884285.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinCatalog 2020.5.1.623 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884257.jpg" />
+  <img src="Z:/picture/005/save_picture_884257.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Exif Pilot 6.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884246.jpg" />
+  <img src="Z:/picture/005/save_picture_884246.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ MAGIX Movie Studio 18.1.0.24 Suite (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884195.jpg" />
+  <img src="Z:/picture/005/save_picture_884195.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Norton Security with Backup 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884189.jpg" />
+  <img src="Z:/picture/005/save_picture_884189.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bandicam 5.3.0.1879 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884183.jpg" />
+  <img src="Z:/picture/005/save_picture_884183.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884129.jpg" />
+  <img src="Z:/picture/005/save_picture_884129.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Native Instruments - Kontakt 6.6.1 STANDALONE, VSTi, VSTi3, AAX (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884119.jpg" />
+  <img src="Z:/picture/005/save_picture_884119.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VSO ConvertXToDVD 6.0.0.29 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884114.jpg" />
+  <img src="Z:/picture/005/save_picture_884114.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Skype 7.21.32.100 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884111.jpg" />
+  <img src="Z:/picture/005/save_picture_884111.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ LibreOffice 5.1.1 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884107.jpg" />
+  <img src="Z:/picture/005/save_picture_884107.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Avidemux 2.6.12 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884103.jpg" />
+  <img src="Z:/picture/005/save_picture_884103.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884099.jpg" />
+  <img src="Z:/picture/005/save_picture_884099.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Norton Security 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884098.jpg" />
+  <img src="Z:/picture/005/save_picture_884098.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Norton 360 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884063.jpg" />
+  <img src="Z:/picture/005/save_picture_884063.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Norton AntiVirus 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884057.jpg" />
+  <img src="Z:/picture/005/save_picture_884057.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884053.jpg" />
+  <img src="Z:/picture/005/save_picture_884053.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Internet Download Manager 6.25 Build 14 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884032.jpg" />
+  <img src="Z:/picture/005/save_picture_884032.jpg" />
 </div>
 
 

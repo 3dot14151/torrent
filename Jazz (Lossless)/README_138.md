@@ -1,3 +1,119 @@
+###  Публикация: 1039752   (594706) от 02.08.2016
+
+Duke Ellington - The Essential (1928-1958) 2CD, 2009, Not Now Music[FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594706.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Black And Tan Fantasy [03:29]
+02.East St Louis Toodle-Oo [03:09]
+03.Hot And Bothered [03:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D11D4CC638D4C0FC0B727F2B351B263872432F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233167   (594052) от 28.06.2018
+
+Bill Perkins Quintet featuring Victor Feldman - Quietly There (1966) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietly There [4:26]
+02. Emily [5:27]
+03. Groover Wailin' [5:32]
+04. A Time For Love [5:24](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC0BC01B7D5C526BD506AD8B0DA6F1615DFA32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233170   (594050) от 28.06.2018
+
+Bill Perkins, Art Pepper, Richie Kamuca - Just Friends (1956) Toshiba-EMI Japan [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Friends [5:12]
+02. A Foggy Day [3:57]
+03. All Of Me [4:35]
+04. Diane-A-Flow [3:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7691C35A1AD95E7773DD0B28672519EEB1B16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549223   (594014) от 06.05.2022
+
+Edouard Bineau & OSEFH Quintet - Secret World (2020) Absilone [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minorite absolue [5:48]
+02. Conciliabule [2:31]
+03. Echi [5:44]
+04. Edna [4:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6F4D99CBE4D526A3EAF65B5CE7BE8FB7F56800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549032   (593905) от 06.05.2022
 
 VA - Saxappeal Vol. 2 Lounge Saxophone Smooth Jazz Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +122,7 @@ VA - Saxappeal Vol. 2 Lounge Saxophone Smooth Jazz Del Mar (2022) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593905.jpg" />
+  <img src="Z:/picture/008/save_picture_593905.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Cat Anderson - Cat Anderson Plays W.C. Handy (The Definitive Black & Blue Sessio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593888.jpg" />
+  <img src="Z:/picture/008/save_picture_593888.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Laurent Cugny & Orchestre National De Jazz - Yesternow (1994) Verve[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593658.jpg" />
+  <img src="Z:/picture/008/save_picture_593658.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Charlie Byrd Trio - I've Got The World On A String (1994) Remaster, 2015, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593582.jpg" />
+  <img src="Z:/picture/008/save_picture_593582.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Sheryl Bailey 3 - Live @ The Fat Cat (2006) [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593262.jpg" />
+  <img src="Z:/picture/008/save_picture_593262.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bill Potts - Porgy & Bess + Bye Bye Birdie (1963) 2006, Lone Hill Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593261.jpg" />
+  <img src="Z:/picture/008/save_picture_593261.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593026.jpg" />
+  <img src="Z:/picture/008/save_picture_593026.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Billy Strayhorn - Piano Passion (1945 - 1961) 2005, Storyville [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592812.jpg" />
+  <img src="Z:/picture/008/save_picture_592812.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Adrien Varachaud Unity 5tet - Strange Horns (2010) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592810.jpg" />
+  <img src="Z:/picture/008/save_picture_592810.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Stan Kenton And His Orchestras - The Kenton Era (1941 - 1953) 2CD, 2007, Sounds 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592529.jpg" />
+  <img src="Z:/picture/008/save_picture_592529.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jesse Davis - Second Nature (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592526.jpg" />
+  <img src="Z:/picture/008/save_picture_592526.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Diego Imbert Quartet - Next Move (2011) [FLAC|tracks+.cue]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592396.jpg" />
+  <img src="Z:/picture/008/save_picture_592396.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ George Lewis - The Complete Blue Note Recordings Of George Lewis (1943 - 1955) 3
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592165.jpg" />
+  <img src="Z:/picture/008/save_picture_592165.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sergio Pamies - Borrachito (2011) [FLAC|tracks+.cue]<Jazz, Latin Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591996.jpg" />
+  <img src="Z:/picture/008/save_picture_591996.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Marilyn Crispell & Gerry Hemingway - Affinities (2011) [FLAC|tracks+.cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591970.jpg" />
+  <img src="Z:/picture/008/save_picture_591970.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Eliane Elias - Made In Brazil (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Latin Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591952.jpg" />
+  <img src="Z:/picture/008/save_picture_591952.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Jazztet - At Birdhouse (1961) /2002, Verve/[FLAC|tracks+.cue]<Jazz, Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591445.jpg" />
+  <img src="Z:/picture/008/save_picture_591445.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591239.jpg" />
+  <img src="Z:/picture/008/save_picture_591239.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591238.jpg" />
+  <img src="Z:/picture/008/save_picture_591238.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591237.jpg" />
+  <img src="Z:/picture/008/save_picture_591237.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590784.jpg" />
+  <img src="Z:/picture/008/save_picture_590784.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590496.jpg" />
+  <img src="Z:/picture/008/save_picture_590496.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jacques Schwarz-Bart Quartet - The Art of Dreaming (2012) [FLAC|tracks+.cue]<Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89A2F24E5ECAE86EC450C45C9403042B49A3750A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551264   (590246) от 15.05.2022
-
-Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Island [4:52]
-02. Three [4:19]
-03. Rue de la Vega [5:26]
-04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551267   (590245) от 15.05.2022
-
-Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pop Imagination [5:28]
-02. It Ain't Necessarily So [5:04]
-03. Puccini [3:09]
-04. Sundial Time [6:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FC23B6582944C91B4B4DA32162FB5206644CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551324   (590239) от 15.05.2022
-
-Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coricidin Boogie (4:31)
-02. Never Collapse, Always Dazzle ! (3:56)
-03. Teufelskamin Jam #1 (10:22)
-04. Shangrila (1:43)(   Читать дальше...   )Производство: Staubgold – staubgold digital 16Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF0633CDB0A46D970360CC73A5E451912B4E66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551323   (590227) от 15.05.2022
-
-Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Désarroi #1: Mayhem! (3:52)
-02. Désarroi #2: grundstürzend (5:33)
-03. Free Form Freak-Out (6:06)
-04. Evol Jam (Edit) (4:55)(   Читать дальше...   )Производство: Staubgold – staubgold 136Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723975DA8F7D1A66FF56D5DC27C68534FB92F4E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 332838   (836993) от 18.03.2015
+
+Майерлинг / Mayerling (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник австро-венгерского трона кронпринц Рудольф — яркая и сложная личность. Женщины, балы, приёмы — за беспечным фасадом кроется тяжкий груз ответственности и неопределённости. В любой момент он может стать императором, а его судьба принадлежит Империи. Рудольф несчастлив в браке.
+Многие дамы хотели бы оказаться рядом с ним, но только баронесса Вечера смогла (   Читать дальше...   )Производство: Франция, ВеликобританияЖанр: Драма, Мелодрама, ИсторическийРежиссер: Теренс ЯнгАктеры: Омар Шариф, Катрин Денев, Джеймс Мейсон, Ава Гарднер, Джеймс Робертсон Джастис, Женевьева Пейдж, Андре Паризи, Иван Десни, Чарльз Миллот, Морис ТейнаПеревод: ДублированныйПродолжительность: 02:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C13E3FD7BDB79EC181405279B420444558FDE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002779   (836665) от 07.04.2016
+
+Билли-две шляпы / Billy Two Hats (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два молодых человека - один из которых шотландец, а другой выходец из индейского народа по кличке Билли-две шляпы — совершают мелкое ограбление. Но в результате было совершенно непреднамеренное убийство, а сорванный куш составил всего четыреста двадцать долларов. Пытаясь убежать с места преступления, шотландца ранят из ружья. Молодой индеец Билли не оставляет друга (   Читать дальше...   )Производство: США / AlgonquinЖанр: Мелодрама, ВестернРежиссер: Тед КотчеффАктеры: Грегори Пек, Дези Арназ мл., Джек Уорден, Дэвид Хаддлстон, Сиан Барбара Аллен, Джон Пирс, Доун Литтл Скай, Винс Ст. Кир, Генри Медисин ХэтПеревод: Двуголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4F5459415BFAE3024B6F29E1FF90512998B006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194075   (836624) от 21.04.2010
+
+Бинго Бонго / Bingo Bongo (1982) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КомедияРежиссер: Паскуале Феста Кампаниле / Pasquale Festa CampanileВ ролях: Адриано Челентано, Кароль Буке, Феличе Андреази, Энцо Робутти, Уолтер Д'Амор, Роберто МареллиПеревод: Профессиональный (двухголосый) + Оригинальная дорожка
+
+ФайлФормат: MKVПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00B7E60A7FCD19ED389D1DBEEA9430DF6C09B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 194163   (836621) от 21.04.2010
 
 Укол зонтиком / Le Coup du parapluie (1980) [H.264] DVDRip
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836621.jpg" />
+  <img src="Z:/picture/008/save_picture_836621.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836539.jpg" />
+  <img src="Z:/picture/008/save_picture_836539.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836415.jpg" />
+  <img src="Z:/picture/008/save_picture_836415.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836332.jpg" />
+  <img src="Z:/picture/008/save_picture_836332.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_835796.jpg" />
+  <img src="Z:/picture/005/save_picture_835796.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835655.jpg" />
+  <img src="Z:/picture/008/save_picture_835655.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835182.jpg" />
+  <img src="Z:/picture/008/save_picture_835182.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833413.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832588.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832459.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832392.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832047.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831962.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831758.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831306.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830706.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829801.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828917.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828611.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828434.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828136.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828055.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827872.jpg" />
 </div>
 
 
@@ -600,86 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BB01A1138B6AC79005E39019D180AC753E93AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312799   (826698) от 24.03.2011
-
-Одержимая / Possessed (1931) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_826698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бедная фабричная девушка Мэриан не хочет прозябать в маленьком городишке и выходить замуж за пылкого, но бедного ухажера. Ее манит блестящая жизнь богатых городов. Однажды, на железнодорожном переезде она знакомится с подвыпившим плейбоем Вили, который ради развлечения угощает ее шампанским и приглашает заглянуть к нему на огонек. Он не подозревает, что разбудил в ней настоящую «золотоискательницу», одержимую мечтой о красивой жизни. Мэриан не преминула воспользоваться приглашением и неожиданно нагрянула к нему.
-Обескураженный и с головной болью после похмелья Вили все-таки дает ей несколько советов как обосноваться в городе, прежде, чем выпроводить ее за дверь. Хваткая Мэриан становится любовницей богатого разведенного адвоката Марка Уитни. Через три года, превратившись в светскую львицу, обученная этикету и манерам высшего света, первоклассно одетая и живущая на Парк Авеню, выдавая себя за богатую разведенную мисс Мореланд, Мэриан вдруг обнаруживает, что ей хочется простого женского счастья…Жанр: Мелодрама, ДрамаРежиссер: Кларенс Браун / Clarence BrownАктеры: Джоан Кроуфорд , Кларк Гейбл , Уоллес Форд , Ричард ’Скитс’ Галлахер , Фрэнк Конрой , Марджори Уайт , Джон Мильян , Клара Блэндик , Джек Бэксли , Вэйд БотелерПеревод: 1. Одноголосый закадровый, любительский
-2. ОригинальныйПродолжительность: 1:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB855D2EB3F05458217EC7088D0203E5AC516CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500683   (826608) от 15.10.2021
-
-Трёхгрошовая опера / Die 3 Groschen-Oper (1931) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам одноимённой пьесы Бертольда Брехта. Знаменитая история любви дочери короля нищих Лондона Полли Пичем и бандита Мэкки-Ножа..Производство: Германия, Nero-Film AG, Tobis Filmkunst, Warner Bros. GmbHЖанр: мюзикл, драма, комедияРежиссер: Георг Вильгельм ПабстАктеры: Рудольф Форстер, Карола Нехер, Райнхольд Шюнцель, Фриц Расп, Валеска Герт, Лотте Ленья, Герман Тимиг, Эрнст Буш, Владимир Соколов, Пауль КемпПеревод: профессиональный многоголосый (ГТРК Культура), профессиональный двухголосый (Светла)Язык озвучки: русский, немецкийСубтитры: русские (fluidite & Соломон Константинович Апт), немецкие, английскиеПродолжительность: 01:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2B9A3AE889ABF32EE5D3CEC16B432168918BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500384   (826415) от 15.10.2021
-
-Обнажённая шпора / The Naked Spur (1953) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крепкий парень Ховард Кэмп уже много дней идёт по следу убийцы и преступника Бена Вандергрота. Его цель получить за поимку злодея награду в 5000 долларов и выкупить ранчо. В пути он встречает старого золотоискателя Джеса, который вызывается помочь в поиске следа преступника за двадцать долларов. Через некоторое время к ним присоединяется бывший солдат Рой Андерсон, (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: вестерн, триллерРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Джанет Ли, Роберт Райан, Ральф Микер, Миллард МитчеллПеревод: любительский одноголосый (Светла, Вадим Назаров)Язык озвучки: русский, английскийСубтитры: русские (Shinobi97), английскиеПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922A11697F59EBB2E98459E4F417C9995BC74CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

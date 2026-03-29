@@ -1,3 +1,60 @@
+###  Публикация: 1427397   (183063) от 28.11.2020
+
+Кассандра Клэр | Золотая цепь (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Последние часы» из цикла «Сумеречные охотники».
+
+Корделия Карстэйрс – Сумеречный Охотник, она с детства сражается с демонами. Когда ее отца обвиняют в ужасном преступлении, Корделия и ее брат отправляются в Лондон в надежде предотвратить катастрофу, которая грозит их семье. Вскоре Корделия встречает Джеймса и Люси Эрондейл и вместе с ними погружается (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F698A28D6388C7F329EB79E3592B0B472EDCC4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427391   (183037) от 28.11.2020
+
+А. Дж. Риддл | Холодный мир (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Долгая зима».
+
+С каждым месяцем на Земле становится все холоднее. Снег выпадает и летом, ледники покрывают города. Люди покидают свои дома и переселяются в районы, где все еще можно выжить. Они могут сбежать от зимы, но не от своей природы и готовятся к войне за последние обитаемые зоны мира.
+Ученые пытаются найти причину нового ледникового периода, (   Читать дальше...   )Жанр: Научная фантастика, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F0C84469AC1C36F6C4C9CC04DCF5647A861B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665369   (181851) от 30.09.2023
 
 Виктор Пелевин | Трансгуманизм 3. Путешествие в Элевсин (2023) [FB2, EPUB, MOBI]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181851.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181241.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181216.jpg" />
+  <img src="Z:/picture/005/save_picture_181216.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180690.jpg" />
+  <img src="Z:/picture/005/save_picture_180690.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179902.jpg" />
+  <img src="Z:/picture/005/save_picture_179902.jpg" />
 </div>
 
 
@@ -139,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179762.jpg" />
+  <img src="Z:/picture/005/save_picture_179762.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179227.jpg" />
+  <img src="Z:/picture/005/save_picture_179227.jpg" />
 </div>
 
 
@@ -195,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179194.jpg" />
+  <img src="Z:/picture/005/save_picture_179194.jpg" />
 </div>
 
 
@@ -224,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178970.jpg" />
+  <img src="Z:/picture/005/save_picture_178970.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178566.jpg" />
 </div>
 
 
@@ -276,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178193.jpg" />
+  <img src="Z:/picture/005/save_picture_178193.jpg" />
 </div>
 
 
@@ -304,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178151.jpg" />
+  <img src="Z:/picture/005/save_picture_178151.jpg" />
 </div>
 
 
@@ -330,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178080.jpg" />
+  <img src="Z:/picture/005/save_picture_178080.jpg" />
 </div>
 
 
@@ -356,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177500.jpg" />
+  <img src="Z:/picture/005/save_picture_177500.jpg" />
 </div>
 
 
@@ -382,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177439.jpg" />
+  <img src="Z:/picture/005/save_picture_177439.jpg" />
 </div>
 
 
@@ -411,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177200.jpg" />
+  <img src="Z:/picture/004/save_picture_177200.jpg" />
 </div>
 
 
@@ -437,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176337.jpg" />
+  <img src="Z:/picture/004/save_picture_176337.jpg" />
 </div>
 
 
@@ -465,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174846.jpg" />
+  <img src="Z:/picture/004/save_picture_174846.jpg" />
 </div>
 
 
@@ -491,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174271.jpg" />
+  <img src="Z:/picture/004/save_picture_174271.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173901.jpg" />
+  <img src="Z:/picture/004/save_picture_173901.jpg" />
 </div>
 
 
@@ -545,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173131.jpg" />
 </div>
 
 
@@ -572,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172954.jpg" />
 </div>
 
 
@@ -598,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172822.jpg" />
 </div>
 
 
@@ -624,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172819.jpg" />
 </div>
 
 
@@ -637,60 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDED45DFE938E5CFB6E5AD70C66CEFF3F2FFA913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669500   (172744) от 16.10.2023
-
-Ольга Ускова | Этюды черни (2023) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в дивный чудесный мир, где рядом с биологическими людьми уже сегодня трудятся, думают, даже сопереживают Искусственные Существа, наделенные Искусственным Интеллектом.
-Прошлое догнало Настоящее и вместе с ним слилось с Будущим – так выглядит Время, в котором мы все имеем честь жить, трудиться, любить, воевать, творить. Так же выглядит и эта книга. (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553FEB42FD12BA6FA9BE2C3D23E6366069C68BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669516   (172591) от 17.10.2023
-
-Никита Сахно | Охотники на героев (2023) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рантар «Два Топора» – герой, которого все ненавидят. В этом мире, живущем по закону силы, «героями» называют безжалостных воинов, ведущих себя совсем не как пример для подражания.
-Рантар прагматичен и любит держать все под контролем. Ему нет дела до благородства, он готов на любые жертвы, потому что главное для него – найти сына, которого обманом отняла у него жестокая (   Читать дальше...   )Жанр: Героическое фэнтезиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42829828E1ECC694D5EA6DA8C536CF27629A257
 ```
 
 https://mybot314.ru/tekegram_catalog/

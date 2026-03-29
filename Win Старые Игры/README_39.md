@@ -1,3 +1,55 @@
+###  Публикация: 1699499   (38029) от 07.11.2024
+
+Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир, в котором время не имеет значения, а зло не имеет границ. Путешественник во времени по имени Турок оказывается в диких землях, разрываемых войной. Злой властитель, известный как Устроитель, с помощью древнего артефакта хроноцептера собирается порвать саму ткань времени и править вселенной. Хроноцептер был расколот на куски тысячи лет назад, чтобы никогда не (   Читать дальше...   )Тип издания: RepackРазработчик: Iguana EntertainmentЖанр: FPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECEFB7C97720878E1BC7C72ABD5290B44FA3565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177682   (38028) от 07.11.2024
+
+Exhumed (1996) [En] (1.0) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в конце XX века в окрестностях древнего египетского города Карнак. Город захвачен неизвестными силами. На разведку в долину Карнак отправлена специальная группа солдат. По пути туда вертолёт с главным героем сбивают, герой едва спасается. Под руководством духа Короля Рамзеса, мумия которого была извлечена из гробницы злыми созданиями, герой (   Читать дальше...   )Тип издания: RepackРазработчик: Lobotomy SoftwareЖанр: Шутеры, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED464DA6D76EE249A40875F2906D86E9D0D18928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727525   (38027) от 07.11.2024
 
 Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
@@ -6,7 +58,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38027.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ GTA - Flame's Story (2024) [Ru/En] (1.7) Repack/Mod CTXMaps
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37716.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37553.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37056.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37051.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37044.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36643.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36432.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36412.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36022.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35898.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Diablo: Hellfire - The Hell 3 (2024) [En] (1.147) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35290.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34560.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34036.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33500.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33222.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33106.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Monster Jam (2007) [En] (1.0.1) Scene Reloaded
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32392.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Monster Jam - это гоночная игра на монстр-траках, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0A5A947316F02D87834F619BC950EBCDB734B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770193   (32366) от 01.01.2025
-
-MediEvil: Trilogy (1998-2005) [Ru/Multi] (1.0.0.2/1.0.0.2/1.0.0.0) Repack Ma2012ks
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32366.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediEvil: Resurrection является переосмыслением первой игры MediEvil со значительными отличиями от оригинала. Дизайн локаций и персонажей были изменены, а некоторые уровни оригинала были убраны из игры полностью. Также в игру добавлены новые уровни и персонажи, хотя видеоролики соответствовали MediEvil. Несмотря на сюжет оригинала, MediEvil: Resurrection была выполнена (   Читать дальше...   )Тип издания: RepackРазработчик: SCE Cambridge StudioЖанр: ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771184   (31950) от 05.01.2025
-
-Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garry's Mod - физическая песочница. В отличие от обычных игр, здесь не существует каких-либо определённых целей или задач. Мы даём вам инструменты и оставляем вас играть. Вы создаете объекты и соединяете их вместе для создания ваших собственных конструкций - машина ли это, ракета, катапульта или нечто пока без названия - это зависит от вас. Если с конструированием (   Читать дальше...   )Тип издания: RepackРазработчик: Facepunch StudiosЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7424F5ABEE071EEB21484241C16CE5A641471532
 ```
 
 https://mybot314.ru/tekegram_catalog/

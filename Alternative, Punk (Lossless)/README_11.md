@@ -6,7 +6,7 @@ Paloma Faith ‎ - Fall To Grace (2012) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848350.jpg" />
+  <img src="Z:/picture/008/save_picture_848350.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paloma Faith - The Architect (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848044.jpg" />
+  <img src="Z:/picture/008/save_picture_848044.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847675.jpg" />
+  <img src="Z:/picture/008/save_picture_847675.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846605.jpg" />
+  <img src="Z:/picture/008/save_picture_846605.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841868.jpg" />
+  <img src="Z:/picture/008/save_picture_841868.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Shins - Heartworms (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841535.jpg" />
+  <img src="Z:/picture/008/save_picture_841535.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bush - Black And White Rainbows (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839875.jpg" />
+  <img src="Z:/picture/008/save_picture_839875.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Asking Alexandria - See What's On The Inside (2021) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839702.jpg" />
+  <img src="Z:/picture/008/save_picture_839702.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838935.jpg" />
+  <img src="Z:/picture/008/save_picture_838935.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838825.jpg" />
+  <img src="Z:/picture/008/save_picture_838825.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ David Fonseca - Bowie 70 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838421.jpg" />
+  <img src="Z:/picture/008/save_picture_838421.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Regina Spektor - Soviet Kitsch (2004) [FLAC|Lossless|image + .cue] <Art Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838407.jpg" />
+  <img src="Z:/picture/008/save_picture_838407.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838083.jpg" />
+  <img src="Z:/picture/008/save_picture_838083.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Deftones - Gore (2016) [FLAC|tracks|WEB-DL]<Alternative Metal, Post-Metal, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836770.jpg" />
+  <img src="Z:/picture/008/save_picture_836770.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836523.jpg" />
+  <img src="Z:/picture/008/save_picture_836523.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836393.jpg" />
+  <img src="Z:/picture/008/save_picture_836393.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Temples - Volcano (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835169.jpg" />
+  <img src="Z:/picture/008/save_picture_835169.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - NOW Alternative Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833177.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Black Rivers - Black Rivers (2015) [FLAC|Lossless]<Pop-Rock, Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831860.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eyes of Eli - Eyes of Eli (2012) [FLAC|Lossless|WEB-DL|tracks] <Metal, Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830013.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spoon - Hot Thoughts (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829954.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Laura Marling - Short Movie (2015) [FLAC|Lossless]<Indie Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829915.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829846.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Fratellis - Half Drunk Under a Full Moon (2020) [FLAC|Lossless|tracks] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829749.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ loney dear - Dear John (2009) [FLAC|Lossless|image + .cue] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827811.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bossk - Audio Noir (2016) [FLAC|Lossless|tracks] <Post-Rock, Post-Metal, Sludge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827243.jpg" />
 </div>
 
 

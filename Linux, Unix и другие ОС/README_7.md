@@ -1,3 +1,57 @@
+###  Публикация: 651851   (837788) от 03.05.2013
+
+Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ян Фирнс Смарт (Ian Firns) представил релиз Kororaa Linux 18, обновлённой версии дружественного к начинающим пользователям GNU/Linux дистрибутива на основе Fedora. Kororaa Linux распространяется в виде отдельных редакций с рабочим окружением KDE и GNOME, для архитектур i686 и x86-64.
+
+Релиз Korora выполнен на основе Fedora 18, от которой отличается, в том числе, дополнительной оптимизацией KDE, GNOME и базовой системы; наличием сторонних репозиториев (Adobe, Chrome, RPMFusion, VirtualBox); использованием Firefox в качестве web-браузера по умолчанию (с интегрированной темой для KDE); подключенными расширениями Firefox (Adblock Plus, DownThemAll, Flashblock, Xclear); наличием клиентов для ведения микроблогов (Choqok для KDE, Empathy для GNOME); полной поддержкой мультимедиа «из коробки» (за исключением Flash, однако доступен инсталлятор для установки плагина Adobe Flash); в качестве медиаплеера по умолчанию используется VLC, видеоркдактор (Kdenlive для KDE, OpenShot для GNOME).
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004771   (836433) от 07.04.2016
+
+Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836433.jpg" />
+</div>
+
+
+###  Подробнее
+
+На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EE053ADD798155AB469EB9B2E7846CFD77C74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004769   (836327) от 07.04.2016
 
 Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
@@ -6,7 +60,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836327.jpg" />
+  <img src="Z:/picture/008/save_picture_836327.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Red Hat Enterprise Linux 8.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834399.jpg" />
+  <img src="Z:/picture/008/save_picture_834399.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Debian GNU/Linux 7.0.0 Live [i386] (2xDVD, 4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832902.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Debian GNU/Linux 7.0.0 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832585.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Debian GNU/Linux 7.0.0 [i386] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832510.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832479.jpg" />
 </div>
 
 
@@ -176,7 +230,7 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831250.jpg" />
 </div>
 
 
@@ -202,7 +256,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [i386] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830608.jpg" />
 </div>
 
 
@@ -232,7 +286,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828029.jpg" />
 </div>
 
 
@@ -258,7 +312,7 @@ Manjaro Linux 0.8.5.2 (Arch + XFCE) [i686, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827287.jpg" />
 </div>
 
 
@@ -286,7 +340,7 @@ Manjaro Linux 0.8.5.2 (Arch + openbox, net) [i686, x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827280.jpg" />
 </div>
 
 
@@ -314,7 +368,7 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826518.jpg" />
 </div>
 
 
@@ -340,7 +394,7 @@ Debian Edu - Skolelinux 11.1.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826404.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ Parrot Security OS 4.9 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825928.jpg" />
 </div>
 
 
@@ -392,7 +446,7 @@ CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825078.jpg" />
 </div>
 
 
@@ -420,7 +474,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824630.jpg" />
 </div>
 
 
@@ -446,7 +500,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820510.jpg" />
+  <img src="Z:/picture/008/save_picture_820510.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820505.jpg" />
+  <img src="Z:/picture/008/save_picture_820505.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ Slackware 14.2 RC2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818995.jpg" />
+  <img src="Z:/picture/008/save_picture_818995.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817961.jpg" />
+  <img src="Z:/picture/008/save_picture_817961.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815577.jpg" />
+  <img src="Z:/picture/008/save_picture_815577.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ Wifislax 4.12 [Аудит безопасности, хакинг] [x86, х64] 4.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811301.jpg" />
+  <img src="Z:/picture/008/save_picture_811301.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ Kubuntu 16.04 LTS Xenial Xerus [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809354.jpg" />
+  <img src="Z:/picture/008/save_picture_809354.jpg" />
 </div>
 
 
@@ -643,7 +697,7 @@ Mageia 3 [i586, x86-64] (3xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807690.jpg" />
+  <img src="Z:/picture/008/save_picture_807690.jpg" />
 </div>
 
 
@@ -656,60 +710,6 @@ Mageia 3 [i586, x86-64] (3xCD)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658237   (807681) от 19.05.2013
-
-Mageia 3 DVD [x86-64] (DVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня вышел релиз следующего поколения Mageia - Mageia 3, второго по популярности дистрибутива на сегодня по версии DistroWatch.
-
-Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE. Изменения и улучшения этой версии: новый экран входа; автоматический режим в установщике; возможность загрузки в оперативную память из Live-режима; по умолчанию используется GRUB 2; полный переход на systemd; новая тема для Gfxboot; How-To для новых пользователей дистрибутива; поддержка технологии NVidia Optimus; подписи для репозиториев; привод всех системных директорий к UNIX-стандартам; переработан интерфейс Mageia Control Center; обновления теперь могут использовать зависимые пакеты из сторонних репозиториев; перемещена директория /usr; улучшена поддержка Python 3; drakx-finish-install теперь запрашивает разрешение у пользователя на (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009622   (807462) от 22.04.2016
-
-KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил мартовский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: KDE Applications 16.04.0, ядро Linux kernel 4.4.5 (linux-next присутствует в репозитрии), glibc 2.23, systemd 229, kmod 22, xorg-server 1.18.3, Qt 5.6.0 & Qt 4.8.7, mesa 11.2.1, calligra (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5766E1A0CDCF62F58EB66E6051D53DA44C3B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

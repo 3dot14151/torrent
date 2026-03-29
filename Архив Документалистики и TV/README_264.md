@@ -1,3 +1,159 @@
+###  Публикация: 951202   (363897) от 29.10.2015
+
+Обзор. Чемпионат России 2015-16. 13 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата России 2015-2016 года.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9529252B6B8D151F166A90C58D580E5A928D63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951193   (363896) от 29.10.2015
+
+Обзор. Чемпионат Германии 2015-16. 10 тур. Обзор тура. (2015) HDTV [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Германии 2015-2016 года.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFAA61F8A9A0CC276AD50C2E8338754F679A7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951186   (363895) от 29.10.2015
+
+Обзор. Чемпионат Италии 2015-16. 9 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Италии 2015-2016 годаТелекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF9FFC6ADDCCCB05160928E90A819AB5B219465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951214   (363892) от 29.10.2015
+
+Обзор. Чемпионат Англии 2015-16. 10 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Англии 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF23A056F7ABBD34A3D91105C22DE8F96629F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951211   (363890) от 29.10.2015
+
+90 минут плюс. Итоги 13 тура. (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363890.jpg" />
+</div>
+
+
+###  Подробнее
+
+90 минут лучшая аналитическая программа о российском футболе. В течение полутора-двух-трёх часов рассказывается о самых интересных и актуальных вопросах нашего футбола. Каждую неделю Георгий Черданцев приглашает к себе в студию гостей, где обсуждает с ними самые заметные явления в футболе, произошедшие за неделю.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAD15968FF299B4EDE4E335BFB9AD78D53299F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951219   (363888) от 29.10.2015
+
+Обзор. Чемпионат Испании 2015-16. 9 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Испании 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A850E0D6B15EE7B5978D5993E0605B6C20A3B549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951510   (363886) от 29.10.2015
 
 Время покажет с Петром Толстым (29.10.2015) SATRip
@@ -6,7 +162,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363886.jpg" />
+  <img src="Z:/picture/008/save_picture_363886.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363880.jpg" />
+  <img src="Z:/picture/008/save_picture_363880.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363722.jpg" />
+  <img src="Z:/picture/008/save_picture_363722.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363666.jpg" />
+  <img src="Z:/picture/008/save_picture_363666.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363517.jpg" />
+  <img src="Z:/picture/008/save_picture_363517.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363337.jpg" />
+  <img src="Z:/picture/008/save_picture_363337.jpg" />
 </div>
 
 
@@ -168,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363133.jpg" />
+  <img src="Z:/picture/008/save_picture_363133.jpg" />
 </div>
 
 
@@ -194,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363124.jpg" />
+  <img src="Z:/picture/008/save_picture_363124.jpg" />
 </div>
 
 
@@ -220,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362139.jpg" />
+  <img src="Z:/picture/008/save_picture_362139.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362138.jpg" />
+  <img src="Z:/picture/008/save_picture_362138.jpg" />
 </div>
 
 
@@ -278,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362137.jpg" />
+  <img src="Z:/picture/008/save_picture_362137.jpg" />
 </div>
 
 
@@ -307,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362135.jpg" />
+  <img src="Z:/picture/008/save_picture_362135.jpg" />
 </div>
 
 
@@ -336,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362129.jpg" />
+  <img src="Z:/picture/008/save_picture_362129.jpg" />
 </div>
 
 
@@ -365,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362053.jpg" />
+  <img src="Z:/picture/008/save_picture_362053.jpg" />
 </div>
 
 
@@ -394,7 +550,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361851.jpg" />
+  <img src="Z:/picture/008/save_picture_361851.jpg" />
 </div>
 
 
@@ -420,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361839.jpg" />
+  <img src="Z:/picture/008/save_picture_361839.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361833.jpg" />
+  <img src="Z:/picture/008/save_picture_361833.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361829.jpg" />
+  <img src="Z:/picture/008/save_picture_361829.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361827.jpg" />
+  <img src="Z:/picture/008/save_picture_361827.jpg" />
 </div>
 
 
@@ -536,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361807.jpg" />
+  <img src="Z:/picture/008/save_picture_361807.jpg" />
 </div>
 
 
@@ -550,180 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:842ECEAAE84BCEC6044EF4DC61534A29DF34932C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255803   (361791) от 19.10.2018
-
-Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 3-й День (13.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361791.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 октября 2018 года, суббота.
-Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
-3-й День:
-Лига B. Группа 1 — Словакия – Чехия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BC9E0D839E4B09BC7D45726D504B7E34ECF2D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255743   (361788) от 19.10.2018
-
-Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 2. 3-й тур. Россия — Швеция (11.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361788.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 октября 2018 года, четверг. 22:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига B. Группа 2. 3-й тур.
-Россия — Швеция(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E682366B544191AC4FE870342F8CB64EBE61CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255753   (361782) от 19.10.2018
-
-Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 4. 3-й тур. Хорватия — Англия (12.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361782.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 октября 2018 года, пятница. 21:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига A. Группа 4. 3-й тур.
-Хорватия — Англия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AEFB3F9F0B6E558A77BFF7501FC4E680A22409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255745   (361776) от 19.10.2018
-
-Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 1-й День (11.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361776.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 октября 2018 года, четверг.
-Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
-1-й День:
-Лига A. Группа 3 — Польша – Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D981AF481CCD047B46D59303424BCCCBC6B6EB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255846   (361774) от 19.10.2018
-
-Футбол. Лига Наций 2018-2019. 4-й тур. Обзор матчей. 1-й День (14.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361774.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 октября 2018 года, воскресенье.
-Обзор матчей Лиги Наций УЕФА 2018-2019. 4-й тур.
-1-й День:
-Лига C. Группа 4 — Румыния – Сербия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D1E9B712854CA74683CEAE2EEDF68C78902713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255763   (361766) от 19.10.2018
-
-Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 2-й День (12.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361766.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 октября 2018 года, пятница.
-Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
-2-й День:
-Лига A. Группа 2 — Бельгия – Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643F47E3A0089DA360E5E0CACBC463BF8156F720
 ```
 
 https://mybot314.ru/tekegram_catalog/

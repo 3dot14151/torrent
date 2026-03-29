@@ -1,3 +1,60 @@
+###  Публикация: 1724692   (55866) от 21.05.2024
+
+Сосновка, Наталья Павловская | Ландшафтный архитектор 2.0 (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте профессиональным ландшафтным дизайнером и создайте свой первый дизайн-проект всего за 3-7 часов в неделю.
+Получите опыт одной из крупнейших школ дизайна России, находясь в любой точке мира
+
+Причины выбрать курс «Ландшафтный Архитектор 2.0» от школы Сосновка:(   Читать дальше...   )Производство: СосновкаЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 171:59:08Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF4FFD06A583A738D7B38E606390F9502BC1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726623   (55029) от 29.05.2024
+
+Школа нетипичного фермера, Анна Акинина | Плодовые деревья (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55029.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выбор посадочного материала: какое дерево выбрать, на что обратить внимание, как, где и когда лучше выбрать саженцы
+2. Посадка: где лучше посадить дерево, как подготовиться к посадке, какие понадобятся инструменты, как подготовить яму, как подготовить грунт, какие удобрения внести при посадке, как мульчировать
+3. Что делать, если плодовые уже посажены, но не учтены (   Читать дальше...   )Производство: Школа нетипичного фермераЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:59:12Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958644F477B6C74367EF3378B5E12ABD8359CF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727031   (54761) от 31.05.2024
 
 Школа нетипичного фермера, Анна Акинина | Хвойные растения (2022) WEB-DL [AD] [RU]
@@ -6,7 +63,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54761.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54671.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54657.jpg" />
 </div>
 
 
@@ -92,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54613.jpg" />
 </div>
 
 
@@ -121,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54590.jpg" />
 </div>
 
 
@@ -150,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54554.jpg" />
 </div>
 
 
@@ -179,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53444.jpg" />
 </div>
 
 
@@ -208,7 +265,7 @@ Austin School of Furniture & Design, Alex Lohn | Конический журна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52039.jpg" />
 </div>
 
 
@@ -236,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51744.jpg" />
 </div>
 
 
@@ -263,7 +320,7 @@ Gary Rogowski | Столярные работы с ручным фрезером
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51082.jpg" />
 </div>
 
 
@@ -289,7 +346,7 @@ Luke Goodhue | Обработка пиломатериалов от чернов
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50671.jpg" />
 </div>
 
 
@@ -315,7 +372,7 @@ plants.coach, Яна Строинская | Мини-курс по переса�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50146.jpg" />
 </div>
 
 
@@ -343,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50071.jpg" />
 </div>
 
 
@@ -372,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50066.jpg" />
 </div>
 
 
@@ -401,7 +458,7 @@ Alan Turner | Отделка выполненная вручную (2020) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50013.jpg" />
 </div>
 
 
@@ -427,7 +484,7 @@ George Vondriska | Деревообработка: Все о дереве (2018)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49861.jpg" />
 </div>
 
 
@@ -456,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49214.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ George Vondriska | Основы работы с ленточной пилой (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49177.jpg" />
 </div>
 
 
@@ -512,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49080.jpg" />
 </div>
 
 
@@ -539,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49018.jpg" />
 </div>
 
 
@@ -566,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49000.jpg" />
 </div>
 
 
@@ -594,7 +651,7 @@ George Vondriska | Основы работы с циркулярной пило�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48893.jpg" />
 </div>
 
 
@@ -622,7 +679,7 @@ ColorSchool, Наталья Маркевич | Свет в саду (2024) WEB-D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48870.jpg" />
 </div>
 
 
@@ -651,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48816.jpg" />
 </div>
 
 
@@ -665,61 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB8263D7F53980A9027CAC2004A6E324A36757D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739695   (48581) от 28.07.2024
-
-Doug Stowe | Основы изготовления шкатулок (2007) DVDRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изготовление шкатулок прекрасная практика для начинающих столяров, заинтересованных в получении базовых навыков. Возможность экспериментировать с проектом, получая чувство большого удовлетворения от произведенного изделия, которое может быть изготовлено за достаточно короткое время.
-Представленный видеоматериал учит не только основным, начальным методам, а так же (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB62840A97020010D6D23A05806457C06F071025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740714   (47995) от 03.08.2024
-
-George Vondriska | Техники работы с ручным фрезером (2020) WEBRip [EN, RU / EN Sub].
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ручные фрезеры невероятно универсальны. При правильном использовании они могут добавить деталей к кромке, создать надежные соединения, добавить декоративные элементы и многое другое.
-
-Существует множество ключей к успешному и безопасному использованию фрезера. Этот видеокурс с вашим инструктором Джорджем Вондриской предоставит вам отличные знания о фрезере, включая (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386E0E7332EF949BFB4E59B0F00F4877BD267488
 ```
 
 https://mybot314.ru/tekegram_catalog/

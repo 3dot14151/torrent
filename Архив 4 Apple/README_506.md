@@ -1,3 +1,110 @@
+###  Публикация: 1545416   (240717) от 19.04.2022
+
+Davinci Resolve Studio 18.0 Beta 1 U2B [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
+В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E14CEC7250AFA53B713B26F33B56EBB3EDA123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463382   (240714) от 18.04.2021
+
+System Toolkit 3.3.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240714.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411AEFF63FF2E057DD91C0A613FECF9B35FB2E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570784   (240711) от 18.08.2022
+
+macOS 12 Monterey 12.5.1 (Installer) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240711.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS Monterey открывает новые возможности для общения, обмена данными и творчества. Пользуйтесь улучшенными функциями аудио и видео, такими как пространственное аудио и режим «Портрет». Легко справляйтесь с делами благодаря таким мощным инструментам, как фокусирование, быстрые заметки и группы вкладок в Safari. Переключайтесь между устройствами благодаря трансляции (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 17.08.2022Разработчик: © 2020 Apple, Inc.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDB3359185E519BB6B72679FD48189DB7D3431F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463378   (240705) от 18.04.2021
+
+RapidWeaver 8 v8.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240705.jpg" />
+</div>
+
+
+###  Подробнее
+
+RapidWeaver 8 - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
+RapidWeaver отлично подойдет тем, кто ищет ПО для разработки красивого веб-сайта. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2021Разработчик: Realmac Software LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D60A38D2A432C0E5500AD5AE232987BE2BF35D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463374   (240692) от 18.04.2021
 
 Outline 3.2103.4 [En/Ru]
@@ -6,7 +113,7 @@ Outline 3.2103.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240692.jpg" />
+  <img src="Z:/picture/004/save_picture_240692.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ iCollections 6 v6.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240683.jpg" />
+  <img src="Z:/picture/004/save_picture_240683.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ File Juicer 4.94 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240669.jpg" />
+  <img src="Z:/picture/004/save_picture_240669.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Disk Diet 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240660.jpg" />
+  <img src="Z:/picture/004/save_picture_240660.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Wattagio 1.12.7 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240654.jpg" />
+  <img src="Z:/picture/004/save_picture_240654.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ A Better Finder Attributes 7 v7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240591.jpg" />
+  <img src="Z:/picture/004/save_picture_240591.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Feeder 4 v4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240582.jpg" />
+  <img src="Z:/picture/004/save_picture_240582.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Find Any File (FAF) 2.3 b13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240572.jpg" />
+  <img src="Z:/picture/004/save_picture_240572.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Acon Digital Acoustica Premium Edition 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240527.jpg" />
+  <img src="Z:/picture/004/save_picture_240527.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Yate 6.4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240515.jpg" />
+  <img src="Z:/picture/004/save_picture_240515.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ Performance Index 64 Pro 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240507.jpg" />
+  <img src="Z:/picture/004/save_picture_240507.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ PCDJ DEX PRO 3 v.3.20.3.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240452.jpg" />
+  <img src="Z:/picture/004/save_picture_240452.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ PCalc 4.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240442.jpg" />
+  <img src="Z:/picture/004/save_picture_240442.jpg" />
 </div>
 
 
@@ -351,7 +458,7 @@ Soulver 3 v3.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240441.jpg" />
+  <img src="Z:/picture/004/save_picture_240441.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ Contacts Journal CRM 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240435.jpg" />
+  <img src="Z:/picture/004/save_picture_240435.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ GrandTotal 6 v6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240432.jpg" />
+  <img src="Z:/picture/004/save_picture_240432.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ Clipboard Manager 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240413.jpg" />
+  <img src="Z:/picture/004/save_picture_240413.jpg" />
 </div>
 
 
@@ -462,7 +569,7 @@ DSLR Assistant 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240390.jpg" />
+  <img src="Z:/picture/004/save_picture_240390.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ Soulver 3 v.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240386.jpg" />
+  <img src="Z:/picture/004/save_picture_240386.jpg" />
 </div>
 
 
@@ -518,7 +625,7 @@ Mitti 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240379.jpg" />
+  <img src="Z:/picture/004/save_picture_240379.jpg" />
 </div>
 
 
@@ -545,7 +652,7 @@ Pixea Plus for Mac 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240370.jpg" />
+  <img src="Z:/picture/004/save_picture_240370.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ Total Video Converter Pro 4.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240369.jpg" />
+  <img src="Z:/picture/004/save_picture_240369.jpg" />
 </div>
 
 
@@ -582,115 +689,6 @@ Total Video Converter Pro - полноценный и универсальный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6784ECA0FA18E6CD877E988981B31BD5D83CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411626   (240363) от 26.09.2020
-
-Cisdem AppCrypt 5.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистский и простой в использовании инструмент безопасности Mac OS X, который позволяет защитить любое приложение с помощью мастер-пароля, который потребуется при каждом запуске.
-
-Cisdem AppCrypt  - несложная  утилита, которая дает Вам возможность блокировать доступ к определенным приложениям, установленных на вашем компьютере. Cisdem AppCrypt может оказаться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23.09.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50379D2617AC2280BF337E09EDCD41D6BF6D383D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621007   (240330) от 23.03.2023
-
-Movist Pro 2.10.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2023Разработчик: © 2023 MovistПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01D72FB49BF5276717EDA6FB9AEF0BC4B135FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411537   (240325) от 26.09.2020
-
-Mia for Gmail 2.4.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клиент электронной почты для Mac на рабочем столе без использования веб-браузера!Тип издания: macOS SoftwareРелиз состоялся: 25.09.2020Разработчик: Stéphane QUERAUDПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC6D3BB53A5F2E31CDEE4D627BC65343D0127C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621010   (240297) от 23.03.2023
-
-Yate 6.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2023Разработчик: © 2023 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ECAD56BAB95B4FD29DE6C03FC9AB97058B5DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

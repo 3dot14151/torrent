@@ -1,3 +1,93 @@
+###  Публикация: 550927   (348391) от 24.10.2020
+
+VA - Волшебные голоса природы: Малыш в саду (2009) [MP3|320 kbps] <Классика детям, релакс>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой садик (П.И.Чайковский)
+02. Кукушка (А.С.Аренский)
+03. Песня о счастье (П.И.Чайковский)
+04. Спи, дитя мое, усни (А.С.Аренский)
+05. В лесу осел с кукушкой (А.Гретри)
+06. Осень (П.И.Чайковский)
+07. Весенняя песня (В.А.Моцарт)
+08. Майский день (Ц.А.Кюи)
+09. Мой Лизочек (П.И.Чайковский)
+10. Малиновка (Л.В.Бетховен)(   Читать дальше...   )Жанр: Детские развивающие аудиопрограммы, релакс, колыбельные, классика детям, звуки природыПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C235A0375C6A58F478305892734D3AD7BE9733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254034   (348250) от 24.10.2020
+
+Большой Детский Хор - Сборник (10CD) (2005) [MP3|256 kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+CD-1. Русская классика и произведения современных композиторов
+CD-2. Зарубежная классика и народные песни
+CD-3. Военно-патриотические песни(   Читать дальше...   )Жанр: ЭстрадаПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68EE54E0267B954692DEA0CE2D28C32774968F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409434   (348115) от 12.11.2011
+
+Владислав Крапивин | Гуси-гуси, га-га-га... (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корнелий Глас, благополучный обыватель, в одночасье оказывается на самом дне жизни. В буквальном смысле. На пороге смерти он знакомится с детьми без будущего, и это знакомство переворачивает все его существование... Возможен ли взлет со дна к небу?..Жанр: ФантастикаПродолжительность: 08:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAADCDBD15D3C75F845FBB89DE1A6F26BC5A81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578394   (348071) от 22.09.2022
 
 Юрий Коваль | Картофельная собака. От красных ворот (2009) [MP3, Виктор Ива]
@@ -6,7 +96,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348071.jpg" />
+  <img src="Z:/picture/008/save_picture_348071.jpg" />
 </div>
 
 
@@ -34,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347521.jpg" />
+  <img src="Z:/picture/008/save_picture_347521.jpg" />
 </div>
 
 
@@ -60,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346693.jpg" />
+  <img src="Z:/picture/008/save_picture_346693.jpg" />
 </div>
 
 
@@ -89,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346566.jpg" />
+  <img src="Z:/picture/008/save_picture_346566.jpg" />
 </div>
 
 
@@ -118,7 +208,7 @@ VA - Кукабарра. Гайтана та діти світла (2008) [MP3|1
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346422.jpg" />
+  <img src="Z:/picture/008/save_picture_346422.jpg" />
 </div>
 
 
@@ -147,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345582.jpg" />
+  <img src="Z:/picture/008/save_picture_345582.jpg" />
 </div>
 
 
@@ -175,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344699.jpg" />
+  <img src="Z:/picture/008/save_picture_344699.jpg" />
 </div>
 
 
@@ -201,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344198.jpg" />
+  <img src="Z:/picture/008/save_picture_344198.jpg" />
 </div>
 
 
@@ -227,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344087.jpg" />
+  <img src="Z:/picture/008/save_picture_344087.jpg" />
 </div>
 
 
@@ -253,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342863.jpg" />
+  <img src="Z:/picture/008/save_picture_342863.jpg" />
 </div>
 
 
@@ -279,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341867.jpg" />
+  <img src="Z:/picture/008/save_picture_341867.jpg" />
 </div>
 
 
@@ -305,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341762.jpg" />
+  <img src="Z:/picture/008/save_picture_341762.jpg" />
 </div>
 
 
@@ -332,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341637.jpg" />
+  <img src="Z:/picture/008/save_picture_341637.jpg" />
 </div>
 
 
@@ -359,7 +449,7 @@ VA - Детские песни Ладушки (2010) [MP3|320 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340960.jpg" />
+  <img src="Z:/picture/008/save_picture_340960.jpg" />
 </div>
 
 
@@ -388,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340482.jpg" />
+  <img src="Z:/picture/008/save_picture_340482.jpg" />
 </div>
 
 
@@ -417,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340013.jpg" />
+  <img src="Z:/picture/008/save_picture_340013.jpg" />
 </div>
 
 
@@ -443,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339228.jpg" />
+  <img src="Z:/picture/008/save_picture_339228.jpg" />
 </div>
 
 
@@ -472,7 +562,7 @@ VA - Детские песни части 1-2 (2007) [MP3|320 kbps]<Песенк
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339195.jpg" />
+  <img src="Z:/picture/008/save_picture_339195.jpg" />
 </div>
 
 
@@ -501,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338996.jpg" />
+  <img src="Z:/picture/008/save_picture_338996.jpg" />
 </div>
 
 
@@ -527,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337692.jpg" />
+  <img src="Z:/picture/008/save_picture_337692.jpg" />
 </div>
 
 
@@ -553,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337240.jpg" />
+  <img src="Z:/picture/008/save_picture_337240.jpg" />
 </div>
 
 
@@ -579,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337232.jpg" />
+  <img src="Z:/picture/008/save_picture_337232.jpg" />
 </div>
 
 
@@ -605,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336511.jpg" />
+  <img src="Z:/picture/008/save_picture_336511.jpg" />
 </div>
 
 
@@ -619,85 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E95E7FCE3A91933202BA6636F311D23DC14B0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074670   (336138) от 20.11.2016
-
-Александра Анненская | Брат и сестра. Младший брат (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336138.jpg" />
-</div>
-
-
-###  Подробнее
-
-В повести «Брат и сестра» Анненская призывает юного читателя задуматься над разницей между такими понятиями как «удовольствие» и «счастье», стремится привить детям любовь к нравственным идеалам. Герои повести, осиротев после смерти матери, попадают в чужую семью и ведут себя по-разному: Маша, прошедшая трудный путь жизненных испытаний, видит смысл и радость своей (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 05:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF1E9D33838F1AB78028763ED8E211386B4314B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420055   (335819) от 30.10.2020
-
-Валентин Постников | Мармеладная бабушка (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что самый вкусный мармелад делают в Португалии? Наверное, поэтому именно там живёт Мармеладная бабушка, которая готовит мармелад лучше всех на свете. Да вот беда, стоит бабушке чихнуть, как она оказывается совершенно в другом месте. Чихнула – и она уже на крыше дома, снова чихнула – и улетела в чулан, а из чулана – на дерево.
-А ещё бабушка отлично ездит (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 03:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F92D01A0412F3871BFCE3B886827296AB9CA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652935   (335088) от 30.10.2020
-
-Виктор Голявкин | Тетрадки под дождём (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335088.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли веселые и поучительные рассказы для детей младшего школьного возраста известного и замечательного детского писателя Виктора Владимировича Голявкина. Автор тепло и с юмором рассказывает о жизни современных детей, об их проблемах, увлечениях, интересах.Жанр: советская литература, литература для детейПродолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D92895A5E438CDA41701688AD69040A7E6EF6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

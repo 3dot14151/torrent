@@ -6,7 +6,7 @@ CrystalDiskInfo 8.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770620.jpg" />
+  <img src="Z:/picture/008/save_picture_770620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tor Browser Bundle 4.0.7 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770611.jpg" />
+  <img src="Z:/picture/008/save_picture_770611.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera 28.0.1750.51 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770602.jpg" />
+  <img src="Z:/picture/008/save_picture_770602.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Etcher 1.5.100 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770591.jpg" />
+  <img src="Z:/picture/008/save_picture_770591.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Photo Editor 6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770580.jpg" />
+  <img src="Z:/picture/008/save_picture_770580.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 83.0.4103.116 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770572.jpg" />
+  <img src="Z:/picture/008/save_picture_770572.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Desktop Calendar 2.3.75.4910 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770553.jpg" />
+  <img src="Z:/picture/008/save_picture_770553.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ uTorrent Pro 3.4.3 Build 39944 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770522.jpg" />
+  <img src="Z:/picture/008/save_picture_770522.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770514.jpg" />
+  <img src="Z:/picture/008/save_picture_770514.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ GetWindowText 3.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770482.jpg" />
+  <img src="Z:/picture/008/save_picture_770482.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GlassWire 1.0.40 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770478.jpg" />
+  <img src="Z:/picture/008/save_picture_770478.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IObit Driver Booster Pro 2.3.0.134 Final DC 08.04.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770468.jpg" />
+  <img src="Z:/picture/008/save_picture_770468.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kerish Doctor 2020 4.80 DC 19.06.2020 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770461.jpg" />
+  <img src="Z:/picture/008/save_picture_770461.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ XMedia Recode 3.3.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770459.jpg" />
+  <img src="Z:/picture/008/save_picture_770459.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe Acrobat Pro DC 2015.007.20033 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770358.jpg" />
+  <img src="Z:/picture/008/save_picture_770358.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Recuva 1.52.1086 Professional / Technician Edition RePack (& portable) by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770332.jpg" />
+  <img src="Z:/picture/008/save_picture_770332.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ CCleaner 5.68.7820 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770290.jpg" />
+  <img src="Z:/picture/008/save_picture_770290.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Vivaldi 1.1.453.59 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770261.jpg" />
+  <img src="Z:/picture/008/save_picture_770261.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Anvir Task Manager 8.1.1 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770236.jpg" />
+  <img src="Z:/picture/008/save_picture_770236.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Instagiffer 1.73 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770229.jpg" />
+  <img src="Z:/picture/008/save_picture_770229.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cyberfox 46.0.3 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770222.jpg" />
+  <img src="Z:/picture/008/save_picture_770222.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ qBittorrent 3.3.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770196.jpg" />
+  <img src="Z:/picture/008/save_picture_770196.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Cyberfox 46.0.3 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770191.jpg" />
+  <img src="Z:/picture/008/save_picture_770191.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Process Lasso Pro 8.9.8.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770184.jpg" />
+  <img src="Z:/picture/008/save_picture_770184.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ant Download Manager 0.3.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770154.jpg" />
+  <img src="Z:/picture/008/save_picture_770154.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Replay Video Capture 8.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770150.jpg" />
+  <img src="Z:/picture/008/save_picture_770150.jpg" />
 </div>
 
 

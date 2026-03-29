@@ -1,3 +1,29 @@
+###  Публикация: 1825483   (152141) от 17.10.2025
+
+Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshine After the Rain | Моя сэмпай парень? (фильм) [2025, Movie] BDRip 1080p HEVC 10-bit raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-продолжение основного сериала. Макото и Рюдзи уже решили свои проблемы и смирились со своей участью. Но вот у Саки судьба еще не решена и осталась только её очередь разобраться со своими проблемами и выбрать свою сторону. Как в семейном плане, так и в любовном...Производство: Project No.9Жанр: комeдия, ромaнтикаРежиссер: Янаги СинсукэПеревод: CrunchyRoll | JPBDЯзык озвучки: Японский, Английский и РусскийСубтитры: Русские (Полные и Надписи), Английские (Полные и Надписи) | ЯпонскиеПродолжительность: 82 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BC3B82BA26EA3008A9A9BB47C7C5A5DCAD92F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601097   (152093) от 30.12.2022
 
 Красавица: Унеси меня на Луну (OVA-2) | Tonikaku Kawaii: Seifuku | Tonikawa: Over the Moon for You - Uniform [2021, OVA, 2 ep] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152093.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151923.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151271.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150857.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150184.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147762.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147716.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147645.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146909.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146080.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146042.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146009.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145478.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144351.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144181.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Ihara Saikaku Koushoku Ichidai Otoko | The Sensualist | Мужчина, неср
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143948.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143655.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143482.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143304.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142996.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142990.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142974.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142949.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142903.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142056.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489AE113229E2C0481945A286DA82DDC15EE6C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173829   (141486) от 29.12.2017
-
-Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это аниме с ветерком прокатит вас по миру гонок на мотоциклах с коляской! Мы привыкли видеть такой вид транспорта, как эдакий раритет. Но здесь эти мотоциклы стали не только современно выглядеть, но и обрели неплохую скорость, «Формула 1» нервно курит в сторонке! Звук мотора, ветер в лицо, красивые девушки, которые на этот раз не служат украшением с сигнальным флажком (   Читать дальше...   )Жанр: спорт, приключенияРежиссер: Тамура МасафумиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4038EBBF3862E866D03DAE2D284B90D4628B934D
 ```
 
 https://mybot314.ru/tekegram_catalog/

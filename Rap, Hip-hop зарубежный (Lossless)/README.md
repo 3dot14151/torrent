@@ -7,7 +7,7 @@ VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060469.jpg" />
+  <img src="Z:/picture/009/save_picture_1060469.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ The English Beat - Special Beat Service (1986) [FLAC|Lossless|tracks + .cue] <Re
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057294.jpg" />
+  <img src="Z:/picture/005/save_picture_1057294.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047421.jpg" />
+  <img src="Z:/picture/005/save_picture_1047421.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Twiztid - Glyph (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Rap, Horrorcore R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043944.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe 3 (2022) [FLAC|Lossless|Web-DL|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043735.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Cancel - Jungle (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035222.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ The Cancel - No Way To Stay (2015) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035221.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Cancel - Daybreak (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035220.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ The Cancel - Criminal (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035218.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Cancel & Dj Shon - Movement (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, I
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035216.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Cancel - Autumn (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035211.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Cancel & Dj Shon - The All Boom (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035210.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Cancel Band - Case (2017) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrument
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035209.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ours Samplus - One Day One Beat (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, I
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035192.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Cancel - Night Light (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrume
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034957.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034675.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032748.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, U
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032744.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Odessa Kane - Cuetes And Balisongs (2012) EP [FLAC|Lossless|WEB-DL] <Hip-Hop, Un
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032720.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Chillhop Essentials Winter (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032350.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ clipping. - Visions Of Bodies Being Burned (2020) [FLAC|Lossless|tracks + .cue] 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031687.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Psalm Trees & Guillaume Muschalle - We Must Believe in Spring (2021) [FLAC|Lossl
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030977.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Onyx - Coming Outside (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030236.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Serhat Durmus - My Feelings (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030232.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Insane Clown Posse - Riddle Box (1995) 20th Anniversary Edition, Remastered, 201
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030014.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Insane Clown Posse - The Great Milenko (1997) 20th Anniversary Edition, Remaster
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030011.jpg" />
 </div>
 
 

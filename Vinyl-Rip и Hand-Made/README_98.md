@@ -1,3 +1,235 @@
+###  Публикация: 1522398   (27207) от 18.02.2025
+
+Александр Розенбаум - Казачьи Песни (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27207.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Песня Красных Конников • Song Of Red Cavalry Men
+А2 Кубанская Казачья • Kuban Cossack Song
+А3 Тетя Маня • Aunt Manya
+А4 Кандальная • Irons Song(   Читать дальше...   )Жанр: Chanson, BalladПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1928C2509F45913B982EE8AC3964CD9AEB61630D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615817   (27099) от 19.02.2025
+
+Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynazty  — шведская пауэр-метал-группа из Стокгольма.2009 - Bring The Thunder
+2011 - Knock You Down
+2012 - Sultans Of Sin
+2014 - Renatus(   Читать дальше...   )Жанр: Heavy/Power Metal, Hard RockПродолжительность: 07:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2B5F4745CB4C050AED893799FD4FC3A9203A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663904   (27030) от 20.02.2025
+
+Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tristania — симфо-готик-метал-группа из Норвегии, основанная в конце 1996 года гитаристом и вокалистом Мортеном Веландом, клавишником Эйнаром Моэном и ударником Кеннетом Олссоном.1999 - Beyond the veil
+2001 - World Of Glass
+2005 - Ashes
+2007 - IlluminationЖанр: Symphonic/Gothic MetalПродолжительность: 06:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749811   (26880) от 21.02.2025
+
+Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
+2002 - Alive Or Just Breathing
+2004 - The End Of Heartache
+2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 07:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A5B8651102B65C38EB8D4B251FD663898FA4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575781   (26439) от 26.02.2025
+
+Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26439.jpg" />
+</div>
+
+
+###  Подробнее
+
+О́ззи О́сборн (англ. Ozzy Osbourne; настоящее имя — Джон Майкл О́сборн, англ. John Michael Osbourne; род. 3 декабря 1948, Марстон Грин, Бирмингем) — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры (   Читать дальше...   )1980 - Blizzard Of Ozz
+1981 - Diary Of A Madman
+1983 - Bark At The Moon
+1986 - The Ultimate Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664217   (26300) от 27.02.2025
+
+Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Staind — американская метал-группа из города Спрингфилд, штат Массачусетс, основанная в 1995 году.1996 - Tormented
+1999 - Dysfunction
+2001 - Break The Cycle
+2003 - 14 Shades of GreyЖанр: Nu Metal, Hard Rock, Post-grungeПродолжительность: 07:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745353   (26279) от 27.02.2025
+
+Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brainstorm — немецкая пауэр-метал-группа. Создана в 1989 году. Лицом группы является вокалист Энди Б. Франк, также известный участием в Symphorce и прогрессив-группе Ivanhoe. Brainstorm отличается более «тёмным» стилем музыки от большинства пауэр-метал-команд.1997 - Hungry
+1998 - Unholy
+2000 - Ambiguity
+2001 - Metus Mortis(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 14:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606286   (26268) от 27.02.2025
+
+A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Post-hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26268.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Day to Remember (ADTR) — американская пост-хардкор группа, образованная в городе Окала в 2003 году и основанная гитаристом Томом Дэнни и барабанщиком Бобби Скраггзом. Известна своим необычным звучанием, которое представляет собой смесь металкора, пост-хардкора и поп-панка.2005 (2008) - Old Record (And Their Name Was Treason Re-Release)
+2007 (2008) - For Those Who Have Heart (Re-Release)
+2009 - Homesick
+2010 - What Separates Me From YouЖанр: Metalcore, Post-hardcoreПродолжительность: 06:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21600B84F1F1F1AAE937F53CA5930EA643736D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651765   (26195) от 28.02.2025
 
 Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -6,7 +238,7 @@ Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26195.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25749.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25729.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25556.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Scorpions - Gold Ballads (1992) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25145.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25142.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24773.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24595.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24573.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24398.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24319.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24247.jpg" />
 </div>
 
 
@@ -351,7 +583,7 @@ W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22937.jpg" />
 </div>
 
 
@@ -380,7 +612,7 @@ Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22898.jpg" />
 </div>
 
 
@@ -409,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22733.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22656.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22601.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22347.jpg" />
 </div>
 
 
@@ -510,238 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605933   (22308) от 06.04.2025
-
-Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gotthard — швейцарская рок-группа, основанная Стивом Ли и Лео Леони. Группа сформировалась в начале 1989 года. Первоначально она называлась «Krak».1992 - Gotthard
-1994 - Dial Hard
-1996 - G.
-1999 - OpenЖанр: Hard Rock, Heavy MetalПродолжительность: 12:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571447   (22281) от 06.04.2025
-
-Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
-2012 - Formshifter
-2014 - Elements of the Infinite
-2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 07:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306071   (22104) от 08.04.2025
-
-Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Ballads>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ballads & Blues 1
-SIDE A:
-01. Always Gonna Love You
-02. Still Got The Blues(   Читать дальше...   )Жанр: Blues Rock, BalladsПродолжительность: 02:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598761   (21968) от 09.04.2025
-
-Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист/вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
-2009 - House Of Dreams
-2012 - Emotional Fire
-2016 - Edge Of Tomorrow(   Читать дальше...   )Жанр: Melodic Heavy Metal/Hard RockПродолжительность: 06:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551047   (21792) от 11.04.2025
-
-Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
-2005 - Consign To Oblivion
-2007 - The Divine Conspiracy
-2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791518   (21109) от 17.04.2025
-
-Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21109.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Osculetur Me	2:55
-A2 Trahe Me	2:50
-A3 Nigra Sum, Sed Formosa	4:25
-A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548427   (20958) от 19.04.2025
-
-Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arch Enemy (от англ. arch-enemy — заклятый враг) — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
-1998 - Stigmata
-1999 - Burning Bridges
-2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 15:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603407   (20464) от 24.04.2025
-
-Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
-1996 - Dusk And Her Embrace
-1998 - Cruelty And The Beast
-2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
 ```
 
 https://mybot314.ru/tekegram_catalog/

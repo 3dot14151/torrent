@@ -1,3 +1,29 @@
+###  Публикация: 695651   (543491) от 01.09.2013
+
+Борис Заходер | Собрание детских книг [1956—2012] [PDF, DJVU, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Владимирович Заходер (1918—2000) — советский поэт, детский писатель, переводчик, популяризатор мировой детской классики. Родился в южном бессарабском городке Когуле, где его родители впервые встретились и поженились. Вскоре семья Заходер переехала в Одессу, а позже они перебрались в Москву. После школы, в 1935 году Борис Заходер пошёл работать на завод учеником (   Читать дальше...   )Формат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28071C2362105E7BEFEDE0C5BCE8AF25880A8C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818236   (543387) от 02.09.2014
 
 Леэло Тунгал | Кристийна, или Легко ли быть средней сестрой (2009) [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543387.jpg" />
+  <img src="Z:/picture/008/save_picture_543387.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543196.jpg" />
+  <img src="Z:/picture/008/save_picture_543196.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543194.jpg" />
+  <img src="Z:/picture/008/save_picture_543194.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543149.jpg" />
+  <img src="Z:/picture/008/save_picture_543149.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542775.jpg" />
+  <img src="Z:/picture/008/save_picture_542775.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542541.jpg" />
+  <img src="Z:/picture/008/save_picture_542541.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542408.jpg" />
+  <img src="Z:/picture/008/save_picture_542408.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542360.jpg" />
+  <img src="Z:/picture/008/save_picture_542360.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542252.jpg" />
+  <img src="Z:/picture/008/save_picture_542252.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542091.jpg" />
+  <img src="Z:/picture/008/save_picture_542091.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541980.jpg" />
+  <img src="Z:/picture/008/save_picture_541980.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541906.jpg" />
+  <img src="Z:/picture/008/save_picture_541906.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541511.jpg" />
+  <img src="Z:/picture/008/save_picture_541511.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540421.jpg" />
+  <img src="Z:/picture/008/save_picture_540421.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539962.jpg" />
+  <img src="Z:/picture/008/save_picture_539962.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539685.jpg" />
+  <img src="Z:/picture/008/save_picture_539685.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539217.jpg" />
+  <img src="Z:/picture/008/save_picture_539217.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539108.jpg" />
+  <img src="Z:/picture/008/save_picture_539108.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539101.jpg" />
+  <img src="Z:/picture/008/save_picture_539101.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539096.jpg" />
+  <img src="Z:/picture/008/save_picture_539096.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538947.jpg" />
+  <img src="Z:/picture/008/save_picture_538947.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538866.jpg" />
+  <img src="Z:/picture/008/save_picture_538866.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538229.jpg" />
+  <img src="Z:/picture/008/save_picture_538229.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537735.jpg" />
+  <img src="Z:/picture/008/save_picture_537735.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537520.jpg" />
+  <img src="Z:/picture/008/save_picture_537520.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3BE425054BE8B742132F85AA228DF7A1111CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819004   (537499) от 05.09.2014
-
-Луис Сашар | Я не верю в монстров (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти в каждом классе есть такой человек. Как говорится, отпетый. Он сидит на последней парте. Уроков никогда не делает. По всем предметам у него двойки, а когда его стыдят, он только ухмыляется. Учителя давно махнули на него рукой, одноклассники от него шарахаются. Он врет по делу и без дела, частенько противореча сам себе.
- То он лезет в драку, то вымогает у кого-то (   Читать дальше...   )Жанр: Зарубежная проза для детейПеревод: Евгения КанищеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CCB02AC9154C96EAA90765B33BB126804A82D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

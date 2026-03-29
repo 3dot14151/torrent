@@ -1,3 +1,109 @@
+###  Публикация: 1445537   (238323) от 06.02.2021
+
+Duplicate Manager Pro 1.3.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Manager Pro обнаруживает, управляет и удаляет:
+Дублированные фото, размноженное видео, размноженные звуковые дорожки, размноженные документы, размноженные другие файлы.
+Простота в использовании и скорость работы - это основные принципы в концепции приложения. Ваше время является самым ценным, что у вас есть! Мы заботимся о вашем времени. Не тратьте свое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DA8BA970B597B7E575135B7DB0427EE4F7C6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491340   (238319) от 24.08.2021
+
+TunesKit Screen Recorder 1.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный аудио и видео рекордер , позволяющий одним нажатием кнопки захватывать любое видео и аудио с любого источника на экране компьютера, а также редактировать и сохранять записи в любом формате и на любом устройстве с сохранением высокого качества.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECFDBC0F6073143589DBDFD2012568C21EAA2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491344   (238294) от 24.08.2021
+
+TunesKit AceMovi Video Editor 4.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238294.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BCA5BF7CCE2B9019F30CA5ABAF94B366B049E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623814   (238272) от 03.04.2023
+
+System Toolkit 5.14 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238272.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 03.04.2023Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BB46D093D6FDE18DE3027867F2CC98E2BEBB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573229   (238269) от 30.08.2022
 
 MacDroid Pro 1.6 [Multi/Ru]
@@ -6,7 +112,7 @@ MacDroid Pro 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238269.jpg" />
+  <img src="Z:/picture/004/save_picture_238269.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ ON1 HDR 2021 v15.1.0.10035 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238250.jpg" />
+  <img src="Z:/picture/004/save_picture_238250.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ HitPaw Watermark Remover for Mac 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238249.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Wondershare Recoverit 10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238211.jpg" />
+  <img src="Z:/picture/004/save_picture_238211.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ ON1 Effects 2021.1 v15.1.0.10035 CR2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238195.jpg" />
+  <img src="Z:/picture/004/save_picture_238195.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ SideNotes 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238188.jpg" />
+  <img src="Z:/picture/004/save_picture_238188.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Pixelmator Pro 2.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238185.jpg" />
+  <img src="Z:/picture/004/save_picture_238185.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238170.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ EdgeView 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238162.jpg" />
+  <img src="Z:/picture/004/save_picture_238162.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ FSNotes 6.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238158.jpg" />
+  <img src="Z:/picture/004/save_picture_238158.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ SnapMotion Unlimited 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238155.jpg" />
+  <img src="Z:/picture/004/save_picture_238155.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ AnyDroid 7 v7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238150.jpg" />
+  <img src="Z:/picture/004/save_picture_238150.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ MetaImage  2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238147.jpg" />
+  <img src="Z:/picture/004/save_picture_238147.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ File List Export 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238134.jpg" />
+  <img src="Z:/picture/004/save_picture_238134.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ Geekbench 5 v5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238128.jpg" />
+  <img src="Z:/picture/004/save_picture_238128.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ RAR Extractor Max-Unzip Winrar 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238118.jpg" />
+  <img src="Z:/picture/004/save_picture_238118.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ Integrity Plus 10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238113.jpg" />
+  <img src="Z:/picture/004/save_picture_238113.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ GroupsPro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238104.jpg" />
+  <img src="Z:/picture/004/save_picture_238104.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ Disk Xray 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238099.jpg" />
+  <img src="Z:/picture/004/save_picture_238099.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ FSNotes 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238083.jpg" />
+  <img src="Z:/picture/004/save_picture_238083.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ DirEqual 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238076.jpg" />
+  <img src="Z:/picture/004/save_picture_238076.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ Scrutiny 10 v10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238073.jpg" />
+  <img src="Z:/picture/004/save_picture_238073.jpg" />
 </div>
 
 
@@ -580,112 +686,6 @@ Scrutiny проверит ваши изображения, ваши внутре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A13B658C7815489D50C4228CFF5C5DCAB585D9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446068   (238069) от 07.02.2021
-
-Dash 5.5.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 06.02.2021Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787D5779CBBB7D6193E08EA4A411E99E86263558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624280   (238065) от 05.04.2023
-
-BusyContacts 2023.1.1 U2B [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238065.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2023Разработчик: © 2007-2022 Busy AppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524CD970F7FE65FFA1F2D358BB5512E01B0D4DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638320   (238061) от 07.06.2023
-
-PullTube 1.8.5.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B775AEDE42483FCFBC8CEA345E5216C224C418A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446127   (238060) от 07.02.2021
-
-Usher 2.0 Beta [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Usher - Отличное средство для создания и ведения собственной фильмотеки. Usher поможет управиться с видео, которое хранится на жестких дисках и в медиатеках iTunes, iPhoto, и Aperture. Пользователи могут добавлять подробную информацию о каждом видео и использовать "умные" плейлисты для их фильтрации по этим данным.
-С помощью Usher пользователи смогут искать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: Many TricksПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7F3BB236E80BD8353B2A0E878AB1AF3B16E269
 ```
 
 https://mybot314.ru/tekegram_catalog/

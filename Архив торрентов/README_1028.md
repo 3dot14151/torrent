@@ -6,7 +6,7 @@ IconJar 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811776.jpg" />
+  <img src="Z:/picture/008/save_picture_811776.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Repix Pro 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811742.jpg" />
+  <img src="Z:/picture/008/save_picture_811742.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Get Backup Pro 3 v3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811741.jpg" />
+  <img src="Z:/picture/008/save_picture_811741.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811740.jpg" />
+  <img src="Z:/picture/008/save_picture_811740.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Slidepad 1.0.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811739.jpg" />
+  <img src="Z:/picture/008/save_picture_811739.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ TurboLaunch 5.1.3 (3/26/2011) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_811708.jpg" />
+  <img src="Z:/picture/009/save_picture_811708.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811702.jpg" />
+  <img src="Z:/picture/008/save_picture_811702.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ AIDA64 Engineer Edition 6.50.5800 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811700.jpg" />
+  <img src="Z:/picture/008/save_picture_811700.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windows 11 Manager 1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811687.jpg" />
+  <img src="Z:/picture/008/save_picture_811687.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - From Dusk Till Dawn: The Beginning (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811675.jpg" />
+  <img src="Z:/picture/008/save_picture_811675.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811668.jpg" />
+  <img src="Z:/picture/008/save_picture_811668.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811637.jpg" />
+  <img src="Z:/picture/008/save_picture_811637.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ ACDSee Pro 9.2 Build 523 (x86) Lite RePack by MKN [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811636.jpg" />
+  <img src="Z:/picture/008/save_picture_811636.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Wise Game Booster 1.36.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811633.jpg" />
+  <img src="Z:/picture/008/save_picture_811633.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The KMPlayer 4.0.7.1 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811632.jpg" />
+  <img src="Z:/picture/008/save_picture_811632.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VirtualBox 5.0.18 Build 106667 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811630.jpg" />
+  <img src="Z:/picture/008/save_picture_811630.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ JetBrains RubyMine 2017.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811607.jpg" />
+  <img src="Z:/picture/008/save_picture_811607.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811587.jpg" />
+  <img src="Z:/picture/008/save_picture_811587.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Saenal Park | «Overgeared / Во всеоружии» (2019-2020)[с 25 по 44
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811575.jpg" />
+  <img src="Z:/picture/008/save_picture_811575.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ FinePrint 10.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811561.jpg" />
+  <img src="Z:/picture/008/save_picture_811561.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PotPlayer 200513(1.7.21212.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811559.jpg" />
+  <img src="Z:/picture/008/save_picture_811559.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Ozzy Osbourne - Prince Of Darkness (4CD Box Set) (2005) [FLAC|Lossless]<Heavy Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811557.jpg" />
+  <img src="Z:/picture/008/save_picture_811557.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811556.jpg" />
+  <img src="Z:/picture/008/save_picture_811556.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ QIP Infium 3.0.9044 [Русский, English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811554.jpg" />
+  <img src="Z:/picture/008/save_picture_811554.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Swords and Fairy 7 (2021) [Multi] (1.0.7) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811531.jpg" />
+  <img src="Z:/picture/008/save_picture_811531.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811510.jpg" />
+  <img src="Z:/picture/008/save_picture_811510.jpg" />
 </div>
 
 

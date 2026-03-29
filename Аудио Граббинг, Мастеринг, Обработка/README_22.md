@@ -1,3 +1,110 @@
+###  Публикация: 1630300   (237171) от 30.04.2023
+
+Soundly - Place it 1.0.1 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин Place it в Soundly Voice Designer был настолько популярен, что мы получили бесчисленное количество запросов на автономную версию для всех DAWS и наборов для редактирования — и мы прислушались!
+Place it позволяет вам эмулировать звук выбранного динамика и размещать его в одной из 40 различных сред - и все это на основе мастерски записанных импульсных характеристик (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FFBCF5B62207870E4492BE6E3B13551CED02B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574494   (237146) от 05.09.2022
+
+NovoNotes - HPL2 Processor 2.1.1 VST 3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237146.jpg" />
+</div>
+
+
+###  Подробнее
+
+HPL2 Processor - Идеальный звук в наушниках.
+Изначально источники звука для музыки разрабатывались так, чтобы их было удобно слушать через динамики.
+Очень важно воспроизвести ощущения от прослушивания динамиков в наушниках, не нарушая баланса микса источника звука, чтобы получить настоящий звук. Процессор HPL2 — это не эффект, добавляющий что-то для хорошего самочувствия, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6151F5C2855567D189010846CC271623DB502D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627969   (236876) от 21.04.2023
+
+Martinic - AX73 1.2.1 VSTi (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236876.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DB538CD9AF78F8FA9693418EE357057D5F6B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631360   (236506) от 05.05.2023
+
+Soundevice Digital - Pluralis 1.1 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pluralis — это дилей плагин, не имеющий аналогов. С Pluralis вы можете получить задержки и эффекты, о которых вы могли только мечтать в прошлом. Он отличается уникальной многоуровневой задержкой с несколькими режимами разделения сигнала. Вы можете применять разные задержки к разным частям вашего аудио и получать невиданные ранее результаты.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAB73A37B8AC3CC01374A1819D61E491E85DAEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631276   (236285) от 04.05.2023
 
 Polydigm - Klimper 2.0.8 Standalone, VST 3 (x64) RePack by MOCHA [En]
@@ -6,7 +113,7 @@ Polydigm - Klimper 2.0.8 Standalone, VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236285.jpg" />
+  <img src="Z:/picture/005/save_picture_236285.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ CyberLink AudioDirector Ultra 13.4.2903.0 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235543.jpg" />
+  <img src="Z:/picture/004/save_picture_235543.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Tone2 - Saurus 4.0.2 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235336.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Tone2 - Electra 3.2.1 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235274.jpg" />
+  <img src="Z:/picture/004/save_picture_235274.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Parametric - Ducky Verb 1.0.0 VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235012.jpg" />
+  <img src="Z:/picture/005/save_picture_235012.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Spectrasonics Keyscape 1.3.3d Standalone, VSTi, VSTi 3 (x64) + Library [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233352.jpg" />
+  <img src="Z:/picture/005/save_picture_233352.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Arturia V Collection 9 9.1.0 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230881.jpg" />
+  <img src="Z:/picture/005/save_picture_230881.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Steinberg - Cubase Pro 14 14.0.40 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230261.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ PreSonus Studio One Pro 7 7.2.3 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230258.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ Rob Papen - RAW-Kick 1.0.1 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_228057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_228057.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ Spectral Plugins - Spacer 1.0.0 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227584.jpg" />
+  <img src="Z:/picture/005/save_picture_227584.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ Rob Papen - Blade2 1.0.0a VSTi, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227088.jpg" />
+  <img src="Z:/picture/005/save_picture_227088.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ Unfiltered Audio LO-FI-AF 1.1.1 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226563.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ Unfiltered Audio - Dent 2 2.4.0 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226519.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ Rob Papen - RAW 1.0.4b VSTi, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226403.jpg" />
+  <img src="Z:/picture/005/save_picture_226403.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ LameXP 4.13.1852 Final + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225600.jpg" />
+  <img src="Z:/picture/005/save_picture_225600.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ Unfiltered Audio - Zip 1.4.0 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225368.jpg" />
+  <img src="Z:/picture/005/save_picture_225368.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ Eventide - BlackHole 2.0.8 VST, AAX (x86/x64) RePack by AudioUTOPiA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224345.jpg" />
+  <img src="Z:/picture/005/save_picture_224345.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ DJ Swivel - BDE 1.0.0 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224231.jpg" />
+  <img src="Z:/picture/005/save_picture_224231.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ Fiedler Audio - Stage 1.1.0 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224151.jpg" />
 </div>
 
 
@@ -531,7 +638,7 @@ Rob Papen - SubBoomBass 2 1.0.1b VSTi, AAX (x86/x64) Repack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224089.jpg" />
+  <img src="Z:/picture/005/save_picture_224089.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ DDMF - MagicDeathEye 1.1.4 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223946.jpg" />
+  <img src="Z:/picture/005/save_picture_223946.jpg" />
 </div>
 
 
@@ -569,111 +676,6 @@ DDMF - MagicDeathEye 1.1.4 VST, VST3, AAX (x86/x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4970185BB2854D0477A17AECB7CA9FA87F899C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585119   (223281) от 20.10.2022
-
-Arturia Augmented GRAND PIANO 1.0.0 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Arturia выпустила Augmented GRAND PIANO - виртуальный инструмент высокого качества для использования в производстве звука в кинематографии, а также игр и любой другой среде где требуется качественный звук клавишных.
-Augmented GRAND PIANO обеспечивает множество выразительных, современных и абстрактных фортепианных звуков, прекрасно записанных, объединенных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C01941C946A297D9FE6CDC1938FDAB4971E784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425031   (223276) от 19.11.2020
-
-Toontrack - Superior Drummer 3 v3.2.3 STANDALONE, VSTi, VSTi3, x64 Update RePack by TEAM V.R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное обновление профессиональной виртуальной ударной установки от Toontrack Music . Superior Drummer - это простота интерфейса EZdrummer с расширенным набором функций: новый микшер , встроенные эффекты (эквалайзер, фильтры, гейт, компрессор, энвелопер) и др. Superior Drummer является профессиональным барабанным флагманским сэмплером от фирмы Toontrack Music. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1D5604179EB8D0A054AAC69E63C3064A8B90BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425383   (222152) от 20.11.2020
-
-Serato - Sample 1.3.0 VSTi (x64) RePack by VR [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виртуальный фразовый семплер Sample, плагин формата VST, имеет функции подбора семплов, определения тональности и темпа, реверсирования, одноголосного и полифонического проигрывания, синхронизации. Используются технологии маркеров Cue Point и цветового кодирования уровнеграммы из программы Serato DJ, а также алгоритм изменения тональности и продолжительности аудио (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E0D488A03B167DCD4AB574F89FB59E3066B9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342981   (221273) от 04.12.2019
-
-Denise Audio - Bad Tape 1.0.1 VST, VST3, AAX (x86/x64) Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Denise Audio выпустила Bad Tape, описываемый как «плагин эффекта повреждения записи». Он сосредоточен на создании экстремальных артефактов ленты.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD875D28A48FF6D866768D12B8B76CD4C9BA8396
 ```
 
 https://mybot314.ru/tekegram_catalog/

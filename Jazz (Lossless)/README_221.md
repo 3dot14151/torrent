@@ -1,3 +1,119 @@
+###  Публикация: 1333566   (301591) от 26.10.2019
+
+John Coltrane - Plays For Lovers 1951 - 1958 (2003) Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to Talk About You [10:49]
+02. Violets for Your Furs [6:17]
+03. Invitation [10:22]
+04. Slow Dance [5:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99392B9B8C17A53BFDCDB5D0DCB723B05CBCE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961409   (301555) от 01.12.2015
+
+Blue Mitchell - Bantu Village (1969) 2011, Passion Music[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.H.N.I.C. [05:21]
+ 02.Flat Backing [04:21]
+ 03.Na Ta Ka [03:59]
+ 04.Heads Down [05:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12995772D677F80C7B324C14DB30AB49C48CFAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184396   (301512) от 17.11.2017
+
+Yusef Lateef - 1984 (1965) 1998, MCA [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1984 [08:17]
+02. Try Love [02:14]
+03. Soul Sister [03:06]
+04. Love Waltz [04:31](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBCB0B8C13330725A84720D8E59CC24C22861B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184393   (301508) от 17.11.2017
+
+Milt Jackson - Opus De Jazz (1955) 2017, Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus De Funk [13:28]
+02. Opus Pocus [07:31]
+03. You Leave Me Breathless [06:31]
+04. Opus And Interlude [06:31]Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036BC0EC1C3B2F931B8199B415404DF434BCC11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961156   (301420) от 01.12.2015
 
 The Australian Jazz Quintet - Selections Of Rodgers & Hammerstein (1957) 2014, Solid Records[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
@@ -6,7 +122,7 @@ The Australian Jazz Quintet - Selections Of Rodgers & Hammerstein (1957) 2014, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301420.jpg" />
+  <img src="Z:/picture/008/save_picture_301420.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Elvin Jones - Genesis (1971) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301419.jpg" />
+  <img src="Z:/picture/008/save_picture_301419.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Eric Alexander - Song Of No Regrets (2017) HighNote [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301362.jpg" />
+  <img src="Z:/picture/008/save_picture_301362.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Billy Eckstine Sings with Benny Carter special guest Helen Merrill (1987) EmArcy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301361.jpg" />
+  <img src="Z:/picture/008/save_picture_301361.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Anita O'Day - Jazz 'Round Midnight (1954 - 1962) 1997, Verve [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301288.jpg" />
+  <img src="Z:/picture/008/save_picture_301288.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ella Fitzgerald - Jazz 'Round Midnight Again (1956 - 1966) 1995, Verve [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301277.jpg" />
+  <img src="Z:/picture/008/save_picture_301277.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Clifford Brown - Jazz 'Round Midnight (1954 - 1956) 1993, Verve [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301275.jpg" />
+  <img src="Z:/picture/008/save_picture_301275.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301274.jpg" />
+  <img src="Z:/picture/008/save_picture_301274.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301272.jpg" />
+  <img src="Z:/picture/008/save_picture_301272.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301271.jpg" />
+  <img src="Z:/picture/008/save_picture_301271.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Antonio Carlos Jobim - Jazz 'Round Midnight (1963 - 1994) 1998, Verve [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301267.jpg" />
+  <img src="Z:/picture/008/save_picture_301267.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ National Youth Jazz Orchestra - London Pride (2006) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300878.jpg" />
+  <img src="Z:/picture/008/save_picture_300878.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ George Lewis and His Ragtime Band - Jazz At Vespers (1954) 1992, OJC[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300873.jpg" />
+  <img src="Z:/picture/008/save_picture_300873.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - One More: The Summary Music of Thad Jones, Vol.2 (2006) IPO Recordings [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300753.jpg" />
+  <img src="Z:/picture/008/save_picture_300753.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Tony Anderson's Muskat Ramblers - Most Wanted Dixieland (2005) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300693.jpg" />
+  <img src="Z:/picture/008/save_picture_300693.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jeff Palmer, John Abercrombie, David Liebman, Adam Nussbaum - Abracadabra (1990)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300684.jpg" />
+  <img src="Z:/picture/008/save_picture_300684.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Nighthawks - Citizen Wayne (1998) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300525.jpg" />
+  <img src="Z:/picture/008/save_picture_300525.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Sextet Of Orchestra U.S.A. Under The Direction Of Michael Zwerin - Mack The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299441.jpg" />
+  <img src="Z:/picture/008/save_picture_299441.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Lenny Breau - Last Sessions (1988) Genes Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299135.jpg" />
+  <img src="Z:/picture/008/save_picture_299135.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Count Basie & His Orchestra - Basie's Bag (of Swing) 1947 - 1959 (2007) 3CD, IMC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299126.jpg" />
+  <img src="Z:/picture/008/save_picture_299126.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Billie Holiday - Lady In Satin: The Centennial Edition (1957-1958) 3CD, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299086.jpg" />
+  <img src="Z:/picture/008/save_picture_299086.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Adrien Moignard - Between Clouds (2012) [FLAC|Lossless]<Swing, Guitar Jazz, Loun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_298936.jpg" />
+  <img src="Z:/picture/005/save_picture_298936.jpg" />
 </div>
 
 
@@ -635,128 +751,6 @@ Adrien Moignard - Between Clouds (2012) [FLAC|Lossless]<Swing, Guitar Jazz, Loun
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261984   (298869) от 13.11.2018
-
-Stephane Wrembel - Dreamer Of Dreams (2014) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Light [3:08]
-02. Lascaux [5:49]
-03. Mystic Circles [4:16]
-04. Human Condition I : Peace [1:36](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707A26D07A14CECE8905CCFE28F5B836F01E7ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262046   (298861) от 13.11.2018
-
-Stephane Wrembel - The Django Experiment I (2017) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz, Gypsy Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuages [3:31]
-02. Gin-Gin [2:47]
-03. Bouncin' Around [4:46]
-04. Dinette [2:48](   Читать дальше...   )Жанр: Jazz Fusion, Guitar Jazz, Gypsy JazzПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCA7E6DAF356CD325C76F01E6F1DECC1FBAC1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586723   (298822) от 08.12.2012
-
-AHA! Quintet - Freespace (2012) [FLAC|Lossless]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_298822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Hip Mice
-02. Looking
-03. Silver Cloud
-04. Land of Another
-05. Fourth Street
-06. Creepy Crawly
-07. Slim Jim
-08. Freespace
-09. Trio Rio
-10. Never Never LandЖанр: Hard Bop, Post-BopПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078667   (298311) от 02.12.2016
-
-Terry Pollard - Terry Pollard (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fedi [03:50]
- 02.Autumn Serenade [06:03]
- 03.Laura [03:57]
- 04.Where or When [03:12](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC872C322C686B55D33CD68D3EAB04EA7991E399
 ```
 
 https://mybot314.ru/tekegram_catalog/

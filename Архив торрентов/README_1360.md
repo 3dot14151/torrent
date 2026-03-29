@@ -6,7 +6,7 @@ NetLimiter 4.0.35.0 Pro [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745834.jpg" />
+  <img src="Z:/picture/008/save_picture_745834.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Movavi Video Editor Business 14.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745830.jpg" />
+  <img src="Z:/picture/008/save_picture_745830.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Movavi Video Converter 18.3.0 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745825.jpg" />
+  <img src="Z:/picture/008/save_picture_745825.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Pillars of Eternity. Hero Edition v. 1.04 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745809.jpg" />
+  <img src="Z:/picture/008/save_picture_745809.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Photo Supreme 1.8.1.131 Final RePack by WYLEK [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745793.jpg" />
+  <img src="Z:/picture/008/save_picture_745793.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745784.jpg" />
+  <img src="Z:/picture/008/save_picture_745784.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dying Light: The Following (2016) [Ru/En] (1.16/dlc) Repack xatab [Enhanced Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745769.jpg" />
+  <img src="Z:/picture/008/save_picture_745769.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Techsmith Snagit 12.3.2 Build 2920 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745746.jpg" />
+  <img src="Z:/picture/008/save_picture_745746.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745743.jpg" />
+  <img src="Z:/picture/008/save_picture_745743.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ DxO Optics Pro 10.4.0 Build 480 Elite RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745739.jpg" />
+  <img src="Z:/picture/008/save_picture_745739.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x86) RePack by D!ako
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745708.jpg" />
+  <img src="Z:/picture/008/save_picture_745708.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ocoeur - Light As A Feather [n5MD] (2013) [FLAC|Lossless]<IDM, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745682.jpg" />
+  <img src="Z:/picture/005/save_picture_745682.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mozart - The Great Symphonies 21-41 (Krips - Concertgebouw Orchestra) (2007) [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745596.jpg" />
+  <img src="Z:/picture/008/save_picture_745596.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745591.jpg" />
+  <img src="Z:/picture/008/save_picture_745591.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745590.jpg" />
+  <img src="Z:/picture/008/save_picture_745590.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Timmy Trumpet - Live From Sydney, Australia 2020-07-10 [MP3|320 Kbps] <Electro H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745586.jpg" />
+  <img src="Z:/picture/008/save_picture_745586.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ White Stones - Kuarahy (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745583.jpg" />
+  <img src="Z:/picture/008/save_picture_745583.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745533.jpg" />
+  <img src="Z:/picture/008/save_picture_745533.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745532.jpg" />
+  <img src="Z:/picture/008/save_picture_745532.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745530.jpg" />
+  <img src="Z:/picture/008/save_picture_745530.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Principle 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745527.jpg" />
+  <img src="Z:/picture/008/save_picture_745527.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ultimate & Moonsouls - The Sound Of Ultimate & Moonsouls (2015) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745524.jpg" />
+  <img src="Z:/picture/008/save_picture_745524.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Sogou Explorer 6.2.5.21336 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745522.jpg" />
+  <img src="Z:/picture/008/save_picture_745522.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Box Sync 4.0.7415 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745520.jpg" />
+  <img src="Z:/picture/008/save_picture_745520.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ JottaCloud 3.1.49.445 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745519.jpg" />
+  <img src="Z:/picture/008/save_picture_745519.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745515.jpg" />
+  <img src="Z:/picture/008/save_picture_745515.jpg" />
 </div>
 
 

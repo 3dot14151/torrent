@@ -6,7 +6,7 @@ Promare | Промар [2019, Movie] Blu-ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14922.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14541.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14436.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14208.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14199.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Berserk: Ougon Jidai Hen III - Kourin | Берсерк: Сошествие | Ber
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13608.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12540.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9935.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4838.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4527.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2447.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1305.jpg" />
 </div>
 
 

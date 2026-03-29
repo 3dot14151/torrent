@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880547.jpg" />
+  <img src="Z:/picture/005/save_picture_880547.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880546.jpg" />
+  <img src="Z:/picture/005/save_picture_880546.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880544.jpg" />
+  <img src="Z:/picture/005/save_picture_880544.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880543.jpg" />
+  <img src="Z:/picture/005/save_picture_880543.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ActivePresenter Pro Edition 8.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880540.jpg" />
+  <img src="Z:/picture/005/save_picture_880540.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ OpenShot 2.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880523.jpg" />
+  <img src="Z:/picture/005/save_picture_880523.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Cisdem ContactsMate 5 v5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880488.jpg" />
+  <img src="Z:/picture/005/save_picture_880488.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Tagr 5 v5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880477.jpg" />
+  <img src="Z:/picture/005/save_picture_880477.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ IObit Uninstaller Pro 11.0.1.14 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880473.jpg" />
+  <img src="Z:/picture/005/save_picture_880473.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sandboxie 5.51.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880466.jpg" />
+  <img src="Z:/picture/005/save_picture_880466.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Arturia V Collection 8 8.4.1 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880465.jpg" />
+  <img src="Z:/picture/008/save_picture_880465.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ KeePassXC 2.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880462.jpg" />
+  <img src="Z:/picture/005/save_picture_880462.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.29.30133.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880455.jpg" />
+  <img src="Z:/picture/005/save_picture_880455.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Mini Metro gamma5 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880448.jpg" />
+  <img src="Z:/picture/005/save_picture_880448.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe components:  Flash Player 21.0.0.182 | AIR 21.0.0.176 | Shockwave Player 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880445.jpg" />
+  <img src="Z:/picture/005/save_picture_880445.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Adobe Animate CC 2015.1 15.1.1.13 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880440.jpg" />
+  <img src="Z:/picture/005/save_picture_880440.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Mirror for Hisense TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880433.jpg" />
+  <img src="Z:/picture/005/save_picture_880433.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Soulver 3 v3.3.0[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880430.jpg" />
+  <img src="Z:/picture/005/save_picture_880430.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Librarian Pro 5 v5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880429.jpg" />
+  <img src="Z:/picture/005/save_picture_880429.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Renamer 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880426.jpg" />
+  <img src="Z:/picture/005/save_picture_880426.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ WinX HD Video Converter for Mac 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880423.jpg" />
+  <img src="Z:/picture/005/save_picture_880423.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Touch Blur 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880419.jpg" />
+  <img src="Z:/picture/005/save_picture_880419.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PrivaZer 3.0.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880416.jpg" />
+  <img src="Z:/picture/005/save_picture_880416.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Elmedia Player Pro 7.9  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880415.jpg" />
+  <img src="Z:/picture/005/save_picture_880415.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ FoneDog Toolkit for Android 2.0.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880414.jpg" />
+  <img src="Z:/picture/005/save_picture_880414.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880405.jpg" />
+  <img src="Z:/picture/008/save_picture_880405.jpg" />
 </div>
 
 

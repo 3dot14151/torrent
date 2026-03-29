@@ -1,3 +1,114 @@
+###  Публикация: 1428022   (181612) от 30.11.2020
+
+Dato 2.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 10.15.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA97B57169E8571E264DF78C03A22FC7618B70FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428037   (181598) от 30.11.2020
+
+MenuBar Stats 3 v3.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181598.jpg" />
+</div>
+
+
+###  Подробнее
+
+MenuBar Stats - системный монитор, очистка памяти и здоровье батареи.
+Каждый модуль можно увидеть в строке меню. Каждый модуль может быть объединен в 1 окне, или в отдельном окне.
+
+Вы можете отобразить краткую информацию или максимум подробной информации, включая графики, топ-процессы и многое другое. Получать уведомления для вашего здоровья или батареи от других (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2020Разработчик: Fabrice LeyneПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42452D467850AB85D31E0195B3D86169C8944944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427950   (181592) от 30.11.2020
+
+Mountain Duck 4.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
+
+В приложении реализована поддержка всех основных протоколов для подключения к любому серверу.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2020Разработчик: David KocherПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F383A1D9E197B055D0331DD76C1489BFFF59AD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428035   (181578) от 30.11.2020
+
+JPEG Jackal 2.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь JPEG Jackal! JPEG Jackal простой, но мощный и быстрый инструмент для домашнего и профессионального использования, который поможет вам оптимизировать размер изображений и сэкономить дисковое пространство. Он использует специальный алгоритм сжатия, чтобы дать вам самое лучшее качество в формате JPEG.Тип издания: OS X SoftwareРелиз состоялся: 25.11.2020Разработчик: Pavel KosykhПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E162136B2DAAEA91CF2F61000BE5D5AEAC67F0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428038   (181540) от 30.11.2020
 
 Moom 3.2.20 [En]
@@ -6,7 +117,7 @@ Moom 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181540.jpg" />
+  <img src="Z:/picture/005/save_picture_181540.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ Faronics Deep Freeze 7 v7.30.220.0207 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181515.jpg" />
+  <img src="Z:/picture/005/save_picture_181515.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ Wondershare Filmora Х v10.1.3.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181426.jpg" />
+  <img src="Z:/picture/005/save_picture_181426.jpg" />
 </div>
 
 
@@ -86,7 +197,7 @@ Sharks 3D 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181378.jpg" />
+  <img src="Z:/picture/005/save_picture_181378.jpg" />
 </div>
 
 
@@ -112,7 +223,7 @@ FruitJuice - Active Battery Health and Monitoring 2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181300.jpg" />
+  <img src="Z:/picture/005/save_picture_181300.jpg" />
 </div>
 
 
@@ -139,7 +250,7 @@ Texpad 1.8.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180982.jpg" />
+  <img src="Z:/picture/005/save_picture_180982.jpg" />
 </div>
 
 
@@ -165,7 +276,7 @@ Scherlokk - Files finder 4 v4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180976.jpg" />
+  <img src="Z:/picture/005/save_picture_180976.jpg" />
 </div>
 
 
@@ -191,7 +302,7 @@ Comic Collector 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180974.jpg" />
+  <img src="Z:/picture/005/save_picture_180974.jpg" />
 </div>
 
 
@@ -217,7 +328,7 @@ Cisdem DVDBurner 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180957.jpg" />
+  <img src="Z:/picture/005/save_picture_180957.jpg" />
 </div>
 
 
@@ -243,7 +354,7 @@ Music Collector Pro 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180954.jpg" />
+  <img src="Z:/picture/005/save_picture_180954.jpg" />
 </div>
 
 
@@ -269,7 +380,7 @@ Duplicate File Finder Pro 6.11  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180951.jpg" />
+  <img src="Z:/picture/005/save_picture_180951.jpg" />
 </div>
 
 
@@ -298,7 +409,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180937.jpg" />
+  <img src="Z:/picture/005/save_picture_180937.jpg" />
 </div>
 
 
@@ -326,7 +437,7 @@ Book Collector Pro 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180929.jpg" />
+  <img src="Z:/picture/005/save_picture_180929.jpg" />
 </div>
 
 
@@ -352,7 +463,7 @@ Cisdem Video Converter 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180923.jpg" />
+  <img src="Z:/picture/005/save_picture_180923.jpg" />
 </div>
 
 
@@ -379,7 +490,7 @@ PowerPhotos 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180909.jpg" />
+  <img src="Z:/picture/005/save_picture_180909.jpg" />
 </div>
 
 
@@ -405,7 +516,7 @@ Coherence X 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180900.jpg" />
+  <img src="Z:/picture/005/save_picture_180900.jpg" />
 </div>
 
 
@@ -431,7 +542,7 @@ FontLab 7 v7.2.0.7622 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180896.jpg" />
+  <img src="Z:/picture/005/save_picture_180896.jpg" />
 </div>
 
 
@@ -459,7 +570,7 @@ Eon Timer 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180879.jpg" />
+  <img src="Z:/picture/005/save_picture_180879.jpg" />
 </div>
 
 
@@ -485,7 +596,7 @@ Money Pro - Personal Finance 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180876.jpg" />
+  <img src="Z:/picture/005/save_picture_180876.jpg" />
 </div>
 
 
@@ -513,7 +624,7 @@ Art Text 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180835.jpg" />
+  <img src="Z:/picture/005/save_picture_180835.jpg" />
 </div>
 
 
@@ -542,7 +653,7 @@ Export for iTunes 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180819.jpg" />
+  <img src="Z:/picture/005/save_picture_180819.jpg" />
 </div>
 
 
@@ -568,7 +679,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180814.jpg" />
+  <img src="Z:/picture/005/save_picture_180814.jpg" />
 </div>
 
 
@@ -580,112 +691,6 @@ Capto (was Voila) - профессиональная программа для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54BAC2043BC472B60228EBA63E43A87AB552009C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428173   (180801) от 01.12.2020
-
-Principle 5.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Hooper Software LLCПоддерживаемая ОС: 10.13 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ADC1D7C16DFFCAF241C11F38DB8958A12BF700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428081   (180734) от 01.12.2020
-
-Movavi Video Suite for Mac 2021 v21.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Suite 2021 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A0F7571031C816083417717CBAD21AE2CEB9ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428311   (180724) от 01.12.2020
-
-Pixelmator Pro 2.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-
-Много неразрушающих про-инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6185695C64922DD36501C22A7E1A5BBDF170914F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428181   (180720) от 01.12.2020
-
-Movavi Screen Recorder 21.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая и функциональная программа для записи всего, что происходит на экране вашего Mac. Захватывайте и сохраняйте на жесткий диск видео и музыку из интернета, записывайте разговоры в Skype и игровой процесс, создавайте собственные видеоуроки. Программа крайне проста в освоении и не требует никаких специальных навыков. Установите настройки записи, снимите видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: Mac OS Х® 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE04ACF77C8566927CC3C96E8A3AF5F32648C6A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

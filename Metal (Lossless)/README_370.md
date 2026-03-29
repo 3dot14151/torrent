@@ -1,3 +1,90 @@
+###  Публикация: 1796464   (66964) от 10.05.2025
+
+Opia - I Welcome Thee, Eternal Sleep (2025) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Pristine Memories
+02. On Death's Door Part I
+03. Man Proposes, God Disposes
+04. The Fade(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610F41C271B640A8A4CB75C332084C1F45760BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796637   (66959) от 11.05.2025
+
+Random Hatred - Random Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Doomsday (04:57)
+02 - The Crow (03:47)
+03 - Social Dilusion (03:30)
+04 - Hypocrite (03:24)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B668ED9104D296A4B1FB1DBAD735FDEF6B14F6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796604   (66958) от 11.05.2025
+
+Psykosis - Mind Games (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Insanitised (05:13)
+02 - Boiling Point (04:29)
+03 - Hard Reset (04:02)
+04 - Tossed to the Dogs (04:18)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EC01363A19D6EA1DA15528D4C1A872A1317FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796906   (66903) от 13.05.2025
 
 Dimmu Borgir - Inspiratio Profanus (2023) Compilation, Remastered, Nuclear Blast Records [FLAC|Lossless|image + .cue] <Metal>
@@ -6,7 +93,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) Compilation, Remastered, Nuclear Blast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66903.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Ethernal - Esencia (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Voc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66884.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Chronosynthesis - Echoes Of Forlorn Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66854.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Fates Warning - Disconnected (Expanded Edition) (2000) Reissue, 2023, Metal Blad
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66853.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Samiarus - Reign Destroyer (2025) EP [FLAC|Lossless|WEB-DL|tracks] <Black, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66847.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Interceptor - Metal Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66846.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Running Death - Overdrive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66830.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Echosoul - The Time of the Dragon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66820.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Deep Sun - Storyteller (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66811.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Katagory V - Awaken A New Age Of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66729.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Supreme Void - Towards Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66727.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ The Storyteller - The Final Stand (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66724.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Zealotry - The Last Witness (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66662.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Warfield - With the Old Breed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66656.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66648.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Savage Oath - Divine Battle (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66617.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Tokyo Blade - Knights Of The Blade (2017) 4 x CD, Compilation, Remastered, Hear 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66611.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Onslaught - Origins Of Aggression (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66572.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Fatal Embrace - Hail Down Deep MCMXCVIII (2025) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66567.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Shining - X - Varg Utan Flock (2018) Deluxe Digibox Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66552.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Agressor - The Merciless Onslaught (2004) Compilation [WavPack|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66532.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Deathfucker - God Devourer (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66507.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66506.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Antropomorphia - Devoid of Light (2025) [FLAC|Lossless|image + .cue] <Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62DC7BA6975009605172AE9A46B67AD094238AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799272   (66504) от 26.05.2025
-
-The Ossuary - Requiem for the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrifice (04:29)
- 02. Altar in Black (05:17)
- 03. Far from the Tree (04:57)
- 04. Wishing Well (05:04)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E8E5532EBE5AD59EFDA38E2FD3B4A44DB93C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799435   (66474) от 27.05.2025
-
-Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Cry from the Halls of Blood/Empire of Lost Dreams (A Long Journey Demo, 1991)
-02. A Lonely Ceremony/The Eternal Walk (Very First Recording With the Band, 1990)
-03. Journey in Darkness/Entering the Forest (An Old Rehearsal Recording, 1991)
-04. Castle of No Repair/Lies from a Blackened Heart (A Long Journey Demo, 1991)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCD5DD3E979E06E8740EB13406D610E1E6A70AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798973   (66465) от 27.05.2025
-
-Phantom Elite - MANTIS (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Progressive Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Burn [00:03:41]
-02. Nectar [00:03:31]
-03. Intermission [00:00:59]
-04. Sangre Mala [00:03:36](   Читать дальше...   )Жанр: Alternative Metal, Progressive Metalcore, ElectronicПродолжительность: 00:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0758C06A0BB368B790BE65E8A2400DAC7BD3F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,144 @@
+###  Публикация: 1094380   (930751) от 17.01.2017
+
+Web2App - Turn any website into a desktop application 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930751.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Web2App вы можете превратить ваши любимые веб-сайты и Интернет-услуг в реальные настольные приложения.
+Просто введите URL-адрес, название приложения и ваш сайт станет реальным приложением рабочего стола, который отображается в Dock или меню баре. Вы можете использовать настольный компьютер или мобильную версию сайта.
+
+Прекратите тратить деньги на приложения, которые (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 января 2017Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B4BD3916E432729C469F6F2CB7EA91C2916296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094188   (930732) от 17.01.2017
+
+M3 Drive Mounter 2.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930732.jpg" />
+</div>
+
+
+###  Подробнее
+
+M3 Drive Mounter позволяет монтировать, демонтировать, или извлечь сетевой диск или внешний жесткий диск с помощью одного щелчка мыши.
+
+- Присоедините сетевые диски только один раз, установить его и забыть
+- Автоматическое обнаружение сетевых дисков и их подключение(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 января 2017Разработчик: Sichuan Hengxintong Software Co. Ltd.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E79300130583F6980E1AE7CAF763384AEC0335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094087   (930718) от 17.01.2017
+
+VideoGIF 2.0.8 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930718.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoGIF - самое быстрое приложение, которое позволяет создавать анимированные GIF-файлы путем обрезки любой части из видео / фильма.
+
+ Чтобы приступить к работе, вы можете добавить видео из видео файлов или веб-камеры. Вы можете выбрать цвет, применять фильтры, обрезать и изменить размер видеоклипа. Можно также добавить текст, регулировать скорость GIF и просматривать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2016Разработчик: PearlMountain Technology Co., LtdПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7AC900CD3B670F6EC327219C853C61C0D7EF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365535   (930568) от 07.03.2020
+
+Mac FoneLab Android Data Recovery 3.1.6 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mac FoneLab for Android Восстановление мобильных телефонов и планшетов. Позволяет восстановить: фотографии, аудио, видео, СМС и ММС сообщения, контакты, журнал вызовов, заметки, календарь, закладки браузера и другие типы данных удаленные, отформатированные или испорченные, при неудачном обновлении или потере мобильного телефона и планшета.
+
+Поддержка более 10 типов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Aiseesoft Studio.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3661B22CCC4DF5D5CCF26C3DFCEBAA26D29E6296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094210   (930468) от 17.01.2017
+
+Photo Album Templates for Photoshop-Alungu Designs 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Album Templates for Photoshop-Alungu Designs  - коллекция scrapbook-шаблонов
+В наборе предоставлено множество способов отображения Ваших фотографий и возможность показать свою креативность с помощью стильных и современных решений. Photo Album Templates for Photoshop-Alungu Designs подойдут как опытным пользователям, так и новичкам. Photo Album Templates for (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Alungu UABПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB35BF404EC919E1803E01F7D2812DE2FB1EC64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094581   (929284) от 18.01.2017
 
 Instastack for Instagram 3.5 [En]
@@ -6,7 +147,7 @@ Instastack for Instagram 3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929284.jpg" />
 </div>
 
 
@@ -35,7 +176,7 @@ Debit & Credit - Personal Finance Manager 2.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929199.jpg" />
 </div>
 
 
@@ -63,7 +204,7 @@ GG Audio Blue3 v2.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928938.jpg" />
 </div>
 
 
@@ -90,7 +231,7 @@ CleanMyDrive 2 v2.1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928885.jpg" />
 </div>
 
 
@@ -116,7 +257,7 @@ Yummy FTP Watcher 2.2.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927790.jpg" />
 </div>
 
 
@@ -144,7 +285,7 @@ Elements for iWork - Template by Jumsoft 3.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927787.jpg" />
 </div>
 
 
@@ -170,7 +311,7 @@ Themes for Keynote - Templates by Jumsoft 5.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927780.jpg" />
 </div>
 
 
@@ -198,7 +339,7 @@ Yummy FTP Pro 1.11.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927654.jpg" />
 </div>
 
 
@@ -227,7 +368,7 @@ CCleaner Pro 1.12.339 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927593.jpg" />
 </div>
 
 
@@ -254,7 +395,7 @@ Boxshot Ultimate 4.9 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927546.jpg" />
 </div>
 
 
@@ -281,7 +422,7 @@ Marked 2 v2.5.39 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927484.jpg" />
 </div>
 
 
@@ -308,7 +449,7 @@ Versatil Markdown 2.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927249.jpg" />
 </div>
 
 
@@ -334,7 +475,7 @@ Playr 2.7  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927227.jpg" />
 </div>
 
 
@@ -361,7 +502,7 @@ ArtRage 6 v6.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927125.jpg" />
 </div>
 
 
@@ -387,7 +528,7 @@ Adobe XD v42.0.22 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926670.jpg" />
 </div>
 
 
@@ -414,7 +555,7 @@ Adobe After Effects 2020 v18.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926537.jpg" />
 </div>
 
 
@@ -441,7 +582,7 @@ Adobe Premiere Pro 2021 v15.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926530.jpg" />
 </div>
 
 
@@ -467,7 +608,7 @@ PDFpenPro 7.3.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926016.jpg" />
 </div>
 
 
@@ -495,7 +636,7 @@ FileMaker Pro Advanced 15.0.3.305 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925998.jpg" />
 </div>
 
 
@@ -524,7 +665,7 @@ FileMaker Server 15.0.3.308 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925967.jpg" />
 </div>
 
 
@@ -551,7 +692,7 @@ WhatSize 6.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925910.jpg" />
 </div>
 
 
@@ -562,141 +703,6 @@ WhatSize - небольшое приложение выводит на экра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:080E04FB8CFDC90375CB5E12CD127E654382E6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489540   (925308) от 16.08.2021
-
-PictureCode Photo Ninja 1.4.0d Latest pre-release [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Ninja - обработчик файлов в формате Raw.
-Photo Ninja - это RAW конвертер, который обеспечивает высокое внимание к деталям, высокое качество изображения и их естественный вид. Photo Ninja предлагает пользователям целый пакет, с помощью которого вы сможете приводить свои фотографии в естественный вид. Все это и многое другое вы получите вместе с конвертером Photo (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2021Разработчик: PictureCode LLC.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59835EED5D51F4D9287F01E37915BC1DAF884BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987866   (924395) от 18.02.2016
-
-Espionage 3.6.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Espionage - симпатичная и простая в использовании утилита для шифрования папок в OS X.
-Конечно, можно создать специальный защищенный образ средствами самой операционной системы, но весь процесс неудобен при ежедневном использовании.
-
-Espionage работает очень просто, все, что нужно сделать - перенести нужную папку на иконку утилиты, после чего установить пароль. Утилита (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 февраля 2016Разработчик: TAO EffectПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCEAA389272D179DA30AC222F0B1763C68B3A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366468   (924131) от 11.03.2020
-
-A Better Finder Rename 10 v10.46 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924131.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2020Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A59A25E9857ADE3D724D610A545A0B49DCA496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489744   (924074) от 17.08.2021
-
-Video Snapshot&Collage for Mac 2.3 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный, высококачественный и простой в использовании инструмент для создания снимков и монтажа видео.Тип издания: macOS SoftwareРелиз состоялся: 16.08.2021Разработчик: Dummy AppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9902CB40FD7B634E08E3D4BEDA4832B295DF5E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489769   (924069) от 17.08.2021
-
-Cisdem Document Reader 5 v5.5.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem DocumentReader позволяет читать, печатать, сохранять файлы: WPD, WPS, XPS, Visio PDF на Вашем Mac. Приложение позволяет Вам использовать различные стили просмотра с помощью панели инструментов, состоящий из режимов просмотра, панели поиска, навигации по страницам, масштабирования, поворота, а так же функций: сохранить, копировать и т.д. Вы можете персонализировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2021Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788BC838D6E70DDA48ADE52CEA4D3793082A9C61
 ```
 
 https://mybot314.ru/tekegram_catalog/

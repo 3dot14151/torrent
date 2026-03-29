@@ -1,3 +1,29 @@
+###  Публикация: 1221396   (574409) от 03.07.2018
+
+Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: История тысячи столетий [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кома Дзингудзи по прозвищу Джей умён, хорош собой и вообще президент студсовета, а его прекрасная улыбка заставляет трепетать женские сердца. Цубаса Хаякава — всесторонне одарённый и вежливый бариста; его латте с изображениями совушек весьма популярен среди посетительниц кафе. А ещё эти двое путешествуют сквозь время, чтобы одолеть некоего главного врага. Так очаровательные (   Читать дальше...   )Производство: Студия Silver LinkЖанр: приключенияРежиссер: Такахаси КэнПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD09AE7768D4C3E70B2174D885C845494C99DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221322   (574089) от 03.07.2018
 
 Fumikiri Jikan | Crossing Time | Ожидание на железнодорожном переходе [2018, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Fumikiri Jikan | Crossing Time | Ожидание на железнодорож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574089.jpg" />
+  <img src="Z:/picture/008/save_picture_574089.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dorei-ku The Animation | Doreiku the Animation | Я и 23 раба [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573964.jpg" />
+  <img src="Z:/picture/008/save_picture_573964.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Гала
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572400.jpg" />
+  <img src="Z:/picture/008/save_picture_572400.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571819.jpg" />
+  <img src="Z:/picture/008/save_picture_571819.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Guilty Crown / Корона греха [2011, TV, 22] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571367.jpg" />
+  <img src="Z:/picture/008/save_picture_571367.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Rokuhoudou Yotsuiro Biyori | Чайная «Рокуходо» [2018, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570617.jpg" />
+  <img src="Z:/picture/008/save_picture_570617.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Last Period: Owarinaki Rasen no Monogatari | Last Period: The Journey to the End
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570465.jpg" />
+  <img src="Z:/picture/008/save_picture_570465.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Sword Art Online Alternative: Gun Gale Online / Мастера меча онла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570443.jpg" />
+  <img src="Z:/picture/008/save_picture_570443.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Piano no Mori (2018) | Рояль в лесу [ТВ] [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569088.jpg" />
+  <img src="Z:/picture/008/save_picture_569088.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Hisone to Masotan | Dragon Pilot: Hisone and Masotan | Хисонэ и Масо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569072.jpg" />
+  <img src="Z:/picture/008/save_picture_569072.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Atom: The Beginning / Атом: Начало [2017, TV, 12 из 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559195.jpg" />
+  <img src="Z:/picture/008/save_picture_559195.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC / Мелодия воронё�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558757.jpg" />
+  <img src="Z:/picture/008/save_picture_558757.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556120.jpg" />
+  <img src="Z:/picture/008/save_picture_556120.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556035.jpg" />
+  <img src="Z:/picture/008/save_picture_556035.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555921.jpg" />
+  <img src="Z:/picture/008/save_picture_555921.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555918.jpg" />
+  <img src="Z:/picture/008/save_picture_555918.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Selector Infected WIXOSS | Селектор: заражение WIXOSS [ТВ-1][
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555917.jpg" />
+  <img src="Z:/picture/008/save_picture_555917.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555913.jpg" />
+  <img src="Z:/picture/008/save_picture_555913.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553038.jpg" />
+  <img src="Z:/picture/008/save_picture_553038.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Hi no Tori 2772: Ai no CosmoZone / Phoenix 2772: Cosmo Song of Love / Жар-п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553034.jpg" />
+  <img src="Z:/picture/008/save_picture_553034.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Pocket Monsters (Pokemon) XY / Карманные Монстры (Покемон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552567.jpg" />
+  <img src="Z:/picture/008/save_picture_552567.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Hanamonogatari / История Цветов [2014, SP] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551081.jpg" />
+  <img src="Z:/picture/008/save_picture_551081.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Seikaisuru Kado | Seikai Suru Kado | Kado: The Right Answer | Правильны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548741.jpg" />
+  <img src="Z:/picture/008/save_picture_548741.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548389.jpg" />
+  <img src="Z:/picture/008/save_picture_548389.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Nobunaga-sensei no Osanazuma | Nobunaga Teacher's Young Bride | Молодая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547560.jpg" />
+  <img src="Z:/picture/008/save_picture_547560.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Nobunaga-sensei no Osanazuma | Nobunaga Teacher's Young Bride | Молодая �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F70899A7A6639B9D618708732C0F0825205E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674797   (547341) от 28.08.2013
-
-Overman King-Gainer / Король Гэйнер [2002, TV, 26 из 26] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547341.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате глобальной катастрофы на а земле опять воцарился ледниковый период. Люди живут среди бескрайних снежных равнин Сибири в городах "домеполисах". В одном таком домеполисе Уругске живёт простой парень Гэйнер Санга , которого арестовывают и несправедливо обвиняют в причастности к ИСХОДУ (незаконному движению ратующему за возвращению на историческую родину Японию). Санге удаётся бежать из тюрьмы с помощью настоящего члена ИСХОДА по прозвищу Чёрный Крест. Заодно ему удаётся, прихватить боевую био-меху "овермэна" и местную принцессу. В это же время начинается массовый исход Уругска. Не видя другого выхода Санга присоединяется к исходу. Вместе со всем городом он отправляется к "земле обетованной".Жанр: приключения, фантастика, меха, комедияРежиссер: Tomino Yoshiyuki  / Томино ЙошиюкиПеревод: субтитры русские внешние; с серии 1-7 (.ass от Tempest) с 8-12 (.srt от Il Palazzo-sama)Продолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21718E89BAE09C096FE9A0A6EC58ED482F8E4D2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

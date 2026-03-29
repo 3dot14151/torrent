@@ -6,7 +6,7 @@ Microsoft Edge 95.0.1020.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793980.jpg" />
+  <img src="Z:/picture/008/save_picture_793980.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793979.jpg" />
+  <img src="Z:/picture/008/save_picture_793979.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Video Converter Ultimate 10.3.16 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793965.jpg" />
+  <img src="Z:/picture/008/save_picture_793965.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chromium 66.0.3326.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793959.jpg" />
+  <img src="Z:/picture/008/save_picture_793959.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ant Download Manager PRO 1.7.2 Build 48121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793951.jpg" />
+  <img src="Z:/picture/008/save_picture_793951.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793945.jpg" />
+  <img src="Z:/picture/008/save_picture_793945.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793939.jpg" />
+  <img src="Z:/picture/008/save_picture_793939.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793928.jpg" />
+  <img src="Z:/picture/008/save_picture_793928.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ CREATIVE: Wallpapers, Ringtones and Homescreen 3.0.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793904.jpg" />
+  <img src="Z:/picture/008/save_picture_793904.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793902.jpg" />
+  <img src="Z:/picture/008/save_picture_793902.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793901.jpg" />
+  <img src="Z:/picture/008/save_picture_793901.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793897.jpg" />
+  <img src="Z:/picture/008/save_picture_793897.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ K-Lite Codec Pack Update 13.7.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793891.jpg" />
+  <img src="Z:/picture/008/save_picture_793891.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Winclone Pro 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793889.jpg" />
+  <img src="Z:/picture/008/save_picture_793889.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ GPU-Z 2.7.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793887.jpg" />
+  <img src="Z:/picture/008/save_picture_793887.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ WSCC (Windows System Control Center) 7.0.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793859.jpg" />
+  <img src="Z:/picture/008/save_picture_793859.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793853.jpg" />
+  <img src="Z:/picture/008/save_picture_793853.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793851.jpg" />
+  <img src="Z:/picture/008/save_picture_793851.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793849.jpg" />
+  <img src="Z:/picture/008/save_picture_793849.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793845.jpg" />
+  <img src="Z:/picture/008/save_picture_793845.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793843.jpg" />
+  <img src="Z:/picture/008/save_picture_793843.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Whos Afraid of 138! Top 15 (2016-05) (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793841.jpg" />
+  <img src="Z:/picture/008/save_picture_793841.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Trance Hits Top 20 2016-05 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793839.jpg" />
+  <img src="Z:/picture/008/save_picture_793839.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - 3 Year Suanda (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793837.jpg" />
+  <img src="Z:/picture/008/save_picture_793837.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Trance Hits Top 20 2016-04 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793830.jpg" />
+  <img src="Z:/picture/008/save_picture_793830.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Suanda Underground Vol. 2 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793827.jpg" />
+  <img src="Z:/picture/008/save_picture_793827.jpg" />
 </div>
 
 

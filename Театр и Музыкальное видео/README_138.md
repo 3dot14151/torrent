@@ -1,3 +1,177 @@
+###  Публикация: 1730157   (52985) от 17.06.2024
+
+BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52985.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+Концерт группы в Studio Coast, состоявшийся 24 ноября 2017 и выпущенный на бонусном Blu-Ray диске к лимитированному изданию альбома "World Domination".01. Intro
+02. Choose me
+03. Don't you tell ME
+04. Moratoriamu (モラトリアム)(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFA93098CDC3F331320E74643F5244089074B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730212   (52978) от 17.06.2024
+
+BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public Hall) (2020) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52978.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+Концерт группы в Line Cube Shibuya (Shibuya Public Hall), состоявшийся 14 февраля 2020 и выпущенный на Blu-Ray диске 29 апреля 2020.01. Maid Waltz
+02. Rinne (Reincarnation. 輪廻)
+03. Blooming
+04. Screaming(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 01:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C39AF8EF5787B4C0B3FA021689DB0BF35EBB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730910   (52809) от 19.06.2024
+
+BAND-MAID - Tokyo Garden Theater OKYUJI (2023) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52809.jpg" />
+</div>
+
+
+###  Подробнее
+
+BAND-MAID — японская хард-рок-группа, сформированная в 2013 году. Группа сочетает в себе рок и образ горничной, подобный японским мэйдо-кафе.
+Концерт группы в Tokyo Garden Theater, состоявшийся 9 января 2023 и выпущенный на Blu-Ray диске 26 апреля 2023.01. Intro
+02. Unleash!!!!!
+03. Play (with MISA/Kanami battle and Akane's solo)
+04. Influencer(   Читать дальше...   )Производство: ЯпонияЖанр: Hard rockУчастники: Саики Ацуми, Мику Кубато, Канами Тоно, Аканэ Хиросэ, МисаПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4812C048CB09EE76B73AAA2FEAB94545D51DE88B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731165   (52775) от 19.06.2024
+
+МузЛофт / МузLoft. Евгений Дятлов (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая глыба актерского и песенного мастерства, человек-история и солист той самой группы АукцЫон, песню которой все знают, потому что она играла в фильме Брат 2. В общем наслаждайтесь песнями и байками со съемок от Евгения Валерьевича Дятлова.Производство: Россия | Y-GenerationУчастники: Евгений ДятловПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FA00CB4C90BBAE26E3ED7447E6187424ECB9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966835   (52622) от 21.06.2024
+
+Виктор Цой - Просто хочешь ты знать (2006) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-концерт о творчестве Виктора Цоя. С элементами мультипликации, компьютерной графики и спецэффектов. Автор фильма разговаривает со зрителями полунамеками, незаконченными фразами. Кто жил в то время все поймет и так, а кто знаком с тем временем только по рассказам старших товарищей, имеет шанс не только увидеть, но и почувствовать истинный дух, энергетику того (   Читать дальше...   )01. Просто хочешь ты знать
+02. Бездельник
+03. Камчатка
+04. Генерал(   Читать дальше...   )Производство: Россия, Аэроплан-фильм, MOROZ RECORDSЖанр: Документальный, Фильм-концертРежиссер: Олег ФлянгольцАктеры: Виктор Цой, Борис Гребенщиков, Майк Науменко, Андрей Панов, Георгий Гурьянов, Юрий Каспарян, Игорь ТихомировПродолжительность: 01:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB79C4FC1EFF72E542D7612991D456709B2D5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605528   (52447) от 23.06.2024
+
+Кино и Виктор Цой - Концерт в СКК "Олимпийский" (5.05.1990) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет запись одного из последних концертов Виктора Цоя и гр. "Кино", прошедшего 5 мая 1990 года в московском спорткомплексе "Олимпийский". Через три с половиной месяца легендарный советский рок-музыкант погиб.01. Группа крови
+02. Песня без слов
+03. Звезда по имени Солнце
+04. Закрой за мной дверь(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4342A8E2377BA6AAF2271BC7AB6075753EEEC61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732251   (52254) от 24.06.2024
 
 Последний концерт группы «Кино».  Лужники, 24 июня 1990 (2015) WEBRip [H.264]
@@ -6,7 +180,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52254.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51680.jpg" />
 </div>
 
 
@@ -61,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51666.jpg" />
 </div>
 
 
@@ -88,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51663.jpg" />
 </div>
 
 
@@ -114,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51655.jpg" />
 </div>
 
 
@@ -141,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51650.jpg" />
 </div>
 
 
@@ -170,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51576.jpg" />
 </div>
 
 
@@ -198,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51559.jpg" />
 </div>
 
 
@@ -224,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51557.jpg" />
 </div>
 
 
@@ -250,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51556.jpg" />
 </div>
 
 
@@ -277,7 +451,7 @@ Chris Isaak  "BEST OF" (2006) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51554.jpg" />
 </div>
 
 
@@ -306,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51546.jpg" />
 </div>
 
 
@@ -333,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51538.jpg" />
 </div>
 
 
@@ -361,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51535.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51528.jpg" />
 </div>
 
 
@@ -420,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51524.jpg" />
 </div>
 
 
@@ -446,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51521.jpg" />
 </div>
 
 
@@ -473,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51514.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51509.jpg" />
 </div>
 
 
@@ -525,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51508.jpg" />
 </div>
 
 
@@ -539,165 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:775DD1CADFA58396DD2F884CB644E7882A89B229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541389   (51507) от 30.06.2024
-
-Свой остров (2 действия) (1974) SATRip (Современник)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Московского театра Современник по пьесе эстонского драматурга Раймонда Каугвера "Свой остров". Для спектакля Владимир Высоцкий написал песню – "Отплываем в тёплый край навсегда..." (в исполнении И. Кваши). Другие песни, предложенные в спектакль, исполнялись Высоцким и ранее ...Жанр: Телеспектакль, драмаРежиссер: Галина ВолчекАктеры: Олег Шкловский, Игорь Кваша, Сергей Сазонтьев, Алексей Кутузов, Валерий Хлевинский, Людмила Крылова, Анастасия Вознесенская, Тамара Дегтярева, Геннадий Фролов, Алла Покровская, Андрей Мягков, Герман Коваленко, Марина Неёлова, Станислав Садальский, Борис СморчковПродолжительность: 01:11:12 + 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2142AA849AFC982431BCF0250A97C82C7577E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662332   (51502) от 30.06.2024
-
-Трактирщица (1975) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бессмертная комедия Карло Гольдони.
-Прекрасная трактирщица Мирандолина привередливо выбирает себе мужа. Вокруг нее крутится множество прощелыг и фатов, но она решает покорить сердце единственного среди них женоненавистника – кавалера ди Риппафратту. Однако сердце красавицы само не знает, чего хочет. Едва влюбив в себя кавалера, Мирандолина выходит замуж за собственного (   Читать дальше...   )Жанр: Телеспектакль, КомедияРежиссер: Александр БелинскийАктеры: Наталья Гундарева, Евгений Лазарев, Олег Вавилов, Никита Подгорный, Юрий Каюров, Владимир СальниковПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8D75F00D7D120271DA06B6D7F8CC209BF016BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207727   (51471) от 01.07.2024
-
-Сирано де Бержерак (1983) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из популярных комедий французского драматурга Э.Ростана. Она не сходит с театральных подмостков со времени ее написания. Телеспектакль с Георгием Тараторкиным в роли Сирано поставил режиссер С.Евлахишвили. И после уже имевшихся разных театральных постановок предложение режиссера Георгия Тараторкина – сыграть роль Сирано даже несколько напугало – не очень-то (   Читать дальше...   )Жанр: телеспектакль, экранизацияРежиссер: Сергей ЕвлахишвилиАктеры: Георгий Тараторкин, Инна Аленикова, Владимир Симонов, Анатолий Кацинский, Владимир Коваль, Дмитрий Кравцов, Григорий Абрикосов, Валентин Никулин, Луиза Мосендз и др.Перевод: ОригинальныйПродолжительность: 02:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D396757477305E230D74F01807F18A48670740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664605   (51448) от 01.07.2024
-
-Перед заходом солнца (2 части) (1974) SATRip (Малый театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51448.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Г. Гауптмана в постановке Государственного академического Малого театра Союза ССР.
-Пьеса «Перед заходом солнца» относится в бесспорным драматургическим шедеврам, и прежде всего в силу трагедийной масштабности образа главного героя - тайного советника Маттиаса Клаузена. Подобно шекспировскому Королю Лиру, Клаузен на склоне лет сталкивается с предательством (   Читать дальше...   )Жанр: Драма, ТелеспектакльРежиссер: Мария (Мариэтта) Муат, Леонид ХейфецАктеры: Михаил Царев, Никита Подгорный, Юрий Васильев, Муза Седова, Лилия Юдина, Виталий Коняев, Ирина Ликсо, Наталья Вилькина, Елена Гоголева, Георгий Куликов, Пров Садовский (III), Николай Афанасьев, Евгений Велихов, Сергей Харченко, Аркадий Смирнов, Александр Пронин, Михаил Садовский, Иван Верейский, Владимир Богин, Маргарита ФоминаПродолжительность: 02:43:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173379   (51447) от 01.07.2024
-
-Порт-Артур (1964) SATRip (серии 1-3 из 3)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51447.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе И. Попова и Л. Степанова в постановке Государственного академического Малого театра Союза ССР.Производство: СССРЖанр: Драма, экранизация, телеспектакльРежиссер: К.Зубов, П.МарковАктеры: Николай Анненков, Виктор Шарлахов, Юлия Бурыгина, Борис Горбатов, Вера Донская, Виталий Доронин, Владимир Кенигсон, Сергей Конов, Виталий Коняев и др.Субтитры: ОтсутствуютПродолжительность: ~00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653D4B1B42FFDB0C95A5CADC6986A0E0B6E42CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664225   (51423) от 01.07.2024
-
-Равняется четырем Франциям (2 части) (1986) SATRip (Театр на Малой Бронной)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия спектакля Московского театра на Малой Бронной по одноименной пьесе Александра Мишарина о спасении в 1974 году в Чукотском море сухогруза «Челюскинец».
-В море терпит бедствие сухогруз "Челюскинец", а руководители равняющегося четырем Франциям края, от которых зависит сейчас столь многое, скрупулезно и вдумчиво решают вопрос о том, давать ли "SOS", (   Читать дальше...   )Жанр: Мелодрама, телеспектакльРежиссер: Александр МишаринАктеры: Леонид Броневой, Николай Волков, Георгий Мартынюк, Юрий Катин-Ярцев, Всеволод Платов, Григорий Лямпе, Анатолий Грачёв, Иван Шабалтас, Анна Антоненко-ЛуконинаПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C7C061CC79418C20C763C1207ECD6675C8015F
 ```
 
 https://mybot314.ru/tekegram_catalog/

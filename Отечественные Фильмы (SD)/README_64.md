@@ -1,3 +1,29 @@
+###  Публикация: 1299419   (597192) от 02.05.2019
+
+Заповедник (2018) WEB-DLRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_597192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин, автор песен и виртуозный гитарист, сбегает от накопившихся проблем в заповедник «Михайловское». Костя давно лишился всех способов заработка, почти отчаялся быть услышанным и живет по инерции, часто налегая на алкоголь. Жена и дочь собираются уезжать в Канаду, а в голове бесконечно крутятся вопросы: что именно пошло не так? Как это исправить? Нужно ли (   Читать дальше...   )Производство: Россия, Кинокомпания Сергея БезруковаЖанр: КомедияРежиссер: Анна МатисонАктеры: Сергей Безруков, Евгения Крегжде, Анна Михалкова, Гоша Куценко, Александр Семчев, Дмитрий Хрусталев, Виктор Бычков, Софья Евстигнеева, Ярослава Дегтярёва, Леонид АгутинПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C306B567D57FC91B856FFFF30A348B53CBE94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526614   (596799) от 24.07.2012
 
 Сибирский цирюльник (1998) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596799.jpg" />
+  <img src="Z:/picture/008/save_picture_596799.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596783.jpg" />
+  <img src="Z:/picture/008/save_picture_596783.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596129.jpg" />
+  <img src="Z:/picture/008/save_picture_596129.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595775.jpg" />
+  <img src="Z:/picture/008/save_picture_595775.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595687.jpg" />
+  <img src="Z:/picture/008/save_picture_595687.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594493.jpg" />
+  <img src="Z:/picture/008/save_picture_594493.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594481.jpg" />
+  <img src="Z:/picture/008/save_picture_594481.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594244.jpg" />
+  <img src="Z:/picture/008/save_picture_594244.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593602.jpg" />
+  <img src="Z:/picture/008/save_picture_593602.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593236.jpg" />
+  <img src="Z:/picture/008/save_picture_593236.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592588.jpg" />
+  <img src="Z:/picture/008/save_picture_592588.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592585.jpg" />
+  <img src="Z:/picture/008/save_picture_592585.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591420.jpg" />
+  <img src="Z:/picture/008/save_picture_591420.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591068.jpg" />
+  <img src="Z:/picture/008/save_picture_591068.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590795.jpg" />
+  <img src="Z:/picture/008/save_picture_590795.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589836.jpg" />
+  <img src="Z:/picture/008/save_picture_589836.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589686.jpg" />
+  <img src="Z:/picture/008/save_picture_589686.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589682.jpg" />
+  <img src="Z:/picture/008/save_picture_589682.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589505.jpg" />
+  <img src="Z:/picture/008/save_picture_589505.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589014.jpg" />
+  <img src="Z:/picture/008/save_picture_589014.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588733.jpg" />
+  <img src="Z:/picture/008/save_picture_588733.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588539.jpg" />
+  <img src="Z:/picture/008/save_picture_588539.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587967.jpg" />
+  <img src="Z:/picture/008/save_picture_587967.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587812.jpg" />
+  <img src="Z:/picture/008/save_picture_587812.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587407.jpg" />
+  <img src="Z:/picture/008/save_picture_587407.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809379   (587272) от 01.08.2014
-
-Форт Росс: В поисках приключений (2014) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрыта одна из главных интриг российской истории! Как вышло, что в XIX веке Россия навсегда лишилась своих земель в Северной Америке? Ведь ей принадлежала огромная территория от Аляски до Северной Калифорнии! В поисках ответа группа тележурналистов — интеллектуал Дмитрий, простодушный Фимка и красавица Марго — путешествуют во времени и пространстве, попадая то (   Читать дальше...   )Производство: Россия, Dreamteam MediaЖанр: ПриключенияРежиссер: Юрий МорозАктеры: Максим Матвеев, Анна Старшенбаум, Лайа Коста, Алексей Кирсанов, Максим Виноградов, Артём Ткаченко, Илья Соболев, Александр Петров, Маруся Климова, Кирилл ПлетнёвПеревод: Не требуетсяПродолжительность: 01:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDD1532ECD0CD5AFEB14260BBE6F80B047F7B77
 ```
 
 https://mybot314.ru/tekegram_catalog/

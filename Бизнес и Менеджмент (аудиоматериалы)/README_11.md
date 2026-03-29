@@ -1,3 +1,109 @@
+###  Публикация: 1595780   (174390) от 07.12.2022
+
+Адам Смит | Исследование о природе и причинах богатства народов (2007) [MP3, Евгения Абрамова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя великого шотландца Адама Смита равно чтится всеми современными учеными-экономистами, сколь бы различных точек зрения они не придерживались. Книга «Исследование о природе и причинах богатства народов» (1776 г.) стоила ему девяти лет полного отшельничества и принесла славу «отца экономической науки».
+На CD диске представлены первые две книги его бессмертного труда (   Читать дальше...   )Жанр: БизнесПродолжительность: 09:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A686CAE35C0689240ADA88E7CFD1AA889454EB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596002   (173821) от 08.12.2022
+
+Олег Тиньков | Как стать бизнесменом (2016) [MP3, Денис Гармаш]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олег Тиньков - легенда российского бизнеса, настоящий человек-бренд и яркий, харизматичный лидер. Он построил уже пять успешных компаний в самых разных отраслях и поэтому знает все о том, как начать свое дело с нуля и раскрутить его до бизнеса с многомиллионными, а то и миллиардными оборотами. Можно ли повторить его путь и стать столь же успешным? Можно, уверен Олег. (   Читать дальше...   )Жанр: Бизнес МенеджментПродолжительность: 04:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27C242BB559C9B5B40B9290B3952BEE9FCDC440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668598   (173365) от 13.10.2023
+
+Константин Батанов | Китай для бизнеса (2023) [MP3, Артем Пахомов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая работа китаеведа Константина Батанова, автора бестселлера «Ни хао!», посвящена региональным особенностям Китая: в каждой провинции есть важные культурные нюансы, которые отражаются и на стиле ведения бизнеса. Основываясь на многолетнем опыте работы в Китае, автор дает важные подсказки о том, как общаться с китайскими партнерами и выстраивать рабочие процессы, (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 13:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF41565BDF31D1FEF88283AE7D2E36CB2BD83C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668834   (173191) от 14.10.2023
+
+Марк Даглас | Дисциплинированный трейдер (2018) [MP3, BIGBAG]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173191.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге знаток движущих сил торговли Марк Даглас объясняет, почему большинство трейдеров не готовы перейти на другую (нередко совершенно иную) тактику, без которой на рынке не преуспеть.
+Опираясь на редкую проницательность, приобретенную благодаря личному опыту торговли на товарных рынках, Марк Даглас показывает, почему понятия, усвоенные для преуспевания в (   Читать дальше...   )Жанр: Бизнес. ФинансыИздательство: Аудиокнига своими рукамиПродолжительность: 09:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A129FE5F6D7C57AEBC9CF44FA1716F0E100B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669341   (172840) от 16.10.2023
 
 Николай Казанский | От ассистента до владельца бизнеса (2023) [MP3, Сергей Бельчиков]
@@ -6,7 +112,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172840.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172069.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171731.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171189.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171023.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170948.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169223.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167202.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166443.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165145.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164315.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163285.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163166.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160571.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155613.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153283.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151704.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149235.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147377.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ Harvard Business Review | Как стать эффективным руково�
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145583.jpg" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141392.jpg" />
 </div>
 
 
@@ -564,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139866.jpg" />
 </div>
 
 
@@ -575,116 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E99012CB9A2B75AF12C9B2F7145E35839FAE8527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601332   (137505) от 31.12.2022
-
-Ричард Кох | Принцип 80/20 (2003) [MP3, Петр Каледин]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137505.jpg" />
-</div>
-
-
-###  Подробнее
-
-80 % результатов проистекает из 20 % причин. За 20 % времени мы успеваем сделать 80 % дел. 20 % людей владеют 80 % капитала. 20 % сотрудников, товаров и услуг приносят компании 80 % прибыли. Это золотое правило, которое, осознанно или нет, используют все богатые и успешные люди – и становятся еще богаче и успешнее.
-За 14 лет с момента первой публикации книга «Принцип (   Читать дальше...   )Жанр: Классики психологии, личная эффективностьПродолжительность: 09:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9272D3197616B3C707172EDD550B66D5EE4BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601337   (137467) от 31.12.2022
-
-Бабайкин | Ф*к Ю мани. Как перестать зависеть от денег (2021) [MP3, Кирилл Захарчук]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137467.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 35 лет мои доходы от инвестиций превысили расходы, и я вышел на пенсию.
-В своей первой книге я рассказал о том, как именно мне это удалось. Перед вами вторая часть моей истории.
-Я хочу познакомить вас с удивительным миром самостоятельных пенсионеров. Их много. Их опыт поражает. Их мысли заставляют задуматься.
-Идея книги – рассказать о движении F.I.R.E (financial (   Читать дальше...   )Жанр: Личные финансы, МотивацияПродолжительность: 05:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8D1F605CF770C750E9CF3733E2687108ED748F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825384   (136977) от 17.10.2025
-
-Антон Макурин | Действуй! Как перестать откладывать дела на потом (2010) [MP3, Антон Макурин]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136977.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого аудиокурса вы узнаете о самых главных причинах вашего промедления.
-В этом нет вашей вины – большинство людей делают точно так же. Просто не разобравшись в чем истинная причина проблемы – очень сложно с ней действительно справиться.
-Если вы не понимаете причины своего промедления – то вы не сможете с этим справиться. Тайм менеджмент, самодисциплина (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 03:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D8D4D3A9DDB59A4F693A649EE255117273D0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679625   (134854) от 27.11.2023
-
-Уильям Бернстайн | Манифест инвестора (2017) [MP3, Андрей Барабанщиков]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об основах инвестирования и планирования портфеля. Главное, что пытается донести автор до читателей, заключается в рекомендации никогда не забывать о том, что обвалы рынка случаются. Именно поэтому важно выстраивать долгосрочную (да что там греха таить – и краткосрочную) стратегию таким образом, чтобы они не стали неожиданностью.Жанр: БизнесИздательство: АльпинаПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C451CCB36538AEB4EE4D6A9050FDCCB7126A3A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

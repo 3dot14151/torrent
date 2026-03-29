@@ -1,3 +1,108 @@
+###  Публикация: 1276939   (543267) от 28.06.2019
+
+NG. Настольная книга диктатора / Dictators Rulebook (2018) HDTVRip [H.264/720p-LQ] (2-6 серии из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543267.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Муссолини до Саддама Хусейна, диктаторы участвовали в формировании мира в том виде, в котором мы сейчас его знаем. Но как они это делали? Документальный сериал расскажет о методах, используемых тиранами для управления нациями.Телекомпания: США, National GeographicЖанр: Документальный, биография, история, политикаПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 5 х ~ 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5F464D1E769B6848917F4D25B0E02E837D9612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276936   (543261) от 28.06.2019
+
+NG. Настольная книга диктатора / Dictators Rulebook (2018) HDTVRip (2-6 серии из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543261.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Муссолини до Саддама Хусейна, диктаторы участвовали в формировании мира в том виде, в котором мы сейчас его знаем. Но как они это делали? Документальный сериал расскажет о методах, используемых тиранами для управления нациями.Телекомпания: США, National GeographicЖанр: Документальный, биография, история, политикаПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 5 х ~ 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC31741E58EE841F3C1DC3BC03E4B9E8AE3ECA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154209   (542658) от 29.07.2017
+
+BBC. Город под водой. Павлопетри / City Beneath the Waves: Pavlopetri (2011) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Павлопетри — самый древний из затонувших городов. Он процветал, когда западные цивилизации только зарождались. Международная группа учёных пытается раскрыть тайны, которым более 5 тысяч лет. Это уникальный шанс заглянуть в жизнь древнего города.Производство: Великобритания, British Broadcasting Corporation (BBC) TelevisionЖанр: Документальный, история, исследованияРежиссер: Пол ОлдингПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272B0C54F2D113B015E10142121E605160734AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239070   (542270) от 03.08.2018
+
+NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264/1080i-LQ] (фильмы 9 из 9)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл фильмов о природе и её обитателях.
+Меркантур, Новая Каледония, Французская Гвиана, вот лишь небольшой список уголков дикой природы, где мы побываем с командой National Geographic Channel.Производство: Великобритания, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Сандра Руде, Джулиано Рибейро Сальгадо, Надин Кун и др.Перевод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 9 x ~ 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D819CDD1F33DCE922E9413CFE06A95083F59FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153698   (542219) от 29.07.2017
 
 Метеориты и астероиды. Все что нужно о них знать / Meteorites and asteroids. All you need to know about them (2016) WEBRip [H.264/720p-LQ]
@@ -6,7 +111,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542219.jpg" />
+  <img src="Z:/picture/008/save_picture_542219.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ NG: Как это связано? От мечей до беспилотнико�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542144.jpg" />
+  <img src="Z:/picture/008/save_picture_542144.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Discovery:  Жизнь отвратительных животных / Nasty by 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542139.jpg" />
+  <img src="Z:/picture/008/save_picture_542139.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Discovery: Искусство выживания Рэя Мирса / Ray Mears B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541825.jpg" />
+  <img src="Z:/picture/008/save_picture_541825.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541760.jpg" />
+  <img src="Z:/picture/008/save_picture_541760.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541713.jpg" />
+  <img src="Z:/picture/008/save_picture_541713.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541709.jpg" />
+  <img src="Z:/picture/008/save_picture_541709.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540330.jpg" />
+  <img src="Z:/picture/008/save_picture_540330.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538685.jpg" />
+  <img src="Z:/picture/008/save_picture_538685.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538597.jpg" />
+  <img src="Z:/picture/008/save_picture_538597.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ BBC: Древние затерянные города. Тёмные правит
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538584.jpg" />
+  <img src="Z:/picture/008/save_picture_538584.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ Discovery. Новые захоронения Египта / Egypt's New Tomb Rev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538460.jpg" />
+  <img src="Z:/picture/008/save_picture_538460.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538456.jpg" />
+  <img src="Z:/picture/008/save_picture_538456.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537690.jpg" />
+  <img src="Z:/picture/008/save_picture_537690.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536828.jpg" />
+  <img src="Z:/picture/008/save_picture_536828.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536826.jpg" />
+  <img src="Z:/picture/008/save_picture_536826.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ Discovery: Неделя акул / Shark Week (2017) HDTVRip [H.264/720p-LQ] (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536755.jpg" />
+  <img src="Z:/picture/008/save_picture_536755.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ Discovery: Люди: Кто мы? Нашествие людей / People: Who ar
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536152.jpg" />
+  <img src="Z:/picture/008/save_picture_536152.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ NG. По его собственным словам / In His Own Words (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536097.jpg" />
+  <img src="Z:/picture/008/save_picture_536097.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534999.jpg" />
+  <img src="Z:/picture/008/save_picture_534999.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534552.jpg" />
+  <img src="Z:/picture/008/save_picture_534552.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534448.jpg" />
+  <img src="Z:/picture/008/save_picture_534448.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BADA4DFAD6809DA2DE748C8768E568DAED265FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155522   (533142) от 03.08.2017
-
-NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip [H.264/1080p-LQ] (Сезон 1, серия 1 из 5) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированные буи открывают новые возможности наблюдения за морским змеем,  источником множества мифов и легенд.Производство: Франция, Saint Thomas Productios, ARTE FranceЖанр: Документальный, познавательный, исследованияРежиссер: Бертран ЛойерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E28F39BD51D5B03D2F8B2737C01550BBCEA22B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532949   (532054) от 10.08.2012
-
-Обнажённая магия / Magia nuda (1975) VHSRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика документального жанра. Фильм рассказывает о магических обрядах и традициях так называемых первобытных племён, ныне уже повсюду исчезнувших под натиском цивилизации. Фильм снят в 1975 году, тогда ещё не была в моде политкорректность, потому всё снято как оно есть, без цензуры и постановки. Сейчас так уже не снимают, да и некого больше снимать.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 1:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D392437A318F8BCD8F69C78710DB9771A66F11C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155775   (531456) от 04.08.2017
-
-BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) DVB (сезон 43, эпизод 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531456.jpg" />
-</div>
-
-
-###  Подробнее
-
-65 миллионов лет назад динозавры исчезли навсегда. Но что, если бы они не вымерли, а продолжили эволюционировать вместе с человеком. Возможно мы бы держали динозавров, как домашних животных, или употребляли бы в пищу, а возможно, некоторые особи динозавров в процессе эволюции смогли бы составить конкуренцию человеку...Производство: Великобритания, BBC and Discovery ChannelЖанр: Документальный, археология, история, исследованияРежиссер: Марк ЭверестПеревод: Двуголосый закадровый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F768E9EBF9598FD170BCFD3919D341A92F21D42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558718   (529893) от 21.06.2022
-
-Эльбрус. Тайна нацистского аэродрома (2013) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Август 1942 года. В разгаре Сталинградская битва и одновременно идут ожесточенные бои за Кавказ. Взявший Ростов горнострелковый корпус генерала Конрада получает неожиданный приказ - бросить две дивизии влево и взять Эльбрус, со стратегической точки зрения интереса не представлявший. Гитлеровские войска держали высочайшую вершину Европы под контролем около пяти месяцев. (   Читать дальше...   )Производство: Россия, т/к "Звезда"Жанр: документальный, историяРежиссер: Сергей НейлауЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B12C17066E52A50BFF5EDB56EC281FF6846C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

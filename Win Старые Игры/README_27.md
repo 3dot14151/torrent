@@ -1,3 +1,55 @@
+###  Публикация: 1643152   (210208) от 30.06.2023
+
+Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мод повествует о судьбе молодого человека, который сдаёт нечто вроде вступительного экзамена в одной тайной организации в маленьком городке на окраине империи. На борту судна, которое доставит его туда, он чувствует себя уверенно, но по прибытии все идет не так. Внезапно молодой вор оказывается в совершенно чужой ему среде, без какой-либо посторонней помощи... ему (   Читать дальше...   )Тип издания: ModРазработчик: Piranha BytesЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: НемецкийЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33799FB7DE0130E1783B4124C848C9ADC3A407B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643550   (210041) от 02.07.2023
+
+CyClones (1994) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Havoc, один из тысяч "кибернетических клонов", внезапно осознаёт, что сражается не на той стороне, и начинает мстить(Ъ). Несмотря на сюжет, укладывающийся в трёх простых предложениях (мне, кстати, его удалось уместить в одном), в игре есть некоторые интересные нововведения. Например, Mouselook. Если я не ошибаюсь, первый раз за всю историю шутеров он используется (   Читать дальше...   )Тип издания: LicenseРазработчик: Raven SoftwareЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896D13114BEA22217387782FFB8A566F9D2AC421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604730   (209951) от 15.01.2023
 
 Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
@@ -6,7 +58,7 @@ Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209951.jpg" />
+  <img src="Z:/picture/005/save_picture_209951.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209502.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209447.jpg" />
+  <img src="Z:/picture/005/save_picture_209447.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209314.jpg" />
+  <img src="Z:/picture/005/save_picture_209314.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208889.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208740.jpg" />
+  <img src="Z:/picture/005/save_picture_208740.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208248.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207895.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Star General (1996) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207750.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207645.jpg" />
+  <img src="Z:/picture/005/save_picture_207645.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207598.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207448.jpg" />
+  <img src="Z:/picture/005/save_picture_207448.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206971.jpg" />
+  <img src="Z:/picture/005/save_picture_206971.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206956.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206554.jpg" />
+  <img src="Z:/picture/005/save_picture_206554.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206060.jpg" />
+  <img src="Z:/picture/005/save_picture_206060.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205214.jpg" />
+  <img src="Z:/picture/004/save_picture_205214.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204741.jpg" />
+  <img src="Z:/picture/004/save_picture_204741.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204709.jpg" />
+  <img src="Z:/picture/004/save_picture_204709.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586605   (204692) от 27.10.2022
-
-El Matador (2006) [Ru/Multi] (1.1) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204692.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жаркую зелень джунглей Южной Америки, на улицы ее городов и деревень пришли новые хозяева. Они не знают страха. Им не ведома жалость. Эти люди называют себя la Valedora и все они одержимы одним желанием - создать самый могучий наркокартель, истинную империю, способную запустить ядовитые щупальца в самые отдаленные уголки мира.Тип издания: LicenseРазработчик: Plastic Reality TechnologiesЖанр: Экшны, От третьего лицаЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608919   (203267) от 01.02.2023
-
-The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас презирает вся страна. Подземный мир манит вас. От вас отвернулись даже пираты. Ваш парик воняет мышатиной. Итак, вы Малькольм, тот самый злополучный придворный шут Кирандии, которого ненавидят все. Но теперь у вас появился единственный шанс спасти свою непонятую душу. Немногим из тех, кого считают злодеями, удается изложить свой взгляд на происходящее. Но в третей (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Приключение, Квест, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF377F4CC96C6A149B9A20CA2FB4733A6108737C
 ```
 
 https://mybot314.ru/tekegram_catalog/

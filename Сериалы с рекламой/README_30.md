@@ -1,3 +1,29 @@
+###  Публикация: 1577950   (233783) от 21.09.2022
+
+Шетланд / Shetland (2018) WEB-DLRip (сезон 4, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_233783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский сериал «Шетланд» является экранизацией романов английской сочинительницы детективов Энн Кливз. В шесть серий вошли три её произведения из колоритного «шетладского» цикла про вернувшегося на родину детектива Джимми Переса. Это «Вороново крыло», «Мёртвая вода» и «Синяя молния». На каждый из романов отводится два эпизода. В роли вернувшегося в родные туманы, (   Читать дальше...   )Производство: Великобритания / ITV Studios, Silverprint Pictures, BBC ScotlandЖанр: драма, криминал, детективРежиссер: Ян Мэттис, Тадеус О’Салливан, Ребекка ГатуардАктеры: Дуглас Хеншэлл, Элисон О’Доннелл, Стивен Робертсон, Марк Боннар, Льюис Хауден, Эрин Армстронг, Джули Грэм, Энн Кидд, Конор МакКэрри, Нив МакИнтош и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F215884B408FC01D2020FF0BA878809E31A768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577949   (233329) от 24.09.2022
 
 Шетланд / Shetland (2018) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233329.jpg" />
+  <img src="Z:/picture/005/save_picture_233329.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230477.jpg" />
+  <img src="Z:/picture/005/save_picture_230477.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229389.jpg" />
+  <img src="Z:/picture/004/save_picture_229389.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229360.jpg" />
+  <img src="Z:/picture/004/save_picture_229360.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228690.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228576.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228437.jpg" />
+  <img src="Z:/picture/005/save_picture_228437.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228281.jpg" />
+  <img src="Z:/picture/005/save_picture_228281.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228142.jpg" />
+  <img src="Z:/picture/005/save_picture_228142.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227565.jpg" />
+  <img src="Z:/picture/005/save_picture_227565.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227282.jpg" />
+  <img src="Z:/picture/005/save_picture_227282.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227179.jpg" />
+  <img src="Z:/picture/005/save_picture_227179.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227135.jpg" />
+  <img src="Z:/picture/005/save_picture_227135.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226492.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226341.jpg" />
+  <img src="Z:/picture/005/save_picture_226341.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226277.jpg" />
+  <img src="Z:/picture/005/save_picture_226277.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225740.jpg" />
+  <img src="Z:/picture/005/save_picture_225740.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225012.jpg" />
+  <img src="Z:/picture/005/save_picture_225012.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224356.jpg" />
+  <img src="Z:/picture/005/save_picture_224356.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223862.jpg" />
+  <img src="Z:/picture/005/save_picture_223862.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223385.jpg" />
+  <img src="Z:/picture/005/save_picture_223385.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223287.jpg" />
+  <img src="Z:/picture/005/save_picture_223287.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223183.jpg" />
+  <img src="Z:/picture/005/save_picture_223183.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221335.jpg" />
+  <img src="Z:/picture/005/save_picture_221335.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220581.jpg" />
+  <img src="Z:/picture/005/save_picture_220581.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E924E54A7F85A0DD5505A72D46AFFE0ADE5AEAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503571   (220293) от 01.12.2021
-
-Чаки / Chucky (2021) WEBRip (сезон 1, серии 1-8 из 8) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злобная кукла Чаки вновь начинает терроризировать жителей американских пригородов.Производство: Канада, США / David Kirschner Productions, Eat the Cat, Universal Content Productions, Universal Content Productions (UCP)Жанр: УжасыРежиссер: Самир Реэм, Дермотт Даунс, Дон МанчиниАктеры: Закари Артур, Брэд Дуриф, Карина Баттрик, Кристин Элиз, Давид Кольсмит, Яна Пек, Алекс Винсент, Бьоргвин Арнарсон, Тео Брионес, Эйвери ЭстевесПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:44:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF622534E9E627BDF5EE0E814410151E49895E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

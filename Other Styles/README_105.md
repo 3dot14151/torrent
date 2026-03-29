@@ -1,3 +1,72 @@
+###  Публикация: 544980   (483226) от 11.09.2012
+
+William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   Vol.1-2 (1998-1999) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483226.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:03) 01. Flower of Scotland
+(3:09) 02. Brian Boru's March
+(4:18) 03. My Laggan Love
+(2:56) 04. Kintail
+(4:58) 05. Ossian's Lament
+(4:48) 06. Will you Go, Lassie, Go?
+(3:39) 07. The Young Girl
+(5:01) 08. The Glen of Copsewood
+(2:35) 09. O'Carolan's Farewell to Music
+(4:01) 10. The Sally Gardens(   Читать дальше...   )Жанр: Folk, Celtic, InstrumentalПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD0ECEB8CD27B271ADD3FD040B1FC229FFAA523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545038   (483224) от 11.09.2012
+
+Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rakandao (04:58)
+02. Morani Warrior (07:16)
+03. Mbira Kosamdela (05:45)
+04. Losambo (06:45)
+05. Je Je Vignin (06:06)
+06. Ker Kerane (06:12)
+07. Naomba Ukuwe Mazuri (06:06)
+08. Entomononi (06:02)
+09. African Dreams (12:34)Жанр: New Age, Worldbeat, MeditativeПродолжительность: 1:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545525   (482909) от 11.09.2012
 
 VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
@@ -6,7 +75,7 @@ VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482909.jpg" />
+  <img src="Z:/picture/008/save_picture_482909.jpg" />
 </div>
 
 
@@ -41,7 +110,7 @@ Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482906.jpg" />
+  <img src="Z:/picture/008/save_picture_482906.jpg" />
 </div>
 
 
@@ -76,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482760.jpg" />
+  <img src="Z:/picture/008/save_picture_482760.jpg" />
 </div>
 
 
@@ -111,7 +180,7 @@ Omar Akram - Destiny (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482698.jpg" />
+  <img src="Z:/picture/008/save_picture_482698.jpg" />
 </div>
 
 
@@ -140,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482491.jpg" />
+  <img src="Z:/picture/008/save_picture_482491.jpg" />
 </div>
 
 
@@ -169,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482236.jpg" />
+  <img src="Z:/picture/008/save_picture_482236.jpg" />
 </div>
 
 
@@ -204,7 +273,7 @@ VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482234.jpg" />
+  <img src="Z:/picture/008/save_picture_482234.jpg" />
 </div>
 
 
@@ -230,7 +299,7 @@ The Sound Of Love - Closer to me (2017) [MP3|320 Kbps] <New age, Enigmatic, Voca
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482115.jpg" />
+  <img src="Z:/picture/008/save_picture_482115.jpg" />
 </div>
 
 
@@ -259,7 +328,7 @@ Devakant - Earth And Sky (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482107.jpg" />
+  <img src="Z:/picture/008/save_picture_482107.jpg" />
 </div>
 
 
@@ -288,7 +357,7 @@ Paul Mauriat - Penelope & Holidays (1972, 1973) Remastered 2017, Vocalion [FLAC|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481864.jpg" />
+  <img src="Z:/picture/008/save_picture_481864.jpg" />
 </div>
 
 
@@ -317,7 +386,7 @@ Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481859.jpg" />
+  <img src="Z:/picture/008/save_picture_481859.jpg" />
 </div>
 
 
@@ -346,7 +415,7 @@ Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481829.jpg" />
+  <img src="Z:/picture/008/save_picture_481829.jpg" />
 </div>
 
 
@@ -375,7 +444,7 @@ Yoshio Kimura & Hidehiko Matsumoto - Uta No Nai Ryukoka 150 (1969-1971) (2014) 6
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481695.jpg" />
+  <img src="Z:/picture/008/save_picture_481695.jpg" />
 </div>
 
 
@@ -404,7 +473,7 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|Lossless|WEB-DL]<Folk Rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481605.jpg" />
+  <img src="Z:/picture/008/save_picture_481605.jpg" />
 </div>
 
 
@@ -433,7 +502,7 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastere
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481109.jpg" />
+  <img src="Z:/picture/008/save_picture_481109.jpg" />
 </div>
 
 
@@ -462,7 +531,7 @@ VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480451.jpg" />
+  <img src="Z:/picture/008/save_picture_480451.jpg" />
 </div>
 
 
@@ -497,7 +566,7 @@ Fiona Joy Hawkins - Story of Ghosts (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480034.jpg" />
+  <img src="Z:/picture/008/save_picture_480034.jpg" />
 </div>
 
 
@@ -526,7 +595,7 @@ Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479961.jpg" />
+  <img src="Z:/picture/008/save_picture_479961.jpg" />
 </div>
 
 
@@ -555,7 +624,7 @@ Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479924.jpg" />
+  <img src="Z:/picture/008/save_picture_479924.jpg" />
 </div>
 
 
@@ -584,7 +653,7 @@ Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Medi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479923.jpg" />
+  <img src="Z:/picture/008/save_picture_479923.jpg" />
 </div>
 
 
@@ -613,7 +682,7 @@ Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479798.jpg" />
+  <img src="Z:/picture/008/save_picture_479798.jpg" />
 </div>
 
 
@@ -642,7 +711,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479559.jpg" />
+  <img src="Z:/picture/008/save_picture_479559.jpg" />
 </div>
 
 
@@ -671,7 +740,7 @@ Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479488.jpg" />
+  <img src="Z:/picture/008/save_picture_479488.jpg" />
 </div>
 
 
@@ -700,7 +769,7 @@ Rome - The Lone Furrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Post-indus
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479142.jpg" />
+  <img src="Z:/picture/008/save_picture_479142.jpg" />
 </div>
 
 
@@ -715,70 +784,6 @@ ROME создал очаровательный мир противоречий, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E06C8AC20F9A1B0EA58B67A5182198C7D3DA50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405939   (479130) от 01.09.2020
-
-David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding On Wings Of Mercy
-02. Skyward
-03. Flutterings From The Autumn Trees
-04. Beyond The Intimate(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700861   (478385) от 17.09.2013
-
-Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Call (06:17)
-02. Jupiter's Beam (06:08)
-03. Yo-En (09:46)
-04. Shadow Of The Moon (04:45)
-05. Traveler (05:59)
-06. Valley Of The Spirit (04:10)
-07. After Glow (04:51)
-08. Wind From The Desert (05:34)
-09. Moment Circle (04:27)
-10. Whispering Shore (05:09)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6DBBB09C8B5FBF2027C25C69C188DD5908D31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

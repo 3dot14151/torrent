@@ -1,3 +1,115 @@
+###  Публикация: 351358   (172022) от 20.10.2023
+
+Александр Грин | Золотая цепь (Радиоспектакль ) (2004) [MP3, Наталья Данилова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по мотивам одноименного романа.
+"Тайна" и "Приключение" - вот магические слова, которые могут закружить человека, перенести его в необыкновенный дом, похожий на лабиринт, и сделать центром событий, о которых он будет вспоминать потом всю свою жизнь: 36 часов среди сильнейших волнений и опасности, восхищения, тоски и любви.
+Таинственные (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС-Консалт». ОАО ТРК «Петербург»Продолжительность: 06:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88C2939702F0255E85E088ACC09D09CA2041341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363231   (172017) от 20.10.2023
+
+Александр Пушкин | Драматические произведения (2003) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Литературные чтения.
+В настоящем издании представлены произведения Александра Сергеевича Пушкина: «Маленькие трагедии, Русалка», «Борис Годунов», «Пиковая дама».
+
+Текст читается без сокращения.Жанр: Русская литература, классика, поэзия, прозаИздательство: Студия «АРДИС»Продолжительность: 05:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFC431C57E65F5C56A1935948EFC170AD9DBA42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450222   (172015) от 20.10.2023
+
+Александр Пушкин, Михаил Булгаков | Граф Нулин. Мастер и Маргарита. Глава VII (2004) [MP3, Сергей Юрский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда»
+
+Поэма «Граф Нулин» была написана А.С. Пушкиным в декабре 1825 г. в Михайловском. Навеяна она, по словам поэта, «Лукрецией» Шекспира и «происшествием», случившимся по соседству, в Новоржевском уезде.
+А.С. Пушкина Сергей Юрский читает всю жизнь. Его сольное концертирование началось с «Графа Нулина». Актер полностью прочел (   Читать дальше...   )Жанр: Русская литература, классика, проза, поэзияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C81DED361115CD5641AD67B3DE08547E86A8158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452400   (172012) от 20.10.2023
+
+Александр Пушкин, Николай Гоголь | Аудиотеатр Сергея Юрского. Выпуск–1 (2007) [MP3, С.Ю. Юрский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиотеатр Сергея Юрского.Жанр: Русская литература, классика, повесть, стихиПродолжительность: 02:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F297D029F42804BA750EFABE65A01D99B8C342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 337649   (172009) от 20.10.2023
 
 Александр Пушкин | Арап Петра Великого (2009) [MP3, Александр Васильев]
@@ -6,7 +118,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172009.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172008.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172006.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172005.jpg" />
 </div>
 
 
@@ -118,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172004.jpg" />
 </div>
 
 
@@ -145,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172000.jpg" />
 </div>
 
 
@@ -171,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171997.jpg" />
 </div>
 
 
@@ -197,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171990.jpg" />
 </div>
 
 
@@ -224,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171932.jpg" />
 </div>
 
 
@@ -251,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171836.jpg" />
 </div>
 
 
@@ -278,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171829.jpg" />
 </div>
 
 
@@ -304,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171828.jpg" />
 </div>
 
 
@@ -333,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171824.jpg" />
 </div>
 
 
@@ -362,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171822.jpg" />
 </div>
 
 
@@ -389,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171821.jpg" />
 </div>
 
 
@@ -418,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171819.jpg" />
 </div>
 
 
@@ -444,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171808.jpg" />
 </div>
 
 
@@ -473,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171804.jpg" />
 </div>
 
 
@@ -504,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171749.jpg" />
 </div>
 
 
@@ -532,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171747.jpg" />
 </div>
 
 
@@ -559,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171739.jpg" />
 </div>
 
 
@@ -587,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171732.jpg" />
 </div>
 
 
@@ -600,113 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF1F998B680AE6DC281DAC16CBD36C86D646703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670913   (171726) от 22.10.2023
-
-Александр Островский | Бесприданница. Гроза. Без вины виноватые (2006) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, волнующие людей во все времена… (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, драмаИздательство: Студия «АРДИС»Продолжительность: 08:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BE98B1FA2685A0E1E9C5BF97D75AE606414ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303720   (171667) от 22.10.2023
-
-Александр Островский | Правда - хорошо, а счастье лучше [2007] [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Литературные чтения.
-Комедия Александра Николаевича Островского «Правда – хорошо, а счастье лучше» – весёлая и мудрая история о том, что в жизни каждого человека есть место для счастья...ъЖанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 02:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887B9E5D6D3B841D5B31C1AA63E6975DFEAD0D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303485   (171664) от 22.10.2023
-
-Александр Островский | Последняя жертва (2007) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Литературные чтения.
-Героиня пьесы Александра Николаевича Островского «Последняя жертва» - молодая вдова Юлия Тугина - полюбила негодяя, игрока и повесу Вадима Дульчина. Она потратила на него все свое состояние и теперь готова на «последнюю жертву» - отчаянный и унизительный шаг - идти к богатому купцу Прибыткову и просить у него деньги, чтобы спасти возлюбленного (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 03:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47573FCD270EA24C8A70A0C5B6F241398B191330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306531   (171663) от 22.10.2023
-
-Александр Островский | Бешеные деньги (2007) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Литературные чтения.
-Аудиокнига «Бешеные деньги», о нравах русского дворянства XIX века, удивительным образом перекликается с нравственными устоями и условиями жизни современной действительности. Красавица Лидия Чебоксарова привыкла тратить деньги без оглядки, и теперь, когда семья ее разорилась, остается только искать богатого жениха. Ухажеры девушки решают (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Студия «АРДИС»Продолжительность: 03:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073C1F1A99CE8C7ED34E087412687849DBB214CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

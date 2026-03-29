@@ -1,3 +1,29 @@
+###  Публикация: 938022   (485842) от 16.09.2015
+
+Дмитрий Михайлов | Избавитель (2015) [FB2, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485842.jpg" />
+</div>
+
+
+###  Подробнее
+
+С детства отец Василий владеет уникальным даром: его молитвы обладают необычайной силой и почти всегда исполняются. Однако они не могут избавить от несчастий все человечество, и это сильно удручает священника. Но однажды к нему является беглец из Ада и предлагает сделку: человечество получит жизнь полную благоденствия, но Василий должен будет занять его место в Преисподней…Жанр: Героическая фантастика, Социальная фантастикаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E3C5DB35029390AEA2E9AF4E4982B12CC2E5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937791   (485840) от 16.09.2015
 
 Феликс Кривин | Калейдоскоп (1965) [FB2]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485840.jpg" />
+  <img src="Z:/picture/008/save_picture_485840.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485812.jpg" />
+  <img src="Z:/picture/008/save_picture_485812.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485792.jpg" />
+  <img src="Z:/picture/008/save_picture_485792.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Bob Harper | Ultimate Cardio Body (2011) DVDRip [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485772.jpg" />
+  <img src="Z:/picture/008/save_picture_485772.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485384.jpg" />
+  <img src="Z:/picture/008/save_picture_485384.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485370.jpg" />
+  <img src="Z:/picture/008/save_picture_485370.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485339.jpg" />
+  <img src="Z:/picture/008/save_picture_485339.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485247.jpg" />
+  <img src="Z:/picture/008/save_picture_485247.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484958.jpg" />
+  <img src="Z:/picture/008/save_picture_484958.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484771.jpg" />
+  <img src="Z:/picture/008/save_picture_484771.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484750.jpg" />
+  <img src="Z:/picture/008/save_picture_484750.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484663.jpg" />
+  <img src="Z:/picture/008/save_picture_484663.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484075.jpg" />
+  <img src="Z:/picture/008/save_picture_484075.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484073.jpg" />
+  <img src="Z:/picture/008/save_picture_484073.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484063.jpg" />
+  <img src="Z:/picture/008/save_picture_484063.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484001.jpg" />
+  <img src="Z:/picture/008/save_picture_484001.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483835.jpg" />
+  <img src="Z:/picture/008/save_picture_483835.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483522.jpg" />
+  <img src="Z:/picture/008/save_picture_483522.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483111.jpg" />
+  <img src="Z:/picture/008/save_picture_483111.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482905.jpg" />
+  <img src="Z:/picture/008/save_picture_482905.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482094.jpg" />
+  <img src="Z:/picture/008/save_picture_482094.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481954.jpg" />
+  <img src="Z:/picture/008/save_picture_481954.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481944.jpg" />
+  <img src="Z:/picture/008/save_picture_481944.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481132.jpg" />
+  <img src="Z:/picture/008/save_picture_481132.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481035.jpg" />
+  <img src="Z:/picture/008/save_picture_481035.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ Playboy — легендарный журнал для мужчин. Экскл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8161A00325B784A5BE28AFEC93402F25FBFA81FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385083   (481029) от 07.09.2011
-
-Журнал | Playboy [Argentina] №9 (69) [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин. Эксклюзивные съёмки знаменитостей. Престижные автомобили. Стильный и современныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8644D1DC6AD00AE2558854D653E4008CDEC5A796
 ```
 
 https://mybot314.ru/tekegram_catalog/

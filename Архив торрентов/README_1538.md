@@ -6,7 +6,7 @@ StartIsBack++ 2.0.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702750.jpg" />
+  <img src="Z:/picture/008/save_picture_702750.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702740.jpg" />
+  <img src="Z:/picture/008/save_picture_702740.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ShareX 11.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702738.jpg" />
+  <img src="Z:/picture/008/save_picture_702738.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702736.jpg" />
+  <img src="Z:/picture/008/save_picture_702736.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702730.jpg" />
+  <img src="Z:/picture/008/save_picture_702730.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702719.jpg" />
+  <img src="Z:/picture/008/save_picture_702719.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ESET Endpoint Antivirus 5.0.2242.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702707.jpg" />
+  <img src="Z:/picture/008/save_picture_702707.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702675.jpg" />
+  <img src="Z:/picture/005/save_picture_702675.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - 15 Years Of Muti (Breakbeat) (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702669.jpg" />
+  <img src="Z:/picture/008/save_picture_702669.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702668.jpg" />
+  <img src="Z:/picture/008/save_picture_702668.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.107 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702661.jpg" />
+  <img src="Z:/picture/008/save_picture_702661.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Vidiot 0.3.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702657.jpg" />
+  <img src="Z:/picture/008/save_picture_702657.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ DevID Agent 4.41 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702652.jpg" />
+  <img src="Z:/picture/008/save_picture_702652.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ StartIsBack++ 2.0.8 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702651.jpg" />
+  <img src="Z:/picture/008/save_picture_702651.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mp3tag 2.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702591.jpg" />
+  <img src="Z:/picture/008/save_picture_702591.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ StartIsBack++ 2.0.8 / StartIsBack+ 1.7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702582.jpg" />
+  <img src="Z:/picture/008/save_picture_702582.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702580.jpg" />
+  <img src="Z:/picture/008/save_picture_702580.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702554.jpg" />
+  <img src="Z:/picture/008/save_picture_702554.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Murda Killa - Brokestar (2018) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702546.jpg" />
+  <img src="Z:/picture/008/save_picture_702546.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702536.jpg" />
+  <img src="Z:/picture/008/save_picture_702536.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702534.jpg" />
+  <img src="Z:/picture/008/save_picture_702534.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702532.jpg" />
+  <img src="Z:/picture/008/save_picture_702532.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702530.jpg" />
+  <img src="Z:/picture/008/save_picture_702530.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702529.jpg" />
+  <img src="Z:/picture/008/save_picture_702529.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702526.jpg" />
+  <img src="Z:/picture/008/save_picture_702526.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702514.jpg" />
+  <img src="Z:/picture/008/save_picture_702514.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ipple Play 1.0.0.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838965.jpg" />
+  <img src="Z:/picture/008/save_picture_838965.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Advanced Woman Calendar 3.3 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838963.jpg" />
+  <img src="Z:/picture/008/save_picture_838963.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_838960.jpg" />
+  <img src="Z:/picture/009/save_picture_838960.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838959.jpg" />
+  <img src="Z:/picture/008/save_picture_838959.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_838953.jpg" />
+  <img src="Z:/picture/009/save_picture_838953.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Movavi Photo Editor 6.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838930.jpg" />
+  <img src="Z:/picture/008/save_picture_838930.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ THE M MACHINE - 4 EP Albums, Singles, Remixes (2011-2014) [MP3|320 кб/с]<Dubs
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838910.jpg" />
+  <img src="Z:/picture/008/save_picture_838910.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838905.jpg" />
+  <img src="Z:/picture/008/save_picture_838905.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838892.jpg" />
+  <img src="Z:/picture/008/save_picture_838892.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838890.jpg" />
+  <img src="Z:/picture/008/save_picture_838890.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ DAZ Studio 3 Advanced x86 v.3.1.2.24 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838886.jpg" />
+  <img src="Z:/picture/008/save_picture_838886.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838882.jpg" />
+  <img src="Z:/picture/008/save_picture_838882.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838880.jpg" />
+  <img src="Z:/picture/008/save_picture_838880.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838875.jpg" />
+  <img src="Z:/picture/008/save_picture_838875.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Flash Decompiler Trillix v 5.1.1140 Portable [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838841.jpg" />
+  <img src="Z:/picture/008/save_picture_838841.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838834.jpg" />
+  <img src="Z:/picture/008/save_picture_838834.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838809.jpg" />
+  <img src="Z:/picture/008/save_picture_838809.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ goPanel 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838707.jpg" />
+  <img src="Z:/picture/008/save_picture_838707.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Mikael Fyrek - Дискография (2005-2009) [MP3|320 kbps]<IDM, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838684.jpg" />
+  <img src="Z:/picture/008/save_picture_838684.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Trance Hits Top 20-03-(2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838645.jpg" />
+  <img src="Z:/picture/008/save_picture_838645.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ DupeZap 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838643.jpg" />
+  <img src="Z:/picture/008/save_picture_838643.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Clearview 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838637.jpg" />
+  <img src="Z:/picture/008/save_picture_838637.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ ReadKit 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838634.jpg" />
+  <img src="Z:/picture/008/save_picture_838634.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Vocal Trance Classics 007 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838632.jpg" />
+  <img src="Z:/picture/008/save_picture_838632.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ PicturesToExe Deluxe 9.0.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838631.jpg" />
+  <img src="Z:/picture/008/save_picture_838631.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838624.jpg" />
+  <img src="Z:/picture/008/save_picture_838624.jpg" />
 </div>
 
 

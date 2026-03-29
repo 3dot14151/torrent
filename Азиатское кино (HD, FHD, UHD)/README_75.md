@@ -1,3 +1,134 @@
+###  Публикация: 1694875   (120643) от 27.01.2024
+
+Операция в Красном море / Hong hai xing dong / Operation Red Sea (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120643.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 год, гражданская война в Йемене. Правительство Китая издаёт приказ о немедленной эвакуации своих граждан. Опасное задание поручают штурмовой группе Цзяолун, известной своей слаженной работой даже в экстремальных ситуациях. Недавно отряд смог обезвредить сомалийских пиратов, напавших на китайское грузовое судно ещё до прибытия основных сил флота.
+Восемь бойцов (   Читать дальше...   )Производство: Гонконг, Китай / Bona Film Group, Emperor Film Production, Film Fireworks Production, P.L.A Navy Government TV Art Central of China, The, Star Dream Studio Media, Zak ProductionsЖанр: боевикРежиссер: Данте ЛамАктеры: Чжан И, Джонни Хуан, Хай Цин, Ду Цзян, Цзян Луся, Санаа Алауи, Инь Фан, Ван Юйтянь, Го Цзяхао, Генри МакПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: русский, китайскийСубтитры: Русские, английские, китайскиеПродолжительность: 02:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F96D9F8893FF982B7A3FE99EFA5E614E5F1E40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445704   (120589) от 28.01.2024
+
+Звонок из прошлого / Kol / The Call (2020) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120589.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Yong FilmЖанр: триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ён, Чо Гён-сук, Мун Чхан-гиль и д.р.Перевод: Двуголосый закадровый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, немецкие, французские, испанские, португальские, итальянские (внутри контента)Продолжительность: 01:52:00Реклама: Нет.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5409B7B0723A6B747791BB3C41234656D0C2E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695254   (120577) от 28.01.2024
+
+Пустоши / Hwangya / Badland Hunters (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Корея Южная / Big Punch Pictures, Climax Studio, Nova FilmЖанр: Боевик, приключения, фантастика, драмаРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ли Хи-джун, Ли Джун-ён, Но Джон-и, Ан Джи-хе, Ким Ён-сон ...Перевод: Любительский многоголосый (DubLik TV)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Forced, full)Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CA1613E7F807BEA6F9000502C3A6BA0899E99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695287   (120474) от 28.01.2024
+
+Девочки-камикадзе / Shimotsuma monogatari / Kamikaze Girls (2004) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Момоко спасется от провинциальной скуки, наряжаясь в розовые кукольные платьица. Однажды она встречает свою диаметральную противоположность — разбитную деваху Итиго, которая красит губы в чёрный и разъезжает на мотороллере. Несмотря на различия в характере, девушки становятся подругами. Момоко утешает Итиго, страдающую от любви к местному щеголю, и украшает вышивкой (   Читать дальше...   )Производство: Япония / Hakuhodo DY Media Partners, Tokyo Broadcasting System (TBS), Tokyo FM Broadcasting Co. Ltd.Жанр: комедияРежиссер: Тэцуя НакасимаАктеры: Цутия Анна, Фукада Кёко, Миясако Хироюки, Абэ Садао, Койкэ Эйко, Ядзава Син, Хонда Хиротаро, Кики Кирин, Аракава ЁсиЁси, Намасэ Кацухиса, Синохара Рёко, Окада Ёсинори, Канако Ириэ, Мидзуно Харуо, Кимура Юйти, Маки Ёко, Фукуда МаюкоПеревод: любительский многоголосыйЯзык озвучки: русский, японскийСубтитры: русские (фансаб-группа чебоксарского аниме-клуба Тануки), английскиеПродолжительность: 01:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1347C5FCEC55B1A50143609DDB477230B468C184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695384   (120226) от 30.01.2024
+
+Охотники с пустоши / Пустоши / Hwangya / Badland Hunters (2024) WEB-DLRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Южная Корея, Big Punch Pictures, Climax Studio, Nova FilmЖанр: боевик, фантастикаРежиссер: Хо Мён ХэнАктеры: Ма Дон Сок, Ли Джун Ён, Ли Джун Хи, Но Джон И, Ан Джи Хе, Пак Чи Хун, Чан Ён Нам, Пак Хё Чжун, Сон Бён Сук, Чжон Ён ДжуПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, корейскийСубтитры: Русcкие, английские (Full, SDH), корейские (Forced, SDH)Продолжительность: 01:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A915E07EDEC13DFF18C2D4E1106D668F90ED036F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484864   (119718) от 02.02.2024
 
 Искусство Шаолиня – змея и журавль / She he ba bu / Snake and Crane Arts of Shaolin (1978) BDRip [H.264/1080p]
@@ -6,7 +137,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119718.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119376.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119372.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118806.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118797.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118721.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118610.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117717.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117692.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117679.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117435.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117330.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117301.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117239.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117124.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117104.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117070.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116922.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116716.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116531.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116239.jpg" />
 </div>
 
 
@@ -537,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F97E55488643997A79F888B31D8C3905CFCFE04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701834   (116225) от 22.02.2024
-
-Игра в переговоры / Hyeopsang / The Negotiation (2018) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116225.jpg" />
-</div>
-
-
-###  Подробнее
-
-После неудачной попытки освобождения, повлекшей смерть заложников, переговорщица сеульской полиции Ха Чхэ-юн решает уволиться, но её срочно вызывают на очередное задание. Международный торговец оружием держит под дулом пистолета её начальника и корейского репортёра, захваченного в Таиланде, но требований не выдвигает. У Чхэ-юн есть несколько часов, чтобы разобраться (   Читать дальше...   )Производство: Корея Южная / CJ E&M Film Financing & Investment Entertainment & Comics, CJ Entertainment, JK FILMSЖанр: триллер, криминалРежиссер: Ли Джон-сокАктеры: Сон Е-джин, Хён Бин, Ким Сан-хо, Чан Ён-нам, Чан Гван, Чо Ён-джин, Ли Джу-ён, Ли Хак-чу, Чхве Бён-мо, Ли Мун-щикПеревод: Многоголосый профессиональный (Велес)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0784D4E223CC9C30E195BCAF5275F4245A72B320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702437   (115867) от 24.02.2024
-
-Повезло с братом / Geugeotmani nae sesang / Keys to the Heart (2018) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший чемпион по боксу Ли Джо-ха теперь перебивается случайными подработками и ночует в магазине комиксов. Встретив однажды пожилую мать, которая бросила его ещё ребенком, Джо-ха поддаётся на уговоры пожить некоторое время у неё. На месте выясняется, что у него есть младший брат Джин-тхэ — аутист второй степени, милый парень и гениальный пианист-самоучка.Производство: Корея Южная / CJ E&M, CJ Entertainment, JK FilmЖанр: драма, комедия, спортРежиссер: Чхве Сон-хёнАктеры: Ли Бён-хон, Юн Ё-джон, Пак Чон-мин, Мун Сук, Чхве Ри, Ким Сон-нён, Хан Джи-мин, Хван Сок-чон, Пэк Хён-джин, Чо Гван-уПеревод: Многоголосый профессиональный (Официальный, OKKO)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D37A53CC6B8BCE5C4A6DBCBDD44F85BD55801FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702405   (115704) от 25.02.2024
-
-Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A73433905FE6B53882E4726C2E8CEA3D99F3F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702453   (115681) от 25.02.2024
-
-Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEFBEB3EB2BAEA4A926CC7E0FDFED4F7633357A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702456   (115679) от 25.02.2024
-
-Ким Джи-ён, 1982 года рождения / 82nyeonsaeng Kim Ji-yeong / Kim Ji Young Born 1982 (2019) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Джи-ён 1982 года рождения — обычная женщина. Она следовала всему, что требовало от неё общество: закончила школу, устроилась на работу, вышла замуж, родила. В один прекрасный день Джи-ён начинает терять саму себя и примерять личины других людей.Производство: Корея Южная / Lotte EntertainmentЖанр: драмаРежиссер: Ким До-ёнАктеры: Чон Ю-ми, Кон Ю, Ким Ми-гён, Чон Гук-хян, Ли Хэ-ун, Пак Сон-ён, Ли Бон-нён, Ким Сон-чхоль, Ли Оль, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9511232E951A0921C824A2BFE3F60BCB1AC036EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

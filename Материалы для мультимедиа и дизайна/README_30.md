@@ -1,3 +1,399 @@
+###  Публикация: 1351165   (1002347) от 09.01.2020
+
+3D модели - 3DDD - PRO – 45 HQ Beds 3D-Models [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 48 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDBDF6F9DDDFEFCC5BD66FEA7F69E588982EE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488274   (1002264) от 10.08.2021
+
+Фоны - Сборник фонов [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник фонов для вашего творчества.Формат: JPG, PNGРазрешение файлов: 1920x603-1920x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695A0E56B25BEDCE53E32DA38944E6D92C5F0F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488276   (1002256) от 10.08.2021
+
+Фоны - Сборник фонов #2 [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник фонов для вашего творчества.Формат: JPG, PNGРазрешение файлов: 1920x750-4272x2848
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22546ABCCD78BECA1AB5F7BD490B56325E603BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488223   (1002252) от 10.08.2021
+
+3D модели - Daz 3D - 50 HDRIs - Movie Maker Iray - Metropolis Day - 66897 [DUF, HDR]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iray HDRI для DAZ 3D из категории Resources.Формат: DUF, HDR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35E26AD387BC3F2D0F6BE7579EB30B0CBF2508C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488280   (1002245) от 10.08.2021
+
+Фоны - 1200 High Resolution Backgrounds Bundle [JPG, PNG, HDR]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя прекрасный набор из 1200 фонов с высоким разрешением! Это более 1200 супер фонов с удивительно яркими цветами. Они чрезвычайно универсальны и могут использоваться в самых разных дизайнах.Формат: JPG, PNG, HDRРазрешение файлов: 4096X2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6754AAD64A38A3D080A09B399443AF8AD7C4A1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488272   (1002243) от 10.08.2021
+
+3D модели - Daz 3D - Cleopatra's Egyptian Bundle - 80789 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cleopatra's Egyptian для DAZ 3D из категории People
+Для Genesis 8 .Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C42CBB22CF51EC94C507AE3812BBF397599042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351509   (1002158) от 10.01.2020
+
+Шаблоны - Дед Мороз прислал нам елку [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский фотоальбом
+Обложка и 5 разворотовФормат: PSDРазрешение файлов: 7205x3602-7913x4087
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621F84BCFE450FA8FFD9120CB8865D8F5EA32481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351501   (1002147) от 10.01.2020
+
+3D модели - Daz 3D - Tristan 8 Pro Bundle - 66153 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Tristan 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22712AB8B358CCAD99A45E4CB52EC6359E5231F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351494   (1002145) от 10.01.2020
+
+3D модели - Daz 3D - Silas 8 Pro Bundle - 63941 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Silas 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DC88A92E6BC6F7E575B514FC81491FD0DCD1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351490   (1002143) от 10.01.2020
+
+3D модели - Daz 3D - Rynne 8 Pro Bundle - 66075 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Rynne 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74019DED95FE14A32C75D4A566CA61CD8EE3A70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351567   (1002142) от 10.01.2020
+
+Звуковые библиотеки - Sound Ideas - Cartoon Trax Sound Effects [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели этой коллекции - The Hollywood Edge вместе с известными дизайнерами и студиями. Коллекция мультипликационных шумов, звуковых эффектов и музыкальных фрагментов. Дико забавно - вот лучшее описание для Cartoon Trax. Редкие работы мастеров мультипликационной комедии могут быть услышаны еще раз - в ваших работах!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D654CD5908D4200FFA1BC9A0EAD16F0CBF9AFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351500   (1002124) от 10.01.2020
+
+Футажи - VideoHive - Cartoon Kawaii Faces - 24685336 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cartoon Kawaii Faces - это интересные мультяшные 2d анимационные Kawaii лица. Которые Вы сможете использовать везде, на различных предметах, фотографиях или в ваших видео роликах на You Tube.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDC3711A5B167CD602570A5F34634314EED6135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351499   (1002122) от 10.01.2020
+
+Футажи - VideoHive - Grunge Transitions - 7281277 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grunge Transitions - это небольшой, но эффектный пакет гранжевых переходов, которые так же можно отнести и к винтажным. Данные переходы используют эффекты утечки света и бликов.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9694B4C017990063454131F3B4514B70E88C3219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488396   (1001933) от 11.08.2021
+
+3D модели - Evermotion - Archmodels vol. 218 [V-Ray|*.max, C4D, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 218 включает 66 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. Эта коллекция включает высококачественные промышленные модели освещения, электрооборудования, пожарной сигнализации, кондиционирования воздуха, камер видеонаблюдения - подходящие для визуализации парковок, гаражей, промышленных зон, общедоступных коридоров (   Читать дальше...   )Формат: V-Ray|*.max, C4D, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DDF21BEE570E9647AA9F89E706BD2288CB597B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351804   (1001904) от 11.01.2020
+
+Звуковые библиотеки - Articulated Sounds - Kiss [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это коллекция подлинных, необработанных записей всех видов поцелуев. Не стесняйтесь использовать их в своем звуковом дизайне и проявлять творческий подход. Может быть, они могут служить для создания визга монстра или скрип шины, кто знает!  :)Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C01B6B4F9B8203B2F97D53098E4456E545D723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351825   (1001892) от 11.01.2020
 
 Звуковые библиотеки - Articulated Sounds - Fun Monsters [WAV]
@@ -6,7 +402,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001892.jpg" />
 </div>
 
 
@@ -32,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001888.jpg" />
 </div>
 
 
@@ -58,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001864.jpg" />
 </div>
 
 
@@ -85,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001861.jpg" />
 </div>
 
 
@@ -111,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001858.jpg" />
 </div>
 
 
@@ -137,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001852.jpg" />
 </div>
 
 
@@ -163,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001735.jpg" />
 </div>
 
 
@@ -189,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001712.jpg" />
 </div>
 
 
@@ -215,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001711.jpg" />
 </div>
 
 
@@ -241,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001701.jpg" />
 </div>
 
 
@@ -267,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001675.jpg" />
 </div>
 
 
@@ -278,397 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9386DD8FD5677225CA83B3EBB20D43281CD1B32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352036   (1001600) от 12.01.2020
-
-Звуковые библиотеки - Soundholder - Cars In Motion [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звуковая библиотека Cars In Motion была записана с помощью Sound Devices 702, двух Sennheisers MKH 8040, Rode NTG3 и Sony PCM-M10. В библиотеке представлены внешние звуки автомобилей, движущихся на разных скоростях, медленные / средние / быстрые / очень быстрые переходы, обратные звуки, ускорения, звуки торможения и множество дополнительных файлов. Вы найдете разные (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF649B3D2BA6771898042007737F32019E875D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352029   (1001597) от 12.01.2020
-
-Звуковые библиотеки - Boom Library - P-51 Mustang [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чудесное звучное жужжание P51 MUSTANG перенесет вас на новую высоту и будет путешествовать с вами по неизведанным территориям. Некоторые говорят: «A plane you wear like a suit». Мы говорим: наша новая фантастическая библиотека MICRO BOOM SFX. Студия Boom Library записали различные близкие и отдаленные FLYBYS, LANDING FLYBYS, STARTS, IDLE и TAXIING звуковые эффекты.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933DE5F00E3C11D0BC12DA872805342E2D4F5C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351850   (1001575) от 12.01.2020
-
-Стили - GraphicRiver - Luxury Text Effect - 24788115 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете использовать эти эффекты для логотипов, заголовков, обложек социальных сетей, постеров, брендинга или любых векторных изображений. Эти стили работают и с векторными фигурами. Вам просто нужно поместить свой дизайн в смарт-объект.Формат: PSDРазрешение файлов: 1984×1551
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E48E5F2C6FCA3E1BF8A12BF88AB22CFD91B443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351885   (1001568) от 12.01.2020
-
-Звуковые библиотеки - Boom Library - Medieval Life [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закройте глаза и представьте себе звуковую атмосферу средневековых мест. Представьте себе фермы с цыплятами, овцами, шумом рыщущих конских копыт, открытием и закрытием старых дверей, рубящим топором дрова на заднем плане. В городах и замках представьте отголоски далеких людей, крики уличных торговцев, грохот железных цепей и удары кузнеца. Boom Library записали звучание (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEBF4F1CA45B29C52AD8410D79506A155ACD481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351854   (1001563) от 12.01.2020
-
-Растровый клипарт - Design Bundles - 150 Christmas, overlays, photoshop PNG clipart backdrop - 380415 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы долго искали зимний эффекты. Тогда вы нашли то, что искали у нас! С нашим пакетом вы получите самый широкий спектр различных рождественских иллюстраций, чтобы сделать самый сказочный дизайн зимнего отдыха. Вы получите 150 наложений, включая рамки, текстуры боке, чудесные волшебные коробки, блестки, падающий снег и многие другие эффекты.Формат: JPG, PNGРазрешение файлов: 496x840-7990x4902
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD93BD442EC38899288D9597780570618B4CF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351881   (1001562) от 12.01.2020
-
-Экшены - GraphicRiver - Vector Splash - Photoshop Action - 25249087 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vector Splash - простой в использовании экшен фотошоп стилизует ваши обычные фотографии под векторный рисунок.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6EA399E7C8FB93E6F5E222B7AB472C2F9D5482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351845   (1001557) от 12.01.2020
-
-3D модели - 3dbrute - Sell Tv Stand 2019 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция 3д моделей Тумбы под телевизор из 100штФормат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC79E1DB759DDA1D6D8801F4B037EE5B4294527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352056   (1001552) от 12.01.2020
-
-Шаблоны - GraphicRiver - Kids YouTube Banners - 22675571 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kids YouTube Banners отФормат: PSDРазрешение файлов: 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416F144F9ED1084215F08D645DC829A12AF2D229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351886   (1001550) от 12.01.2020
-
-Экшены - GraphicRiver - Fantasy 2 Photoshop Action - 24857689 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fantasy - с помощью этого простого в использовании действия фотошоп, вы сможете создать потрясающие световые эффекты на ваших фотографиях. После того, как действие закончит работу, вы получите структурированный файл со слоями, для улучшения конечного результата.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92D514533C06DB589F785DE5820E95E786FE0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351858   (1001549) от 12.01.2020
-
-Фоны и наложения - Creative Market - Spring Bunnies photo overlays - 1409642 [PNG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отлично подходит для пасхальных уличных фотографий - стиль симпатичных сцен с оверлейными накладками.Формат: PNG, PSDРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52D7AC2720AB11AB7D62E5D90FEDBE6972B7AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351861   (1001538) от 12.01.2020
-
-Текстуры - Creative Market - Mega Bundle White Textures x200 - 4350657 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет текстур для свадебных приглашений или фонов
-помогут вам продвигать ваши проекты.Формат: JPGРазрешение файлов: 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04BA125CA2F4A631FF5C38FDF4432754DD8476D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351852   (1001528) от 12.01.2020
-
-Стили - GraphicRiver - 3D Text/ Logo Mockup- Neon Pack - 24989279 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте отличный постер или флаер, обложку facebook, обложку youtube, баннер веб-сайта, название кинематографического фильма, название фильма и т. Д.Формат: PSDРазрешение файлов: 3000×2250
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B79355B9FD7B7838DA60DD6AB0FE92EFB65484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488822   (1001411) от 13.08.2021
-
-3D модели - TurboSquid - Mercedes-Benz GLB 2020 AMG - 1446192 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001411.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBED837B54AB4D4938EA9D6876E3F02E69800A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488835   (1001410) от 13.08.2021
-
-3D модели - Hum3D - Renault Premium Lander Fire Truck 2011 [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001410.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Renault.Формат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2EBFF609DCBF5E87C9457A87D64D10BA4AA669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352201   (1001272) от 13.01.2020
-
-Звуковые библиотеки - Cinetools - Maximus [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнообразие звуков, представленных в этой заряженной адреналином библиотеке, включает в себя все, чтобы привести ваши произведения к победе; пронзительные струны и ударные, мрачные и зловещие атмосферы, захватывающие звуковые пейзажи, гипнотически мощные грохочущие звуки, драматическое пианино, динамические взмахи и свист, резкие синтезаторные линии, эпические барабаны (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B7BF55351B9775D76E37B7698BE88D95C86474
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Windows Firewall Control 5.0.1.19 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820412.jpg" />
+  <img src="Z:/picture/008/save_picture_820412.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alien Skin Exposure X3 Bundle 3.0.5.157 Revision 39088 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820408.jpg" />
+  <img src="Z:/picture/008/save_picture_820408.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF-XChange PRO 8.0.339.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820395.jpg" />
+  <img src="Z:/picture/008/save_picture_820395.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bandicam 4.1.0.1362 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_820322.jpg" />
+  <img src="Z:/picture/009/save_picture_820322.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SamDrivers 20.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820289.jpg" />
+  <img src="Z:/picture/008/save_picture_820289.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alcohol 120% 2.0.3.9811 Free Edition RePack by KpoJIuK (20.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820226.jpg" />
+  <img src="Z:/picture/008/save_picture_820226.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Auslogics Disk Defrag Professional 4.8.1.0 Final RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820217.jpg" />
+  <img src="Z:/picture/008/save_picture_820217.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hetman Partition Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820137.jpg" />
+  <img src="Z:/picture/008/save_picture_820137.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AVG AntiVirus Free 2017 17.2.3008 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820129.jpg" />
+  <img src="Z:/picture/008/save_picture_820129.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ MediaInfo 0.7.63 Final RePack by nikollo2013 [Русский/Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819941.jpg" />
+  <img src="Z:/picture/008/save_picture_819941.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mozilla Firefox 46.0 beta 11 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819646.jpg" />
+  <img src="Z:/picture/008/save_picture_819646.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ YouTube Video Downloader PRO 5.4 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819544.jpg" />
+  <img src="Z:/picture/008/save_picture_819544.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IObit Uninstaller Free 11.1.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819478.jpg" />
+  <img src="Z:/picture/008/save_picture_819478.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ GPU-Z 0.8.7 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819437.jpg" />
+  <img src="Z:/picture/008/save_picture_819437.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ GeoGebra 6.0.671.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819389.jpg" />
+  <img src="Z:/picture/008/save_picture_819389.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ BluffTitler Ultimate 15.5.0.1 (x64) RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819383.jpg" />
+  <img src="Z:/picture/008/save_picture_819383.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sugar Bytes - DrumComputer 1.2.4 STANDALONE, VSTi (X64) RePack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819382.jpg" />
+  <img src="Z:/picture/008/save_picture_819382.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ save2pc Ultimate 5.45 Build 1541 Portable by PortableAppC [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819318.jpg" />
+  <img src="Z:/picture/008/save_picture_819318.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Internet Download Manager 6.25 Build 15 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819315.jpg" />
+  <img src="Z:/picture/008/save_picture_819315.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SyMenu 6.16.7962 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819257.jpg" />
+  <img src="Z:/picture/008/save_picture_819257.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819249.jpg" />
+  <img src="Z:/picture/008/save_picture_819249.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AIMP 5.00 build 2335 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819244.jpg" />
+  <img src="Z:/picture/008/save_picture_819244.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PDF-XChange PRO 9.2.357.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819239.jpg" />
+  <img src="Z:/picture/008/save_picture_819239.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Nox App Player 7.0.1.7007 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819235.jpg" />
+  <img src="Z:/picture/008/save_picture_819235.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819232.jpg" />
+  <img src="Z:/picture/008/save_picture_819232.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Internet Download Manager 6.25 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819155.jpg" />
+  <img src="Z:/picture/008/save_picture_819155.jpg" />
 </div>
 
 

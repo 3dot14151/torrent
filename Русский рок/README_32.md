@@ -1,3 +1,117 @@
+###  Публикация: 1208028   (780300) от 20.02.2018
+
+Счётчик Мыслей - Общество (2016) Single [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Общество (feat. AquaПарк)
+02-Дотянуться до звезды (Lumen)Жанр: Alternative RockПродолжительность: 00:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C9AED6EB8A1A50AC4A7D597398C0CA9C8B4FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207937   (780297) от 20.02.2018
+
+Счётчик Мыслей - Серое небо (2015) EP [MP3|~210-320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Серое небо
+02-В клетке
+03-Братишка
+04-Время(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61803F81A0B58ABBE93171D4009F89EC505B0C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207929   (780292) от 20.02.2018
+
+Счётчик Мыслей - #Теплый Live (2018) [MP3|320 Kbps] <Alternative Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Полчаса
+02-17 лет
+03-Микромир
+04-Коридоры(   Читать дальше...   )Жанр: Alternative Rock, AcousticПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799E7C0E83D3E4AE1F6F8AADE834AE265DFEBC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207920   (780290) от 20.02.2018
+
+Счётчик Мыслей - Прыжок в бездну (2017) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прыжок в бездну
+02. Мост
+03. 2007
+04. Комната(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FEB3C49E0734D7E70AF03B13F3C7CBE91913C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207942   (780287) от 20.02.2018
 
 Счётчик Мыслей - Мир напрокат (2011) [MP3|320 Kbps] <Alternative Rock>
@@ -6,7 +120,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780287.jpg" />
+  <img src="Z:/picture/008/save_picture_780287.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ LaScala - Patagonia (2018) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780223.jpg" />
+  <img src="Z:/picture/008/save_picture_780223.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780075.jpg" />
+  <img src="Z:/picture/008/save_picture_780075.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779103.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779092.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778921.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ Lumen - XX лет. Избранное (2018) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778814.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778665.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_778260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_778260.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778102.jpg" />
 </div>
 
 
@@ -293,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777982.jpg" />
 </div>
 
 
@@ -322,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777868.jpg" />
 </div>
 
 
@@ -351,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777432.jpg" />
 </div>
 
 
@@ -380,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777403.jpg" />
 </div>
 
 
@@ -406,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777050.jpg" />
+  <img src="Z:/picture/008/save_picture_777050.jpg" />
 </div>
 
 
@@ -435,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776505.jpg" />
+  <img src="Z:/picture/008/save_picture_776505.jpg" />
 </div>
 
 
@@ -464,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776098.jpg" />
+  <img src="Z:/picture/008/save_picture_776098.jpg" />
 </div>
 
 
@@ -493,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775812.jpg" />
+  <img src="Z:/picture/008/save_picture_775812.jpg" />
 </div>
 
 
@@ -522,7 +636,7 @@ VA - антиАрмия: Нам не нужна война (2018) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775781.jpg" />
+  <img src="Z:/picture/008/save_picture_775781.jpg" />
 </div>
 
 
@@ -551,7 +665,7 @@ Around The World In 80 Days - Genesis (2015) [MP3|320 кб/с] <Post Rock, Elect
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775719.jpg" />
+  <img src="Z:/picture/008/save_picture_775719.jpg" />
 </div>
 
 
@@ -580,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775113.jpg" />
+  <img src="Z:/picture/008/save_picture_775113.jpg" />
 </div>
 
 
@@ -609,7 +723,7 @@ Shrezzers - Relationships (2019) [MP3|320 Kbps] <Progressive Metal, Experimental
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775093.jpg" />
+  <img src="Z:/picture/008/save_picture_775093.jpg" />
 </div>
 
 
@@ -623,128 +737,6 @@ Shrezzers - Relationships (2019) [MP3|320 Kbps] <Progressive Metal, Experimental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F072E36D5AF6AFC554F4E7C6062B984DE89AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277790   (775092) от 22.01.2019
-
-ТимерТау - Иди за мной (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как воздух
-02. Твари
-03. Иди за мной
-04. Стюардессы(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2500186102185CADF0F7C20EA56C57CBEF3845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277820   (775086) от 22.01.2019
-
-TattooIN (Татуин) - Татуин (2017) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уеду
-02. Хабиби
-03. В песках Татуина
-04. Разные(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECAC0A10A1497A5489687D8C43FB11FD5D2A46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277818   (775017) от 22.01.2019
-
-TattooIN (Татуин) - Маленький фрагмент вселенной (2018) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё, кроме любви
-02. До свидания, Земля
-03. Думай о хорошем
-04. Точка невозврата(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DA7B1CCEC8268335F0E3A8B769CC751BF89AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201497   (774340) от 17.05.2010
-
-Парк Горького/ Gorky Park - Grand Collections (2002) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moscow calling (5:09)
-2.  Stranger (4:51)
-3.  Stare (4:58)
-4.  Two candles (5:03)
-5.  Politics of Love (4:10)
-6.  Ocean (3:55)
-7.  Welcome to the Gorky Park (4:24)
-8.  California promise (3:57)
-9.  Tell me why (3:27)
-10.  All roads (5:13)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

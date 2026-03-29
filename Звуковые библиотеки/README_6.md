@@ -1,3 +1,31 @@
+###  Публикация: 1389375   (784489) от 10.06.2020
+
+Звуковые библиотеки - Cymatics - FX Toolkit Bundle [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784489.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этим предложением каждому производителю медиа-контента будет предоставлен доступ к высококачественным ресурсам.
+Это означает, что независимо от того, где вы находитесь, вы можете получить 900 удивительных Risers, Impacts, Downlifters, Build Upp Drums, Ambience.
+Так что, если вы пытались повысить свои творческие навыки, то это идеальное предложение, чтобы воспользоваться.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB640E7412D308D88B9FDD410C2E1973F209EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389418   (784487) от 10.06.2020
 
 Звуковые библиотеки - Vir2 Instruments - MOJO 2 Horn Section v1.0.3 [Kontakt, NDX]
@@ -6,7 +34,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784487.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784470.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784469.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784464.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769837.jpg" />
+  <img src="Z:/picture/008/save_picture_769837.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ NNM-Club Sound Cleaner Collection from Khiliuta
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769307.jpg" />
+  <img src="Z:/picture/008/save_picture_769307.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767586.jpg" />
+  <img src="Z:/picture/008/save_picture_767586.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761961.jpg" />
+  <img src="Z:/picture/008/save_picture_761961.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756863.jpg" />
+  <img src="Z:/picture/008/save_picture_756863.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755323.jpg" />
+  <img src="Z:/picture/008/save_picture_755323.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755219.jpg" />
+  <img src="Z:/picture/008/save_picture_755219.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753564.jpg" />
+  <img src="Z:/picture/008/save_picture_753564.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751810.jpg" />
+  <img src="Z:/picture/008/save_picture_751810.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750055.jpg" />
+  <img src="Z:/picture/008/save_picture_750055.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749947.jpg" />
+  <img src="Z:/picture/008/save_picture_749947.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748535.jpg" />
+  <img src="Z:/picture/008/save_picture_748535.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748524.jpg" />
+  <img src="Z:/picture/008/save_picture_748524.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748521.jpg" />
+  <img src="Z:/picture/008/save_picture_748521.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748402.jpg" />
+  <img src="Z:/picture/008/save_picture_748402.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748400.jpg" />
+  <img src="Z:/picture/008/save_picture_748400.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748397.jpg" />
+  <img src="Z:/picture/008/save_picture_748397.jpg" />
 </div>
 
 
@@ -561,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748259.jpg" />
+  <img src="Z:/picture/008/save_picture_748259.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748255.jpg" />
+  <img src="Z:/picture/008/save_picture_748255.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748253.jpg" />
+  <img src="Z:/picture/008/save_picture_748253.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ NNM-Club Sound Cleaner Collection from Bushpreet
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748041.jpg" />
+  <img src="Z:/picture/008/save_picture_748041.jpg" />
 </div>
 
 
@@ -652,32 +680,6 @@ NNM-Club Sound Cleaner Collection from Bushpreet
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F4436CB0EBC4E11A5847D8FFA301C466645F09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367413   (748035) от 14.07.2020
-
-NNM-Club Unmarked Team - Чистые музыкальные треки с AudioJungle часть 9
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию очередную часть музыкальной коллекции в количестве 100 треков, которые были размещены авторами на ресурсе AudioJungle без watermark. Большое спасибо энтузиастам из группы Unmarked Team, которые смогли их отыскать и поделиться со всеми. Обращаем внимание, что отсутствие watermark не дает права на коммерческое использование треков.Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF4F12178B13AA3F37C500EAF9C47B04D7AAAE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

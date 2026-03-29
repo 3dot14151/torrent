@@ -1,3 +1,84 @@
+###  Публикация: 333991   (119552) от 03.02.2024
+
+Булат Окуджава | Прелестные приключения (2009) [MP3, Булат Окуджава]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Булат Шалвович Окуджава (9 мая 1924 – 12 июня 1997) поэт, композитор, прозаик, актёр и сценарист. Автор около двухсот авторских и эстрадных песен, написанных на собственные стихи, один из наиболее ярких представителей жанра авторской песни в 1950–1980 годы и автор лирическо-философской прозы.
+Это добрая, неторопливая философская сказка о фантастических приключениях (   Читать дальше...   )Жанр: Русская литература для детей, приключения, сказкаИздательство: КонтентМедиаПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9C1558F9F7579F86248323A2FEAEBE7691C373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425793   (119418) от 04.02.2024
+
+Василий Шукшин | До третьих петухов (2006) [MP3, Алексей Дубровский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Макарович Шукшин (1929–1974) – выдающийся писатель, самобытный обаятельный актер, крупный кинорежиссёр – оставил значительный след в истории отечественной культуры.
+«До третьих петухов» сказка про Ивана-дурака, как он ходил за тридевять земель набираться ума-разума. Нет покоя русскому человеку. Вечно тянет его в светлую даль, вечно болит и чего-то просит (   Читать дальше...   )Жанр: Классика советской прозы, сказкаПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2465DEFE3BBC765A2D0E4CBA7C386849EB7ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342002   (119385) от 04.02.2024
+
+Василий Ливанов | Дед Мороз и лето (2004) [MP3, Василий Ливанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Сказки для самых маленьких.
+Василий Борисович Ливанов – советский и российский киноактёр, сценарист, писатель, режиссёр, мультипликатор, заслуженный артист РСФСР (1981), народный артист РСФСР (1988) читает свои сказки. Музыка Геннадия Гладкова.Жанр: Русская литература, для детей, сказкаИздательство: Росмэн-АудиоПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0E91C385361B005E92FF88CD69FB4CA7866B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697114   (119071) от 05.02.2024
 
 Вениамин Каверин | Два капитана (2017) [MP3, Евгений Терновский]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119071.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119033.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118916.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118909.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118906.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118735.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118732.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118704.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118593.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118540.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118535.jpg" />
 </div>
 
 
@@ -304,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118531.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118512.jpg" />
 </div>
 
 
@@ -361,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118502.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118417.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118394.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118372.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118356.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118348.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118238.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118199.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118189.jpg" />
 </div>
 
 
@@ -608,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118080.jpg" />
 </div>
 
 
@@ -622,86 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C06AD85DE935B5CB40FCFC43EA9D46BE6B657697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459344   (117875) от 13.02.2024
-
-Иван Крылов | Басни (2010) [MP3, Олег Мартьянов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Школьная библиотека.
-Вниманию юных слушателей предлагается сборник живописных басен Ивана Андреевича Крылова. Сам Крылов считал, что басня, как и всякое произведение искусства, должна быть проста и понятна: «А ларчик просто открылся!». Вот такими «ларчиками» с сокровищами народной мудрости и были его произведения. Многие выражения из написанных им 200 басен (   Читать дальше...   )Жанр: Русская литература, классика, басняИздательство: АудиокнигаПродолжительность: 04:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640419ACDD8E82B1CBB19629135C83C3E8C67087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323477   (117872) от 13.02.2024
-
-Иван Крылов | Самые смешные басни (2006) [MP3, Александр Клюквин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117872.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отличии от своих предшественников – «баснописцев» И.А. Крылов не ставил во главу угла своих басен мораль. Его произведения – это сатирические сценки, маленькие комедийные спектакли, тесно связанные с русскими пословицами, поговорками и сказками. Именно благодаря этому они – такие живописные, яркие и подлинно народные. На баснях Крылова выросло не одно поколение. (   Читать дальше...   )Жанр: Русская литература, классика, басняИздательство: Издательский дом «Союз»Продолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE82885E9BDC9BAFA5AD21F10986D2F4556E7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699535   (117787) от 13.02.2024
-
-Саша Чёрный | Дневник Фокса Микки (2013) [MP3, Владимир Самойлов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Саша Чёрный (1880–1932) – русский поэт, прозаик, переводчик. Стиль его творчества, насыщенный юмором, богатый яркими, запоминающимися образами, обеспечил ему успех у детворы. Он и сегодня остаётся одним из любимейших детских писателей. А всё потому, что Саша Чёрный обладал редкостным талантом – талантом заражаться ребячьими чувствами. (   Читать дальше...   )Жанр: Русская литература для детей, классика, прозаИздательство: Студия «АРДИС»Продолжительность: 01:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635B49941F0572A1A7DFC61998EFB7A0154C8F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1527553   (736333) от 29.01.2022
+
+NG. Непокорный остров / Port Protection (Lawless Island) (2021) WEB-DL [H.264/1080p] (сезон 6, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изменчивый климат юго-востока Аляски постоянно бросает вызовы жителям небольшого поселка Порт Протекшн, живущим на самом краю цивилизации. Гэри старательно выполняет свои обязанности отца семейства, запасаясь припасами, Керли пытается противостоять жизненным невзгодам после постигшей его страшной утраты, Мэри старается скрыть свой страх перед предстоящим выживанием (   Читать дальше...   )Производство: США, Adjacent Productions, National GeographicЖанр: документальный, природа, выживаниеПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: серии x ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA45564CAAD09827D7B258EB148738243B652DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398307   (736034) от 25.07.2020
+
+Тайны анатомии (Кровеносная система) (2019) WEBRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она переносит кислород, питательные вещества и гормоны по всему организму, уносит из него отходы. Она помогает поддерживать температуру тела, уровень рH, защищает нас от инфекций, старается не покидать нас даже в самых тяжелых жизненных ситуациях и может рассказать о нас гораздо больше, чем любой документ. Все это — человеческая кровь. Одна из самых загадочных и (   Читать дальше...   )Телекомпания: Россия, ООО "ЕМГ"Жанр: Документальный, исследование, наукаРежиссер: Яна ВарлашкинаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B748FD48188423431C9ACCFD887FCA9175A3C28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398305   (736033) от 25.07.2020
+
+Тайны анатомии (Нервная система) (2019) WEBRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она первой реагирует на любые изменения внешней среды. Ее ответ является быстрым, точным и адресным. Она защищает, отдает приказы и передает информацию. Она умеет запоминать, обучаться, действовать на автомате и подчиняться нашим волевым усилиям. Без неё организм превратится в бессмысленный набор клеток. Это — нервная система. Одна из самых сложных и загадочных структур (   Читать дальше...   )Телекомпания: Россия, ООО "ЕМГ"Жанр: Документальный, исследование, наукаРежиссер: Яна ВарлашкинаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296C716C917D267CE69C54C8F0826AD1E0C5AC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528422   (734883) от 01.02.2022
+
+Опасные товары / Broken (2019) WEB-DL [H.264/1080p] (серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта серия документальных расследований расскажет, как халатность и обман в производстве и сбыте популярных потребительских товаров могут привести к ужасным последствиям.Производство: США, Zero Point Zero, NetflixЖанр: документальный, научно-популярный, исследованияРежиссер: Сара Холм Йохансен, Стив РивоПеревод: многоголосый профессиональный (Пифагор)Субтитры: Русские - Full / Forced (Екатерина Гребеньщикова, И. Великанова, Елена Гердова); Английские - SDH / Full / ForcedПродолжительность: серии x ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9017522D5301914B6C807B64D5478E9A173F3FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398802   (734641) от 28.07.2020
 
 Шамвари: Жизнь на воле / Shamwari: A wild life (2008) HDTVRip [H.264/720p-LQ] (сезон 3, серии 1-13 из 13)
@@ -6,7 +110,7 @@
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734641.jpg" />
+  <img src="Z:/picture/008/save_picture_734641.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734179.jpg" />
+  <img src="Z:/picture/008/save_picture_734179.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732862.jpg" />
+  <img src="Z:/picture/008/save_picture_732862.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732859.jpg" />
+  <img src="Z:/picture/008/save_picture_732859.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732555.jpg" />
+  <img src="Z:/picture/008/save_picture_732555.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732468.jpg" />
+  <img src="Z:/picture/008/save_picture_732468.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732306.jpg" />
+  <img src="Z:/picture/008/save_picture_732306.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732045.jpg" />
+  <img src="Z:/picture/008/save_picture_732045.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732044.jpg" />
+  <img src="Z:/picture/008/save_picture_732044.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731832.jpg" />
+  <img src="Z:/picture/008/save_picture_731832.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731769.jpg" />
+  <img src="Z:/picture/008/save_picture_731769.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730670.jpg" />
+  <img src="Z:/picture/008/save_picture_730670.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730598.jpg" />
+  <img src="Z:/picture/008/save_picture_730598.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730563.jpg" />
+  <img src="Z:/picture/008/save_picture_730563.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730553.jpg" />
+  <img src="Z:/picture/008/save_picture_730553.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Discovery. Техногеника. Петербургский метрополи
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730487.jpg" />
+  <img src="Z:/picture/008/save_picture_730487.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730376.jpg" />
+  <img src="Z:/picture/008/save_picture_730376.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729938.jpg" />
+  <img src="Z:/picture/008/save_picture_729938.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729750.jpg" />
+  <img src="Z:/picture/008/save_picture_729750.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729630.jpg" />
+  <img src="Z:/picture/008/save_picture_729630.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729610.jpg" />
+  <img src="Z:/picture/008/save_picture_729610.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ NG. Разгадка тайны Стоунхенджа / Stonehenge Decoded (200
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729524.jpg" />
+  <img src="Z:/picture/008/save_picture_729524.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Cледите за работой археолога Майка Паркер-П�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55BB15C7110008912C2FD77A17944AECE924A2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022164   (729520) от 01.06.2016
-
-NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers Superkanone V3 (2015) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729520.jpg" />
-</div>
-
-
-###  Подробнее
-
-К весне 1943 года, ситуация на фронтах Второй мировой войны сложилась не в пользу Гитлера. Бомбы союзников сыпались на немецкие города, фюрер решил нанести им ответный удар. Он решил пойти на риск и отдал приказ построить крупнейшую пушку в истории человечества: суперпушку V-3. Она представляла собой гигантское подземное сооружение, спрятанное на французском берегу. (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, война, вооружение, историяПеревод: ДублированныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB266DACE256379717449CF4842BF125A24AFD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709713   (729513) от 01.06.2016
-
-BBC: Как строилась Британия / How We Built Britain (2007) HDTVRip [H.264/720p] [6 серий из 6]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор фильма Дэвид Димблби приглашает Вас в грандиозное путешествие по Британии. Перед Вами история этой страны в ее зданиях и людях, которые их построили. Вы сможете узнать, как военные, политические или религиозные события оказывали свое влияние на ее архитектурный стиль: от величественных соборов и средневековых замков, до небольших квартир или коттеджей.Жанр: Документальный, история, архитектураПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 6 х ~00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC39D88C9415E43C2BCFCCC7A0C6BD89C6A42C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284150   (729456) от 20.02.2019
-
-BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сезон 1, серии 1-9 из 9)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы можем проводить время в спорах о том, что есть цивилизация... Но когда мы сталкиваемся с тем, что ей противостоит, а это дикость, жестокость, нетерпимость и жажда разрушений, мы понимаем, что есть цивилизация. На протяжении веков было много людей, обуреваемых страстью разрушать. Но человеку присуще противоположное стремление - стремление создавать. Не только утилитарные (   Читать дальше...   )Производство: Великобритания, США, BBC, Nutopia, The Open University, PBSЖанр: Документальный, история, искусствоРежиссер: Тим Нил, Метью Хил, Эшли Гетинг, Иен Лис, Хью МакГрегорПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: Русские, английскиеПродолжительность: 9 х ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3E96725E79EAA22C388244EA6C6C105069A4E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021864   (729224) от 01.06.2016
-
-Рассвет во Вселенной. Момент сотворения мира / Cosmic Dawn: The Real Moment of Creation (2015) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая популярная идея создания мира - Большой взрыв. Здесь нам покажут другую точку зрения. Вселенная создавалось в период Космического Рассвета и появлением первой платы во вселенной. Когда Большой взрыв произошел, все вокруг было очень мрачным и темным. Не существовало ни галактик, ни звёзд, было просто гигантское чёрное облако газа. Этот период именуется - тёмные (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1201AAEC87A2AC1FB9CF4FA99F3573E7D6FE6E13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1684116   (127962) от 14.12.2023
+###  Публикация: 1525355   (129515) от 20.01.2022
 
-VA - Music News vol.323 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+Guenter Haas - Famous People (2020) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. CHINCHILLA - Cut You Off (03:33)
- 002. 33 Below feat. Chrystel - Hold Tight (03:19)
- 003. ABI - Мама (03:19)
- 004. Adrianne Lenker - Ruined (04:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:25:27
+01. Mister Gossip (4:50)
+02. Prayer (4:09)
+03. Requiem (4:30)
+04. Love Me or Leave Me Alone (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFEDF404103F98CE3F80A34F3E72167142430AA4
+magnet:?xt=urn:btih:EC41D1ED0BA2D440A4E49202258C122ED02A4F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684119   (127961) от 14.12.2023
+###  Публикация: 1525403   (129513) от 20.01.2022
 
-Дампир / Dampyr (2022) BDRip [H.264/1080p]
+VA - Reggaeton World, Vol. 4 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Балканская война, середина 1990-х. Харлан Драка, мучимый кошмарами по ночам, днем зарабатывает деньги оригинальным способом. Он притворяется дампиром, получеловеком-полувампиром, и обманывает простых сельских жителей, которые верят в нечисть. Но однажды Харлан встречает солдат, которые пережили настоящее нападение магических кровопийц, и выясняет, что он действительно (   Читать дальше...   )Производство: Италия / Bonelli Entertainment, Brandon Box, Eagle PicturesЖанр: ужасы, фэнтезиРежиссер: Riccardo ChemelloАктеры: Вэйд Бриггс, Стюарт Мартин, Фрида Густавссон, Себастьян Крофт, Дэвид Моррисси, Раду Андрей Мику, Йонут Грама, Люк Робертс, Флорин Фратила, Мадалина Беллариу ИонПеревод: Дублированный (Zone Vision)Язык озвучки: Русский, Итальянский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:49:03
+01. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
+02. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
+03. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)
+04. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EEECA814936EC0D6940407BB4E58E0DDF000263
+magnet:?xt=urn:btih:6D928D1F9D6E0E22215B82293F9762DDE2AAE91E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684131   (127960) от 14.12.2023
+###  Публикация: 1525415   (129512) от 20.01.2022
 
-Дампир / Dampyr (2022) BDRip
+VA - Reggaeton Nocturno, Vol. 2 (2022) [AAC|~315 Kbps] <Reggae, Dancehall>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Балканская война, середина 1990-х. Харлан Драка, мучимый кошмарами по ночам, днем зарабатывает деньги оригинальным способом. Он притворяется дампиром, получеловеком-полувампиром, и обманывает простых сельских жителей, которые верят в нечисть. Но однажды Харлан встречает солдат, которые пережили настоящее нападение магических кровопийц, и выясняет, что он действительно (   Читать дальше...   )Производство: Италия, Bonelli Entertainment, Brandon Box, Eagle PicturesЖанр: ужасы, фэнтезиРежиссер: Риккардо КемеллоАктеры: Вэйд Бриггс, Стюарт Мартин, Фрида Густавссон, Себастьян Крофт, Дэвид Моррисси, Раду Андрей Мику, Йонут Грама, Люк Робертс, Флорин Фратила, Мадалина Беллариу ИонПеревод: Дублированный (Zone Vision)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:03
+01. Don Omar - Dile (3:27)
+02. Lalo Ebratt, J Balvin, Trapical - Mocca (Remix) (3:23)
+03. Daddy Yankee, Nicky Jam, Plan B - Shaky Shaky (Remix) (3:55)
+04. Cali Y El Dandee - Ay Corazón (3:10)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:25:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECAC4429E284C4C2022FD702336659C3BCCAD1FC
+magnet:?xt=urn:btih:95F3CE03BF61D8324182B5695467C728C2D21AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684159   (127959) от 14.12.2023
+###  Публикация: 1525384   (129510) от 20.01.2022
 
-Благовест | Акафист святителю Игнатию (Брянчанинову) (2015) [PDF]
+File List Export 2.7.1 [En]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По традиции святителю Игнатию особенно молятся о мире и благополучии на Кавказкой земле, о даровании покаянного чувства, при излишней привязанности к благам мира, о ревности к исполнению христианского служения, за священноначалие церковное, о твердом стоянии в Православии. Поскольку епископ Игнатий в свое время освятил известные источники кавказских минеральных вод, (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A99AC28CE79794E70A3D2F33DA3CE287C1FE71C
+magnet:?xt=urn:btih:B6F796E13EBD82FE47399EE7B5591CD683671C06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +111,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684125   (127958) от 14.12.2023
+###  Публикация: 490227   (129509) от 30.04.2012
 
-Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+VA - Enhanced Recordings 100 (2011) Mixed By Will Holland /2CD/ [FLAC|Lossless]<Trance, Progressive Trance>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stockholm Sweetnin' [7:18]
-02. The Quintessence [5:03]
-03. Meet Benny Bailey [5:20]
-04. For Lena and Lennie [6:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:08:19
+01. Tritonal - Utopia (Arty Remix - Intro Edit) :: 04:10
+02. Temple One - Zebra (Nuera Remix) :: 04:14
+03. Estiva - I Feel Fine (Piano Mix) :: 06:41
+04. Estiva - Next Level (Original Mix) :: 06:05
+05. 7 Skies & Static Blue - Lost & Found (Dan Stone Remix) :: 05:14
+06. Will Holland feat. Line Froyset - Things That Happen (Temple One Remix) :: 04:45
+07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) :: 04:04
+08. Will Holland feat. Jeza - Start Again (Juventa Remix) :: 05:39
+09. Phillip Alpha & Daniel Kandi - Sticks & Stones (Original Mix) :: 05:38
+10. Motionchild & Will Holland feat. Tiff Lacey - Arctic Kiss (Andy Blueman Remix) :: 07:01(   Читать дальше...   )2011Жанр: Trance, Progressive TranceФормат: 2×CD, Compilation, MixedПродолжительность: 02:37:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3083B868803031F1A3C8A5F8432FA7B0F31C892
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +146,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684162   (127957) от 14.12.2023
+###  Публикация: 1525362   (129508) от 20.01.2022
 
-Благовест | Акафист преподобному Серафиму Вырицкому (2015) [PDF]
+VA - My Electronic Kitchen, Vol. 4 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемый «Акафист преподобному Серафиму Вырицкому» выпущен издательством Благовест. В нем содержится молитвенное обращение к одному из самых любимых русских святых. Он жил совсем недавно, так, что даже живы еще люди, которые видели его лично (умер он в 1949 году). Прославление его было совершено в 2000 году, однако же почитание его быстро распространилось среди (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+01. Luc Forlorn - Love Hope (6:49)
+02. Remundo - Zone Desert (3:38)
+03. Dr. Beat - D melo (4:05)
+04. Mr. Groove - You Can t Stop Me (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B8FFB0A0C9E0AFBF6BFA8FE31AA26EECB5B4E4E
+magnet:?xt=urn:btih:84C13C2B3284BAEC06BF6C2A96E6ED2FC527ADA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,28 +175,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684121   (127956) от 14.12.2023
+###  Публикация: 1525422   (129505) от 20.01.2022
 
-Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGram Classics & Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Piano Jazz>
+VA - Ibiza Chillout (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Wish You a Merry Christmas [2:26]
-02. God Rest Ye Merry Gentlemen [2:40]
-03. Ding, Dong Merrily on High [3:21]
-04. Have Yourself a Merry Little Christmas/Christmas Song [6:54](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Piano JazzПродолжительность: 00:42:01
+01. Kieloval - Space Thoughts (5:53)
+02. Pique Dame - Souvenir de Bordeaux (6:14)
+03. Ackeret - Unofficial Meeting (6:03)
+04. Duenec - Innuendo (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
+magnet:?xt=urn:btih:ADC67F0DB42F69DE2FC87FF77DD19AEBE06AE070
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,302 +204,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684150   (127955) от 14.12.2023
+###  Публикация: 490289   (129504) от 30.04.2012
 
-Благовест | Акафист святителю Луке исповеднику, архиепископу Крымскому (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге издательства «Благовест» опубликован текст благодарственного пения (акафист), посвященного архиепископу Крымской епархии Луке, почитаемого святителем и исповедником (1996 год). С момента перенесения останков Луки в симферопольский кафедральный собор в его честь каждое утро читают избранный акафист.
-
-До своего монастырского пострига Валентин Феликсович Войно-Ясенецкий (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04AA3EB5D1A21AFC17BDE5AEF5FC789417B2912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684155   (127954) от 14.12.2023
-
-Благовест | Акафист преподобным Оптинским старцам (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127954.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном издании представлен текст акафиста святым преподобным Оптинским старцам, в гражданской (русской) орфографии, с ударениями. Шрифт достаточно крупный.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F637059420610FB7ACF6057E17E124252DBABCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684247   (127953) от 14.12.2023
-
-Martin Trevy - Live @ Road To Ultra Guatemala (2023-11-04) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Trevy - I Found A Way w/David Guetta vs. Benny Benassi - Satisfaction (Hardwell & Maddix Remix)
-02. Hardwell & Quintino - Sloopkogel
-03. 7 Skies - Tokyo777
-04. Felguk & KVSH & Yass vs. Hypaton & David Guetta - Rhythm Of The Night vs. Be My Lover (Martin Trevy Mashup)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1467F24DAA3859DD262BAF0920D8F7B0600B10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684117   (127952) от 14.12.2023
-
-Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phase I: Singularity
-A-a - Prologue: The Blackboard
-A-b - The Theory Of Everything Part 1
-A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684152   (127951) от 14.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Трех Радостей» (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед образом Пресвятой Богородицы Трёх радостей принято молиться о семейном счастье, его дарят на свадьбу, как родительское благословение. Родители молятся о благополучии детей, особенно о том, чтобы, когда они вырастут, их семейная жизнь сложилась счастливо. Также у этого образа молятся об оправдании несправедливо обвинённых, об освобождении из плена, о возвращении (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10A2141218970387803A607298E7738E772E8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684165   (127950) от 14.12.2023
-
-Благовест | Акафист святому Иоанну Предтече (2015) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство «Благовест» выпустило небольшую книжечку, в которую составители поместили акафист святому Иоанну Предтече. Этот святой – один из самых почитаемых во всем мире. Его память совершается в Церкви семь раз в год. Это единственный из всех святых, у кого празднуется Рождество. По учению святых отцов именно этому святому уготовано Отцом Небесным сидеть по левую (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD9DA7AF19D7DE337958AB7FA17FF522973BEA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684238   (127948) от 14.12.2023
-
-MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Lay Low
-02. VXSION - Parasah
-03. Francis Mercier & David Tort & Markem ft. Yas Cepeda & Euri - Strangers (Do You Remember)
-04. The Chainsmokers & Cheyenne Giles - Make Me Feel(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB4A19C3739E5B518BC45F2DFC3D76251BB4D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684054   (127947) от 14.12.2023
-
-Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anubis Gate - датская пауэр/прог-метал группа, образованная в 2001 году в Ольборге.2004 - Purification
-2005 - A Perfect Forever
-2007 - Andromeda Unchained
-2009 - The DetachedЖанр: Progressive/Power MetalПродолжительность: 09:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684124   (127946) от 14.12.2023
-
-System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127946.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Attack
-A2 Dreaming
-A3 Kill Rock 'N Roll
-A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684228   (127945) от 14.12.2023
-
-Наша банда. Олимпийские игры / Our Gang. Olympic Games (1927) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127945.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале двадцатого века возрожденные Олимпийские игры привлекали всеобщее внимание. Во всем мире. И конечно не могли о них не знать и дети. Вот и Банда решила устроить свои спортивные состязания.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Аллен ’Фарина’ Хоскинс, Джэнни Хоскинс, Бобби «Уизер» 'Хатчинс, Милдред Корнман, Джей Р. Смит, Гарри Спир, Pete the Pup, Пегги ЭхернПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A82A367CFA45BC3179122137255DF2559AD804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684106   (127944) от 14.12.2023
-
-Журнал | Здоровье №12 (декабрь 2023) [PDF]
+Журнал | Вкусно и просто. Спецвыпуск №3. Мясные блюда: все на пикник [апрель 2012] [PDF]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
+Журнал «Вкусно и просто» предназначен для тех, кто хочет правильно питаться, кто любит баловать себя и родных чем-то полезным и аппетитным, поэтому в каждом номере много интересных идей, вкусных рецептов, нужные советы и интересные кулинарные путешествия. Тема номера: Мясные блюда: все на пикникапрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61A1BD8437A8E06522882717E4B8E568F02037E1
+magnet:?xt=urn:btih:CE972F3CB7A826823BCD4C4D1B803D32FDDB7159
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +230,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684111   (127943) от 14.12.2023
+###  Публикация: 1525452   (129503) от 20.01.2022
 
-Журнал | Родина №12 (декабрь 2023) [PDF]
+App Tamer 2 v2.6.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129503.jpg" />
+</div>
+
+
+###  Подробнее
+
+При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AC83CC5A4551CB5E9E2E299ED53F8E0360EC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490234   (129502) от 30.04.2012
+
+Журнал | Дома. Усадьбы. Коттеджи №60 [апрель 2012] [PDF]
 
 >>Журналы
->>Научно-популярные журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Популярный исторический журнал "Родина" — это продолжение традиций научно-популярной исторической журналистики, заложенных создателями одноименного дореволюционного издания еще в 1879 году. Современная "Родина" выходит с января 1989 года и неизменно предоставляет читателю богатый просветительский материал.Жанр: Исторический научно-популярный журналИздательство: "Редакция "Российской газеты"Формат: PDFКачество: Обработанный скан
+Проекты загородных домов, интересные авторские материалы по технологии строительства, благоустройству, ландшафтному дизайну, интерьеру, саунам, бассейнам, инженерному оборудованию и многое другое.апрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:933B122BECE74A81F21861A312900DC000B065E2
+magnet:?xt=urn:btih:EB5AB8751F79460E92D7854F985463DA292CF04C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +282,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684107   (127942) от 14.12.2023
+###  Публикация: 1525484   (129501) от 20.01.2022
 
-VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
+Cisdem AppCrypt 6.6.0 [En]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Primestate Project - Terraform (Original Mix) [6:15]
-02. Arcanum - Aeternum (AFTERUS Extended Remix) [5:37]
-03. Master Beat Projekt - Ocean Wave (Extended Mix) [6:15]
-04. Mazeev - Quintessence (Original Mix) [5:27](   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:44
+Минималистский и простой в использовании инструмент безопасности Mac OS X, который позволяет защитить любое приложение с помощью мастер-пароля, который потребуется при каждом запуске.
+Cisdem AppCrypt  - несложная  утилита, которая дает Вам возможность блокировать доступ к определенным приложениям, установленных на вашем компьютере. Cisdem AppCrypt может оказаться полезным (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2021 Cisdem Inc.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:350CEDE794867ABF1B3FE968F49F268215AD9877
+magnet:?xt=urn:btih:BE196BFF935D4721ACFD5133FBC220AD40E41C9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,25 +309,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684262   (127940) от 14.12.2023
+###  Публикация: 1525563   (129500) от 20.01.2022
 
-HWiNFO 7.67 Build 5290 Beta Portable [Multi/Ru]
+FastScripts 3.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129500.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
+Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683490EC962817E8A2DF6113C6B589076CBAEBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490194   (129499) от 30.04.2012
+
+Pieno Lazeriai (Milky Laser) - Voyage (2005) [APE|Lossless]<Acid Jazz, Downtempo, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I`m In Love :: 04:26
+02. Born Again :: 03:22
+03. Sea balance :: 04:00
+04. Comfort :: 03:05
+05. Never Fall :: 03:40
+06. Robot is.. :: 02:40
+07. Tai Chi :: 03:48
+08. Sni Trava :: 05:06
+09. Dance was over :: 01:48
+10. Voyage :: 05:12(   Читать дальше...   )2005Жанр: Acid Jazz, Downtempo, ElectroФормат: CD, AlbumПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525399   (129498) от 20.01.2022
+
+Mirror for TCL TV 3.7.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров TCL TV. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ TCL TV. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели TCL TV с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD005A561979A6590748EB7E8046154A0D564EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525417   (129496) от 20.01.2022
+
+VA - Reggaeton Nocturno, Vol. 3 (2022) [AAC|~309 Kbps] <Reggae, Dancehall>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danna Paola, Skinny Happy, Yera, Trapical - Polo A Tierra (3:26)
+02. Luis Fonsi, KAROL G - Calypso (Remix) (3:04)
+03. Jhay Cortez, Mariah Angeliq - Costear (Remix) (3:45)
+04. Kevin Roldan, Zion & Lennox - PPP (Remix) (3:35)(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C1C1EF1E02CBBD036FA8FB2BB79F26B7F87BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525370   (129494) от 20.01.2022
+
+VA - Stil vor Talent 300, Pt. 3 (2021) [AAC|~326 Kbps] <Melodic House, Progressive House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Koletzki - Get on the Bus (3:45)
+02. Deorbiting - Ocean Drive Miami 84 (7:00)
+03. Deer Jade - Perfect Place Perfect Time (5:43)
+04. Daniel Rateuke - Godana (7:15)(   Читать дальше...   )Жанр: Melodic House, Progressive House, Organic HouseПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BBA06C1AC8A5EA13F001B58AFD8E46B176D314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525430   (129492) от 20.01.2022
+
+Mirror for Beko TV 3.5.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть Beko TV и вы хотите показать изображение своего телефона или компьютера на большом экране, у AirBeamTV есть решение! Зеркальное копирование вашего Mac, iPhone или iPad на любое устройство Beko или телевизор. Никаких проводов и дополнительного оборудования не требуется. Приложение работает без использования Apple TV или Airplay.
+При использовании приложения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2259226E1921ED94A9F00AF5765F57CCDBF34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525425   (129490) от 20.01.2022
+
+VA - Colours of Lounge, Vol. 2 (2022) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo, Soulfull House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew Daniel, Lina Loi - Joy (Alternative Version) (3:00)
+02. Svendaq - Sweep Melodies (Original Mix) (4:18)
+03. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)
+04. Stepo Del Sol - Paris at Night (Original Mix) (3:56)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, Soulfull HouseПродолжительность: 02:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939B62E9A5771CDCB676D1D717041019DA760AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490266   (129489) от 30.04.2012
+
+NETGATE Registry Cleaner 3.0.805.0 Portable x32/x64 [Многоязычный + Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+NETGATE Registry Cleaner Portable  - программа для исправления ошибок и оптимизации системного реестра Windows. NETGATE Registry Cleaner с легкостью удалит ненужные и исправит ошибочные записи реестра, что благотворно скажется на общей стабильности и производительности операционной системы. Некорректно удаленные программы оставляют в реестре следы, которые оказывают негативное влияние на стабильность работы системы, что может привести к плачевным последствиям вплоть до вылета системы в " синий экран".
+Программа проста в использовании и имеет приятный пользовательский интерфейс, она также способна дефрагментировать системный реестр для увеличения скорости доступа и очищать жесткие диски от мусорных и ненужных файлов.Название программы: NETGATE Registry Cleaner 3.0.805.0 PortableЯзык интерфейса: Многоязычный + Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DF2428EF439086ADDF3C949BEA8BBD2BBF50564
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +538,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684126   (127939) от 14.12.2023
+###  Публикация: 490202   (129488) от 30.04.2012
 
-Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
+Странное дело.  Демоны моря (2012.04.29) SATRip
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sumi-e [7:59]
-02. A-10-205932 [10:07]
-03. A-10-205932 (alternate take) [9:57]
-04. Hangin' Loose [8:50](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:48:44
+Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Демоны моря
+История мореплавания - бесконечная череда кораблекрушений, которые естественны для войн и не поддаются никакому объяснению в мирное время...Жанр: ТелепередачаПродолжительность: ~ 00:47:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FF0712874D5921EA3F21790F962743D695DE88F
+magnet:?xt=urn:btih:239906CF3E24D26CA95D0FE05857AC5A248D89EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +565,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684457   (127938) от 15.12.2023
+###  Публикация: 1525453   (129487) от 20.01.2022
 
-Air: Большой прыжок / Air (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
+PaintCode 3 v3.5.3 [En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1984 год. Маркетинговый скаут из баскетбольного отдела Nike Сонни Ваккаро хоть и не разбирается в спортивной обуви, но имеет чутьё на таланты. Начальство хочет привлечь для заключения рекламных контрактов трёх перспективных игроков подешевле, а Сонни настаивает на выборе только одного — восходящей звезды Майкла Джордана. Всем известно, что спортсмен предпочитает (   Читать дальше...   )Производство: США / Amazon Studios, Artists Equity, Mandalay PicturesЖанр: Драма, спортРежиссер: Бен АффлекАктеры: Мэтт Дэймон, Джейсон Бейтман, Бен Аффлек, Крис Мессина, Виола Дэвис, Джулиус Теннон, Дэмиэн Янг, Крис Такер, Мэттью Мехер, Густаф СкарсгардПеревод: Профессиональный многоголосый, авторскийЯзык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (Full, SDH)Продолжительность: 01:54:10
+Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © PixelCut 2022Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D98C7431DBEB81D7BAF1891658DEE4086324F770
+magnet:?xt=urn:btih:673C987804F48D20498285DF74DA53D94563132F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,26 +591,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 575959   (127937) от 15.12.2023
+###  Публикация: 489743   (129486) от 30.04.2012
 
-Дикая грация / Savage Grace (2007) WEB-DL [H.264/720p] [MVO]
+Владислав Задорожный | Один день из жизни Банзая (fan-fiction по серии S.T.A.L.K.E.R.) [2012] [MP3]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История фильма основанного на реальной истории, события которой разворачивались в Лондоне 1972 года.
- Молодая красавица Барбара Дэйли выходит замуж за богатого промышленника и наследника огромного состояния. Супружеская пара вращается в высших кругах общества, не отказывая себе во всевозможных удовольствиях. Их отношения нельзя назвать обычными: внезапно возникающие (   Читать дальше...   )Жанр: ДрамаРежиссер: Том КалинАктеры: Джулианна Мур, Стивен Диллэйн, Эдди Редмэйн, Хью Дэнси, Елена Анайя, Симон Андре, Джим Арнольд, Барни Кларк, Мапи Галан, Абель Фолк, Белен Руэда, Унакс Угальде, Энн Рейд, Мартин Хубер, Минни МарксПеревод: Многоголосый закадровыйПродолжительность: 01:33:35
+Всё было как всегда. Обычная пьянка в баре. Байки, анекдоты, и как всегда мозг был полностью отключён от внешнего мира под воздействием алкогольных испарений. Привычная драка без видимой на то причины. Сломанная посуда, треснувшие лавки и стулья. По полу валяются чьи-то выбитые зубы. Привычное обещание что-то куда-то и кому-то отнести по типу «Ты чё, мне не доверяешь?». И как это всегда бывало, после всего этого следовала нетрезвая вылазка в Зону...2012Жанр: Фантастика
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91FAD8BD32AE7EA5938BE94ADCD7DC2D230236F3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,25 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684400   (127936) от 15.12.2023
+###  Публикация: 1525388   (129485) от 20.01.2022
 
-Нефариус / Nefarious (2023) BDRip [H.264/1080p]
+Absolva - Side By Side (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В день запланированной казни осужденного серийного убийцы к нему в тюрьму приезжает врач, чтобы провести психиатрическую экспертизу. Тот с порога заявляет, что умереть всё равно не сможет, так как является демоном, а психиатр перед уходом совершит три убийства.Производство: США / Believe Entertainment (II)Жанр: триллерРежиссер: Чак Конзелман, Кэри СоломонАктеры: Джордан Бэлфи, Шон Патрик Флэнери, Том Омер, Гленн Бек, Дэниэл Мартин Берки, Марк Де Алессандро, Камерон Арнетт, Джеймс Хили мл., Сара Эрнандес, Джаррет ЛеМастерПеревод: дублированный (Футурум), многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:37:31
+01. Advocate Your Fate (04:40)
+ 02. Burning Star (04:02)
+ 03. The Sky's Your Limit (05:23)
+ 04. Side by Side (04:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF755CD3D2A4AB3509D1FAFFD2A6E3F212AFDBF9
+magnet:?xt=urn:btih:EB70801BE0B25DC6A910E09D79D25F8A68994968
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,25 +646,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684407   (127935) от 15.12.2023
+###  Публикация: 490383   (129484) от 30.04.2012
 
-Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023) WEB-DL [EN, RU]
+Филипп Киркоров - Я себе придумал эту жизнь (2012.04.30) SATRip
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Освоение Blender для начинающих: 3D-дизайн и усиление» Рендеринг" — это комплексный курс, призванный провести вас через увлекательный мир 3D-моделирования и рендеринга с использованием Blender, одного из самых популярных пакетов для создания 3D-изображений с открытым исходным кодом. Этот курс тщательно структурирован для учащихся всех уровней: от новичков, (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 03:17:59
+Он всегда знал, чего хочет. Ставил цели и обязательно добивался их. В этом фильме Филипп Киркоров признается: "Я же Телец, упрямый, мне в жизни не дает покоя невзятая высота"
+Так было с самого детства, когда мама, Виктория Киркорова – ведущая концертных программ - возила с собой маленького Филиппа, брала на фестивали, приучая к сцене. Папа – известный певец, помогал реализовывать детские мечты – петь на профессиональной сцене. Так в 85-м году в программе "Шире круг" Бедрос Киркоров и его 18-летний сын исполнили дуэтом песню "Алеша" на болгарском языке. Мы увидим эти кадры. И увидим эти выразительные, блестящие глаза юноши, взгляд - полный решимости и уверенности в себе.Жанр: ТелепередачаРежиссёр: Николай ВикторовПродолжительность: ~ 01:02:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B038397C4E644808C01DCDE50182E68BF885401D
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525389   (129483) от 20.01.2022
+
+Airtool 2 v2.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 Intuitibits LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4F024B7E24166F5025E9BBABE2367FBB9A1E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525400   (129482) от 20.01.2022
+
+Absolva - Never a Good Day to Die (2015) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disguise (05:04)
+ 02. Killer Within (03:24)
+ 03. No One Escapes (04:25)
+ 04. The Light (5:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF946497A163360183886BF835F20A6A1473C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

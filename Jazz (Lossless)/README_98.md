@@ -1,3 +1,119 @@
+###  Публикация: 1023514   (724400) от 05.06.2016
+
+Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [FLAC|Lossless|tracks] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream A Little Dream (3:37)
+02. Caravane (4:26)
+03. Quizas, Quizas, Quizas (3:24)
+04. It's Crazy (4:04)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 02:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E077A5822CF912E1AA555B1A9B5C8B37642D9011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667951   (723558) от 15.06.2013
+
+Andy Summers - 14 альбомов (1982-2005) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_723558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Andy Summers & Robert Fripp - I Advance Masked (1982):
+Andy Summers & Robert Fripp - Bewitched (1984):
+Andy Summers - XYZ (1987):(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 12:16:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218195   (723404) от 09.04.2018
+
+Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <Organ Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Champ [13:03]
+02. When You're Smilin' [07:17]
+03. The Good Life [08:37]
+04. Back Home Again in Indiana [10:56](   Читать дальше...   )Жанр: Organ Jazz, Soul-JazzПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF02B77AED3972971B266500BB072A2BCE2B59C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218422   (723401) от 09.04.2018
+
+Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You Or No One [08:36]
+02. Jamph [11:11]
+03. Nutville [10:17]
+04. Wee [11:29]Жанр: Hard BopПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34F53611ED0C33431EED961F2D3C5D308BEB686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400016   (723166) от 03.08.2020
 
 Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -6,7 +122,7 @@ Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723166.jpg" />
+  <img src="Z:/picture/008/save_picture_723166.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723163.jpg" />
+  <img src="Z:/picture/008/save_picture_723163.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Chet Baker - Peace (1982) 1989, Enja Records [FLAC|Lossless|tracks + .cue] <Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723153.jpg" />
+  <img src="Z:/picture/008/save_picture_723153.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jack Sheldon - The Quartet & The Quintet (1954, 1955) 1998, Pacific Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722874.jpg" />
+  <img src="Z:/picture/008/save_picture_722874.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Slide Hampton - Jazz With A Twist & Explosion! (1962) 2001, Atlantic [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722718.jpg" />
+  <img src="Z:/picture/008/save_picture_722718.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Pee Wee Russell - Ask Me Now! (1963) 2002,  Universal [APE|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722715.jpg" />
+  <img src="Z:/picture/008/save_picture_722715.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Pee Wee Russell & Coleman Hawkins - Jazz Reunion (1961, 1963) 2002, Past Perfect
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722714.jpg" />
+  <img src="Z:/picture/008/save_picture_722714.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Kenny Burrell - God Bless the Child (1971) 1987 [WavPack|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722713.jpg" />
+  <img src="Z:/picture/008/save_picture_722713.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Kenny Burrell - Midnight Blue (1967) 1999, RVG Edition [WavPack|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722712.jpg" />
+  <img src="Z:/picture/008/save_picture_722712.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kenny Burrell - Introducing Kenny Burrell (1956) 2000, 2CD, Compilation [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722629.jpg" />
+  <img src="Z:/picture/008/save_picture_722629.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ James Ingram - The Power of Great Music (1991) [APE|Lossless|image + .cue] <Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722627.jpg" />
+  <img src="Z:/picture/008/save_picture_722627.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Art Blakey And The Jazz Messengers - In My Prime Vol. 1 (1977) Remaster, 2015, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722466.jpg" />
+  <img src="Z:/picture/008/save_picture_722466.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Shirley Scott - Soul Song (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722465.jpg" />
+  <img src="Z:/picture/005/save_picture_722465.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Gerardo Nunez & Ulf Wakenius - Logos (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722382.jpg" />
+  <img src="Z:/picture/008/save_picture_722382.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Will Goble - Consider The Blues (2016) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722380.jpg" />
+  <img src="Z:/picture/008/save_picture_722380.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Joe Pass - What Is There To Say (1990) 2001, Pablo Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721733.jpg" />
+  <img src="Z:/picture/008/save_picture_721733.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Claire Austin - When Your Lover Has Gone (1954 - 1956) 1991, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721422.jpg" />
+  <img src="Z:/picture/008/save_picture_721422.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Instrumental Jazz Music Ambient and Jazz Instrumental Relax Center - Summer Luxu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721290.jpg" />
+  <img src="Z:/picture/008/save_picture_721290.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Victor Lewis - Eeeyyess! (1997) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721197.jpg" />
+  <img src="Z:/picture/008/save_picture_721197.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Humphrey Lyttelton - Classic Years (2005) Delta Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721195.jpg" />
+  <img src="Z:/picture/008/save_picture_721195.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720833.jpg" />
+  <img src="Z:/picture/008/save_picture_720833.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720806.jpg" />
+  <img src="Z:/picture/008/save_picture_720806.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129590   (720797) от 29.04.2017
-
-Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Popo [03:02]
-02. Over the Rainbow [03:01]
-03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024066   (720693) от 07.06.2016
-
-Stanley Turrentine - Hustlin' (1964) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Trouble (No. 2) [07:52]
- 02.Love Letters [07:40]
- 03.The Hustler [06:04]
- 04.Ladyfingers [06:26](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E71469FF9E7600D99C65272669B59FA47B4D084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024073   (720570) от 07.06.2016
-
-Mongo Santamaria - Mr. Watermelon Man & La Bamba (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La Bamba [04:01]
- 02.Fat Back [03:20]
- 03.Summertime [04:46]
- 04.Manha De Carnaval (Morning Of The Carnival) (From 'Black Orpheus') [04:50](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D8A7DAE71179B20821711564A24277A55045B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024018   (720556) от 07.06.2016
-
-Ella Fitzgerald - The Best Of... (1996) Reissue, Remastered, Recordings from 1938 to 1955 [APE|Lossless|image + .cue] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Tisket A-Tasket
-02. Undecided
-03. Stairway to the Stars
-04. Five O'Clock Whistle(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF1A17C8EE7762A43B44560F5FF267A0D56AE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

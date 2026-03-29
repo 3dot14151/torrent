@@ -1,3 +1,29 @@
+###  Публикация: 423931   (281983) от 17.12.2011
+
+Журнал | Playboy [Украина] №1 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин. Эксклюзивные съёмки знаменитостей. Престижные автомобили. Стильный и современный Playboy неизменно привлекает внимание читателей. Это издание для успешных современных мужчин, берущих от жизни всё! В каждом номере — девушка месяца и галерея Playboy. Playboy — классический мужской life style журнал!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C07FA16BF3F4961AAA6FD96C590D4575C5F9F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 424073   (281971) от 17.12.2011
 
 В.И. Левченко | Справочник домашнего электрика [2009] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281971.jpg" />
+  <img src="Z:/picture/008/save_picture_281971.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281400.jpg" />
+  <img src="Z:/picture/008/save_picture_281400.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281331.jpg" />
+  <img src="Z:/picture/008/save_picture_281331.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281273.jpg" />
+  <img src="Z:/picture/008/save_picture_281273.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280791.jpg" />
+  <img src="Z:/picture/008/save_picture_280791.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280402.jpg" />
+  <img src="Z:/picture/008/save_picture_280402.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280277.jpg" />
+  <img src="Z:/picture/008/save_picture_280277.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279774.jpg" />
+  <img src="Z:/picture/008/save_picture_279774.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279609.jpg" />
+  <img src="Z:/picture/008/save_picture_279609.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279457.jpg" />
+  <img src="Z:/picture/008/save_picture_279457.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279206.jpg" />
+  <img src="Z:/picture/008/save_picture_279206.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279175.jpg" />
+  <img src="Z:/picture/008/save_picture_279175.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279147.jpg" />
+  <img src="Z:/picture/008/save_picture_279147.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278927.jpg" />
+  <img src="Z:/picture/008/save_picture_278927.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278899.jpg" />
+  <img src="Z:/picture/008/save_picture_278899.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278646.jpg" />
+  <img src="Z:/picture/008/save_picture_278646.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278549.jpg" />
+  <img src="Z:/picture/008/save_picture_278549.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Udemy | Программирование на C# от новичка до спе
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278326.jpg" />
+  <img src="Z:/picture/008/save_picture_278326.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277718.jpg" />
+  <img src="Z:/picture/008/save_picture_277718.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277710.jpg" />
+  <img src="Z:/picture/008/save_picture_277710.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277639.jpg" />
+  <img src="Z:/picture/008/save_picture_277639.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277578.jpg" />
+  <img src="Z:/picture/008/save_picture_277578.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277322.jpg" />
+  <img src="Z:/picture/008/save_picture_277322.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277205.jpg" />
+  <img src="Z:/picture/008/save_picture_277205.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ lynda.com | CINEMA 4D R12 Essential Training [2010] [EN] PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277013.jpg" />
+  <img src="Z:/picture/008/save_picture_277013.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ lynda.com | CINEMA 4D R12 Essential Training [2010] [EN] PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08701A56A4B464A0A277D44A10706144D0D32C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169569   (276868) от 30.11.2017
-
-Подшивка журналов | The MagPi (2017) [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276868.jpg" />
-</div>
-
-
-###  Подробнее
-
-The MagPi - о различных поделках и экспериментах с применением миникомпьютера Raspberry Pi.Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA22784077FF0D49C1DE95A317292A93D0991C39
 ```
 
 https://mybot314.ru/tekegram_catalog/

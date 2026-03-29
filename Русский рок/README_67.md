@@ -1,3 +1,119 @@
+###  Публикация: 1073020   (349723) от 14.11.2016
+
+Смех - Импортозамещение (2016) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Члены страны
+02. Их радио
+03. Punk's Not Dead
+04. Я верю(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E31DE624F415C4497D154B2D280BFB73675676A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418377   (349286) от 24.10.2020
+
+CWT - Дайте вакцину! (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349286.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Разрываясь на части
+2. Девочка-радуга
+3. Песня о нелегкой судьбе россиянина
+4. Дайте вакцину!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3705B33D0F5C7B6AF951144CD64081E3673421C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418246   (348942) от 24.10.2020
+
+Коловрат [Kolovrat] - Думая о России (2017) Compilation [MP3|320 Kbps] <Hard Rock, Ballad, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Думая о России [00:05:05]
+02. Гусарская баллада [00:03:53]
+03. 300 лет Питеру [00:04:51]
+04. Надежда ещё жива [00:03:14](   Читать дальше...   )Жанр: Hard Rock, Ballad, Soft RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0490E0E1C350EA535FF312C9C1FBA78F14FA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953436   (348819) от 04.11.2015
+
+Калинов Мост - Циклон (2015) [MP3|320 кб/с]<Folk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_348819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формальной, но знаковой приметой нового альбома является то, что все песни, составившие этот «циклонный» цикл, сочинены Дмитрием Ревякиным на самой восточной окраине нашей необъятной Родины — на терпкой и таинственной Камчатке (или по пути к ней, как открывающая альбом композиция), и все они написаны зимой (часть в декабре 2008 года, часть в феврале 2010). В этом (   Читать дальше...   )01. Boeing
+02. На краю земли
+03. Циклон
+04. Сквозь искушения(   Читать дальше...   )Жанр: Folk Rock, RockПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD70440A998B9C5238F0B5C22C9006CEB5F0547F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 279689   (348678) от 04.11.2015
 
 Ва-Банкъ - Лучшие песни (1998) [MP3|320 kbps]<Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348678.jpg" />
+  <img src="Z:/picture/008/save_picture_348678.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ water, please - Welcome to Waterline (2022) [MP3|320 Kbps] <post rock, indie roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348158.jpg" />
+  <img src="Z:/picture/008/save_picture_348158.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Deadheaven - 2 Albums (2014-2022) [MP3|320 Kbps] <Modern Metal, Cyber Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348156.jpg" />
+  <img src="Z:/picture/008/save_picture_348156.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348067.jpg" />
+  <img src="Z:/picture/008/save_picture_348067.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347931.jpg" />
+  <img src="Z:/picture/008/save_picture_347931.jpg" />
 </div>
 
 
@@ -147,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347754.jpg" />
+  <img src="Z:/picture/008/save_picture_347754.jpg" />
 </div>
 
 
@@ -176,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347250.jpg" />
+  <img src="Z:/picture/008/save_picture_347250.jpg" />
 </div>
 
 
@@ -211,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347146.jpg" />
+  <img src="Z:/picture/008/save_picture_347146.jpg" />
 </div>
 
 
@@ -240,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347105.jpg" />
+  <img src="Z:/picture/008/save_picture_347105.jpg" />
 </div>
 
 
@@ -269,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346954.jpg" />
+  <img src="Z:/picture/008/save_picture_346954.jpg" />
 </div>
 
 
@@ -298,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346953.jpg" />
+  <img src="Z:/picture/008/save_picture_346953.jpg" />
 </div>
 
 
@@ -327,7 +443,7 @@ Stigmata - Mainstream? (2017) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346807.jpg" />
+  <img src="Z:/picture/008/save_picture_346807.jpg" />
 </div>
 
 
@@ -356,7 +472,7 @@ Inferno - Воскресни (2005) [MP3|320 кб/с]<Gothiс metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_346261.jpg" />
+  <img src="Z:/picture/005/save_picture_346261.jpg" />
 </div>
 
 
@@ -391,7 +507,7 @@ Restless Oblivion - 2 Albums (2014-2022) [MP3|320 Kbps] <Gothic Metal, Melosic D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345934.jpg" />
+  <img src="Z:/picture/008/save_picture_345934.jpg" />
 </div>
 
 
@@ -420,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345836.jpg" />
+  <img src="Z:/picture/008/save_picture_345836.jpg" />
 </div>
 
 
@@ -449,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345695.jpg" />
+  <img src="Z:/picture/008/save_picture_345695.jpg" />
 </div>
 
 
@@ -478,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345615.jpg" />
+  <img src="Z:/picture/008/save_picture_345615.jpg" />
 </div>
 
 
@@ -507,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345485.jpg" />
+  <img src="Z:/picture/008/save_picture_345485.jpg" />
 </div>
 
 
@@ -536,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345460.jpg" />
+  <img src="Z:/picture/008/save_picture_345460.jpg" />
 </div>
 
 
@@ -565,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345145.jpg" />
+  <img src="Z:/picture/008/save_picture_345145.jpg" />
 </div>
 
 
@@ -600,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344679.jpg" />
+  <img src="Z:/picture/008/save_picture_344679.jpg" />
 </div>
 
 
@@ -629,7 +745,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344498.jpg" />
+  <img src="Z:/picture/008/save_picture_344498.jpg" />
 </div>
 
 
@@ -643,122 +759,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F02DCCBB8E8FB1AC151018DAA1C25CF20128C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180099   (344445) от 02.11.2017
-
-Вежливый Отказ - Военные куплеты (2017) [MP3|320 Kbps] <Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А вдруг!
-02. Гудериан и мороженое
-03. Пехота в окопах
-04. Гопак(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C91BBA9D80B7A16DFB660DEE7CE4FF067EF8929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578783   (343544) от 24.09.2022
-
-Начало! - Последняя песня (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343544.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мой путь
-2. Привычка
-3. Маски
-4. Мой мир(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C164BD3DE5B8189B2EA2DD4C4467C339A22EE57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578779   (343514) от 24.09.2022
-
-KDRR - Из Сибири с любовью (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дисклеймер
-2. Хорошо, да тошно
-3. Маски
-4. Антивсё(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C1FA6DA76C39BB48F1ED303843E8B4863022FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578781   (343376) от 24.09.2022
-
-Тараканы! - Худшие из худших , Vol. 1 (2022) Demos, Outtakes, and Other Shit [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343376.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сам себе враг
-2. Такие парни как мы
-3. Законы джунглей (Демо 2007)
-4. Завтра она уезжает к себе(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB791E6BAD162EFEA6C401A31EAF575C0940CBE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

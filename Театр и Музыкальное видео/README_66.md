@@ -1,3 +1,169 @@
+###  Публикация: 1039449   (581351) от 10.08.2016
+
+Сказки Беатрикс Поттер / Tales of Beatrix Potter (1971) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется удивительный фильм-балет 1971 года “Сказки Беатрис Поттер” по знаменитой истории английской писательницы и художницы Беатрикс Поттер о кролике Питере и других животных. Вся кинокартина - это представление персонажей: танцуют белки, мыши, лягушки и прочие мелкие животные. Уникальная в своём роде постановка, граничащая с кукольным сюрреализмом, (   Читать дальше...   )Производство: Великобритания, GW FilmsЖанр: Мюзикл, балет, фэнтези, семейныйРежиссер: Реджинальд МиллсАктеры: Фредерик Эштон, Александр Грант, Джули Вуд, Энн Ховард, Боб Мид, Гарри Грант, Сэлли Эшби, Бренда Ласт, Майкл Коулмэн, Уэйн СлипПеревод: Не требуетсяПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E140EE64D677A4F57752BA6483856C4AC3C84F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919482   (580975) от 21.07.2015
+
+Принц Наполеон (1969) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль-памфлет. По сатирической пьесе Василия Шкваркина.
+"Все великие исторические события и личности появляются дважды: первый раз - как трагедия, второй раз - как фарс". (Гегель) Пьеса Василия Шкваркина "Принц Наполеон" (1941) - история неожиданного возвышения, падения и достижения власти авантюристом. Луи Наполеоном. Кукла в руках политиканов (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Драма, ТелеспектакльРежиссер: Александр БелинскийАктеры: Сергей Юрский, Игорь Дмитриев, Владислав Стржельчик, Николай Карамышев, Валентина Ковель, Элеонора Гордон, Наталья Тенякова, Николай Боярский, Павел Панков, Георгий Тейх, Леонард Секирин, Валентина Чемберг, В. ШалнтПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E608B5DEBEA3B859AB7B1BF1DFA496CFE4C780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359778   (580788) от 07.07.2011
+
+Линкин парк / Linkin Park - What I've Done (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный клип хотелось не много улучшить, так как в клипах linkin park - what ive done, которые мне попадались в сети,  видео шло рывками, дабы исправить подобную оплошность я попробовал удвоить количество fps, по-моему получилось не плохо.Жанр: МузыкаРежиссер: Warner Bros. RecordsАктеры: группа ЛинкинаПеревод: ОтсутствуетПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0176683F59067692C8BEA5F479C2E17AB3E580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920397   (579924) от 22.07.2015
+
+Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
+02. Give Me All Your Love Tonight
+03. Love Ain't No Stranger
+04. Is This Love(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920420   (579921) от 22.07.2015
+
+Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Metallica с классической программой в Мехико в 2009 году. Концертное выступление чередуется общением с фанатами и эпизодами с Мексиканского ТВ.1. The Ecstasy Of Gold
+2. Creeping Death
+3. For Whom The Bell Tolls
+4. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashРежиссер: Wayne IshamПродолжительность: 02:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F115A025896E10D0B8E5EBB4E23787BEF108ED17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302754   (579075) от 17.05.2019
+
+Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop - Intro
+01. 50 Cent - In Da Club
+02. Xzibit & Snoop Dogg & Dr. Dre - X
+03. Down Low - Potion(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279CA724CFAE2882F6CEC29C1F68C9EEF886FC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554169   (578938) от 29.05.2022
 
 Квартирник у Маргулиса. Юбилей Павла Фахртдинова (28.05.2022) WEBRip [H.264/1080p-LQ]
@@ -6,7 +172,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578938.jpg" />
+  <img src="Z:/picture/008/save_picture_578938.jpg" />
 </div>
 
 
@@ -35,7 +201,7 @@ Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578630.jpg" />
+  <img src="Z:/picture/008/save_picture_578630.jpg" />
 </div>
 
 
@@ -64,7 +230,7 @@ MEDINA - FOR ALTID (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578611.jpg" />
+  <img src="Z:/picture/008/save_picture_578611.jpg" />
 </div>
 
 
@@ -90,7 +256,7 @@ Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578406.jpg" />
+  <img src="Z:/picture/008/save_picture_578406.jpg" />
 </div>
 
 
@@ -119,7 +285,7 @@ Rammstein - Live aus St. Petersburg (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578367.jpg" />
+  <img src="Z:/picture/008/save_picture_578367.jpg" />
 </div>
 
 
@@ -154,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577236.jpg" />
+  <img src="Z:/picture/008/save_picture_577236.jpg" />
 </div>
 
 
@@ -183,7 +349,7 @@ Beyonce - Best Thing I Never Had (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576955.jpg" />
+  <img src="Z:/picture/008/save_picture_576955.jpg" />
 </div>
 
 
@@ -209,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576949.jpg" />
+  <img src="Z:/picture/008/save_picture_576949.jpg" />
 </div>
 
 
@@ -235,7 +401,7 @@ Stomp: Live (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576577.jpg" />
+  <img src="Z:/picture/005/save_picture_576577.jpg" />
 </div>
 
 
@@ -263,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576429.jpg" />
+  <img src="Z:/picture/008/save_picture_576429.jpg" />
 </div>
 
 
@@ -291,7 +457,7 @@ Bon Jovi - Live at Madison Square Garden (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575372.jpg" />
+  <img src="Z:/picture/008/save_picture_575372.jpg" />
 </div>
 
 
@@ -320,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575276.jpg" />
+  <img src="Z:/picture/008/save_picture_575276.jpg" />
 </div>
 
 
@@ -349,7 +515,7 @@ Dio - Live In London - Hammersmith Apollo (1993/2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575216.jpg" />
+  <img src="Z:/picture/008/save_picture_575216.jpg" />
 </div>
 
 
@@ -378,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575202.jpg" />
+  <img src="Z:/picture/008/save_picture_575202.jpg" />
 </div>
 
 
@@ -405,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574516.jpg" />
+  <img src="Z:/picture/005/save_picture_574516.jpg" />
 </div>
 
 
@@ -431,7 +597,7 @@ U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573647.jpg" />
+  <img src="Z:/picture/008/save_picture_573647.jpg" />
 </div>
 
 
@@ -460,7 +626,7 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573583.jpg" />
+  <img src="Z:/picture/008/save_picture_573583.jpg" />
 </div>
 
 
@@ -489,7 +655,7 @@ Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573316.jpg" />
+  <img src="Z:/picture/008/save_picture_573316.jpg" />
 </div>
 
 
@@ -515,7 +681,7 @@ Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572886.jpg" />
+  <img src="Z:/picture/005/save_picture_572886.jpg" />
 </div>
 
 
@@ -550,7 +716,7 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571887.jpg" />
+  <img src="Z:/picture/008/save_picture_571887.jpg" />
 </div>
 
 
@@ -561,171 +727,6 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FFA9CDE736B8911758507EB933B260893ACF993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689057   (571607) от 14.08.2013
-
-Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 2011 года в Японии произошло ужасное землетрясением и чудовищное цунами, что повлекло за собой крупнейшую аварию на атомной станции Фукусима. Осенью 2011 года, несмотря ни на что, Aerosmith совершил тур в Японию, страну с которой они всегда имели хорошие отношения. Этот фильм - концерт объединяет музыкальные треки с закулисными кадрами которые порой очень (   Читать дальше...   )01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Производство: USA / Eagle Rock EntertainmentЖанр: Hard RockСубтитры: Английские, немецкие, испанские, французские, итальянские, датские, португальскиеФормат: MKVПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C3EAFF105BB2C7F3815EC7EE9C204109ADCAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922093   (571594) от 27.07.2015
-
-U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт записан в клубе “Arena Moscow” 28 сентября 2013 года. Релиз состоялся 23 мая 2014 года в форматах DVD+2CD, BD+2CD и 3 винила цвета российского флага. Россия имеет особое значение для Удо Диркшнайдера (Udo Dirkschneider) и его группы U.D.O. Они были одним из первых иностранных коллективов, отправившихся на гастроли по всей необъятной территории России, и их (   Читать дальше...   )01. Intro
-02. Steelhammer
-03. King Of Mean
-04. Future Land(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9189F4D34CA10D5113AECF5AF6D305B3948D334B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922129   (571426) от 27.07.2015
-
-Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Blackmore's Night возник на фоне постоянного интереса Ричи Блэкмора к музыке. Дебютный альбом, "Shadow of the moon", вышедший летом 1997 года, произвёл эффект разорвавшейся бомбы - так музыку Средневековья ещё не играл никто! Практически все западные музыкальные издания окрестили "Blackmore's night" открытием 1997 года. Концерт Blackmore’s (   Читать дальше...   )01. Locked Within The Crystal Ball
-02. Guilded Cage
-03. The Circle
-04. Journeyman(   Читать дальше...   )Жанр: Celtic, Folk, Neo-MedievalПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0077DFE621C192A651AC03796A792ABC6B8808E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043881   (571050) от 17.08.2016
-
-Александр Володин - Идеалистка (2014) SATRip (Российский академический молодежный театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Театр предлагает "калейдоскоп" из произведений Александра Володина - пьесы "Идеалистка", легендарных стихотворных строк и монологов от лица героинь Шекспира и Гоголя. "Она изо всех сил верит в чистую и светлую любовь на всю жизнь, хотя знает как некоторые легко сходятся на неделю и как они смеются над теми, кто в любви ищет чего-то большего. (   Читать дальше...   )Производство: Россия, Российский академический молодежный театрЖанр: Спектакль, монологи о любвиРежиссер: Владимир БогатыревАктеры: Ульяна УрванцеваПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B2EF0CAD1DEA34779FF95768A756853717162F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362534   (571004) от 13.07.2011
-
-David Gilmour (Pink Floyd) - "Live at Later with Jools Holland" (2008) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_571004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCKРежиссер: BBCАктеры: David GilmourПеревод: ОтсутствуетПродолжительность: 04:32 + 06:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043661   (570927) от 17.08.2016
-
-Кошки-мышки (2009) SATRip (2 действия) (БДТ им. Товстоногова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьеса Иштвана Эркеня впервые была представлена в Большом драматическом театре под названием "Кошки-мышки" в 1974 году. Жанр спектакля был обозначен как "игра в двух действиях", и на глазах у зрителей главная героиня - Эржебет Орбан в исполнении Зинаиды Шарко - вела опасную игру с судьбой, доказывая, что в силах человека избежать размеренной, расчетливой, (   Читать дальше...   )Производство: Россия, Телеканал "Культура"Жанр: ТелеспектакльРежиссер: Галина ЛюбимоваАктеры: Зинаида Шарко, Людмила Макарова, Ирина Комарова, Татьяна Бедова, Алексей Фалилеев, Юзеф МироненкоПродолжительность: 2 х ~ 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F649270F82EC8499E705CDF7A96DA93295B119
 ```
 
 https://mybot314.ru/tekegram_catalog/

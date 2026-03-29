@@ -1,3 +1,61 @@
+###  Публикация: 1296112   (613446) от 16.04.2019
+
+Bernward Koch - Filled with Light (2017) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Anthem (6:15)
+ 02. Crystal Light (4:11)
+ 03. Free (3:48)
+ 04. That June Feeling (6:55)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B017DDF31EDBD51E7E808C06C6B452E227BC4CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037464   (613426) от 24.07.2016
+
+Paul Mauriat - C'est La Vie ... Lily & Comme J'ai Toujours Envie D'aimer (2016) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613426.jpg" />
+</div>
+
+
+###  Подробнее
+
+C'est La Vie ...Lily (1970)
+01. Julietta [0:02:42.20]
+02. Raindrops Keep Fallin' On My Head [0:02:53.53]
+03. Paris S'allume [0:02:10.01](   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046BAD7CFC2A5363B271D244422A3479E9131622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545676   (613276) от 20.04.2022
 
 Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Indie Folk, Singer-Songwriter>
@@ -6,7 +64,7 @@ Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613276.jpg" />
+  <img src="Z:/picture/008/save_picture_613276.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613030.jpg" />
+  <img src="Z:/picture/008/save_picture_613030.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chil
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612882.jpg" />
+  <img src="Z:/picture/005/save_picture_612882.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Sta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612832.jpg" />
+  <img src="Z:/picture/005/save_picture_612832.jpg" />
 </div>
 
 
@@ -125,7 +183,7 @@ Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612603.jpg" />
+  <img src="Z:/picture/005/save_picture_612603.jpg" />
 </div>
 
 
@@ -160,7 +218,7 @@ Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612335.jpg" />
+  <img src="Z:/picture/008/save_picture_612335.jpg" />
 </div>
 
 
@@ -189,7 +247,7 @@ Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612290.jpg" />
+  <img src="Z:/picture/008/save_picture_612290.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ VA - Phenomena (1985/1997) 2CD [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612029.jpg" />
+  <img src="Z:/picture/008/save_picture_612029.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611773.jpg" />
+  <img src="Z:/picture/008/save_picture_611773.jpg" />
 </div>
 
 
@@ -276,7 +334,7 @@ VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611421.jpg" />
+  <img src="Z:/picture/005/save_picture_611421.jpg" />
 </div>
 
 
@@ -311,7 +369,7 @@ Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611234.jpg" />
+  <img src="Z:/picture/008/save_picture_611234.jpg" />
 </div>
 
 
@@ -340,7 +398,7 @@ VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611093.jpg" />
+  <img src="Z:/picture/008/save_picture_611093.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрожд�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611046.jpg" />
+  <img src="Z:/picture/008/save_picture_611046.jpg" />
 </div>
 
 
@@ -404,7 +462,7 @@ Nicolae Botgros si Orchestra Lautarii / Николай Ботгрос и Орк�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610729.jpg" />
+  <img src="Z:/picture/008/save_picture_610729.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Medwyn Goodall - Great Spirit 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610512.jpg" />
+  <img src="Z:/picture/008/save_picture_610512.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610490.jpg" />
+  <img src="Z:/picture/008/save_picture_610490.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610254.jpg" />
+  <img src="Z:/picture/008/save_picture_610254.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610194.jpg" />
+  <img src="Z:/picture/008/save_picture_610194.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610130.jpg" />
+  <img src="Z:/picture/008/save_picture_610130.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610126.jpg" />
+  <img src="Z:/picture/008/save_picture_610126.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609888.jpg" />
+  <img src="Z:/picture/008/save_picture_609888.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609711.jpg" />
+  <img src="Z:/picture/008/save_picture_609711.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609703.jpg" />
+  <img src="Z:/picture/008/save_picture_609703.jpg" />
 </div>
 
 
@@ -718,7 +776,7 @@ Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609620.jpg" />
+  <img src="Z:/picture/008/save_picture_609620.jpg" />
 </div>
 
 
@@ -732,64 +790,6 @@ Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C235C762652BB5253CF0BE251435A4EA05E1E60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545800   (609618) от 22.04.2022
-
-Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609618.jpg" />
-</div>
-
-
-###  Подробнее
-
-From Nashville with Love (1966)
-01. La Fiesta (2:56)
-02. The Song from Moulin Rouge (2:21)
-03. Something Tender (3:03)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE241779760CDBF30B67CFA31AB1AAC465D3191B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 222010   (609412) от 27.07.2010
-
-Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adiemus (Adiemus I - 1999 Version) (3:57)
-02. Pie Jesu (Requiem) (4:33)
-03. Hymn Before Action (The Armed Man) (2:38)
-04. Cantus: Song of Tears (Adiemus II - Journey Edit) (3:56)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

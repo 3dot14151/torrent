@@ -6,7 +6,7 @@ Windows 10 Manager 2.2.3 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785231.jpg" />
+  <img src="Z:/picture/008/save_picture_785231.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Unreal Commander 3.57 Build 1285 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785221.jpg" />
+  <img src="Z:/picture/008/save_picture_785221.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 Manager 2.2.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785213.jpg" />
+  <img src="Z:/picture/008/save_picture_785213.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ All in One Runtimes 2.4.5 Portable [De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785188.jpg" />
+  <img src="Z:/picture/008/save_picture_785188.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CyberGhost VPN 6.0.9.3080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785182.jpg" />
+  <img src="Z:/picture/008/save_picture_785182.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ RE Vision FX Effections Plus 17.0 RePack by Team V.R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785176.jpg" />
+  <img src="Z:/picture/008/save_picture_785176.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IObit Driver Booster Pro 7.5.0.750 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785144.jpg" />
+  <img src="Z:/picture/008/save_picture_785144.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ IObit Smart Defrag Pro 6.5.5.109 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785143.jpg" />
+  <img src="Z:/picture/008/save_picture_785143.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ScreenToGif 2.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785141.jpg" />
+  <img src="Z:/picture/008/save_picture_785141.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Trojan Killer 2.1.28 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785136.jpg" />
+  <img src="Z:/picture/008/save_picture_785136.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ TinyWall 3.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785120.jpg" />
+  <img src="Z:/picture/008/save_picture_785120.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Chasys Draw IES 5.01.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785117.jpg" />
+  <img src="Z:/picture/008/save_picture_785117.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare Filmora 9.5.0.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785098.jpg" />
+  <img src="Z:/picture/008/save_picture_785098.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ IObit Driver Booster Pro 7.5.0.751 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785087.jpg" />
+  <img src="Z:/picture/008/save_picture_785087.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BestReminder v2019.01.18.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785004.jpg" />
+  <img src="Z:/picture/008/save_picture_785004.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ DiskDigger 1.20.9.2707 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785002.jpg" />
+  <img src="Z:/picture/008/save_picture_785002.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GoodSync Enterprise 10.9.22.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785000.jpg" />
+  <img src="Z:/picture/008/save_picture_785000.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FastStone Image Viewer 6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784992.jpg" />
+  <img src="Z:/picture/008/save_picture_784992.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Dashcam Viewer 3.1.8 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784991.jpg" />
+  <img src="Z:/picture/008/save_picture_784991.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra (21.01.2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784965.jpg" />
+  <img src="Z:/picture/008/save_picture_784965.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ ScreenToGif 2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784963.jpg" />
+  <img src="Z:/picture/008/save_picture_784963.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Acme CAD Converter 2019 8.9.8.1488 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784917.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Sandboxie 5.23.4 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784909.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Duplicate File Detective 6.1.51 Enterprise [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784908.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ WinTools.net  Premium 18.2.1  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784884.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Glary Utilities Pro 5.92.0.114 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784882.jpg" />
 </div>
 
 

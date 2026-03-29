@@ -6,7 +6,7 @@ VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156334.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Italo Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155733.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hot Pepper - Spanglish Movement (1978) LP [MP3|320 Kbps] <Latin, Funk, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155709.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154065.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, Hou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151607.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Disco-Light Orchestra - Disco Sensation (1979) 2LP [MP3|320 Kbps] <Disco, Funk S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151473.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Yvon Rioland & Jean-Marie Hauser - Discoritmo (1979) LP [MP3|320 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149803.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148754.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ C.K.B. - New York City Women (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148222.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 100 Disco (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146043.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - SpinCat Music - Best Of 2021 (2021) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145672.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Hustle Hits (1975) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145664.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Best Of Disco House 2021 [Disco Balls Records] (2021) [MP3|320 Kbps] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145559.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bob-a-Rela - Bob-a-Rela (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144871.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ C.C. Catch - MusicBox (2003) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144573.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ C.C. Catch - Maxi Hit-Sensation (Nonstop DJ-Mix) (2006) [MP3|320 Kbps] <EuroDisc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144381.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143562.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Michele - Magic Love (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143031.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastere
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142999.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141806.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141771.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Don Ray - The Garden Of Love (1978) LP (Sound from Cerrone) [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140728.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Calderon - Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139037.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138991.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138838.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138799.jpg" />
 </div>
 
 

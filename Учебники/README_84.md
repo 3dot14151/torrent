@@ -1,3 +1,55 @@
+###  Публикация: 1584885   (224184) от 19.10.2022
+
+А. Колмогоров, С. Фомин | Элементы теории функций и функционального анализа (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведено строгое систематизированное изложение основ функционального анализа и тонких вопросов теории функций действительного переменного. Основой явился курс функционального анализа, читавшийся А.Н. Колмогоровым в течение ряда лет на механико-математическом факультете МГУ им. М.В. Ломоносова. Академик А.Н. Колмогоров разработал программу новой дисциплины (названной (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B066B9861D2486C030A958A330B1D04B518FEA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425068   (224097) от 19.11.2020
+
+Александр Мещеряков, Максим Грачев | История древней Японии [Учебное пособие для вузов] (2010) [FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Император и его аристократическое окружение, институты власти и заговоры, внешняя политика и стиль жизни, восприятие пространства и времени, мифы и религия… Почему Япония называется Японией? Отчего японцы отказались пить молоко? Почему японцы уважают ученых? Обо всем этом и о многом другом — в самом подробном изложении, какое только существует на европейских языках.Жанр: История, Учебники и пособия для ВУЗовФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAE78A9031E9C0DD9899921DF8AC9119810D3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425017   (223901) от 19.11.2020
 
 В.П. Корявов | Методы решения задач в общем курсе физики [6 книг] (2011 - 2013) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223901.jpg" />
+  <img src="Z:/picture/005/save_picture_223901.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223857.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223792.jpg" />
+  <img src="Z:/picture/005/save_picture_223792.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223646.jpg" />
+  <img src="Z:/picture/005/save_picture_223646.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223552.jpg" />
+  <img src="Z:/picture/005/save_picture_223552.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223449.jpg" />
+  <img src="Z:/picture/005/save_picture_223449.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223292.jpg" />
+  <img src="Z:/picture/005/save_picture_223292.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223266.jpg" />
+  <img src="Z:/picture/005/save_picture_223266.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223250.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223223.jpg" />
+  <img src="Z:/picture/005/save_picture_223223.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222946.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222625.jpg" />
+  <img src="Z:/picture/005/save_picture_222625.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221863.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221329.jpg" />
+  <img src="Z:/picture/005/save_picture_221329.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221320.jpg" />
+  <img src="Z:/picture/005/save_picture_221320.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221195.jpg" />
+  <img src="Z:/picture/005/save_picture_221195.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221160.jpg" />
+  <img src="Z:/picture/005/save_picture_221160.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221052.jpg" />
+  <img src="Z:/picture/005/save_picture_221052.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220711.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220676.jpg" />
+  <img src="Z:/picture/005/save_picture_220676.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220612.jpg" />
+  <img src="Z:/picture/005/save_picture_220612.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220537.jpg" />
+  <img src="Z:/picture/005/save_picture_220537.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220477.jpg" />
+  <img src="Z:/picture/005/save_picture_220477.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219786.jpg" />
+  <img src="Z:/picture/005/save_picture_219786.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25AF5ABF27593BE9FC4E4D5F45AF5A0ACE1A185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343151   (219696) от 05.12.2019
-
-Т.Е. Мамонова | Информационные технологии. Лабораторный практикум (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219696.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии в краткой форме изложены практические вопросы по дисциплине «Информационные технологии», где выделены основные положения по работе в математических пакетах MathCAD и MatLab, а также приложений Simulink и Symbolic Math пакета MatLab. По каждой теме представлено большое количество тренировочных задач, включен справочный материал. Соответствует актуальным (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4D78BF1A5AEECF4853D7A912878CE342A7FAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343114   (219380) от 05.12.2019
-
-Н.И. Костюкова | Программирование на языке Си. Методические рекомендации и задачи по программированию (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие предназначено для обучения программистов-практиков. Материал ориентирован на повседневную работу за терминалом ЭВМ. Все конструкции языка Си, независимо от частоты их использования, синтаксической и семантической сложности, описаны исчерпывающе, неформально, но довольно строго, проиллюстрированы краткими примерами. Материал составлен на основе классических (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7240C93D7462787D6F22E253452232947248C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

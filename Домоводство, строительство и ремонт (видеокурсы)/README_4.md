@@ -1,3 +1,57 @@
+###  Публикация: 1415992   (371309) от 14.10.2020
+
+Udemy | Создание и дизайн современного дома в Blender 2.80 / Create & Design a Modern 3D House in Blender 2.80 (2020) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите узнать, как создавать потрясающие фотореалистичные 3D-архитектурные рендеры в Blender? Вы хотите иметь возможность в цифровом виде воссоздать свой собственный дом в Blender? К концу этого курса вы сделаете красивый современный 3D дом. Первый раздел этого курса будет посвящен моделированию нашего современного дома. В течение следующих двух разделов мы будем (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 04:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449EEEDE794447BDC5BAE4D367234C3370B2157B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416553   (366932) от 16.10.2020
+
+Никита Ивановский | Коммерческая визуализация. Baker Street – реализация реального экстерьерного проекта с использованием 3D Max, V-ray и Photoshop (2014) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот мой Новогодний подарок - новый видеокурс, после которого вы просто не сможете не работать с экстерьером на профессиональном уровне, зарабатывая при этом хорошие деньги!!!
+
+Вплоть до сегодняшнего вечера я работал над РЕАЛЬНЫМ проектом - визуализацией жилого комплекса.  Работа была долгой, со множеством правок и изменений, однако несколько часов назад я его СДАЛ!))) (   Читать дальше...   )Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 19:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DB2F492D061EA26CB3C19EC196DC71C7E9FD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578359   (362308) от 18.10.2020
 
 Bravo Chef! Рыба и морепродукты [2012] DVDRip
@@ -6,7 +60,7 @@ Bravo Chef! Рыба и морепродукты [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362308.jpg" />
+  <img src="Z:/picture/008/save_picture_362308.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357537.jpg" />
+  <img src="Z:/picture/008/save_picture_357537.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Bravo Chef! Выпечка и десерты [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345144.jpg" />
+  <img src="Z:/picture/008/save_picture_345144.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Bravo Chef! Вегетарианская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345017.jpg" />
+  <img src="Z:/picture/008/save_picture_345017.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Bravo Chef! Итальянская кухня [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344986.jpg" />
+  <img src="Z:/picture/008/save_picture_344986.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325576.jpg" />
+  <img src="Z:/picture/008/save_picture_325576.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313727.jpg" />
+  <img src="Z:/picture/008/save_picture_313727.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Skillbox | ArchiCAD для дизайнеров интерьера (2020) PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310233.jpg" />
+  <img src="Z:/picture/008/save_picture_310233.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306346.jpg" />
+  <img src="Z:/picture/008/save_picture_306346.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303810.jpg" />
+  <img src="Z:/picture/008/save_picture_303810.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276222.jpg" />
+  <img src="Z:/picture/008/save_picture_276222.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272824.jpg" />
+  <img src="Z:/picture/008/save_picture_272824.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268199.jpg" />
+  <img src="Z:/picture/008/save_picture_268199.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261375.jpg" />
+  <img src="Z:/picture/005/save_picture_261375.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261062.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258108.jpg" />
+  <img src="Z:/picture/005/save_picture_258108.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Norman Pirollo | Kumiko Course (2019) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255607.jpg" />
+  <img src="Z:/picture/005/save_picture_255607.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255047.jpg" />
+  <img src="Z:/picture/005/save_picture_255047.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Easy.Dom, Ольга Вайлапова | Практический курс. С�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254775.jpg" />
+  <img src="Z:/picture/005/save_picture_254775.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252437.jpg" />
+  <img src="Z:/picture/005/save_picture_252437.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252432.jpg" />
+  <img src="Z:/picture/005/save_picture_252432.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252331.jpg" />
+  <img src="Z:/picture/004/save_picture_252331.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252183.jpg" />
+  <img src="Z:/picture/004/save_picture_252183.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ Autocad Specialist, Алексей Меркулов | Проектировани
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252179.jpg" />
+  <img src="Z:/picture/004/save_picture_252179.jpg" />
 </div>
 
 
@@ -640,58 +694,6 @@ Autocad Specialist, Алексей Меркулов | Проектировани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8A10B4FBB4438EEA09AEA6EC530B04369CFB4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835744   (251914) от 07.11.2025
-
-Георгий Плеханов |   Дистанционный курс по ремонту холодильников (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический онлайн-курс, созданный мастером с многолетним опытом — Георгием Плехановым. Подходит для новичков и тех, кто уже сталкивался с ремонтом бытовой техники. Обучение построено просто и доступно: шаг за шагом от теории устройства холодильников до самостоятельного устранения любых неисправностей.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53E668DD3760FDEA7737F1E1A1E99DAC9C4592C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835777   (251896) от 07.11.2025
-
-ОВКЭС, Игорь Гончаров, Дмитрий HVAC | Эксперт кондиционирования (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите актуальные знания опытных монтажников сплит-систем и работайте по четким алгоритмам.Производство: ОВКЭСЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 19:08:56Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

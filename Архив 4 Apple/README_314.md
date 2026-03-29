@@ -1,3 +1,111 @@
+###  Публикация: 1545540   (613175) от 20.04.2022
+
+EditReady 22.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
+Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
+
+Поддерживает контейнеры:(   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2014-2022 The Sync FactoryПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41FB118AFD3CDA6480D7E725A90894A12D16F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545646   (613171) от 20.04.2022
+
+AirFoil+Airfoil Satellite 5.11.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613171.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirFoil – специальное программное обеспечение, позволяющее транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2021 Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D677AF1140427D47311E1F93D19F5BCAF703F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545566   (613161) от 20.04.2022
+
+RAR Extractor Max-Unzip Winrar 8.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613161.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
+Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2020 by Elimisoft.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBDD9CD24BFC62C6BD8F4D2B8B45D2DDACC2B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545513   (613038) от 20.04.2022
+
+Blackmagic Design Fusion Studio 18.0 Beta 1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD061CA464EA5544B320753B1901521B6A1F4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146844   (612857) от 30.06.2017
 
 Sublime Text 3 Dev (3140) [En]
@@ -6,7 +114,7 @@ Sublime Text 3 Dev (3140) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612857.jpg" />
+  <img src="Z:/picture/008/save_picture_612857.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Drive Genius 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612642.jpg" />
+  <img src="Z:/picture/008/save_picture_612642.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ ForkLift 3.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612528.jpg" />
+  <img src="Z:/picture/008/save_picture_612528.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612263.jpg" />
+  <img src="Z:/picture/008/save_picture_612263.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Cashew 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612232.jpg" />
+  <img src="Z:/picture/008/save_picture_612232.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ HoudahGeo 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612230.jpg" />
+  <img src="Z:/picture/008/save_picture_612230.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ BookMacster 2.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612229.jpg" />
+  <img src="Z:/picture/008/save_picture_612229.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Papers 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612131.jpg" />
+  <img src="Z:/picture/008/save_picture_612131.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ iStat Menus 5.20 (659) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612130.jpg" />
+  <img src="Z:/picture/008/save_picture_612130.jpg" />
 </div>
 
 
@@ -254,7 +362,7 @@ LaunchBar 6.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612129.jpg" />
+  <img src="Z:/picture/008/save_picture_612129.jpg" />
 </div>
 
 
@@ -283,7 +391,7 @@ FireStream 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612022.jpg" />
+  <img src="Z:/picture/008/save_picture_612022.jpg" />
 </div>
 
 
@@ -312,7 +420,7 @@ Imagenomic Plug-in for Photoshop, Aperture 3 and Lightroom (upd 25.06.2015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611972.jpg" />
+  <img src="Z:/picture/008/save_picture_611972.jpg" />
 </div>
 
 
@@ -338,7 +446,7 @@ Easy Translator 12.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611888.jpg" />
+  <img src="Z:/picture/008/save_picture_611888.jpg" />
 </div>
 
 
@@ -366,7 +474,7 @@ Integrity Plus 12.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611550.jpg" />
+  <img src="Z:/picture/008/save_picture_611550.jpg" />
 </div>
 
 
@@ -393,7 +501,7 @@ Integrity Pro 12.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611549.jpg" />
+  <img src="Z:/picture/008/save_picture_611549.jpg" />
 </div>
 
 
@@ -419,7 +527,7 @@ Sketch 39.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611527.jpg" />
+  <img src="Z:/picture/008/save_picture_611527.jpg" />
 </div>
 
 
@@ -446,7 +554,7 @@ Swift Publisher 5 v5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611405.jpg" />
+  <img src="Z:/picture/008/save_picture_611405.jpg" />
 </div>
 
 
@@ -472,7 +580,7 @@ RAR Extractor  - Unarchiver (vip) 6.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611404.jpg" />
+  <img src="Z:/picture/008/save_picture_611404.jpg" />
 </div>
 
 
@@ -498,7 +606,7 @@ Export Calendars Pro 1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611322.jpg" />
+  <img src="Z:/picture/008/save_picture_611322.jpg" />
 </div>
 
 
@@ -526,7 +634,7 @@ MediaInfo 0.7.97 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611321.jpg" />
+  <img src="Z:/picture/008/save_picture_611321.jpg" />
 </div>
 
 
@@ -554,7 +662,7 @@ Video Editor MovieMator Pro – Movie & Film Maker! 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611207.jpg" />
+  <img src="Z:/picture/008/save_picture_611207.jpg" />
 </div>
 
 
@@ -580,7 +688,7 @@ Maxon Cinema 4D Studio R26.013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611031.jpg" />
+  <img src="Z:/picture/008/save_picture_611031.jpg" />
 </div>
 
 
@@ -591,115 +699,6 @@ Maxon Cinema 4D Studio R26.013 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECBB1C1DC2A36AFB12D6D03D5BFFADCFD817F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230938   (610522) от 15.06.2018
-
-iExplorer 4.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macroplant LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FE974DEA40C99AA9DDB479BEF1B97ABB9181DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230959   (610521) от 15.06.2018
-
-Pillars of Eternity II: Deadfire v1.1.0.0035 (2018) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр. Подчините мир своей воле — исследуйте массу безграничных возможностей, включая детальную персонализацию героя, полную свободу в исследовании мира и (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Obsidian EntertainmentПоддерживаемая ОС: OS X 10.13.3 High Sierra 64-bit (or newer)Жанр: Adventure, RPGЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BAADA8B20DE32CC667FADB8B17C3F5C2A5C5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912512   (610492) от 26.06.2015
-
-Shadowrun: Dragonfall Director's Cut v. 1.0 (2014) [Ru] [OS X Native game]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610492.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании Director’s Cut исправлено все что только можно исправить. Текстуры более высокого разрешения, новая музыка и звуки, новая система инвентаря, обновленный HUD, исправленный баланс классов и оружия, добавлены новые более маленькие истории, новые виды оружия и кибернетических имплантов.
-
-На дворе 2052 год. Главный герой присоединяется к своей подруге Монике (   Читать дальше...   )Тип издания: OS X Native gameРелиз состоялся: 18.03.2014Разработчик: Harebrained SchemesПоддерживаемая ОС: 10.6+Жанр: Adventure, arcadeЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C635D400548C3F8A5F0B332CED39C11A795E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230923   (610446) от 15.06.2018
-
-TechTool Pro 10.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610446.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CD0843F156A5DB806CB5A97D687E513B8568C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

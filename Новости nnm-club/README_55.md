@@ -1,3 +1,107 @@
+###  Публикация: 999233   (865717) от 21.03.2016
+
+Акула-Робот / Roboshark (2015) WEB-DL [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный день на улицах Сиэтла превращается в ужасное побоище, когда гигантская белая акула проглатывает инопланетный космический зонд… и на свет появляется Робоакула. Армия США охотится на нее, готовая обрушить на опасное создание всю свою боевую мощь, но благодаря социальным сетям честолюбивая ведущая новостей и ее технически подкованная дочь опережают всех в стремлении (   Читать дальше...   )Производство: Канада, БолгарияЖанр: Фантастика, боевик, триллер, комедияРежиссер: Джеффри Скотт ЛандоАктеры: Алексис Питерман, Мэтт Риппи, Найджел Барбер, Vanessa Grasse, Исаак Хэйг, Лаура Дэйл, Владо Мажанаов, Дерек Морс, Кикер РобинсонПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: Русские, английские (вшитые, отлючаемые)Продолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A960F1014C13A7C2B78578FAC5E4CED1684C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998973   (865711) от 21.03.2016
+
+Разборка в Маниле / Showdown in Manila (2016) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частные детективы Ник и Чарли живут и работают в Маниле. Расследование убийства выводит их на след международного террориста по кличке «Призрак», лагерь которого находится в филиппинских джунглях. Не доверяя полиции, Ник и Чарли собирают небольшую команду смельчаков и отправляются в логово «Призрака», которое охраняет армия наемников-головорезов…Производство: США, Россия, Hollywood StormЖанр: БоевикРежиссер: Марк ДакаскосАктеры: Александр Невский, Каспер Ван Дин, Кэри-Хироюки Тагава, Марк Дакаскос, Маттиас Хьюз, Синтия Ротрок, Дон «Дракон» Уилсон, Оливье Грюнер, Джейк Макапагал, Иса КальсадоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC611CF44E6B12E2AA5A6E196F1A1466C18ED0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999107   (865532) от 21.03.2016
+
+Разборка в Маниле / Showdown in Manila (2016) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частные детективы Ник и Чарли живут и работают в Маниле. Расследование убийства выводит их на след международного террориста по кличке «Призрак», лагерь которого находится в филиппинских джунглях. Не доверяя полиции, Ник и Чарли собирают небольшую команду смельчаков и отправляются в логово «Призрака», которое охраняет армия наемников-головорезов…Производство: США, Россия, Hollywood StormЖанр: БоевикРежиссер: Марк ДакаскосАктеры: Александр Невский, Каспер Ван Дин, Кэри-Хироюки Тагава, Марк Дакаскос, Маттиас Хьюз, Синтия Ротрок, Дон «Дракон» Уилсон, Оливье Грюнер, Джейк Макапагал, Иса КальсадоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E01A501EEE48B197E532ECA7F2A28BB0BDC43E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968810   (865509) от 21.03.2016
+
+Колония / Colony (2016) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) (BaibaKo)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем семья пытается спасти жителей оккупированного Лос-Анджелеса. Бывший агент ФБР Уилл Боумэн и его супруга Кейти пробуют вернуть сына. Уилл готов работать на новое правительство, тогда как многие в городе поддерживают повстанцев. Лидер режима Прокси Снайдер предлагает Уиллу сделку, которая изменит их жизнь и заставит семью пойти на большой риск.Производство: СШАЖанр: фантастикаРежиссер: Хуан Хосе КампанеллаАктеры: Джош Холлоуэй, Сара Уэйн Кэллис, Питер Джекобсон, Аманда Ригетти, Алекс Нюстадтер, Изабелла Крамп, Гонсало Менендес, Элли Уокер, Либэ Барер, Д.Дж. Бликенстафф и др.Перевод: профессиональный многоголосый закадровый - BaibaKoОзвучка: Ольга Мотрич, Татьяна Оболевич, Руслан Иванов и Олекса МельникФормат: MKVПродолжительность: ~ 00:50:00 серияРеклама: присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9871082706D71F674D4F33334B873F9DBF500F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998894   (865507) от 21.03.2016
 
 BELOFF 2016.3.1 [Ru]
@@ -6,7 +110,7 @@ BELOFF 2016.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865507.jpg" />
+  <img src="Z:/picture/008/save_picture_865507.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865454.jpg" />
+  <img src="Z:/picture/008/save_picture_865454.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865450.jpg" />
+  <img src="Z:/picture/008/save_picture_865450.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865186.jpg" />
+  <img src="Z:/picture/008/save_picture_865186.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dead Space Дилогия [Ru/En/Multi3] (Lossless RePack) 2008-2011 | R.G. Ме
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865022.jpg" />
+  <img src="Z:/picture/008/save_picture_865022.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Pinnacle Studio 15 Content VM & OB Team [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865018.jpg" />
+  <img src="Z:/picture/008/save_picture_865018.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ LiveCD Windows'7 5.5c (cuba) и 5.5m (mini) by xalex (12.01.2011) [Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865014.jpg" />
+  <img src="Z:/picture/008/save_picture_865014.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Scorpion-3 - прототип летающего мотоцикла от рос�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_863919.jpg" />
+  <img src="Z:/picture/005/save_picture_863919.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Autodesk AutoCAD 2017 N.52.0.0 (x64) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863692.jpg" />
+  <img src="Z:/picture/008/save_picture_863692.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863658.jpg" />
+  <img src="Z:/picture/008/save_picture_863658.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_863439.jpg" />
+  <img src="Z:/picture/005/save_picture_863439.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Multiboot flash gnom26rus edition [эксклюзивно для NNM-club] 3.16 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863339.jpg" />
+  <img src="Z:/picture/008/save_picture_863339.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863335.jpg" />
+  <img src="Z:/picture/008/save_picture_863335.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863311.jpg" />
+  <img src="Z:/picture/008/save_picture_863311.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ SpeedTest Net Premium 4.5.4 [Ru] - Проверки скорости соеди�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863269.jpg" />
+  <img src="Z:/picture/008/save_picture_863269.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862685.jpg" />
+  <img src="Z:/picture/008/save_picture_862685.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_862674.jpg" />
+  <img src="Z:/picture/005/save_picture_862674.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_862635.jpg" />
+  <img src="Z:/picture/005/save_picture_862635.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862501.jpg" />
+  <img src="Z:/picture/008/save_picture_862501.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862499.jpg" />
+  <img src="Z:/picture/008/save_picture_862499.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862498.jpg" />
+  <img src="Z:/picture/008/save_picture_862498.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862365.jpg" />
+  <img src="Z:/picture/008/save_picture_862365.jpg" />
 </div>
 
 
@@ -572,113 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B93551E4503A004977E5F52310858B709D4EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108112   (862354) от 25.02.2017
-
-TRAPPIST-1 - карликовая звезда, имеющая систему из восьми планет, размеры семи из которых сопоставимы с размером Земли
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_862354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международная группа ученых-астрономов объявила об обнаружении семи экзопланет, размеры которых сопоставимы с размером Земли и которые вращаются вокруг красной карликовой звезды. Согласно имеющимся данным, на поверхности всех семи планет системы звезды TRAPPIST-1 вода может находиться в жидком виде, но лишь орбиты трех планет находятся в области, где остальные условия (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108845   (862018) от 25.02.2017
-
-Navicat Premium 11.2.15 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium - программа от PremiumSoft™ CyberTech Ltd, которая была создана для администрирования баз данных, вы сможете без проблем подключаться и работать с MySQL, SQLite, Oracle и прочими другими БД, причем делать это можно одновременно, то есть подключаться сразу ко всем в одном окне.  Из этого следует, что если вам приходится работать с разными БД, этот процесс (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E61380F98A90366DA953FE4732E70667540BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998747   (861973) от 23.03.2016
-
-Владимир Жибров | мощный старт NYSE (2015) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что даст вам этот тренинг:
-
-Во-первых, вы станете стабильно зарабатывать на NYSE, как минимум, по 200-500 долларов в день
-Во-вторых, вы получаете готовую систему и пошаговое руководство, которые многократно доказали свою эффективность.(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 06:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7318C6676E607D7384E65AE5BA171952F96B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999780   (861849) от 23.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F912BE3E992F71EC4933F205535361D055EE8A62
 ```
 
 https://mybot314.ru/tekegram_catalog/

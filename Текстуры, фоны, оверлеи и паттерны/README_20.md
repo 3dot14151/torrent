@@ -1,3 +1,81 @@
+###  Публикация: 1073631   (344635) от 16.11.2016
+
+Текстуры - Tекстуры Ultra HD 4K [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстуры для Вашего творчестваФормат: JPGРазрешение файлов: 3840x2400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2402E78422D88201B7C009AAF58037695AAA44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073644   (337464) от 19.11.2016
+
+Текстуры - motionVFX - mDirts 4K [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337464.jpg" />
+</div>
+
+
+###  Подробнее
+
+mDirts - набор из 150 превосходных, высочайшего качества текстур грязи и царапин, предназначенных для использования в любом программном обеспечении для обработки изображений, поддерживающего режимы смешивания (например, Final Cut Pro X, Apple Motion, Adobe Premiere Pro, After Effects, Nuke, Smoke, Photoshop, Pixelmator, Gimp и т.д.). Для использования их в производстве, (   Читать дальше...   )Формат: PNGРазрешение файлов: 4096 x 2304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4B472102FD68CF4E36F28E11C370352DB8B7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180863   (336886) от 05.11.2017
+
+Фоны и наложения - CreativeMarket - 45 fog and smoke photoshop overlays - 1937891 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336886.jpg" />
+</div>
+
+
+###  Подробнее
+
+45 накладок тумана высокого качества для пост-обработки фото материала.Формат: JPGРазрешение файлов: 3840x2160 px
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABF4FFBE820213D310C5F59FDD0F2A9ABADF8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956842   (329164) от 15.11.2015
 
 Текстуры - Grunge_Textures [JPG]
@@ -6,7 +84,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329164.jpg" />
+  <img src="Z:/picture/008/save_picture_329164.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321315.jpg" />
+  <img src="Z:/picture/008/save_picture_321315.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317420.jpg" />
+  <img src="Z:/picture/008/save_picture_317420.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312064.jpg" />
+  <img src="Z:/picture/008/save_picture_312064.jpg" />
 </div>
 
 
@@ -116,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305073.jpg" />
+  <img src="Z:/picture/008/save_picture_305073.jpg" />
 </div>
 
 
@@ -145,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304935.jpg" />
+  <img src="Z:/picture/008/save_picture_304935.jpg" />
 </div>
 
 
@@ -171,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302917.jpg" />
+  <img src="Z:/picture/008/save_picture_302917.jpg" />
 </div>
 
 
@@ -197,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302899.jpg" />
+  <img src="Z:/picture/008/save_picture_302899.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298782.jpg" />
+  <img src="Z:/picture/008/save_picture_298782.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283858.jpg" />
+  <img src="Z:/picture/008/save_picture_283858.jpg" />
 </div>
 
 
@@ -277,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282653.jpg" />
+  <img src="Z:/picture/008/save_picture_282653.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282483.jpg" />
+  <img src="Z:/picture/008/save_picture_282483.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274341.jpg" />
+  <img src="Z:/picture/008/save_picture_274341.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273376.jpg" />
+  <img src="Z:/picture/008/save_picture_273376.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264380.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263869.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252340.jpg" />
+  <img src="Z:/picture/004/save_picture_252340.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251888.jpg" />
+  <img src="Z:/picture/004/save_picture_251888.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250791.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250563.jpg" />
+  <img src="Z:/picture/004/save_picture_250563.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250562.jpg" />
+  <img src="Z:/picture/004/save_picture_250562.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250524.jpg" />
+  <img src="Z:/picture/004/save_picture_250524.jpg" />
 </div>
 
 
@@ -595,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250478.jpg" />
+  <img src="Z:/picture/004/save_picture_250478.jpg" />
 </div>
 
 
@@ -606,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:024F5A523980B6AF78AFB1BC182E62F75CB1D527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492392   (248332) от 06.05.2012
-
-Фоны - GraphicRiver - Infinite White Floor Spotlight Backgrounds - 195944 [PNG, JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть современных высококачественных, свежих веб-фонов отлично подходит для прожектора, рекламы и витрин.Формат: PNG, JPG, PSDРазрешение файлов: 3000x1875
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED64B976B7DF161A944F8D285EB45FB20A93B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833221   (246238) от 01.11.2025
-
-Фоны - Watercolor Digital Papers Bundle [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой набор фонов для ваших творческих задач.Формат: JPGРазрешение файлов: 3600x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32341CEDAF9A034288A459B67B65CE4047010B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833285   (246211) от 01.11.2025
-
-Текстуры - Resource Boy - 100 Watercolor Textures [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246211.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 акварельных текстур для ваших творческих задач.Формат: PNGРазрешение файлов: 633x4997 - 4983x4833
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAD1766968F7C22F5CADA281771B8C720E797A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

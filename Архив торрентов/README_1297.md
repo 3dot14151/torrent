@@ -6,7 +6,7 @@ Skype 8.38.0.138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763514.jpg" />
+  <img src="Z:/picture/008/save_picture_763514.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763479.jpg" />
+  <img src="Z:/picture/008/save_picture_763479.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QuickEdit Text Editor Pro 1.8.4 Mod by KirIif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763450.jpg" />
+  <img src="Z:/picture/008/save_picture_763450.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paint.NET 4.3.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763448.jpg" />
+  <img src="Z:/picture/008/save_picture_763448.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ HiBit Uninstaller 2.7.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763439.jpg" />
+  <img src="Z:/picture/008/save_picture_763439.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Telegram Desktop 3.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763436.jpg" />
+  <img src="Z:/picture/008/save_picture_763436.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Chromium 74.0.3689.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763429.jpg" />
+  <img src="Z:/picture/008/save_picture_763429.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763428.jpg" />
+  <img src="Z:/picture/008/save_picture_763428.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Skype 8.38.0.138 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763425.jpg" />
+  <img src="Z:/picture/008/save_picture_763425.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cent Browser 3.8.5.69 + Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763421.jpg" />
+  <img src="Z:/picture/008/save_picture_763421.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Музыка для Авто TOP 100 from Najim Hassas - 2 (2011) [MP3|160-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763368.jpg" />
+  <img src="Z:/picture/008/save_picture_763368.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VSCO: Редактор фото и видео v245 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763344.jpg" />
+  <img src="Z:/picture/008/save_picture_763344.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BimmerLink for BMW and Mini v2.24.1-5031 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763340.jpg" />
+  <img src="Z:/picture/008/save_picture_763340.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763339.jpg" />
+  <img src="Z:/picture/008/save_picture_763339.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763337.jpg" />
+  <img src="Z:/picture/008/save_picture_763337.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Camera FV-5 v5.3.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763336.jpg" />
+  <img src="Z:/picture/008/save_picture_763336.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763335.jpg" />
+  <img src="Z:/picture/008/save_picture_763335.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ MusicBee 3.4.8033 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763331.jpg" />
+  <img src="Z:/picture/008/save_picture_763331.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CPU-Z 1.99.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763330.jpg" />
+  <img src="Z:/picture/008/save_picture_763330.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763301.jpg" />
+  <img src="Z:/picture/008/save_picture_763301.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763300.jpg" />
+  <img src="Z:/picture/008/save_picture_763300.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763299.jpg" />
+  <img src="Z:/picture/008/save_picture_763299.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763268.jpg" />
+  <img src="Z:/picture/008/save_picture_763268.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763259.jpg" />
+  <img src="Z:/picture/008/save_picture_763259.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Blocs 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763253.jpg" />
+  <img src="Z:/picture/008/save_picture_763253.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Ibiza Sunset Trance (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763251.jpg" />
+  <img src="Z:/picture/008/save_picture_763251.jpg" />
 </div>
 
 

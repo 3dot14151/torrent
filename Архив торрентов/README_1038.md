@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809089.jpg" />
+  <img src="Z:/picture/008/save_picture_809089.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809088.jpg" />
+  <img src="Z:/picture/008/save_picture_809088.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809086.jpg" />
+  <img src="Z:/picture/008/save_picture_809086.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809069.jpg" />
+  <img src="Z:/picture/008/save_picture_809069.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_809065.jpg" />
+  <img src="Z:/picture/005/save_picture_809065.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809045.jpg" />
+  <img src="Z:/picture/008/save_picture_809045.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ WiFi Explorer 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809044.jpg" />
+  <img src="Z:/picture/008/save_picture_809044.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809038.jpg" />
+  <img src="Z:/picture/008/save_picture_809038.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ AkelPad 4.9.3 + Plugins (х86/х64) RePack + Portable by San_dr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809027.jpg" />
+  <img src="Z:/picture/008/save_picture_809027.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ pdfFactory Pro 6.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809024.jpg" />
+  <img src="Z:/picture/008/save_picture_809024.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808984.jpg" />
+  <img src="Z:/picture/008/save_picture_808984.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808965.jpg" />
+  <img src="Z:/picture/008/save_picture_808965.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808931.jpg" />
+  <img src="Z:/picture/008/save_picture_808931.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808930.jpg" />
+  <img src="Z:/picture/008/save_picture_808930.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808910.jpg" />
+  <img src="Z:/picture/008/save_picture_808910.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Malware Hunter Free 1.32.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808905.jpg" />
+  <img src="Z:/picture/008/save_picture_808905.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808899.jpg" />
+  <img src="Z:/picture/008/save_picture_808899.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SpeedyFox 1.4.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_808894.jpg" />
+  <img src="Z:/picture/005/save_picture_808894.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FinePrint 9.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808871.jpg" />
+  <img src="Z:/picture/008/save_picture_808871.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ qBittorrent 3.1.12 Portable by PortableApps Rev 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808866.jpg" />
+  <img src="Z:/picture/008/save_picture_808866.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808863.jpg" />
+  <img src="Z:/picture/008/save_picture_808863.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Unreal - Тёмные территории (2010) [MP3|320 kbps]<Cyber Gothic, I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808862.jpg" />
+  <img src="Z:/picture/008/save_picture_808862.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808838.jpg" />
+  <img src="Z:/picture/008/save_picture_808838.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808816.jpg" />
+  <img src="Z:/picture/008/save_picture_808816.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MKVToolNix 10.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808810.jpg" />
+  <img src="Z:/picture/008/save_picture_808810.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808805.jpg" />
+  <img src="Z:/picture/008/save_picture_808805.jpg" />
 </div>
 
 

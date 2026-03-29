@@ -1,3 +1,83 @@
+###  Публикация: 1006393   (827241) от 12.04.2016
+
+Дональд Маккейг | Ретт Батлер (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые на русском языке! Долгожданный новый роман о любви Ретта Батлера и Скарлетт О'Хара! Ретт Батлер, герой бессмертного романа Маргарет Митчелл «Унесенные ветром»… Его имя вызывает самые разные чувства, настолько сложный и многогранный образ создала писательница. Ренегат, отщепенец, бунтарь, игрок, пылкий любовник, южанин — и до сих пор загадка для читателей. (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 20:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3208A9D27F2F7574E86D7EABB6950041F6CE04DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006568   (827176) от 12.04.2016
+
+Карен Бликсен | Из Африки (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карен Бликсен, датская баронесса, - одна из самых оригинальных писательниц XX века. Ее творчество уникально, поскольку сочетает в себе элементы самых разных жанров - от триллера до путевых заметок, от философской прозы до лирической комедии. "Из Африки" - главная ее книга, которая неоднократно выдвигалась на Нобелевскую премию; по ней Сидни Поллак снял (   Читать дальше...   )Жанр: Современная классикаПродолжительность: 11:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879290F73AF79E55185101E19D320FB1CFE48ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503093   (822917) от 17.10.2021
+
+Василий Аксенов | Апельсины из Марокко (2006) [MP3, Алексей Россошанский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня яркие сладкие марокканские апельсины можно купить почти на каждом углу в любое время года в любой точке земного шара. Никто, поедая их, особенно не задумается о том, что для живших в 1960-е годы, например, на Дальнем Востоке, это лакомство было не просто экзотикой, но - метафорой личной свободы.
+
+Когда в маленький приморский городок приходит груз апельсинов, (   Читать дальше...   )Жанр: Современная проза, КлассикаПродолжительность: 05:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A572C1D83D2373A8B53F6BE46D726D18289DA9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116189   (822762) от 20.03.2017
 
 Юрий Тынянов | Пушкин в лицее (1974) [MP3]
@@ -6,7 +86,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822762.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822755.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822610.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822478.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821765.jpg" />
+  <img src="Z:/picture/008/save_picture_821765.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821502.jpg" />
+  <img src="Z:/picture/008/save_picture_821502.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819107.jpg" />
+  <img src="Z:/picture/008/save_picture_819107.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818234.jpg" />
+  <img src="Z:/picture/008/save_picture_818234.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813931.jpg" />
+  <img src="Z:/picture/008/save_picture_813931.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813828.jpg" />
+  <img src="Z:/picture/008/save_picture_813828.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813544.jpg" />
+  <img src="Z:/picture/008/save_picture_813544.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813509.jpg" />
+  <img src="Z:/picture/008/save_picture_813509.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813417.jpg" />
+  <img src="Z:/picture/008/save_picture_813417.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811779.jpg" />
+  <img src="Z:/picture/008/save_picture_811779.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810100.jpg" />
+  <img src="Z:/picture/008/save_picture_810100.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810050.jpg" />
+  <img src="Z:/picture/008/save_picture_810050.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809132.jpg" />
+  <img src="Z:/picture/008/save_picture_809132.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807973.jpg" />
+  <img src="Z:/picture/008/save_picture_807973.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806522.jpg" />
+  <img src="Z:/picture/008/save_picture_806522.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806427.jpg" />
+  <img src="Z:/picture/008/save_picture_806427.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806422.jpg" />
+  <img src="Z:/picture/008/save_picture_806422.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805619.jpg" />
+  <img src="Z:/picture/008/save_picture_805619.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805373.jpg" />
+  <img src="Z:/picture/008/save_picture_805373.jpg" />
 </div>
 
 
@@ -603,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9AD9F924D3369AB7D2F47A726B069F2C24B919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117523   (805258) от 29.03.2017
-
-Владимир Маяковский | Владимир Маяковский в исполнении мастеров художественного слова (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805258.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание вошли известные произведения Владимира Маяковского в исполнении мастеров художественного слова. В качестве бонуса на диске представлены произведения в исполнении автора.Жанр: Классика, поэзия, стихиПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237A718D01BCA62BE91D2A0E9F76770D658F650C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119720   (803455) от 30.03.2017
-
-Бернард Шоу | Профессия миссис Уоррен (1956) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виви, только что окончившая колледж, узнает, что ее мать, миссис Уоррен, содержательница сети публичных домов. Также узнает, что старый компаньон матери, капиталист Крофтс, нагло претендует на брак с Виви; что сын пастора, Фрэнк, которого она любила, является, возможно, ее братом. И, что самое страшное, перед Виви открывается мир гнусных буржуазных отношений, мир, (   Читать дальше...   )Жанр: ПьесаПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7DF3A2ADA5402DA3E9F5D9E0FA83B9846389BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119520   (803353) от 30.03.2017
-
-Эжен Сю | Агасфер (2004) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803353.jpg" />
-</div>
-
-
-###  Подробнее
-
-По известному преданию, Агасфер (лат. Ahasverus), иудей-ремесленник, мимо дома которого вели на распятие Иисуса Христа, несшего Свой Крест, отказал Спасителю и оттолкнул Его, когда Он попросил позволения прислониться к стене его дома, чтобы отдохнуть, и за это был осужден на скитание по земле до Второго пришествия Христа и вечное презрение со стороны людей. В романе (   Читать дальше...   )Жанр: Зарубежная классика, спектакльПродолжительность: 39:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F329084282B2500B0EA8E899C480CD7BC485C25C
 ```
 
 https://mybot314.ru/tekegram_catalog/

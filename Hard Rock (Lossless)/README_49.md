@@ -1,3 +1,61 @@
+###  Публикация: 1408965   (451602) от 14.09.2020
+
+Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Of My Life (04:15)
+02. Lost (04:01)
+03. Friends (04:09)
+04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408951   (451598) от 14.09.2020
+
+Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Dark (03:33)
+02. Laws Of Attraction (feat. Jeff Scott Soto) (04:47)
+03. Let Me Be Me (04:27)
+04. Free (03:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049250DA0C4F8C7B1063459253A08F948B0DC845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569288   (451526) от 13.08.2022
 
 Restless Spirits - Second To None (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Restless Spirits - Second To None (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451526.jpg" />
+  <img src="Z:/picture/008/save_picture_451526.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Radioactive - xXx (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451508.jpg" />
+  <img src="Z:/picture/008/save_picture_451508.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Joe Lynn Turner - The Sessions (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450790.jpg" />
+  <img src="Z:/picture/008/save_picture_450790.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Re-Machined: A Tribute To Deep Purple's Machine Head (2012) [FLAC|Lossless]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447805.jpg" />
+  <img src="Z:/picture/005/save_picture_447805.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - WWE Raw Greatest Hits: The Music 15th Anniversary (2008) [FLAC|Lossless]<Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447721.jpg" />
+  <img src="Z:/picture/005/save_picture_447721.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Scorpions - 3 альбома (1972-1995) Japan Mini-LP SHM-CD /2010/ [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447629.jpg" />
+  <img src="Z:/picture/005/save_picture_447629.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447297.jpg" />
+  <img src="Z:/picture/008/save_picture_447297.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Atlantis - 5 albums (1972-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Pr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447102.jpg" />
+  <img src="Z:/picture/008/save_picture_447102.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ Frumpy (8 Days In April / Inga Rumpf) - 10 albums, 14 CD (1970-2021) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447097.jpg" />
+  <img src="Z:/picture/008/save_picture_447097.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446230.jpg" />
+  <img src="Z:/picture/005/save_picture_446230.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ Gathering Of Kings - First Mission (2020) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445255.jpg" />
+  <img src="Z:/picture/008/save_picture_445255.jpg" />
 </div>
 
 
@@ -343,7 +401,7 @@ Cold Chisel - 23 Albums (1978 - 2019) 39 CD [FLAC|Lossless|image + .cue|tracks +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444651.jpg" />
+  <img src="Z:/picture/008/save_picture_444651.jpg" />
 </div>
 
 
@@ -372,7 +430,7 @@ The Nights - The Nights (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443775.jpg" />
+  <img src="Z:/picture/008/save_picture_443775.jpg" />
 </div>
 
 
@@ -401,7 +459,7 @@ Fair Warning - 10 альбомов, 4 EP, 2 сингла, 20 CD (1992 - 2016) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443748.jpg" />
+  <img src="Z:/picture/008/save_picture_443748.jpg" />
 </div>
 
 
@@ -430,7 +488,7 @@ A-Z - A-Z (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Progressive Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443029.jpg" />
+  <img src="Z:/picture/008/save_picture_443029.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ Sweet - The Answer (1995) Remastered, 2022, Aviator-Entertainment [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442879.jpg" />
+  <img src="Z:/picture/008/save_picture_442879.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ Beggar's Bride - 3 Albums (2006-2010) [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442406.jpg" />
+  <img src="Z:/picture/008/save_picture_442406.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ Ritchie Blackmore - Best Tracks (1995) Japanese Edition [WavPack|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441778.jpg" />
+  <img src="Z:/picture/008/save_picture_441778.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ Hollywood Vampires - Hollywood Vampires (2015) [FLAC|image+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440370.jpg" />
+  <img src="Z:/picture/008/save_picture_440370.jpg" />
 </div>
 
 
@@ -575,7 +633,7 @@ Empresses - The Beginning (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438373.jpg" />
+  <img src="Z:/picture/008/save_picture_438373.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ Nico’s Alchemy - Fundamental Darkness (2007) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437862.jpg" />
+  <img src="Z:/picture/008/save_picture_437862.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ Billy Gibbons - The Big Bad Blues (2018) Concord Records [FLAC|Lossless|tracks +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437505.jpg" />
+  <img src="Z:/picture/008/save_picture_437505.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ Uriah Heep - Living the Dream (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437504.jpg" />
+  <img src="Z:/picture/008/save_picture_437504.jpg" />
 </div>
 
 
@@ -691,7 +749,7 @@ Mama's Boys - Power And Passion (1985) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436162.jpg" />
+  <img src="Z:/picture/008/save_picture_436162.jpg" />
 </div>
 
 
@@ -705,64 +763,6 @@ Mama's Boys - Power And Passion (1985) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8738A4A241F1C681603328C1444664CE971CEAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410166   (436155) от 21.09.2020
-
-Overland - Scandalous (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Give Up
-02. Never Say Die
-03. Lost In The City
-04. Closest Thing To Heaven(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DD10A0EC47BA5337CE63F0AABC39C7AEA8EE83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571045   (436049) от 20.08.2022
-
-Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe
-02. I Am Beyond
-03. Neverending Me (Dempsey's Kick)
-04. A(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693B6D39FA0553257EFAEDA0E976A2BB19ACFABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

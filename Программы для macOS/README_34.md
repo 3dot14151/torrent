@@ -1,3 +1,140 @@
+###  Публикация: 1110851   (850374) от 04.03.2017
+
+Studies 1.1.5 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
+
+Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 марта 2017Разработчик: The Mental FacultyПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D099178CC5E747DB4BD77CF8AC6DD81E516CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001934   (850311) от 30.03.2016
+
+Music Tube 2.1.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступ ко всей музыкальной библиотеке YouTube прямо в строке меню !
+Music Tube - родной настольный клиент для  музыки YouTube. Music Tube воспроизводит и организует музыку непосредственно с YouTube. В нем вы можете получить рекомендации для самых горячих песен, найти треки, которые вы ищете , создавать свои собственные списки воспроизведения и многое другое. Утилита (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 марта 2016Разработчик: Wang Fu ChiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D489C0F484B6384E80769B919B6C8743B3CD7C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001952   (850306) от 30.03.2016
+
+Vicomsoft FTP Client 5.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850306.jpg" />
+</div>
+
+
+###  Подробнее
+
+FTP/SFTP клиент профессионального уровня.
+Vicomsoft FTP-клиент профессионального уровня, полнофункциональный, быстрый и надежный, легкий в использовании FTP + SFTP + FTPS клиент для OS X. Впервые выпущен в 1997 году, последняя версия является кульминацией 19-ти летнего опыта в области FTP.
+
+В дополнение к максимальной производительности и молниеносной загрузке, FTP-клиент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 февраля 2016Разработчик: VicomsoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9398303B9C92F64447276722D17AF30F70330D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002059   (850207) от 30.03.2016
+
+Jump Desktop (Remote Desktop) - RDP/VNC 6.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jump Desktop (RDP & VNC) -  программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
+Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06.11.2015Разработчик: Phase Five SystemsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C570DDF4B3A739FACB7326CF26E1BEE484C6FCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499311   (849645) от 01.10.2021
+
+NetWorker Pro 7.4.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849645.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567182AD387ED8845A507675156EE6F894E6B70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499314   (849536) от 01.10.2021
 
 Magic Battery 5.4.5 [En]
@@ -6,7 +143,7 @@ Magic Battery 5.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849536.jpg" />
+  <img src="Z:/picture/008/save_picture_849536.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ SyncMate 5.3.636 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848927.jpg" />
+  <img src="Z:/picture/008/save_picture_848927.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ KeepFocus: Delightful Time Manager 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848915.jpg" />
+  <img src="Z:/picture/008/save_picture_848915.jpg" />
 </div>
 
 
@@ -85,7 +222,7 @@ Templates for Pages 4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848899.jpg" />
+  <img src="Z:/picture/008/save_picture_848899.jpg" />
 </div>
 
 
@@ -114,7 +251,7 @@ AnyTrans 4.9.2 (20160331) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848684.jpg" />
+  <img src="Z:/picture/008/save_picture_848684.jpg" />
 </div>
 
 
@@ -141,7 +278,7 @@ Web Snapper 3.3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846838.jpg" />
+  <img src="Z:/picture/008/save_picture_846838.jpg" />
 </div>
 
 
@@ -168,7 +305,7 @@ Lucid 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846834.jpg" />
+  <img src="Z:/picture/008/save_picture_846834.jpg" />
 </div>
 
 
@@ -196,7 +333,7 @@ SSH Copy 17.03.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845056.jpg" />
+  <img src="Z:/picture/008/save_picture_845056.jpg" />
 </div>
 
 
@@ -225,7 +362,7 @@ SQLPro Studio 2020.38 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844874.jpg" />
+  <img src="Z:/picture/008/save_picture_844874.jpg" />
 </div>
 
 
@@ -251,7 +388,7 @@ TimeMachineEditor 5.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844810.jpg" />
+  <img src="Z:/picture/008/save_picture_844810.jpg" />
 </div>
 
 
@@ -279,7 +416,7 @@ Swift Converter 3 v4.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844806.jpg" />
+  <img src="Z:/picture/008/save_picture_844806.jpg" />
 </div>
 
 
@@ -305,7 +442,7 @@ Sidify Music Converter for Spotify 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842957.jpg" />
+  <img src="Z:/picture/008/save_picture_842957.jpg" />
 </div>
 
 
@@ -333,7 +470,7 @@ Privacy Protector 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841842.jpg" />
+  <img src="Z:/picture/008/save_picture_841842.jpg" />
 </div>
 
 
@@ -359,7 +496,7 @@ Clips 2.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841789.jpg" />
+  <img src="Z:/picture/008/save_picture_841789.jpg" />
 </div>
 
 
@@ -386,7 +523,7 @@ Dwell Click 2.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841703.jpg" />
+  <img src="Z:/picture/008/save_picture_841703.jpg" />
 </div>
 
 
@@ -414,7 +551,7 @@ HazeOver 1.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841691.jpg" />
+  <img src="Z:/picture/008/save_picture_841691.jpg" />
 </div>
 
 
@@ -443,7 +580,7 @@ liquivid Video Exposure and Effects 1.4.1 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841207.jpg" />
+  <img src="Z:/picture/008/save_picture_841207.jpg" />
 </div>
 
 
@@ -470,7 +607,7 @@ liquivid Video Merge 1.4.1 [En/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841099.jpg" />
+  <img src="Z:/picture/008/save_picture_841099.jpg" />
 </div>
 
 
@@ -496,7 +633,7 @@ liquivid Video Fisheye Removal 1.4.1 [En/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841097.jpg" />
+  <img src="Z:/picture/008/save_picture_841097.jpg" />
 </div>
 
 
@@ -522,7 +659,7 @@ Clipboard Center 2.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841089.jpg" />
+  <img src="Z:/picture/008/save_picture_841089.jpg" />
 </div>
 
 
@@ -550,7 +687,7 @@ liquivid Video Stabilization 1.4.1 [En/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841083.jpg" />
+  <img src="Z:/picture/008/save_picture_841083.jpg" />
 </div>
 
 
@@ -562,143 +699,6 @@ Liquivid Video Stabilization — это простое в использован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B5261DDD831BB588766073FBFDD6E305607410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379241   (840976) от 28.04.2020
-
-liquivid Video Deflickering 1.4.1 [En/Rus]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840976.jpg" />
-</div>
-
-
-###  Подробнее
-
-liquivid Video Deflickering - это простое в использовании приложение, которое уменьшает или полностью удаляет мерцание на видео.
-Мерцание является результатом непоследовательной экспозиции видеокадров и может появляться в видеозаписи отдельных временных промежутков или в случае записи при определенных условиях освещения (например, при использовании пульсирующих источников (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuПоддерживаемая ОС: masOS 10.11+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B00223F2D8C51E262C302E237F56E957FC8FEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379395   (840853) от 28.04.2020
-
-Macsome Spotify Downloader 1.0.3 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spotify Downloader для Mac - это профессиональный Music Converter, Audio Downloader и Recorder, который может конвертировать все музыкальные файлы и плейлисты Spotify в MP3, AAC, FLAC и WAV и разблокировать Spotify, так что вы можете воспроизводить преобразованные треки на Sony PSP, Sony Walkman, iRiver, общий MP3-плеер и так далее.Тип издания: macOS SoftwareРелиз состоялся: 27.04.2020Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B05E15C5319AE593DA3DA7922343FD349FEA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878820   (840263) от 16.03.2015
-
-Esko Studio Web 14 + Visualizer 14.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачем работать в плоском мире, если упаковка объемна? Studio — это уникальный набор средств трехмерного проектирования упаковки, разработанный специально для профессиональных дизайнеров-графиков.
-
-Studio поможет создавать более качественную графику. С помощью Studio и дизайнер, рассматривающий различные идеи оформления, и оператор допечатной подготовки, проверяющий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: ESKOПоддерживаемая ОС: 10.7.+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C80EE114D45E7A202665FB437C65377C437D1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004324   (840103) от 05.04.2016
-
-iNet Network Scanner 2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840103.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac . Удобный дизайн позволяет даже неопытным пользователям, получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh . Для большинства (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2016Разработчик: BananaGlueПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34283FB7D2FEA9E1975CB353694C7E9B8CD6FB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004146   (840007) от 05.04.2016
-
-ePub Metadata Editor 1.0.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840007.jpg" />
-</div>
-
-
-###  Подробнее
-
-ePub Metadata Editor - Редактировать метаданные электронных книг в формате EPUB.
-
-С ePub Metadata Editor легко просматривать и изменять метаданные электронных книг в формате EPUB. Просто перетащите файл EPUB на главное окно или на значок в Док.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2014Разработчик: Sixty Four, LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E111E26CCE9B648A4C41AD830FA67DECF3101A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1318591   (492852) от 07.08.2019
+
+Журнал | Motor Trend USA №9 (сентябрь 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motor Trend — популярный американский автомобильный журнал, основанный в сентябре 1949 года в городе Лос-Анджелесе. Ежемесячный тираж издания составляет более одного миллиона экземпляров.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3372862754587C522928DDD26A3FA9BFE7AF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318597   (492845) от 07.08.2019
 
 Журнал | Car Craft USA №10 (октябрь 2019) [PDF] [En]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492845.jpg" />
+  <img src="Z:/picture/008/save_picture_492845.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492844.jpg" />
+  <img src="Z:/picture/008/save_picture_492844.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491642.jpg" />
+  <img src="Z:/picture/008/save_picture_491642.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490212.jpg" />
+  <img src="Z:/picture/008/save_picture_490212.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488886.jpg" />
+  <img src="Z:/picture/008/save_picture_488886.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488885.jpg" />
+  <img src="Z:/picture/008/save_picture_488885.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488883.jpg" />
+  <img src="Z:/picture/008/save_picture_488883.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488881.jpg" />
+  <img src="Z:/picture/008/save_picture_488881.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488879.jpg" />
+  <img src="Z:/picture/008/save_picture_488879.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486923.jpg" />
+  <img src="Z:/picture/008/save_picture_486923.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484222.jpg" />
+  <img src="Z:/picture/008/save_picture_484222.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483116.jpg" />
+  <img src="Z:/picture/008/save_picture_483116.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483024.jpg" />
+  <img src="Z:/picture/008/save_picture_483024.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482907.jpg" />
+  <img src="Z:/picture/008/save_picture_482907.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480752.jpg" />
+  <img src="Z:/picture/008/save_picture_480752.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480340.jpg" />
+  <img src="Z:/picture/008/save_picture_480340.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479868.jpg" />
+  <img src="Z:/picture/008/save_picture_479868.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476974.jpg" />
+  <img src="Z:/picture/008/save_picture_476974.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476897.jpg" />
+  <img src="Z:/picture/008/save_picture_476897.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476167.jpg" />
+  <img src="Z:/picture/008/save_picture_476167.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475942.jpg" />
+  <img src="Z:/picture/008/save_picture_475942.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475289.jpg" />
+  <img src="Z:/picture/008/save_picture_475289.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475287.jpg" />
+  <img src="Z:/picture/008/save_picture_475287.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475286.jpg" />
+  <img src="Z:/picture/008/save_picture_475286.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475284.jpg" />
+  <img src="Z:/picture/008/save_picture_475284.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Australian 4WD Action - австралийский журнал, посвяще�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF19365BC31720CC30D09BF985E0CE6FAB7E3B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320205   (473379) от 17.08.2019
-
-Журнал | Evo IN №7 (июль 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473379.jpg" />
-</div>
-
-
-###  Подробнее
-
-За короткий промежуток времени мы произвели огромное впечатление в Индии с нашими лучшими в своем классе обложками, фотографиями, дизайном и тематическими историями, которые намного превосходят конкурентов в стране. Истории evo India длинноформатны: они написаны одними из самых причудливых и страстных писателей в бизнесе, воплощены в жизнь лучшими фотографами и имеют (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B81707FB6EC7FA7F4512FE88465646C3E1DF081
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1465618   (1018990) от 27.04.2021
+
+Blacksmith Tales - The Dark Presence (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Dark Presence [00:11:35]
+02 - Golgotha [00:06:07]
+03 - Let Me Die [00:06:12]
+04 - Rain…of Course! [00:03:32](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CC7BA744DB43B74012BC7119FC077573E85BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466422   (1018450) от 30.04.2021
 
 Renaissance - 50th Anniversary: Ashes Are Burning: An Anthology Live In Concert (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
@@ -6,7 +35,7 @@ Renaissance - 50th Anniversary: Ashes Are Burning: An Anthology Live In Concert 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018450.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pink Floyd - Live at Knebworth 1990 (2021) [MP3|320 Kbps] <Progressive rock, Art
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018364.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kansas - Left Over The Airwaves (2021) [MP3|320 Kbps] <Progressive Rock, Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018279.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Russia - Russia (1980) LP [MP3|320 Kbps] <Hard Rock, Classic Rock, New Wave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018227.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Fleesh - 4 Albums (2019-2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018108.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Black Veil Brides - 8 Albums (2010-2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018082.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Lez Zeppelin - The Island Of Skyros (2021) [MP3|320 Kbps] <Rock & Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018061.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Force 10 - Force 10 (1981) LP [MP3|320 Kbps] <Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017771.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Mars Volta - La Realidad De Los Suenos (2021) Box Set, Vinyl [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017416.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engageme
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016763.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Pennies by the Pound - Heat Death Of The Universe (2021) [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014850.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Maneskin - Teatro d'ira - Vol. I (2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014640.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dunbarrow - Dunbarrow I-III (2017-2021)[MP3|320 Kbps] <Stoner, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013725.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Hair, Glam & Hard Rock - 100 Hits (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013324.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Rest in Haste - 3 Albums (2014-2021) [MP3|320 Kbps] <Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013077.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Billy F Gibbons - Hardware (2021) [MP3|320 Kbps] <Southern Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012691.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Space-Man - Charged (2021) [MP3|320 Kbps] <Progressive Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012154.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ David Sean Simpson - The Radical Low (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012142.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Seize Eternity - Transit of X (2021) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012136.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Kings Hollow - How Do We Fall (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012115.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Black Label Society - The Song Remains Not The Same, Vol II (2021) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012005.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Klone - Alive (2021) Live [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011851.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Def Leppard - X, Yeah! & Songs From The Sparkle Lounge: Rarities From The Vault 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011119.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Bengal - From Outer Space (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010692.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Jethro Tull - Hard Times of Old England (1982) Reissue, 2021 [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009431.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Jethro Tull - Hard Times of Old England (1982) Reissue, 2021 [MP3|320 Kbps] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74279CDC1E766E723CB360BC68410C5DB1373FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479970   (1009341) от 26.06.2021
-
-Grateful Dead - Grateful Dead Skull And Roses (2021) 50th Anniversary Expanded Edition [MP3|320 Kbps] <Folk Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009341.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Good Lovin’ (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (17:47)
-2. Sing Me Back Home (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (10:16)
-3. Mama Tried (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (03:08)
-4. Cryptical Envelopment (Live at the Fillmore West, San Francisco, CA, July 2, 1971) (02:25)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 2CD, 02:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51768DF8338905166687417D4F8FCA35D8FD7D09
 ```
 
 https://mybot314.ru/tekegram_catalog/

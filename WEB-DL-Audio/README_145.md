@@ -6,7 +6,7 @@ Sketch Plot - Rock Lives On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4378.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cat Stevens (Yusuf) - On The Road To Findout: Greatest Hits (Deluxe) (2025) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4295.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4292.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4291.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Slipknot - Slipknot (1999) 25th Anniversary Edition, 2025, Roadrunner Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4289.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Acoustic Alchemy - The Empire of Lights (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4287.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Till Bronner - ITALIA (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4284.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ La Dispute - No One Was Driving The Car (2025) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4277.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4272.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4271.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jean-Michel Jarre - Live In Bratislava (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4156.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Faithless - Champion Sound: Side 1 Forever Free (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4079.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rob Thomas - All Night Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4053.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3879.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3861.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Justin Bieber - Swag II (2025) 2CD [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3857.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3844.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3717.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3699.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Polaris - Fatalism (2023, 2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3568.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Glenn Hughes - Chosen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3465.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Static Movement - Underwater (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psy-T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3464.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Animalyze - Powerhouse (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3443.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Aaron Mccoy - Next Level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3442.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Suede - Antidepressants (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3430.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ twenty one pilots - Breach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3338.jpg" />
 </div>
 
 

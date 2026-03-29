@@ -1,3 +1,91 @@
+###  Публикация: 1412024   (423316) от 27.09.2020
+
+Firespawn - Abominate (2019) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gallows End (4:34)
+02. Death and Damnation (4:28)
+03. Abominate (3:42)
+04. Heathen Blood (2:53)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ACF1599C8E5344EAA7000CBE5A03EE670BA8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411905   (423312) от 27.09.2020
+
+UADA - Djinn (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djinn
+02. The Great Mirage
+03. No Place Here
+04. In The Absence Of Matter(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95F1F944FC6F6D8865E7A08E3891CEC92781099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411957   (423310) от 27.09.2020
+
+Shrine of Malice - 4 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obyrith [00:05:19]
+02. Chainbreaker [00:04:31]
+03. The One Far Above [00:03:56]
+04. Tablet of Destinies [00:06:31](   Читать дальше...   )Жанр: Blackened Brutal Deathcore
+Страна исполнителя (группы): Las Vegas, Nevada (USA)Продолжительность: 4 CD, 03:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF224655E6E34ACAD1525818616176B8C7E711F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412018   (423306) от 27.09.2020
 
 Fight The Fury - Still Breathing (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Metal, Hard Rock>
@@ -6,7 +94,7 @@ Fight The Fury - Still Breathing (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423306.jpg" />
+  <img src="Z:/picture/008/save_picture_423306.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Inquisicao - Reborn (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423224.jpg" />
+  <img src="Z:/picture/008/save_picture_423224.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Psychosis - Complex (1996) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423222.jpg" />
+  <img src="Z:/picture/008/save_picture_423222.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ Messina - Terrortory (1990) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423220.jpg" />
+  <img src="Z:/picture/008/save_picture_423220.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ Imminent Sonic Destruction - Recurring Themes (2012) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423215.jpg" />
+  <img src="Z:/picture/008/save_picture_423215.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ Allegiance - Vrede (1999) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423108.jpg" />
+  <img src="Z:/picture/008/save_picture_423108.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ Pyramid - Gold Tooth (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423107.jpg" />
+  <img src="Z:/picture/008/save_picture_423107.jpg" />
 </div>
 
 
@@ -209,7 +297,7 @@ Caligula's Horse - In Contact (2017) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423106.jpg" />
+  <img src="Z:/picture/008/save_picture_423106.jpg" />
 </div>
 
 
@@ -238,7 +326,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423096.jpg" />
+  <img src="Z:/picture/008/save_picture_423096.jpg" />
 </div>
 
 
@@ -267,7 +355,7 @@ Nasty - Menace (2020) [FLAC|Lossless|WEB-DL-24bit-96kHz|tracks] <Hardcore Punk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423083.jpg" />
+  <img src="Z:/picture/008/save_picture_423083.jpg" />
 </div>
 
 
@@ -296,7 +384,7 @@ Ayreon - Transitus (2020) 4xCD [FLAC|Lossless|tracks + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423077.jpg" />
+  <img src="Z:/picture/008/save_picture_423077.jpg" />
 </div>
 
 
@@ -325,7 +413,7 @@ Iron Maiden - Greatest Hits (2CD) (2008) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422732.jpg" />
+  <img src="Z:/picture/005/save_picture_422732.jpg" />
 </div>
 
 
@@ -354,7 +442,7 @@ FireForce - March On (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421903.jpg" />
+  <img src="Z:/picture/008/save_picture_421903.jpg" />
 </div>
 
 
@@ -383,7 +471,7 @@ Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421896.jpg" />
+  <img src="Z:/picture/008/save_picture_421896.jpg" />
 </div>
 
 
@@ -412,7 +500,7 @@ Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421641.jpg" />
+  <img src="Z:/picture/008/save_picture_421641.jpg" />
 </div>
 
 
@@ -441,7 +529,7 @@ Chaos Divine - Africa (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421503.jpg" />
+  <img src="Z:/picture/008/save_picture_421503.jpg" />
 </div>
 
 
@@ -469,7 +557,7 @@ Inner Visions - Control The Past (2004) [APE|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421502.jpg" />
+  <img src="Z:/picture/008/save_picture_421502.jpg" />
 </div>
 
 
@@ -498,7 +586,7 @@ Echoes of Eternity - The Forgotten Goddess (2007) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421500.jpg" />
+  <img src="Z:/picture/008/save_picture_421500.jpg" />
 </div>
 
 
@@ -527,7 +615,7 @@ Domine - Dragonlord (Tales Of The Noble Steel) (1999) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421497.jpg" />
+  <img src="Z:/picture/008/save_picture_421497.jpg" />
 </div>
 
 
@@ -556,7 +644,7 @@ Enslaved - Vikingligr Veldi & Hordanes Land (2004) 2CD [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421496.jpg" />
+  <img src="Z:/picture/008/save_picture_421496.jpg" />
 </div>
 
 
@@ -584,7 +672,7 @@ Domine - Stormbringer Ruler - The Legend Of The Power Supreme (2001) Japan [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421495.jpg" />
+  <img src="Z:/picture/008/save_picture_421495.jpg" />
 </div>
 
 
@@ -613,7 +701,7 @@ Domine - Ancient Spirit Rising (2007) Japan [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421494.jpg" />
+  <img src="Z:/picture/008/save_picture_421494.jpg" />
 </div>
 
 
@@ -642,7 +730,7 @@ Cavalera Conspiracy - Сollection (2008-2017) 4CD [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421376.jpg" />
+  <img src="Z:/picture/008/save_picture_421376.jpg" />
 </div>
 
 
@@ -656,93 +744,6 @@ Cavalera Conspiracy — Бразильско-Американская метал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E93379AFC4913D64671D27F9803FFA48D4F043F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572247   (421208) от 27.08.2022
-
-Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Baphomet
-2.	The Devil's Son
-3.	Swinefever - Regent of Pigs
-4.	Apophis - Black Dragon(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5C33F47A58CFDB7ECDE293DDB08B374690B10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412081   (420797) от 28.09.2020
-
-Neurogenic - Ouroboric Stagnation (2016) [WavPack|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Absorption Of Oblivion (2:22)
-02 - Subdural Breeding (featuring Brian Forgue) (2:18)
-03 - Immersion (featuring Dave Suzuki) (2:33)
-04 - Warden Domain (2:04)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EB12C687F59E07F92DE3CA427DEE31FEB33631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412083   (420796) от 28.09.2020
-
-Raven - ExtermiNation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro/Destroy All Monsters
-02 - Tomorrow
-03 - Its Not What You Got
-04 - Fight(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAAE3DCBAAFBA90B83E62C056D619411D63D12F
 ```
 
 https://mybot314.ru/tekegram_catalog/

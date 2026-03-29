@@ -1,3 +1,90 @@
+###  Публикация: 1464580   (1019828) от 22.04.2021
+
+Lantlôs (Lantlos) - Lantlôs (2008) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Black Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. þinaz Andawlitjam (9:04)
+02. Mittsommerregen (8:09)
+03. Ruinen (8:34)
+04. Kalte Tage (6:59)(   Читать дальше...   )Производство: De Tenebrarum Principio – DTP008Жанр: Depressive Black Metal, Post Black Metal, Post RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02903DA595C581B339EC8D1AAC43E93588BD7186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464518   (1019826) от 22.04.2021
+
+FireWing - Resurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude: Moonlight Of Despair
+02. Obscure Minds
+03. Chapter I: Acheron's Ritual
+04. Demons Of Society(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BA068AB84FE4BEF1B8FA8A33F7FF18F73BC133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464510   (1019810) от 22.04.2021
+
+Feanor - Power Of The Chosen One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Of The Dragon
+02. Power Of The Chosen One
+03. This You Can Trust
+04. Metal Land(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAD8BCF4A77B6A6A47442053AC0004FB9B03050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464379   (1019806) от 22.04.2021
 
 Liquid Tension Experiment - Liquid Tension Experiment 3 (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Instrumental Progressive Metal>
@@ -6,7 +93,7 @@ Liquid Tension Experiment - Liquid Tension Experiment 3 (2021) 2xCD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019806.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Vexillum - When Good Men Go To War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019671.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Velvet Viper - Cosmic Healer (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019667.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ My Refuge - The Anger Is Never Over (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019663.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Frozen Crown - Winterbane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019653.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Helslave - From The Sulphur Depths (2021) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019510.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Endseeker - The Harvest (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019508.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Nightfyre - Shattered Lands (EP) (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019506.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Blackbriar - The Cause of Shipwreck (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019483.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Mister Misery - A Brighter Side of Death (2021) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019161.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Vexillum - Unum (2015) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019000.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Vexillum - The Bivouac (2012) [FLAC|Lossless|image + .cue] <Power Metal, Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018997.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Vexillum - The Wandering Notes (2011) [FLAC|Lossless|image + .cue] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018996.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Percival - Riders Of The Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018980.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Cannibal Corpse - Violence Unimagined (2021) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018821.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Evermore - Court of the Tyrant King (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018644.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Axewitch - Out of the Ashes into the Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018469.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Noctambulist - Noctambulist I: Elegieen (2021) [FLAC|Lossless|image + .cue] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018467.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Shining Black - Shining Black (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018460.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Witchbound - End of Paradise (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018455.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Bloody Hell - The Bloodening (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018449.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Gojira - Fortitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018405.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Nightwish - HUMAN. :II: NATURE. (2020) 3xCD, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018389.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4085AC8D2C1BA0FBC896897A16487B202E92200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466632   (1018295) от 01.05.2021
-
-Autumn Bride - Undying (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Path
-02. Fear and Devotion
-03. Moonlit Waters
-04. Shadows(   Читать дальше...   )Жанр: Sympho Metal, Female VocalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9542E235C8329BD18D9EAC3A25BBD80C33927C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466758   (1018243) от 01.05.2021
-
-Evile - Hell Unleashed (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralysed (05:03)
-02. Gore (04:49)
-03. Incarcerated (06:16)
-04. War of Attrition (04:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A314BC98F17A662D16CB39FE52DD7B693A3CC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466570   (1018228) от 01.05.2021
-
-Cheat Engine - Pandemica (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cradle to Grave 4:03
-02. Pandemica 4:10
-03. Nemesis 3:53
-04. Disorder 4:03(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09E59376C5413E6870B177B406BB17F1FF80EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

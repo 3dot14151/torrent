@@ -1,3 +1,114 @@
+###  Публикация: 1417688   (355898) от 21.10.2020
+
+Duplicate File Finder Pro 6.9  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355898.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrimeFile - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
+Drag & drop столько папок, сколько вы хотите, и нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатов файлов по категориям: изображения, видео, музыки, архивы, документы и др.. Это очень легко, чтобы увидеть, сколько места занимает каждый файл.
+
+В Pro версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B64AC433912FFA3271A431965C0C59757F799F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417754   (355895) от 21.10.2020
+
+DxO PhotoLab 4 ELITE Edition 4.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3506B2386618BF3F22015466C6F6179DC5556F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417719   (355893) от 21.10.2020
+
+Disk Expert Pro 3 v3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Expert - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
+
+Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные DMG-образы и сетевые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA8130C7E776F05DFE34F8884172747605D11C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417749   (355760) от 21.10.2020
+
+4K Stogram Pro for Mac 3.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355760.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CCC2E1903464EB5000D916BB6CEA5595AE7FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417677   (355758) от 21.10.2020
 
 Big Mean Folder Machine 2 v2.42 [EN]
@@ -6,7 +117,7 @@ Big Mean Folder Machine 2 v2.42 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355758.jpg" />
+  <img src="Z:/picture/008/save_picture_355758.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ MacCleaner 2 PRO 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355756.jpg" />
+  <img src="Z:/picture/008/save_picture_355756.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355735.jpg" />
+  <img src="Z:/picture/008/save_picture_355735.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Adobe Illustrator CC2018 v22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355382.jpg" />
+  <img src="Z:/picture/008/save_picture_355382.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ Alien Skin Exposure X3 Bundle 3.0.4.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355379.jpg" />
+  <img src="Z:/picture/008/save_picture_355379.jpg" />
 </div>
 
 
@@ -141,7 +252,7 @@ Total Video Converter Pro 3.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355336.jpg" />
+  <img src="Z:/picture/008/save_picture_355336.jpg" />
 </div>
 
 
@@ -168,7 +279,7 @@ Adobe Photoshop Lightroom Classic CC v7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355137.jpg" />
+  <img src="Z:/picture/008/save_picture_355137.jpg" />
 </div>
 
 
@@ -194,7 +305,7 @@ Scrutiny 12 v.12.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354827.jpg" />
+  <img src="Z:/picture/008/save_picture_354827.jpg" />
 </div>
 
 
@@ -221,7 +332,7 @@ EdgeView 3 v.3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354824.jpg" />
+  <img src="Z:/picture/008/save_picture_354824.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ BusyCal 2022.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354823.jpg" />
+  <img src="Z:/picture/008/save_picture_354823.jpg" />
 </div>
 
 
@@ -274,7 +385,7 @@ Cardhop 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354821.jpg" />
+  <img src="Z:/picture/008/save_picture_354821.jpg" />
 </div>
 
 
@@ -301,7 +412,7 @@ BookMacster 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354820.jpg" />
+  <img src="Z:/picture/008/save_picture_354820.jpg" />
 </div>
 
 
@@ -327,7 +438,7 @@ File Juicer 4.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354790.jpg" />
+  <img src="Z:/picture/008/save_picture_354790.jpg" />
 </div>
 
 
@@ -355,7 +466,7 @@ Art Text 4 v.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354754.jpg" />
+  <img src="Z:/picture/008/save_picture_354754.jpg" />
 </div>
 
 
@@ -382,7 +493,7 @@ djay - DJ App & AI Mixer 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354746.jpg" />
+  <img src="Z:/picture/008/save_picture_354746.jpg" />
 </div>
 
 
@@ -408,7 +519,7 @@ BusyContacts 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354572.jpg" />
+  <img src="Z:/picture/008/save_picture_354572.jpg" />
 </div>
 
 
@@ -436,7 +547,7 @@ iCollections 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354569.jpg" />
+  <img src="Z:/picture/008/save_picture_354569.jpg" />
 </div>
 
 
@@ -462,7 +573,7 @@ Amadeus Pro 2.5.0 (2051) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354564.jpg" />
+  <img src="Z:/picture/008/save_picture_354564.jpg" />
 </div>
 
 
@@ -488,7 +599,7 @@ BusyCal 3 v3.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354558.jpg" />
+  <img src="Z:/picture/008/save_picture_354558.jpg" />
 </div>
 
 
@@ -515,7 +626,7 @@ GraphicConverter 10 v10.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354554.jpg" />
+  <img src="Z:/picture/008/save_picture_354554.jpg" />
 </div>
 
 
@@ -541,7 +652,7 @@ BetterTouchTool 2.646 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354423.jpg" />
+  <img src="Z:/picture/008/save_picture_354423.jpg" />
 </div>
 
 
@@ -567,7 +678,7 @@ xScope 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354412.jpg" />
+  <img src="Z:/picture/008/save_picture_354412.jpg" />
 </div>
 
 
@@ -578,112 +689,6 @@ xScope — cоздан специально для дизайнеров и ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77126D30D93171DE8DBF45CB1750793DDDEDC1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577600   (354301) от 19.09.2022
-
-Elmedia Player Pro 8.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2022Разработчик: © 2022 Eltima LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69980AFF60BA887651C407D07D3E83311B15E843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256186   (354267) от 22.10.2018
-
-Audio Hijack 3.5.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
-В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7066226D94ECED8030ED3F031BBBE8795B28881B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256175   (354139) от 22.10.2018
-
-Movavi Video Editor 15 Business v15.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354139.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Movavi Видеоредактором Бизнес вы сможете легко создавать качественные ролики для своего бизнеса: инструкции, рекламные клипы, презентации программ, ролики для видеоблога и многое другое. Красивые и понятные видео заинтересуют ваших клиентов и принесут дополнительный доход. Фирменный ролик с логотипом и контактной информацией поможет продвинуть бренд. Загрузка видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F5701E0959728F449BD4D1F42B0EAAA14B32B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256569   (354021) от 22.10.2018
-
-Movavi Video Editor 15.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем простую и удобную программу для обработки видео на Mac – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий. Просто загрузите фото и видео в программу, исправьте качество одним нажатием кнопки, добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534F4FEFF80595052DC761BFE45AB8B10FAF76C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

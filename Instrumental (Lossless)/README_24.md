@@ -1,3 +1,232 @@
+###  Публикация: 632333   (921584) от 19.03.2013
+
+Sena Ehrhardt - All In (2013) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues-RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096068   (921097) от 23.01.2017
+
+8 Ball Aitken - 8 Ball Aitken (2016)  [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 She's Going To Mexico I'm Going To Jail (03:38)
+02 Seven Bucks An Hour In A Chicken Suit (04:03)
+03 Shut The Front Door (02:39)
+04 Girl In A Million (03:40)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C43A4700125A131641B00A6BDD8A5C98C5301E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095752   (921095) от 23.01.2017
+
+Jeff Gates Band - 3CD (2011 - 2013)[APE, FLAC|Lossless|WEB-DL|image + .cue, tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классифицировать музыку Jeff Gates довольно трудно, это как выбрать один цвет, чтобы описать всю красоту гор. Джефф написал и исполнил много мелодий, которые находятся в диапазоне от старого доброго блюза до hair band rock в стиле 80-х. Его два последних компакт-диска, "You Make Me "(2011) и "Colorblind Blues" (2012), это смесь фанки блюза с поп-роком. (   Читать дальше...   )Список альбомов:
+2011 - You Make Me (CD)
+2012 - Colorblind Blues (CD)
+2013 - Secession (WEB)Тип издания: 2CD + WEBЖанр: Blues, Blues-RockПродолжительность: 02:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2C7FAE41866FF649E803B1DEFA918EC2541A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096129   (921084) от 23.01.2017
+
+Jeff Michaels - 2CD (2015-2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Heavy Funky Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Electric Texas (WEB)
+2016 - Texas Quake (WEB)Жанр: Blues, Heavy Funky BluesПродолжительность: 01:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEFBE6A60DF7B8F8DBFE0A253D9D5A028605538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096076   (921075) от 23.01.2017
+
+Doug Prescott Band - Blues in the Key of Sea (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Blues in the Key of Sea (03:37)
+02 99- Won't Do (02:53)
+03 Purple Heart in a Crown Vic (03:49)
+04 A Little O Dat (03:34)(   Читать дальше...   )Жанр: Blues, AmericanaПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65906CE5A0325107D5BDCE8C17F977115787E837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096272   (921066) от 23.01.2017
+
+The Lachy Doley Group - Conviction (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Betcha I'll Getcha (02:42)
+02 Conviction (05:31)
+03 Make It Up (04:38)
+04 Back In Black (04:48)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F485A496E9509BA130740A11250F175CC4F8ABE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096258   (921055) от 23.01.2017
+
+The Fabulous Thunderbirds - Strong Like That (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начинали как исполнители классического ритм-энд-блюза, но привлечь внимание смогли лишь после того, как включили в репертуар композиции в стиле «новой волны».
+Fabulous Thunderbirds добились контракта на запись альбома, но, как оказалось, это был всего лишь ловкий ход: пластинка «Girls Go Wild» выполнена в духе традиционной мелодики поп-музыки 60-х с заметным влиянием (   Читать дальше...   )01. (I Know) I'm Losing You (04:25)
+02. Don't Burn Me (03:51)
+03. You're Gonna Miss Me (04:16)
+04. Drowning On Dry Land (03:44)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733414C6147F1EAD69ECD1213B003DF902E334B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096262   (921041) от 23.01.2017
+
+Karen Lovely - Ten Miles of Bad Road (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Female Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Low Road (03:28)
+02 Company Graveyard (04:06)
+03 A Better Place (04:33)
+04 Ignorance (It Ain't Bliss) (04:07)(   Читать дальше...   )Жанр: Blues, Female BluesПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D4F657310B9ED6221DE02AA924C407372FB2BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096110   (921035) от 23.01.2017
 
 Karen Lovely - Live in Los Angeles (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Female Blues>
@@ -6,7 +235,7 @@ Karen Lovely - Live in Los Angeles (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921035.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ The Lachy Doley Group - Lovelight (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920998.jpg" />
 </div>
 
 
@@ -64,7 +293,7 @@ Phantom Blues Band - Inside Out (2011) [FLAC|Lossless|image + .cue] <Modern Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920989.jpg" />
 </div>
 
 
@@ -93,7 +322,7 @@ Gary Clark Jr. - The Story Of Sonny Boy Slim (2015) Digipak [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920758.jpg" />
 </div>
 
 
@@ -122,7 +351,7 @@ Debbie Davies - Love The Game (2001), Limited Edition [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920597.jpg" />
 </div>
 
 
@@ -157,7 +386,7 @@ Eric Clapton - Chronicles 3 Classic Albums (2005) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920354.jpg" />
 </div>
 
 
@@ -188,7 +417,7 @@ Justin Johnson - The Bootleg Series, Vol. 5: Blood Moon (2021) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920152.jpg" />
 </div>
 
 
@@ -217,7 +446,7 @@ Southbound Snake Charmers - Rhythm 'n' Rust (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919393.jpg" />
 </div>
 
 
@@ -246,7 +475,7 @@ City Streets - Temptation (2010) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919356.jpg" />
 </div>
 
 
@@ -275,7 +504,7 @@ J.J. Cale - Okie (1974) Japan Edition, 2013, Mercury [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919090.jpg" />
 </div>
 
 
@@ -304,7 +533,7 @@ VA - Women Of Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918965.jpg" />
 </div>
 
 
@@ -333,7 +562,7 @@ Vaya Con Dios, Purple Prose - 9 альбомов (1988 - 2009) [FLAC, APE|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918228.jpg" />
 </div>
 
 
@@ -362,7 +591,7 @@ Eldon Brown Band - I'd Be A Fool (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917801.jpg" />
 </div>
 
 
@@ -391,7 +620,7 @@ The Hollywood Blue Flames - Soul Sanctuary (2005) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917782.jpg" />
 </div>
 
 
@@ -420,7 +649,7 @@ Carl Verheyen - Slingshot (1998) [FLAC|Lossless|tracks + .cue] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917779.jpg" />
 </div>
 
 
@@ -449,7 +678,7 @@ CG & The Hammer - Live in Tel Aviv (2010) [APE|Lossless|image + .cue] <Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916030.jpg" />
 </div>
 
 
@@ -478,7 +707,7 @@ Big Monti Amundson - Dangling From A Rope (2014) [FLAC|Lossless|WEB-DL|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916029.jpg" />
 </div>
 
 
@@ -507,7 +736,7 @@ The Blues Rebels - 2CD (2015-2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916022.jpg" />
 </div>
 
 
@@ -519,238 +748,6 @@ The Blues Rebels - 2CD (2015-2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73BD20839053AE64DDD3153CDB0CEE3E5F0B74A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097306   (915906) от 26.01.2017
-
-The Record Company - Give It Back To You (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off The Ground (04:15)
-02. Don't Let Me Get Lonely (02:34)
-03. Rita Mae Young (04:23)
-04. On The Move (04:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33214DA90F84E4701D1DFCF79630C31E32E73D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490875   (915154) от 22.08.2021
-
-Wily Bo Walker - Tales of the Mescal Canyon Troubadours (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive (Mescalito Mix) (3:33)
-02. Walk in Chinese Footsteps (Bardo Thцdol Mix) (5:00)
-03. Jawbreaker (Surf-O-Rama Mix) (2:58)
-04. I Want to Know (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177EBAA9830A0198B2079F782A64B55E3E0BE199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097464   (914495) от 27.01.2017
-
-The Rides - Pierced Arrow (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Out Of It (4:06)
-02. Riva Diva (3:22)
-03. Virtual World (4:04)
-04. By My Side (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEF8469C6B9BF76D950275388A709E1912330B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097466   (914488) от 27.01.2017
-
-Albert Castiglia - Big Dog (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Big Dog Eat (3:29)
-02. Don't Let Them Fool Ya (4:26)
-03. Get Your Ass In The Van (3:51)
-04. Drowning At The Bottom (4:34)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06020F2B26C6C00A8E9EBE08E0A27A44E419B67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097462   (914386) от 27.01.2017
-
-Walter Trout - Alive In Amsterdam (2016) 2CD [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914386.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Marie's Introduction (Live) ( 1:19)
-02. Play The Guitar (Live) ( 0:28)
-03. Help Me (Live) ( 7:19)Жанр: Blues RockПродолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DC6540320DBC47D22BB37D6DD763C9544F0FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097406   (914090) от 27.01.2017
-
-Blues Pills - Lady In Gold (2016) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вначале состоялось моё знакомство с этим молодым шведским блюзовым коллективом, с этими "Блюзовыми пилюлями" (Blues Pills) на Ютубе. Этакая приятная девчоночка, с хорошими вокальными данными сразу обратила на себя внимание. Это уже потом я почитал, что её критики описывают как "харизматичную вокалистку" Элин Ларссон (Elin Larsson). Всего два студийных (   Читать дальше...   )01. Lady In Gold  (4:32)
-02. Little Boy Preacher  (3:36)
-03. Burned Out  (4:33)
-04. I Felt A Change  (3:58)(   Читать дальше...   )Жанр: Blues, Blues-Rock, RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116AEDCA7751DEB0487CC603B70A931E673BC6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491056   (913848) от 23.08.2021
-
-Matthew Ryan Jacobs - Living in Between (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Hear Me (1:59)
-02. Old Habits (4:30)
-03. Living in Between (4:53)
-04. Southern Sun (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E9A2011DB74991270440F94E8A9B315A14A278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491047   (913846) от 23.08.2021
-
-Holebones - Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mojo Hand  (4:14)
-02. Just Like a Bird without a Feather  (4:05)
-03. Catfish  (4:00)
-04. Hard Time Killin‘ Floor  (3:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19DCD820D9D4849C996AE4AE49A950D1997C9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

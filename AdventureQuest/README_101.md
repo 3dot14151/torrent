@@ -1,3 +1,81 @@
+###  Публикация: 1780184   (24655) от 15.03.2025
+
+Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атмосферная приключенческая игра, в которой вы играете за Рейвен, колдунью и потомка Лакмира Безвременного, стремящуюся вернуть магию в страну Кал Торлин. В сопровождении своего остроумного спутника Йорика вы будете исследовать легендарный замок Shadowgate в великолепно прорисованных 3D-средах, используя мистический Chrono-Orb для перемещения между прошлым и настоящим (   Читать дальше...   )Тип издания: LicenseРазработчик: Forever Entertainment S. A., Highball GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D09EF799F3537E2C779433C2D0C3BE28F0A12E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678989   (24653) от 15.03.2025
+
+Worldless (2023) [Ru/Multi] (1.3.5) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Worldless - это загадочный и сюрреалистичный двухмерный платформер, который бросит вызов вашим навыкам и вовлечет ваш разум в путешествие самопознания и трансценденции. Вступив в бесформенное царство, вы отправитесь в путь, который сотрет границы между физическим и астральным планами, исследуя два разных царства, наполненных сущностями, стремящимися к росту и пониманию.Тип издания: LicenseРазработчик: Noname StudiosЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255991C54752E4084B5ACD0E61B10417FBF177F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785234   (24605) от 15.03.2025
+
+Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24605.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей культового хита Scratches и мистической Serena - новое леденящее душу путешествие в самые тёмные глубины вашего разума. ASYLUM - это амбициозное хоррор-приключение от первого лица, погружающее вас в психоделическую атмосферу Психиатрической Лечебницы Ханвелл. В роли бывшего пациента, страдающего от странных видений, вам предстоит исследовать запутанную (   Читать дальше...   )Тип издания: RepackРазработчик: SenscapeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C50C6692D89C3BAA552485BE0F7E638A1846204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785474   (24489) от 16.03.2025
 
 The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ The Test: Reality Check (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24489.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24396.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24309.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24228.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Beyond Galaxyland (2024) [Ru/Multi] (1.0.0.6/1.0.2.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24192.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24095.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24078.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24022.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Long Dark (2017) [Ru/Multi] (2.40/dlc) Repack dixen18 [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24017.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24007.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23888.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23822.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23764.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23741.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Wanderstop (2025) [Multi] (Build #15399) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23695.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack FitGirl [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23664.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23657.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23648.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23576.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23569.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23561.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23506.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack Other s [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23340.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Them and Us - классический хоррор на выживание с �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF802C775E8E466F30F9D45E562571AA17069179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788004   (23272) от 28.03.2025
-
-MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23272.jpg" />
-</div>
-
-
-###  Подробнее
-
-MOOD - это мрачная визуальная новелла, с элементами психологического хоррора и каплей юмора. Игроку предстоит встретить девушку и немного с ней прогуляться. Ничего плохого не произойдет, мы обещаем. Мой бесконечно стабильный путь с работы домой и обратно. Этот город никогда не дарил ярких красок и счастливых воспоминаний. Однако, привычный порядок вещей нарушает (   Читать дальше...   )Тип издания: RepackРазработчик: Tenebrae StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788259   (23169) от 29.03.2025
-
-Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (build 17904043/dlc) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русы против ящеров 2 – это кооперативный слешер-экшен от легендарной команды theBratans, они же Smola Games, разработчика франшизы "Русы против ящеров". Заслуженно отмеченная наградами франшиза возвращается с новой, революционной главой. Мерзкие ящеры, подгоняемые своими тайными покровителями, получили новые ящерские технологии и вновь коварно напали на (   Читать дальше...   )Тип издания: RepackРазработчик: the Bratans, Smola Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76B7A19ED32294CB1CA64769794C31251DA1347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788344   (23055) от 30.03.2025
-
-The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Призрак Фрэнка Стоуна мучает Сидар-Хиллз - город, который так и не оправился после ужасных преступлений. Группа подростков погружается в мир кровавого наследия Стоуна. Опыт этот шрамами отпечатается на их судьбах и судьбах целых семей, вплетаясь в саму материю реальности.Тип издания: RepackРазработчик: Supermassive GamesЖанр: Horror, AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
 ```
 
 https://mybot314.ru/tekegram_catalog/

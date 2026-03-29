@@ -1,3 +1,29 @@
+###  Публикация: 1626662   (255169) от 15.04.2023
+
+Я дарю тебе свою первую любовь / Boku no hatsukoi wo kimi ni sasagu (2009) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённой манге Аоки Котоми. История Такумы и Маю началась ещё в детстве. Тогда из-за проблем с сердцем Такума часто лежал в больнице, где и познакомился с дочерью своего лечащего врача. С тех пор они становились всё ближе и ближе. Когда Такуме было восемь лет, он дал Маю обещание, которое не мог сдержать. Он пообещал, что женится на ней, когда им будет (   Читать дальше...   )Производство: Япония, D.N. Dream Partners, Nippon Television Network (NTV), Pivot Plus Music (PPM)Жанр: драма, мелодрамаРежиссер: Такехико СиндзоАктеры: Мао Иноэ, Масаки Окада, Нацуки Харада, Кейко Хориути, Ёсихико Хосода, Масатака Кубота, Ёуко Моригучи, Тору Накамура, Мари Окамото, Тэтта СугимотоПеревод: любительский многоголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87A62972B7A1DE7159D57198A5E55BDC5DCE606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 397084   (255143) от 15.04.2023
 
 Я видел Дьявола / I Saw the Devil / Akmareul boatda (2010) HDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255143.jpg" />
+  <img src="Z:/picture/005/save_picture_255143.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254872.jpg" />
+  <img src="Z:/picture/005/save_picture_254872.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254848.jpg" />
+  <img src="Z:/picture/005/save_picture_254848.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254421.jpg" />
+  <img src="Z:/picture/005/save_picture_254421.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252730.jpg" />
+  <img src="Z:/picture/005/save_picture_252730.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252323.jpg" />
+  <img src="Z:/picture/004/save_picture_252323.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252020.jpg" />
+  <img src="Z:/picture/004/save_picture_252020.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250757.jpg" />
+  <img src="Z:/picture/004/save_picture_250757.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250360.jpg" />
+  <img src="Z:/picture/004/save_picture_250360.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250083.jpg" />
+  <img src="Z:/picture/004/save_picture_250083.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249403.jpg" />
+  <img src="Z:/picture/004/save_picture_249403.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249352.jpg" />
+  <img src="Z:/picture/004/save_picture_249352.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249051.jpg" />
+  <img src="Z:/picture/004/save_picture_249051.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247647.jpg" />
+  <img src="Z:/picture/004/save_picture_247647.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247471.jpg" />
+  <img src="Z:/picture/004/save_picture_247471.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245961.jpg" />
+  <img src="Z:/picture/004/save_picture_245961.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245397.jpg" />
+  <img src="Z:/picture/004/save_picture_245397.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244968.jpg" />
+  <img src="Z:/picture/004/save_picture_244968.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244657.jpg" />
+  <img src="Z:/picture/004/save_picture_244657.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243285.jpg" />
+  <img src="Z:/picture/004/save_picture_243285.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242990.jpg" />
+  <img src="Z:/picture/005/save_picture_242990.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242719.jpg" />
+  <img src="Z:/picture/005/save_picture_242719.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242189.jpg" />
+  <img src="Z:/picture/004/save_picture_242189.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241866.jpg" />
+  <img src="Z:/picture/004/save_picture_241866.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241802.jpg" />
+  <img src="Z:/picture/004/save_picture_241802.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:694382BDCC62C89E25320B6FA921D370E8BC63E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376520   (241752) от 18.04.2020
-
-Народный напев Цугару / Tsugaru jongarabushi / Jongara / Tsugaru Folk Song (1973) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исако Накасато вернулась в родные места, где её никто не ждет. Её отец и брат погибли в море, сосед Такадзо ненавидит её за то, что она сбежала из деревни с его сыном. Теперь она вернулась с парнем, который моложе её. Зачем она сюда приехала? Это спасение или гибель для всех?Производство: Япония / Art Theatre Guild, Saito Koichi ProductionЖанр: ДрамаРежиссер: Койти СаитоАктеры: Кёко Энами, Акира Ода, Михоко Накагава, Ко Нисимура, Кодзиро Хонго, Хидэо Сато, Минори Тэрада, Харуко ТодаПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F03197D9771D03C9A45E9CCDDA1E98A03CCE4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1123030   (793007) от 06.04.2017
+
+Navitel / Навител Навигатор v9.8.2 RePack для карт релиза Q1-2017 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 05.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CD5FAA4ECD3FB989F0776DC994F820E521E2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274554   (792721) от 07.01.2019
+
+Фагот (2018) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма – молодой человек по имени Максим. Он встречается с редкостной стервой, которая к тому же еще и ревнива. В итоге в один прекрасный момент он решает порвать с ней. Но как это сделать так, чтобы всем было хорошо? За помощью Максим идет к своей сестре и матери, но их советы оказываются бесполезными. Тогда герой самостоятельно придумывает самую абсурдную (   Читать дальше...   )Производство: Россия | Студия «Молох»Жанр: КомедияРежиссер: Борис ГуцАктеры: Анастасия Пронина, Юлия Ауг, Ольга Кавалай-Аксенова, Александр Дривень, Анна ДаукаеваПеревод: Не требуется (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB6FEC2895AD7D4B180CCC1BAE4719E0067F233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274224   (792692) от 07.01.2019
+
+Комплекс программ для восстановления данных 19.01.05 Portable by DrJayZi [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное каждый, рано или поздно, сталкивается с потерей данных на HDD или переносном устройстве. Начинает искать программу, при помощи которой можно восстановить утраченную информацию, но беда в том, что программа, которая помогла прошлый раз, может быть бессильна в данной ситуации. Начинается перебор программ, установка и удаление и в конечном итоге ОС превращается (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7C35009E342A81B35A0F56F90BDA42FAE0B2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201339   (792590) от 24.01.2018
+
+Adobe Photoshop CC 2018 (19.1.0) x86-x64 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2018 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44A4A9FF43DBBD94AF26A2BC310D6A2F09C9B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386193   (792300) от 31.05.2020
 
 Солярис (1972) BDRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792300.jpg" />
+  <img src="Z:/picture/008/save_picture_792300.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BELOFF 2020.05 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_792279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792279.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Apple купит "Теслу", в Великобритании наступит 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_792011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792011.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Darkwood (2017) [Ru/Mult] (1.2) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791887.jpg" />
+  <img src="Z:/picture/008/save_picture_791887.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ UltraISO Premium Edition 9.7.1.3519 Retail [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791885.jpg" />
+  <img src="Z:/picture/008/save_picture_791885.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Windows 11 Pro x64 21Н2 (build 22000.318) by ivandubskoj 11.11.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_791865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791865.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791861.jpg" />
+  <img src="Z:/picture/008/save_picture_791861.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ T-FLEX CAD 16.0.32.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791473.jpg" />
+  <img src="Z:/picture/008/save_picture_791473.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_791406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791406.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791347.jpg" />
+  <img src="Z:/picture/008/save_picture_791347.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_791270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791270.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791227.jpg" />
+  <img src="Z:/picture/008/save_picture_791227.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791225.jpg" />
+  <img src="Z:/picture/008/save_picture_791225.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_790922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790922.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ DayZ (2018) [Ru/Multi] (1.0.15) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790821.jpg" />
+  <img src="Z:/picture/008/save_picture_790821.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790781.jpg" />
+  <img src="Z:/picture/008/save_picture_790781.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Windows 7 Enterprise SP1 x64 Elgujakviso Edition (v.28.01.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790226.jpg" />
+  <img src="Z:/picture/008/save_picture_790226.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790224.jpg" />
+  <img src="Z:/picture/008/save_picture_790224.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Adobe Photoshop CC 2019 20.0.2.22488 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790181.jpg" />
+  <img src="Z:/picture/008/save_picture_790181.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790178.jpg" />
+  <img src="Z:/picture/008/save_picture_790178.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790177.jpg" />
+  <img src="Z:/picture/008/save_picture_790177.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.318]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790110.jpg" />
+  <img src="Z:/picture/008/save_picture_790110.jpg" />
 </div>
 
 
@@ -576,115 +680,6 @@ Windows-Defender (По умолчанию выключен. Добавлен п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B9EDAC9508A261767B466FF77B273CE993B2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510735   (790109) от 18.11.2021
-
-Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1379]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
-Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)
-Поиск работает(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72316ABD70FFC15AB20060C709F9F165F4C41553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510688   (790100) от 18.11.2021
-
-BELOFF 2021.11.1 (Авторская раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Программ Рунета, распределённых по категориям, с Автоматической Установкой в Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также автоматическую установку драйверов с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C398A6ECDC3E21F2E4A6DEE7FDC157808DE125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388137   (789954) от 04.06.2020
-
-Проекты - MotionBro - MotionBro Transition After Effects Full Packs 2020 [LIST, AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789954.jpg" />
-</div>
-
-
-###  Подробнее
-
-«MotionBro Transition After Effects Full Packs 2020» - стильный элегантный пакет 11 основных сетов переходов и элементов заточенных под панель MotionBro 2.3.4 для оформления Вашего материала.
-Многие оценят по достоинству.Формат: LIST, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE0698E0F187B1C5AB71C2B514F3EE2D4A07BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202315   (789744) от 29.01.2018
-
-Сорос обвинил Google и Facebook в формировании зависимости от их сервисов у пользователей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_789744.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мнению миллиардера, "компании, которые работают в сфере социальных медиа, эксплуатируют социальную среду" и "оказывают влияние на мысли и поведение людей без их ведома"
-Американский миллиардер Джордж Сорос обвинил компании Google и Facebook в монополизации рынка и целенаправленном развитии у аудитории привыкания к своим предложениям. Об этом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862068   (1062983) от 
+
+Наталия Куцаева | Первая православная энциклопедия (2025) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие родители, наверняка ваши дети задают вам самые разные вопросы о Боге и вере, но иногда бывает достаточно сложно ответить на них. Ведь объяснить такие важные и глубокие духовные темы понятным языком не так просто. Данная книга призвана помочь вашему ребёнку приоткрыть дверь в мир православной веры — она расскажет ему о Боге и Церкви, причём сделает это совсем (   Читать дальше...   )Жанр: Религиозная литератураИздательство: АСТ, АвантаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03ECB66006367E8CD5A857E969E006CAAEDBC0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862078   (1062982) от 
+
+Наталия Куцаева | Православие. Большая визуальная энциклопедия (2025) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Православие — не просто религия, это ожившие в величайших памятниках история, культура и искусство, это многочисленные яркие свидетельства силы духа и чудес, совершенных по молитвам к Богу. Вот уже более полутора тысячелетий православная вера объединяет народы, вдохновляет подвижников и формирует национальные традиции. Но главное — это направление христианства проповедует (   Читать дальше...   )Жанр: РелигияИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE27FEEE0A241E9DB1A98ACFB4C443F519D14C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861615   (1062772) от 
+
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857978   (1060191) от 08.03.2026
 
 Святитель Григорий Двоеслов | Диалоги о жизни италийских отцов и о бессмертии души. В четырех книгах (2025) [PDF]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060191.jpg" />
+  <img src="Z:/picture/009/save_picture_1060191.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051488.jpg" />
+  <img src="Z:/picture/005/save_picture_1051488.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051147.jpg" />
+  <img src="Z:/picture/005/save_picture_1051147.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051146.jpg" />
+  <img src="Z:/picture/005/save_picture_1051146.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051144.jpg" />
+  <img src="Z:/picture/005/save_picture_1051144.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051125.jpg" />
+  <img src="Z:/picture/005/save_picture_1051125.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051121.jpg" />
+  <img src="Z:/picture/005/save_picture_1051121.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051034.jpg" />
+  <img src="Z:/picture/005/save_picture_1051034.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051022.jpg" />
+  <img src="Z:/picture/005/save_picture_1051022.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051021.jpg" />
+  <img src="Z:/picture/005/save_picture_1051021.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051020.jpg" />
+  <img src="Z:/picture/005/save_picture_1051020.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051019.jpg" />
+  <img src="Z:/picture/005/save_picture_1051019.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051018.jpg" />
+  <img src="Z:/picture/005/save_picture_1051018.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051013.jpg" />
+  <img src="Z:/picture/005/save_picture_1051013.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051012.jpg" />
+  <img src="Z:/picture/005/save_picture_1051012.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050991.jpg" />
+  <img src="Z:/picture/005/save_picture_1050991.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050643.jpg" />
+  <img src="Z:/picture/008/save_picture_1050643.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050222.jpg" />
+  <img src="Z:/picture/005/save_picture_1050222.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046436.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046431.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046342.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046036.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046033.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9730EF3AC64B06697F01F8F6FC280B44C1E31F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602431   (1046026) от 06.01.2023
-
-А.И. Плюснин | Молитвослов «Спаси и сохрани» (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию православный молитвослов «Спаси и сохрани» малого формата. Здесь вы найдете молитву на принятие просфоры и святой воды, молитвы перед и после вкушением пищи и многие другие молитвы, необходимые каждый день и на разные случаи жизни.Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097F24F0B4ABE70D7D3F40CE87215F085081BC3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602509   (1046015) от 06.01.2023
-
-От Пасхи до Пасхи | Православный иллюстрированный календарь. Соборы Православной Церкви. История и Постановления Церковных Соборов (2022) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематика календаря обращается к истории Церковных Соборов, к истокам христианства. Семь Вселенских Соборов – семь столпов нашей Православной веры. Но сколько было Соборов Поместных? Почему возникала необходимость их созывать? Что происходило на Вселенских Соборах, кто их организовывал? Изречения святых, необычные факты о Соборах, лжесоборы, факты из житий святых, (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DD43FB531EA9960C837EB65974D8A5576D3249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602788   (1045930) от 07.01.2023
-
-Ковчег (изд.) | Как полюбить Христа. Жизнь по творениям святых отцов, на примерах и в изложении современных подвижников благочестия (2019) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045930.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как полюбить Христа?» — спросила батюшку одна из духовных дочерей. Батюшка ответил: «Мы мало любим Христа, потому что мало думаем о Нём, а думаем мало, потому что мало знаем Его, а знаем мало, потому что мало читаем о Нём. Почему же мало читаем? По лени, по глупости... То есть иногда мы и много читаем, но как? Наше чтение подобно воде, стекающей по водосточным трубам». (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F7F9E59BF4FC5E3A36777A03B422D51EB3D8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

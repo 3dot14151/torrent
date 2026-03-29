@@ -1,3 +1,138 @@
+###  Публикация: 952217   (353156) от 02.11.2015
+
+Oleg Lav | Right Click Enhancer Professional - Редактор контекстного меню (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Right Click Enhancer Professional — создание волшебного меню правой кнопки мыши одна из тех программ кому нравится порядок, аккуратность и быстрота действий при работе с компьютером. Right Click Tweaker - позволит добавить в контекстное меню уже готовые твики. Right Click Shortcust Creator - добавляем новые папки, файлы, ярлыки приложений и быстрый доступ к различным (   Читать дальше...   )Жанр: МенюПродолжительность: 00:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C90463CC4C2BB93F9DD824AED612522DC6358BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178830   (352724) от 29.10.2017
+
+PROG Kiev | Java PRO (2017) CamRip [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для тех, кто уже знает основы Java и хочет научится работать с фреймворками. Мы разберем Spring IoC, Spring MVC, Spring Boot, Spring Data и Spring Security, а так же JPA/Hibernate и множество других современных библиотек и технологий.Жанр: Программирование, JavaПродолжительность: 14:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AD1BFA5FE29877913F5C9FE59863C6388FE1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178714   (352722) от 29.10.2017
+
+PROG Kiev | Java OOP (2017) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для тех, кто прослушал наш курс «Java Start» или имеет базовые знания языка Java и хочет повысить свой уровень квалификации.
+Программа включает детальный разбор ООП, занятия по многопоточному программированию, работе с файловой системой, библиотеке коллекций и разработке клиент-серверных приложений.
+После окончания курса вы будете уверенно ориентироваться (   Читать дальше...   )Жанр: Программирование, JavaПродолжительность: 21:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C175673C8E91951302146FD373EB6A95047E1545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071433   (351339) от 13.11.2016
+
+JSExpert | Пoнятный JavaScript (2016) PCRec [H.264/1080p]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это больше чем видео курс, серия лекций или цикл статей. Это комплексная программа обучения, которая позволит Вам действительно выучить основы языка JavaScript и не взорвать Ваш мозг. Если Вы будете выполнять все рекомендации и задания у вас будет результат! Если раньше у Вас не получалось это не Ваша вина, возможно Вас просто неправильно учили.Жанр: javascript, frontendПродолжительность: 46:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885DACCC6F0EE11C17110ECB9F4D4FDA1C41331F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418284   (351094) от 23.10.2020
+
+[SymfonyCasts] Ryan Weaver | API Platform, Часть 3: Custom Resources / API Platform Part 3: Custom Resources (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в третью часть серии статей о API Platform! В первой части мы создали полнофункциональный API. Затем, в части 2, мы повысили уровень, добавив надежную систему безопасности, проверки безопасности и пользовательские поля.
+Так что осталось? В части 3 мы выводим настройки на следующий уровень:
+- Реализация "publish" в RESTful;
+- Сложные правила (   Читать дальше...   )Производство: SymfonyCastsЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B6181DABABB3F1446B8B3E877A68AB0ADF95A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418275   (350798) от 23.10.2020
 
 [Udemy] Online Web Tutor | Разработка панели администратора LMS на Node и Express Js / Complete LMS Admin Panel Development in Node & Express Js (2020) PCRec [En / En Sub]
@@ -6,7 +141,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350798.jpg" />
+  <img src="Z:/picture/008/save_picture_350798.jpg" />
 </div>
 
 
@@ -35,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350785.jpg" />
+  <img src="Z:/picture/008/save_picture_350785.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ CodeDojo | JavaScript в деталях (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350521.jpg" />
+  <img src="Z:/picture/008/save_picture_350521.jpg" />
 </div>
 
 
@@ -90,7 +225,7 @@ HTML Academy  | Онлайн курс HTML и CSS. Профессиональн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350487.jpg" />
+  <img src="Z:/picture/008/save_picture_350487.jpg" />
 </div>
 
 
@@ -117,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349522.jpg" />
+  <img src="Z:/picture/008/save_picture_349522.jpg" />
 </div>
 
 
@@ -145,7 +280,7 @@ Udemy, Александр Попов | Тестирование ПО с Нуля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349515.jpg" />
+  <img src="Z:/picture/008/save_picture_349515.jpg" />
 </div>
 
 
@@ -173,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348346.jpg" />
+  <img src="Z:/picture/008/save_picture_348346.jpg" />
 </div>
 
 
@@ -202,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347425.jpg" />
+  <img src="Z:/picture/008/save_picture_347425.jpg" />
 </div>
 
 
@@ -228,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347301.jpg" />
+  <img src="Z:/picture/008/save_picture_347301.jpg" />
 </div>
 
 
@@ -254,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347300.jpg" />
+  <img src="Z:/picture/008/save_picture_347300.jpg" />
 </div>
 
 
@@ -281,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347293.jpg" />
+  <img src="Z:/picture/008/save_picture_347293.jpg" />
 </div>
 
 
@@ -307,7 +442,7 @@ Udemy | Посадка верстки и создание тем на CMS WordPr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347292.jpg" />
+  <img src="Z:/picture/008/save_picture_347292.jpg" />
 </div>
 
 
@@ -333,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347285.jpg" />
+  <img src="Z:/picture/008/save_picture_347285.jpg" />
 </div>
 
 
@@ -359,7 +494,7 @@ Udemy, Grim Future Studio | Unreal Engine 5. Базовый курс №1 - с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347215.jpg" />
+  <img src="Z:/picture/008/save_picture_347215.jpg" />
 </div>
 
 
@@ -387,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347053.jpg" />
+  <img src="Z:/picture/008/save_picture_347053.jpg" />
 </div>
 
 
@@ -415,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346666.jpg" />
+  <img src="Z:/picture/008/save_picture_346666.jpg" />
 </div>
 
 
@@ -441,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346568.jpg" />
+  <img src="Z:/picture/008/save_picture_346568.jpg" />
 </div>
 
 
@@ -469,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346549.jpg" />
+  <img src="Z:/picture/008/save_picture_346549.jpg" />
 </div>
 
 
@@ -495,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346443.jpg" />
+  <img src="Z:/picture/008/save_picture_346443.jpg" />
 </div>
 
 
@@ -521,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346288.jpg" />
+  <img src="Z:/picture/008/save_picture_346288.jpg" />
 </div>
 
 
@@ -548,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346283.jpg" />
+  <img src="Z:/picture/008/save_picture_346283.jpg" />
 </div>
 
 
@@ -560,143 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926D3298E6DB6E56D2E5065A5CEE9FAE6B2EBABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418762   (346275) от 25.10.2020
-
-[Udemy] Alex Wilder | Настройка и ускорение компьютера для чайников (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе вы научитесь оптимизировать на максимальную производительность компьютеры с операционными системами от Microsoft (Windows 7, Windows 10), а также компьютеры фирмы Apple с операционной системой OSX.
-Мы рассмотрим вопросы очистки от нежелательных и вредоносных программ, оптимальной настройки сервисов, оптимизации памяти, безопасности данных, установки (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеПродолжительность: 01:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F924951F8094112B2A14B76DD9F87F61D3A39834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953426   (346089) от 05.11.2015
-
-Empo | Контекстная реклама Google AdWords (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алгоритмы «тонкой» настройки AdWords с внедрением на вашем сайте.
-
-Практический тренинг.
-Деньги уходят как в трубу, а звонков мало?(   Читать дальше...   )Жанр: Google AdWords, Интернет-маркетингПродолжительность: 14:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B941873C0DB87032C140B7DCE060F469784AAE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418831   (345997) от 25.10.2020
-
-Codeby | Paranoid - анонимность и безопасность в сети (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный курс о комплексе мер по защите информации, защите персональных данных, конфиденциальности, анонимности в интернете. Подробно рассматривается настройка виртуальных машин, безопасная передача данных, анонимность в сети, анти-форензика и многое другое.Производство: Ethical Hacking Tutorial Group The CodebyЖанр: АдминистрированиеЯзык озвучки: РусскийПродолжительность: 07:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9150044DB5D4C90FB601F0031E399B04C60D149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578548   (345368) от 23.09.2022
-
-Udemy, Parv Shah | Dark Web: Complete Introduction to the Deep/Dark Web 2022 (2021) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы много раз слышали о Deep Web / Dark Web, но никогда не имели ни малейшего представления о том, что это такое?
-Вы когда-нибудь задумывались о том, какой была бы Скрытая сторона сети?
-Вам интересно исследовать Скрытую область Интернета, но вы не можете этого сделать по соображениям безопасности?
-DarkWeb: Полное введение в Deep / Dark Web 2021 сделано для вас! Вы (   Читать дальше...   )Производство: UdemyЖанр: Программирование, DarkWeb, Ethical HackingЯзык озвучки: АнглийскийПродолжительность: 02:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758F90EAAB4F448DB02622104201488DECA05587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418866   (344115) от 26.10.2020
-
-[Udemy] Andrew Hulenko и др. | React Bootcamp 2020 (с React Hooks, Firebase) / The Complete React Bootcamp 2020 (w/ React Hooks, Firebase) (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс посвящен React - библиотеке, которая помогает разработчикам создавать пользовательские интерфейсы в интернете. Но React не ограничивается только пользовательскими интерфейсами, это еще не все. Вы когда-нибудь задумывались, как создаются веб-сайты Facebook, Twitter или Netflix и почему они совсем не похожи на веб-сайты? React может ответить на все это. В (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 16:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948EE871E86395CE9B2FC97972889C377A6CE958
 ```
 
 https://mybot314.ru/tekegram_catalog/

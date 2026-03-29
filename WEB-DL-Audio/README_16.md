@@ -6,7 +6,7 @@ Sexy Lovers Music Collection, Sensual Lounge Music Universe - Make Me Wait Slow 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121153.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sexy & Noir Smooth Exquisite Sax Jazz Music, Soft BGM in Cozy Bar Ambience 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121133.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nicola Tedescoli - Ephemeral Melodies (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121123.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ozgur (Özgür) Hazar - Way Back Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121120.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Fais-moi attendre Musique de piano sensuelle avec des sons érotiques (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121117.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tyrannosaurus Rex - A Beard Of Stars (1970) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121115.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Luca Quattrocchi - Saxophone Bliss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121113.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Cherry on Top Smooth Late Night Saxophone Jazz for Delightful Moments and P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121106.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121102.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120982.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120956.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120951.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120950.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120946.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120932.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120814.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120799.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120797.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Manag
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120788.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120770.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120769.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dolly Parton - Rockstar (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120655.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120632.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120623.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120617.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120614.jpg" />
 </div>
 
 

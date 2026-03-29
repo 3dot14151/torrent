@@ -1,3 +1,55 @@
+###  Публикация: 1546958   (603883) от 26.04.2022
+
+А.М. Ховив (ред.) | Сенсорная электроника, датчики. Твердотельные сенсорные структуры на кремнии (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Твердотельные сенсорные структуры на кремнии» посвящен изложению анализу фундаментальных и прикладных свойств гетероструктур с сенсорными свойствами, изготовленных из современных материалов c различными по характеру и масштабу пространственно-энергетическими неоднородностями, нанокристаллических, аморфных, пористых, (микро)гетерогенных и гетерофазных, имеющих (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B28E99E3629ADC5E1F6B26C0B203D1A4813A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547116   (603879) от 26.04.2022
+
+М.Ю. Петушков | Автономные инверторы (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся преобразовательная техника основана на комбинациях четырех электротехнических компонентов. Их компоновка, состав и алгоритм работы и будут определять, к какому из типов преобразователей они будут относиться. Это касается и деления на классы внутри каждого из типа преобразователей. Основными элементами являются вентили или ключи; реактивные элементы: конденсаторы, (   Читать дальше...   )Жанр: Электроника, электротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729BF2EFC1960D9EE47AD60BA9529740B8951A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547255   (603315) от 27.04.2022
 
 А.О. Шарапов и др. | Экстренная психологическая помощь (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603315.jpg" />
+  <img src="Z:/picture/008/save_picture_603315.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602862.jpg" />
+  <img src="Z:/picture/008/save_picture_602862.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602615.jpg" />
+  <img src="Z:/picture/008/save_picture_602615.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602506.jpg" />
+  <img src="Z:/picture/008/save_picture_602506.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601719.jpg" />
+  <img src="Z:/picture/008/save_picture_601719.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601717.jpg" />
+  <img src="Z:/picture/008/save_picture_601717.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ C.А. Кудряков | Теоретические основы радиоте�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601707.jpg" />
+  <img src="Z:/picture/008/save_picture_601707.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600173.jpg" />
+  <img src="Z:/picture/008/save_picture_600173.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599972.jpg" />
+  <img src="Z:/picture/008/save_picture_599972.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599878.jpg" />
+  <img src="Z:/picture/008/save_picture_599878.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599832.jpg" />
+  <img src="Z:/picture/008/save_picture_599832.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599579.jpg" />
+  <img src="Z:/picture/008/save_picture_599579.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599494.jpg" />
+  <img src="Z:/picture/008/save_picture_599494.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598473.jpg" />
+  <img src="Z:/picture/008/save_picture_598473.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598296.jpg" />
+  <img src="Z:/picture/008/save_picture_598296.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597992.jpg" />
+  <img src="Z:/picture/008/save_picture_597992.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597989.jpg" />
+  <img src="Z:/picture/008/save_picture_597989.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597887.jpg" />
+  <img src="Z:/picture/008/save_picture_597887.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597838.jpg" />
+  <img src="Z:/picture/008/save_picture_597838.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597681.jpg" />
+  <img src="Z:/picture/008/save_picture_597681.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597676.jpg" />
+  <img src="Z:/picture/008/save_picture_597676.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597666.jpg" />
+  <img src="Z:/picture/008/save_picture_597666.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597515.jpg" />
+  <img src="Z:/picture/008/save_picture_597515.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597203.jpg" />
+  <img src="Z:/picture/008/save_picture_597203.jpg" />
 </div>
 
 
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96FD3C5D98F6B8FA452312D75F92D401FD9935DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914603   (596209) от 03.07.2015
-
-В. Д. Павлидис, М. В. Чкалова | Курс теории вероятностей и математической статистики (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит теоретический материал по разделам теории вероятностей, математической статистике, теории корреляции; подробное решение большого числа типовых задач по данным разделам. В нем содержатся практические рекомендации по проведению математической обработки статистических наблюдений.
-Предназначено для студентов, обучающихся по специальностям 230102 (   Читать дальше...   )Жанр: Учебное пособие, Физико-математические науки, МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEF942C55B9C7136BD683400D9469D08ADE37FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914686   (594933) от 04.07.2015
-
-В. Д. Павлидис, М. В. Чкалова | Практикум по экономико-математическим методам (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит подробное изложение основных базовых понятий и алгоритмов теории экономико-математических методов. В работе содержатся многочисленные примеры решения типовых задач по каждому из разделов ЭММ. Предназначено для студентов-бакалавров по направлениям подготовки 080100.62 «Экономика», 080200.62 «Менеджмент», 080400.62 «Управление персоналом», (   Читать дальше...   )Жанр: Учебное пособие, Математика в бизнесе, Деловая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A412F806C3266CAAB76669A683740987DC240B
 ```
 
 https://mybot314.ru/tekegram_catalog/

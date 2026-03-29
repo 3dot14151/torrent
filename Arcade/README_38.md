@@ -1,3 +1,29 @@
+###  Публикация: 1585447   (181279) от 25.11.2022
+
+Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_181279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы планета Альфа производила ресурсы для войн, бушующих в секторе Армагеддон. Планета была привлекательна для многих, в том числе на нее прибыл великий воевода Огрук Гутрекка. Едва появившись на планете, Гутрекка отобрал вашего драгоценного волосяного сквига. Исполнившись жажды мести, вы поклялись, что сделаете всё, чтобы вернуть волосяного сквига и показать, (   Читать дальше...   )Тип издания: LicenseРазработчик: RoguesideЖанр: Экшны, Приключение, Shoot 'em UpЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA806A7167E3A5465119B0A2BB6EFC27901F09DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593713   (179523) от 28.11.2022
 
 Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
@@ -6,7 +32,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179523.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178885.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Leisure Suit Larry - Wet Dreams Don't Dry (2018) [Ru/Multi] (1.2.0.49b) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176940.jpg" />
+  <img src="Z:/picture/005/save_picture_176940.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176392.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175522.jpg" />
+  <img src="Z:/picture/004/save_picture_175522.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175365.jpg" />
+  <img src="Z:/picture/004/save_picture_175365.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174369.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ OmniBus (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173726.jpg" />
+  <img src="Z:/picture/004/save_picture_173726.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173449.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173448.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173321.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172196.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172184.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171479.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171466.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170870.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.0.0.14718) License CODEX [The
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170694.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170083.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.9.1.0) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170035.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169912.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ X-Force Under Attack (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169633.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169460.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169278.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168843.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168061.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32035E29BB0134B27F121B45A5458A777FA60C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515577   (168024) от 08.12.2021
-
-Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Thunder Tier One, реалистичного шутера с видом сверху, происходит в девяностые, сразу после развала СССР. Вы вступите в элитный отряд спецназа и попробуете остановить опасную террористическую организацию. Играйте в кооперативном режиме для 4 игроков или в одиночку (тогда на вашей команде будет ИИ). Тщательно выбирайте снаряжение и используйте тактические (   Читать дальше...   )Тип издания: LicenseРазработчик: KRAFTON, Inc.Жанр: Action, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8E84D54268DE96F8AF2AAF6737459ECEEA6AEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

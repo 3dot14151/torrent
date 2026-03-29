@@ -1,3 +1,109 @@
+###  Публикация: 1838597   (260733) от 23.11.2025
+
+Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждёт невероятное погружение в тотальную войну. Участвуйте в динамичных пехотных боях. Рассекайте небеса в воздушных сражениях. Разрушайте окружение ради стратегического преимущества. Благодаря кинестетической боевой системе полный контроль над каждым движением и действием - в ваших руках. В войне с танками, истребителями и огромным боевым арсеналом ваш отряд (   Читать дальше...   )Тип издания: SceneРазработчик: Battlefield StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A39E5334E14EAF446B4A02AFC8F7F18ECE5943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838599   (260717) от 24.11.2025
+
+Battlefield 6 (2025) [En] (1.0.387.51411.SP) Repack Decepticon
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждёт невероятное погружение в тотальную войну. Участвуйте в динамичных пехотных боях. Рассекайте небеса в воздушных сражениях. Разрушайте окружение ради стратегического преимущества. Благодаря кинестетической боевой системе полный контроль над каждым движением и действием - в ваших руках. В войне с танками, истребителями и огромным боевым арсеналом ваш отряд (   Читать дальше...   )Тип издания: RepackРазработчик: Battlefield StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F916CB49CED59D7B3CAEB4FD474E9BE97507549D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838629   (260672) от 23.11.2025
+
+Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_260672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждёт невероятное погружение в тотальную войну. Участвуйте в динамичных пехотных боях. Рассекайте небеса в воздушных сражениях. Разрушайте окружение ради стратегического преимущества. Благодаря кинестетической боевой системе полный контроль над каждым движением и действием - в ваших руках. В войне с танками, истребителями и огромным боевым арсеналом ваш отряд (   Читать дальше...   )Тип издания: SceneРазработчик: Battlefield StudiosЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB2324DE87D6F2D445FFFB071758B37556D99BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502071   (260144) от 31.05.2012
+
+Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_260144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой игры Red Orchestra: Ostfront 41-45 — одного из лучших тактических многопользовательских шутеров о Второй мировой.
+Игра посвящена важнейшему сражению, которое стало поворотным моментом в великой войне, — Сталинградской битве, а также связанным с ней боевым операциям, проводившимся как советскими, так и германскими войсками с июля 1942 года по февраль 1943 года.
+Проект создан на графическом движке Unreal Engine 3. Современные технологии позволили не только воплотить на новом уровне геймплей, представленный еще в Red Orchestra: Ostfront 41-45, но и сделать его гораздо разнообразнее. Преображенный игровой интерфейс позволит новичкам без труда освоить управление. А пристальное внимание к историческим и техническим деталям обеспечивает невероятный реализм сражений.(   Читать дальше...   )Тип издания: RePackРазработчик: Tripwire InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71EA4CF8F9DAA5B59A7C052F5C9754A696FA94A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838122   (258064) от 21.11.2025
 
 Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
@@ -6,7 +112,7 @@ Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258064.jpg" />
+  <img src="Z:/picture/005/save_picture_258064.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.4.0#840/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257615.jpg" />
+  <img src="Z:/picture/005/save_picture_257615.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Warhammer 40 000: Fire Warrior [Ru] (RePack) 2003 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257057.jpg" />
+  <img src="Z:/picture/005/save_picture_257057.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256996.jpg" />
+  <img src="Z:/picture/005/save_picture_256996.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256773.jpg" />
+  <img src="Z:/picture/005/save_picture_256773.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Resident Evil Village (2021) [Ru/Multi] (10415597/dlc) Repack dixen18 [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254971.jpg" />
+  <img src="Z:/picture/005/save_picture_254971.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254932.jpg" />
+  <img src="Z:/picture/005/save_picture_254932.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252285.jpg" />
+  <img src="Z:/picture/004/save_picture_252285.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Crysis 2 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251975.jpg" />
+  <img src="Z:/picture/004/save_picture_251975.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Quake 4 (2005) [Multi] (1.4.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251971.jpg" />
+  <img src="Z:/picture/004/save_picture_251971.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251855.jpg" />
+  <img src="Z:/picture/004/save_picture_251855.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251797.jpg" />
+  <img src="Z:/picture/005/save_picture_251797.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251796.jpg" />
+  <img src="Z:/picture/005/save_picture_251796.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251795.jpg" />
+  <img src="Z:/picture/005/save_picture_251795.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251771.jpg" />
+  <img src="Z:/picture/005/save_picture_251771.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ Metal Garden (2025) [Multi] (2.4.0) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250930.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Repack FitGirl [Bundles Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250482.jpg" />
+  <img src="Z:/picture/004/save_picture_250482.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250348.jpg" />
+  <img src="Z:/picture/004/save_picture_250348.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249053.jpg" />
+  <img src="Z:/picture/004/save_picture_249053.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249048.jpg" />
+  <img src="Z:/picture/004/save_picture_249048.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249047.jpg" />
+  <img src="Z:/picture/004/save_picture_249047.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249040.jpg" />
+  <img src="Z:/picture/004/save_picture_249040.jpg" />
 </div>
 
 
@@ -566,110 +672,6 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E98B6CD85DC99E014D30FB6120449952B284D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493824   (248988) от 08.05.2012
-
-Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orion: Dino Beatdown - кооперативный экшен от первого лица, разработанный студией Spiral Game Studios. Пятеро игроков возьмут на себя роль штурмовика, медика и снайпера, а затем отправятся в места обитания хищных велоцирапторов и тиранозавров. Выжить против доисторических рептилий в Dino Beatdown помогут футуристические автоматы, штурмовые винтовки, дробовики и различная боевая техника.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637476   (247811) от 04.06.2023
-
-Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гнилые стены заброшенной фермы на американском Юге порождают чувство страха и одиночества. Жуткая «изолированная камера» - это новая страница в жанре survival horror. Движок RE Engine раздвигает границы ужаса - вы не сможете оторваться от экрана, настолько реалистичным будет изображение. Переживите новый чудовищный кошмар.Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FA6B3689AE241785C454D783D6130398A74BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215606   (247702) от 08.06.2023
-
-UberSoldier 2 Crimes of War / Восточный фронт Крах Анненербе (2008) [Ru] (1.0) Repack R.G.Spieler
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247702.jpg" />
-</div>
-
-
-###  Подробнее
-
-1945 год. Силы Империи Зла на исходе. Но у фашистской Германии всегда имелся козырь пострашнее танков и самолетов: секретные и полумистические изыскания института Аненербе, смесь науки и древних заклинаний, позволяющая привлечь на свою сторону могущественные и страшные потусторонние силы. Далеко в горах Тибета, в секретной лаборатории проходят чудовищные опыты по (   Читать дальше...   )Тип издания: RePackРазработчик: Burut CTЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF869557741C5F5391C9F15F2268F05AF5C92679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640323   (247536) от 17.06.2023
-
-Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential Hits Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одержимый жаждой мести получеловек-полудемон. В роли Безымянной вам предстоит сражаться, проливая кровь в самых жутких уголках ада. Уничтожайте орды демонов и их предводителей, чтобы приготовиться к решающей схватке с самой Алой Судьёй. Metal: Hellsinger - это шутер от первого лица с элементами ритм-игры, в котором ваш успех зависит от умения сражаться в унисон с (   Читать дальше...   )Тип издания: RepackРазработчик: The OutsidersЖанр: Экшены, Шутeр от первого лица, Ритм-играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF9E4D04651C37DF593FFEC6C28C3C111D30931
 ```
 
 https://mybot314.ru/tekegram_catalog/

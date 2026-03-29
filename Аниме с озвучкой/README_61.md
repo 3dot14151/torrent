@@ -1,3 +1,29 @@
+###  Публикация: 1725319   (33884) от 17.12.2024
+
+Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball Senki W | Одиннадцать Молний: "Только вперёд!" против "Хроник Двойной картонной битвы" [2012, Mov ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный футбольный матч прерывает нападение загадочного человека, сопровождаемого роем роботов. А затем таинственная девушка заставляет мир погрузиться в иное измерение. Миры "Одиннадцати молний" и "Битв маленьких гигантов" сталкиваются, и две команды героев должны объединить усилия, чтобы узнать, что произошло и как это исправить.Производство: OLMЖанр: Спорт, БоевикиРежиссер: Мияо ЁсикадзуПеревод: RyRo (Английский), onkeikun (Японский)Язык озвучки: Японский (Movie, Audio Commentary) и Русский (XDub)Субтитры: Английские (Fansubs, Audio Commentary Subs (color-coded), Audio Commentary Subs) и ЯпонскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA24545818FFC0A2D063BA210614AC778EF94D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722536   (33883) от 17.12.2024
 
 Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO the Movie: Ultimate Bond Griffon | Одиннадцать Молний: Нерушимая связь – Грифон [2011, Movie] BDRip 720p raw+rus
@@ -6,7 +32,7 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33883.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33854.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33643.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sayounara Ryuusei, Konnichiwa Jinsei | Goodbye, Dragon Life | Прoщaй, жиз
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33510.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33397.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33297.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33280.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33261.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33260.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33258.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33252.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33190.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33099.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Rekishi ni Nokoru Akujo ni Naruzo | Rekiaku | Я стану злодейкой, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33089.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33059.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32988.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32666.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32524.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32479.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 396p Raw+Rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32334.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Cosmos | Pretty Guardian Sailor Moon Cosm
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32323.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32049.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31957.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31920.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31906.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771591   (31707) от 07.01.2025
-
-Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31707.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем большая часть цивилизации уступила натиску поднимающегося океана. Потерявший в результате несчастного случая ногу Нацуки живёт в старом катере бабушки, безуспешно пытаясь расплатиться с долгами. Однажды, спустившись под воду на батискафе в поисках сокровищ, он обнаруживает капсулу с роботом, удивительно похожим на человека.Производство: TroycaЖанр: приключенияРежиссер: Като МакотоЯзык озвучки: Японский, русский (Anilibria, Studio Band, AniDub Online)Субтитры: Русские, английские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC07C0033B3B8FA406FCD44FE0AC10AC79291891
 ```
 
 https://mybot314.ru/tekegram_catalog/

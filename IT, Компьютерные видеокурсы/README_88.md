@@ -1,3 +1,143 @@
+###  Публикация: 1657994   (191721) от 06.09.2023
+
+Thinknetica Pro, Анна Буянова | Старый Добрый Код: как жить с существующим кодом (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воркшоп для разработчиков, которые хотят рационально подходить к улучшению существующего кода и научиться оптимально и безопасно рефакторить его "под прикрытием" тестов.
+Результат:Научитесь определять проблемные места в коде, который нужно изменить
+Поймёте как находить компромиссы между желанием написать "красивый" 100% покрытый тестами код и (   Читать дальше...   )Производство: Thinknetica ProЖанр: Онлайн-воркшопЯзык озвучки: РусскийПродолжительность: 05:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658200   (191405) от 07.09.2023
+
+Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - djChat (2023) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191405.jpg" />
+</div>
+
+
+###  Подробнее
+
+The course focuses on building a chat server administration API and integrating it with a front-end templating framework. It also covers API integration and building chat services with features like authentication.
+
+The first module covers source control and project initiation, including creating a new Django DRF project and configuring environment variables. It (   Читать дальше...   )Производство: Udemy, Very AcademyЖанр: React, Typescirpt, Django, DRF, RESTЯзык озвучки: АнглийскийПродолжительность: 28:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658223   (191340) от 07.09.2023
+
+Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите фундаментальные аспекты Laravel - одного из самых мощных фреймворков для разработки веб-приложений. Узнайте, как создавать эффективные и надежные базовые веб-приложения, используя все преимущества Laravel.Производство: Laravelcreative.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658857   (190808) от 09.09.2023
+
+HYPE4 Academy | Подборка курсов по UI и web-дизайну (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hype4 Academy it`s an educational platform with both paid and free content for designers and developers. We will be adding new featured, articles and materials in the coming weeks.
+1. Hype4 Academy - Boring UI Course
+2. Hype4 Academy - Design + AI - Get Ready for the Future
+3. Hype4 Academy - How to create a UI Case Study(   Читать дальше...   )Производство: HYPE4 AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDAB452E48B5D8C86886F7AA9C49076252A22E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657391   (190728) от 09.09.2023
+
+МИФ.Курсы, Ренат Шагабутдинов | Магия Excel. Практикум. Формулы Excel с нуля до сложных (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разобравшись с формулами, вы сможете экономить время (десятки и сотни часов) и сократить рутину. Вас не будет прошибать холодный пот при фразе: «Подготовьте отчет к концу дня». Больше никаких ошибок и скучной ручной работы. Только магия. Магия Excel.Доллары, пробелы и двоеточия: нюансы формул
+Высший пилотаж: формулы массива
+Сравнение двух списков
+Новая функция LAMBDA(   Читать дальше...   )Производство: МИФ.КурсыЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:02:42Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C074D9503C4B15E989C5A5E31403ADCEA23EA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657542   (190718) от 09.09.2023
 
 Udemy, Илья Фофанов, Валерий Павликов | Изучаем Git и GitHub за 3 часа на практике (2023) WEB-DL [RU]
@@ -6,7 +146,7 @@ Udemy, Илья Фофанов, Валерий Павликов | Изучаем
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190718.jpg" />
 </div>
 
 
@@ -32,7 +172,7 @@ Laravelcreative.ru | Социальная сеть SPA Laravel 9 vue 3 Tailwind 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190288.jpg" />
 </div>
 
 
@@ -58,7 +198,7 @@ Udemy, Abbass Masri | Mastering Jetpack Compose: Building Dynamic User Interface
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189623.jpg" />
 </div>
 
 
@@ -86,7 +226,7 @@ Laravelcreative.ru | Excel Import Laravel Inertia Vue Tailwind [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189568.jpg" />
 </div>
 
 
@@ -112,7 +252,7 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет чат (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189545.jpg" />
 </div>
 
 
@@ -138,7 +278,7 @@ Kitze | Zero To Shipped (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189182.jpg" />
 </div>
 
 
@@ -165,7 +305,7 @@ Babok-school, Анна Вичугова | Основы архитектуры и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189116.jpg" />
 </div>
 
 
@@ -191,7 +331,7 @@ Proglib.Academy, Евгений Тюменцев | Архитектура и ш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189101.jpg" />
 </div>
 
 
@@ -217,7 +357,7 @@ Stepik, Evgeniy Lestopadov | Windows CMD - быстрый старт (2023) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189095.jpg" />
 </div>
 
 
@@ -243,7 +383,7 @@ Laravelcreative.ru | Laravel 10 Vue 3 Inertia SPA Вебсокет Форум (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189072.jpg" />
 </div>
 
 
@@ -269,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188734.jpg" />
 </div>
 
 
@@ -298,7 +438,7 @@ Babok-school, Анна Вичугова | Разработка ТЗ на инф�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188699.jpg" />
 </div>
 
 
@@ -326,7 +466,7 @@ kobezzza.channel, Андрей Кобец | «Computer Science во Frontend». 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188652.jpg" />
 </div>
 
 
@@ -355,7 +495,7 @@ Stepik, Evgeniy Lestopadov | Xml на примерах (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188383.jpg" />
 </div>
 
 
@@ -383,7 +523,7 @@ Stepik, Evgeniy Lestopadov | Регулярные выражения на при
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188354.jpg" />
 </div>
 
 
@@ -409,7 +549,7 @@ OTUS, Алексей Железной | Data Warehouse Analyst (2023) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188315.jpg" />
 </div>
 
 
@@ -436,7 +576,7 @@ Stepik, Дмитрий Читалов | Создаем чат-бот на баз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188312.jpg" />
 </div>
 
 
@@ -462,7 +602,7 @@ Udemy, ASOMobile ASOTeam | Стань ASO специалистом: базовы
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187958.jpg" />
 </div>
 
 
@@ -488,7 +628,7 @@ Web Dev Simplified | React Simplified - Beginner (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187940.jpg" />
 </div>
 
 
@@ -516,7 +656,7 @@ Web Dev Simplified | React Simplified - Advanced (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187928.jpg" />
 </div>
 
 
@@ -543,7 +683,7 @@ Udemy, Learn IT University, Andrii Piatakha | Java from Zero to First Job, Pract
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187250.jpg" />
 </div>
 
 
@@ -556,142 +696,6 @@ Welcome to the fundamental and the most complete course 'Java from Zero to First
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:377E59B3390F47B9784A99817E4A2586E2E44424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662907   (187238) от 19.09.2023
-
-Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, DALL·E (2023) WEB-DL [AD] [RU / EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187238.jpg" />
-</div>
-
-
-###  Подробнее
-
-***Полностью обновлено для последней версии API OpenAI, включая API ChatGPT, выпущенной в марте 2023 года. ***
-Добро пожаловать на лучший ресурс для изучения API OpenAI с Python и интеграции новейших моделей OpenAI в ваши приложения.
-Этот API OpenAI с Python Bootcamp охватывает все модели, выпущенные OpenAI, имеющие API, включая GPT-3 (Davinci), ChatGPT (gpt-3.5-turbo), (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Русский, АнглийскийПродолжительность: 09:12:58Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00A7F2B0D274B5539A07610C54E732B97307634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662887   (187226) от 19.09.2023
-
-Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187226.jpg" />
-</div>
-
-
-###  Подробнее
-
-По результатам исследования w3techs.com, NGINX используется в 32.2% веб-проектов во всем мире.
-В России практически в каждом проекте вы встретитесь с NGINX, но знаете ли вы, как с ним верно работать?Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 28:22:41Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6692B50166991046EC848964AB334D122E3E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663087   (187005) от 20.09.2023
-
-Udemy, Alpha Omondi Ogilo | MERN Invoice Web App with Docker,NGINX and ReduxToolkit (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, добро пожаловать на этот курс по созданию функционального полностекового приложения MERN, которое может использоваться для создания счетов, коммерческих предложений и квитанций.
-Мы будем пошагово создавать это приложение, используя инструменты и технологии, такие как Docker, NGINX, NGINX Proxy Manager, Makefiles, Portainer, shell-скрипты, MongoDB, Express, (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 24:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A3F3A152837FD4941D0B05961135410AB1C275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663094   (186900) от 20.09.2023
-
-Udemy, Bogdan Stashchuk | Python - Полный Курс по Python, Django, Data Science и ML (2023) WEB-DL [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python - это самый простой язык программирования в мире. Но в то же время, Python является мощным инструментом, с помощью которого можно решать огромный спектр различных задач, начиная от обработки файлов, и заканчивая машинным обучением, обработкой данных, созданием игр и созданием веб приложений.
-Тем самым, выучив Python, вы можете выбирать профессию из большого (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 43:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC402067C6172C9595E4E3D8C242FF137264410F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663304   (186768) от 21.09.2023
-
-Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Course (2023) (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс охватывает создание двух приложений с использованием фреймворка Svelte. Большая часть функциональности создается с нуля без использования сторонних пакетов. В курсе рассматриваются такие темы, как валидация форм, пагинация, модальные окна, всплывающие окна, Snackbar и многое другое. Вы научитесь создавать все с нуля.
-Курс предоставляет понятные объяснения (   Читать дальше...   )Производство: Udemy, Eincode by Filip JergaЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 25:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1710377EEE16CCBF62C51CE044EFED19F9172743
 ```
 
 https://mybot314.ru/tekegram_catalog/

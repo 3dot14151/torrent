@@ -6,7 +6,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5415.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747746.jpg" />
+  <img src="Z:/picture/008/save_picture_747746.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747744.jpg" />
+  <img src="Z:/picture/008/save_picture_747744.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AI RoboForm Enterprise 7.9.19.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747738.jpg" />
+  <img src="Z:/picture/008/save_picture_747738.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack 12.1.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747730.jpg" />
+  <img src="Z:/picture/008/save_picture_747730.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_747726.jpg" />
+  <img src="Z:/picture/005/save_picture_747726.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FL Studio Producer Edition 20.1.1.795 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747694.jpg" />
+  <img src="Z:/picture/008/save_picture_747694.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Big Bad Voodoo Daddy - How Big Can You Get: The Music of Cab Calloway (2009) [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747668.jpg" />
+  <img src="Z:/picture/008/save_picture_747668.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747663.jpg" />
+  <img src="Z:/picture/008/save_picture_747663.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747636.jpg" />
+  <img src="Z:/picture/008/save_picture_747636.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747613.jpg" />
+  <img src="Z:/picture/008/save_picture_747613.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ iSpy 6.3.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747605.jpg" />
+  <img src="Z:/picture/008/save_picture_747605.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747603.jpg" />
+  <img src="Z:/picture/008/save_picture_747603.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Next Limit RealFlow 2015 9.1.2.0193 + Plugins [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747595.jpg" />
+  <img src="Z:/picture/008/save_picture_747595.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ AS SSD Benchmark 1.9.5986.35387 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747594.jpg" />
+  <img src="Z:/picture/008/save_picture_747594.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Angry Birds в кино / Angry Birds (2016) TC [Звук с CAMRip]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747591.jpg" />
+  <img src="Z:/picture/008/save_picture_747591.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ IObit Driver Booster Pro 3.4.0.769 Final Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747589.jpg" />
+  <img src="Z:/picture/008/save_picture_747589.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Telegram Desktop 1.2.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747570.jpg" />
+  <img src="Z:/picture/008/save_picture_747570.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ AIMP 4.51 build 2070 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747552.jpg" />
+  <img src="Z:/picture/008/save_picture_747552.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Nox App Player 6.0.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747551.jpg" />
+  <img src="Z:/picture/008/save_picture_747551.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747538.jpg" />
+  <img src="Z:/picture/008/save_picture_747538.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747489.jpg" />
+  <img src="Z:/picture/008/save_picture_747489.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hetman Word Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747486.jpg" />
+  <img src="Z:/picture/008/save_picture_747486.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747483.jpg" />
+  <img src="Z:/picture/008/save_picture_747483.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VeraCrypt 1.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747481.jpg" />
+  <img src="Z:/picture/008/save_picture_747481.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Krita 4.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747478.jpg" />
+  <img src="Z:/picture/008/save_picture_747478.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ WinRAR 5.60 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747475.jpg" />
+  <img src="Z:/picture/008/save_picture_747475.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Opera 37.0.2178.43 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774777.jpg" />
+  <img src="Z:/picture/008/save_picture_774777.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shutter Pro 3.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774775.jpg" />
+  <img src="Z:/picture/008/save_picture_774775.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EZ CD Audio Converter 4.0.4.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774770.jpg" />
+  <img src="Z:/picture/008/save_picture_774770.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774735.jpg" />
+  <img src="Z:/picture/008/save_picture_774735.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Pro DC 2015.016.20039 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774734.jpg" />
+  <img src="Z:/picture/008/save_picture_774734.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat XI Pro 11.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774732.jpg" />
+  <img src="Z:/picture/008/save_picture_774732.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Debut Video Capture Pro 3.01 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774730.jpg" />
+  <img src="Z:/picture/008/save_picture_774730.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ABBYY FineReader 12.0.101.483 Professional Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774703.jpg" />
+  <img src="Z:/picture/008/save_picture_774703.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ABBYY FineReader 12.0.101.483 Corporate Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774700.jpg" />
+  <img src="Z:/picture/008/save_picture_774700.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ABBYY PDF Transformer+ 12.0.104.225 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774682.jpg" />
+  <img src="Z:/picture/008/save_picture_774682.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Famous Last Words - Two-Faced Charade (2013) [FLAC|Lossless]<Post-Hardcore | Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774667.jpg" />
+  <img src="Z:/picture/008/save_picture_774667.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ USB Disk Security 6.3.0.0 RePack by KpoJIuK [Multi|Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774655.jpg" />
+  <img src="Z:/picture/008/save_picture_774655.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774635.jpg" />
+  <img src="Z:/picture/008/save_picture_774635.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774633.jpg" />
+  <img src="Z:/picture/008/save_picture_774633.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774613.jpg" />
+  <img src="Z:/picture/008/save_picture_774613.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774605.jpg" />
+  <img src="Z:/picture/008/save_picture_774605.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774602.jpg" />
+  <img src="Z:/picture/008/save_picture_774602.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774599.jpg" />
+  <img src="Z:/picture/008/save_picture_774599.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Русский super хит 3 (2010) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774596.jpg" />
+  <img src="Z:/picture/008/save_picture_774596.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774578.jpg" />
+  <img src="Z:/picture/008/save_picture_774578.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Модный Хит от Муз Тв (2010) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774526.jpg" />
+  <img src="Z:/picture/008/save_picture_774526.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774523.jpg" />
+  <img src="Z:/picture/008/save_picture_774523.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ekoplekz - Impressionz (2018) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Dub, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774515.jpg" />
+  <img src="Z:/picture/008/save_picture_774515.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Adrena Line - Live @ Dzien Kobiet, Infinity Club, Walbrzych, Poland 03-03-2018[M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774511.jpg" />
+  <img src="Z:/picture/008/save_picture_774511.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774500.jpg" />
+  <img src="Z:/picture/008/save_picture_774500.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Maxthon Browser 5.2.0.1300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774470.jpg" />
+  <img src="Z:/picture/008/save_picture_774470.jpg" />
 </div>
 
 

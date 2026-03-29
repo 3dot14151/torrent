@@ -6,7 +6,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532307.jpg" />
+  <img src="Z:/picture/008/save_picture_532307.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531031.jpg" />
+  <img src="Z:/picture/008/save_picture_531031.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523858.jpg" />
+  <img src="Z:/picture/008/save_picture_523858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ArtWork: Sci-fi. Spaceship [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521513.jpg" />
+  <img src="Z:/picture/008/save_picture_521513.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521338.jpg" />
+  <img src="Z:/picture/008/save_picture_521338.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Pin-up photographer Dan Russell [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519850.jpg" />
+  <img src="Z:/picture/008/save_picture_519850.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sci Fi Art. Ships and Mechs [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519795.jpg" />
+  <img src="Z:/picture/008/save_picture_519795.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517125.jpg" />
+  <img src="Z:/picture/008/save_picture_517125.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adam Hughes — американский художник комиксов [Гр
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515682.jpg" />
+  <img src="Z:/picture/008/save_picture_515682.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515403.jpg" />
+  <img src="Z:/picture/008/save_picture_515403.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514417.jpg" />
+  <img src="Z:/picture/008/save_picture_514417.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514410.jpg" />
+  <img src="Z:/picture/008/save_picture_514410.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514301.jpg" />
+  <img src="Z:/picture/008/save_picture_514301.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511638.jpg" />
+  <img src="Z:/picture/008/save_picture_511638.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509586.jpg" />
+  <img src="Z:/picture/008/save_picture_509586.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ANIME-PATCHWORK (28.08.2012) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504822.jpg" />
+  <img src="Z:/picture/008/save_picture_504822.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Maple Yuan [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504799.jpg" />
+  <img src="Z:/picture/008/save_picture_504799.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Artworks by Cyril Van Der Haegen [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504737.jpg" />
+  <img src="Z:/picture/008/save_picture_504737.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504673.jpg" />
+  <img src="Z:/picture/008/save_picture_504673.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504596.jpg" />
+  <img src="Z:/picture/008/save_picture_504596.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504489.jpg" />
+  <img src="Z:/picture/008/save_picture_504489.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504398.jpg" />
+  <img src="Z:/picture/008/save_picture_504398.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Artworks by Jeff Wack [Рисованая графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504289.jpg" />
+  <img src="Z:/picture/008/save_picture_504289.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Max Sauco (Макс Сауко). Фото-сюрреализм [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504105.jpg" />
+  <img src="Z:/picture/008/save_picture_504105.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Digital Art Collection (29.08.2012) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502436.jpg" />
+  <img src="Z:/picture/008/save_picture_502436.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Michal Ivan: фэнтези творчество иллюстратора из �
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500366.jpg" />
+  <img src="Z:/picture/008/save_picture_500366.jpg" />
 </div>
 
 

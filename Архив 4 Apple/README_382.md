@@ -1,3 +1,112 @@
+###  Публикация: 1063381   (434834) от 16.10.2016
+
+Resolutionator 1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изменение разрешения быстрее, чем Т-1000 меняет формы!
+Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню  или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
+
+Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 августа 2016Разработчик: Many TricksПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96E7A790CD183E9649DFA4F71636192C16DCDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165203   (434419) от 12.09.2017
+
+Waltr 2.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434419.jpg" />
+</div>
+
+
+###  Подробнее
+
+WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
+Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2017Разработчик: Softorno Inc.Поддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F54346D26890DC0FCA0CCC695BC3F65A4890A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410690   (434059) от 22.09.2020
+
+BlueHarvest 8 v8.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434059.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+Данное приложение будет полезно для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.2020Разработчик: Ross TullochПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857492AA6EB7263E24A4B857C8EB73C7061130F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571475   (434046) от 21.08.2022
+
+doubleTake 2.6.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434046.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 20.08.2022Разработчик: © 2022 Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33AED8D72D0CE1503F83B24F912ECFB4005F417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571480   (434042) от 21.08.2022
 
 Yate 6.10.5.3 [En]
@@ -6,7 +115,7 @@ Yate 6.10.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434042.jpg" />
+  <img src="Z:/picture/008/save_picture_434042.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Boxy SVG 3 v.3.89.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434041.jpg" />
+  <img src="Z:/picture/008/save_picture_434041.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ SQLPro Studio 2022.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433954.jpg" />
+  <img src="Z:/picture/008/save_picture_433954.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Valentina Studio Pro 12.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433949.jpg" />
+  <img src="Z:/picture/008/save_picture_433949.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ Ulysses 17 (51691) CR2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433683.jpg" />
+  <img src="Z:/picture/008/save_picture_433683.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ Receipts 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433613.jpg" />
+  <img src="Z:/picture/008/save_picture_433613.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ Twitterrific 5 for Twitter 5.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433610.jpg" />
+  <img src="Z:/picture/008/save_picture_433610.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Espresso 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433607.jpg" />
+  <img src="Z:/picture/008/save_picture_433607.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ PDF Squeezer 3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433606.jpg" />
+  <img src="Z:/picture/008/save_picture_433606.jpg" />
 </div>
 
 
@@ -250,7 +359,7 @@ EtreCheck Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433604.jpg" />
+  <img src="Z:/picture/008/save_picture_433604.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ App Tamer 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433600.jpg" />
+  <img src="Z:/picture/008/save_picture_433600.jpg" />
 </div>
 
 
@@ -307,7 +416,7 @@ Acorn 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433599.jpg" />
+  <img src="Z:/picture/008/save_picture_433599.jpg" />
 </div>
 
 
@@ -335,7 +444,7 @@ Things 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433458.jpg" />
+  <img src="Z:/picture/008/save_picture_433458.jpg" />
 </div>
 
 
@@ -363,7 +472,7 @@ EdgeView 2 v2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433456.jpg" />
+  <img src="Z:/picture/008/save_picture_433456.jpg" />
 </div>
 
 
@@ -389,7 +498,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433453.jpg" />
+  <img src="Z:/picture/008/save_picture_433453.jpg" />
 </div>
 
 
@@ -415,7 +524,7 @@ AnyTrans 4.7.2 (20151010) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433440.jpg" />
+  <img src="Z:/picture/008/save_picture_433440.jpg" />
 </div>
 
 
@@ -442,7 +551,7 @@ GPG Suite 2018.4 (1.4.5) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433318.jpg" />
+  <img src="Z:/picture/008/save_picture_433318.jpg" />
 </div>
 
 
@@ -468,7 +577,7 @@ QuarkXPress 2015 v11.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433268.jpg" />
+  <img src="Z:/picture/008/save_picture_433268.jpg" />
 </div>
 
 
@@ -495,7 +604,7 @@ JRiver Media Center 24.0.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432980.jpg" />
+  <img src="Z:/picture/008/save_picture_432980.jpg" />
 </div>
 
 
@@ -521,7 +630,7 @@ A Better Finder Rename 10.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432943.jpg" />
+  <img src="Z:/picture/008/save_picture_432943.jpg" />
 </div>
 
 
@@ -548,7 +657,7 @@ Bartender 3 Beta v.3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432937.jpg" />
+  <img src="Z:/picture/008/save_picture_432937.jpg" />
 </div>
 
 
@@ -575,7 +684,7 @@ MediaInfo 0.7.991 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432927.jpg" />
+  <img src="Z:/picture/008/save_picture_432927.jpg" />
 </div>
 
 
@@ -588,119 +697,6 @@ MediaInfo - программа для получения подробной те
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA211995260DBC63EE6ECFD94B77CDDBE8FB9017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164130   (432926) от 13.09.2017
-
-Clipboard Manager 1.9.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер истории буфера обмена для Mac.
-Сохраняет все, что вы копируете для последующего использования.
-
-Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2017Разработчик: Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC14B70E2ED94BEC4150A159F5CDFB4FFCCBFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945592   (432784) от 10.10.2015
-
-Parallels Desktop for Mac Business Edition 11.0.2 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
-С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2015Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9598B1BFF62B7ECBAD7422E6647236650A1217C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165616   (432760) от 13.09.2017
-
-Forecast Bar - Weather, Radar and Alerts 3.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
-
-Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
-- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12 сентября 2017Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9158F0D3CFB7E137C58A23327DF375697D91F8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165614   (432759) от 13.09.2017
-
-AnyTrans 6.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432759.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans - Управляем своими файлами вместе с AnyTrans
-AnyTrans - файловый менеджер, который отвечает за перемещение файлов с персонального компьютера на устройство iOS. Для более легкого обучения пользования всеми функциями менеджера предусмотрен специальный режим легкого и быстрого обучения "iWizard", который последовательно проведет вас через необходимые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12 сентября 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4088B97543F808DEBE081F0AD1ABC5F9BA22CCB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

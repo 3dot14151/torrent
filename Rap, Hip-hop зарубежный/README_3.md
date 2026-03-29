@@ -6,7 +6,7 @@ Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161798.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lindemann - Mathematik (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156980.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 100 Greatest Rap (2020) Explicit [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149239.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109287.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105348.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66010.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [MP3|320 Kbps] <Hip-Hop
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50176.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43554.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4657.jpg" />
 </div>
 
 

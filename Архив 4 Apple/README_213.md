@@ -6,7 +6,7 @@ Commander One PRO 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776689.jpg" />
+  <img src="Z:/picture/008/save_picture_776689.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ HoudahGeo 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776569.jpg" />
+  <img src="Z:/picture/008/save_picture_776569.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Mate Translate – переводчик 4.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776542.jpg" />
+  <img src="Z:/picture/008/save_picture_776542.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ iSoftPhone Pro 4.0128 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776517.jpg" />
+  <img src="Z:/picture/008/save_picture_776517.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Firetask - Project-oriented GTD Task Management 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776485.jpg" />
+  <img src="Z:/picture/008/save_picture_776485.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ MKV2MP4 1.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776433.jpg" />
+  <img src="Z:/picture/008/save_picture_776433.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ iMazing 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776324.jpg" />
+  <img src="Z:/picture/008/save_picture_776324.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Cookie 5.7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776134.jpg" />
+  <img src="Z:/picture/008/save_picture_776134.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Downie 3.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776130.jpg" />
+  <img src="Z:/picture/008/save_picture_776130.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ djay Pro 1.3.1 + Complete FX Pack [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776108.jpg" />
+  <img src="Z:/picture/008/save_picture_776108.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ iMazing 2.5.4 (8448) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776006.jpg" />
+  <img src="Z:/picture/008/save_picture_776006.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Tidy Up 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775826.jpg" />
+  <img src="Z:/picture/008/save_picture_775826.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ goPanel 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775806.jpg" />
+  <img src="Z:/picture/008/save_picture_775806.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Script Debugger 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775787.jpg" />
+  <img src="Z:/picture/008/save_picture_775787.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ One Chat - All in one Messenger 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775745.jpg" />
+  <img src="Z:/picture/008/save_picture_775745.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Principle 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775734.jpg" />
+  <img src="Z:/picture/008/save_picture_775734.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Sunless Sea v.2.2.5.3148 (2015) [Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775651.jpg" />
+  <img src="Z:/picture/008/save_picture_775651.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Alfred 3 Powerpack v3.7.2 (951) beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775548.jpg" />
+  <img src="Z:/picture/008/save_picture_775548.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Bartender 3 v3.0.51b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775506.jpg" />
+  <img src="Z:/picture/008/save_picture_775506.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Paste 2 v2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775502.jpg" />
+  <img src="Z:/picture/008/save_picture_775502.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Waltr 2 v2.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775497.jpg" />
+  <img src="Z:/picture/008/save_picture_775497.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ iTrash 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775216.jpg" />
+  <img src="Z:/picture/008/save_picture_775216.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ MarsEdit 4 v4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775167.jpg" />
+  <img src="Z:/picture/008/save_picture_775167.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ GraphicConverter 10 v10.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775163.jpg" />
+  <img src="Z:/picture/008/save_picture_775163.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Scrutiny 8 v8.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775161.jpg" />
+  <img src="Z:/picture/008/save_picture_775161.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775122.jpg" />
+  <img src="Z:/picture/008/save_picture_775122.jpg" />
 </div>
 
 

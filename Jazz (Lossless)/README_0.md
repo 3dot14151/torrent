@@ -1,3 +1,119 @@
+###  Публикация: 1846008   (1051039) от 04.01.2026
+
+G!L - King of Electro Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  King of Electro Swing (Radio Edit) (4:13)
+02.  Electro Swing is the Thing (Radio Edit) (3:09)
+03.  Playing Chess With The Devil (Radio Edit) (3:11)
+04.  All The Leaves Are Brown (Radio Edit) (3:26)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0C85947029DB6A416E8A3DA4713C0EECAAC2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845270   (1050586) от 30.12.2025
+
+Lady Gearbox - Electro swing music (Vol. 1) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Velvet Whispers (2:36)
+02.  Neon Waltz (2:10)
+03.  Velvet Groove (2:17)
+04.  Velvet Revolver (1:52)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D2546DD8E091DD610A28061525BC88D17CDDA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845277   (1050584) от 30.12.2025
+
+The Merry Christmas Experience - An Electro Swing Christmas Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jingle Bells (Electro Swing Version 2025) (2:08)
+02.  O Little Town of Bethlehem (Electro Swing Version 2025) (2:15)
+03.  Away in a Manger (Electro Swing Version 2025) (2:15)
+04.  Deck the Halls (Electro Swing Version 2025) (2:20)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6F84A4A799B47223F69BA2CF97675ADB273A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844694   (1050287) от 27.12.2025
+
+Threestyle - Reasons 2 Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ready to Go (Radio Mix) (4:02)
+02.  Good News (3:34)
+03.  Dessert Moon (4:06)
+04.  Let's Talk (House Party) (4:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DFD0EF4EBA6BD03536D3A9319E0DEA4BA6A91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844693   (1050286) от 27.12.2025
 
 Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
@@ -6,7 +122,7 @@ Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050286.jpg" />
+  <img src="Z:/picture/005/save_picture_1050286.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050283.jpg" />
+  <img src="Z:/picture/005/save_picture_1050283.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Johnny Britt - Midnight In Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049478.jpg" />
+  <img src="Z:/picture/005/save_picture_1049478.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Wolfgang Lohr - Snow Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049463.jpg" />
+  <img src="Z:/picture/005/save_picture_1049463.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Katie Melua - Piece by Piece (2005) 2025 Remaster, Deluxe Edition [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047355.jpg" />
+  <img src="Z:/picture/005/save_picture_1047355.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Eric Reed - Everybody Gets The Blues (2019) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046456.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Cyrus Chestnut - Kaleidoscope (2018) HighNote [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046354.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sarah Vaughan - 1951 - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046284.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Karin Krog & John Surman With Ben Surman - Infinite Paths (2016) Live [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046282.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Sarah Vaughan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046278.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Ken Colyer's Jazzmen & Chris Barber's Jazz Band - New Orleans To London & New Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046272.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Muggsy Spanier - And His Dixieland Band (1950 - 1952) 2007, Membrane Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046226.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Woody Herman & Erroll Garner - Music For Tired Lovers (1954) 2007, Membran Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046224.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Universal-International Orchestra - The Glenn Miller Story (1953, 1954) 2007
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046213.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jeremy Wong - Hey There (2022) Cellar Music [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046212.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Karin Krog & Georgie Fame - On A Misty Night (2018) Odin [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046211.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Shorty Rogers & Andre Previn Orchestra - Collaboration (1954) 2007, Membran Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046154.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Lee Wiley - Music Of Manhattan (1951) 1998, Uptown Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046153.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Karin Krog & Bengt Hallberg - Cabin In The Sky (2011) Gazell [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046144.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Lee Wiley - Sings The Songs Of Rodgers & Hart And Arlen (1940 - 1943) 1986, Audi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046119.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ John Patitucci & Andy James - An Evening With John Patitucci & Andy James (2021)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046115.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Stan Getz - West Coast Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046054.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Stan Getz - West Coast Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AEE4A53FE0EE0C0592A256E72D435C7801E01ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602547   (1046052) от 06.01.2023
-
-Karin Krog & Steve Kuhn - Break Of Day (2014) Meantime Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Old Fashioned [3:45]
-02. Break of Day in Molde [5:16]
-03. The Folks Who Live on the Hill [5:32]
-04. Scandia Skies [3:26](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26C2501435FAD5C39417C6986D4F896840DB13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602432   (1046051) от 06.01.2023
-
-Karin Krog - Oslo Calling (2008) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misteree (Storaas-Krog) - 3:46
-02. Senor Blues (Silver) - 6:18
-03. Who Knows (Krog) - 4:40
-04. I Wish I Knew (Gordon-Warren) - 4:36(   Читать дальше...   )Жанр: Contemporary Jazz, VocalПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09927BF519A1D3D49B92BF10DEFF71E9A8A8D883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602804   (1045953) от 07.01.2023
-
-The Charles Mingus Duo & Trio with Spaulding Givens & Max Roach - Debut Rarities, Vol. 2 (1951, 1953) 1992, Debuts Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love [3:06]
-02. Darn That Dream [3:43]
-03. Yesterday (Piano Solo) [3:09]
-04. Blood And Soul [3:38](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7358AF8A809F727DFA2E132F53FAD0B74B0D27FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602801   (1045950) от 07.01.2023
-
-Karin Krog - The Many Faces Of Karin Krog (1967 - 2017) 6CD, 2017, Odin [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Art of Duo:
-01. I Ain't Here [3:46]
-02. The Thrill Is Gone [2:24]
-03. Where Flamingos Fly [4:44](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 04:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479B873C146407FA5DF761FA965083B7470358DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

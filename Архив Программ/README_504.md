@@ -6,7 +6,7 @@ IObit Uninstaller Free 8.3.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789005.jpg" />
+  <img src="Z:/picture/008/save_picture_789005.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Avast Secure Browser 71.0.1037.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788996.jpg" />
+  <img src="Z:/picture/008/save_picture_788996.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ YouTube Video Downloader PRO 5.9.3 (20180116) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788991.jpg" />
+  <img src="Z:/picture/008/save_picture_788991.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Avira Phantom VPN Pro 2.12.4.26090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788990.jpg" />
+  <img src="Z:/picture/008/save_picture_788990.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ iCare Format Recovery Pro 6.0.6 RePack (&Portable) by Manshet [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788980.jpg" />
+  <img src="Z:/picture/008/save_picture_788980.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TreeSize Professional 6.3.7.1236 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788979.jpg" />
+  <img src="Z:/picture/008/save_picture_788979.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IObit Smart Defrag Pro 5.8.5.1285 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788972.jpg" />
+  <img src="Z:/picture/008/save_picture_788972.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ XYplorer 19.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788966.jpg" />
+  <img src="Z:/picture/008/save_picture_788966.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Avira Phantom VPN Free / Pro 2.12.4.26090 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788933.jpg" />
+  <img src="Z:/picture/008/save_picture_788933.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TreeSize Professional 6.3.7.1236 RePack by Kopejkin [Ru/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788930.jpg" />
+  <img src="Z:/picture/008/save_picture_788930.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe Media Encoder CC 2018 12.0.1.64 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788894.jpg" />
+  <img src="Z:/picture/008/save_picture_788894.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IObit Driver Booster Pro 5.2.0.688 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788892.jpg" />
+  <img src="Z:/picture/008/save_picture_788892.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788869.jpg" />
+  <img src="Z:/picture/008/save_picture_788869.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788868.jpg" />
+  <img src="Z:/picture/008/save_picture_788868.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788861.jpg" />
+  <img src="Z:/picture/008/save_picture_788861.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FPS Monitor 5000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788856.jpg" />
+  <img src="Z:/picture/008/save_picture_788856.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788809.jpg" />
+  <img src="Z:/picture/008/save_picture_788809.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PicPick 5.2.0 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788801.jpg" />
+  <img src="Z:/picture/008/save_picture_788801.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788763.jpg" />
+  <img src="Z:/picture/008/save_picture_788763.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ USB Low-Level Format 5.01 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788707.jpg" />
+  <img src="Z:/picture/008/save_picture_788707.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy 11.2021 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788698.jpg" />
+  <img src="Z:/picture/008/save_picture_788698.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Slimjet 17.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788643.jpg" />
+  <img src="Z:/picture/008/save_picture_788643.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Pale Moon 27.7.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788638.jpg" />
+  <img src="Z:/picture/008/save_picture_788638.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Insofta 3D Text Commander 5.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788633.jpg" />
+  <img src="Z:/picture/008/save_picture_788633.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ BurnAware Professional 11.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788630.jpg" />
+  <img src="Z:/picture/008/save_picture_788630.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1145 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788610.jpg" />
+  <img src="Z:/picture/008/save_picture_788610.jpg" />
 </div>
 
 

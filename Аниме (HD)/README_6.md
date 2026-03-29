@@ -6,7 +6,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894682.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и хр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894644.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894599.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu. | A Destructive God Sits Next to Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894596.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894580.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Steins;Gate: Soumei Eichi no Cognitive Computing | Врата Штейна: Ве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893363.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Koi Suru Asteroid / Asteroid in Love / Влюблённый астероид [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893008.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kyokou Suiri / In/Spectre / В/Спектре / Ложные выводы [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893002.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Shiranpuri / Minding My Own Business [2012, TV-special] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892971.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892016.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891535.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Housekishou Richard-shi no Nazo Kantei | The Case Files of Jeweler Richard | З�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891526.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ID:Invaded | ID: Вторжение [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891325.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aria The OVA: Arietta | Ария OVA-1 [2007, OVA] BDRip 716p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890845.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Aria The Natural | Ария (второй сезон) [TV-2][2006, TV, 26 эп. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890830.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Aria The Origination | Ария (третий сезон) [TV-3][2008, TV, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890753.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Aria The Animation | Ария (первый сезон) [TV-1][2005, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890719.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890216.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Ixion Saga: Dimension Transfer / ИКСИОН САГА: Пространстве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889990.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Runway de Waratte | Smile Down the Runway | Улыбайся на подиуме
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888115.jpg" />
+  <img src="Z:/picture/005/save_picture_888115.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Pet | Питомец [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887914.jpg" />
+  <img src="Z:/picture/005/save_picture_887914.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Isekai Quartet 2 | Четвёрка попаданцев [ТВ-2] [2020, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887908.jpg" />
+  <img src="Z:/picture/005/save_picture_887908.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Code Geass Hangyaku no Lelouch / Код Гиас: Восставший Лелу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887002.jpg" />
+  <img src="Z:/picture/005/save_picture_887002.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 11 из 11] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886489.jpg" />
+  <img src="Z:/picture/005/save_picture_886489.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886480.jpg" />
+  <img src="Z:/picture/005/save_picture_886480.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Code Geass Hangyaku no Lelouch R2 / Код Гиас: Восставший Лел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885367.jpg" />
+  <img src="Z:/picture/005/save_picture_885367.jpg" />
 </div>
 
 

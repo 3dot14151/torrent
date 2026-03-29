@@ -1,3 +1,84 @@
+###  Публикация: 1032683   (632165) от 14.07.2016
+
+Скарамуш / Scaramouche (1952) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андре Моро — незаконный сын знатного аристократа, не знающий, кто его отец, теряет друга, написавшего листовку о свободе, равенстве, братстве. Его товарищ пал от руки лучшего дуэлянта Франции — маркиза Де Мэйна и умер у него на руках.
+Моро поклялся, что убийца умрет от его руки такой же точно смертью. Но для этого весельчаку и сорванцу, плевавшему на политику и считавшему (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Драма, Мелодрама, Комедия, ПриключенияРежиссер: Джордж СидниАктеры: Стюарт Грейнджер, Элинор Паркер, Джанет Ли, Мел Феррер, Генри Уилкоксон, Нина Фош, Ричард Андерсон, Роберт Кут, Льюис Стоун, Элизабет РисдонПеревод: Дублированный, многоголосый, двуголосый  закадровыйСубтитры: ОтсутствуютПродолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0186D952A13F88EBA5C5F98DE7F6933C8C8295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349289   (631280) от 12.06.2011
+
+Приключения канонира Доласа / Jak rozpetalem druga wojne swiatowa (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631280.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сентября 1939 года. Польский солдат Франтишек Долас, проспав свою станцию, просыпается ночью в поезде на польско-немецкой границе. С его выстрела в немецкого офицера, которого Долас принял за диверсанта, в результате комичных совпадений, начинается не только Вторая мировая война, но и цепь невероятных приключений в немецком лагере для военнопленных, Австрии, Африке, (   Читать дальше...   )Жанр: Комедия, Военный, ПриключенияРежиссер: Тадеуш Хмелевский /Tadeusz Chmielewski/Актеры: Мариан Кочиняк /Marian Kociniak/, Янина Боронска /Janina Boronska/, Здислав Кушнар /Zdzislaw Kuzniar/, Ярослав Скульски /Jaroslaw Skulski/, Виргилиуш Гринь /Wirgiliusz Gryn/, Эмиль Каревич /Emil Karewicz/Перевод: Одноголосый закадровыйПродолжительность: 03:46:15 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC77708299FA0B881C77F58B3A77EC1D155F7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 218778   (630870) от 15.07.2010
+
+Оскар / Oscar (1967) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бертран Барнье - крупный промышленник, к которому с утра пораньше является его управляющий Кристиан. Он заявляет, что любит его дочь Колет, а после этого признается, что украл у предпринимателя кругленькую сумму. Вдобавок бизнесмен узнает, что его горничная увольняется и в одночасье становится баронессой.
+Колет заявляет, что беременна от бывшего шофера по имени Оскар. Кроме того, выяснятся, что она вовсе не дочь Барнье и, не желая оставаться старой девой, готова выйти замуж за любого встречного…
+К тому же, к этой истории примешиваются два черных чемодана, один из которых набит деньгами и драгоценностям, а другой женским нижним бельем… Как тут, от такого потока событий, происходящих в течение одного дня, «бедному» Бертрану не сойти с ума?!Жанр: комедияРежиссер: Эдуар Молинаро / Edouard MolinaroВ ролях: Луи де Фюнес (Bertrand Barnier), Клод Риш (Christian Martin), Агата Натансон (Colette Barnier), Клауди Жансак (Germaine Barnier), Сильвия Сорель (Jacqueline), Доминик Паж (Bernadette), Марио Давид (Philippe Dubois), Поль Пребуа (Charles le domestique), Жермен Дельба (Charlotte), Роже Ван Хол (Oscar), Филипп Валлори (Le chauffeur)Перевод: Оригинальный, Профессиональный (многоголосый, закадровый), Профессиональный (полное дублирование)Формат: Matroska
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722FA96A851038A6FD6462F63C75BB39A259A544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519631   (630856) от 09.07.2012
 
 Виннету 3 / Winnetou - 3. Teil (1965) HDRip
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630856.jpg" />
+  <img src="Z:/picture/008/save_picture_630856.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630497.jpg" />
+  <img src="Z:/picture/008/save_picture_630497.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630298.jpg" />
+  <img src="Z:/picture/008/save_picture_630298.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629873.jpg" />
+  <img src="Z:/picture/008/save_picture_629873.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629621.jpg" />
+  <img src="Z:/picture/008/save_picture_629621.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629459.jpg" />
+  <img src="Z:/picture/008/save_picture_629459.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629235.jpg" />
+  <img src="Z:/picture/008/save_picture_629235.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629220.jpg" />
+  <img src="Z:/picture/008/save_picture_629220.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628855.jpg" />
+  <img src="Z:/picture/008/save_picture_628855.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628591.jpg" />
+  <img src="Z:/picture/008/save_picture_628591.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628285.jpg" />
+  <img src="Z:/picture/008/save_picture_628285.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627685.jpg" />
+  <img src="Z:/picture/008/save_picture_627685.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627618.jpg" />
+  <img src="Z:/picture/008/save_picture_627618.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627466.jpg" />
+  <img src="Z:/picture/008/save_picture_627466.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627397.jpg" />
+  <img src="Z:/picture/008/save_picture_627397.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627379.jpg" />
+  <img src="Z:/picture/008/save_picture_627379.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626979.jpg" />
+  <img src="Z:/picture/008/save_picture_626979.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626961.jpg" />
+  <img src="Z:/picture/008/save_picture_626961.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626952.jpg" />
+  <img src="Z:/picture/008/save_picture_626952.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626937.jpg" />
+  <img src="Z:/picture/008/save_picture_626937.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626688.jpg" />
+  <img src="Z:/picture/008/save_picture_626688.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626381.jpg" />
+  <img src="Z:/picture/008/save_picture_626381.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626166.jpg" />
+  <img src="Z:/picture/008/save_picture_626166.jpg" />
 </div>
 
 
@@ -595,85 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7363BFE3E990EA0EF48E55F9EDE67B18422CB4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906583   (625421) от 18.06.2015
-
-Сто тысяч долларов на солнце / Cent mille dollars au soleil (1964) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой городок в Северной Африке. В компанию по грузоперевозкам, где работает Рокко, прибывает новый трейлер с таинственным грузом, который должен уйти в Нигерию. Для этой миссии хозяин фирмы «Папаша Кастальяно» по прозвищу «Свекла» нанимает человека с фальшивым паспортом и подозрительной репутацией — Джона Штайнера.Производство: Франция, ИталияЖанр: Боевик, комедия, приключенияРежиссер: Анри ВернёйАктеры: Жан-Поль Бельмондо, Лино Вентура, Реджинальд Кернан, Бернар Блие, Андреа Паризи, Жер Фроэб, Анн-Мари Коффине, Дуду Бабе, Пьер Мира, Генри Ламбер, Кристиан БрокарПеревод: Профессиональный многоголосыйПродолжительность: 02:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057BE640763FCFF14FC884D56161D5C1A0366D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144280   (625258) от 23.06.2017
-
-Мстители / The Revengers (1972) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран гражданской войны, а ныне фермер Джон Бенедикт, вернувшись с охоты домой, обнаруживает, что его жену и детей убила банда безжалостных негодяев. Бенедикт собирает отряд из шести осуждённых и устремляется в погоню, желая отмщения. Но вскоре он понимает, что его новые «друзья» непредсказуемы и опасны не менее чем те, кого они ищут. Выполнят ли они задание, или (   Читать дальше...   )Производство: США, Мексика / Cinema Center Films, Estudios Churubusco Azteca S.A.Жанр: ВестернРежиссер: Дэниэл МаннАктеры: Уильям Холден, Эрнест Боргнайн, Вуди Строуд, Роже Анен, Райнхард Колльдехофф, Хорхе Луке, Хорхе Мартинес де Ойос, Сьюзен Хэйуорд, Артур Ханникат, Уоррен Вэндерс, Ларри ПеннеллПеревод: Авторский (С. Визгунов)Субтитры: ОтсутствуютПродолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC7292138786AE839B8D469EB7DAE164E8FFE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521254   (624524) от 12.07.2012
-
-Вздымающийся ад / The Towering Inferno (1974) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624524.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роковую ночь группа несчастных гостей остается отрезанной страшным пожаром на верхних этажах громадного небоскреба. Архитектор здания, ставший вынужденным узником своего творения, пытается помочь шефу пожарных спасти людей.
-Фильм снят на основе документальных (   Читать дальше...   )Производство: СШАЖанр: Триллер, Драма, КатастрофаРежиссер: Джон Гиллермин, Ирвин АлленАктеры: Стив МакКуин, Пол Ньюман, Уильям Холден, Фэй Данауэй, Фред Астер, Сьюзэн Блэйкли, Ричард Чемберлен, Дженнифер Джонс, О. Дж. Симпсон, Роберт Вон, Роберт Вагнер, Сьюзэн ФлэннериПеревод: Многоголосый закадровыйПродолжительность: 02:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3735B85FE2100840A844455D7850024D2C4BE2E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1049154   (536285) от 09.09.2016
+
+Смерть и слава в Чандэ / Die Xue Gu Cheng / Death and Glory in Changde (2010) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536285.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Смерть и слава в Чандэ» является единственным китайским фильмом, посвящённым 65-летию великой победы над фашизмом, который вышел на экраны страны в 2010 году. Эта военная драма рассказывает об эпической битве в ноябре 1943 года, в которой 9 тысяч бойцов Гоминьдана героически сражались против 30-тысячной японской армии и задержали ее продвижение на юг Китая. (   Читать дальше...   )Производство: Китай, China Film Group Corporation (CFGC)Жанр: Военный, ДрамаРежиссер: Донг ШенАктеры: Рэй Луи, Юань Вэнькан, Ади Ань, Се Мэнвэй, Фань Лэй, Ян Цзы, Юй Чэнвань, Ван Цин, Фэн Баохуа, Ер Ху, Ан Исюан, Зи ЯнгПеревод: Одноголосый закадровыйПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B3188EFD56E2716D89E950A0FEB4BF926D955C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558032   (535548) от 18.06.2022
 
 Да, мадам! / Wong gaa si ze / Huang jia shi jie / Yes, Madam! (1985) BDRip [H.264] [DVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535548.jpg" />
+  <img src="Z:/picture/008/save_picture_535548.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535541.jpg" />
+  <img src="Z:/picture/008/save_picture_535541.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535424.jpg" />
+  <img src="Z:/picture/008/save_picture_535424.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535163.jpg" />
+  <img src="Z:/picture/008/save_picture_535163.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535111.jpg" />
+  <img src="Z:/picture/008/save_picture_535111.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535041.jpg" />
+  <img src="Z:/picture/008/save_picture_535041.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533651.jpg" />
+  <img src="Z:/picture/008/save_picture_533651.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533550.jpg" />
+  <img src="Z:/picture/008/save_picture_533550.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533205.jpg" />
+  <img src="Z:/picture/008/save_picture_533205.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533189.jpg" />
+  <img src="Z:/picture/008/save_picture_533189.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532247.jpg" />
+  <img src="Z:/picture/008/save_picture_532247.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532241.jpg" />
+  <img src="Z:/picture/008/save_picture_532241.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532234.jpg" />
+  <img src="Z:/picture/008/save_picture_532234.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532111.jpg" />
+  <img src="Z:/picture/008/save_picture_532111.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532110.jpg" />
+  <img src="Z:/picture/008/save_picture_532110.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532108.jpg" />
+  <img src="Z:/picture/008/save_picture_532108.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532102.jpg" />
+  <img src="Z:/picture/008/save_picture_532102.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532097.jpg" />
+  <img src="Z:/picture/008/save_picture_532097.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532095.jpg" />
+  <img src="Z:/picture/008/save_picture_532095.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531963.jpg" />
+  <img src="Z:/picture/008/save_picture_531963.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531959.jpg" />
+  <img src="Z:/picture/008/save_picture_531959.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531086.jpg" />
+  <img src="Z:/picture/008/save_picture_531086.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531021.jpg" />
+  <img src="Z:/picture/008/save_picture_531021.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530502.jpg" />
+  <img src="Z:/picture/008/save_picture_530502.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530353.jpg" />
+  <img src="Z:/picture/008/save_picture_530353.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:522DD444766B62801F8027EE8C9783E85483EE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533894   (530130) от 11.08.2012
-
-Рейд / Serbuan maut / The Raid: Redemption (2011) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отряд спецназовцев получает задание проникнуть в многоэтажный дом, расположенный в самом сердце трущоб Джакарты, и арестовать обосновавшегося там наркобарона, которого охраняет целая армия вооруженных до зубов головорезов. Операцию нужно провести без лишнего шума, но нелепая случайность нарушает планы служителей закона. Теперь бойцам негде спрятаться и некуда бежать. Перед ними 30 этажей ада, где смертью грозит каждый неверный шаг. Война по правилам кончилась. Выживает сильнейший!Жанр: Боевик, Триллер, КриминалРежиссер: Гарет ЭвансАктеры: Ико Ювайс, Джо Таслим, Дони Аламсях, Яян Рухьян, Пьер Грюно, Рэй Сахетапи, Тегар Сатрия, Ианг Дармаван, Эка «Пиранья» Рахмадия, Верди СолайманПеревод: ДублированныйЯзык субтитров: Русский (форс. + полные)Продолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976F234D9D83588F435C8D77947B24E6E7B75B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

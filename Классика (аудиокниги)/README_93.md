@@ -1,3 +1,108 @@
+###  Публикация: 1770452   (32295) от 01.01.2025
+
+Фёдор Достоевский | Бесы (2007) [MP3, Александр Андриенко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы услышите социально-философский роман Фёдора Достоевского “Бесы”, в котором со всей мощью и глубиной раскрылся гений писателя. Душа человеческая разворачивается перед нами ареной борьбы Добра и Зла, как двух мировых порядков. Но под силу ли ей вынести эту титаническую борьбу в себе, и каждым своим желанием, мыслью и поступком делать выбор - чему служить, и что (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: РавновесиеПродолжительность: 29:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CE6069E7969A7770D87A7455B793ABCFC93193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770475   (32291) от 01.01.2025
+
+Фёдор Достоевский | Преступление и наказание (2024) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32291.jpg" />
+</div>
+
+
+###  Подробнее
+
+«С одной стороны, глупая, бессмысленная, ничтожная, злая, больная старушонка, никому не нужная и, напротив, всем вредная, которая сама не знает, для чего живёт, и которая завтра же сама собой умрёт. С другой стороны, молодые, свежие силы, пропадающие даром без поддержки, и это тысячами, и это всюду! Сто, тысячу добрых дел и начинаний, которые можно устроить и поправить (   Читать дальше...   )Жанр: Классическая проза, русская классика, философская проза, романИздательство: АрдисПродолжительность: 23:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2650B57692E527F02C825B3DF00B12A10E4957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770405   (32289) от 01.01.2025
+
+Фёдор Достоевский | Бесы (2023) [MP3, Максим Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достоевский загорелся идеей «Бѣсов» после приезда Ивана Сниткина, брата его жены, в Дрезден. Вследствие волнений в Московском университете и активности студенческого движения, Сниткин и Достоевский много говорили про жизнь студентов, их нравы и настроения, что и вдохновило автора на написание романа. В одном из писем поэту Аполлону Майкову Достоевский писал: (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ВимбоПродолжительность: 36:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366339F1BAF6CC9906FF2E8C89AA5AB252E3789D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770401   (32283) от 01.01.2025
+
+Фёдор Достоевский | Бесы (2024) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32283.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бесы» — один из самых спорных романов Достоевского. Одни видят в нем пророческий памфлет. Другие — эдакий литературный полигон для испытания различных философских идей. Третьи — изощренный психологический триллер.
+В основе сюжета лежит реальное событие — всколыхнувшее всю интеллектуальную Россию 70-х годов «дело Нечаева». Революционеры, члены небольшого законспирированного (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: РекскверПродолжительность: 25:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D9EA74CA259044B00E3D2D07578FFA8AC5B81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770633   (32198) от 02.01.2025
 
 Николай Гоголь | Миргород (2024) [MP3, Всеволод Кузнецов]
@@ -6,7 +111,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32198.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32089.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31895.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31812.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31784.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31557.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31555.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31550.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31519.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31482.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31469.jpg" />
 </div>
 
 
@@ -301,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30428.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30427.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30425.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30411.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30207.jpg" />
 </div>
 
 
@@ -434,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30202.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30194.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29310.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28855.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28696.jpg" />
 </div>
 
 
@@ -569,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28518.jpg" />
 </div>
 
 
@@ -581,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE65AB51CC3E496F1F472F97CF40BE4683DB3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395291   (28510) от 06.02.2025
-
-Александр Куприн | Повести и рассказы (2007) [MP3, Николай Трифилов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Куприн (1870–1938) – один из писателей, любящих жизнь во всех ее проявлениях и стремящихся передать эту любовь своим героям. Его произведения раскрывают перед читателем целый мир, полный человеческих страстей и истинного духовного величия. Героев Куприна отличает стремление к нравственному совершенству и острое переживание недостижимости идеала. (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: БиблиофоникаПродолжительность: 15:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5C8769FAA5FF8D1B2F46A016517815F296BBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777950   (28359) от 07.02.2025
-
-Эдгар Аллан По | Рассказы (2015) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдгар Аллан По (1809–1849) – поэт, прозаик, критик,  непревзойденный мастер сразу нескольких литературных жанров: научно-фантастического, приключенческого, детективного, готического. В сборник вошли рассказы «Король Чума», «Убийство на улице Морг», «Низвержение в Мальстрем», которые дают возможность оценить многогранность таланта «великого и ужасного» Эдгара Аллана (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистика, приключения, детективИздательство: 1С-ПаблишингПродолжительность: 02:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D52E84EC9461DDBDE01D04452FF65660F69FCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303729   (27782) от 13.02.2025
-
-Александр Островский | Светит, да не греет (Радиоспектакль) (2017) [MP3, Констанция Роек, Борис Горбатов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные (   Читать дальше...   )Жанр: Русская литература, классика, драмаВ ролях: Констанция Роек, Борис Горбатов, Валентина Евстратова, Сергей Чернышёв, Аркадий Смирнов и др.Издательство: Радио России – Санкт-Петербург, Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEB3AD7AAAAECD02F8C8F9D2CF764BBE23CF9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303481   (27772) от 13.02.2025
-
-Александр Островский | Не всё коту масленица. Свои люди сочтемся. Радиоспектакль (2006) [MP3, Виктор Хохряков, Виталий Соломин и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива Гостелерадиофонда. Звуковой архив Малого театра.
-Два спектакля Государственного академического Малого театра: «Не все коту масленица» и «Свои люди сочтемся». Две блестящие пьесы А.Н. Островского, каждая из которых представляет новую грань его удивительного таланта. «Свои люди сочтемся» - первая вещь автора, которая не только принесла ему всероссийскую (   Читать дальше...   )Жанр: Русская литература, классика, комедияВ ролях: Виктор Хохряков, Виталий Соломин, Ольга Чуваева, Тамара Торчинская, Игорь Охлупин, Галина Виноградова, Наталья Гундарева, Евгений Лазарев.Издательство: Гостелерадиофонд, Элитайл, СиДиКомПродолжительность: 04:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F60B8A0BEDCD8F0471CE1259DBFE510D6AE280D
 ```
 
 https://mybot314.ru/tekegram_catalog/

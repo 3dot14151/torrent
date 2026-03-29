@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733561.jpg" />
+  <img src="Z:/picture/008/save_picture_733561.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mr.Credo - Fantasy (2013) [AAC|~349 Kbps] <Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733558.jpg" />
+  <img src="Z:/picture/008/save_picture_733558.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733212.jpg" />
+  <img src="Z:/picture/008/save_picture_733212.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Chillin' Dreams Maldive Islands (2010) [AAC|~356 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733204.jpg" />
+  <img src="Z:/picture/005/save_picture_733204.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Chillin' Dreams Bahama Islands (2013) [AAC|~313 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733203.jpg" />
+  <img src="Z:/picture/005/save_picture_733203.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Chillin' Dreams Virgin Islands (2012) [AAC|~334 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733179.jpg" />
+  <img src="Z:/picture/008/save_picture_733179.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Chillin' Dreams Cook Islands (2011) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733176.jpg" />
+  <img src="Z:/picture/005/save_picture_733176.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - The VERSE Uplifting Trance Journey 2021 (2022) [AAC|~324 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733175.jpg" />
+  <img src="Z:/picture/008/save_picture_733175.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Zodiac - Music from the Films (1985) [AAC|~362 Kbps] <Electro>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733124.jpg" />
+  <img src="Z:/picture/005/save_picture_733124.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Zodiac - Clouds (1991) [AAC|~343 Kbps] <Electro, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733122.jpg" />
+  <img src="Z:/picture/005/save_picture_733122.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733064.jpg" />
+  <img src="Z:/picture/008/save_picture_733064.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732779.jpg" />
+  <img src="Z:/picture/008/save_picture_732779.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Herve HB KING Bissereth - God's Art (2022) [AAC|~285 Kbps] <Smooth Jazz, Contemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732737.jpg" />
+  <img src="Z:/picture/008/save_picture_732737.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Chillout Orange, Vol. 8: Relaxing Chillout Vibes (2022) [AAC|~324 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732733.jpg" />
+  <img src="Z:/picture/008/save_picture_732733.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Natalie Cole - Unforgettable...With Love (2022) [AAC|~341 Kbps] <Jazz, Soul>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732727.jpg" />
+  <img src="Z:/picture/008/save_picture_732727.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Deep Wave - Chillout Love Songs Of The 80s & 90s (2022) [AAC|~339 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732725.jpg" />
+  <img src="Z:/picture/008/save_picture_732725.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732682.jpg" />
+  <img src="Z:/picture/008/save_picture_732682.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Deep House Essentials: Blue Edition (2020) [AAC|~324 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732576.jpg" />
+  <img src="Z:/picture/008/save_picture_732576.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_732524.jpg" />
+  <img src="Z:/picture/005/save_picture_732524.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732523.jpg" />
+  <img src="Z:/picture/008/save_picture_732523.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732521.jpg" />
+  <img src="Z:/picture/008/save_picture_732521.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731943.jpg" />
+  <img src="Z:/picture/008/save_picture_731943.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731835.jpg" />
+  <img src="Z:/picture/005/save_picture_731835.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731821.jpg" />
+  <img src="Z:/picture/008/save_picture_731821.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731714.jpg" />
+  <img src="Z:/picture/008/save_picture_731714.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731649.jpg" />
+  <img src="Z:/picture/008/save_picture_731649.jpg" />
 </div>
 
 

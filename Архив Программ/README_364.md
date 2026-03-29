@@ -6,7 +6,7 @@ Topaz A.I. Gigapixel 4.5.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863440.jpg" />
+  <img src="Z:/picture/008/save_picture_863440.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863415.jpg" />
+  <img src="Z:/picture/008/save_picture_863415.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863360.jpg" />
+  <img src="Z:/picture/008/save_picture_863360.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 1909 (18363.778) x64 Home + Pro + Enterprise (3in1) by Brux v.04.2020
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863359.jpg" />
+  <img src="Z:/picture/008/save_picture_863359.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Media Encoder 2020 14.1.0.155 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863357.jpg" />
+  <img src="Z:/picture/008/save_picture_863357.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Audition 2020 13.0.5.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863356.jpg" />
+  <img src="Z:/picture/008/save_picture_863356.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Animate 2020 20.0.3.25487 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863288.jpg" />
+  <img src="Z:/picture/008/save_picture_863288.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nvidia DriverPack v.445.87 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863287.jpg" />
+  <img src="Z:/picture/008/save_picture_863287.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Topaz Sharpen AI 2.0.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863283.jpg" />
+  <img src="Z:/picture/008/save_picture_863283.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Maxon CINEMA 4D Studio R21.207 build RB303831 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863280.jpg" />
+  <img src="Z:/picture/008/save_picture_863280.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Windows 8.1 20in1 (x86/x64) by Eagle123 (04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863278.jpg" />
+  <img src="Z:/picture/008/save_picture_863278.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe After Effects 2020 17.0.6.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863275.jpg" />
+  <img src="Z:/picture/008/save_picture_863275.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Photoshop Lightroom Classic 9.2.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863270.jpg" />
+  <img src="Z:/picture/008/save_picture_863270.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Opera 79.0.4143.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863065.jpg" />
+  <img src="Z:/picture/008/save_picture_863065.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ K-Lite Codec Pack Update 16.4.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863063.jpg" />
+  <img src="Z:/picture/008/save_picture_863063.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Opera GX 79.0.4143.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863060.jpg" />
+  <img src="Z:/picture/008/save_picture_863060.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mozilla Firefox 46.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863045.jpg" />
+  <img src="Z:/picture/008/save_picture_863045.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Files Inspector Pro 3.10 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862981.jpg" />
+  <img src="Z:/picture/008/save_picture_862981.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Firefox Browser 92.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862978.jpg" />
+  <img src="Z:/picture/008/save_picture_862978.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Opera 79.0.4143.50 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862976.jpg" />
+  <img src="Z:/picture/008/save_picture_862976.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mozilla FireFox 92.0.1.7935 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862973.jpg" />
+  <img src="Z:/picture/008/save_picture_862973.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ GIMP 2.10.28 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862969.jpg" />
+  <img src="Z:/picture/008/save_picture_862969.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Paint.NET 4.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862966.jpg" />
+  <img src="Z:/picture/008/save_picture_862966.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ AutoRuns 14.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862965.jpg" />
+  <img src="Z:/picture/008/save_picture_862965.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Chromodo Browser 48.12.18.248 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862944.jpg" />
+  <img src="Z:/picture/008/save_picture_862944.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ EagleGet 2.0.4.20 Stable Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862914.jpg" />
+  <img src="Z:/picture/008/save_picture_862914.jpg" />
 </div>
 
 

@@ -1,3 +1,235 @@
+###  Публикация: 1182684   (314251) от 11.11.2017
+
+Deep Purple - Machine Head (1972) Reissue, 1976 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314251.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Highway Star (6:09)
+A2. Maybe I'm A Leo (4:51)
+A3. Pictures Of Home (5:06)
+A4. Never Before (4:00)(   Читать дальше...   )Производство: Warner Bros. Records - P-10130WЖанр: Hard RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583118   (314232) от 13.10.2022
+
+Центр - Сделано В Париже (1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314232.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Привет Тебе
+A2 Навсегда
+A3 Тургеневские Женщины
+A4 Бесполезная Песня(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182011   (312191) от 12.11.2017
+
+Duran Duran - Paper Gods (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312191.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Paper Gods
+A2. Last Night In The City
+A3. You Kill Me With Silence
+(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182741   (312076) от 12.11.2017
+
+Joy - Joy And Tears (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312076.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Touch Me My Dear 3:39
+A2 Gimme Gimme All Of You 3:53
+A3 Kisses Are The Doctor's Order 3:29
+A4 Korean Girls 3:33(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1F8ABE11E698A8EC725E9E8D7186EA9F99343C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182168   (312046) от 12.11.2017
+
+ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А
+
+1. The Visitors [5:45]
+2. Head Over Heels [3:48](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260413   (311650) от 07.11.2018
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.1 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311650.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Take On Me (3:48)
+A2. Cry Wolf (4:07)
+A3. Touchy (4:37)
+A4. You Are The One (Remix) (3:46)(   Читать дальше...   )Производство: Not On Label - RGM 7029Жанр: New WaveПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8A8F44560EBACDA0A64357F300B3771D2EFA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182184   (311476) от 12.11.2017
+
+Depeche Mode - Spirit (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synth pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311476.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Going Backwards (5:45)
+A2. Where's The Revolution (5:00)
+A3. The Worst Crime (3:49)
+A4. Scum (3:16)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6800C77B2BEB33CD758A625001D679E935D41D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182106   (309678) от 13.11.2017
+
+Amy Winehouse - Frank (2003) Reissue, 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rhythm & Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309678.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro / Stronger Than Me 3:54
+A2 You Sent Me Flying / Cherry 6:50
+A3 Know You Now 3:03
+A4 Fuck Me Pumps 3:20(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D546F61EC79A4342BEB2B4D0408C8E616B677079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077139   (308748) от 27.11.2016
 
 Bad Company - Dangerous Age (1988)  [FLAC 2.0|192/24|image|Vinyl-Rip]<Hard Rock>
@@ -6,7 +238,7 @@ Bad Company - Dangerous Age (1988)  [FLAC 2.0|192/24|image|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308748.jpg" />
+  <img src="Z:/picture/008/save_picture_308748.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ The Camerata Romana, Eugen Duvier Conducting - Vivaldi - Famous Concerti (2000) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307448.jpg" />
+  <img src="Z:/picture/008/save_picture_307448.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Gillan - Double Trouble (1981) 2LP [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306813.jpg" />
+  <img src="Z:/picture/008/save_picture_306813.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306599.jpg" />
+  <img src="Z:/picture/008/save_picture_306599.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - Сергей Рахманинов - Золотая коллекция (1999
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305322.jpg" />
+  <img src="Z:/picture/008/save_picture_305322.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Manfred Mann's Earth Band - Angel Station (1979) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304306.jpg" />
+  <img src="Z:/picture/008/save_picture_304306.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304303.jpg" />
+  <img src="Z:/picture/008/save_picture_304303.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Unknown Artists. Verdi – La Traviata (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303385.jpg" />
+  <img src="Z:/picture/008/save_picture_303385.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Radiorama - Four Years After (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <El
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303202.jpg" />
+  <img src="Z:/picture/008/save_picture_303202.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303058.jpg" />
+  <img src="Z:/picture/008/save_picture_303058.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303017.jpg" />
+  <img src="Z:/picture/008/save_picture_303017.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302814.jpg" />
+  <img src="Z:/picture/008/save_picture_302814.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302655.jpg" />
+  <img src="Z:/picture/008/save_picture_302655.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Au
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301711.jpg" />
+  <img src="Z:/picture/008/save_picture_301711.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Level 42 - Level 42 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] < Jazz-Funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301186.jpg" />
+  <img src="Z:/picture/008/save_picture_301186.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Rush - Signals (1982)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301096.jpg" />
+  <img src="Z:/picture/008/save_picture_301096.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Engelbert Humperdinck - Энгельберт Хампердинк (1978) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300797.jpg" />
+  <img src="Z:/picture/008/save_picture_300797.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299830.jpg" />
+  <img src="Z:/picture/008/save_picture_299830.jpg" />
 </div>
 
 
@@ -513,241 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6FC2215ED3BD310EFC655001E96539F80EBE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184731   (299047) от 18.11.2017
-
-Daturana - Mindfly (2016) Limited Edition, 2017, Nasoni Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299047.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. House Of Dreams (5:09)
-A2. Jefferson (5:01)
-A3. Drunken Girl (3:38)
-A4. Abyss (4:12)(   Читать дальше...   )Производство: Nasoni Records - nasoni184Жанр: Psychedelic RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184553   (298783) от 18.11.2017
-
-Billy Idol - Billy Idol (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2373B79495A8DFDB0787C1B738E0AAE38721545B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261722   (298522) от 13.11.2018
-
-Bomfunk MC's - In Stereo (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic,Techno, Jungle>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uprocking Beats
-02. Other Emcee's
-03. B-Boys + Flygirls
-04. Freestyler(   Читать дальше...   )Жанр: Electronic,Techno, JungleПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8867340EA1BE2AA1DB4A28755044EE3AE3C110B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078864   (297655) от 02.12.2016
-
-Дип Пёрпл - Дым над водой (1988) Мелодия [WavPack|192/32|tracks|Vinyl-Rip] <Hard Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Черная ночь (Black Night)  3:26
-2. Шаровая молния (Fireball)  3:22
-3. Космическое путешествие (Space Truckin')  4:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF4EB5E93FA23AF73C768A21BFDA6FAD876C966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423453   (297336) от 14.11.2020
-
-Slade - Old New Borrowed And Blue (1974) [DSD 128|tracks (Vinyl-Rip)]<Glam-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Want A Little Bit (4:04)
- 02. When The Lights Are Out (3:08)
- 03. My Town (3:08)
- 04. Find Yourself A Rainbow (2:12)(   Читать дальше...   )Жанр: Glam-RockПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A3E5D73B3F08A83A612892B61A4EEDC1EE0CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184866   (297142) от 19.11.2017
-
-Marina & the Diamonds - Electra Heart (2012) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297142.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bubblegum Bitch 2:33
-A2 Primadonna 3:41
-A3 Lies 3:46
-A4 Homewrecker 3:23(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163EB7CCF6EE7D9C18E84CAC369FAE782C910245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731655   (296999) от 07.12.2013
-
-Dire Straits - Brothers In Arms (UK-1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. So Far Away  4:00
-2. Money For Nothing  6:58
-3. Walk Of Life  4:05
-4. Your Latest Trick  4:35
-5. Why Worry  5:12
-Сторона 2
-1. Ride Across The River  6:44
-2. The Man's Too Strong  4:38
-3. One World  3:36(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EF6996305902676186E9B67D432697DCEEFB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847481   (296009) от 05.12.2014
-
-Майк - LV (1982)  /1991, Эрио/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296009.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Увертюра (2:32)
-A2. Белая Ночь/Белое Тепло (3:00)
-A3. Лето - песня для Цоя (2:57)
-A4. Золотые Львы (5:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29307B0741427A8159A49843F9278FBBEEE28385
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1597931   (165281) от 16.12.2022
+
+BBEdit 14.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165281.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2022Разработчик: © 1992-2021 Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67EBA5B9F0D1C72E079174B31122B2629DF16C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597927   (165267) от 16.12.2022
+
+Tinderbox 9 v.9.5.1[En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tinderbox - уникальное приложение для хранения любых записей, мыслей, заметок, планов с возможностью упорядочения, и установления связей между ними для более глубокого понимания. Приложение основано на так называемых агентах, которые отслеживают все связи при добавлении новой информации.
+Tinderbox может автоматически собирать информацию с различных сайтов, обновлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2022 Eastgate Systems, Inc.Поддерживаемая ОС: macOS X 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A942073F4E14F7EEF12BDDECE9C116242A4AE5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345942   (165262) от 17.12.2019
+
+DMG Canvas 3 v3.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165262.jpg" />
+</div>
+
+
+###  Подробнее
+
+DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Araelium GroupПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D0301B6F7DC20C2391C47A204A35697DA956BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432184   (165258) от 16.12.2020
+
+Scrivener 3 v3.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
+Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий и идей будут удобно организованы и всегда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C801BED8FE5750F25BA5F780E676552DFD558C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345944   (165256) от 17.12.2019
 
 iTrash 5.0.3 [Multi]
@@ -6,7 +112,7 @@ iTrash 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165256.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ djay - DJ App & AI Mixer 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165245.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Mp3tag 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165230.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Sketch 61.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165209.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165188.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ PullTube 1.8.4.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165187.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ App Tamer 2.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165184.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Apeaksoft iPhone Transfer 2.0.58 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165181.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ JixiPix Premium Pack 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165177.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ One Chat Pro - All In One Messenger 4.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165163.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165157.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ VideoDuke 1.5 (build 257) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165114.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ Easy Data Transform 1.38.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165110.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ Rhinoceros 7 v.7.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165095.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ Wondershare PDFelement Pro OCR 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165087.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ Nova 10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165079.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ Movavi Video Suite for Mac 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165066.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ Luminar AI 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165058.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ Luminar Neo 1.6.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165050.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ VideoProc (former MacX Video Converter Pro) 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164993.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ DxO FilmPack 5 ELITE Edition v5.5.26 (build 602) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164965.jpg" />
 </div>
 
 
@@ -559,7 +665,7 @@ Movavi Video Converter 21 Premium 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164912.jpg" />
 </div>
 
 
@@ -570,113 +676,6 @@ Movavi Video Converter - конвертер видео и аудио файло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1B33EDE8DEF9F5C239AEDB0794D04271B24ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597851   (164902) от 16.12.2022
-
-Logic Pro X 10.7.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Pro X — самая совершенная версия Logic. Мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобства работы — где бы Вы ни находились. В Logic Pro X входит огромная коллекция музыкальных инструментов, эффектов и лупов — всё, что нужно для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2022Разработчик: © 2004-2022 Apple Inc.Поддерживаемая ОС: macOS 12.3 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F63358D12FBEE0397CC33CCFB9B89A3B6F344D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597884   (164871) от 16.12.2022
-
-Native Instruments Kontakt 7 v.7.1.3 STANDALONE, VSTi, AU [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75489DE71B0E4EC211F13FB76B0E477DBED2690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346046   (164863) от 17.12.2019
-
-DaVinci Resolve Studio 16 v16.1.2.026 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298E85A0DFB08DD50BDBF44843C24A1AD9E878CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597832   (164796) от 16.12.2022
-
-Ableton Live Suite 11 v11.2.7 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2022Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F7C62D2033078A50900E8A3E0B4C341A145BFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

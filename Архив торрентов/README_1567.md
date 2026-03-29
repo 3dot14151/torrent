@@ -6,7 +6,7 @@ Wise Care 365 Pro 5.5.5.550 (DC 12.08.2020) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695834.jpg" />
+  <img src="Z:/picture/008/save_picture_695834.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - BT - The Lost Art Of Longing (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695831.jpg" />
+  <img src="Z:/picture/008/save_picture_695831.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TweakPower 1.153 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695820.jpg" />
+  <img src="Z:/picture/008/save_picture_695820.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FontLab VI v 6.1.3 (7002b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695816.jpg" />
+  <img src="Z:/picture/008/save_picture_695816.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695814.jpg" />
+  <img src="Z:/picture/008/save_picture_695814.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Video Editor MovieMator Pro 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695811.jpg" />
+  <img src="Z:/picture/008/save_picture_695811.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695810.jpg" />
+  <img src="Z:/picture/008/save_picture_695810.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ MarginNote 3 v 3.2.2003 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695809.jpg" />
+  <img src="Z:/picture/008/save_picture_695809.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695807.jpg" />
+  <img src="Z:/picture/008/save_picture_695807.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Creo Pro 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695806.jpg" />
+  <img src="Z:/picture/008/save_picture_695806.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695805.jpg" />
+  <img src="Z:/picture/008/save_picture_695805.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695804.jpg" />
+  <img src="Z:/picture/008/save_picture_695804.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695803.jpg" />
+  <img src="Z:/picture/008/save_picture_695803.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695802.jpg" />
+  <img src="Z:/picture/008/save_picture_695802.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Touch Forms Pro 7.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695801.jpg" />
+  <img src="Z:/picture/008/save_picture_695801.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Vatos Locos ‎– Welcome 2 Da Barrio (2001) [FLAC|Lossless|tracks + .cue] <Psy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695800.jpg" />
+  <img src="Z:/picture/008/save_picture_695800.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Money Pro 2.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695799.jpg" />
+  <img src="Z:/picture/008/save_picture_695799.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ DaVinci Resolve Studio 12.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695798.jpg" />
+  <img src="Z:/picture/008/save_picture_695798.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Hundred / Сотня [2016, TV, 1-11 из 12] HDTVRip 720p  raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695795.jpg" />
+  <img src="Z:/picture/008/save_picture_695795.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695793.jpg" />
+  <img src="Z:/picture/008/save_picture_695793.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ AdminPE10 1.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695792.jpg" />
+  <img src="Z:/picture/008/save_picture_695792.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 13671 (июнь 2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695787.jpg" />
+  <img src="Z:/picture/008/save_picture_695787.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695784.jpg" />
+  <img src="Z:/picture/008/save_picture_695784.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Glary Utilities Pro 5.183.0.212 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695773.jpg" />
+  <img src="Z:/picture/008/save_picture_695773.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ EZ CD Audio Converter 10.0.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695772.jpg" />
+  <img src="Z:/picture/008/save_picture_695772.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Perfectly Clear WorkBench 4.1.0.2244 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695771.jpg" />
+  <img src="Z:/picture/008/save_picture_695771.jpg" />
 </div>
 
 

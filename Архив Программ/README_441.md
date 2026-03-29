@@ -6,7 +6,7 @@ NetBalancer 10.0.2 Build 2324 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815307.jpg" />
+  <img src="Z:/picture/008/save_picture_815307.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brave Browser 1.8.96 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815304.jpg" />
+  <img src="Z:/picture/008/save_picture_815304.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ eM Client Pro 7.2.40748.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815301.jpg" />
+  <img src="Z:/picture/008/save_picture_815301.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Glary Utilities Pro 5.49.0.69 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815271.jpg" />
+  <img src="Z:/picture/008/save_picture_815271.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Volumouse 2.03 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815265.jpg" />
+  <img src="Z:/picture/008/save_picture_815265.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ashampoo Snap 9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815264.jpg" />
+  <img src="Z:/picture/008/save_picture_815264.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.6.1416 Beta + Portable [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815248.jpg" />
+  <img src="Z:/picture/008/save_picture_815248.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Alcohol 120% 2.1.1 Build 1019 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815235.jpg" />
+  <img src="Z:/picture/008/save_picture_815235.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Macrium Reflect v 7.2.4884 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815140.jpg" />
+  <img src="Z:/picture/008/save_picture_815140.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815121.jpg" />
+  <img src="Z:/picture/008/save_picture_815121.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ACDSee Ultimate 9.2 Build 648 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815099.jpg" />
+  <img src="Z:/picture/008/save_picture_815099.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AIMP 4.02 Build 1711 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815089.jpg" />
+  <img src="Z:/picture/008/save_picture_815089.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ HyperSnap 8.13.00 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815055.jpg" />
+  <img src="Z:/picture/008/save_picture_815055.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Acronis True Image 2016 19.0.6559 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814969.jpg" />
+  <img src="Z:/picture/008/save_picture_814969.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ManyCam Virtual Webcam Free 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814968.jpg" />
+  <img src="Z:/picture/008/save_picture_814968.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ JetBrains PhpStorm for Win/Mac/Linux v2.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814845.jpg" />
+  <img src="Z:/picture/008/save_picture_814845.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ ACDSee Ultimate 9.2 Build 648 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814822.jpg" />
+  <img src="Z:/picture/008/save_picture_814822.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FL Studio Producer Edition 20.6.2.1549 Signature Bundle Portable by XpucT [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814800.jpg" />
+  <img src="Z:/picture/008/save_picture_814800.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Norton 360 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814767.jpg" />
+  <img src="Z:/picture/008/save_picture_814767.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Norton AntiVirus 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814765.jpg" />
+  <img src="Z:/picture/008/save_picture_814765.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ K-Lite Mega Codec Pack (x86/x64) 7.1.0 / 4.5.0 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814731.jpg" />
+  <img src="Z:/picture/008/save_picture_814731.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Image Comparer 3.8.711 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814723.jpg" />
+  <img src="Z:/picture/008/save_picture_814723.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Remote Desktop Manager Enterprise 11.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814709.jpg" />
+  <img src="Z:/picture/008/save_picture_814709.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PDF-XChange Editor Plus 8.0.339.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814676.jpg" />
+  <img src="Z:/picture/008/save_picture_814676.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814664.jpg" />
+  <img src="Z:/picture/008/save_picture_814664.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ CPUID HWMonitor 1.31 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814512.jpg" />
+  <img src="Z:/picture/008/save_picture_814512.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1572760   (209561) от 28.08.2022
+
+Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похожа на коктейль [2017, TV, 13 из 13 + 1 SP] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усталый муж возвращается с работы домой, где его уже встречает любящая жена, а на
+столе приготовлен ужин... Стоп-стоп-стоп, в этом аниме все наоборот! Итак, усталая жена
+Тисато возвращается с работы домой, где ее встречает любящий муж Сора, а на столе
+приготовлен... Да, и ужин тоже, но в первую очередь – коктейль! Чаще он бывает(   Читать дальше...   )Производство: Creators in Pack / クリエイターズインパックЖанр: комедия, повседневностьРежиссер: Хирасава ХисаёсиЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Встроенные, Надписи+Полные |Продолжительность: 14 эп. по 3 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645825   (209254) от 11.07.2023
 
 Магазинчик начинающего алхимика | Shinmai Renkinjutsushi no Tenpo Keiei | Management of Novice Alchemist [2022, TV, 12 из 12] BDRip 1080p HEVC 10bit Raw+Rus
@@ -6,7 +35,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209254.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209173.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209093.jpg" />
+  <img src="Z:/picture/005/save_picture_209093.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208895.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208727.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208344.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208181.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207951.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207872.jpg" />
+  <img src="Z:/picture/005/save_picture_207872.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207828.jpg" />
+  <img src="Z:/picture/005/save_picture_207828.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207713.jpg" />
+  <img src="Z:/picture/005/save_picture_207713.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207659.jpg" />
+  <img src="Z:/picture/005/save_picture_207659.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207646.jpg" />
+  <img src="Z:/picture/005/save_picture_207646.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207517.jpg" />
+  <img src="Z:/picture/005/save_picture_207517.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207502.jpg" />
+  <img src="Z:/picture/005/save_picture_207502.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207468.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ Armitage III: Poly Matrix | Армитаж: Полиматрица [1996, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207166.jpg" />
+  <img src="Z:/picture/005/save_picture_207166.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207152.jpg" />
+  <img src="Z:/picture/005/save_picture_207152.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ Armitage III | Армитаж III [1995, OVA, 4 из 4] BDRip 1080p HEVC 10-bit 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207116.jpg" />
+  <img src="Z:/picture/005/save_picture_207116.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Project A-ko | Проект А-ко [1986, Movie] BDRip 1080p HEVC 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206989.jpg" />
+  <img src="Z:/picture/005/save_picture_206989.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Project A-ko 2: Daitokuji Zaibatsu no Inbou | Project A-Ko 2: Plot of the Daitok
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206947.jpg" />
+  <img src="Z:/picture/005/save_picture_206947.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206903.jpg" />
+  <img src="Z:/picture/005/save_picture_206903.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206745.jpg" />
+  <img src="Z:/picture/005/save_picture_206745.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Gigigoegoe seonghyeongsu | Beauty Water | Эликсир красоты [2020, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206728.jpg" />
+  <img src="Z:/picture/005/save_picture_206728.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206653.jpg" />
+  <img src="Z:/picture/005/save_picture_206653.jpg" />
 </div>
 
 
@@ -651,36 +680,6 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89BC5F0789168E9EC63766E59D59A489C36EF6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580915   (206642) от 03.10.2022
-
-Внук мудреца | Kenja no Mago | Wise Man's Grandchild [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень, который внезапно погиб в результате несчастного случая, переродился в другом мире ребёнком. Там его нашёл «мудрец» Мэрлин Уолфорд и назвал парнишку Шином. Мэрлин растил ребёнка как своего собственного внука и обучал, благодаря чему Шин обрёл великую силу. Когда же ему исполнилось пятнадцать, Мэрлин воскликнул: «Я забыл обучить его здравому смыслу!» Так и (   Читать дальше...   )Производство: Япония / Студия Silver LinkЖанр: Комедия, магия, Фэнтези, экшенРежиссер: Тамура МасафумиЯзык озвучки: Русский многоголосый закадровый, Японский
-- (внешним файлом) Ados, Itashi, Malevich, MyAska, Narea, Sharon (AniLibria.TV)
-- (внешним файлом) Токарев В., Мосолова А., Борзова Т., Евтягина И., Ртищева П., Русаков А., Ганджаев И., Породов И., Скиданов А.(Wakanim)Субтитры: Русские (софтсаб полные/надписи)
-- (внешним файлом) (надписи) (AniLibria.TV): Перевод: Nomi. Оформление: Sekai.
-- (внешним файлом) (полные) (SovetRomantica): Перевод: Voyager. Редактура: Hakiri.Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DAF45C43E5A9231B7A5DFB0BFF64F574DD3DE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

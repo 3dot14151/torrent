@@ -1,3 +1,29 @@
+###  Публикация: 1847892   (1052435) от 15.01.2026
+
+Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слушайтесь папу! [2012, TV, 12 эп. + спэшл] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юта Сэгава рано остался сиротой, его вырастила и воспитала старшая сестра Юри. Когда брат пошел в старшую школу, Юри вышла замуж за мужчину с двумя дочерьми (обе от разных браков). Хотя Юта очень любил сестру, он не одобрил этот союз и стал жить отдельно, хотя и не терял контакт с самым близким человеком. Герой окончил школу и поступил в университет. Увы, познавать (   Читать дальше...   )Производство: Япония, FeelЖанр: комедия, драма, повседневностьРежиссер: Кавасаки ИцуроЯзык озвучки: Русский закадровый (AniLibria - Eladiel & Zendos)Продолжительность: ТВ, 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE56A5B0C18C245B72D38026C492D8FAC758AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847731   (1052320) от 14.01.2026
 
 Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госпожа Вампир по соседству [2018, TV, 12 эп.] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052320.jpg" />
+  <img src="Z:/picture/005/save_picture_1052320.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052288.jpg" />
+  <img src="Z:/picture/005/save_picture_1052288.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052065.jpg" />
+  <img src="Z:/picture/005/save_picture_1052065.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051854.jpg" />
+  <img src="Z:/picture/005/save_picture_1051854.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051793.jpg" />
+  <img src="Z:/picture/005/save_picture_1051793.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051519.jpg" />
+  <img src="Z:/picture/005/save_picture_1051519.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050430.jpg" />
+  <img src="Z:/picture/005/save_picture_1050430.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050132.jpg" />
+  <img src="Z:/picture/005/save_picture_1050132.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049697.jpg" />
+  <img src="Z:/picture/005/save_picture_1049697.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049324.jpg" />
+  <img src="Z:/picture/008/save_picture_1049324.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048344.jpg" />
+  <img src="Z:/picture/008/save_picture_1048344.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047837.jpg" />
+  <img src="Z:/picture/008/save_picture_1047837.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047835.jpg" />
+  <img src="Z:/picture/008/save_picture_1047835.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047827.jpg" />
+  <img src="Z:/picture/008/save_picture_1047827.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047641.jpg" />
+  <img src="Z:/picture/008/save_picture_1047641.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047280.jpg" />
+  <img src="Z:/picture/005/save_picture_1047280.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046294.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046291.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046177.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045613.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045453.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044399.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044390.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044010.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043838.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3447068392FEB2299F7B6F2D2AE01ABEF5EFC012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609519   (1043220) от 03.02.2023
-
-Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 13 из 13 + 1 SP] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэйя Каниэ в детстве был знаменитым актером, но потом пережил трагедию и спрятался в образе законченного нарцисса и эгоиста. Красавца-отличника ничто не волнует, хотя… можно и послушать, когда тихая одноклассница Исудзу Сэнто сует тебе в лоб неясно откуда взявшийся старинный мушкет. Так Сэйя узнал о парке развлечений Амаги, оказавшимся анклавом волшебной Кленовой (   Читать дальше...   )Производство: Kyoto Animation / 京都アニメーションЖанр: комедия, фэнтезиРежиссер: Такэмото ЯсухироЯзык озвучки: Японский, русский (Onibaku, Shiza)Субтитры: Русские (YakuSub Studio, Sa4ko aka Kiyoso & Zenobian)Продолжительность: 14 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2801D3171082DDDDE978A8F268044878190685
 ```
 
 https://mybot314.ru/tekegram_catalog/

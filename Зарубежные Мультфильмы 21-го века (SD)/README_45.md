@@ -1,3 +1,107 @@
+###  Публикация: 731408   (292689) от 09.12.2013
+
+Альфа и Омега: Приключения праздничного воя / Alpha and Omega 2: A Howl-iday Adventure (2013) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт и Хамфри и их 3 волчат, готовятся к празднованию их первой совместной зимы, когда их самый маленький детеныш, Рант, таинственным образом исчезает.Жанр: Приключения, КомедияРежиссер: Ричард РичПерсонажи: Бен Дискин, Кейт Хиггинс, Blackie Rose, Lindsay Torrance, Liza West, Трэйси Пфау, Bill Lader, Meryl Leigh, Шон Жерардо, Chris SmithПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253364017E6721E5BC375512F0BD822F3933EA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732389   (292572) от 09.12.2013
+
+Университет монстров / Monsters University (2013) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майк и Салли — самые опытные пугатели в Монстрополисе, но так было далеко не всегда. Когда они встретились впервые, эти монстры терпеть друг друга не могли. «Университет Монстров» — история о том, как наши старые знакомые прошли путь от взаимной неприязни к крепкой дружбе.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, приключенияРежиссер: Дэн СкэнлонАктеры: Джон Гудман, Билли Кристал, Стив Бушеми, Хелен Миррен, Питер Сон, Джоэль Мюррей, Шон Хейс, Дэйв Фоли, Чарли Дэй, Альфред МолинаПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: английский (для слабовидящих), английский, русский, украинскийПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB19B52232556B62E17C0BF3AFBDF42B3B7EEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962808   (292396) от 05.12.2015
+
+Страж-лев: Возвращение Рыка / The Lion Guard: Return of the Roar (2015) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второму детенышу царя зверей Симбы и Налы по имени Кион уготована особая участь в Прайде. Он должен стать на защиту этой территории создав свою львиную гвардию. Именно Кион должен стать защитником Прайда, ведь он овладел могущественным рыком, которым обладали его далекие предки. Однако, вместо того, чтобы взять себе в помощники львов, Кион собирает отряд из других (   Читать дальше...   )Производство: США / Walt Disney Television AnimationЖанр: Приключения, КомедияРежиссер: Хауи ПаркинсПеревод: Одноголосый закадровый, любительскийЯзык субтитров: РусскийПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C525D7ABA4F2F42C42BB6AF49EDC64430AF2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847923   (291465) от 07.12.2014
+
+История игрушек: Время забыть / Toy Story That Time Forgot (2014) HDTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот прошли рождественские праздники, и наши старые друзья попадают в чужой дом, где должны противостоять агрессивным и опасным игрушкам-динозаврам.Производство: США | Pixar Animation StudiosЖанр: мультфильм, короткометражкаРежиссер: Стив ПурселлАктеры: Эмили Хан, Уоллес Шоун, Стив Пурселл, Джонатан Кидд, Дон Риклз, Лори Алан, Тим Аллен, Рон Боттитта, Джоан Кьюсак, Тимоти ДалтонПеревод: Любительский одноголосый - Lord32xПродолжительность: 00:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1310EF5F51185BDB32E9F0B577D76423268CA87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269121   (291051) от 12.12.2010
 
 Даша следопыт: Лучшие Друзья / Dora The Explorer: Best Friends (2009) DVDRip
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291051.jpg" />
+  <img src="Z:/picture/008/save_picture_291051.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290958.jpg" />
+  <img src="Z:/picture/008/save_picture_290958.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) HDRip
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290522.jpg" />
+  <img src="Z:/picture/008/save_picture_290522.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290475.jpg" />
+  <img src="Z:/picture/008/save_picture_290475.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289045.jpg" />
+  <img src="Z:/picture/008/save_picture_289045.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287204.jpg" />
+  <img src="Z:/picture/008/save_picture_287204.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285597.jpg" />
+  <img src="Z:/picture/008/save_picture_285597.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285007.jpg" />
+  <img src="Z:/picture/008/save_picture_285007.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283255.jpg" />
+  <img src="Z:/picture/008/save_picture_283255.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283234.jpg" />
+  <img src="Z:/picture/008/save_picture_283234.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283219.jpg" />
+  <img src="Z:/picture/008/save_picture_283219.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283204.jpg" />
+  <img src="Z:/picture/008/save_picture_283204.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282651.jpg" />
+  <img src="Z:/picture/008/save_picture_282651.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282154.jpg" />
+  <img src="Z:/picture/008/save_picture_282154.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281800.jpg" />
+  <img src="Z:/picture/008/save_picture_281800.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281626.jpg" />
+  <img src="Z:/picture/008/save_picture_281626.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280329.jpg" />
+  <img src="Z:/picture/008/save_picture_280329.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265] [10-bit
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280056.jpg" />
+  <img src="Z:/picture/008/save_picture_280056.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264]
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279965.jpg" />
+  <img src="Z:/picture/008/save_picture_279965.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279494.jpg" />
+  <img src="Z:/picture/008/save_picture_279494.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278062.jpg" />
+  <img src="Z:/picture/008/save_picture_278062.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276915.jpg" />
+  <img src="Z:/picture/008/save_picture_276915.jpg" />
 </div>
 
 
@@ -569,113 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8EB2DC262604312AEDA7283AC3839A84D3169F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265194   (276353) от 26.11.2018
-
-Босс-молокосос / The Boss Baby (2017) DVD5 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта актуальная во все времена история для взрослых и детей рассказывается от лица семилетнего брата новорожденного — фантазера Тима, который ревнует его к родителям. Но главный герой — совсем не простой ребенок, он обладает лидерскими задатками, уже носит деловые костюмы и во всем видит бизнес-задачу.
-Однажды Тим узнает о готовящемся заговоре, целью которого является (   Читать дальше...   )Производство: США / 20th Century Fox, DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Том МакГратПерсонажи: Алек Болдуин, Майлз Кристофер Бакши, Тоби Магуайр, Стив Бушеми, Джимми Киммел, Лиза Кудроу, Конрад Вернон, Джеймс МакГрат, Дэвид Сорен, ВивиЭнн ЙиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994447DF5808F6061A6A95F887FE55B3BA339234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188114   (275432) от 01.12.2017
-
-Дозор джунглей / Les as de la jungle (2017) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пингвин Морис тигрового окраса уверен, что он и в самом деле тигр — герой, в котором нуждаются джунгли. Вместе со своей энергичной командой разношерстных животных под названием «Дозор джунглей» он неусыпно стоит на страже справедливости и покоя. С переменным успехом, конечно, но они стараются. Однако вскоре ему предстоит столкнуться с невероятно коварным и безжалостным (   Читать дальше...   )Производство: Франция / TAT Productions, Master Films, Vanilla Seed, France Télévisions, Centre National de la Cinématographie (CNC), Région Midi-Pyrénées, Procirep, AngoaЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Дэвид АлоАктеры: Пол Борн, Филипп Бозо, Паскаль Касанова, Эммануэль Кюртиль, Мишель Меля, Селин Монсарра, Лоран Морто, Жан-Филипп Пюмартин, Барбара Тиссье, Алексис ТомассианПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC007D78FE86216E6005AA05187C1217CE6AF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188362   (274253) от 02.12.2017
-
-Скуби-Ду! Нападение Меха-Пса / Scooby-Doo! Mecha Mutt Menace (2013) DVDRemux [EN / RU Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команде придется сразиться с Меха-Псом, революционным луноходом на радиоуправлении.Производство: США, Warner Bros. AnimationЖанр: Рисованная анимация, Комедия, ПриключенияРежиссер: Виктор КукАктеры: Мэттью Лиллард, Минди Кон, Фрэнк Уэлкер, Грей ДеЛайл и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: русские, английскиеПродолжительность: 00:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171BA2BB2CFC3FF6FBC34F2155010110623BA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083340   (273125) от 16.12.2016
-
-Аисты / Storks (2016) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.
-
-Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: США / Warner Bros. Pictures, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас Столлер, Даг СвитлэндПерсонажи: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (iTunes)Язык субтитров: Русский (форс., полные) Английский (полные, SDH)Продолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7B4B1ABF921C323CAA206D7DA108B63873CFC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

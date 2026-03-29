@@ -1,3 +1,113 @@
+###  Публикация: 1056103   (484199) от 24.09.2016
+
+1Blocker - Block ads, tracking scripts, anything 1.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484199.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Blocker - блокировка рекламы
+Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23.09.2016Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA14F30FDB1D9417000E0CBD2BA93456207595BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159512   (484155) от 20.08.2017
+
+TotalFinder 1.9.7 beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484155.jpg" />
+</div>
+
+
+###  Подробнее
+
+TotalFinder – это набор полезных утилит, расширяющих исходную функциональность файлового менеджера Mac OS X Finder. Главной особенностью предлагаемого продукта является поддержка вкладок, в которых могут открываться отдельные окна «проводника».
+
+Приложение TotalFinder обладает исключительной производительностью, удобным пользовательским интерфейсом, компактными размерами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 июня 2017Разработчик: BinaryageПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9436869CA964DE92B630215C56F8122CBB47DE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055927   (484103) от 24.09.2016
+
+Тарзан. Легенда / The Legend of Tarzan (2016) WEB-DLRip [480p] iPod
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приспособившийся к жизни в Лондоне Тарзан возвращается в свой бывший дом, в джунгли, чтобы разобраться в том, что происходит в лагере горнодобывающей компании.Производство: США, КанадаЖанр: Боевик, драма, мелодрама, приключенияРежиссер: Дэвид ЙэтсАктеры: Александр Скарсгард, Марго Робби, Сэмюэл Л. Джексон, Кристоф Вальц, Джимон Хонсу, Джим Бродбент, Каспер Крамп, Хэдли Фрайзер, Женевьев О’Рейли, Саймон Расселл БилПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963E7B1C8D2247366708A4E836FBBBE0026889B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056203   (484092) от 24.09.2016
+
+Currencier 2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Currencier: удобный конвертер валют
+Currencier практичный конвертер валют. Приложение, выполненное и в виде виджета для Центра уведомлений, позволяет ввести значение в любой валюте из списка и автоматически получить расчет для других иностранных денежных единиц.
+
+У Currencier есть ряд преимуществ перед аналогами. Во-первых, так как это виджет, интерфейс приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 сентября 2016Разработчик: Vitaly Kuz'menkoПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC0FBCBF92FE1CEBB8A22A4C9C4C937A632BF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055726   (484006) от 24.09.2016
 
 Тарзан. Легенда / The Legend of Tarzan (2016) WEB-DLRip [576p] iPad
@@ -6,7 +116,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484006.jpg" />
+  <img src="Z:/picture/008/save_picture_484006.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Alfred Powerpack 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484005.jpg" />
+  <img src="Z:/picture/008/save_picture_484005.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ Capture One Pro 11 v11.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483866.jpg" />
+  <img src="Z:/picture/008/save_picture_483866.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ SuperDuper! 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483747.jpg" />
+  <img src="Z:/picture/008/save_picture_483747.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ Cookie 6.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483687.jpg" />
+  <img src="Z:/picture/008/save_picture_483687.jpg" />
 </div>
 
 
@@ -141,7 +251,7 @@ Boom 2 v1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483630.jpg" />
+  <img src="Z:/picture/008/save_picture_483630.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ GlueMotion 1..4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483567.jpg" />
+  <img src="Z:/picture/008/save_picture_483567.jpg" />
 </div>
 
 
@@ -196,7 +306,7 @@ Hands Off! 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483435.jpg" />
+  <img src="Z:/picture/008/save_picture_483435.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ Particulars 32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483402.jpg" />
+  <img src="Z:/picture/008/save_picture_483402.jpg" />
 </div>
 
 
@@ -249,7 +359,7 @@ PowerPhotos 2.0.3b1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482496.jpg" />
+  <img src="Z:/picture/008/save_picture_482496.jpg" />
 </div>
 
 
@@ -275,7 +385,7 @@ SiteSucker 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482493.jpg" />
+  <img src="Z:/picture/008/save_picture_482493.jpg" />
 </div>
 
 
@@ -302,7 +412,7 @@ GrandTotal 7 v7.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482492.jpg" />
+  <img src="Z:/picture/008/save_picture_482492.jpg" />
 </div>
 
 
@@ -330,7 +440,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482451.jpg" />
+  <img src="Z:/picture/008/save_picture_482451.jpg" />
 </div>
 
 
@@ -357,7 +467,7 @@ Folder Tidy 2.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482450.jpg" />
+  <img src="Z:/picture/008/save_picture_482450.jpg" />
 </div>
 
 
@@ -384,7 +494,7 @@ SnapMotion Unlimited 5.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482447.jpg" />
+  <img src="Z:/picture/008/save_picture_482447.jpg" />
 </div>
 
 
@@ -413,7 +523,7 @@ rcmd • App Switcher 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482445.jpg" />
+  <img src="Z:/picture/008/save_picture_482445.jpg" />
 </div>
 
 
@@ -439,7 +549,7 @@ MetaImage  2.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482443.jpg" />
+  <img src="Z:/picture/008/save_picture_482443.jpg" />
 </div>
 
 
@@ -466,7 +576,7 @@ SiteSucker Pro 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482441.jpg" />
+  <img src="Z:/picture/008/save_picture_482441.jpg" />
 </div>
 
 
@@ -492,7 +602,7 @@ Yate 6.10.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482440.jpg" />
+  <img src="Z:/picture/008/save_picture_482440.jpg" />
 </div>
 
 
@@ -520,7 +630,7 @@ Permute 3 v3.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482434.jpg" />
+  <img src="Z:/picture/008/save_picture_482434.jpg" />
 </div>
 
 
@@ -546,7 +656,7 @@ Downie 4 v4.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482432.jpg" />
+  <img src="Z:/picture/008/save_picture_482432.jpg" />
 </div>
 
 
@@ -574,7 +684,7 @@ Folder Icons 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482430.jpg" />
+  <img src="Z:/picture/008/save_picture_482430.jpg" />
 </div>
 
 
@@ -585,114 +695,6 @@ Folder Icons 1.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEEF0017886C0BE4407F291C8F5E7C794658ADDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566454   (482340) от 29.07.2022
-
-Disk Graph 2.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Graph - инструмент, который позволяет проверить ваш диск и легко найти файлы, какие занимают большую часть дискового пространства. С его красивым интерфейсом и его подобным кругу графиком, определение местоположения больших файлов никогда не было проще.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2022Разработчик: © 2022 DesairemПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34739E6C85025E0BC7CFD3C1C594920A6065C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545912   (482309) от 11.09.2012
-
-Pixelmator 2.1 [Multi + Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный «прозрачный» интерфейс.
-
-Из особых возможностей Pixelmator отметим функцию «Layer from iSight», которая позволяет пользователям использовать изображение, снятое со встроенной видеокамеры iSight, и панель навигации Photo Browser, обеспечивающую быстрый доступ к библиотекам iPhoto, альбомам и другим элементам в папке Pictures.
-
-Приложение может работать более чем со ста различными форматами файлов графики, включает больше 15 инструментов цветокоррекции и 50 фильтров на базе Core Image, инструменты преобразования, штрихи, градиенты, режим QuickMask, возможность полноэкранного редактирования. Поддерживает Automator, ColorSync, Spotlight и многое другое. (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 09 августа 2012Язык интерфейса: English, French, German, Japanese, Rus (перевод на русский язык - Славышенский Александр)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244169   (482238) от 01.09.2018
-
-BetterTouchTool 2.620 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482238.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterTouchTool удобное приложение, которое позволяет в продвинутом режиме настроить режимы сенсорной панели, многие другие жесты, не предусмотренные инженерами Apple, но отлично распознаваемые самими устройствами. BetterTouchTool-позволяет настраивать множество различных жестов для MagicMouse и MagicTrackpad, дает возможность настраивать действия на тапы в углах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2018Разработчик: Andreas HegenbergПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32DCDD7B050CBBB915414F1CD1F1040293F3800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244316   (482170) от 01.09.2018
-
-WebScraper 4.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482170.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: август 2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50967A2246416534CD225C71A5C5E6CEE19D7585
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 569321   (391114) от 04.11.2012
+###  Публикация: 1172970   (391361) от 10.10.2017
 
-Computer Desktop Wallpapers Collection (02.11.12) [Wallpapers]
+Waterfox 55.2.1 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391114.jpg" />
+  <img src="Z:/picture/008/save_picture_391361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B360FF7F915B526470A2D50CA8510D4D65EA9128
+magnet:?xt=urn:btih:DE23171B5919FF1229D6449A9528BA0E74CE386B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,29 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570254   (391103) от 04.11.2012
+###  Публикация: 570024   (391346) от 04.11.2012
 
-[Wallpapers] Desktop Wallpapers Pack 22
+[Wallpapers] Desktop Wallpapers Pack 12
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391103.jpg" />
+  <img src="Z:/picture/008/save_picture_391346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 22
-Название: Desktop Wallpapers Pack 22
+[Wallpapers] Desktop Wallpapers Pack 12
+Название: Desktop Wallpapers Pack 12
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D630FF55048AF2104B1994F002D232492AB401E
+magnet:?xt=urn:btih:4D178C675B63489860DA83A0FF73A6A7DBA36EA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,114 +54,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173117   (391092) от 10.10.2017
+###  Публикация: 570012   (391345) от 04.11.2012
 
-Wise Care 365 Pro 4.7.3.456 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: русский/английский/украинский/белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AB757232EC4ADAF1E2D856D7971F94C75DA10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173174   (391088) от 10.10.2017
-
-Pale Moon 27.5.1 + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD1B94297CEB7EC83D7B0C54F1C5B0F5558C7AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717819   (391057) от 01.11.2013
-
-Serial Box 11-2013 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391057.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial по состоянию на ноябрь 2013 года.
-В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то,что ищете!Тип издания: OS X SoftwareРелиз состоялся: 1 ноября  2013Разработчик: n/aПоддерживаемая ОС: OS X 10.3.9 or laterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384B88BDD0A33DDED8AFE1C7E2945020DC85C1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570064   (391054) от 04.11.2012
-
-Michael Brant Demaria - Solace (2012) [MP3|320 кб/с]<New age, Relax>
+VA - Anjunabeats Worldwide 301 - with Ost & Meyer (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391054.jpg" />
+  <img src="Z:/picture/008/save_picture_391345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(7:38) 01. Healing Heart
-(4:22) 02. Twilight
-(6:04) 03. Ja-neb'a
-(5:24) 04. Spring of Solace
-(4:52) 05. Gaia
-(5:30) 06. Journey Within
-(9:17) 07. Anam Cara
-(3:30) 08. Danu
-(8:38) 09. The Way Beyond
-(4:44) 10. Asase YaaЖанр: New age, RelaxПродолжительность: 00:59:59
+01. Eric Prydz - Every Day (Original Mix) (Pryda)
+ 02. EDU & Kristoffer Ljungberg - No Monkey Business (Original Mix) (Infrasonic)
+ 03. Mat Zo - I Never Knew (Original Mix) (Facebook Self Released)
+ 04. Jewelz feat. Scott Sparks - Toxic Rush (Original Mix) (Flamingo)
+ 05. Norin & Rad - Devas (Original Mix) (Anjunabeats)
+ 06. Tritonal feat. Jeza - Can't Keep It In (Maor Levis Starlight Remix) (Air Up There)
+ 07. Bluestone - Capetown (Original Mix) (Anjunabeats)
+ 08. Sunny Lax - Isla Margarita (Original Mix) (Anjunabeats)
+ 09. Alex Larichev - Airtone (Original Mix) (Interstate)
+ 10. Cosmic Gate feat. Emma Hewitt - Calm Down (Ost & Meyer Remix) (Black Hole)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B69E04D76994BCB3B56BF1A95F0C1DF9A95DBB9E
+magnet:?xt=urn:btih:2C3DBA91869D90538516827428EC1312ACB3E1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,29 +89,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570252   (391052) от 04.11.2012
+###  Публикация: 570042   (391344) от 04.11.2012
 
-[Wallpapers] Anime Desktop Wallpapers Pack 6
+[Wallpapers] Desktop Wallpapers Pack 16
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391052.jpg" />
+  <img src="Z:/picture/008/save_picture_391344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Anime Desktop Wallpapers Pack 6
-Название: Anime Desktop Wallpapers Pack 6
+[Wallpapers] Desktop Wallpapers Pack 16
+Название: Desktop Wallpapers Pack 16
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х900 - 2560х1600
+Разрешение файлов: 1920x1080 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41C80650525E706F00652669AD61856239171EF8
+magnet:?xt=urn:btih:48762B3940CBF1B6449492CA7F5218946603E7E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,34 +119,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569893   (391048) от 04.11.2012
+###  Публикация: 569946   (391343) от 04.11.2012
 
-VA - Armada Top 15 (2011-2012) [MP3|320 кб/с]<Trance>
+VA - Популярная Топ 100ка 30 (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391048.jpg" />
+  <img src="Z:/picture/008/save_picture_391343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Orjan Nilsen - Go Fast (Original) (8:54)
-02. Matisse & Sadko - Hi Scandinavia (Original) (6:28)
-03. Shogun ft Emma Lock - Run To My Rescue (7:55)
-04. Sean Tyas - Banshee (Original) (7:36)
-05. Solid Globe - North Pole (Giuseppe Ottaviani Remix) (6:47)
-06. Adham Ashraf & Manny Suarez - Mind Seduction (StoneBridge Re-Edit) (5:49)
-07. Mike Foyle pres Statica - Head Rush (Original) (9:00)
-08. The King & The Thief - The Blacksmith (Klauss Goulart Remix) (7:21)
-09. Bas van Essen - Memento (Original) (6:09)
-10. Roger Shah & Ross Lara ft Todd Wright - Lay Down (Roger Shah Mix) (7:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:37
+001. SoundmaniЯ - Твоя Вселенная
+002. Юлия Савичева - Не Уходи
+003. Gallina - Убери Руки
+004. Наталья Бучинская И Петя Черный - Сердце Пой
+005. Манго Манго - Планктон
+006. Инфинити - Я Так Скучаю
+007. А-Студио И Quest Pistols - Медведица
+008. Nikita - Королева
+009. Mary - Забирай Всё
+010. Юрий Титов И Алекса - Мое Счастье(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D286D5B4EDB1EF47C87AFD11278DA8CD12F66593
+magnet:?xt=urn:btih:6AFBF45BD664CC9BF1FAAC8D5F4684CFDE71C0D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,60 +154,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569584   (391047) от 04.11.2012
+###  Публикация: 569988   (391342) от 04.11.2012
 
-Greyson Chance - Hold On 'Til The Night (2011) [MP3|320 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Outside the Lines
-02. Unfriend You
-03. Home Is In Your Eyes
-04. Hold On ‘Til The Night
-05. Heart Like Stone
-06. Little London Girl
-07. Cheyenne
-08. Summertrain
-09. Stranded
-10. Take A Look At Me NowЖанр: PopПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F379F9C692DFC188D7E276BBD92685505D8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570260   (391037) от 04.11.2012
-
-Континентальные Наземные Силы / Continental Ground Forces (04.11.12) [Графика]
+[Wallpapers] Desktop Wallpapers Pack 9
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391037.jpg" />
+  <img src="Z:/picture/008/save_picture_391342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разные Фото Разных Стран которые принимали участие в боевых операций в разных континентов.
+[Wallpapers] Desktop Wallpapers Pack 9
+Название: Desktop Wallpapers Pack 9
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50D30D1639636EC41F0B710966140D1092138A3C
+magnet:?xt=urn:btih:19C2576DE231FF6201A9A8D2185E3BCEE5E01ED1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173176   (391036) от 10.10.2017
+###  Публикация: 150649   (391308) от 06.11.2009
 
-Adobe Flash Player 27.0.0.159 Final [Multi/Ru]
+VA - Digital Fever (2009) [MP3|320 kbps]<Progressive Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391036.jpg" />
+  <img src="Z:/picture/005/save_picture_391308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Жанр: Progressive TranceПродолжительность: 01:21:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:625FDE2A7F106F15E8441FFE57EED85F2684BDA0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,80 +210,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173148   (391032) от 10.10.2017
+###  Публикация: 1173089   (391299) от 10.10.2017
 
-Opera 48.0.2685.39 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E833E74C18B3FEA7E954E564DF74A08720B3F7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173036   (391031) от 10.10.2017
-
-Adobe Flash Player 27.0.0.159 Final [3 в 1] RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB745910B59160FDFE697288B38EA8F919BF80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173094   (391024) от 10.10.2017
-
-DaVinci Resolve Studio 14.0.1+ easyDCP [En]
+iRamDisk 3.6.5 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391024.jpg" />
+  <img src="Z:/picture/008/save_picture_391299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+Cамая функциональная программа для создание RAM-диска из свободного объема оперативной памяти. Поддерживает создание и управление более чем одним диском, автоматическое выполнением команд, автоматическое монтирование, скрытную работу, защиту дисков.
 
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 октября 2017Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+Главное отличие от всех прочих решений — присутствует защита рамдиска от размонтирования в случае сна или падения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2017Разработчик: Michaël ParrotПоддерживаемая ОС: macOS 10.6.6 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7870EC38A8579F01D7C464D5C79729AF3813E37E
+magnet:?xt=urn:btih:0F93A2B296440AAD58D47EB7BAE4EEED65232A58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,34 +238,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570041   (390995) от 04.11.2012
+###  Публикация: 1172925   (391295) от 10.10.2017
 
-The Acacia Strain - Death Is The Only Mortal (2012) [MP3|320 кб/с]<Moshable Metalcore / Deathcore>
+GLXY - Proposition / Mind Less (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390995.jpg" />
+  <img src="Z:/picture/008/save_picture_391295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Doomblade
-02. Our Lady Of Perpetual Sorrow
-03. Go To Sleep
-04. Brain Death
-05. The Mouth Of The River
-06. Dust And The Helix
-07. Victims Of The Cave
-08. Time And Death And God
-09. The Chambered Nautilus
-10. House Of AbandonЖанр: Moshable Metalcore / DeathcoreПродолжительность: 00:45:19
+01. Proposition (feat. James Robb) (Radio Edit) (02:47)
+ 02. Mind Less (feat. Blake) (Radio Edit) (03:09)
+ 03. Proposition (feat. James Robb) (04:58)
+ 04. Mind Less (feat. Blake) (05:19)Жанр: Drum & BassПродолжительность: 00:16:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6397CF3E7650AFBEB2E1F3A0B61775DDF9E64E3A
+magnet:?xt=urn:btih:F55475692AB380D93B881D9016A75C13BAA51AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,26 +267,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570259   (390987) от 04.11.2012
+###  Публикация: 1173078   (391294) от 10.10.2017
 
-Континентальные Воздушные Силы / Continental Air Force (04.11.12) [Графика]
+Sublime Text 3 (3148) Dev [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E7309C9678C1762BC6545B5EC701DA98045D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173039   (391292) от 10.10.2017
+
+Blocs 2.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября 2017Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF36DC7010C5D49899DBA765474D1D20D9EC7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173104   (391290) от 10.10.2017
+
+VA - Autumn 2017: Best Of Inception (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metamorph feat. Shelley Sheree - Wash Your Pain Away (Bee Hunter Remix) 07:10
+02. Alex Bastian - Last Gaze (Original Mix) 07:40
+03. Infinity State - Shinjuku Nights (Original Mix) 06:19
+04. D05 - White Sunset (Poll Morris Remix) 06:50(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BC2C80F8FD51EF72ED83A7FA49CA20BF405A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172956   (391285) от 10.10.2017
+
+GLXY - Butterfly Effect (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly Effect (feat. Visionobi, Hugh Hardie) (05:01)
+ 02. Cylindrical (05:14)
+ 03. Bloo (05:03)
+ 04. Lonely (feat. Belle Humble) (FD's Roll Out Remix) (05:13)Жанр: Drum & BassПродолжительность: 00:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDDE1207995E37E8EC9A5D1DC2BB4E2A939CBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172988   (391284) от 10.10.2017
+
+Stand Up (2017.10.08) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 4)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТ HDЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4349F252A516D06BB1C59BB9B285FEB160B053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172986   (391283) от 10.10.2017
+
+Stand Up (2017.10.08) WEB-DLRip (сезон 7, выпуск 4)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4D5000A7B425B9FCE60D3997A5EF45F2B09152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570015   (391280) от 04.11.2012
+
+Sexy Girls Pack Wallpapers (03.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390987.jpg" />
+  <img src="Z:/picture/008/save_picture_391280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Военно-воздушные силы (флот) (ВВС, ВВФ) — вид Вооруженных сил (ВС) государства, в функции которого входит борьба с противником, находящимся в космосе, воздушном пространстве, на земле, на поверхности моря и под водой, а также транспортировка десанта, доставка имущества и вооружения, воздушная разведка, разведка погоды при помощи летательных аппаратов.
-ВВС являются важным элементом вооружённых сил.
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5315x3543
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA81DFA763C842F614CB9796630BA345E6290451
+magnet:?xt=urn:btih:ECE3F419CCD88640172A064145B5425B1B578C06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,77 +459,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173067   (390975) от 10.10.2017
+###  Публикация: 569984   (391278) от 04.11.2012
 
-Планета обезьян: Война / War for the Planet of the Apes (2017) WEB-DLRip [AVO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Армию генетически модифицированных обезьян ожидает новый вызов: они вынуждены вступить в смертельную схватку с армией людей под руководством безжалостного полковника. После невообразимых потерь среди своих воинов вождь обезьян Цезарь начинает личную борьбу с темными инстинктами и собирается отомстить за весь свой вид. В конце концов он и полковник должны будут сойтись (   Читать дальше...   )Производство: США, Канада, Новая Зеландия, Chernin Entertainment, River Road Entertainment, TSG EntertainmentЖанр: Фантастика, боевик, триллер, драма, приключенияРежиссер: Мэтт РивзАктеры: Энди Серкис, Вуди Харрельсон, Стив Зан, Карин Коновал, Амайя Миллер, Терри Нотари, Тай Олссон, Майкл Адамуэйт, Тоби Кеббелл, Гэбриел Чаварриа ...Перевод: Одноголосый закадровый, А.Важенин (BadBajo), речь обезьян переведена и озвучена!Субтитры: ОтсутствуютПродолжительность: 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7B54420CB4FB859343FCCD90EB7B77155EEF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173124   (390965) от 10.10.2017
-
-Stellar Phoenix Windows Data Recovery Pro 7.0.0.3 RePack by 78Sergey [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Phoenix Windows Data Recovery Professional обеспечивает надежную платформу для пользователей Windows, с легкостью восстанавливая потерянные, удаленные или недоступные текстовые файлы, файлы изображений, мультимедийные файлы видео и аудио, файлы электронной почты Outlook PST и DBX, другую ценную информации из любого Windows-устройства хранения данных. Программное (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784E10FEF85909DA18564AD13BF1BAB48FCE9B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570262   (390927) от 04.11.2012
-
-Мрачное настроение / Компьютерная графика (04.11.12) [Графика]
+[Wallpapers] Desktop Wallpapers Pack 8
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390927.jpg" />
+  <img src="Z:/picture/008/save_picture_391278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В раздаче представлены обои мрачного настроения, в основном, в "хмуром" готическом стиле. Готический стиль - это то, что некогда назвали варварским стилем, а в последующем стало культурным наследием человечества. Готический стиль - стиль сложного психологического состояния. Эта эпоха сформировала особый тип личности: человек, свято веря в загробную жизнь и прилежно трудясь, был мужественным, не боялся смерти, стоически сносил все превратности судьбы. Отражение этой духовной силы и телесной стойкости явно показывают картины, созданные в этом жанре, для которых художники не поскупились на эмоции. Любителям жанра будет на что посмотреть.
+[Wallpapers] Desktop Wallpapers Pack 8
+Название: Desktop Wallpapers Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FB09E8E1A492205DF40DE83DBF3E51159A32172
+magnet:?xt=urn:btih:013266BAE93F44CC84B2AFCDB0213F78FA440665
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,25 +489,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570152   (390913) от 04.11.2012
+###  Публикация: 570016   (391277) от 04.11.2012
 
-Журнал | Сам [Россия] №11 (Ноябрь 2012) [PDF]
+Wallpapers Sexy Girls Pack (03.11.12) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390913.jpg" />
+  <img src="Z:/picture/008/save_picture_391277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сам - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 6000x4500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56C1F115C621BC4A50E0C9E3FE09F1C7FE94FF7B
+magnet:?xt=urn:btih:28BD222C7FBEAB0B5B9374581EAAE2996287E7B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,26 +515,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 717735   (390895) от 01.11.2013
+###  Публикация: 570006   (391276) от 04.11.2012
 
-Книжная серия | Галерея мистики [9 книг] (1992-1994)] [FB2]
+[Wallpapers] Girls Desktop Wallpapers Pack 11
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390895.jpg" />
+  <img src="Z:/picture/008/save_picture_391276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия Галерея мистики примечательна изданием четырехтомника Сакса Ромера, ранее у нас не выходившим (и позднее тоже).
-Тома представляют собой сборники (авторские, или антологии).Формат: FB2
+Разрешение файлов: 1680х1050 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E3A3AB6E4A504918A2EFECB90CD4D9D391BF85
+magnet:?xt=urn:btih:DA3135A7D5FEFC8F8A5DABDB5DB70AE3E3193D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,34 +541,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570163   (390886) от 04.11.2012
+###  Публикация: 570025   (391275) от 04.11.2012
 
-Jethro Tull - Under Wraps (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Prog Rock>
+[Wallpapers] Desktop Wallpapers Pack 13
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390886.jpg" />
+  <img src="Z:/picture/008/save_picture_391275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lap of Luxury (3:34)
-02. Under Wraps #1 (4:02)
-03. European Legacy (3:24)
-04. Later, That Same Evening (3:49)
-05. Saboteur (3:31)
-06. Radio Free Moscow (3:40)
-07. Nobodys Car (4:07)
-08. Heat (5:36)
-09. Under Wraps #2 (2:13)
-10. Paparazzi (3:46)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:07
+[Wallpapers] Desktop Wallpapers Pack 13
+Название: Desktop Wallpapers Pack 13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69A18D73DE528E811DABAF00F9284A3B58CE6F10
+magnet:?xt=urn:btih:9BFA5C7FC45ED201024408D67706067D2E62AC38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,34 +571,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570049   (390881) от 04.11.2012
+###  Публикация: 570028   (391273) от 04.11.2012
 
-VA - Dash Berlin Top 15/20 (2011-2012) [MP3|320 кб/с]<Trance>
+[Wallpapers] Desktop Wallpapers Pack 15
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390881.jpg" />
+  <img src="Z:/picture/008/save_picture_391273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dash Berlin ft Emma Hewitt - Waiting (W&W Remix) (06:16)
-02. Solarstone with Aly & Fila - Fireisland (Extended Mix) (07:41)
-03. Hanski - Resolution (Original Mix) (06:43)
-04. Tomas Heredia - The Witch (Original Mix) (06:52)
-05. Velvetine - The Great Divide (Myon & Shane 54 Summer Of Love Radio Mix) (04:15)
-06. Speed Limits - Here We Are (Original Mix) (05:51)
-07. Flash Brothers ft Meital De Razon - Toxic Submission (Eximinds Dub) (05:06)
-08. Matt Davey - Believe In Me (Original Mix) (07:34)
-09. Stoneface & Terminal - Gallery Of Sound (Club Mix) (08:20)
-10. Solis & Sean Truby ft Andy Tau - Summer Heights (Karanda Remix) (06:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 49:14:42
+[Wallpapers] Desktop Wallpapers Pack 15
+Название: Desktop Wallpapers Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1366х768
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEC94DDA86C1153EDCB6437A798C8782FF707153
+magnet:?xt=urn:btih:2EC335111E2468D58B0BB52367905C76616D1BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +601,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 715409   (390868) от 01.11.2013
+###  Публикация: 570236   (391271) от 04.11.2012
 
-Французский связной 2 / The French Connection II (1975) BDRip [H.264/720p-LQ] [Hi10P]
+[Wallpapers] Desktop Wallpapers Pack 20
 
 >>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390868.jpg" />
+  <img src="Z:/picture/008/save_picture_391271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Боевик, Триллер, Криминал, ДрамаРежиссер: Джон ФранкенхаймерАктеры: Джин Хэкмен, Фернандо Рей, Бернар Фрессон, Жан-Пьер Кастальди, Шарль Мийо, Кэтлин Несбит, Пьер Колле, Александр Фабр, Филипп Леотар, Жак ДинамПеревод: Профессиональный (многоголосый, закадровый), Авторский (одноголосый, закадровый)Язык субтитров: Russian, English, English CommentaryФормат: MKVПродолжительность: 01:59:18
+[Wallpapers] Desktop Wallpapers Pack 20
+Название: Desktop Wallpapers Pack 20
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17D4BB5383E4D48553509C17E43BA6A44AD31D18
+magnet:?xt=urn:btih:A189546D5C86E1F0A76EB45BD9672DB5255B8613
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +631,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570081   (390849) от 04.11.2012
+###  Публикация: 570056   (391270) от 04.11.2012
 
-Журнал | XXL №11 (Украина) [2012] [PDF]
+[Wallpapers] Girls Desktop Wallpapers Pack 12
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390849.jpg" />
+  <img src="Z:/picture/008/save_picture_391270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"XXL"- журнал для самой динамичной мужской аудитории, которую интересует, как получить удовольствие от жизни и как разобраться в огромном потоке полезной информации. Самые свежие и интересные новости авто, моды, эротика, статьи о сексе и многое другое для современных мужчин!Формат: PDF
+Разрешение файлов: 1920x1080 - 2560х1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBE30FC3F9C3973141D7309AC69D81DD6C880FC3
+magnet:?xt=urn:btih:19955D30B131EDFBC6FCEF9A1C43CED8AFE61C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,28 +657,89 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 570226   (390840) от 04.11.2012
+###  Публикация: 570047   (391268) от 04.11.2012
 
-Worlds of Legend: Son of the Empire [En] (RePack) 1993 | RG games/Pilotus
+[Wallpapers] Avto Desktop Wallpapers Pack 3
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390840.jpg" />
+  <img src="Z:/picture/008/save_picture_391268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение игры The Four Crystals of Trazere, вышедшее сначала исключительно на компьютерах Amiga и затем чуть ли не случайно портированное на PC.
-Действие происходит всё в том же мире, только теперь в восточных его регионах (отсюда и смена ландшафта). Цель нового путешествия – сражение с очередными «врагами народа», но детали прояснить не удалось.
-По-прежнему четыре класса персонажей – Убийца, Бард, Варвар и Мастер Рун, по-прежнему можем лишь выбрать пол персонажа и настроить некоторые характеристики, по-прежнему два игровых режима – стратегическая карта с перемещениями и странствия по разным подземельям в изометрии. Важная информация – есть возможность импорта героев из предыдущей части, причём уже с имевшимися на момент окончания игры характеристиками, опытом, золотом и прочим. А можно (и так лучше) создать и развивать с нуля.
-То есть в целом – всё то же самое, занятная, но не слишком понятная и динамичная РПГ. Радует несколько больше первой части потому, что графика очень сильно улучшилась – теперь это чуть (   Читать дальше...   )Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык субтитров: -/-Язык интерфейса: Английский
+[Wallpapers] Avto Desktop Wallpapers Pack 3
+Название: Avto Desktop Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:575AAD973785D151137F5E9456C6D144769177D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570044   (391267) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 17
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391267.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 17
+Название: Desktop Wallpapers Pack 17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F1F63BB83FD428601CB1A678663CAC614A9691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570249   (391266) от 04.11.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 4
+Название: Avto Desktop Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB0D3BBABEC420EA53727B2F8EE9E8A83B38FBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1800491   (15754) от 03.06.2025
+
+VA - Music News For Forum vol.098 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15754.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Enola Cox - Malheureuse (03:05)
+ 002. Aleyna - Wiedersehen (02:18)
+ 003. AMNESIA-17 - Я закидываю (01:49)
+ 004. Ana Mariano - Afinar (Outros) Silencios (03:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A44FE433DA8759D081E4526C47EBD78B86AB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800734   (15565) от 05.06.2025
+
+VA - Music News For Forum vol.099 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. KANARA - Не вспоминая (02:34)
+ 002. 2109 - Загляни мне в душу (03:12)
+ 003. Aikair feat. VIBE KILLA & ПротаGонист & Некий Н. - Врубайся (02:55)
+ 004. Alan Walker - Me Myself and The Night (04:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE81DCE4482CE11B92AC800326304C2CF5536DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800959   (15365) от 07.06.2025
+
+VA - Music News For Forum vol.100 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15365.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firaya - Cherchez la femme (02:07)
+ 002. 3puten - Жара (03:59)
+ 003. 3333 - ken (02:43)
+ 004. AIMALOV - У зеркала (01:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296725F0BE873195346DDE6CC7F49509C903A70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801315   (15150) от 09.06.2025
+
+VA - Musical kaleidoscope part 42 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Sax, Easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ian Otta - Autumn Day
+02 - Aleksey Boychenko - Flight of the Soul
+03 - Aurora Night - Your Love
+04 - Azimov - Midnight(   Читать дальше...   )Жанр: Electronic, Instrumental, Sax, Easy listeningПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE370F8AD3FDDD4D9B135C8B42EACBCCA47B16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801672   (14867) от 12.06.2025
+
+VA - Motivation Mix 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eminem - Lose Yourself (5:26)
+02. JAY-Z, Alicia Keys - Empire State Of Mind (4:36)
+03. Coldplay - A Sky Full of Stars (4:27)
+04. Macklemore, Ryan Lewis, Ray Dalton - Can't Hold Us (feat. Ray Dalton) (4:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B983085694F08ABFB0EE5832AC0D693AC7BE2D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801690   (14836) от 12.06.2025
+
+VA - National Pop Dance Music Vol.107 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Munyon - February Songs (04:47)
+ 002. Alec Benjamin - Lead Me To Water (02:45)
+ 003. Massimo Di Cataldo - Michela (04:41)
+ 004. Calvin Harris - Miracle (03:07)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0FBD9001645B05A6CE22D7B31B6C9A40CD1E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801696   (14822) от 12.06.2025
+
+VA - National Pop Dance Music Vol.109 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14822.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Seventeen - Maestro (03:19)
+ 002. Steely Dan - Black Friday (03:41)
+ 003. Blondino - En Sagittaire (03:24)
+ 004. Fat Mattress - Magic Forest (03:05)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED126DD6D749D2A3E6BCA89A2CF7889054918ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801980   (14627) от 14.06.2025
 
 VA - ЕвроХит Топ 40 Europa Plus 13.06.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +209,7 @@ VA - ЕвроХит Топ 40 Europa Plus 13.06.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14627.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Remix NNM 10 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14597.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ Sonia Elisheva - Compilation (2025) [MP3|320 Kbps] <Other, Electroswing>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14421.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Musical kaleidoscope part 43 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14123.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Music News For Forum vol.101 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14087.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Music News For Forum vol.102 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13880.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - National Pop Dance Music Vol.111 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13872.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Music News For Forum vol.103 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13694.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Musical kaleidoscope part 44 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13561.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Music News For Forum vol.104 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13348.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - National Pop Dance Music Vol.112 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13152.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Music News For Forum vol.106 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12959.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Music News For Forum vol.107 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12760.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Понемногу отовсюду by Yuridar #А-Я (1986-2024) Compilati
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12615.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Assorted Compilation Part 11 (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12551.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Любимые хиты дискотека 80-х (2017) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12503.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Music News For Forum vol.108 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12429.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Music News For Forum vol.105 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12341.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - Music News For Forum vol.109 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12322.jpg" />
 </div>
 
 
@@ -542,209 +745,6 @@ VA - Music News For Forum vol.109 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F3E811BFAFAEEF2D204D886CD8F4C890BE3C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805604   (12306) от 07.07.2025
-
-VA - Дискотека 2025 Dance Club Vol. 229 (2025) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. AELYN - Hypnosis (2:49)
-002. James Hype - Drums (feat. Kim Petras, Tiesto) (2:52)
-003. ONEIL, KANVISE, FAVIA - Another Love (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676A62FCB90AAD33864092E923F95542B88A6666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805795   (12132) от 08.07.2025
-
-VA - Music News For Forum vol.110 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Silence The Echo - Don't Give Up (03:59)
- 002. Adept - Heaven (04:21)
- 003. Adept - YOU (04:24)
- 004. Adina Butar - Escape You (03:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473F140B6379D7E8E46ABB5313456D84395B8CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806279   (11810) от 11.07.2025
-
-VA - Music News For Forum vol.111 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elena Khozberg - Помнишь когда 2.0 (02:46)
- 002. 2hug - In Da Club (01:39)
- 003. 2hug - Двигаться (01:59)
- 004. 2hug - Квартал (01:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456B2AB9EC97070E18AF740C5C8DB1395AD66C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806412   (11694) от 12.07.2025
-
-VA - Music News For Forum vol.112 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11694.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daria Bis - Будем танцевать (03:00)
- 002. 5opka & MellSher - Репит (02:46)
- 003. 10AGE - Проблемы (02:03)
- 004. 163ONMYNECK, Polyana, JDM VIBE, Славный Приход, ICYBANDO, HIMWAY, R1one - Крутка (03:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFA6984630CFF204BEC4F64E83EE7994689EAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806635   (11519) от 14.07.2025
-
-VA - Music News For Forum vol.113 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11519.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MARI KRASSO - I Wanna Stop My Mind (05:47)
- 002. Adette - Расскажи (02:05)
- 003. AFROZO & KENSHI - Counting Stars (02:41)
- 004. ALASKA QUARTER - Фаворит (02:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A427E839EAAE9C84492433262843058BF9FD6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800464   (11340) от 16.07.2025
-
-VA - Breaking Bad & Better Call Saul (2008-2022) [MP3|320 Kbps] <Soundtrack>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unofficial Soundtrack01. Dave Porter - Breaking Bad Main Title Theme
-02. Anita Tijoux - 1977
-03. Thievery Corporation - All That We Perceive
-04. JJ Cale - Anyway The Wind Blows(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 05:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C33CD00E7C27495A05B70CEDD36CCBA116F35E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806986   (11295) от 16.07.2025
-
-VA - Music News For Forum vol.114 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мария Ечина - Bella amore (02:54)
- 002. Adame - Supernova (02:23)
- 003. Adina Butar - Escape You (Extended Mix) (05:40)
- 004. Adlerworship - Дух Святой, приди (06:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519DB7236A3F26D1451AFFA75E5B94C70D311B05
 ```
 
 https://mybot314.ru/tekegram_catalog/

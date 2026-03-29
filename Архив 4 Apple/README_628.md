@@ -1,3 +1,109 @@
+###  Публикация: 1675002   (160686) от 07.11.2023
+
+Boxy SVG 4.15.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520B903444F557DF1DFB7B067FA7DC2F3023B2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674986   (160681) от 07.11.2023
+
+SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160681.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD0EFC197D23BD832553264299A28B1B00BBD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674989   (160680) от 07.11.2023
+
+Slidepad 1.4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160680.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB157676EB9D9250118218FB6A09712AF9D0FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674944   (160670) от 07.11.2023
+
+Privatus 7.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5D693534AD36C3975BEA128A1120126638E53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675009   (160659) от 07.11.2023
 
 FonePaw iOS Transfer for Mac 5.7.0 [Multi]
@@ -6,7 +112,7 @@ FonePaw iOS Transfer for Mac 5.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160659.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Be Focused Pro - Focus Timer 2.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160657.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Barcode 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160651.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Logic Pro X 10.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160597.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Bartender 5 v.5.0.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160533.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ QLab 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160481.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Deckset 2.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160479.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ Dash 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160478.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Print to PDF Pro for Mac 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160475.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Marked 2 - Markdown Preview 2.6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160474.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160470.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ JixiPix Artista Impresso Pro 1.8.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160463.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ DxO FilmPack 7 for Mac v.7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160460.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ Sublime Text 4.0 Build 4164 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160458.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ BBEdit 14.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160444.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ Eassiy Data Recovery for Mac 5.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160442.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ Topaz Video AI for Mac 4.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160440.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ Sketch 99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160423.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160422.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ Path Finder 2163 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160417.jpg" />
 </div>
 
 
@@ -538,7 +644,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160399.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ Paste 4 v.4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160383.jpg" />
 </div>
 
 
@@ -576,112 +682,6 @@ Paste 4 v.4.1.2 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8790D0EF152D1823B3634051886875E0A1ABDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675380   (160322) от 09.11.2023
-
-Vellum 3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2022 180gПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8882658C345B785E7AFE084ABC9DC1332DE9AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675385   (160320) от 09.11.2023
-
-Native Instruments Komplete Kontrol 3.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160320.jpg" />
-</div>
-
-
-###  Подробнее
-
-KOMPLETE KONTROL — это простой в использовании инструмент, который упорядочивает ваш рабочий процесс. Он упорядочивает все ваши инструменты, эффекты, пресеты, лупы и сэмплы, разумно сопоставляя все с вашим оборудованием, чтобы вы могли находить, воспроизводить и настраивать все свои звуки в одном месте. Этот плагин работает в любой DAW и без проблем работает с любым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2021 Native Instruments GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B78A2CC1F18B5C1D4BA0770D29E0623D12F4291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675406   (160318) от 09.11.2023
-
-PowerPhotos 2.5.3 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160318.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEA04011DC2CCA9205B6027027401E99C297F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675384   (160315) от 09.11.2023
-
-Xliff Editor 2.9.14 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C639AFED3F2153E4D2528F0772ADC13F42C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

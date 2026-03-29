@@ -1,3 +1,108 @@
+###  Публикация: 982165   (721488) от 06.06.2016
+
+Территория (2014) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Территория — это место, где люди проверяются на прочность. Необозримые пространства, где тундра встречается с ледяными торосами Ледовитого океана. Суровый русский север, которому способны бросить вызов немногие. Геолог Илья Чинков, одержимый идеей найти легендарное золото Территории, собирает команду смельчаков, готовых поставить на карту все, включая собственные (   Читать дальше...   )Производство: РоссияЖанр: Драма, ПриключенияРежиссер: Александр МельникАктеры: Константин Лавроненко, Григорий Добрыгин, Егор Бероев, Ксения Кутепова, Евгений Цыганов, Владислав Абашин, Герасим Васильев, Константин Шелестун, Константин Балакирев, Олег ШапковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 02:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20342B8320F7FDEBC951F74F6691C2841975A349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023857   (721485) от 06.06.2016
+
+Acronis True Image 19.0.6571 / Universal Restore 11.5.40028 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis BootCD - загрузочный диск, содержащий пакет последних версий трех наиболее популярных программ компании Acronis - Acronis True Image, Acronis Disk Director и Acronis Universal Restore, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB477E8B1277ABB5A43E942C0778A88D410F8FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285373   (720669) от 26.02.2019
+
+Очередное достижение: 1000 релизов от Stranger-13 !!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_720669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ряды релизеров-тысячников пополнились.
+Встречайте и поздравьте Stranger-13Но трекер выдает в ответ "Не найдено". Это потому, что человек этот скромный и застенчивый.А мы не стесняемся поздравить его и найдем слова благодарности за работу на благо Клуба!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400411   (720613) от 04.08.2020
+
+ABBYY Lingvo X6 Professional 16.2.2.133 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программный пакет ABBYY Lingvo отличают богатейшая лексическая база и множество функций для удобного и качественного перевода. С ABBYY Lingvo миллионы пользователей во всем мире смогли убедиться, что профессиональный перевод слов и фраз за считанные секунды – это реальность. Новая версия словаря ABBYY Lingvo x6 воплотила расширенные, в том числе и интерактивные, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F79F38A7BDFE7DB40FB9B78BF412C7E27256C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173613   (720612) от 04.08.2020
 
 Подшивка журналов | Оружие (2017-2020) [PDF]
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720612.jpg" />
+  <img src="Z:/picture/008/save_picture_720612.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Windows 7 SP1 4in1 (x64) Elgujakviso Edition (v.25.02.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720384.jpg" />
+  <img src="Z:/picture/008/save_picture_720384.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720380.jpg" />
+  <img src="Z:/picture/008/save_picture_720380.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719730.jpg" />
+  <img src="Z:/picture/008/save_picture_719730.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719688.jpg" />
+  <img src="Z:/picture/008/save_picture_719688.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Daum PotPlayer 1.7.10667 Stable RePack (& portable) by 7sh3 (06.04.2018) [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718977.jpg" />
+  <img src="Z:/picture/008/save_picture_718977.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718575.jpg" />
+  <img src="Z:/picture/005/save_picture_718575.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ ITVDN | Подборка учебных курсов IT специальност
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718512.jpg" />
+  <img src="Z:/picture/008/save_picture_718512.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718465.jpg" />
+  <img src="Z:/picture/005/save_picture_718465.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718464.jpg" />
+  <img src="Z:/picture/005/save_picture_718464.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ Android сертифицирована FIDO2 - пользователей изб
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718374.jpg" />
+  <img src="Z:/picture/005/save_picture_718374.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack R.G. Origami [Delux
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717873.jpg" />
+  <img src="Z:/picture/008/save_picture_717873.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Portable by conservator [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717867.jpg" />
+  <img src="Z:/picture/008/save_picture_717867.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717856.jpg" />
+  <img src="Z:/picture/005/save_picture_717856.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717038.jpg" />
+  <img src="Z:/picture/005/save_picture_717038.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716896.jpg" />
+  <img src="Z:/picture/008/save_picture_716896.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716894.jpg" />
+  <img src="Z:/picture/008/save_picture_716894.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ DFX Audio Enhancer 11.400 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716826.jpg" />
+  <img src="Z:/picture/008/save_picture_716826.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716613.jpg" />
+  <img src="Z:/picture/005/save_picture_716613.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ Twonky Media Server 8.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716550.jpg" />
+  <img src="Z:/picture/008/save_picture_716550.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716444.jpg" />
+  <img src="Z:/picture/008/save_picture_716444.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716438.jpg" />
+  <img src="Z:/picture/005/save_picture_716438.jpg" />
 </div>
 
 
@@ -574,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285917   (716437) от 28.02.2019
-
-Ракета «Союз» вывела на орбиту британские спутники связи OneWeb
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская ракета-носитель «Союз-СТ-Б», стартовавшая в четверг в 00:37 мск с космодрома Куру во Французской Гвиане, вывела на орбиту Земли шесть спутников связи британской компании OneWeb. Об этом сообщила компания Arianespace, обслуживающая запуски с космодрома.На расчетную орбиту 1200 км над поверхностью Земли спутники вывел ​разгонный блок «Фрегат» (четвертая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531917   (716308) от 18.02.2022
-
-Очередное достижение: 3000 релизов от Georgiiy!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716308.jpg" />
-</div>
-
-
-###  Подробнее
-
- Очередное достижение: 3000 релизов от Georgiiy Дорогие друзья и гости клуба... И вновь Я с хорошими новостями.
-Модератор, реставратор, uploader 100+  да и в целом замечательный человек:
-Georgiiy пополнил трекер новой тысячью отборного, качественного бесплатного ПО.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285844   (716282) от 28.02.2019
-
-Volvo и Google выпустили конкурента Tesla Model 3
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_716282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Volvo в рамках бренда Polestar представила свой первый полностью электрический автомобиль Polestar 2, заявленный как конкурент Model 3 от Tesla Илона Маска. Седан разработан в сотрудничестве с Google — в нём используется специальная версия операционной системы Android с интегрированными сервисами поискового гиганта.Polestar 2 снабдили двумя электромоторами (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249886   (716265) от 28.02.2019
-
-Pathfinder: Kingmaker (2018) [Ru/Multi] (1.2.5/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая изометрическая партийная ролевая игра во вселенной Pathfinder. Насладитесь классическим игровым процессом, вдохновлённым такими играми, как Baldur's Gate и Neverwinter Nights. Исследуйте земли, завоюйте их и сделайте своим королевствомТип издания: LicenseРазработчик: Owlcat GamesЖанр: RPG, Adventure, IsometricsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3DB09C88A5A08F50EADC4C28E9978E963F94D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

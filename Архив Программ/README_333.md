@@ -6,7 +6,7 @@ Reason Studios Reason 12.2.0 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884008.jpg" />
+  <img src="Z:/picture/005/save_picture_884008.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ IrfanView 4.42 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883938.jpg" />
+  <img src="Z:/picture/005/save_picture_883938.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Norton Internet Security 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883936.jpg" />
+  <img src="Z:/picture/005/save_picture_883936.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Total Commander 8.52a TC VIM 12 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883904.jpg" />
+  <img src="Z:/picture/005/save_picture_883904.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883878.jpg" />
+  <img src="Z:/picture/005/save_picture_883878.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Firefox Browser 74.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883857.jpg" />
+  <img src="Z:/picture/005/save_picture_883857.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Mozilla Firefox Quantum ESR 68.6.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883854.jpg" />
+  <img src="Z:/picture/005/save_picture_883854.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.37 (3/11/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883831.jpg" />
+  <img src="Z:/picture/005/save_picture_883831.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Acronis Backup Advanced Workstation / Server 11.7.44411 + BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883825.jpg" />
+  <img src="Z:/picture/005/save_picture_883825.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ DevExpress Universal Complete 15.2.5 Build 20160129 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883815.jpg" />
+  <img src="Z:/picture/005/save_picture_883815.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ oMega Commander 3.0.47 Build 5687 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883791.jpg" />
+  <img src="Z:/picture/005/save_picture_883791.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Realtek High Definition Audio Driver 6.0.9205.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883779.jpg" />
+  <img src="Z:/picture/005/save_picture_883779.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Complete Internet Repair 5.2.3.4060 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883750.jpg" />
+  <img src="Z:/picture/005/save_picture_883750.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883615.jpg" />
+  <img src="Z:/picture/005/save_picture_883615.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Advanced SystemCare Pro 14.6.0.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883592.jpg" />
+  <img src="Z:/picture/005/save_picture_883592.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ WinUtilities Professional Edition 14.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883509.jpg" />
+  <img src="Z:/picture/005/save_picture_883509.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Sumatra PDF 3.3.12434 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883501.jpg" />
+  <img src="Z:/picture/005/save_picture_883501.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Unreal Commander 3.57 Build 1457 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883500.jpg" />
+  <img src="Z:/picture/005/save_picture_883500.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ UninstallView 1.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883498.jpg" />
+  <img src="Z:/picture/005/save_picture_883498.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ MediBang Paint Pro 25.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883494.jpg" />
+  <img src="Z:/picture/005/save_picture_883494.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MKVToolNix 45.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883485.jpg" />
+  <img src="Z:/picture/005/save_picture_883485.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Bigasoft Video Downloader Pro 3.13.7.6249 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883435.jpg" />
+  <img src="Z:/picture/005/save_picture_883435.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ SlimComputer 1.0.4 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_883414.jpg" />
+  <img src="Z:/picture/009/save_picture_883414.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ HandBrake 1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883395.jpg" />
+  <img src="Z:/picture/005/save_picture_883395.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ SamDrivers 20.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883394.jpg" />
+  <img src="Z:/picture/005/save_picture_883394.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ inPixio Photo Editor 10.1.7389 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883392.jpg" />
+  <img src="Z:/picture/005/save_picture_883392.jpg" />
 </div>
 
 

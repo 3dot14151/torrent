@@ -6,7 +6,7 @@ QR Factory 2.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864633.jpg" />
+  <img src="Z:/picture/008/save_picture_864633.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Thorbjorn Risager & The Black Tornado - Change My Game (2017) [FLAC|Lossless|ima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864631.jpg" />
+  <img src="Z:/picture/008/save_picture_864631.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ xrecode II 1.0.0.230 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864624.jpg" />
+  <img src="Z:/picture/008/save_picture_864624.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Subsonik - Spectre EP (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864623.jpg" />
+  <img src="Z:/picture/008/save_picture_864623.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ TheWorld Browser 7.0.0.106 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864619.jpg" />
+  <img src="Z:/picture/008/save_picture_864619.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ AdwCleaner 5.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864613.jpg" />
+  <img src="Z:/picture/008/save_picture_864613.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ WinScan2PDF 3.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864612.jpg" />
+  <img src="Z:/picture/008/save_picture_864612.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864611.jpg" />
+  <img src="Z:/picture/008/save_picture_864611.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Cent Browser 1.8.9.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864610.jpg" />
+  <img src="Z:/picture/008/save_picture_864610.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864597.jpg" />
+  <img src="Z:/picture/008/save_picture_864597.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Windows and Office Genuine ISO Verifier v10.10.22.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864583.jpg" />
+  <img src="Z:/picture/008/save_picture_864583.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MediaHuman YouTube Downloader 3.9.9.61 (2109) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864581.jpg" />
+  <img src="Z:/picture/008/save_picture_864581.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ iThoughtsX 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864548.jpg" />
+  <img src="Z:/picture/008/save_picture_864548.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864540.jpg" />
+  <img src="Z:/picture/008/save_picture_864540.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Future Trance 79 (Mixed by Alex Megane) (2017) [MP3|320 Kbps] <House, Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864536.jpg" />
+  <img src="Z:/picture/008/save_picture_864536.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Wise Program Uninstaller 1.99.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864531.jpg" />
+  <img src="Z:/picture/008/save_picture_864531.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Pedro Del Mar - Mellomania Vocal Trance Anthems 146 (28-02-2011) [MP3|256 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864524.jpg" />
+  <img src="Z:/picture/008/save_picture_864524.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Glarysoft Malware Hunter 1.6.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864509.jpg" />
+  <img src="Z:/picture/008/save_picture_864509.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ El Capitan Cache Cleaner 10.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864505.jpg" />
+  <img src="Z:/picture/008/save_picture_864505.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864504.jpg" />
+  <img src="Z:/picture/008/save_picture_864504.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864503.jpg" />
+  <img src="Z:/picture/008/save_picture_864503.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Insofta Cover Commander 3.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864500.jpg" />
+  <img src="Z:/picture/008/save_picture_864500.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ NetSetMan 4.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864496.jpg" />
+  <img src="Z:/picture/008/save_picture_864496.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FKA twigs - M3LL155X (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864491.jpg" />
+  <img src="Z:/picture/008/save_picture_864491.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ XnView Classic 2.50.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864462.jpg" />
+  <img src="Z:/picture/008/save_picture_864462.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ The Town of Light (2016) [Multi] (2.2) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864461.jpg" />
+  <img src="Z:/picture/008/save_picture_864461.jpg" />
 </div>
 
 

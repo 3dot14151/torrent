@@ -1,3 +1,465 @@
+###  Публикация: 1110312   (853475) от 02.03.2017
+
+VA - Зайцев.Нет: Музыка весны (2017) [MP3|192-320 Kbps] <Поп, Рок, Рэп, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853475.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный плейлист включены самые весенние композиции - от классических произведений Шопена и Микаэла Таривердиева до современной R&B-музыки Rihanna и хип-хопа Kendrick Lamar. Широкий спектр жанров объединяет одно желание: поскорее избавиться от зимних оков и настроиться на ритм самого безумного и яркого времени года.01.  Рок-Острова - Весна  4:11
+02.  Frank Sinatra - It Might As Well Be Spring  3:17
+03.  5'nizza - Весна  4:20
+04.  Гарик Сукачев и Неприкасаемые - За окошком месяц май  4:08(   Читать дальше...   )Жанр: Поп, Рок, Рэп, ШансонПродолжительность: 03:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBB87AD7A91509976325D107539DA46C43D5136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377405   (853406) от 21.04.2020
+
+VA - 80s Pop Rock (2020) [MP3|320 Kbps] <Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. a-ha - Take On Me 3:48
+02. The Police - Every Breath You Take 4:11
+03. U2 - Pride (In The Name Of Love) (Remastered 2009) 3:48
+04. Philip Bailey & Phil Collins - Easy Lover 5:06(   Читать дальше...   )Жанр: Pop RockПродолжительность: 04:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F083B1D37088F0646098F4D56390E24E5268B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377383   (853272) от 21.04.2020
+
+VA - 100% Classic metal (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disturbed - Down with the Sickness
+02. Metallica - Master Of Puppets (Remastered)
+03. Black Sabbath - Paranoid
+04. Overkill - Coma(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AE670AB954987D153A97A27F3D7FE7A6297604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377331   (853263) от 21.04.2020
+
+VA - Enigmatic Vibes (2020) [MP3|320 Kbps] <Enigmatic, New age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wise Hand - Manschoud
+02. Mythos - Brazil
+03. Shinnobu - Warriors Of Light
+04. Mythos - June(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 03:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BF044E09D4EE79593A45B216BBD7445BFC3A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770029   (853190) от 24.03.2014
+
+VA - The Official UK Top 40 Singles Chart (23-03-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь. А новинки под спойлером NEW.01. Duke Dumont Feat Jax Jones - I Got U  (4:46)
+02. Route 94 Feat Jess Glynne - My Love  (4:22)
+03. John Legend - All Of Me  (4:30)
+04. Pharrell Williams - Happy  (3:53)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1419A73E1E48F1F8631ECF7CB7D916877DFAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377083   (853154) от 21.04.2020
+
+Whitesnake - 100% Whitesnake (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. Bad Boys (2007 Remastered Version)
+03. Is This Love (2007 Remastered Version)
+04. Here I Go Again(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E165B666446DA2B0A56A79E9D4D4BAE6D2BE9C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377028   (853151) от 21.04.2020
+
+Axel Rudi Pell - 100% Axel Rudi Pell (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clown Is Dead
+02. The Crusaders of Doom
+03. The Line
+04. Mistreated (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF17345EBF6DD384E78AD81DED383FF38C2A618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377289   (853150) от 21.04.2020
+
+Judas Priest - 100% Judas Priest (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hellion
+02. Electric Eye
+03. Metal Meltdown
+04. Freewheel Burning(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C73479D3145D8822A3396162785179BA2FC949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377161   (853138) от 21.04.2020
+
+Accept - 100% Accept (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_853138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balls to the Wall
+02. London Leatherboys
+03. Fight It Back (Album Version)
+04. Head Over Heels(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48202C769CCE8BF394AC1B658B0AC3487DF0B05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648542   (852961) от 25.04.2013
+
+VA - Рок в Авто (vol. 11) (2013) [MP3|320 кб/с]<Power Metal, Alternative Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of Seasons - Bubonic Waltz
+ 02. Visions Of Atlantis - Machinage
+ 03. Casus Belli - Mirror Out Of Time
+ 04. Sonata Arctica - Victoria's Secret(   Читать дальше...   )Жанр: Power Metal, Alternative Metal, Heavy MetalПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF6AFBA484256CF36DA2D4F99D0BE38DDEA8F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001508   (852299) от 29.03.2016
+
+VA - Sunrise Lovers Vol.4 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Pearce - Rocket Man
+02. Jessica Hathaway - Like a Virgin
+03. James Walden - Europa
+04. Lounge Surfers - Holding Back the Years(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8A89296AF166D73BE2FD5C24CE527381984EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001593   (852296) от 29.03.2016
+
+VA - 100 Fragments Of The Sun: Progressive Trance Compilation (2016) [MP3|320 кб/с] <Electro, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852296.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Klingle - Epilogue (Radio Mix)
+002. Gopar - Brighter Than Light (David Surok Remix)
+003. Mailman - Dream About Love ( Luca De Maas Remix)
+004. Armin Van Buuren Pres Gaia - Status Excessu D (Original Mix)(   Читать дальше...   )Жанр: Electro, Progressive TranceПродолжительность: 09:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A94703408A82CB0C481240F6D5C3ED564FC4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001714   (852294) от 29.03.2016
+
+Серж Мэй - Память (2012) [MP3|160 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На централе
+02. Уходит на волю браток
+03. Это память моя
+04. Цвет вишни(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E05FAD6B09CCA0ED812B2E216DEFEF1D227626D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001640   (852293) от 29.03.2016
+
+VA - Dange TV 1 (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Swanky Tunes - At The End Of The Night (feat. C. Todd Nielsen)Жанр: Dance, Club, Electro HouseПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BDB6CDEA47D6AD792D557D67E9A67BFDFAC96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001812   (852291) от 29.03.2016
+
+VA - Super Bomb Electro 57 (2016) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACTI & Done Heavy — Ravelation (Original Mix) (4:29)
+ 02. Aspyer feat. Chris Reeder — Tear It Down (Original Mix) (3:49)
+ 03. Autoerotique — Ratchet (Original Mix) (3:33)
+ 04. AvAlanche — Jungleland (Original Mix) (4:56)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DDBD3948C949C0227784D97D581C2C3A2AEB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001677   (852284) от 29.03.2016
+
+Борис Рахлин - Для друга Миши (1970) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро+Пусть догорает вечер
+02. Назревал глухой скандал
+03. Чудный лес
+04. Костюмчик серенький(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D9EA90D9A7A4D95D9CA81E7F9B987BC34BA3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110560   (852274) от 03.03.2017
 
 VA - Electro Story Grounds (2017) [MP3|320 Kbps] <House, Trance, Club, Dance>
@@ -6,7 +468,7 @@ VA - Electro Story Grounds (2017) [MP3|320 Kbps] <House, Trance, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852274.jpg" />
+  <img src="Z:/picture/008/save_picture_852274.jpg" />
 </div>
 
 
@@ -35,7 +497,7 @@ VA - In Love (2017) [MP3|320 Kbps] <Pop, Lounge, Soul, Easy Listening>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852267.jpg" />
+  <img src="Z:/picture/008/save_picture_852267.jpg" />
 </div>
 
 
@@ -64,7 +526,7 @@ VA - St. Moritz: Make Me Disco (2017) [MP3|320 Kbps] <Dance, nu-disco, deep-hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852169.jpg" />
+  <img src="Z:/picture/008/save_picture_852169.jpg" />
 </div>
 
 
@@ -93,7 +555,7 @@ VA - Ресторан Кураж весенний. Выпуск №6 (2017) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852166.jpg" />
+  <img src="Z:/picture/008/save_picture_852166.jpg" />
 </div>
 
 
@@ -122,7 +584,7 @@ VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Ha
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852100.jpg" />
+  <img src="Z:/picture/008/save_picture_852100.jpg" />
 </div>
 
 
@@ -151,7 +613,7 @@ VA - Танцевальная вечеринка от Хит FM выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852094.jpg" />
+  <img src="Z:/picture/008/save_picture_852094.jpg" />
 </div>
 
 
@@ -180,7 +642,7 @@ VA - Лучшие блатные хиты года на Шансоне. Выпу
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852090.jpg" />
+  <img src="Z:/picture/008/save_picture_852090.jpg" />
 </div>
 
 
@@ -209,7 +671,7 @@ VA - Popular Pikachu Chart (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852087.jpg" />
+  <img src="Z:/picture/008/save_picture_852087.jpg" />
 </div>
 
 
@@ -238,7 +700,7 @@ VA - Весна пришла. Лучшие хиты. Сборник № 10 (2017
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852078.jpg" />
+  <img src="Z:/picture/008/save_picture_852078.jpg" />
 </div>
 
 
@@ -267,7 +729,7 @@ VA - Instrumental Covers (Chillout, Lounge, Nu Jazz, Bossa Versions of Pupolar H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852044.jpg" />
+  <img src="Z:/picture/008/save_picture_852044.jpg" />
 </div>
 
 
@@ -281,467 +743,6 @@ VA - Instrumental Covers (Chillout, Lounge, Nu Jazz, Bossa Versions of Pupolar H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC092670EA5D180A3B0D80B0D9CE95B11DB5E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001342   (851924) от 29.03.2016
-
-AC/DC - Bedlam In Belgium (2016) EP [MP3|320 кб/с] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Shake Your Foundations
-02 – The Furor
-03 – Danger
-04 – Burnin’ Alive(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110375   (851912) от 03.03.2017
-
-Buddy Guy - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Love
-02. I Smell A Rat
-03. Now You're Gone
-04. First Time I Met The Blues(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 05:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F8E6D9FF12A92043B0FB7CA4FC0406343867A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110590   (851838) от 03.03.2017
-
-Eric Clapton - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Father's Eyes
-02. Still Got The Blues
-03. See What Love Can Do
-04. Worried Life Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545FF43D4F81EC5A4F196DF3249C1241D6AF0630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110655   (851772) от 03.03.2017
-
-Михаил Шуфутинский - Ресторанный хит (2016) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наколочка
-02. Марджанджа
-03. Незаконченный роман
-04. Левый берег Дона(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195E5E74AD1255BBA8AFB6B4A85E2FD57A359C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378639   (851753) от 03.03.2017
-
-VA - Arabic Music {2011} [MP3|160 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 10:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D604518412589175E54A797585CC5F5B4162F53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376727   (851739) от 22.04.2020
-
-VA - Great Artists of My Heart Vol. 02 (2020) [MP3|320 кб/с]<Modern Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851739.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Great Artists of My Heart" это спин-офф сборника01. The Unguided - Inherit The Earth (04:47)
-02. The Unguided - Inception (03:51)
-03. The Unguided - Enraged (04:23)
-04. The Unguided - Death's Sting (03:49)(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 08:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D624758DE2F2EF605C6DC800637B2515ECA1F0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377643   (851637) от 22.04.2020
-
-VA - Hard Rock Ballads (2020) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - Never Say Goodbye 4:49
-02. Guns N' Roses - Don't Cry (Original) 4:45
-03. Whitesnake - Is This Love (2017 Remaster) 4:45
-04. Def Leppard - Hysteria 5:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA73C0E69D84804C13F4E15085049B5150EBD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377587   (851634) от 22.04.2020
-
-Motley Crue - 100% Motley Crue (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dirt (Est. 1981)Жанр: Rock, Hard Rock, MetalПродолжительность: 03:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB191FCA402841DDDF5660F8225CFC5B1A50E10E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377546   (851632) от 22.04.2020
-
-Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Don't Know (Sure Can Hurt You)
-02. Bad Boys (Of Rock 'N' Roll) (Remastered Version)
-03. Run for Your Life
-04. Shoot 'Em Down(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 03:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E68019FFB49AC6BAC8906F0F8F9D07DD0321D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191538   (851567) от 12.04.2010
-
-VA - Mystic (2006) [MP3|256 kbps]<Worldbeat, Chillout, New Age, Ethnic Fusion>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wendy Stark - Animus Anima
-02. Phil Thornton - The Mask of Seduction
-03. Midori - Mercy on Me
-04. John Richardson – Benedictions
-05. Wendy Stark - Child Of Transference
-06. Midori - Ancient Ways
-07. Phil Thornton - Kiss of the Sorcerer
-08. Wendy Stark – ReflectionЖанр: Worldbeat, Chillout, New Age, Ethnic FusionПродолжительность: 05:01:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377516   (851507) от 22.04.2020
-
-John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (2010 Mix)
-02. Jealous Guy (Remastered 2010)
-03. (Just Like) Starting Over
-04. Watching The Wheels(   Читать дальше...   )Жанр: RockПродолжительность: 06:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377608   (851500) от 22.04.2020
-
-VA - Circle of Life (Native American Music) (2020) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Dog Dance
-02. Existence; RodrigoGomes; ChristianTeele; ChrisEngelman; JosephFirecrow; Se-Chen-Ko; LeonardPeltier; MargotReisinger - First Nations Flute Player
-03. Big City Indians - May You Walk (Roussinoff Remix)
-04. A Tribe Called Red - Electric Intertribal (Feat. Smoke Trail)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 08:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A60E0C38AD21FD80B8620C315E72B7D3EB0A3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377653   (851499) от 22.04.2020
-
-Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Wars...The Punishment Due (Remastered 2004)
-02. Hangar 18 (Remastered 2004)
-03. A Tout Le Monde (Remastered 2004)
-04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377631   (851373) от 22.04.2020
-
-VA - Шансон Весна (2020) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Борисов Михаил и Андрей Курбатов - Роза белая (6:02)
-2.Григорий Лепс - Побег На Рывок (5:59)
-3.Александр Гум - Спасибо (5:02)
-4.Вадим Крёстный - Ольга (4:46)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339392B40AA71CD6FCCD6CB8F8861BB8ACCD1695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002056   (850655) от 30.03.2016
-
-VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Sweet Summer Days [02:20]
-02. Elisha La'Verne - Love It When We Do (The Antidotes Instrumental Mix) [06:07]
-03. Cool Million - Running Around (Roberto Di Carlo Remix)Жанр: House, Tech House, Deep HouseПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8CFEE52D5016439F1CCE3E662EC201CA084421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001893   (850573) от 30.03.2016
-
-VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ben Gold Ft. Christina Novelli-All Or Nothing (Allen Watts Ex 05:31
-02 Martin Roth & Alex Bartlett-Off The World (Eddie Bitar Remix) 07:08
-03 Gareth Emery feat. Wayward Daughter-Reckless (Standerwick Extended Remix) 06:33
-04 RAM Feat. Kim Kiona-Miss You (Original Mix) 07:40(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5286D2000E0066FE73208F57B9AE8EF8560843D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

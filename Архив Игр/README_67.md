@@ -6,7 +6,7 @@ TimeShift [Ru] (Lossless Repack) 2007 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267559.jpg" />
+  <img src="Z:/picture/008/save_picture_267559.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267548.jpg" />
+  <img src="Z:/picture/008/save_picture_267548.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tooth and Tail (2017) [En] (1.0.8.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267484.jpg" />
+  <img src="Z:/picture/008/save_picture_267484.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266645.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Half-Life 2 / Rock 24 [Ru/En] (P/Mod) 2004-2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266635.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Indivisible (2019) [Ru/Multi] (39810/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264492.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u5) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264045.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Max Payne 3 (NoDVD/1.17 ) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261074.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Max Payne 3 (RePack/1.0.0.17/7 DLC) [Ru/En/Multi6] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261056.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260985.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Hyperspeed: Alien Combat and Role-Playing Adventure (RePack) [En] 1991 | RG game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260780.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Machinarium / Машинариум [Ru/En] (RePack/1.1) 2009 | R.G. Механи
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260647.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Port Royale 3: Pirates & Merchants [Ru] (RePack/1.1.2 build 24556) 2011 l R.G. R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260527.jpg" />
+  <img src="Z:/picture/005/save_picture_260527.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260505.jpg" />
+  <img src="Z:/picture/005/save_picture_260505.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Max Payne 3 (Update1) 2012 | REVOLT/SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260369.jpg" />
+  <img src="Z:/picture/005/save_picture_260369.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Ridge Racer Unbounded {1.11} (RePack) [Multi6\+] 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260318.jpg" />
+  <img src="Z:/picture/005/save_picture_260318.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260309.jpg" />
+  <img src="Z:/picture/005/save_picture_260309.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Tuttles: Madcap Misadventures {0.99b} (P) [En] 2007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260246.jpg" />
+  <img src="Z:/picture/005/save_picture_260246.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [En] (L) 2011 | H
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260123.jpg" />
+  <img src="Z:/picture/005/save_picture_260123.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Mad Riders [En] (RePack/1.0.1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259977.jpg" />
+  <img src="Z:/picture/005/save_picture_259977.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Contraption Zack [En] (RePack) 1992 | RG Games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259846.jpg" />
+  <img src="Z:/picture/005/save_picture_259846.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Binding of Isaac: The Wrath of the Lamb [En] (Rip/1.1) 2012 | Theta
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259724.jpg" />
+  <img src="Z:/picture/005/save_picture_259724.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259665.jpg" />
+  <img src="Z:/picture/005/save_picture_259665.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Titus the Fox: To Marrakech and Back [En] (RePack) 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259599.jpg" />
+  <img src="Z:/picture/005/save_picture_259599.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259586.jpg" />
+  <img src="Z:/picture/005/save_picture_259586.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Gas Guzzlers: Combat Carnage (RePack/1.0) [En/Ru] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259468.jpg" />
+  <img src="Z:/picture/005/save_picture_259468.jpg" />
 </div>
 
 

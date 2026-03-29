@@ -1,3 +1,134 @@
+###  Публикация: 1681208   (133105) от 02.12.2023
+
+EdgeView 4..4.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133105.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77422D5C9764FEBB9D50049F833DFC29AAD60B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681211   (133054) от 02.12.2023
+
+Apeaksoft iPhone Eraser for Mac 1.0.20 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apeaksoft iPhone Eraser - это наиболее полезная утилита для полного и окончательного удаления всего содержимого и настроек с iPhone iPad или iPod. Кроме того, вы можете стирать данные с нескольких iOS-устройств одновременно.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611CCC8B00654D2F46799936A372971E4C283777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681204   (133014) от 02.12.2023
+
+iA Writer 7.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2010–2023 Information Architects GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A624D4EA2E4683984C0C7173B31E90EB40B42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525000   (130373) от 18.01.2022
+
+Initiater 1.0.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Initiator — это простое в использовании небольшое приложение macOS OCR (оптическое распознавание символов), которое извлекает и распознает любой нередактируемый текст на экране вашего компьютера Mac. В качестве дополнительной функции утилита может превращать графические файлы в редактируемый текст. Предусмотрен захват текста и графики.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: © Bluetail TeamПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27BFE380EBBA7CA6BDCE511791F825C78220231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524951   (130334) от 18.01.2022
+
+Sound Grinder Pro 3.2.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Grinder Pro предоставляет мощный набор функций редактирования формы волны и пакетной обработки. Редактируйте аудиофайлы в новом редакторе формы волны с поддержкой многоканальных файлов, улучшенным обзором формы волны, звуковыми действиями, поддержкой петель, маркеров и регионов, автоматическим выбором регионов и т. д.
+Обрабатывайте файлы с помощью любимых плагинов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2022 Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D753541CB92C749A1C6D2F0243F97BAF8E0E57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525013   (130329) от 18.01.2022
 
 TunesKit Video Converter 2.1.0 [En]
@@ -6,7 +137,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130329.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ VideoSolo Screen Recorder For Mac 2.0.50 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130324.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ Library Monkey Pro 3.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130288.jpg" />
 </div>
 
 
@@ -87,7 +218,7 @@ Filmage Screen-Screen Recorder 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130057.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ TunesKit Video Cutter 2.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130055.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ Clipboard Action 1.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130007.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ Byword 2 v2.9.5 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129981.jpg" />
 </div>
 
 
@@ -192,7 +323,7 @@ PerfectTUNES for Mac 3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129977.jpg" />
 </div>
 
 
@@ -218,7 +349,7 @@ aText 2.40.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129968.jpg" />
 </div>
 
 
@@ -244,7 +375,7 @@ Keep It 1.11.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129963.jpg" />
 </div>
 
 
@@ -270,7 +401,7 @@ AnyMP4 DVD Creator for Mac 6.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129538.jpg" />
 </div>
 
 
@@ -297,7 +428,7 @@ Mirror for Beko TV 3.5.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129492.jpg" />
 </div>
 
 
@@ -324,7 +455,7 @@ Mirror for Arcelik TV 3.5.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129470.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ Sound Studio 4 v4.10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129257.jpg" />
 </div>
 
 
@@ -379,7 +510,7 @@ iMusic 2.2.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129255.jpg" />
 </div>
 
 
@@ -405,7 +536,7 @@ Cockos REAPER for Mac v6.46 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129217.jpg" />
 </div>
 
 
@@ -431,7 +562,7 @@ FonePaw iOS Transfer for Mac 6.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123115.jpg" />
 </div>
 
 
@@ -457,7 +588,7 @@ Alarm Clock Pro 15 v.15.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123087.jpg" />
 </div>
 
 
@@ -484,7 +615,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.5.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123078.jpg" />
 </div>
 
 
@@ -510,7 +641,7 @@ Translator App : Linguist 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123076.jpg" />
 </div>
 
 
@@ -536,7 +667,7 @@ Cover Desk 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123075.jpg" />
 </div>
 
 
@@ -550,138 +681,6 @@ Cover Desk 1.7 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B665A06EC7F7A4AB8CDB413F6FB939BA23C40E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691592   (123074) от 13.01.2024
-
-Clipsy: Clipboard Manager 2.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clipsy записывает в буфер обмена историю скопированного текста, изображений, ссылок, снимков экрана и т. д. И позволяет вызывать / вставлять их в любое время и прямо у вас под рукой. Незаметно запускается из строки меню, позволяя быстро найти фрагмент текста, который вы так долго искали.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2717603073BE008BE600E99850BF485DA761CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691598   (123073) от 13.01.2024
-
-EzyCal: Time & Date 2.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123073.jpg" />
-</div>
-
-
-###  Подробнее
-
-EzyCal - это продуктивный график строки состояния на целый год.
-Это система дней для социальных, религиозных, коммерческих или административных организаций
-Это григорианский календарь с событиями на доступном языке и созданием приложения для напоминаний, с дружественным интерфейсом, простой в использовании.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2017- 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6C8B9A488C1E2C779F7B630ECB280ECCA42E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691683   (123071) от 13.01.2024
-
-Butler 4.4.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Butler – менеджер, который дает доступ к приложениям и документам всех типов, в удобной системе меню, горячих клавиш, интерактивных углов, или управлением при помощи аббревиатур. Программа изучает предпочтения пользователя и запоминает, какие аббревиатуры сопоставляются с программами (например, "abo" для запуска Address Book). Также менеджер поможет организовывать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.01.2024Разработчик: © 2003 - 2024 Many TricksПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D00A298C99590B84DD35BB0AD84303105BF0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691618   (123066) от 13.01.2024
-
-TransData: Internet Data Speed 3.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение TransData - показывает скорость передачи данных в «Интернете». Если у вас есть вопросы, указанные выше, то на вашем компьютере должно быть установлено приложение TransData. Посмотрите скорость передачи данных по сети с вашего персонального компьютера. Эта утилита добавляет скорость передачи данных с помощью значка и скорости передачи в Кбит/с или Мбит/с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2017-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A35F0FFC073A1AC3A4FFA9D28399DDBF909954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691626   (123060) от 13.01.2024
-
-iON: Internet Status 5.7 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите статус подключения вашего интернет-соединения прямо из строки меню. Эта утилита добавляет аккуратный цвет (зеленый/красный) значок в строке меню, который позволяет узнать статус соединения - (внешний/внутренний IP, скорость загрузки и т.д.).Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D43163591E0EC8757EB3B4EB1669D37841E372E
 ```
 
 https://mybot314.ru/tekegram_catalog/

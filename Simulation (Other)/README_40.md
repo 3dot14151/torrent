@@ -1,3 +1,29 @@
+###  Публикация: 1808937   (10114) от 28.07.2025
+
+Beff Jezos Simulator (2024) [Ru/Multi] (1.1.0.0711) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beff Jezos Simulator предлагает геймерам почувствовать себя в роли начинающего магната электронной коммерции. Проект начинается в скромном офисе, а затем юзерам предоставляются инструменты для создания своей виртуальной империи розничной торговли. Цель - управлять всеми аспектами растущего онлайн-бизнеса. С самого начала задача ясна: разработать бренд, найти товары (   Читать дальше...   )Тип издания: RepackРазработчик: tiplay studioЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55B754AC257840E48D8E56A02CC072820D609FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762562   (10028) от 29.07.2025
 
 Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sРlay
@@ -6,7 +32,7 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10028.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack FitGirl [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9883.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9869.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9809.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9696.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9434.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Bus Flipper: Renovator Simulator (2025) [Ru/Multi] (1.0.22r) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9380.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9351.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9300.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9278.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9273.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9079.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9052.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8951.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8890.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Digger: Galactic Treasures (2025) [Ru/Multi] (1.05.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8844.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Phantom Squad (2025) [Ru/Multi] (1.3.0.24d5ed) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8590.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (2.0.1G) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8504.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8345.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.021) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8325.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7823.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ CraftCraft: Fantasy Merchant Simulator (2025) [Multi] (1.1.23) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7790.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.710170/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7768.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Monster Prom 2: Monster Camp (2020) [En] (2.29.b/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7600.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ GearCity (2022) [Ru/Multi] (2.0.0.14 hf1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7587.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ GearCity – хардкорный экономический симулятор 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781148   (7379) от 17.08.2025
-
-Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь были в Арктике? Хотите открыть мотель в Арктике? Сможете ли вы в компании полярного сияния, метелей, полярных дней и ночей, девственных лесов и диких животных превратить ветхий мотель в достопримечательность Арктики? Арктика всегда была загадочным местом. Управление мотелем в Арктике - тоже редкий опыт. С помощью Arctic Motel Simulator мы хотим не (   Читать дальше...   )Тип издания: RepackРазработчик: One Slice of Pizza GamesЖанр: СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

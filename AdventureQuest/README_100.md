@@ -1,3 +1,81 @@
+###  Публикация: 1782932   (25820) от 03.03.2025
+
+My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25820.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Hotel – в этом странном и пугающем месте скрывается немало секретов, опасностей и рисков. Если игрок допустит ошибку, жизнь быстро закончится, так что вы должны быть максимально внимательны и проникнуться оригинальной атмосферой проекта. Вы отправляетесь в Чикаго 50х, вам предстоит начать управлять отелем. Каждый коридор будет скрывать опасные секреты. В этом (   Читать дальше...   )Тип издания: RepackРазработчик: BrainSwapperЖанр: Приключенческие игры, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672895   (25595) от 06.03.2025
+
+Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы идете по лесной тропе, и в конце этой тропы стоит хижина. А в подвале этой хижины находится Принцесса. Ты здесь, чтобы убить ее. Если вы этого не сделаете, это будет конец света. Она сделает все, что в ее силах, чтобы остановить вас. Она очарует, и она солжет, и она пообещает тебе мир, и если ты позволишь ей, она убьет тебя дюжину раз. Вы не можете позволить этому (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Tabby GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783455   (25513) от 06.03.2025
+
+Phoenix Springs (2024) [En] (1.1.7) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой отправляется на поиски пропавшего брата Лео, что приводит геймеров в загадочный мир Феникс-Спрингс. Этот оазис в пустыне - не просто фон, это самостоятельный персонаж, наполненный тайнами, которые переплетаются с жизнями его обитателей. Геймерам предстоит пройти через ряд взаимодействий, раскрывающих как причуды сообщества, так и теневые истории, которые (   Читать дальше...   )Тип издания: LicenseРазработчик: Calligram StudioЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120918   (25499) от 07.03.2025
 
 The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
@@ -6,7 +84,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25499.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25492.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25481.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25473.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25451.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25381.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25373.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25338.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25315.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Biohazard: Siberia (2025) [En] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25290.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25280.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Dark Return (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25263.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ UNCURSED (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25248.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25214.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25212.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25188.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25081.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ House of Caravan (2015) [Ru/Multi] (1.0.1) Scene PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25009.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24819.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24802.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24759.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.0720.01/dlc) License GOG [Digital Deluxe Bun
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24748.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24699.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C4A680A790C9E0213C67C2043ABA8C3026D4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780184   (24655) от 15.03.2025
-
-Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атмосферная приключенческая игра, в которой вы играете за Рейвен, колдунью и потомка Лакмира Безвременного, стремящуюся вернуть магию в страну Кал Торлин. В сопровождении своего остроумного спутника Йорика вы будете исследовать легендарный замок Shadowgate в великолепно прорисованных 3D-средах, используя мистический Chrono-Orb для перемещения между прошлым и настоящим (   Читать дальше...   )Тип издания: LicenseРазработчик: Forever Entertainment S. A., Highball GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D09EF799F3537E2C779433C2D0C3BE28F0A12E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678989   (24653) от 15.03.2025
-
-Worldless (2023) [Ru/Multi] (1.3.5) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Worldless - это загадочный и сюрреалистичный двухмерный платформер, который бросит вызов вашим навыкам и вовлечет ваш разум в путешествие самопознания и трансценденции. Вступив в бесформенное царство, вы отправитесь в путь, который сотрет границы между физическим и астральным планами, исследуя два разных царства, наполненных сущностями, стремящимися к росту и пониманию.Тип издания: LicenseРазработчик: Noname StudiosЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255991C54752E4084B5ACD0E61B10417FBF177F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785234   (24605) от 15.03.2025
-
-Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24605.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей культового хита Scratches и мистической Serena - новое леденящее душу путешествие в самые тёмные глубины вашего разума. ASYLUM - это амбициозное хоррор-приключение от первого лица, погружающее вас в психоделическую атмосферу Психиатрической Лечебницы Ханвелл. В роли бывшего пациента, страдающего от странных видений, вам предстоит исследовать запутанную (   Читать дальше...   )Тип издания: RepackРазработчик: SenscapeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C50C6692D89C3BAA552485BE0F7E638A1846204
 ```
 
 https://mybot314.ru/tekegram_catalog/

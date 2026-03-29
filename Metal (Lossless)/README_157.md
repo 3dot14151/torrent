@@ -1,3 +1,90 @@
+###  Публикация: 1410265   (438632) от 20.09.2020
+
+Anatomy Of - Splinters (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Web [00:06:27]
+02. Futile [00:05:11]
+03. Lungs [00:02:47]
+04. Collapsing [00:05:25](   Читать дальше...   )Жанр: Industrial Metal, Sludge, Doom MetalПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C90EF88D66ADA7EBAAA3E3A8A9B3600FC676CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410196   (438630) от 20.09.2020
+
+Chaosbay - 2 Albums / 1 EP (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enjoy The Rise [00:03:58]
+02. Amen [00:05:29]
+03. Mediterranean [00:04:18]
+04. D.O A. [00:03:43](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 3 CD, 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E90B9F256909B1384624CD3F3E57647C5BAC4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410159   (438629) от 20.09.2020
+
+Rage - Strings To A Web (2010) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Edge of Darkness (4:33)
+02. Hunter and Prey (4:33)
+03. Into the Light (4:24)
+04. The Beggar's Last Dime (5:43)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEEB7008250A2AF4999D34493B8BB2091428B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410302   (438627) от 20.09.2020
 
 Cross Bringer - The Signs of Spiritual Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
@@ -6,7 +93,7 @@ Cross Bringer - The Signs of Spiritual Delusion (2020) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438627.jpg" />
+  <img src="Z:/picture/008/save_picture_438627.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438625.jpg" />
+  <img src="Z:/picture/008/save_picture_438625.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Rage Of Light - Imploder (2019) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438556.jpg" />
+  <img src="Z:/picture/008/save_picture_438556.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Mushroomhead - A Wonderful Life (2020) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438538.jpg" />
+  <img src="Z:/picture/008/save_picture_438538.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Kamelot - I Am The Empire: Live From The 013 (2020) 2xCD [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438513.jpg" />
+  <img src="Z:/picture/008/save_picture_438513.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sun of the Dying - 2 Albums (The Roar of the Furious Sea / The Earth Is Silent) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438511.jpg" />
+  <img src="Z:/picture/008/save_picture_438511.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Crystal Fate - Euphoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438465.jpg" />
+  <img src="Z:/picture/008/save_picture_438465.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Finntroll - Vredesvavd (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Pagan 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438422.jpg" />
+  <img src="Z:/picture/008/save_picture_438422.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Lost In Thought - Opus Arise (2011) [FLAC|image +.cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438406.jpg" />
+  <img src="Z:/picture/008/save_picture_438406.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Operation: Mindcrime - The Key (2015) [FLAC|image+.cue]<Progressive Metal/Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438397.jpg" />
+  <img src="Z:/picture/008/save_picture_438397.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Eluveitie - Evocation II – Pantheon (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436918.jpg" />
+  <img src="Z:/picture/008/save_picture_436918.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Diablo Swing Orchestra - Sing-Along Songs for the Damned and Delirious (2009) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436640.jpg" />
+  <img src="Z:/picture/008/save_picture_436640.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Drifter - The Demos 1985 & 1986 (2006) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436231.jpg" />
+  <img src="Z:/picture/008/save_picture_436231.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Horror on Black Heels - An Empty Throne (2014) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436229.jpg" />
+  <img src="Z:/picture/008/save_picture_436229.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436228.jpg" />
+  <img src="Z:/picture/008/save_picture_436228.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436225.jpg" />
+  <img src="Z:/picture/008/save_picture_436225.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Paganizer - Beyond The Macabre (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436192.jpg" />
+  <img src="Z:/picture/008/save_picture_436192.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Tyrants Of Chaos - Relentless Thirst For Power (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436187.jpg" />
+  <img src="Z:/picture/008/save_picture_436187.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Empress - Fateweaver (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436184.jpg" />
+  <img src="Z:/picture/008/save_picture_436184.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Michael Schinkel's Eternal Flame - Gravitation (2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436180.jpg" />
+  <img src="Z:/picture/008/save_picture_436180.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Sinner - Brotherhood (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436179.jpg" />
+  <img src="Z:/picture/008/save_picture_436179.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Rebellion - A Tragedy In Steel Part II: Shakespeare's King Lear (2018) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436158.jpg" />
+  <img src="Z:/picture/008/save_picture_436158.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Burning Witches - Dance With The Devil (2020) Japan [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436156.jpg" />
+  <img src="Z:/picture/008/save_picture_436156.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Burning Witches - Dance With The Devil (2020) Japan [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997C24601E74F904A87B07B8370FFD5CE16544D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944996   (436099) от 09.10.2015
-
-Wendy O. Williams - Wow (1984) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Sex (And Rock And Roll)
-02. It's My Life
-03. Priestess
-04. Thief In The Night (Kiss Cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525858C6587E978E898F228DF69642DD3E015C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249414   (436015) от 23.09.2018
-
-Dead Summer Society - Visions From A Thousand Lives (2012) [FLAC|Lossless|tracks + .cue] <Doom Metal, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Explicit (2:27)
- 02. I Met You In Heaven And Hell (3:44)
- 03. Shadow I Bear (6:02)
- 04. The King's Alone (9:37)(   Читать дальше...   )Жанр: Doom Metal, Goth RockПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0456EBE588E4D262F704867DFC36DAA54D0603A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248899   (435861) от 23.09.2018
-
-James LaBrie - 5 Albums (1999 - 2013) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435861.jpg" />
-</div>
-
-
-###  Подробнее
-
-James LaBrie (Kevin James LaBrie) - канадский вокалист, участник американской прог-метал-группы Dream Theater с 1991 года.Список альбомов:
-1999 - Keep It To Yourself
-2001 - Mullmuzzler 2
-2005 - Elements Of Persuasion(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 04:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E3C53964C5513307FD3EB979F3C8AA5A8059EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

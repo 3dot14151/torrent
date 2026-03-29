@@ -1,3 +1,83 @@
+###  Публикация: 1213962   (766592) от 19.03.2018
+
+С. Смирнов (ред.) | Рабочие и крестьяне капиталистической каторги о нас и о себе (1933) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766592.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книжке речь идет о крестьянстве. А ведут эту речь представители иностранных рабочих делегаций, посетивших СССР и побывавших в советской колхозной деревне.
+
+Они радуются тем победам, которых достигло советское крестьянство на колхозном пути и в материальном и культурном отношении, опровергая буржуазную и социал-фашистскую ложь, которую распространяют враги (   Читать дальше...   )Жанр: История, политология, экономика, культурология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618E162854D96A6669320FA55E31BCC693CCCE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126258   (766067) от 17.04.2017
+
+Пол Салливан | Кодекс состоятельных. Живи, как 1% населения в мире (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колумнист The New York Times Пол Салливан на протяжении целого десятилетия изучал привычки богатых людей и пытался сформулировать основополагающие принципы их успеха. Чем отличается мировоззрение супербогачей от философии жизни простых людей? Благодаря чему они являются теми, кто они есть? И возможно ли, следуя их правилам, проложить путь на вершину олимпа? Из книги (   Читать дальше...   )Жанр: публицистика, экономикаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27928F060513507E2B70DF5C65AB5E2CAC528965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126192   (765481) от 18.04.2017
+
+Б. Томсон | Шпионаж во время войны (1938) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Базиль Томсона «Шпионаж во время войны» иллюстрирует указания товарища Сталина, что засылка шпионов, диверсантов даже в однотипных буржуазных государствах является законом их взаимоотношений. Книга раскрывает перед читателем всю опасность капиталистического окружения, ознакомляя его с диверсионной и шпионской работой иностранных разведывательных органов на (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6967510AB1BA661DB73DA82BE2BD64D1B6303D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394340   (764629) от 04.07.2020
 
 Пётр Кропоткин | Анархия и нравственность [сборник] (2018) [EPUB]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764629.jpg" />
+  <img src="Z:/picture/008/save_picture_764629.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764556.jpg" />
+  <img src="Z:/picture/008/save_picture_764556.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764469.jpg" />
+  <img src="Z:/picture/008/save_picture_764469.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764374.jpg" />
+  <img src="Z:/picture/008/save_picture_764374.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764150.jpg" />
+  <img src="Z:/picture/008/save_picture_764150.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763741.jpg" />
+  <img src="Z:/picture/008/save_picture_763741.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763686.jpg" />
+  <img src="Z:/picture/008/save_picture_763686.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763657.jpg" />
+  <img src="Z:/picture/008/save_picture_763657.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763656.jpg" />
+  <img src="Z:/picture/008/save_picture_763656.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763649.jpg" />
+  <img src="Z:/picture/008/save_picture_763649.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763530.jpg" />
+  <img src="Z:/picture/008/save_picture_763530.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763324.jpg" />
+  <img src="Z:/picture/008/save_picture_763324.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762507.jpg" />
+  <img src="Z:/picture/008/save_picture_762507.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762439.jpg" />
+  <img src="Z:/picture/008/save_picture_762439.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759923.jpg" />
+  <img src="Z:/picture/008/save_picture_759923.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759198.jpg" />
+  <img src="Z:/picture/008/save_picture_759198.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758645.jpg" />
+  <img src="Z:/picture/008/save_picture_758645.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758514.jpg" />
+  <img src="Z:/picture/008/save_picture_758514.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757464.jpg" />
+  <img src="Z:/picture/008/save_picture_757464.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753557.jpg" />
+  <img src="Z:/picture/005/save_picture_753557.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751350.jpg" />
+  <img src="Z:/picture/008/save_picture_751350.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749934.jpg" />
+  <img src="Z:/picture/005/save_picture_749934.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749933.jpg" />
+  <img src="Z:/picture/008/save_picture_749933.jpg" />
 </div>
 
 
@@ -601,88 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B249EC0BD94EE05646B68EBB6A7FCB617DE9107B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281840   (749925) от 09.02.2019
-
-В. Краснов | Ходынка [Очерки не до смерти растоптанного] (1926) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подрастающее поколение в стране Советов только по наслышке знает о царизме, о буржуазном владычестве. Все ужасы произвола, всю беспредельную темноту, в которой держал трудящихся помещик, капиталист, царь, молодежь наша знает только понаслышке, урывками. Настоящее так бурно, что в большинстве не до прошлого.
-
-А вспоминать надо, а знать необходимо. Оттого такое огромное (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524C8BBDE2179E1BDA406812638334C9A3CC4791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216616   (749574) от 31.03.2018
-
-Ф. Юнг | Джек Лондон, как поэт рабочего класса (1925) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того, чтобы отчетливо представить себе, откуда пришло и как выросло влияние Джека Лондона и его произведений, нужно ознакомиться с той средой, из которой вышел Джек Лондон, т. е. с общественными классами Америки, с противоречиями между капиталом и трудом в этой стране, с положением самого рабочего класса.Жанр: История, политология, искусство, публицистка, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282D0368F81023DEB93400416827154A70EF878D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396191   (748683) от 14.07.2020
-
-Л. Лонго | Уроки антифашистского Сопротивления (1980) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луиджи Лонго (1900—1980) — видный деятель итальянского и международного рабочего и коммунистического движения, соратник Антонио Грамши и Пальмиро Тольятти, один из основателей партии итальянских коммунистов.
-
-Луиджи Лонго был профессиональным революционером, которому в течение многих лет довелось руководить подпольной деятельностью коммунистов в фашистской Италии; (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC36F14301BA7219E15560665C0BD70B016891D
 ```
 
 https://mybot314.ru/tekegram_catalog/

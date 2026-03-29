@@ -6,7 +6,7 @@ EASEUS Partition Master 11.10 Professional | Server | Technican | Unlimited RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867333.jpg" />
+  <img src="Z:/picture/008/save_picture_867333.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DAEMON Tools Pro 8.1.1.0666 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867330.jpg" />
+  <img src="Z:/picture/008/save_picture_867330.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Acronis True Image 2017 20.0.8029 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867328.jpg" />
+  <img src="Z:/picture/008/save_picture_867328.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acronis True Image 2017 Build 8029 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867239.jpg" />
+  <img src="Z:/picture/008/save_picture_867239.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Acrobat Reader DC 2015.023.20070 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867233.jpg" />
+  <img src="Z:/picture/008/save_picture_867233.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Acronis True Image 20.8029 + Universal Restore 11.5.40028 + Disk Director 12.0.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867224.jpg" />
+  <img src="Z:/picture/008/save_picture_867224.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Pro DC 2015.023.20070 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867210.jpg" />
+  <img src="Z:/picture/008/save_picture_867210.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PTE AV Studio Pro 10.0.9 Build 5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867193.jpg" />
+  <img src="Z:/picture/008/save_picture_867193.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ GoodSync Enterprise 10.11.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867189.jpg" />
+  <img src="Z:/picture/008/save_picture_867189.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ JRiver Media Center 26.0.56 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867183.jpg" />
+  <img src="Z:/picture/008/save_picture_867183.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NVIDIA GeForce/ION driver release 267.24 Beta (Драйвер для видео�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_867145.jpg" />
+  <img src="Z:/picture/009/save_picture_867145.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MassTube Plus 12.9.8.364 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867118.jpg" />
+  <img src="Z:/picture/008/save_picture_867118.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Glary Utilities Pro 5.140.0.166 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867115.jpg" />
+  <img src="Z:/picture/008/save_picture_867115.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ The KMPlayer 4.2.2.38 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867107.jpg" />
+  <img src="Z:/picture/008/save_picture_867107.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Bat! Voyager 9.1.14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867040.jpg" />
+  <img src="Z:/picture/008/save_picture_867040.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Soft4Boost Easy Disc Burner 6.6.3.389 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867036.jpg" />
+  <img src="Z:/picture/008/save_picture_867036.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PDF-XChange PRO 8.0.336.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867026.jpg" />
+  <img src="Z:/picture/008/save_picture_867026.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ NirLauncher Package 1.23.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867024.jpg" />
+  <img src="Z:/picture/008/save_picture_867024.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ant Download Manager Pro 1.17.4 Build 68694 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867023.jpg" />
+  <img src="Z:/picture/008/save_picture_867023.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Isoo Backup 4.4.1.771 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866950.jpg" />
+  <img src="Z:/picture/008/save_picture_866950.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BELOFF [dp] 2020.04.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866941.jpg" />
+  <img src="Z:/picture/008/save_picture_866941.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ The Bat! Professional 9.1.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866937.jpg" />
+  <img src="Z:/picture/008/save_picture_866937.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ SamDrivers 14.3.2 - Сборник драйверов для Windows (DriverPack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866917.jpg" />
+  <img src="Z:/picture/008/save_picture_866917.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ W10Privacy 3.4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866862.jpg" />
+  <img src="Z:/picture/008/save_picture_866862.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ TreeSize Professional 7.1.5.1471 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866856.jpg" />
+  <img src="Z:/picture/008/save_picture_866856.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Open Server 5.3.6 (Базовая, Максимальная) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866849.jpg" />
+  <img src="Z:/picture/008/save_picture_866849.jpg" />
 </div>
 
 

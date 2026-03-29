@@ -1,3 +1,113 @@
+###  Публикация: 1430688   (169988) от 11.12.2020
+
+PopClip 2020.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169988.jpg" />
+</div>
+
+
+###  Подробнее
+
+PopClip предлагает достаточно удобный способ работы с текстом в Mac OS X – такой же, как в iOS. Помимо копирования, вырезания и вставки, приложение позволяет выполнять быстрый поиск в Интернете, открывать ссылки и почтовые адреса в тексте, искать определения в словаре и даже исправлять неправильно написанные слова.
+
+PopClip появляется на экране при выделении мышью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Nicholas MooreПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540C4F284F8857A2A06EB2E460A37277471344B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430738   (169897) от 11.12.2020
+
+DjVu Reader Pro 2.4.3 [Ru/En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169897.jpg" />
+</div>
+
+
+###  Подробнее
+
+DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
+
+В целом, DjVu Reader Pro это отличная читалка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: FirmShell LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC7F94B6B812589B7D7599436A799EE6D7003F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430752   (169894) от 11.12.2020
+
+Path Finder 10.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: CocoatechПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B449C708479AD8EECE4079BCDD3F2C95486781A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344588   (169848) от 11.12.2019
+
+Cardhop 1.3.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169848.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2019Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397D21D8C8BA64251468212CD49BC8415927DB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344644   (169841) от 11.12.2019
 
 A Better Finder Attributes 6.20 [En]
@@ -6,7 +116,7 @@ A Better Finder Attributes 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169841.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ cDock 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169811.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ System Toolkit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169779.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ Dropshare 5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169775.jpg" />
 </div>
 
 
@@ -112,7 +222,7 @@ Pixelmator Pro 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169769.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ Magic Battery 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169761.jpg" />
 </div>
 
 
@@ -166,7 +276,7 @@ Sublime Merge Dev Build 2064 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169753.jpg" />
 </div>
 
 
@@ -192,7 +302,7 @@ Apple MainStage 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169743.jpg" />
 </div>
 
 
@@ -221,7 +331,7 @@ SpamSieve 2.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169736.jpg" />
 </div>
 
 
@@ -248,7 +358,7 @@ Submerge 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169712.jpg" />
 </div>
 
 
@@ -275,7 +385,7 @@ iPulse 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169707.jpg" />
 </div>
 
 
@@ -302,7 +412,7 @@ SideNotes 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169686.jpg" />
 </div>
 
 
@@ -328,7 +438,7 @@ CrossOver 19.0 (build 32195 ) Release [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169670.jpg" />
 </div>
 
 
@@ -356,7 +466,7 @@ GoodNotes 5 v5.7.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169665.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ NetWorker Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169661.jpg" />
 </div>
 
 
@@ -409,7 +519,7 @@ Smart Shooter 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169650.jpg" />
 </div>
 
 
@@ -437,7 +547,7 @@ FabFilter Total Bundle 2020.12.08 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169645.jpg" />
 </div>
 
 
@@ -463,7 +573,7 @@ App Cleaner & Uninstaller Pro 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169644.jpg" />
 </div>
 
 
@@ -491,7 +601,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169581.jpg" />
 </div>
 
 
@@ -518,7 +628,7 @@ SQLPro Studio 2021.106 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169578.jpg" />
 </div>
 
 
@@ -544,7 +654,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169568.jpg" />
 </div>
 
 
@@ -570,7 +680,7 @@ Fork 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169560.jpg" />
 </div>
 
 
@@ -581,113 +691,6 @@ Fork 2.35 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D753B8E02CFE7E8C114151FB0B7079BDA2C7F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515520   (169545) от 07.12.2021
-
-RAR Extractor  - unzi‪p‬ 8.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169545.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor может извлекать сжатые файлы во всех большинстве форматов (более 50 форматов).
-Поддержка RAR, ZIP, 7z, pak, pkg, apk, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, l zma , xip, ace, arj, lbr, lqr, cab, rpm, cpt, sea, exe, msi, cpio, lzx, jar, swf, pdf, nsa, dcs, spk…Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD93B630FAE17E9FE11F654CF563DCF1573FAFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672554   (169538) от 28.10.2023
-
-Native Instruments Komplete Kontrol 3.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169538.jpg" />
-</div>
-
-
-###  Подробнее
-
-KOMPLETE KONTROL — это простой в использовании инструмент, который упорядочивает ваш рабочий процесс. Он упорядочивает все ваши инструменты, эффекты, пресеты, лупы и сэмплы, разумно сопоставляя все с вашим оборудованием, чтобы вы могли находить, воспроизводить и настраивать все свои звуки в одном месте. Этот плагин работает в любой DAW и без проблем работает с любым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2021 Native Instruments GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5385123370A5D407A5E0F54FCCE5F3BE98F3EEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672295   (169521) от 28.10.2023
-
-Araxis Merge Pro Edition 2023.5973 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 1993–2022 ARAXIS LTD.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDCEBD3BEC7CF7A864C96C983B310FE05F2F176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515479   (169458) от 07.12.2021
-
-Keyboard Maestro 10 v10.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
-А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: © 2021 Stairways Software Pty Ltd.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081A14513B64EA5BCCFE9AE0CC5C54FD855B8338
 ```
 
 https://mybot314.ru/tekegram_catalog/

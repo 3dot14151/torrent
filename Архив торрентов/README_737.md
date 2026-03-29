@@ -6,7 +6,7 @@ MAGIX Video Pro X13 19.0.1.119 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885915.jpg" />
+  <img src="Z:/picture/005/save_picture_885915.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885905.jpg" />
+  <img src="Z:/picture/005/save_picture_885905.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IconJar 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885904.jpg" />
+  <img src="Z:/picture/005/save_picture_885904.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mirror for Sony TV 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885899.jpg" />
+  <img src="Z:/picture/005/save_picture_885899.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Skype 7.21.0.100 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885878.jpg" />
+  <img src="Z:/picture/005/save_picture_885878.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885871.jpg" />
+  <img src="Z:/picture/005/save_picture_885871.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sound Online - Discography[13 albums] (2004-2010) [FLAC|Lossless]<Doujin,touhou,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_885860.jpg" />
+  <img src="Z:/picture/009/save_picture_885860.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Avidemux 2.6.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885851.jpg" />
+  <img src="Z:/picture/005/save_picture_885851.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Adobe Flash Player 21.0.0.182 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885848.jpg" />
+  <img src="Z:/picture/005/save_picture_885848.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885816.jpg" />
+  <img src="Z:/picture/005/save_picture_885816.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885814.jpg" />
+  <img src="Z:/picture/005/save_picture_885814.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.8.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885806.jpg" />
+  <img src="Z:/picture/005/save_picture_885806.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Ummy Video Downloader 1.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885801.jpg" />
+  <img src="Z:/picture/005/save_picture_885801.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Anjunabeats Volume 13 (Mixed By Above & Beyond) (2017) [MP3|320 Kbps] <Prog
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885799.jpg" />
+  <img src="Z:/picture/005/save_picture_885799.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Antivirus Removal Tool 2021.09 (v.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885792.jpg" />
+  <img src="Z:/picture/005/save_picture_885792.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Planner 5D 4.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885788.jpg" />
+  <img src="Z:/picture/005/save_picture_885788.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885782.jpg" />
+  <img src="Z:/picture/005/save_picture_885782.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Peace of Mind Music - Vol.1-3 (2004-2006) [MP3|320 kbps]<New Age, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885760.jpg" />
+  <img src="Z:/picture/005/save_picture_885760.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Alcohol 120% 2.0.3 Build 8703 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885755.jpg" />
+  <img src="Z:/picture/005/save_picture_885755.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885745.jpg" />
+  <img src="Z:/picture/005/save_picture_885745.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Adobe Flash Player 21.0.0.182 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885741.jpg" />
+  <img src="Z:/picture/005/save_picture_885741.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Adobe Reader XI 11.0.15 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885713.jpg" />
+  <img src="Z:/picture/005/save_picture_885713.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Alcohol 120% 2.0.3.8703 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885709.jpg" />
+  <img src="Z:/picture/005/save_picture_885709.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885708.jpg" />
+  <img src="Z:/picture/005/save_picture_885708.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Mirror for LG TV 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885689.jpg" />
+  <img src="Z:/picture/005/save_picture_885689.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ RadioBOSS 6.0.6.2 Advanced [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885680.jpg" />
+  <img src="Z:/picture/005/save_picture_885680.jpg" />
 </div>
 
 

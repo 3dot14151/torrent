@@ -6,7 +6,7 @@ PassMark PerformanceTest 10.0 Build 1008 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707526.jpg" />
+  <img src="Z:/picture/008/save_picture_707526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 8.51 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707519.jpg" />
+  <img src="Z:/picture/008/save_picture_707519.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707506.jpg" />
+  <img src="Z:/picture/008/save_picture_707506.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707503.jpg" />
+  <img src="Z:/picture/008/save_picture_707503.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sniper 3D Assassin 1.11.1 Mod [Money] [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707498.jpg" />
+  <img src="Z:/picture/008/save_picture_707498.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707494.jpg" />
+  <img src="Z:/picture/008/save_picture_707494.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707490.jpg" />
+  <img src="Z:/picture/008/save_picture_707490.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707486.jpg" />
+  <img src="Z:/picture/008/save_picture_707486.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VSO ConvertXtoDVD 5.3.0.2 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707474.jpg" />
+  <img src="Z:/picture/008/save_picture_707474.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707437.jpg" />
+  <img src="Z:/picture/005/save_picture_707437.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707427.jpg" />
+  <img src="Z:/picture/005/save_picture_707427.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707419.jpg" />
+  <img src="Z:/picture/005/save_picture_707419.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ YTD Video Downloader PRO 5.9.18.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707408.jpg" />
+  <img src="Z:/picture/008/save_picture_707408.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Opera 70.0.3728.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707407.jpg" />
+  <img src="Z:/picture/008/save_picture_707407.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Complete Internet Repair 5.2.3.4120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707403.jpg" />
+  <img src="Z:/picture/008/save_picture_707403.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sweet Home 3D 6.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707391.jpg" />
+  <img src="Z:/picture/008/save_picture_707391.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pitch 92 - 3rd Culture (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707383.jpg" />
+  <img src="Z:/picture/008/save_picture_707383.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707379.jpg" />
+  <img src="Z:/picture/008/save_picture_707379.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ GrandTotal 5 v5.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707377.jpg" />
+  <img src="Z:/picture/008/save_picture_707377.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707371.jpg" />
+  <img src="Z:/picture/008/save_picture_707371.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707367.jpg" />
+  <img src="Z:/picture/008/save_picture_707367.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707365.jpg" />
+  <img src="Z:/picture/008/save_picture_707365.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Butler 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707362.jpg" />
+  <img src="Z:/picture/008/save_picture_707362.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707360.jpg" />
+  <img src="Z:/picture/008/save_picture_707360.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Mirror for Panasonic TV 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707344.jpg" />
+  <img src="Z:/picture/008/save_picture_707344.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707341.jpg" />
+  <img src="Z:/picture/008/save_picture_707341.jpg" />
 </div>
 
 

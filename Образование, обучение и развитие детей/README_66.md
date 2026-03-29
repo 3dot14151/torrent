@@ -1,3 +1,58 @@
+###  Публикация: 1340588   (263502) от 24.11.2019
+
+Мария Мельникова | Психология на пальцах (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь понять, кто говорит правду, а кто лжёт? Кому можно доверять, а кому – нет? Как не попасть в психологическую ловушку? Как разгадать истинные мысли и желания? Хочешь быть победителем и не попадать под чужое влияние? Тебя интересует психология человека? Тогда эта книга для тебя!
+
+Серёга и Митька, отправляясь на поиски пропавшего котенка, даже не догадывались, (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660F2981128FC04F35AF195BBA2BC5E531756DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340688   (263424) от 24.11.2019
+
+Марина Талер | Увлекательная математика для детей и взрослых (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы считаете, что математика может вызывать только скуку? И вы где-то правы!
+В одиночестве даже самое увлекательное дело может заставить заскучать. Гораздо веселее решать интереснейшие задачки в хорошей компании – такой, как научная семейка профессора Перельмана. Все три поколения этой семьи очень любят такие занятия, ведь в любом возрасте приятно ощущать себя умным (   Читать дальше...   )Жанр: Головоломки, игры, заданияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B6C53C32CEE44BD70E3F9EB8B5EA79CB04C6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192211   (263385) от 16.12.2017
 
 Н.С. Вечерина | Умный русский язык. Учим словарные слова (2017) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263385.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263032.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262876.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262867.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262729.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262417.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262192.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261748.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261610.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261286.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260945.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260919.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260865.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260776.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260434.jpg" />
+  <img src="Z:/picture/005/save_picture_260434.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260260.jpg" />
+  <img src="Z:/picture/005/save_picture_260260.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260255.jpg" />
+  <img src="Z:/picture/005/save_picture_260255.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259442.jpg" />
+  <img src="Z:/picture/005/save_picture_259442.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258308.jpg" />
+  <img src="Z:/picture/005/save_picture_258308.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257707.jpg" />
+  <img src="Z:/picture/005/save_picture_257707.jpg" />
 </div>
 
 
@@ -532,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257706.jpg" />
+  <img src="Z:/picture/005/save_picture_257706.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257705.jpg" />
+  <img src="Z:/picture/005/save_picture_257705.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257682.jpg" />
+  <img src="Z:/picture/005/save_picture_257682.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256950.jpg" />
+  <img src="Z:/picture/005/save_picture_256950.jpg" />
 </div>
 
 
@@ -627,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686067466EA0485A7667EDE1A9E9E9264F663EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836575   (254354) от 11.11.2025
-
-П.Г. Саенко | Физика. Учебник для 9 класса (1992) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по курсу 9 класса для средней школыЖанр: УчебникИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2EC37289BE1DA80BEE42F1F0675C557E0E02E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836567   (254352) от 11.11.2025
-
-С.Н. Капельян, Л.А. Аксенович | Физика. Пособие-репетитор для подготовки к централизованному тестированию (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие-репетитор предназначено для тех, кто хочет самостоятельно подготовиться к вступительным испытаниям по физике. Здесь представлены тестовые задания, охватывающие все основные типы задач, которые предлагаются абитуриентам на централизованном тестировании. В каждом параграфе приведены определения основных физических понятий и величин, основные законы и формулы; (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АверсэвФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA32F5D1C46FD52F39338EB733D24D6ECA953B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

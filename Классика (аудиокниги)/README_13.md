@@ -1,3 +1,81 @@
+###  Публикация: 49486   (792558) от 14.11.2021
+
+Оскар Уайльд | Портрет Дориана Грея (2007) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792558.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Портрет Дориана Грея» — одно из самых известных произведений английского писателя Оскара Уайльда. Герой романа, юный красавец Дориан, пожелал всегда оставаться молодым. Он и представить себе не мог, что это возможно. Но один художник написал портрет Дориана в его лучшие годы, когда еще печать греха и порока не испортила душу и лицо героя. Портрету суждено было стать (   Читать дальше...   )Жанр: Роман, КлассикаПродолжительность: 10:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DFE8425235BC2FE2F21555C3A84A01689BD24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202377   (790364) от 28.01.2018
+
+Антон Чехов | Палата №6 (2002) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790364.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Палата №6» - история доктора, который сам становится пациентом. Опыт работы земским врачом позволил писателю предельно достоверно описать быт больницы, взаимоотношения врачей и больных. Рассказ проникнут горькой иронией и ощущением безнадежности, но, возможно, именно бессилие чеховских героев заставит кого-то впервые в жизни доказать самому себе, что он-то не находится (   Читать дальше...   )Жанр: КлассикаИздательство: АРДИСПродолжительность: 02:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C416EAE885E727B180E29BFC63A7E44CFBA90A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275825   (788108) от 16.01.2019
+
+Мигель де Сервантес | Дон Кихот [Радиоспектакль] (1987) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль по классическому роману М. Сервантеса о рыцаре печального образа и его подвигах и похождениях. Блестящий состав исполнителей, постановка 1987 года.Жанр: Классическая прозаПродолжительность: 03:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3066B3A56718CB11EA0248AEC0D03D47F89587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275647   (788065) от 16.01.2019
 
 Антон Чехов | Рассказы (2019) [MP3]
@@ -6,7 +84,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788065.jpg" />
+  <img src="Z:/picture/008/save_picture_788065.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786488.jpg" />
+  <img src="Z:/picture/008/save_picture_786488.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785946.jpg" />
+  <img src="Z:/picture/008/save_picture_785946.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784621.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783450.jpg" />
+  <img src="Z:/picture/008/save_picture_783450.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783066.jpg" />
+  <img src="Z:/picture/008/save_picture_783066.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782685.jpg" />
+  <img src="Z:/picture/008/save_picture_782685.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781946.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781917.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781710.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780554.jpg" />
+  <img src="Z:/picture/008/save_picture_780554.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779374.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778507.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778330.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_778324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_778324.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777288.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776914.jpg" />
+  <img src="Z:/picture/008/save_picture_776914.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776434.jpg" />
+  <img src="Z:/picture/008/save_picture_776434.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774475.jpg" />
+  <img src="Z:/picture/008/save_picture_774475.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774421.jpg" />
+  <img src="Z:/picture/008/save_picture_774421.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774051.jpg" />
+  <img src="Z:/picture/008/save_picture_774051.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771721.jpg" />
+  <img src="Z:/picture/008/save_picture_771721.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770631.jpg" />
+  <img src="Z:/picture/008/save_picture_770631.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F6421CFB453CCE7C7B175771DEFE8706A140C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016681   (769550) от 15.05.2016
-
-Лев Толстой | В чем моя вера (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свой самый знаменитый роман «Война и мир» художник начал писать в 35 лет. Трактат «В чем моя вера?» создан 20 лет спустя. Из-за критики церковного учения был сразу же запрещен в России. "Я хочу рассказать, как я нашел тот ключ к пониманию учения Христа, который мне открыл истину с ясностью и убедительностью, исключающими сомнение". (Л. Н. Толстой, «В чем (   Читать дальше...   )Жанр: Русская классическая прозаПродолжительность: 07:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D346FC4F15DE43846739C52BECAC31C369E2843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392909   (768427) от 29.06.2020
-
-Петер Хандке | Короткое письмо к долгому прощанию (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть "Короткое письмо к долгому прощанию" написана от первого лица. Мы так и не узнаем имени рассказчика. В повести не столь много внешних событий. Она представляет свободную хронику нескольких дней, которые отмечены для героя тяжелейшим духовным кризисом. Молодой писатель из Австрии, он приехал в Америку, гонимый непереносимым состоянием безысходности. (   Читать дальше...   )Жанр: Зарубежная классикаЯзык озвучки: Зарубежная классикаПродолжительность: 05:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E974C1CFBE5AC8D5B12BA172E1B4456D46678A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279120   (766862) от 28.01.2019
-
-Максим Горький | Жизнь Матвея Кожемякина (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766862.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе «Жизнь Матвея Кожемякина» великого русского писателя М.Горького (1868—1936) изображен мещанский мир уездной России, с большой глубиной обрисованы жизнь и быт «уездных гнезд российской косности», социальная психология и мировоззрение реакционного мещанства. В романе отразилось брожение, охватившее под влиянием революции даже отсталые слои общества.Жанр: Русская классикаПродолжительность: 20:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25F7BFD46B5C23F32F8D78A6D114877CFDD9583
 ```
 
 https://mybot314.ru/tekegram_catalog/

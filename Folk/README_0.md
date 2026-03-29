@@ -6,7 +6,7 @@ Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917235.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915085.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908697.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, tr
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898667.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895189.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892528.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887788.jpg" />
+  <img src="Z:/picture/005/save_picture_887788.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Forndom - 1 album, 1 EP (2015-2016) [MP3|320 Kbps] <Dark Folk, Dark Ambient, Nor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885682.jpg" />
+  <img src="Z:/picture/005/save_picture_885682.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Fo
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875584.jpg" />
+  <img src="Z:/picture/005/save_picture_875584.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Fol
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870410.jpg" />
+  <img src="Z:/picture/008/save_picture_870410.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868512.jpg" />
+  <img src="Z:/picture/008/save_picture_868512.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868439.jpg" />
+  <img src="Z:/picture/008/save_picture_868439.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856665.jpg" />
+  <img src="Z:/picture/008/save_picture_856665.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852053.jpg" />
+  <img src="Z:/picture/008/save_picture_852053.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824481.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Me and That Man - Songs Of Love And Death (2017) [MP3|320 Kbps] <Country Rock, F
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822217.jpg" />
+  <img src="Z:/picture/008/save_picture_822217.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_809667.jpg" />
+  <img src="Z:/picture/005/save_picture_809667.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808110.jpg" />
+  <img src="Z:/picture/008/save_picture_808110.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802379.jpg" />
+  <img src="Z:/picture/008/save_picture_802379.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop,
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801195.jpg" />
+  <img src="Z:/picture/008/save_picture_801195.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800348.jpg" />
+  <img src="Z:/picture/008/save_picture_800348.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793892.jpg" />
+  <img src="Z:/picture/008/save_picture_793892.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Darkher - Realms (2016) [MP3|320 Kbps] <Dark Folk, Gothic, Doom>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793417.jpg" />
+  <img src="Z:/picture/008/save_picture_793417.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791560.jpg" />
+  <img src="Z:/picture/008/save_picture_791560.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791557.jpg" />
+  <img src="Z:/picture/008/save_picture_791557.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789763.jpg" />
+  <img src="Z:/picture/008/save_picture_789763.jpg" />
 </div>
 
 

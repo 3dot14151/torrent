@@ -6,7 +6,7 @@ Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_236.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_235.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_234.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_231.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_228.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_227.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_217.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bill Laurance - Lumen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_216.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Betschart Transport AG - Griffin Overdrive (2025) [FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_215.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Headstones - Burn All The Ships (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_214.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Clockers - Il Broccolino (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_213.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jacob and The Melody Drivers - Jacob and The Melody Drivers (2025) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_212.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_210.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_209.jpg" />
 </div>
 
 

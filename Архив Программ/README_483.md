@@ -6,7 +6,7 @@ IObit Uninstaller Pro 9.5.0.15 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795875.jpg" />
+  <img src="Z:/picture/008/save_picture_795875.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RogueKiller Anti-Malware 14.5.0.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795873.jpg" />
+  <img src="Z:/picture/008/save_picture_795873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Avast Free Antivirus 2016 11.2.2262 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795863.jpg" />
+  <img src="Z:/picture/008/save_picture_795863.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Avast Internet Security 2016 11.2.2262 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795862.jpg" />
+  <img src="Z:/picture/008/save_picture_795862.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ KMS Tools Portable 28.04.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795847.jpg" />
+  <img src="Z:/picture/008/save_picture_795847.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ IObit Driver Booster Pro 7.5.0.741 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795846.jpg" />
+  <img src="Z:/picture/008/save_picture_795846.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ AutoHotkey 1.1.32.00 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795843.jpg" />
+  <img src="Z:/picture/008/save_picture_795843.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BestReminder v2020.05.27.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795842.jpg" />
+  <img src="Z:/picture/008/save_picture_795842.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Format Factory 5.2.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795841.jpg" />
+  <img src="Z:/picture/008/save_picture_795841.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AutoHotkey 2.0 - a109-a73015aa Alpha Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795840.jpg" />
+  <img src="Z:/picture/008/save_picture_795840.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Sumatra PDF 3.3.12630 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795837.jpg" />
+  <img src="Z:/picture/008/save_picture_795837.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ PDF Shaper Professional 10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795835.jpg" />
+  <img src="Z:/picture/008/save_picture_795835.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ IObit Uninstaller Pro 9.5.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795831.jpg" />
+  <img src="Z:/picture/008/save_picture_795831.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Photoshop Lightroom CC 2015.5.1 (6.5.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795826.jpg" />
+  <img src="Z:/picture/008/save_picture_795826.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Avast Premier 2016 11.2.2262 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795825.jpg" />
+  <img src="Z:/picture/008/save_picture_795825.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ LiteManager 4.7.2 Free [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795823.jpg" />
+  <img src="Z:/picture/008/save_picture_795823.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795795.jpg" />
+  <img src="Z:/picture/008/save_picture_795795.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.4.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795790.jpg" />
+  <img src="Z:/picture/008/save_picture_795790.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Celemony - Melodyne Studio 5 Studio v5.0.0.048 STANDALONE, VST3, RTAS, AAX (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795789.jpg" />
+  <img src="Z:/picture/008/save_picture_795789.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ BootRacer Premium (Акция COMSS) 7.90.0.590 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795784.jpg" />
+  <img src="Z:/picture/008/save_picture_795784.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Nvidia DriverPack v.446.14 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795766.jpg" />
+  <img src="Z:/picture/008/save_picture_795766.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ GoodSync Enterprise 10.12.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795759.jpg" />
+  <img src="Z:/picture/008/save_picture_795759.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795652.jpg" />
+  <img src="Z:/picture/008/save_picture_795652.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ GoodSync Enterprise 10.7.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795591.jpg" />
+  <img src="Z:/picture/008/save_picture_795591.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Q-Dir 6.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795581.jpg" />
+  <img src="Z:/picture/008/save_picture_795581.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Ocenaudio 3.10.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795541.jpg" />
+  <img src="Z:/picture/008/save_picture_795541.jpg" />
 </div>
 
 

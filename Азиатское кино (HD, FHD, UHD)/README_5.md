@@ -1,3 +1,107 @@
+###  Публикация: 1458148   (1024046) от 28.03.2021
+
+Китайская вдова / Feng huo fang fei / The Chinese Widow / The Hidden Soldier / In Harm's Way (2017) BDRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024046.jpg" />
+</div>
+
+
+###  Подробнее
+
+После бомбардировки Токио американский летчик вынужден приземлиться на территории Китая. Несмотря на угрозу расстрела, молодая крестьянская вдова прячет иностранца в своем доме.Производство: Китай, Дания / Roc PicturesЖанр: История, мелодрама, военныйРежиссер: Билле АугустАктеры: Эмиль Хирш, Лю Ифэй, Ли Фанцун, Кэри Вудворт, Гун Ханьлинь, Гун Тянько, Цукагоси Хиротака, Галлен Ло, Lambert Houston, Zhu JinПеревод: Многоголосый профессиональный (HDrezka Studio)Субтитры: отсутствуютПродолжительность: 01:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297514ABA6039D053D9F1EBCAB4842BDF41A7EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457762   (1023944) от 28.03.2021
+
+Убийство / Zan (2018) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XIX века, период Эдо. В небольшую деревню прибывает ронин Савамура, чтобы найти воинов для свержения сёгуната. Там он встречает подходящего кандидата по имени Цудзуки, много времени посвятившего тренировкам и в идеальной физической форме, но совершенно не готового морально. У Цудзуки платонический роман с местной крестьянкой и экзистенциальная дилемма — (   Читать дальше...   )Производство: Япония / Kaijyu TheaterЖанр: Драма, боевикРежиссер: Синъя ЦукамотоАктеры: Сосукэ Икэмацу, Ю Аои, Синъя Цукамото, Кодзи Като, Тацуя Накамура, Рюсэй МаэдаПеревод: Авторский (одноголосый закадровый) (А. Смирнов)Субтитры: Английские (Full)Продолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24BAE82AD42827B4777E0CE5A1526292D7C7E0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458251   (1023599) от 30.03.2021
+
+Инуясики / Inuyashiki (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой японец предпенсионного возраста узнает, что смертельно болен. Рассказать об этом равнодушному семейству он не может, поэтому тихо плачется в шерстяную жилетку приблудившегося пса. В этот момент в небе появляются странные огни, старик слепнет, теряет сознание, а когда приходит в себя, оказывается, что неведомая сила превратила его в человекоподобного боевого (   Читать дальше...   )Производство: Япония / Annex Digital, Picture Element, Solid Arts, VoxelЖанр: Боевик, фантастика, триллер, драмаРежиссер: Синсуке СатоАктеры: Норитакэ Кинаси, Такэру Сато, Каната Хонго, Аяка Миёси, Наюта Фукудзаки, Мари Хамада, Фуми Никайдо, Юки Саито, Юсукэ Исэя, Сарии ИкэгамиПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, японскийСубтитры: Английские, китайские, японские (pgs, ass)Продолжительность: 02:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D36E94A77FFF6EB091DE32CC4581354AFADA730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458721   (1023583) от 30.03.2021
+
+Колдун / Shi shen ling / The Yinyang Master (2021) WEBRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чиновника Юань Боя, перевозившего с конвоем груз ценностей, ограбила компания монстров под предводительством получеловека-полумонстра Цинмина. Того самого бывшего служащего Бюро ин-янь, семь лет назад обвинённого в попытке кражи Шкального камня и убийстве коллеги, и из-за этого теперь находящегося в бегах. Взяв в проводницы девушку Шэньле, Боя отправляется в мир (   Читать дальше...   )Производство: КитайЖанр: Боевик, ФентезиРежиссер: Ли ВэйжаньАктеры: Чэнь Кунь, Чжоу Сюнь, Уильям Чань, Цюй Чусяо, Ван Ликунь, Ван Цзысюань, Шэнь Юэ, Чжан Цзыфэн, Сунь ХунлэйПеревод: Любительский (многоголосый, закадровый) l MUZOVOZЯзык озвучки: Русские, английскиеСубтитры: Русские, английскиеПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3B5B4850D0F220664F20D533B1CC22D19CA0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458995   (1023467) от 31.03.2021
 
 Жена шпиона / Spy no Tsuma / Wife of a Spy (2020) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023467.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023350.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022748.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022577.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022454.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022417.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022260.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022213.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022064.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022005.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021901.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021897.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021723.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021523.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021144.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021128.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020949.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020816.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020790.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020784.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020755.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020748.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BEB126A381AD5AE2828FD32FACDB9BE3D3FE571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462806   (1020711) от 16.04.2021
-
-Первый клон / Seobok (2021) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший агент разведки Ки Хон неохотно возвращается в строй, чтобы сопроводить в безопасное место первого в мире клонированного человека. Но по пути на их конвой совершается нападение, и теперь Ки-хуну предстоит закончить миссию в одиночку, а его подопечный будет с интересом изучать окружающий мир.Производство: Корея Южная / CJ Entertainment, STUDIO101, TPS CompanyЖанр: Фантастика, боевикРежиссер: Ли Ён-джуАктеры: Кон Ю, Пак По-гом, Чо У-джин, Чан Ён-нам, Пак Пён-ын, Щин Сон-иль, На Гван-хун, Чон Ми-нам, Ли Он-джон, Хан Джи-хёнПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E4949AF0DCFDB70464273730B34D45E912BB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463361   (1020461) от 18.04.2021
-
-Меч судьбы / Sword of Destiny (2021) WEB-DL [H.265/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень Мэн Ян и его товарищи берутся за опасное задание, сопроводить в столицу важного господина. Путь не из легких. Повсюду бандиты и повстанцы, недовольные правящим императором. Очень скоро выясняется, что важный господин наследный принц Ду. И кое-кто не хочет, чтобы он попал во дворец и унаследовал трон.Производство: Китай, Zhejiang Huace Film & TVЖанр: БоевикРежиссер: Ли ЮйсиАктеры: Эрик Сяо, Ян И, Фрэнсис Чай, Лю Юэтао, Чжуан ХаньПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские, арабские, китайские, индонезийские, корейские, малазийские, испанские, тайские, вьетнамскиеПродолжительность: 01:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEA27C289D22ED7940809A1B7B5AEBD19FB08F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463301   (1020439) от 18.04.2021
-
-Двойная рокировка / Mou gaan dou / Infernal Affairs (2002) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский Чань Вин Янь десять лет работает под прикрытием в среде сянганской триады. Он близко подобрался к ее боссу, который, в свою очередь, внедрил в полицию группу «кротов». Самый шустрый из них проник в отдел борьбы с оргпреступностью, возглавляемый патроном Чаня. Теперь полицейский под личной бандита должен вычислить бандита в полицейской форме, и не раскрыться (   Читать дальше...   )Производство: Гонконг / Media Asia Films, Basic PicturesЖанр: боевик, триллер, драма, криминал, детективРежиссер: Эндрю ЛауАктеры: Тони Люн Чу-вай, Энди Лау, Энтони Вон, Эрик Цан, Келли Чен, Сэмми Чэн, Эдисон Чен, Шон Юе, Элва СяоПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B875F8F8FBE35A2B6FFC8CA969504E6D0569017D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462220   (1020413) от 18.04.2021
-
-Восемь сотен (Восемьсот) / Ba Bai / The Eight Hundred (2020) BDRemux [H.264/1080i] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020413.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 октября 1937 года, Японо-китайская война. 400 солдат из 524-го полка 88-й дивизии Народно-революционной армии Китая четыре дня и четыре ночи ведут оборону склада Сыхан в Шанхае от Императорской армии Японии.Производство: Китай / Beijing Diqi Yinxiang Entertainment, Huayi Brothers MediaЖанр: военный, боевик, драма, историяРежиссер: Гуань ХуАктеры: Ван Цяньюань, Чжан И, Цзян У, Хуан Чжичжун, Чжан Цзюнъи, Охо Оу, Ду Чунь, Вижен Вэй, Чжан Юхао, Тан ИсиньПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские, китайскиеПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C237454F273ACC0B07198F748D4B354C8E61184
 ```
 
 https://mybot314.ru/tekegram_catalog/

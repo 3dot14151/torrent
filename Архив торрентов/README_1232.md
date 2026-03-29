@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775861.jpg" />
+  <img src="Z:/picture/008/save_picture_775861.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Talvekoidik - Spitzbergen (2015) Hands Productions [FLAC|Lossless|tracks + .cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775856.jpg" />
+  <img src="Z:/picture/008/save_picture_775856.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Zachary Zamarripa - Outrun (2016) [MP3|320 кб/с] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775855.jpg" />
+  <img src="Z:/picture/008/save_picture_775855.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775852.jpg" />
+  <img src="Z:/picture/008/save_picture_775852.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775843.jpg" />
+  <img src="Z:/picture/008/save_picture_775843.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775840.jpg" />
+  <img src="Z:/picture/008/save_picture_775840.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Tidy Up 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775826.jpg" />
+  <img src="Z:/picture/008/save_picture_775826.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775823.jpg" />
+  <img src="Z:/picture/008/save_picture_775823.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775808.jpg" />
+  <img src="Z:/picture/008/save_picture_775808.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ goPanel 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775806.jpg" />
+  <img src="Z:/picture/008/save_picture_775806.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ dISHARMONY - Memorized Skin EP (2016) Aliens Production [FLAC|Lossless|WEB-DL|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775803.jpg" />
+  <img src="Z:/picture/008/save_picture_775803.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775797.jpg" />
+  <img src="Z:/picture/008/save_picture_775797.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Script Debugger 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775787.jpg" />
+  <img src="Z:/picture/008/save_picture_775787.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775786.jpg" />
+  <img src="Z:/picture/008/save_picture_775786.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Auslogics Disk Defrag Free 8.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775774.jpg" />
+  <img src="Z:/picture/008/save_picture_775774.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Amazing Carousel Enterprise 4.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775772.jpg" />
+  <img src="Z:/picture/008/save_picture_775772.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ R-Studio 8.0 Build 164486 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775756.jpg" />
+  <img src="Z:/picture/008/save_picture_775756.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ WinUtilities Professional Edition 15.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775751.jpg" />
+  <img src="Z:/picture/008/save_picture_775751.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ One Chat - All in one Messenger 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775745.jpg" />
+  <img src="Z:/picture/008/save_picture_775745.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wise Care 365 Pro 4.8.2.464 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775742.jpg" />
+  <img src="Z:/picture/008/save_picture_775742.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Beautiful Songs For You Vol.13 (Compiled by Виктор31Rus & Людми�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775741.jpg" />
+  <img src="Z:/picture/008/save_picture_775741.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Fatman - Earth & Planets (2018) [MP3|320 Kbps] <Ambient, Downtempo, Experimental
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775738.jpg" />
+  <img src="Z:/picture/008/save_picture_775738.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ FxSound Enhancer 13.020 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775735.jpg" />
+  <img src="Z:/picture/008/save_picture_775735.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Principle 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775734.jpg" />
+  <img src="Z:/picture/008/save_picture_775734.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Wise Program Uninstaller 1.93.101 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775714.jpg" />
+  <img src="Z:/picture/008/save_picture_775714.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ R-Studio 8.0 Build 164486 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775713.jpg" />
+  <img src="Z:/picture/008/save_picture_775713.jpg" />
 </div>
 
 

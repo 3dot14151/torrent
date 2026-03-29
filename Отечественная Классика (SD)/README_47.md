@@ -1,3 +1,31 @@
+###  Публикация: 214493   (256353) от 10.11.2025
+
+Стакан воды (1979) DVDRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256353.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Стакан воды» — экранизация одноименной пьесы известного французского драматурга Эжена Скриба об интригах английского двора начала XVIII века и их влиянии на политику.
+Когда маленькое государство оказывается под угрозой захвата со стороны намного более сильного, спасти его может только одно: появление конкурента, сравнимого с захватчиком.
+В изящной и остроумной пьесе (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драма, история, комедияРежиссер: Юлий КарасикАктеры: Кирилл Лавров, Алла Демидова, Наталья Белохвостикова, Светлана Смирнова, Петерис Гаудиньш, Игорь Дмитриев, Юрис Стренга, Александр Вокач, Анна ФроловцеваПродолжительность: 02:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B3F2AA04812DBCC9D3C56B758DEBEB46E23E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928089   (254732) от 27.04.2023
 
 По семейным обстоятельствам (1977) DVDRip [H.264] [2 серии из 2]
@@ -6,7 +34,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254732.jpg" />
+  <img src="Z:/picture/005/save_picture_254732.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254638.jpg" />
+  <img src="Z:/picture/005/save_picture_254638.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254469.jpg" />
+  <img src="Z:/picture/005/save_picture_254469.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252223.jpg" />
+  <img src="Z:/picture/004/save_picture_252223.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251294.jpg" />
+  <img src="Z:/picture/004/save_picture_251294.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251007.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250479.jpg" />
+  <img src="Z:/picture/004/save_picture_250479.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250438.jpg" />
+  <img src="Z:/picture/004/save_picture_250438.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250325.jpg" />
+  <img src="Z:/picture/004/save_picture_250325.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249302.jpg" />
+  <img src="Z:/picture/004/save_picture_249302.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249192.jpg" />
+  <img src="Z:/picture/004/save_picture_249192.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248637.jpg" />
+  <img src="Z:/picture/004/save_picture_248637.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247725.jpg" />
+  <img src="Z:/picture/004/save_picture_247725.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241142.jpg" />
+  <img src="Z:/picture/004/save_picture_241142.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239832.jpg" />
+  <img src="Z:/picture/004/save_picture_239832.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239602.jpg" />
+  <img src="Z:/picture/004/save_picture_239602.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239495.jpg" />
+  <img src="Z:/picture/004/save_picture_239495.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239235.jpg" />
+  <img src="Z:/picture/004/save_picture_239235.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239168.jpg" />
+  <img src="Z:/picture/004/save_picture_239168.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239160.jpg" />
+  <img src="Z:/picture/004/save_picture_239160.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239103.jpg" />
+  <img src="Z:/picture/004/save_picture_239103.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238326.jpg" />
+  <img src="Z:/picture/004/save_picture_238326.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238308.jpg" />
+  <img src="Z:/picture/004/save_picture_238308.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236325.jpg" />
+  <img src="Z:/picture/004/save_picture_236325.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235971.jpg" />
+  <img src="Z:/picture/005/save_picture_235971.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AB05FD3C04A92CC41737BA45CC3CCA1666EA26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547685   (235198) от 15.05.2022
-
-Две жизни (1961) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235198.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре фильма — две жизни, две судьбы. Простой малограмотный солдат царской армии Востриков за годы Советской власти вырос в преданного борца революции, стал генералом Советской Армии, всеми уважаемым. А гвардейский офицер, блестящий князь Нащекин, боровшийся против Советской власти, эмигрировал из родной страны и в конце концов стал лакеем в портовом ресторанчике...Производство: СССР / Киностудия им. М. ГорькогоЖанр: Драма, мелодрамаРежиссер: Леонид ЛуковАктеры: Николай Рыбников, Вячеслав Тихонов, Элла Нечаева, Лев Поляков, Станислав Чекан, Владимир Дружников, Лев Свердлин, Ольга Жизнева, Алла Ларионова, Маргарита ВолодинаСубтитры: ОтсутствуютПродолжительность: 03:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB7CD90D00380C7624F6A65F34F375E85917D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

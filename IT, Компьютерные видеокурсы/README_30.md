@@ -1,3 +1,139 @@
+###  Публикация: 986667   (923761) от 18.02.2016
+
+Специалист | Linux (Ubuntu FreeBSD). Уровень 3. Создание отказоустойчивых кластерных решений (2011) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923761.jpg" />
+</div>
+
+
+###  Подробнее
+
+UNIX (Linux/FreeBSD) Level 3. Creating a high availability (clustering) solutions
+
+Надежность — один из важнейших параметров современных информационных систем. Финансовые потери, вызванные их простоем, могут многократно превышать стоимость оборудования.
+(   Читать дальше...   )Производство: СпециалистЖанр: АдминистрированиеПродолжительность: 17:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981E3E52CD958731A10FF81356B1B5F549775A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489820   (923473) от 17.08.2021
+
+Udemy, Coding Revolution | React practice course, learn by practicing ( 2021 edition ) (2021) WEB-DL [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите попрактиковаться в кодировании React или просто изучить его, создавая веб-страницы? Это курс для вас.
+Поскольку иногда лучший способ изучить это на практике, и поскольку большинство курсов учат вас основам и дают вам приложение с задачами, я хотел создать что-то другое. Мы создадим три реальных проекта, чтобы мы могли практиковать наше реагирующее кодирование (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 82:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64678DFAFB6021BCD7A3FADC9BE6DB6C4F5D6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489825   (923421) от 17.08.2021
+
+Udemy, GameDev.tv Team м др.| C++ Fundamentals: Game Programming For Beginners  (2021) WEB-DL [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучение программированию может быть скучным, а изучение C ++ - достаточно сложным занятием без изучения игрового движка.
+В этом курсе мы научим вас программировать в увлекательной игровой форме! И мы будем использовать библиотеку, чтобы вы могли сосредоточиться на изучении чистого C ++ и хороших практик программирования.
+Вы начнете с компиляции вашей первой программы (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05A0ADE9087FE475C483406A9C05D364730BC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366261   (923368) от 11.03.2020
+
+OTUS | Облачные сервисы (2020) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923368.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе сделан основной упор на изучение и практическое усвоение облаков GCP и AWS: хранилища, базы данных, очереди, балансировка нагрузки, а также оценку экономической эффективности и рисков.Жанр: ПрограммированиеПродолжительность: 51:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566BF5B6E7577F85C7F8D5FA04BAF04A4A8A2CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366259   (923349) от 11.03.2020
+
+OTUS | Инфраструктурная платформа на основе Kubernetes (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа создана специально для разработчиков, администраторов, СТО и тех. лидов, которые устали тратить время на автоматизацию, хотят использовать единообразные окружения и работать на профессиональном уровне с современными инструментами. Выпускники после обучения смогут эффективно масштабировать надёжную инфраструктуру под растущие потребности бизнеса и правильно (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 54:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DAB4AC51B97EED864B506BED4341E551830FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366267   (923269) от 11.03.2020
 
 Udemy | Практический JavaScript (Продвинутый уровень) (2020) PCRec [H.264/720p-LQ]
@@ -6,7 +142,7 @@ Udemy | Практический JavaScript (Продвинутый уровен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923269.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ OTUS | Разработчик C++ (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923212.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ Udemy, Filip Jerga | Next JS & Typescript with Shopify Integration - Full Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921890.jpg" />
 </div>
 
 
@@ -86,7 +222,7 @@ Udemy, Stephen Grider | Advanced React and Redux  (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_921888.jpg" />
+  <img src="Z:/picture/008/save_picture_921888.jpg" />
 </div>
 
 
@@ -115,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921773.jpg" />
 </div>
 
 
@@ -141,7 +277,7 @@ Udemy, Tim Lash | Unreal Engine 4: Create Your Own First-Person Shooter (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921772.jpg" />
 </div>
 
 
@@ -169,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921762.jpg" />
 </div>
 
 
@@ -195,7 +331,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Shooter Course (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921717.jpg" />
 </div>
 
 
@@ -222,7 +358,7 @@ OTUS | C++ для начинающих программистов (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921418.jpg" />
 </div>
 
 
@@ -248,7 +384,7 @@ InfiniteSkills | Профессиональное руководство по в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916339.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ OTUS, Дмитрий Еремин | Ручное тестирование (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914908.jpg" />
 </div>
 
 
@@ -304,7 +440,7 @@ Udemy, Юрий Бошников | Как самому сделать сайт, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913393.jpg" />
 </div>
 
 
@@ -333,7 +469,7 @@ ItGid, Александр Лущенко | Функции в JavaScript 2021 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913280.jpg" />
 </div>
 
 
@@ -362,7 +498,7 @@ Foxford, Юлия Глухих  | Основы программирования 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913252.jpg" />
 </div>
 
 
@@ -391,7 +527,7 @@ Stepik, Андрей Бойко, Анастасия Заречнева | Авт�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911608.jpg" />
 </div>
 
 
@@ -417,7 +553,7 @@ Udemy, YouRa Allakhverdov | TypeScript с нуля - от основ до advanc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911526.jpg" />
 </div>
 
 
@@ -445,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911063.jpg" />
 </div>
 
 
@@ -471,7 +607,7 @@ Udemy, Nicholas Lever | The Beginners Guide to 3D Web Game Development with Thre
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910240.jpg" />
 </div>
 
 
@@ -497,7 +633,7 @@ ITVDN | SPRING (2020) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909955.jpg" />
 </div>
 
 
@@ -523,7 +659,7 @@ CyberBionic | Практикум по алгоритмам (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908310.jpg" />
 </div>
 
 
@@ -549,7 +685,7 @@ Bang Bang Education | Вечера с Arduino. Базовый курс (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908296.jpg" />
 </div>
 
 
@@ -560,136 +696,6 @@ Bang Bang Education | Вечера с Arduino. Базовый курс (2020) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433A72A6F15B49DA22B6A9E3DD17E7F884924E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368671   (908282) от 20.03.2020
-
-OTUS | Machine learning (2020) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908282.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 5 месяцев мы последовательно познакомимся с современными методами анализа данных. Курс позволит не просто поверхностно изучить принципы работы алгоритмов машинного обучения, а на профессиональном уровне освоить и применять в работе все этапы работы с данными, понимая, как, когда и зачем они используются.Жанр: ПрограммированиеПродолжительность: 54:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E545CA115E1FB0BB1C162BA6A5C596C3E7630E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368682   (908268) от 20.03.2020
-
-OTUS | Этичный хакинг. Практика тестирования на проникновение (2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель курса показать на практике, как проводится детальный анализ сетевых ресурсов, программного обеспечения, web-ресурсов на наличие уязвимостей, их эксплуатацию и дальнейшее устранение.Производство: Александр Колесников, Иван КудрявинЖанр: ПрограммированиеПродолжительность: 34:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC1EE7C7B68F6A1DE33D618A282D1FB065449FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368673   (906360) от 21.03.2020
-
-OTUS | Архитектор программного обеспечения (2020) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В процессе обучения мы рассмотрим множество нетривиальных проблем проектирования backend-приложений и их дальнейшего сопровождения. Изучим не только паттерны проектирования новых сервисов, но и освоим подходы к работе с legacy-сервисами. Научимся решать проблемы с согласованностью изменений (например, порядок применения транзакций) или с оркестрацией сервисов, что (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 42:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828BD22F9797505106A4A337A819A0FABC8756DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368678   (906339) от 21.03.2020
-
-OTUS | Математика для Data Science. Продвинутый курс (2020) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно математику в вузах преподают в отрыве от реальных задач, где она в дальнейшем будет применяться. Мы пошли по другому пути. Каждый модуль профессионального курса сбалансирован математической теорией и практическими примерами, которые взяты из реальных кейсов. Вы будете решать задачу регрессии, проводить АБ-тестирование, работать над рекомендательной системой, (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 52:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC329CCE709C7167F101976B981DD8F9A1ED36E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368670   (906311) от 21.03.2020
-
-OTUS | Android-разработчик. Продвинутый курс (2019) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс обеспечивает глубокое погружение в промышленную Android-разработку на языке Kotlin, и за 5 месяцев позволяет прокачать свои навыки с уровня Junior до Middle или Senior Android-разработчика.Жанр: Программирование, Android, KotlinПродолжительность: 65:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC735F1AD2E37608E2836C0BA90DA496B4812B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

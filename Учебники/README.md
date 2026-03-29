@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1861716   (1062788) от 
+
+М.С. Мирзоев, А.Э. Сатторов | Математическая машина Тьюринга и вычислительная сложность. Учебное пособие (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062788.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены подходы к формализации понятий алгоритма. В нем уточняется понятие алгоритма через математическую машину Тьюринга и машину с неограниченным количеством регистров (МНР) и рассматриваются некоторые оценки сложности алгоритмов. Помимо теоретических и практических материалов пособие содержит задания для самостоятельной работы.
+Содержание учебного (   Читать дальше...   )Жанр: Информатика, Математика, ФизикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779041B9EA80B42123AA2E7F58F90F93D3463EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861695   (1062782) от 
+
+Л.В. Городняя | Парадигма программирования. Учебное пособие для вузов. 2-е изд. (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс лекций посвящен проблеме анализа, сравнения и определения парадигм программирования и парадигмальной характеристике языков и систем программирования.
+Содержание представляет интерес для специалистов по программированию и информационным технологиям.Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA2F404A206A2D0747AE3DB3D04EED0180F1243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859547   (1061298) от 
 
 Д.К. Фаддеев, И.С. Соминский | Алгебра (1964) [DJVU]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061298.jpg" />
+  <img src="Z:/picture/005/save_picture_1061298.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061297.jpg" />
+  <img src="Z:/picture/005/save_picture_1061297.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061296.jpg" />
+  <img src="Z:/picture/005/save_picture_1061296.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060819.jpg" />
+  <img src="Z:/picture/005/save_picture_1060819.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060447.jpg" />
+  <img src="Z:/picture/009/save_picture_1060447.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060349.jpg" />
+  <img src="Z:/picture/009/save_picture_1060349.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060318.jpg" />
+  <img src="Z:/picture/009/save_picture_1060318.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060316.jpg" />
+  <img src="Z:/picture/009/save_picture_1060316.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060314.jpg" />
+  <img src="Z:/picture/009/save_picture_1060314.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060254.jpg" />
+  <img src="Z:/picture/009/save_picture_1060254.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060114.jpg" />
+  <img src="Z:/picture/009/save_picture_1060114.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060113.jpg" />
+  <img src="Z:/picture/009/save_picture_1060113.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ Jean-Louis FANCHON | Guide de Mécanique (2019) [PDF] [FR]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058908.jpg" />
+  <img src="Z:/picture/005/save_picture_1058908.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ Jean COURBON, Jean-Noel THEILLOUT | Résistance des Matériaux - Formulaire (201
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058797.jpg" />
+  <img src="Z:/picture/005/save_picture_1058797.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058607.jpg" />
+  <img src="Z:/picture/005/save_picture_1058607.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058606.jpg" />
+  <img src="Z:/picture/005/save_picture_1058606.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058605.jpg" />
+  <img src="Z:/picture/005/save_picture_1058605.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058407.jpg" />
+  <img src="Z:/picture/005/save_picture_1058407.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058405.jpg" />
+  <img src="Z:/picture/005/save_picture_1058405.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058404.jpg" />
+  <img src="Z:/picture/005/save_picture_1058404.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058036.jpg" />
+  <img src="Z:/picture/005/save_picture_1058036.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057743.jpg" />
+  <img src="Z:/picture/005/save_picture_1057743.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057742.jpg" />
+  <img src="Z:/picture/005/save_picture_1057742.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057741.jpg" />
+  <img src="Z:/picture/005/save_picture_1057741.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E34419A80E0971BCF475F7F3F63F0037C4D69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854697   (1057735) от 19.02.2026
-
-Х.А. Арустамов | Сборник задач по начертательной геометрии (1978) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057735.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой главе сборника даны краткие сведения по начертательной геометрии, решеные типовые примеры, знакомящие студентов с методикой решения задач и графическим оформлением эпюр, задачи для самостоятельного решения студентами, а в некоторых главах приведены вопросы для самопроверки.Жанр: Технические наукиИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDEA80362A3A2B46E660E8308F9BE9EAF246B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854619   (1057662) от 20.02.2026
-
-А.И. Островский | Начертательная геометрия в популярном изложении (1963) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал книги рассчитан на учащихся строительных техникумов и ВУЗов.Жанр: Технические наукиИздательство: Государственное издательство физико-математической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505038F8DFCFA3F02D7F4181EE2DE3842DFCFC84
 ```
 
 https://mybot314.ru/tekegram_catalog/

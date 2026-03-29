@@ -6,7 +6,7 @@ VA - Smooth Jazz Cafe, Vol. 1 (2016) [AAC|~317 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713044.jpg" />
+  <img src="Z:/picture/008/save_picture_713044.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Morning Vibes (The Sound For the Breakfast Coffee) (2022) [AAC|~324 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713023.jpg" />
+  <img src="Z:/picture/008/save_picture_713023.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Bar & Lounge Hits: 30 Saxophone Instrumentals (2022) [AAC|~326 Kbps] <Jazz,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712961.jpg" />
+  <img src="Z:/picture/008/save_picture_712961.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712171.jpg" />
+  <img src="Z:/picture/008/save_picture_712171.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711560.jpg" />
+  <img src="Z:/picture/008/save_picture_711560.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710844.jpg" />
+  <img src="Z:/picture/008/save_picture_710844.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710819.jpg" />
+  <img src="Z:/picture/008/save_picture_710819.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710797.jpg" />
+  <img src="Z:/picture/008/save_picture_710797.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710165.jpg" />
+  <img src="Z:/picture/008/save_picture_710165.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710012.jpg" />
+  <img src="Z:/picture/008/save_picture_710012.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709927.jpg" />
+  <img src="Z:/picture/008/save_picture_709927.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709846.jpg" />
+  <img src="Z:/picture/008/save_picture_709846.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709838.jpg" />
+  <img src="Z:/picture/008/save_picture_709838.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709782.jpg" />
+  <img src="Z:/picture/008/save_picture_709782.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709781.jpg" />
+  <img src="Z:/picture/008/save_picture_709781.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709778.jpg" />
+  <img src="Z:/picture/008/save_picture_709778.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709717.jpg" />
+  <img src="Z:/picture/008/save_picture_709717.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709586.jpg" />
+  <img src="Z:/picture/008/save_picture_709586.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709575.jpg" />
+  <img src="Z:/picture/008/save_picture_709575.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709560.jpg" />
+  <img src="Z:/picture/008/save_picture_709560.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Notes from the Depth, Vol. 14 (2020) [AAC|~315 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709105.jpg" />
+  <img src="Z:/picture/008/save_picture_709105.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Notes from the Depth, Vol. 13 (2020) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709104.jpg" />
+  <img src="Z:/picture/008/save_picture_709104.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Notes from the Depth, Vol. 16 (2021) [AAC|~326 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709102.jpg" />
+  <img src="Z:/picture/008/save_picture_709102.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Martin Hiska - Abroad (2020) [AAC|~311 Kbps] <Lounge, Chill Out, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709101.jpg" />
+  <img src="Z:/picture/008/save_picture_709101.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709099.jpg" />
+  <img src="Z:/picture/008/save_picture_709099.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709098.jpg" />
+  <img src="Z:/picture/008/save_picture_709098.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DesktopOK 9.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695770.jpg" />
+  <img src="Z:/picture/008/save_picture_695770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo Burning Studio 23.0.5 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695768.jpg" />
+  <img src="Z:/picture/008/save_picture_695768.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DRmare Music Converter for Spotify 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695767.jpg" />
+  <img src="Z:/picture/008/save_picture_695767.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Venture - Ebb (2013) [FLAC|Lossless|WEB-DL]<Downtempo, Minimal, IDM, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695731.jpg" />
+  <img src="Z:/picture/008/save_picture_695731.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Internet Download Manager 6.06 Build 3 Beta [Rus/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695702.jpg" />
+  <img src="Z:/picture/008/save_picture_695702.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ NirLauncher Package 1.23.29 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695690.jpg" />
+  <img src="Z:/picture/008/save_picture_695690.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Glary Utilities Pro 5.115.0.140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695672.jpg" />
+  <img src="Z:/picture/008/save_picture_695672.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Glary Utilities Pro 5.115.0.140 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695668.jpg" />
+  <img src="Z:/picture/008/save_picture_695668.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Allavsoft Video Downloader Converter 3.17.1.7006 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695666.jpg" />
+  <img src="Z:/picture/008/save_picture_695666.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ FreeFileSync 10.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695665.jpg" />
+  <img src="Z:/picture/008/save_picture_695665.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ iDatabase 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695664.jpg" />
+  <img src="Z:/picture/008/save_picture_695664.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ iA Writer 5.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695656.jpg" />
+  <img src="Z:/picture/008/save_picture_695656.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DiskDigger 1.20.12.2767 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695654.jpg" />
+  <img src="Z:/picture/008/save_picture_695654.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695652.jpg" />
+  <img src="Z:/picture/008/save_picture_695652.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695646.jpg" />
+  <img src="Z:/picture/008/save_picture_695646.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695645.jpg" />
+  <img src="Z:/picture/008/save_picture_695645.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ StartAllBack 3.3.2.4295 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695637.jpg" />
+  <img src="Z:/picture/008/save_picture_695637.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Loaris Trojan Remover Family 3.2.7.1715 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695635.jpg" />
+  <img src="Z:/picture/008/save_picture_695635.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695618.jpg" />
+  <img src="Z:/picture/008/save_picture_695618.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695609.jpg" />
+  <img src="Z:/picture/008/save_picture_695609.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695608.jpg" />
+  <img src="Z:/picture/008/save_picture_695608.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ UnHackMe 11.91 Build 991 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695573.jpg" />
+  <img src="Z:/picture/008/save_picture_695573.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NIUBI Partition Editor 7.3.6 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695570.jpg" />
+  <img src="Z:/picture/008/save_picture_695570.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Registry First Aid Platinum 11.3.0 Build 2576 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695551.jpg" />
+  <img src="Z:/picture/008/save_picture_695551.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ FileMenu Tools 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695546.jpg" />
+  <img src="Z:/picture/008/save_picture_695546.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695536.jpg" />
+  <img src="Z:/picture/008/save_picture_695536.jpg" />
 </div>
 
 

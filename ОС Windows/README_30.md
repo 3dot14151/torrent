@@ -1,3 +1,57 @@
+###  Публикация: 1432285   (163585) от 17.12.2020
+
+Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1256.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7042744970D4FD0D84ADBF2A2D513D7389805656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346377   (163558) от 19.12.2019
+
+Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.914.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA30EA80A4ABBC04C1F1C7127489658C48A3EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346391   (163520) от 19.12.2019
 
 Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
@@ -6,7 +60,7 @@ Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163520.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163499.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163485.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1637 (Updated December 2020) �
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163461.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Windows Server, Version 1903 (10.0.18362.535) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163458.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Windows Server, Version 20H2 (10.0.19042.685) (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163391.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163375.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163321.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Windows Server 2019 LTSC 1809 (build 17763.914) updated_December_2019 - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163284.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Windows Server, Version 1909 (10.0.18363.535) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163281.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163236.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162464.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161271.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161216.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161147.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161138.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161124.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161094.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161080.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161054.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1366 (Updated December 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161009.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ Microsoft Windows 11 [10.0.22631.2428], Version 23H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160876.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159675.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159467.jpg" />
 </div>
 
 
@@ -643,63 +697,6 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C66C5EC6659888D1815F9FCC7C11F44D0E69FADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085497   (157560) от 21.12.2016
-
-HP 6470b-6570b recovery 2 DVD win 7 sp1 pro x64 (rus), drivers and applications
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157560.jpg" />
-</div>
-
-
-###  Подробнее
-
-В составе раздачи комплект дисков восстановления для ноутбуков серий HP 6470b, 6570b, 8470p,8570p, 8470w
-Первый диск содержит образ восстановления операционной системы Windows 7 Pro Rus X64
-Второй диск содержит комплект драйверов и приложений, присутствующих при заводской загрузке.
-Если ноутбук изначально шел с ОС Windows 7, активация будет произведена автоматически.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F004F766178085C9B5A3B54A4BFFCCE3C1627F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193369   (156095) от 24.12.2017
-
-Microsoft Windows 10 10.0.16299.125 Version 1709 (Updated Dec. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.125) VLSC/MSDN.
-Зимнее обновление Windows 10 Fall Creators Update (Redstone 3) от 19 декабря 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78091D78EE07E914A9529E73FB36B0C15BE4CCB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1338911   (268119) от 17.11.2019
+
+Квартирник НТВ у Маргулиса. 85 лет Юрию Визбору (16.11.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_268119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск самой атмосферной программы НТВ «Квартирник НТВ у Маргулиса» посвящен юбилею советского поэта, композитора, актера и драматурга Юрия Визбора. В 2019 году одному из главных представителей жанра авторской песни, ставшему символом поколения 60-х, исполнилось бы 85 лет. В честь юбилея знаменитого барда в студии «Квартирника» собрались артисты, чтобы исполнить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190703   (266980) от 10.12.2017
+
+Квартирник на НТВ у Маргулиса. Ёлка (12.09.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_266980.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла певица, член жюри международного детского вокального конкурса "Ты супер!" Ёлка. Она рассказала о своем отношении к алкоголю, о безумных поступках в юности, об участии в КВН и любимой детской кукле. Лиза исполнила свои самые популярные треки: "Город обмана", "Хочу", "Мир открывается", "Навсегда", (   Читать дальше...   )Производство: Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C6B2ED43276CD6BC8AAA1E063E1FFC856490D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267341   (266562) от 06.12.2018
+
+Шерил Кроу - живой концерт в театре Capitol / Sheryl Crow - Live At The Capitol Theater (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266562.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2017 года, в историческом театре Капитолия в городе Порт-Честере, штата Нью-Йорк, Шерил Кроу выступила со своим заключительным концертом тура "Be Myself". Шерил Кроу была с новым превосходным составом и исполнила новые песни, которые вошли в восьмой студийный альбом.
+ Она исполнила ''Be Myself'' и из совсем недавних - ''Halfway There'' и ''Atom (   Читать дальше...   )01. Every Day Is A Winding Road
+ 02. A Change Would Do You Good
+ 03. All I Wanna Do
+ 04. My Favorite Mistake(   Читать дальше...   )Жанр: МузыкаРежиссер: Марк РичиПеревод: ОтсутствуетСубтитры: нетПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C81F96E7DDFD3A87BE16E06F2869B9733DAAF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267642   (265733) от 07.12.2018
 
 Квартирник на НТВ у Маргулиса. Pompeya (11.24.2018) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +88,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265733.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265641.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263589.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ The Doors: Live At The Bowl '68 (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263466.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263066.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263053.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261244.jpg" />
 </div>
 
 
@@ -192,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260856.jpg" />
 </div>
 
 
@@ -221,7 +303,7 @@ Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260518.jpg" />
+  <img src="Z:/picture/005/save_picture_260518.jpg" />
 </div>
 
 
@@ -256,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256756.jpg" />
+  <img src="Z:/picture/005/save_picture_256756.jpg" />
 </div>
 
 
@@ -285,7 +367,7 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255843.jpg" />
+  <img src="Z:/picture/005/save_picture_255843.jpg" />
 </div>
 
 
@@ -322,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255055.jpg" />
+  <img src="Z:/picture/005/save_picture_255055.jpg" />
 </div>
 
 
@@ -351,7 +433,7 @@ The Australian Pink Floyd Show Live at Hammersmith Apollo (2011/2012) BDRip [720
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253277.jpg" />
+  <img src="Z:/picture/005/save_picture_253277.jpg" />
 </div>
 
 
@@ -386,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252488.jpg" />
+  <img src="Z:/picture/005/save_picture_252488.jpg" />
 </div>
 
 
@@ -415,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252466.jpg" />
+  <img src="Z:/picture/005/save_picture_252466.jpg" />
 </div>
 
 
@@ -444,7 +526,7 @@ Metallica - Live in Moscow (2019) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250162.jpg" />
+  <img src="Z:/picture/004/save_picture_250162.jpg" />
 </div>
 
 
@@ -473,7 +555,7 @@ NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247835.jpg" />
+  <img src="Z:/picture/004/save_picture_247835.jpg" />
 </div>
 
 
@@ -503,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246208.jpg" />
 </div>
 
 
@@ -529,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246029.jpg" />
+  <img src="Z:/picture/004/save_picture_246029.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244491.jpg" />
+  <img src="Z:/picture/004/save_picture_244491.jpg" />
 </div>
 
 
@@ -585,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244470.jpg" />
+  <img src="Z:/picture/004/save_picture_244470.jpg" />
 </div>
 
 
@@ -614,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243718.jpg" />
+  <img src="Z:/picture/004/save_picture_243718.jpg" />
 </div>
 
 
@@ -643,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243336.jpg" />
+  <img src="Z:/picture/004/save_picture_243336.jpg" />
 </div>
 
 
@@ -655,91 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC491492CF178155588B6E2EFE574CE55779AB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623554   (243327) от 02.04.2023
-
-Квартирник у Маргулиса. Группа «Рекорд Оркестр» (01.04.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд Оркестр — рок-группа из города Владимир, основана в 2009-м году. В дальнейшем до 2019-го года группа выпускала только синглы, один из которых, «Лада Седан», стал национальным хитом и прославил коллектив на всю страну.00:00:06  Больше не будет горя и слез
-00:06:04  Во мрак
-00:13:27  Мир самых добрых людей
-00:21:26  Баба, дай!(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE9471AC6B9D669C4DA53260404FC96596EFD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539801   (243126) от 27.03.2022
-
-Квартирник у Маргулиса. Группа Курара (26.03.2022) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243126.jpg" />
-</div>
-
-
-###  Подробнее
-
-О рок-группе «Курара» впервые заговорили в 2004: коллектив появился на развалинах группы «Шаманы», их необычный микс из рока и шаманских ритмов сразу привлек внимание. За время своего существования группа записала девять студийных альбомов, при этом каждый новый отличается от предыдущего, но сохраняет привычный стиль музыкантов. В гостях у Евгения Маргулиса участники (   Читать дальше...   )00:00:05 Протуберанцы
-00:06:47 Не моё пальто
-00:13:54 Пятна
-00:22:06 Где-то там(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F061B5D845A9B5ADEFD2F65EE7EAF88F3ACED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627660   (242712) от 20.04.2023
-
-МузЛофт / МузLoft. Ваня Дмитриенко (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242712.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Ваня Дмитриенко. Про дружбу с Лепсом, свое совершеннолетие и критику от звезд. Сегодня у нас в гостях самый юный гость! Но при этом у Вани уже множество историй, потрясающая харизма и завораживающий голос. Ваня Дмитриенко, это юная звезда нашего шоу-бизнеса, которая (   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B712BEF77347D25F09C50DB841F2AC012E785B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

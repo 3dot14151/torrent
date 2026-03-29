@@ -1,3 +1,119 @@
+###  Публикация: 166028   (822435) от 17.10.2021
+
+Acoustic Alchemy - Discography (1987 - 2007) 17CD [WavPack|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитаристы Ник Вебб и Грег Кармайкл в 80-х и 90-х годах прошлого столетия под вывеской "Acoustic Alchemy" произвели на свет серию интересных альбомов, классифицируемых на Западе как "adult contemporary music". На самом деле в музыке "алхимиков" всегда присутствовала смесь различных стилей: джаз, фолк, поп, латино, нью-эйдж, соул и т. (   Читать дальше...   )Список альбомов:
+Red Dust & Spanish Lace (1987)
+Natural Elements (1988)
+Blue Chip (1989)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 14:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DA281661A152440309F1525A796890304C9C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196614   (822406) от 03.01.2018
+
+Brenda Layne - Torch (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kindred Spirits
+02. Breakthrough to the Temperate Zone
+03. Lucky Charm
+04. Solo Act(   Читать дальше...   )Жанр: JazzПродолжительность: 00:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D1A592F360026E0950CEE4BCB5E930F069079C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196810   (821758) от 30.04.2010
+
+VA - 100% Jazz Hits volume 1 (2001) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima & His Band - I Wanna Be Like You  (4:22)
+02. Louis Armstrong - Cabaret  (2:43)
+03. Ella Fitzgerald - Mack The Knife (Live)  (5:04)
+04. Nina Simone - My Baby Just Cares For Me  (3:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007522   (821694) от 15.04.2016
+
+The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Can't Get Started [05:40]
+ 02.Cooking The Blues [07:02]
+ 03.Stardust [06:09]
+ 04.How About You [06:52](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF2798782F6243E0C4FBAA25FFF641498CADF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007516   (821621) от 15.04.2016
 
 Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821621.jpg" />
+  <img src="Z:/picture/008/save_picture_821621.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sadao Watanabe - Naturally (2016) Red River [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821341.jpg" />
+  <img src="Z:/picture/008/save_picture_821341.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ McCoy Tyner Quartet - Live At Yoshi's (2007) Half Note Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821284.jpg" />
+  <img src="Z:/picture/008/save_picture_821284.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Antipop Consortium - Antipop Vs. Matthew Shipp (2003) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821283.jpg" />
+  <img src="Z:/picture/008/save_picture_821283.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Earl Bostic - The EP Collection (1951-1958) 1999, See For Miles Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821281.jpg" />
+  <img src="Z:/picture/008/save_picture_821281.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Russ Freeman - Trio & Quartet (1952 -1959) 2010, Fresh Sound Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821193.jpg" />
+  <img src="Z:/picture/008/save_picture_821193.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Chico Freeman - Tradition in Transition (1982) 2008, Wounded Bird Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821181.jpg" />
+  <img src="Z:/picture/008/save_picture_821181.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Classical Jazz Quartet - Complete Recordings (2001, 2002) 2CD, 2015, Recording A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821179.jpg" />
+  <img src="Z:/picture/008/save_picture_821179.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Thelonious Monk - Monk Alone (1962-1968) 2CD, 1998, Columbia [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821177.jpg" />
+  <img src="Z:/picture/008/save_picture_821177.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Mark Murphy - Memories of You: Remembering Joe Williams (2003) HighNote [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821033.jpg" />
+  <img src="Z:/picture/008/save_picture_821033.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Yusef Lateef - The Doctor Is In ...and Out (1976) 2002, Collectables [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820748.jpg" />
+  <img src="Z:/picture/008/save_picture_820748.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Darryl Williams - Here To Stay (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820744.jpg" />
+  <img src="Z:/picture/008/save_picture_820744.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Earl ''Fatha'' Hines - Here Comes (1966) Remaster, 2014, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819905.jpg" />
+  <img src="Z:/picture/008/save_picture_819905.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dorothy Donegan - Live At The Widder Bar (1986) Remaster, 2015, Solid Records[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819897.jpg" />
+  <img src="Z:/picture/008/save_picture_819897.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chet Baker - Live In Rosenheim: Chet Baker's Last Recording As Quartet (1988) Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819894.jpg" />
+  <img src="Z:/picture/008/save_picture_819894.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Miller, Petrucciani, Lagrene, White, Garrett - Dreyfus Night In Paris (recorded 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819824.jpg" />
+  <img src="Z:/picture/008/save_picture_819824.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Weather Report - Night Passage (1980) Reissue 1990 [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819755.jpg" />
+  <img src="Z:/picture/008/save_picture_819755.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Dinah Shore - Happy In Love (1940 - 1942) 1995, Hallmark Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819596.jpg" />
+  <img src="Z:/picture/008/save_picture_819596.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Mark Murphy - Song For The Geese (1997) RCA Victor [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819414.jpg" />
+  <img src="Z:/picture/008/save_picture_819414.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819351.jpg" />
+  <img src="Z:/picture/008/save_picture_819351.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819279.jpg" />
+  <img src="Z:/picture/008/save_picture_819279.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819278.jpg" />
+  <img src="Z:/picture/008/save_picture_819278.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F40FDBBE08965D253A2A9610AA65B620F24D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117303   (819267) от 22.03.2017
-
-Miles Davis - Porgy & Bess / Miles: The New Miles Davis Quintet & Blue Haze (1955, 1956, 1958) 2CD, 2010, Not Now Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819267.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Porgy And Bess:
-01.Buzzard Song [04:13]
-02.Bess, You Is My Woman Now [05:17]
-03.Gone [03:43](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEB86B2D2B8D11EFB1210F274EE27D269F8CD2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117340   (819250) от 22.03.2017
-
-Jack Jezzro - Sinatra On Guitar (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly With Me
-02. You Make Me Feel So Young
-03. Strangers In The Night
-04. Fly Me To The Moon(   Читать дальше...   )Жанр: Smooth Jazz, GuitarПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF5C91B434F5DC5E032BC1599C4CA908857CC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196923   (819213) от 05.01.2018
-
-John Frigo And His Quintet - I Love John Frigo, He Swings (1957) 2004, Universal [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Difference a Day Made [02:31]
-02. Polka Dots and Moonbeams [04:19]
-03. Blow Fiddle Blow [02:50]
-04. Blue Orchids [03:02](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5916B988D1C8F868F4E376B852427DB34919BAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196921   (819202) от 05.01.2018
-
-Frank Wess & Harry Edison Orchestra - Dear Mr. Basie (1989) Concrod Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' At The Woodside [03:54]
-02. The Very Thought Of You [05:05]
-03. Blue On Blue [04:27]
-04. All Riled Up [04:47](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6844A14FAFDDE4E18223D65BAE0A4D7E2620F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

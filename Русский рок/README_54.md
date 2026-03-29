@@ -1,3 +1,116 @@
+###  Публикация: 1562073   (509220) от 09.07.2022
+
+Длина Дыхания - Дорога к солнцу (2022) [MP3|320 Kbps] <Russian Art. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Удивительный день [00:04:59]
+02 - Огонь [00:04:43]
+03 - Если ты слышишь меня [00:05:30]
+04 - Прими [00:04:45](   Читать дальше...   )Жанр: Russian Art. RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F32E47C62BB9FF99582608CF4842C76BAF1A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562049   (509036) от 09.07.2022
+
+BelMel Studio - Хозяйкам на заметку (2022) [MP3|320 Kbps] <Russian Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дед Грибоед [00:02:02]
+02 - Грязный Гарри [00:01:45]
+03 - Хозяйкам на заметку [00:01:50]
+04 - Казачья [00:02:06](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4574B768A205045ED86866AB2C35A5A4B6582165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562465   (509022) от 09.07.2022
+
+Хитобои - Всё на свете ерунда (2022) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509022.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Всё на свете ерунда
+2. Молитвенная
+3. Свадебная
+4. Е*идодыр(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADC7104C58CFB5953891E364E359FFFD80FEF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502300   (508931) от 29.08.2015
+
+Клетка - Памяти Виктора Цоя посвящается (2001) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B0B59F33AAB804FA0385D6AA3ED83A404E0170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932633   (508851) от 29.08.2015
 
 Юлия Коган - Огонь-баба (2015) [MP3|320 кб/с]<Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508851.jpg" />
+  <img src="Z:/picture/008/save_picture_508851.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Utopia Lights (ex-DIAGENS) - Vote, Repost, Consume! (2022) [MP3|320 Kbps] <Punk,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506324.jpg" />
+  <img src="Z:/picture/008/save_picture_506324.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Aether - Aether (2022) [MP3|320 Kbps] <Psych, Stoner, Sludge>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506320.jpg" />
+  <img src="Z:/picture/008/save_picture_506320.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506314.jpg" />
+  <img src="Z:/picture/008/save_picture_506314.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Forest Fire - Осколки (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506310.jpg" />
+  <img src="Z:/picture/008/save_picture_506310.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Soulipsist - Гештальт терапия. Сеанс 1 (2022) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506224.jpg" />
+  <img src="Z:/picture/008/save_picture_506224.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506222.jpg" />
+  <img src="Z:/picture/008/save_picture_506222.jpg" />
 </div>
 
 
@@ -206,7 +319,7 @@ E.S.T. - Russian Vodka (Demo) (1988) Mini-Album, 2022, Limited Edition [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506219.jpg" />
+  <img src="Z:/picture/008/save_picture_506219.jpg" />
 </div>
 
 
@@ -235,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506079.jpg" />
+  <img src="Z:/picture/008/save_picture_506079.jpg" />
 </div>
 
 
@@ -264,7 +377,7 @@ Babooshka - На страже Православия (2019) [MP3|320 Kbps] <Punk
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505070.jpg" />
+  <img src="Z:/picture/008/save_picture_505070.jpg" />
 </div>
 
 
@@ -293,7 +406,7 @@ Parkket - Научиться летать (2012) [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504870.jpg" />
+  <img src="Z:/picture/008/save_picture_504870.jpg" />
 </div>
 
 
@@ -328,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503516.jpg" />
+  <img src="Z:/picture/008/save_picture_503516.jpg" />
 </div>
 
 
@@ -357,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503344.jpg" />
+  <img src="Z:/picture/008/save_picture_503344.jpg" />
 </div>
 
 
@@ -386,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503183.jpg" />
+  <img src="Z:/picture/008/save_picture_503183.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501662.jpg" />
+  <img src="Z:/picture/008/save_picture_501662.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501569.jpg" />
+  <img src="Z:/picture/008/save_picture_501569.jpg" />
 </div>
 
 
@@ -473,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501160.jpg" />
+  <img src="Z:/picture/008/save_picture_501160.jpg" />
 </div>
 
 
@@ -502,7 +615,7 @@ Nalien - Моя маленькая вселенная (2022) [MP3|320 Kbps] <Pun
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500651.jpg" />
+  <img src="Z:/picture/008/save_picture_500651.jpg" />
 </div>
 
 
@@ -531,7 +644,7 @@ Seraphim Project - 2 Albums (2020-2021) [MP3|320 Kbps] <Heavy Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500513.jpg" />
+  <img src="Z:/picture/008/save_picture_500513.jpg" />
 </div>
 
 
@@ -559,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499762.jpg" />
+  <img src="Z:/picture/008/save_picture_499762.jpg" />
 </div>
 
 
@@ -588,7 +701,7 @@ YARuGA - Карколист (2022) [MP3|320 Kbps] <Ritual, Dark Pagan Folk Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499705.jpg" />
+  <img src="Z:/picture/008/save_picture_499705.jpg" />
 </div>
 
 
@@ -618,7 +731,7 @@ Sorrowful Knight - Legacy of The Knight (Best of 2014-2020) (2022) [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499594.jpg" />
+  <img src="Z:/picture/008/save_picture_499594.jpg" />
 </div>
 
 
@@ -632,122 +745,6 @@ Sorrowful Knight - Legacy of The Knight (Best of 2014-2020) (2022) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB22D8DE9A98509A6F3B45A50997A3897C804C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564561   (499593) от 19.07.2022
-
-Нейро - С обратной стороны (2015) Remastered, 2022 [MP3|320 Kbps] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:03:00]
-02 - С обратной стороны [00:03:50]
-03 - Жажда крови [00:03:29]
-04 - Когда она... [00:04:36](   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CCE82A089C03467BEDA068C05617757A3BF2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235145   (499579) от 10.09.2010
-
-Чичерина - 6 Альбомов,  3 Сингла, 2 Концерта, Сборник Ремиксов(2000-2010) [MP3|128-320 кб/с]<Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Дмитриевна Чичерина - российская певица, автор и исполнительница песен в жанре поп-рок. Относится к волне «Уральского рока», наряду с Сансарой и Смысловыми галлюцинациями.
-
-Чичерина родилась в 1978 году в Свердловске (ныне Екатеринбург), РСФСР, СССР. Потомок наркома иностранных дел Георгия Чичерина. В детстве пела в детском хоре «Горошинки». Занималась рисованием, пыталась поступить в институт искусствоведения. Кратковременно играла на гитаре и барабанах в разных группах, потом поступила в музыкальное училище по классу эстрадного вокала. Подрабатывала расклейкой афиш.
-В 1997 основала свой музыкальный коллектив, в который, помимо Юлии, вошли Азат Мухаметов, Александр Бурый и Александр «DrOff» Александров. 1 июня 1997 года состоялось первое выступление Чичериной в клубе «J-22».Жанр: Pop-RockПродолжительность: 08:50:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935248   (499406) от 08.09.2015
-
-АукцЫон - Бодун (1991) 2CD Remastered /2015, Геометрия/ [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самолёт
-02. Немой
-03. Пионер
-04. Боюсь(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A181D95B30FD55413760231F8849274B13D2CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564728   (498581) от 20.07.2022
-
-YARuGA - Вайга (2020) [MP3|320 Kbps] <Ritual, Dark Pagan Folk Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вайга [00:04:24]
-02 - Славление Триглава [00:03:59]
-03 - Обряд [00:04:56]
-04 - Ведьма [00:03:34](   Читать дальше...   )Жанр: Ritual, Dark Pagan Folk Metal, Female VocalПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59882D06ECF3CADD4BDBB59FDF0F6F0B948CB5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

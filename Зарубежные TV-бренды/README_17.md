@@ -1,3 +1,107 @@
+###  Публикация: 839178   (857370) от 26.03.2016
+
+Discovery: Будущее с Джеймсом Вудсом. Как стать суперчеловеком? / Futurescape with James Woods. How to be a Superhuman? (2014) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что вы можете читать мысли других людей с помощью своего мобильного телефона, а вместо автомобиля используете костюм из фильма «Железный человек». Вы не страдаете от болезней, потому что даже рак исцеляется с помощью специальных имплантатов. Технологии, которые несколько лет назад встречались только в фантастической литературе, постепенно проникают в (   Читать дальше...   )Жанр: Научно-популярный, познавательный, фантастикаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C26EFFE98935649210DACFAD6EA3EA106B7D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190137   (856325) от 09.04.2010
+
+BBC: История Единицы с Терри Джонсом / The Story of 1 (2005) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_856325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как «единица» помогла построить первые города и великие империи? Как вдохновляла выдающиеся умы человечества? Какую роль в появлении денег она сыграла? Как «единица» объединилась с нулем, чтобы править современным миром? История единицы неразрывно связана с историей европейской цивилизации. Терри Джонс отправляется в юмористическое путешествие с целью собрать воедино (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875575   (855970) от 07.03.2015
+
+NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855970.jpg" />
+</div>
+
+
+###  Подробнее
+
+За пределами парка "Магическое королевство" Диснейленда находится дикая часть Флориды, где захватывающая красота ландшафта объединяется с живой природой, и здесь, между лабиринтами кипарисовых болот, людными пляжами и коралловыми островами развязываются безжалостные драмы. Две истории проведут нас в эту скрытую дикую местность, где нашему взгляду откроются (   Читать дальше...   )Производство: США, Produced By 2C Media, INC. For National Geographic ChannelsЖанр: Документальный, познавательный, природа, флора, фаунаРежиссер: Вирджиния СоммаПеревод: ДублированныйПродолжительность: 2 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7392AB12FF6FBA9F491CBF6B0DFF28AF9DCE3F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304018   (854542) от 08.03.2011
+
+Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Сезон 1, Серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал, который рассказывает о соревновании рыболовецких судов в Беринговом море во время сезонов ловли королевского краба и краба-опилио (стригуна). База действий - Датч-Харбор, порт на небольшом острове Амакнак в бухте Уналашка, близ острова Уналашка из группы Алеутских островов. Команды судов подвергаются огромному риску. В любой момент можно получить травму или (   Читать дальше...   )Производство: США, Discovery NetworkЖанр: Документальный, приключения, реалити-ТВПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 серий по ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC9955AA88229F89E41D0E23F3DD5AAC9BCC974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 306060   (854308) от 08.03.2011
 
 NG: Доисторические хищники / Prehistoric Predators  (2009) HDTVRip [H.264/720p] (сезон 1, серий 5 из 7) [PR]
@@ -6,7 +110,7 @@ NG: Доисторические хищники / Prehistoric Predators  (2009) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854308.jpg" />
+  <img src="Z:/picture/008/save_picture_854308.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854303.jpg" />
+  <img src="Z:/picture/008/save_picture_854303.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854073.jpg" />
+  <img src="Z:/picture/008/save_picture_854073.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854035.jpg" />
+  <img src="Z:/picture/008/save_picture_854035.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC. Биологические часы: как они работают? / Body
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853261.jpg" />
+  <img src="Z:/picture/008/save_picture_853261.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852128.jpg" />
+  <img src="Z:/picture/008/save_picture_852128.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851925.jpg" />
+  <img src="Z:/picture/008/save_picture_851925.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851869.jpg" />
+  <img src="Z:/picture/008/save_picture_851869.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850995.jpg" />
+  <img src="Z:/picture/008/save_picture_850995.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849375.jpg" />
+  <img src="Z:/picture/008/save_picture_849375.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849271.jpg" />
+  <img src="Z:/picture/008/save_picture_849271.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848643.jpg" />
+  <img src="Z:/picture/008/save_picture_848643.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848642.jpg" />
+  <img src="Z:/picture/008/save_picture_848642.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848569.jpg" />
+  <img src="Z:/picture/008/save_picture_848569.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848518.jpg" />
+  <img src="Z:/picture/008/save_picture_848518.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848367.jpg" />
+  <img src="Z:/picture/008/save_picture_848367.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC. Смартфоны: темная сторона / Smartphones: The Dark Sid
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847938.jpg" />
+  <img src="Z:/picture/008/save_picture_847938.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_847772.jpg" />
+  <img src="Z:/picture/005/save_picture_847772.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery: Будущее с Джеймсом Вудсом. Заменяя Бо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846773.jpg" />
+  <img src="Z:/picture/008/save_picture_846773.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Tехнологии, которые нас меняют /  DSKNECTD: Is Technolo
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846505.jpg" />
+  <img src="Z:/picture/008/save_picture_846505.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846389.jpg" />
+  <img src="Z:/picture/008/save_picture_846389.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ History Channel. Америка. История Соединенных Штат�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846331.jpg" />
+  <img src="Z:/picture/008/save_picture_846331.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ History Channel. Америка. История Соединенных Штат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13ED7F66F4668F31F1B8B18B49ADC4239932471C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303607   (846130) от 25.04.2020
-
-NG: Затерянные сокровища Майя / Lost Treasures of the Maya (2019) HDTV [H.264/1080i-LQ] (серии 1-2 из 4) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альберт Лин отправляется в гватемальские джунгли, чтобы исследовать результаты составленной с помощью новейших технологий "карты сокровищ", позволившей обнаружить десятки тысяч древних руин.Производство: Великобритания, National GeographicЖанр: Документальный, история, исследованияРежиссер: Алистер Дункан, Джеймс Левел, Бэн Уилсон, Грэхам КуперПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E042A15E24E4FB1D49C60C0862D0A10888C17E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378619   (845801) от 25.04.2020
-
-BBC. Европа изнутри: десять лет смятения (десять лет разногласий) / Inside Europe: Ten Years of Turmoil (2019) HDTVRip [H.264/1080p-LQ] (серии 3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейский долговой кризис, рост иммиграции, референдум о членстве Великобритании в Европейском союзе, подъём национализма. В последнее десятилетие Единая Европа переживала один острейший кризис за другим. И теперь, когда долго обсуждавшийся выход Британии из Евросоюза становится реальностью, самое время вспомнить недавнее прошлое Единой Европы и заглянуть в её (   Читать дальше...   )Производство: Великобритания, BBC TwoЖанр: Документальный, политикаРежиссер: Тим Штирзакер, Таня Рахманова, Ариан РикерПеревод: Двуголосый закадровый, профессиональный (BBC News Русская служба)Субтитры: отсутствуютПродолжительность: 3 х ~00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412A1E91F7E8437DF439CAB5420844D45F74F1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308509   (845646) от 13.03.2011
-
-NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простираясь на 11 часовых поясов и расположившись на территории двух континентов, от центра Европы до Тихого океана, эта огромная страна поражает своим размахом и нетронутыми природными богатствами, которые в их первозданной красоте таят необъятные Российские просторы, раскинувшиеся вдали от шумных и тесных мегаполисов - Москвы и Санкт - Петербурга. Получив уникальную (   Читать дальше...   )Телекомпания: NGЖанр: ДокументальныйПеревод: ДублированныйПродолжительность: NG: Wild Russia
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD27CBE189E46A23949C8F37F1D60B5644328A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650312   (845456) от 29.04.2013
-
-Мрачное обаяние Адольфа Гитлера / The Dark Charisma of Adolf Hitler (2012) SATRip (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адольф Гитлер - лидер страны с богатейшей культурой в самом сердце Европы. Человек, не способный к нормальным человеческим отношениям, лишенный сострадания, преисполненный ненависти и предрассудков. Еще задолго до Второй Мировой Войны Гитлер с жестокостью говорил о своих политических противниках. Ненависть Гитлера приведет к холокосту, а его жажда завоеваний оставит (   Читать дальше...   )Производство: Великобритания, LR History TV Productions (for BBC)Жанр: Документальный, история, война, биографияРежиссер: Лоуренс РизПеревод: Профессиональный двухголосый (ТПО «RED MEDIA»)Продолжительность: Каждая серия х ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF6AED00645002B96FAD438F2E42F16FC9CB25
 ```
 
 https://mybot314.ru/tekegram_catalog/

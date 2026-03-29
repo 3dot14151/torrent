@@ -6,7 +6,7 @@ NVIDIA GeForce Desktop 418.91 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742110.jpg" />
+  <img src="Z:/picture/008/save_picture_742110.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft Blu-ray Player 6.2.92 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742087.jpg" />
+  <img src="Z:/picture/008/save_picture_742087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Slimjet 10.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742077.jpg" />
+  <img src="Z:/picture/008/save_picture_742077.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Drive Image Technician 6.2.Build.6202 RePack (& Portable) by TryRooM  [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742037.jpg" />
+  <img src="Z:/picture/008/save_picture_742037.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Display Driver Uninstaller 18.0.4.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742017.jpg" />
+  <img src="Z:/picture/008/save_picture_742017.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Spotify 1.1.76.447 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742016.jpg" />
+  <img src="Z:/picture/008/save_picture_742016.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ EZ CD Audio Converter 9.5.3.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742015.jpg" />
+  <img src="Z:/picture/008/save_picture_742015.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ LosslessCut 3.42.0 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742009.jpg" />
+  <img src="Z:/picture/008/save_picture_742009.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741996.jpg" />
+  <img src="Z:/picture/008/save_picture_741996.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741989.jpg" />
+  <img src="Z:/picture/008/save_picture_741989.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tor Browser Bundle 8.0.6 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741987.jpg" />
+  <img src="Z:/picture/008/save_picture_741987.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741986.jpg" />
+  <img src="Z:/picture/008/save_picture_741986.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741983.jpg" />
+  <img src="Z:/picture/008/save_picture_741983.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ WinTools.net Premium 16.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741956.jpg" />
+  <img src="Z:/picture/008/save_picture_741956.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CCleaner 5.18.5607 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741949.jpg" />
+  <img src="Z:/picture/008/save_picture_741949.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Auslogics BoostSpeed 10.0.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741930.jpg" />
+  <img src="Z:/picture/008/save_picture_741930.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Advanced Renamer 3.82 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_741928.jpg" />
+  <img src="Z:/picture/005/save_picture_741928.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Media Player Classic Home Cinema 1.7.16 RePack (& portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741922.jpg" />
+  <img src="Z:/picture/008/save_picture_741922.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7229.5000 (2019.02) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741861.jpg" />
+  <img src="Z:/picture/008/save_picture_741861.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741857.jpg" />
+  <img src="Z:/picture/008/save_picture_741857.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Windows 10 Pro 1809 (17763.316) x64 by vladislays v19.02.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741854.jpg" />
+  <img src="Z:/picture/008/save_picture_741854.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wise Disk Cleaner 8.44.598 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741843.jpg" />
+  <img src="Z:/picture/008/save_picture_741843.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ IObit Uninstaller 4.3.0.118 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741836.jpg" />
+  <img src="Z:/picture/008/save_picture_741836.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Punto Switcher 4.2.5 Build 1238 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741793.jpg" />
+  <img src="Z:/picture/008/save_picture_741793.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ K-Lite Codec Pack Update 11.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741748.jpg" />
+  <img src="Z:/picture/008/save_picture_741748.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ IObit Smart Defrag 4.0.2.698 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741747.jpg" />
+  <img src="Z:/picture/008/save_picture_741747.jpg" />
 </div>
 
 

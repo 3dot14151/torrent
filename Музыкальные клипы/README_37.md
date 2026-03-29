@@ -1,3 +1,81 @@
+###  Публикация: 1793467   (66805) от 16.05.2025
+
+NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: ЯпонияЖанр: JpopРежиссер: NiziUАктеры: Мако, Рио, Майя, Рику, Аяка, Маюка, Рима, Миихи и НинаПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7324F2FBAFD25697EAAB7EE7E6D876AA2ED8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796491   (66749) от 18.05.2025
+
+Suzy - Come back (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: Ballad / KpopРежиссер: Suzy KangПродолжительность: 00:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797649   (66745) от 18.05.2025
+
+Юлия Савичева x TRITIA – Каплями (2025) WEBRip [H.264/1080p/1440/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера клипа. Юлия Савичева, TRITIA – Каплями (Official video)Производство: РоссияЖанр: Поп-рокРежиссер: Андрей АкутинПродолжительность: 00:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF57D9181F0CEF6433A87A02938E28CFBE3DD093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798420   (66621) от 22.05.2025
 
 Владимир Пресняков – Только ты никогда (2024) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66621.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ Miyeon - Drive (Live) (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65428.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Scooter - Video collection - Chapter 3 (2003 - 2005) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62011.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60968.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58528.jpg" />
 </div>
 
 
@@ -144,7 +222,7 @@ E-rotic - сборник клипов (1994-2002)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58502.jpg" />
 </div>
 
 
@@ -173,7 +251,7 @@ Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56724.jpg" />
 </div>
 
 
@@ -202,7 +280,7 @@ Emma Shapplin (1997-1999) DVDRip [MPEG2]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56653.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ Modern Talking - Video Collection (2024) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56499.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55436.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Chris Isaak  "BEST OF" (2006) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51554.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ ZZ Top: Greatest Hits (2004) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50210.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49699.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Shocking Blue - Greatest Hits Around the World (2004) DVD-5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49160.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Status Quo - "XS All Areas" (2004) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48827.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48824.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48817.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47485.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47308.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47163.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47088.jpg" />
 </div>
 
 
@@ -597,7 +675,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46784.jpg" />
 </div>
 
 
@@ -626,7 +704,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45963.jpg" />
 </div>
 
 
@@ -637,90 +715,6 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 307909   (43535) от 15.09.2024
-
-Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник концертных выступлений, рекламных роликов и видеоклипов известной британской группы «Manfred Mann's Earth Band».01. Blinded By The Light (Top Of The Pops, BBC TV UK - 1976)
-02. Joybringer (Hits A Go-Go, Swiss TV - 1973)
-03. Don't Kill It Carol (Promo Video - 1979)
-04. Brothers And Sisters Of Africa (Tour Cartoon - 1983)(   Читать дальше...   )Жанр: Rock, Jazz-Rock, Pop-Rock, British Invasion, Prog-Rock, Art RockПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260421   (43212) от 18.09.2024
-
-ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43212.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD 2:
-1. Gimme! Gimme! Gimme!
-2. Mamma Mia
-3. Dancing Queen(   Читать дальше...   )Жанр: EurodiscoФормат: DVD VideoКачество: DVD 9Продолжительность: 2:15 min
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F0B451AC93DBD43B6BEE2023F9F5B3E7D717AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749524   (43190) от 18.09.2024
-
-ВИА ГРА - Избранная видеография (2002-2008) DVDRip [H.264/1080p] [AI Upscale, 50fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43190.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ВИА Гра» (англ. Nu Virgos, укр. ВІА Гра) — украинская женская поп-группа, образованная в 2000 году в Киеве. Коллектив считался одним из самых успешных русскоязычных музыкальных проектов 2000-х годов. Группой было записано 5 студийных альбомов: 3 из них получили золотой статус в России, 1 англоязычный альбом получил платиновый статус в Таиланде и золотой — в некоторых (   Читать дальше...   )01. Good morning, папа!Производство: УкраинаЖанр: Pop, EuropopРежиссер: Семён Горов и другиеПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7293A040ACB5B96DAD4A1A6C44042310424E6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

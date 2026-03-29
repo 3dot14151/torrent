@@ -1,3 +1,32 @@
+###  Публикация: 1093458   (933854) от 15.01.2017
+
+Breed 77 - Acoustic Rarities (2015) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember That Day (04:35)
+02. Low (04:15)
+03. One More Time (03:58)
+04. The River (03:56)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1489A828F32313E5D5B22F8305CF6A7EE5A4DF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364908   (933252) от 05.03.2020
 
 Robert Plant - Digging Deep (2020) Singles Collection [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Robert Plant - Digging Deep (2020) Singles Collection [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933252.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Utopia - Oops! Wrong Planet (1977) Remastered, 1995, Mobile Fidelity Sound Lab [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932422.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Riders On The Stoorm: 16 Psychedelic Rock Nuggets (2014) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931951.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929385.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Katalina Gonzalez - Sin Paradigmas (2017) [MP3|320 Kbps] <Rock: Instrumental Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927784.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ RPWL - 2 альбома (2015-2016) Live [MP3|320 Kbps] <Rock, Progressive & Art
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927680.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927404.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Fetenhits Rock Classics-Best of (2020) 3CD, Box Set [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927262.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927069.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Point Blank - Point Blank (1976) Reissue, 2006, Wounded Bird Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926194.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Karaoke Band - The Led Zeppelin 1960- 70s Karaoke Songbook 1 (2008) 2CD [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925503.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Mason - Harbour (1971) Reissue, 1999, Gear Fab Records [MP3|320 Kbps] <Psych-Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924471.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ QSP (Quatro Scott Powell) - QSP (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924178.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Be
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922822.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Stray Cats - Sex, Drugs and Rock'n'Roll (The Best Hits) (2003) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922582.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Arktis - Arktis (1973) Reissue, 1998, Garden Of Delights [MP3|320 Kbps] <Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921049.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ David Duchovny - Gestureland (2021) [MP3|320 Kbps] <Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920872.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Rock Out (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920665.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Paul Simon - Greatest Hits (2000) [MP3|320 kbps]<Folk-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920480.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Queen - Discography (1968-2014) 212 Albums [MP3|128-320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920123.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Joe Satriani - Дискография (1986-2010) [MP3|320 kbps]<Instrumental-Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919642.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919397.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Walpurgis - Queen Of Saba (1972) [MP3|320 кб/с] <Krautrock, Psych-Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919240.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Dark Circus - Lipstick Party Killer (2016) [MP3|320 кб/с] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919195.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Christoffer Franzen [of Lights & Motion] - 9 Albums - 1 Single (2013-2017) [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919145.jpg" />
 </div>
 
 
@@ -729,41 +758,6 @@ Lights & Motion - проект музыканта-мультиинструмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0ED5ED5628B2173F0031FA006980D00C877596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289319   (918622) от 31.01.2011
-
-Elvis Presley - 24 Karat Hits! (2010) [MP3|256 kbps]<Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918622.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Heartbreak Hotel
-2.Love Me
-3.Don't Be Cruel
-4.Hound Dog
-5.A Big Hunk O'Love
-6.All Shook Up
-7.(Let Me Be Your) Teddy Bear
-8.Jailhouse Rock
-9. Wear My Ring Around Your Neck
-10.Love Me Tender(   Читать дальше...)Жанр: Rock and RollПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79793408DAF977762D5BB792497B943375F72690
 ```
 
 https://mybot314.ru/tekegram_catalog/

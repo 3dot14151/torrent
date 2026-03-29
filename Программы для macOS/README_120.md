@@ -1,3 +1,134 @@
+###  Публикация: 1608167   (245926) от 29.01.2023
+
+PowerPhotos 2.1.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245926.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2023Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9F1DFDBF906D0B43A37CAF5842E24A07818967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623593   (245889) от 02.04.2023
+
+TurnTable 4.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный плеер. Обзор и воспроизведение вашей музыкальной коллекции в новом виде музыкального интерфейса. Играйте в жизнь самым убедительным образом.
+Смотрите полноразмерные и «полноцветные» обложки альбомов, созданные как настоящий альбом, но для цифрового носителя.  В программном обеспечении никогда не было ничего подобного.Тип издания: OS X SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2014-2021 Aquarius ComputerПоддерживаемая ОС: OS X 11.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162A8176CC7F78C62AA564BF0D791B2AC40E7DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448577   (245837) от 18.02.2021
+
+Fontography - Text on Picture‪s‬ 2.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245837.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью Fontography - Text on Picture‪s‬ добавьте великолепный и вдохновляющий текст к своим фотографиям.Тип издания: macOS SoftwareРелиз состоялся: 12.0.4.2018Разработчик: Appgrammers LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B4B78E8B96DBB7C7777D1EC3E8C27F359B1198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608078   (245824) от 29.01.2023
+
+Mac Backup Guru 6.9.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mac Backup Guru позволяет копировать и вставлять загрузочный том в Finder или создавать добавочные снимки. Это единственное простое в использовании программное обеспечение, позволяющее копировать и вставлять что угодно — даже загрузочный том — с помощью контекстного меню в Finder.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2022Разработчик: © 2023 macdaddyПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12A507428246C6B41A7E230096DD9F84D9630F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448567   (245805) от 18.02.2021
+
+Convertos 2.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Convertos - потрясающий конвертер величин.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2020Разработчик: Vitaly Kuz'menkoПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B495A6641F8131D52219E3BAD93C2E8C6DE160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448832   (245644) от 19.02.2021
 
 Finer Focus 1.4 [En]
@@ -6,7 +137,7 @@ Finer Focus 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245644.jpg" />
+  <img src="Z:/picture/004/save_picture_245644.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Carbon Copy Cloner 6 v6.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245643.jpg" />
+  <img src="Z:/picture/004/save_picture_245643.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ Hostbuddy 2.2.5 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245635.jpg" />
+  <img src="Z:/picture/004/save_picture_245635.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ NotesTab Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245552.jpg" />
+  <img src="Z:/picture/004/save_picture_245552.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ Optimage 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245519.jpg" />
+  <img src="Z:/picture/004/save_picture_245519.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ Type Fu 4.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245455.jpg" />
+  <img src="Z:/picture/004/save_picture_245455.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ TextBar 3 v3.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245428.jpg" />
+  <img src="Z:/picture/004/save_picture_245428.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ Sketch n Cartoonize 3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245384.jpg" />
+  <img src="Z:/picture/004/save_picture_245384.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ Sketch 95.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245367.jpg" />
+  <img src="Z:/picture/004/save_picture_245367.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ FoneLab Video Converter Ultimate 9.2.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245314.jpg" />
+  <img src="Z:/picture/004/save_picture_245314.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ Task Office 8.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245308.jpg" />
+  <img src="Z:/picture/004/save_picture_245308.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ MarsEdit 5.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245242.jpg" />
+  <img src="Z:/picture/004/save_picture_245242.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ Creative Convert 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245173.jpg" />
+  <img src="Z:/picture/004/save_picture_245173.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245166.jpg" />
+  <img src="Z:/picture/004/save_picture_245166.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ SQLPro for SQLite 2022.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245144.jpg" />
+  <img src="Z:/picture/004/save_picture_245144.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ Batch Rename & Convert Photos for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245137.jpg" />
+  <img src="Z:/picture/004/save_picture_245137.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ Record It - Screen Recorder 1.5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245099.jpg" />
+  <img src="Z:/picture/004/save_picture_245099.jpg" />
 </div>
 
 
@@ -454,7 +585,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245055.jpg" />
+  <img src="Z:/picture/004/save_picture_245055.jpg" />
 </div>
 
 
@@ -480,7 +611,7 @@ BetterZip 5 v5.0.3 CR2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244989.jpg" />
+  <img src="Z:/picture/004/save_picture_244989.jpg" />
 </div>
 
 
@@ -507,7 +638,7 @@ Mirror for Grundig TV 3.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244972.jpg" />
+  <img src="Z:/picture/004/save_picture_244972.jpg" />
 </div>
 
 
@@ -533,7 +664,7 @@ DSLR Assistant 3.9.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244964.jpg" />
+  <img src="Z:/picture/004/save_picture_244964.jpg" />
 </div>
 
 
@@ -546,139 +677,6 @@ DSLR Assistant 3.9.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35EC032C55C1C228A8EFEE61298A30A35CF4D57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621481   (244642) от 25.03.2023
-
-Gemini 2: The Duplicate Finder 2.9.8 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, это Gemini 2: умная программа для поиска дубликатов на Mac. Она находит дубликаты и похожие файлы и удаляет их. Gemini 2 находит дубликаты с хирургической точностью.
-Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2023Разработчик: © 2022 MacPaw Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5279463C54304E268E66F47B115E7805CA706990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530818   (244562) от 12.02.2022
-
-Home Business Card 1.7.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Home Business Card — это конструктор визитных карточек, который помогает создавать визитки с использованием различных встроенных форматов этикеток, графических изображений и готовых дизайнов. Различные объекты, такие как текст, графика и изображения, могут быть легко добавлены в ваши документы.
-Многочисленные эффекты изображения, такие как уровень непрозрачности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2004-2021 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E8C3E9E33A5D19F67D9ADBCED073192AD0AC59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530830   (244536) от 12.02.2022
-
-CD DVD Label Maker 2.6.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите создать красивые и профессиональные этикетки для Mac CD / DVD, обложки, этикетки с двойной обложкой, футляры для драгоценностей, вкладыши в футляры, корешки или вам нужно пользовательское видео и коллекций MP3, у вас есть много семейных фотографий и данных для резервного копирования, или вы хотите создать уникальные подарки, тогда вы обнаружите, что (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.05.2021Разработчик: © 2004-2021 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66DA369CDDAD2B09471C98CE564A5A3FF1835C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530863   (244505) от 12.02.2022
-
-Paw (HTTP & REST Client) 3.3.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый продвинутый инструмент API для Mac. Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
-Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2022 Paw Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3D24AE5A2EA4E290A8CD73D26598617DE47E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621755   (244450) от 26.03.2023
-
-AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244450.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyRec Video Converter — это универсальное решение, которое может конвертировать более 1000 видео- и аудиоформатов. Вы можете пакетно конвертировать большие файлы со скоростью в 50 раз выше. Кроме того, вы можете получить доступ к встроенному видеоредактору и набору инструментов, чтобы сделать ваше видео лучше.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2023Разработчик: © 2023 Студия AnyRec.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165C738A4160C54A92210F2ADDDE160FFBCEE5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

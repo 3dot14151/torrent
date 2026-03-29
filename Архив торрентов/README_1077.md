@@ -6,7 +6,7 @@ Ashampoo Burning Studio 19.0.1.6 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800879.jpg" />
+  <img src="Z:/picture/008/save_picture_800879.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe components: Flash Player 28.0.0.137 + AIR 28.0.0.127 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800871.jpg" />
+  <img src="Z:/picture/008/save_picture_800871.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AusLogics BoostSpeed 10.0.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800868.jpg" />
+  <img src="Z:/picture/008/save_picture_800868.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CCleaner 5.39.6399 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800865.jpg" />
+  <img src="Z:/picture/008/save_picture_800865.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ R-Drive Image 6.3 Build 6303 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800857.jpg" />
+  <img src="Z:/picture/008/save_picture_800857.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Lucky Patcher 8.7.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800850.jpg" />
+  <img src="Z:/picture/008/save_picture_800850.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TeamViewer Free 15.5.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800847.jpg" />
+  <img src="Z:/picture/008/save_picture_800847.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ simplewall 3.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800838.jpg" />
+  <img src="Z:/picture/008/save_picture_800838.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ jv16 PowerTools 7.1.0.1292 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800834.jpg" />
+  <img src="Z:/picture/008/save_picture_800834.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BELOFF [dp] 2021.10.4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800824.jpg" />
+  <img src="Z:/picture/008/save_picture_800824.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6784.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800819.jpg" />
+  <img src="Z:/picture/008/save_picture_800819.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft .NET Framework 1.1 - 4.7.1 Final RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800809.jpg" />
+  <img src="Z:/picture/008/save_picture_800809.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800801.jpg" />
+  <img src="Z:/picture/008/save_picture_800801.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ MiniTool Power Data Recovery 8.8 Technician RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800788.jpg" />
+  <img src="Z:/picture/008/save_picture_800788.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Comedy Баттл. Новый сезон (22.05.2020) WEB-DL [H.264/1080p-LQ] (�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800787.jpg" />
+  <img src="Z:/picture/008/save_picture_800787.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ AOMEI Partition Assistant Technician Edition 9.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800773.jpg" />
+  <img src="Z:/picture/008/save_picture_800773.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ NetLimiter Pro 4.1.12.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800769.jpg" />
+  <img src="Z:/picture/008/save_picture_800769.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Internet Download Manager 6.39 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800765.jpg" />
+  <img src="Z:/picture/008/save_picture_800765.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ The Bat! Professional 9.4.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800761.jpg" />
+  <img src="Z:/picture/008/save_picture_800761.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800751.jpg" />
+  <img src="Z:/picture/008/save_picture_800751.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Foxit Reader 10.0.0.35798 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800750.jpg" />
+  <img src="Z:/picture/008/save_picture_800750.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Foxit PhantomPDF Business 10.0.0.35798 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800738.jpg" />
+  <img src="Z:/picture/008/save_picture_800738.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ FXSound Pro 1.1.11.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800722.jpg" />
+  <img src="Z:/picture/008/save_picture_800722.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Pixel, Таня Климань | Иллюстрации в Adobe Illustrator (20
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800719.jpg" />
+  <img src="Z:/picture/008/save_picture_800719.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800714.jpg" />
+  <img src="Z:/picture/008/save_picture_800714.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ MiniTool Partition Wizard Enterprise 12.0 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800709.jpg" />
+  <img src="Z:/picture/008/save_picture_800709.jpg" />
 </div>
 
 

@@ -1,4 +1,57 @@
 https://t.me/izofen
+###  Публикация: 1861182   (1062668) от 
+
+Освобождение (1968-1971) WEBRip [H.264] (фильм 1-5 из 5) (киноэпопея)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историческая киноэпопея в пяти фильмах о событиях Великой Отечественной войны, где наряду с подлинными историческими лицами действуют вымышленные герои... Всего в картине действует 51 реальный исторический персонаж. Подбор актёров на роли этих персонажей оказался непростым делом. Главная проблема заключалась в том, что практически все прототипы героев фильма были (   Читать дальше...   )Производство: СССР, ГДР, Польша, Италия / Мосфильм, Авала-фильм, Киностудия Дефа, ТО «Старт», Dino de Laurentiis CinematograficaЖанр: драма, эпопея, военныйРежиссер: Юрий ОзеровАктеры: Михаил Ульянов, Николай Олялин, Лариса Голубкина, Фриц Диц, Петер Штурм, Юрий Каморный, Бухути Закариадзе, Владлен Давыдов, Виктор Авдюшко, Владислав Стржельчик и др.Продолжительность: 01:31:48 + 01:28:58 + 02:06:57 + 01:21:58 + 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DA18775140B99EA45F82D8A37FB1BBEB4C3963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860799   (1062082) от 
+
+Не имеющий чина (1985) HDTV [H.264/1080p] (серии 1-3 из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историко-биографический фильм о жизни М. В. Фрунзе. Действие фильма охватывает период с 1915 по 1916 год.
+Фильм посвящен одному из самых таинственных периодов жизни Михаила Фрунзе, когда он в 1915 году совершил побег из пересыльной тюрьмы. В блестящем дворянине Василенко жандармские офицеры не смогли вычислить дерзкого беглеца ставшего после гражданской войны опасным (   Читать дальше...   )Производство: СССР / Свердловская киностудияЖанр: история, биографияРежиссер: Ольгерд ВоронцовАктеры: Григорий Гладий, Татьяна Бондаренко, Инт Буранс, Елена Майорова, Валерий Ивченко, Наталья Вавилова, Борис Химичев, Виктор Саитов, Всеволод Ларионов, Александр РоманцовПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AD0709CEADB5F7B7AD4669F6FA51056AC9CA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859753   (1061480) от 
 
 Тегеран-43 (1980) WEBRip [H.264] (серии 1-2 из 2)
@@ -7,7 +60,7 @@ https://t.me/izofen
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061480.jpg" />
+  <img src="Z:/picture/005/save_picture_1061480.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061458.jpg" />
+  <img src="Z:/picture/005/save_picture_1061458.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061127.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060782.jpg" />
+  <img src="Z:/picture/005/save_picture_1060782.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060225.jpg" />
+  <img src="Z:/picture/009/save_picture_1060225.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060013.jpg" />
+  <img src="Z:/picture/005/save_picture_1060013.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060012.jpg" />
+  <img src="Z:/picture/005/save_picture_1060012.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059719.jpg" />
+  <img src="Z:/picture/005/save_picture_1059719.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058156.jpg" />
+  <img src="Z:/picture/005/save_picture_1058156.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057460.jpg" />
+  <img src="Z:/picture/005/save_picture_1057460.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056195.jpg" />
+  <img src="Z:/picture/005/save_picture_1056195.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056120.jpg" />
+  <img src="Z:/picture/005/save_picture_1056120.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056119.jpg" />
+  <img src="Z:/picture/005/save_picture_1056119.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055989.jpg" />
+  <img src="Z:/picture/005/save_picture_1055989.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055986.jpg" />
+  <img src="Z:/picture/005/save_picture_1055986.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055958.jpg" />
+  <img src="Z:/picture/005/save_picture_1055958.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055806.jpg" />
+  <img src="Z:/picture/005/save_picture_1055806.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055797.jpg" />
+  <img src="Z:/picture/005/save_picture_1055797.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055420.jpg" />
+  <img src="Z:/picture/005/save_picture_1055420.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054996.jpg" />
+  <img src="Z:/picture/005/save_picture_1054996.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054741.jpg" />
+  <img src="Z:/picture/005/save_picture_1054741.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054720.jpg" />
+  <img src="Z:/picture/005/save_picture_1054720.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054333.jpg" />
+  <img src="Z:/picture/005/save_picture_1054333.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053701.jpg" />
+  <img src="Z:/picture/005/save_picture_1053701.jpg" />
 </div>
 
 
@@ -618,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C8BD34DF27F4E66F7ECF9700AFC91E7314AFBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849731   (1053670) от 24.01.2026
-
-Узник замка Иф (1988) WEBRip [H.264/1080p] (серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053670.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа А. Дюма «Граф Монте-Кристо».
-Накануне свадьбы молодого моряка Эдмона Дантеса с прекрасной Мерседес по ложному обвинению осуждают за приверженность идеям ссыльного императора Наполеона и приговаривают к пожизненному заключению в страшной тюрьме `Иф`. Там он знакомится с осужденным аббатом Фариа, который становится его учителем и духовным отцом. Перед (   Читать дальше...   )Производство: СССР, Франция / Одесская киностудия, Intra Media, SovinfilmЖанр: драма, приключения, историяРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Виктор Авилов, Евгений Дворжецкий, Алексей Петренко, Анна Самохина, Михаил Боярский, Надира Мирзаева, Алексей Жарков, Светлана Смирнова, Яна Поплавская, Игорь Скляр и др.Субтитры: русскиеПродолжительность: 01:04:58 + 01:04:50 + 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BD1AFD29C328D049131516FA5F740513A645E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849093   (1053279) от 21.01.2026
-
-Узник замка Иф (1988) WEBRip [H.264] (сезон 1, серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053279.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самый канун свадьбы с любимой девушкой Эдмон Дантес по ложному обвинению становится узником мрачного замка Иф. Здесь ему предстоит томиться до конца дней своих. Но отчаянная решимость спастись и счастливый случай помогают ему выбраться на волю. Сказочно разбогатев и превратившись в графа Монте-Кристо, он начинает своё возмездие..Производство: СССР, Франция / Одесская киностудияЖанр: драма, приключения, историяРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Виктор Авилов, Евгений Дворжецкий, Алексей Петренко, Анна Самохина, Михаил Боярский, Надира Мирзаева, Алексей Жарков, Светлана Смирнова, Яна Поплавская, Игорь Скляр и др.Продолжительность: ~01:04:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA5296E583B0A660DD7A28E55B130BABD4C4B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

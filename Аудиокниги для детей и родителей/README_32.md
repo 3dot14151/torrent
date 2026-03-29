@@ -1,3 +1,81 @@
+###  Публикация: 1035980   (622820) от 19.07.2016
+
+Серж Брюссоло | Сон демона (2014) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не успела Пегги Сью перевести дух после победы над коварными и злобными Невидимками, как самолет уносит ее навстречу новым приключениям — в удивительную и загадочную страну миражей. С некоторых пор все в ней пошло наперекосяк: одни ее жители становятся меньше муравья, другие превращаются в спелые помидоры, третьи ищут защиты от хищных цветов и садовников-убийц. А (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 09:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E827B0C79020657F5B6F9515EC40FEC40AA21CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035978   (622808) от 19.07.2016
+
+Серж Брюссоло | День синей собаки (2014) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровным счетом ничего не происходило в тихом сонном городке, пока над ним не повисло знойное, обжигающее солнце… синего цвета! Казалось бы, чего уж еще ожидать после такого, но именно с этой минуты двоечники выводят хитроумные формулы, собаки играют в шахматы, а по улицам носятся взбесившиеся башмаки и кресла. И только Пегги Сью знает, что все это — дело рук невидимых (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 07:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088813D59AB69FDAFC93C850D3EFC1944EB2AE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035986   (622806) от 19.07.2016
+
+Серж Брюссоло | Бабочка из бездны (2014) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мимо этой маленькой деревушки поезда ходят без остановки. Но если кто-то по странной случайности решил там сойти, то делать это надо поскорее, потому что, ни один пассажир не хочет задерживаться в краю гроз, взрывоопасных яблонь, красных тигров и колдунов. Именно туда, в гости к бабушке Кэтти, отправилась Пегги Сью со своим другом — синим псом. Им предстоит разгадать (   Читать дальше...   )Жанр: Детская фантастика, фэнтезиПродолжительность: 07:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99507A5F005325A61589F44C6D0B34837CBB1221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036172   (622762) от 19.07.2016
 
 Эмден Эсфирь | Школьный год Марины Петровой (2016) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622762.jpg" />
+  <img src="Z:/picture/008/save_picture_622762.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621374.jpg" />
+  <img src="Z:/picture/005/save_picture_621374.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620358.jpg" />
+  <img src="Z:/picture/008/save_picture_620358.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618582.jpg" />
+  <img src="Z:/picture/008/save_picture_618582.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618483.jpg" />
+  <img src="Z:/picture/008/save_picture_618483.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618045.jpg" />
+  <img src="Z:/picture/008/save_picture_618045.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617295.jpg" />
+  <img src="Z:/picture/008/save_picture_617295.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615938.jpg" />
+  <img src="Z:/picture/008/save_picture_615938.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615824.jpg" />
+  <img src="Z:/picture/008/save_picture_615824.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615696.jpg" />
+  <img src="Z:/picture/008/save_picture_615696.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614914.jpg" />
+  <img src="Z:/picture/008/save_picture_614914.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614646.jpg" />
+  <img src="Z:/picture/008/save_picture_614646.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613283.jpg" />
+  <img src="Z:/picture/008/save_picture_613283.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611401.jpg" />
+  <img src="Z:/picture/008/save_picture_611401.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611139.jpg" />
+  <img src="Z:/picture/008/save_picture_611139.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605207.jpg" />
+  <img src="Z:/picture/008/save_picture_605207.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605115.jpg" />
+  <img src="Z:/picture/008/save_picture_605115.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603465.jpg" />
+  <img src="Z:/picture/008/save_picture_603465.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603417.jpg" />
+  <img src="Z:/picture/008/save_picture_603417.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602779.jpg" />
+  <img src="Z:/picture/008/save_picture_602779.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602050.jpg" />
+  <img src="Z:/picture/008/save_picture_602050.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602041.jpg" />
+  <img src="Z:/picture/008/save_picture_602041.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602029.jpg" />
+  <img src="Z:/picture/008/save_picture_602029.jpg" />
 </div>
 
 
@@ -606,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:692F22A4C1C6F9263FD8874F3112DD15E35039BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149647   (600226) от 11.07.2017
-
-Алексей Николаевич Толстой | Детство Никиты (2009) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ о сиюминутном счастье и безотчетном наслаждении жизнью, которые дарованы мальчику из дворянской семьи, живущей в поместье. Никитой звали сына Толстого и Натальи Крандиевской. Мальчик рос на глазах у отца, когда он писал эту, отчасти автобиографическую, повесть. Замечательная повесть "Детство Никиты", завершающая цикл автобиографических произведений (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 04:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DFD77759311FD89D95AB202B0886BA590C055E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548568   (598354) от 03.05.2022
-
-Владислав Крапивин | Яхта «Кречет», или Снова о капитане Румбе (2021) [MP3, Николай Орловский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598354.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы хоть когда то мечтали о потрясающем морском путешествии? Что бы вокруг – открытое море, за штурвалом – ваш отец, а команда состояла из внука бывшего контрабандиста, оружейника, старого боцмана, что знает миллион историй, и шпиона? Да? Тогда эта книга для вас! Приключения, загадки, дружба, неожиданные повороты событий, джинн(!), и конечно, первая любовь – что (   Читать дальше...   )Жанр: Книги для детейПродолжительность: 11:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549A00F88E2FDC003300D029CBEA6FA3FB46632F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548558   (598191) от 03.05.2022
-
-Антон Чехов | Хрестоматия (2013) [MP3, Хорлин А., Кирсанов С.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания «СиДиКом» представляет новую серию аудиокниг – «Школьная хрестоматия». «Школьная хрестоматия» – уникальный проект, который разработан в помощь учащимся и содержит укороченные озвученные версии литературных произведений школьной программы, что позволяет в кратчайшие сроки ознакомиться с творчеством автора и подготовиться к экзаменам.Жанр: Школьная хрестоматия, русская классическая прозаПродолжительность: 11:31:16 + 12:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0BAEE239A10E2B66EB8394CF274EEFF243B300
 ```
 
 https://mybot314.ru/tekegram_catalog/

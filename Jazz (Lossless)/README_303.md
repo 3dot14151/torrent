@@ -1,3 +1,119 @@
+###  Публикация: 1688689   (125021) от 30.12.2023
+
+Saxtribution - Magical Christmas Saxophone (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Christmas (3:44)
+02. Have Yourself a Merry Little Christmas (4:00)
+03. Sweet Love (4:08)
+04. Let It Snow! Let It Snow! Let It Snow! (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B081B5ED7FCECA9244137BB3D600E386A59092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688686   (125020) от 30.12.2023
+
+Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driving Home for Christmas (3:52)
+02. Santa Claus Is Coming to Town (3:30)
+03. We Wish You A Merry Christmas (1:45)
+04. As (3:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580B1FBD0D18B39C7911165E3588CC440059D98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688553   (125018) от 30.12.2023
+
+VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (1929 - 1980) 2023, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima Orch. - What Will Santa Claus Say (When He Finds Everybody Swingin') (3:13)
+02. Bob Crosby's Bob Cats - Blow Blow Thou Winter Winds (2:18)
+03. The Ramblers - Let It Snow! Let It Snow! Let It Snow! (2:32)
+04. Louis Armstrong Orch. - I Hope Gabriel Likes My Music (3:19)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6F7A3B0DA1854B2416B71ACEC2D73FEAFC957C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688516   (125000) от 30.12.2023
+
+Jackie McLean & Mal Waldron - Original Quartet Complete Recordings (1956 - 1960) 2CD, 2007, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Blues [7:36]
+02. Outburst [4:39]
+03. Left Alone [6:08]
+04. Contour [5:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B085FE1D2161244C2F9E18115CD566D7270D4130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688531   (124996) от 30.12.2023
 
 VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Mainstream Jazz>
@@ -6,7 +122,7 @@ VA - A Concord Jazz Christmas (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124996.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124994.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124643.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Martha High - Jazz and Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124511.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Olaf Hoeks & Ruud de Vries - Swang Thang (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124506.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tom Reaves Jr - Soulful Strut (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124341.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Romantic Moods Academy, Night's Music Zone - Bed Erotica: Sexy Background Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124218.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124173.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124050.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123919.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123910.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123792.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123690.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Brian Simpson - Soul Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123635.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Gerald Wilson Orchestra - Monterey Moods (2007) Mack Avenue [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123513.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Sensual Frequencies: Sexiest Saxx Lounge Jazz (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123412.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Louis Bellson & Walfredo De Los Reyes - Ecue Ritmos Cubanos (1977) 1991, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123400.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ McCoy Tyner - Passion Dance (1978) 2005, Original Jazz Classics [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123240.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123057.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123049.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122876.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Caro Emerald - Live In Glasgow (2015) Japan Edition [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122742.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Caro Emerald - Live In Glasgow (2015) Japan Edition [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9ED18F6DE502021A2F0B6D53EFF979718A42733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692183   (122535) от 16.01.2024
-
-Caro Emerald - The Shocking Miss Emerald (2013) Remaster, 2023, MVKA/Grandmono Records [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Bossa Nova, Swing, Ballad>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Emerald: Intro [00:00:39]
-02. One Day [00:04:32]
-03. Coming Back As A Man [00:03:34]
-04. Tangled Up [00:03:15](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Bossa Nova, Swing, BalladПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B881FD2280C56F9B7CD248A0130ACDC181C0BFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692176   (122505) от 16.01.2024
-
-Caro Emerald - Live In Glasgow (2015) Remaster, 2024, MVKA/Grandmono Records [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Bossa Nova, Swing, Ballad>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Emerald: Intro (Live In Glasgow) [00:00:44]
-02. One Day (Live In Glasgow) [00:04:35]
-03. Completely (Live In Glasgow) [00:02:38]
-04. The Maestro (Live In Glasgow) [00:02:41](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Bossa Nova, Swing, BalladПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6502EB3410AF42F06E82FC4FF14BFEEFBBC0F1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692235   (122503) от 16.01.2024
-
-VA - Nu Urban Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Lalinga (Vi Mode Inc. Project) - Out Of Here (3:20)
-02. Soulstance - Funny Funky (5:40)
-03. Giopop - Alprazolam (2:42)
-04. Bright Magus - Lullaby For My Father (6:54)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC8ABF8BAF000136A50715F95404CF7E793FCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692190   (122501) от 16.01.2024
-
-Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Bossa Nova, Swing, Ballad>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Emerald: Intro (Live In Glasgow) [00:00:44]
-02. One Day (Live In Glasgow) [00:04:35]
-03. Completely (Live In Glasgow) [00:02:38]
-04. The Maestro (Live In Glasgow) [00:02:41](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Bossa Nova, Swing, BalladПродолжительность: 2 CD, 02:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBA312937D80429A63E873574985DDCA30747B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

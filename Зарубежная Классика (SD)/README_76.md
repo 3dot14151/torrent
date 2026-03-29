@@ -1,3 +1,81 @@
+###  Публикация: 1162441   (443954) от 08.09.2017
+
+Дар любви / The Gift of Love (1958) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Физик-теоретик Билл Бек и медсестра Джули полюбили друг друга с первого взгляда. Но после пяти лет счастливого брака Джули неожиданно узнает, что неизлечимо больна, и жить ей осталось совсем недолго. Боясь травмировать мужа, она не решается рассказать ему правду. Джули решает взять приемного ребенка — девочку по имени Хити. Она надеется, что после ее смерти малышка (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, МелодрамаРежиссер: Жан НегулескоАктеры: Лорен Бэколл, Роберт Стэк, Эвелин Руди, Лорн Грин, Энн Сеймур, Эдвард Платт, Джозеф Кернс, Розмари Эйс, Джон Брэдфорд, Роберт БрубэйкерПеревод: Многоголосый закадровый (Первый канал)Субтитры: ОтсутствуютПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0422807B33EFF109B8A8688A5C81FCEA2B482952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057424   (443889) от 12.10.2016
+
+Золотой сфинкс / La sfinge d'oro (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работая в музее в Палермо, профессор Чарльз Николс расшифровал древнеегипетскую надпись на камне и узнал, что один из фараонов был обязан своим долголетием чудесному эликсиру. Сосуд с эликсиром был замурован вместе с мумией фараона в его гробнице. Николс вычислил место, где находится гробница и отправился с экспедицией в пустыню…Производство: Италия, Египет, Испания / Curtwel Productions, Italian International Film, PICASA (Producciones Internacionales Cinematogrficas Asociadas S.A.)Жанр: ПриключенияРежиссер: Луиджи СкаттиниАктеры: Роберт Тейлор, Анита Экберг, Джина Серра, Джакомо Росси Стюарт, Анхель дель Позо, Ремо Де Анджелис, Хосе Тручадо, Имад Хамди, Ахмед Камис, Мохаммед ТауфикПеревод: Двуголосый закадровый (ТВЦ)Продолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AC8363792E05B5D81C4B9590E3D959C6893E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162232   (443784) от 08.09.2017
+
+Канал / Kanal (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о трагической судьбе во время Варшавского восстания 1944 года группы бойцов Армии Крайовы, которая пытается покинуть Варшаву через канализационные каналы.Производство: Польша / Zespol Filmowy "Kadr"Жанр: Драма, ВоенныйРежиссер: Анджей ВайдаАктеры: Тереза Ижевска, Тадеуш Янчар, Веньчислав Глиньский, Тадеуш Гвяздовский, Станислав Микульский, Эмиль Каревич, Владек Шейбал, Тереза Березовска, Зофиа ЛиндорфПеревод: Дублированный (СССР)Субтитры: Английские (отдельным файлом), Русские (отдельным файлом)Продолжительность: 01:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A9666D28EE6CA84014D04B045E69D0212A07AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552225   (443167) от 28.09.2012
 
 Фантоцци против всех / Fantozzi contro tutti (1980) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443167.jpg" />
+  <img src="Z:/picture/008/save_picture_443167.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442565.jpg" />
+  <img src="Z:/picture/008/save_picture_442565.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442522.jpg" />
+  <img src="Z:/picture/008/save_picture_442522.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442327.jpg" />
+  <img src="Z:/picture/008/save_picture_442327.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442268.jpg" />
+  <img src="Z:/picture/008/save_picture_442268.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442073.jpg" />
+  <img src="Z:/picture/008/save_picture_442073.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_441878.jpg" />
+  <img src="Z:/picture/005/save_picture_441878.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441409.jpg" />
+  <img src="Z:/picture/008/save_picture_441409.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440632.jpg" />
+  <img src="Z:/picture/008/save_picture_440632.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440467.jpg" />
+  <img src="Z:/picture/005/save_picture_440467.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440356.jpg" />
+  <img src="Z:/picture/008/save_picture_440356.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440342.jpg" />
+  <img src="Z:/picture/008/save_picture_440342.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440165.jpg" />
+  <img src="Z:/picture/008/save_picture_440165.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439741.jpg" />
+  <img src="Z:/picture/008/save_picture_439741.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438274.jpg" />
+  <img src="Z:/picture/008/save_picture_438274.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438084.jpg" />
+  <img src="Z:/picture/008/save_picture_438084.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438049.jpg" />
+  <img src="Z:/picture/008/save_picture_438049.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437887.jpg" />
+  <img src="Z:/picture/008/save_picture_437887.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437877.jpg" />
+  <img src="Z:/picture/008/save_picture_437877.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437564.jpg" />
+  <img src="Z:/picture/008/save_picture_437564.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436585.jpg" />
+  <img src="Z:/picture/008/save_picture_436585.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436483.jpg" />
+  <img src="Z:/picture/008/save_picture_436483.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435829.jpg" />
+  <img src="Z:/picture/008/save_picture_435829.jpg" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB3DA5D8D03E519CA4C7AA422D219D8468300EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875739   (435336) от 20.08.2022
-
-Собачье сердце / Cuore di Cane (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянский режиссёр Альберто Латтуада несколько раз обращался к русской классической литературе («Шинель», 1952, «Буря» — по «Капитанской дочке», 1958, «Степь», 1962). Поэтому неудивительно, что он решил экранизировать повесть Михаила Булгакова как бы к пятидесятилетию её создания. Несмотря на некоторые неточности и ляпсусы в воспроизведении атмосферы и быта Москвы (   Читать дальше...   )Производство: Италия, Германия (ФРГ)Жанр: фэнтези, драма, комедияРежиссер: Альберто ЛаттуадаАктеры: Макс фон Сюдов, Элеонора Джорджи, Марио Адорф, Джина Ровере, Коки Понцони, Вадим Гловна, Рена Нихаус, Энцо Робутти, Виолетта Кьярини, Америго ТотПеревод: одноголосыйЯзык озвучки: русский, итальянскийПродолжительность: 01:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB0FD044CD575FA088446D04B182E480CB69477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943323   (435067) от 09.10.2015
-
-Доктор Ноу / Dr. No (1962) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонду дано задание выяснить что является источником электронных помех в компьютерах американских пусковых шахт на мысе Канаверал. По агентурным данным мозговой центр вражеских сил находится на Ямайке. Бонд незамедлительно выдвигается туда.
-В процессе расследования ему придется столкнуться с могущественной структурой СПЕКТР и ее представителем Доктором Ноу, готовым (   Читать дальше...   )Производство: Великобритания / Eon Productions Ltd.Жанр: Боевик, Триллер, ПриключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Урсула Андресс, Джозеф Уайзмен, Джек Лорд, Бернард Ли, Энтони Доусон, Зена Маршалл, Джон Кицмиллер, Юнис Гейсон, Лоис МаксуэллПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE30688D82495A8F8F5B1CB8A8F06679108FC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063118   (434674) от 16.10.2016
-
-Говорите, мне интересно / Cause toujours... tu m'interesses! (1979) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телерепортеру Франсуа Перрену всё в жизни опротивело. 7 месяцев назад он развелся с супругой и теперь старается ни с кем не встречаться, дабы своим моральным кризисом не испортить настроение другим людям. Однажды в объяснимом желании хоть с кем-нибудь пообщаться Франсуа набирает первый попавшийся телефонный номер. Повезло аптекарю Кристине, одинокой, замученной плачем (   Читать дальше...   )Производство: Франция, Albina Productions S.a.r.l.Жанр: Мелодрама, КомедияРежиссер: Эдуар МолинароАктеры: Анни Жирардо, Жан-Пьер Марьель, Кристиан Маркан, Брижит Роюан, Умбан У’ксет, Пьер Вернье, Мишель Блан, Жан-Клод Мартин, Андре Валарди, Доминик ЛавананПеревод: ДублированныйПродолжительность: 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ABC5C59BF7D41EEEB982973ADDC654E240F58D
 ```
 
 https://mybot314.ru/tekegram_catalog/

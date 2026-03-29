@@ -1,3 +1,107 @@
+###  Публикация: 522035   (618345) от 15.07.2012
+
+NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_618345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запреты. Мы заставляем вас забыть о комфорте и переносим через множество границ с огромным разнообразием культур, чтобы познакомить с необычными ритуалами и обрядами, которые для некоторых народов стали неотъемлемой частью повседневной жизни, а для некоторых считаются запретными и преследуются законом. Находясь на стыке правил современной жизни некоторых народов с их древними поверьями и перейдя границу между ними, сериал "Запреты" наглядно рассказывает о богатой мозаичной структуре и образе жизни многочисленных народностей мира и о ценностях, составляющих основу их культур. Это уже восьмой сезон интересного сериала " Запреты " или " Табу ".Жанр: Документальный, научно-познавательный, психология, исследованиеПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1CA6583DE39047B8FECC6262B3F0CF0A2D528B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910832   (617815) от 22.06.2015
+
+NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли инфекция стать причиной зомби-апокалипсиса? Эксперты объясняют, что может случиться, если мы столкнемся со смертельной болезнью.Телекомпания: NGC HDЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0150F82F89FFA53703CB4BCD0ECC21199DD8455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 673070   (616957) от 22.07.2016
+
+NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts of Machu Picchu) (2010) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_616957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расположенный на вершине горного хребта на высоте 2450 метров над уровнем моря и покинутый своими жителями почти пять столетий назад при загадочных обстоятельствах, город Мачу-Пикчу является одним из самых знаменитых археологических памятников Западного полушария, а так же символом власти и инженерного мастерства инков. Как люди, не знавшие ни железа, ни колеса, (   Читать дальше...   )Жанр: Документальный, научно-познавательный, история, исследованиеПеревод: Двухголосый закадровый (профессиональный)Субтитры: вшитыеЯзык субтитров: английскийПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295875   (616842) от 14.04.2019
+
+NG: Осушить океан: глубокое погружение. Затонувшие военные корабли / Drain the Oceans: Deep Dive. Sunken Warships (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под поверхностью морей и океанов лежит целое кладбище затонувших военных кораблей. Морское дно буквально усеяно обломками судов, принимавших участие в Первой и Второй мировых войнах. Среди них и самые крупные из когда-либо построенных военных кораблей. Но свидетельства кораблекрушений скрыты глубоко под водой, и истинные истории этих событий остаются пока окутанными (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures, National GeographicЖанр: Документальный, история, исследованияРежиссер: Софи Элвин Харрис, Майкл ДивайсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63709DD3A34E095046D0E0BFCE91DBBD7488C276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295880   (616834) от 14.04.2019
 
 NG: Осушить океан: глубокое погружение. Саботаж в открытом море / Drain the Oceans: Deep Dive. Sabotage on the High Seas (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616834.jpg" />
+  <img src="Z:/picture/008/save_picture_616834.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616830.jpg" />
+  <img src="Z:/picture/008/save_picture_616830.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616778.jpg" />
+  <img src="Z:/picture/008/save_picture_616778.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615934.jpg" />
+  <img src="Z:/picture/008/save_picture_615934.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Самые опасные животные Африки: Ботсвана /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614928.jpg" />
+  <img src="Z:/picture/008/save_picture_614928.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614916.jpg" />
+  <img src="Z:/picture/008/save_picture_614916.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613841.jpg" />
+  <img src="Z:/picture/008/save_picture_613841.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613064.jpg" />
+  <img src="Z:/picture/008/save_picture_613064.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612432.jpg" />
+  <img src="Z:/picture/008/save_picture_612432.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610436.jpg" />
+  <img src="Z:/picture/008/save_picture_610436.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610433.jpg" />
+  <img src="Z:/picture/008/save_picture_610433.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_610028.jpg" />
+  <img src="Z:/picture/005/save_picture_610028.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609930.jpg" />
+  <img src="Z:/picture/008/save_picture_609930.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608274.jpg" />
+  <img src="Z:/picture/008/save_picture_608274.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607640.jpg" />
+  <img src="Z:/picture/008/save_picture_607640.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607420.jpg" />
+  <img src="Z:/picture/008/save_picture_607420.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607337.jpg" />
+  <img src="Z:/picture/008/save_picture_607337.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607164.jpg" />
+  <img src="Z:/picture/008/save_picture_607164.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606889.jpg" />
+  <img src="Z:/picture/008/save_picture_606889.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605169.jpg" />
+  <img src="Z:/picture/008/save_picture_605169.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NGW: Невероятная Африка. Разноцветный контин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605162.jpg" />
+  <img src="Z:/picture/008/save_picture_605162.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604129.jpg" />
+  <img src="Z:/picture/008/save_picture_604129.jpg" />
 </div>
 
 
@@ -566,112 +670,6 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E12C9D19EA7BF13C8537FCB4A6CCD606CBE757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231945   (603152) от 21.06.2018
-
-NG: Амазония: наизловещий ритуал / Search for the Amazon Headshrinkers (2009) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно были обнаружены архивные съемки 1960-х годов показывающие, шокирующие съемки экспедиции Эдмунда Белявского который сталкивется в Амазонии с изготовлением тсанаса (сушенных голов). Страшные легенды из Амазонии рассказывают про индейских изготовителей тсантса, которые уменьшают головы противника, что бы мстительная душа была бессильна. Теперь, NGC имеет эксклюзивный (   Читать дальше...   )Производство: США, Diverse Productions Ltd, FIVE, National Geographic ChannelЖанр: ДокументальныйРежиссер: Пирс ДжиббонПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CED684C5DA4657CA8F9BFACF6BA1E0B07039112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297741   (603071) от 24.04.2019
-
-NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.
-И евразийские рыси в Европе и длиннохвостые кошки в Индии имеют одну общую особенность: они представляют собой смертельно опасные машины для убийства. Это настоящие чемпионы в области охоты.Производство: Испания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A362B03ECF37E6BFDC6A1FDD2B499687EE2983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298021   (602637) от 25.04.2019
-
-NG: Осушить океан: глубокое погружение. Затонувшие берега Америки / Drain the Oceans: Deep Dive. America's Sunken Shores (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война, погода и человеческие ошибки привели к самым крупным морским катастрофам в истории США. Но представьте, если бы мы смогли "осушить" океан, чтобы открыть тайны, которые скрывают моря, омывающие побережье обеих Америк. Пёрл Харбор - кто произвел первый выстрел? Что из себя представляли могучие силы, которые сделали Алькатрас и и Залив Сан-Франциско (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures, National GeographicЖанр: Документальный, история, исследованияРежиссер: Софи Элвин Харрис, Майкл ДивайсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B6E744A631E6E6DB866EFC7B9FC03E021EAFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298098   (602142) от 26.04.2019
-
-NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zoo (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы получите беспрецедентную возможность увидеть то, что скрыто от посетителей одного из самых больших и популярных зоопарков: "Колумбийского зоопарка и аквариума".
-Прежде, чем ворота зоопарка Коламбус откроются для посетителей, у персонала масса работы. Сотрудники этого выставочного комплекса в самом Сердце Африки должны сделать утренний обход и накормить (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, фаунаРежиссер: Меттью УильямсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367BCC13795FFD9DF6CC0E1216AE802C3A486D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

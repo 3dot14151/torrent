@@ -1,3 +1,107 @@
+###  Публикация: 1234870   (565736) от 08.07.2018
+
+NGW: В мире дикой природы. Долина смерти / Into The Wilderness. Death Valley (2009) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долина смерти. Межгорная впадина в Калифорнии. Одно из самых суровых и безжизненных мест на планете. По иронии судьбы самый засушливый регион западного полушария находится над крупнейшей подземной водной системой США. А этот водоем хранит в себе крохотную рыбку, которая существовала ещё в Ледниковом периоде. Их осталось всего пара сотен.Производство: США, National Geographic Channel Network International, LLCЖанр: Документальный, природа, флора, фаунаРежиссер: Тодд ГерманнПеревод: Двуголосый закадровый, профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0041A20EC35BE715FCE459C0FCE0D9B0632318D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234965   (565734) от 08.07.2018
+
+NG: Кладбище воинов. Флотилия проклятых / Warrior Graveyard. Navy of the Damned (2011) HDTVRip [H.264/1080i-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Останки моряков были обнаружены в районе трех морских портов на юге Англии. Благодаря кропотливой судебно-медицинской экспертизы, подробно изучены останки шести человек, которые служили в Королевском флоте в течение 18 и 19 веков. Их кости обнаруживают шокирующий ряд заболеваний, в том числе цинга, недоедание, венерические заболевания, переломы, ампутированные конечности, (   Читать дальше...   )Производство: США, October Films, Channel4, National Geographic ChannelЖанр: Документальный, историяРежиссер: Джереми ТернерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10147E9C5C4B7BE65C6F07765D4F909D4204F824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234994   (565691) от 08.07.2018
+
+NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы увидите Землю так, как прежде никогда не видели... С помощью рентгеновского зрения мы увидим планету, которую нельзя увидеть никак иначе. Сейчас армада датчиков, расположенных под землей, в небе, в океане и даже в наших городах, исследуют планету. Они видят тайные области планеты, это очень похоже на томографию. Сканируя Землю, мы сможем увидеть планету - ту, (   Читать дальше...   )Производство: США, BASE Productions, Inc. for National Geographic Channel, NGC Network International, LLC and NGC Network US, LLCЖанр: Документальный, научно-познавательныйРежиссер: Джон Бренкус, Микки Стерн, Робберт КурранПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 01:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1B5540E125842B93298C282D23023513E9E261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235157   (563820) от 09.07.2018
+
+NG: С точки зрения науки: Великое оледенение / Naked Science: Big Freeze (2007) HDTV [H.264/1080i-LQ] (Сезон 3, эпизод 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Океаны могут порождать периоды похолодания, сопровождающиеся вымиранием видов и катаклизмами. Последние данные говорят о том, что глобальное потепление вскоре может привести нас к ледниковому периоду.Производство: США, Pioneer Production for National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Алекс УильямсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C481429F62625AB285896FA5490E97A631FA3EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304477   (563566) от 26.05.2019
 
 NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Серии: 1-3 из 3)
@@ -6,7 +110,7 @@ NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Сери
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563566.jpg" />
+  <img src="Z:/picture/008/save_picture_563566.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563137.jpg" />
+  <img src="Z:/picture/008/save_picture_563137.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563086.jpg" />
+  <img src="Z:/picture/008/save_picture_563086.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559646.jpg" />
+  <img src="Z:/picture/008/save_picture_559646.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558516.jpg" />
+  <img src="Z:/picture/008/save_picture_558516.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557006.jpg" />
+  <img src="Z:/picture/008/save_picture_557006.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556403.jpg" />
+  <img src="Z:/picture/008/save_picture_556403.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556399.jpg" />
+  <img src="Z:/picture/008/save_picture_556399.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556241.jpg" />
+  <img src="Z:/picture/008/save_picture_556241.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556239.jpg" />
+  <img src="Z:/picture/008/save_picture_556239.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556209.jpg" />
+  <img src="Z:/picture/008/save_picture_556209.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555660.jpg" />
+  <img src="Z:/picture/008/save_picture_555660.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555640.jpg" />
+  <img src="Z:/picture/008/save_picture_555640.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555631.jpg" />
+  <img src="Z:/picture/008/save_picture_555631.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555541.jpg" />
+  <img src="Z:/picture/008/save_picture_555541.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554832.jpg" />
+  <img src="Z:/picture/008/save_picture_554832.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554428.jpg" />
+  <img src="Z:/picture/008/save_picture_554428.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554388.jpg" />
+  <img src="Z:/picture/008/save_picture_554388.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554151.jpg" />
+  <img src="Z:/picture/008/save_picture_554151.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554149.jpg" />
+  <img src="Z:/picture/008/save_picture_554149.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554147.jpg" />
+  <img src="Z:/picture/008/save_picture_554147.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554141.jpg" />
+  <img src="Z:/picture/008/save_picture_554141.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D21EECFCE841EB2517F2C83B5D05F6825D682140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310362   (547631) от 23.06.2019
-
-На крючке. Нашествие кальмаров / Squid invasion (2010) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колонии кальмара Гумбольдта быстро распространяются, вторгаясь на новые территории в северной части Тихого океана. Какую опасность они несут?Производство: США, Michael Hoff Productions, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Джонатан БурхопПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1C237984CCEC3A78CF7D4DD06C7EA4BD221284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310367   (547628) от 23.06.2019
-
-Акула против хищников / Shark v. Predator (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкие и примечательные примеры нападения на акул различных животных, зафиксированные как профессиональными фотографами, так и случайными свидетелями, позволяют осознать, что первенству даже самых грозных хищников вполне может быть брошен вызов.Производство: США, Earth Touch for National Geographic ChannelЖанр: Документальный, природа, фаунаРежиссер: Даниэль ШейрПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7302AD96ADBFC7396C1818C4F17EDE2FE87046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215774   (546984) от 29.07.2018
-
-NGW: Секретное королевство Борнео: странные и дикие / Borneo's Secret Kingdom: Weird and Wild (2017) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остров Борнео. Миллионы лет эволюция его обитателей проходила в изоляции от всего мира. Она породила огромное многообразие диковинных существ. В широких реках, колоссальных лесах и на заболоченных землях попавшие на остров животные и растения столкнулись с невероятными трудностями но нашли способы их преодолеть. "Секретное королевство Борнео: странные и дикие" (   Читать дальше...   )Производство: Австралия, Малайзия, WildBear Entertainment and Scuba ZooЖанр: Документальный, научно-популярный, фауна, флораРежиссер: Nicholas RoosenПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989FBF9E9CCA29AFB9315540FFC8900AB27CA198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049037   (545750) от 03.09.2016
-
-NG:Армия львов: Битва за выживание / Lion Army. Battle To Survive (2009) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Африке, в национальном парке Крюгера, львиный мега-прайд переживает кризис. Львицы не могут добыть достаточно еды, и каждая добыча становится причиной конфликта. Без поддержки взрослого самца, десять молодых львов стали не управляемыми. Во время охоты их не опытность приводит к катастрофе. Чтобы восстановить равновесие нужно кое-чему научиться в армии львов.Телекомпания: США, Aquavision TV Productions, National Geographic ChannelЖанр: Документальный, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A91EA1BB83C2155AD0CF9588DDE34DE7C35E8FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

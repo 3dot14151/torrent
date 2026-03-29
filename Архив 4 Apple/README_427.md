@@ -1,3 +1,111 @@
+###  Публикация: 1418218   (351480) от 23.10.2020
+
+RightFont 5 v5.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
+RightFont - менеджер шрифтов с красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: Markly TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA4FEAFCF38B1CA40609B89E9A86A2794059087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953068   (351432) от 03.11.2015
+
+Vox 2.6.3 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vox - небольшой и очень простой в использовании аудиоплейер для Mac OS X, который является неплохой альтернативой iTunes. Проигрыватель умеет работать с огромным количеством поддерживаемых форматов (FLAC, MP3, AAC, Musepack, Monkey’s Audio, OGG Vorbis, Apple Lossless, AIFF, WAV и др.), распознает различные форматы плейлистов (PLS, M3U, XSPF, CUE), может воспроизводить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2015Разработчик: Coppertino Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1038D1F1D9FC9CB3FC1EB71BB6B92D4E02152A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953110   (351430) от 03.11.2015
+
+Dash 3.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash  - браузер документации и примеров кода
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2015Разработчик: Bogdan PopescuПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAD5B975E7D20F19046B76152661BB4A99236CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953111   (351416) от 03.11.2015
+
+Movist 1.3.18 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+
+Movist больше не поддерживает декодер QuickTime, только FFmpeg. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2015Разработчик: MovistПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E14FFC7BB2D21FCFDF053B0857250735DA466E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418252   (351354) от 23.10.2020
 
 Audio Hijack 3.7.3 [En]
@@ -6,7 +114,7 @@ Audio Hijack 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351354.jpg" />
+  <img src="Z:/picture/008/save_picture_351354.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Gemini 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351293.jpg" />
+  <img src="Z:/picture/008/save_picture_351293.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351235.jpg" />
+  <img src="Z:/picture/008/save_picture_351235.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Scrivener 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351184.jpg" />
+  <img src="Z:/picture/008/save_picture_351184.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ DaisyDisk 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351169.jpg" />
+  <img src="Z:/picture/008/save_picture_351169.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ ExpanDrive 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351163.jpg" />
+  <img src="Z:/picture/008/save_picture_351163.jpg" />
 </div>
 
 
@@ -171,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350877.jpg" />
+  <img src="Z:/picture/008/save_picture_350877.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Wondershare Video Converter Ultimate 10.0.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350805.jpg" />
+  <img src="Z:/picture/008/save_picture_350805.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ Adobe Bridge 2021 11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350795.jpg" />
+  <img src="Z:/picture/008/save_picture_350795.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ Acronis True Image 2016 (2.0.5694) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350715.jpg" />
+  <img src="Z:/picture/008/save_picture_350715.jpg" />
 </div>
 
 
@@ -280,7 +388,7 @@ Mitti 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350291.jpg" />
+  <img src="Z:/picture/008/save_picture_350291.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ Tooth Fairy 2.5.1 (44)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350284.jpg" />
+  <img src="Z:/picture/008/save_picture_350284.jpg" />
 </div>
 
 
@@ -334,7 +442,7 @@ DMG Canvas 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350281.jpg" />
+  <img src="Z:/picture/008/save_picture_350281.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ AirRadar 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350280.jpg" />
+  <img src="Z:/picture/008/save_picture_350280.jpg" />
 </div>
 
 
@@ -388,7 +496,7 @@ Rogue Amoeba Farrago 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350277.jpg" />
+  <img src="Z:/picture/008/save_picture_350277.jpg" />
 </div>
 
 
@@ -414,7 +522,7 @@ WidsMob ImageConvert - JPG/PNG 3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350182.jpg" />
+  <img src="Z:/picture/008/save_picture_350182.jpg" />
 </div>
 
 
@@ -440,7 +548,7 @@ Boxy SVG 3 v.3.89.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350181.jpg" />
+  <img src="Z:/picture/008/save_picture_350181.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ Allavsoft Video Downloader Converter 3.25.0.8298 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350177.jpg" />
+  <img src="Z:/picture/008/save_picture_350177.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Alarm Clock Pro 12 v12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350157.jpg" />
+  <img src="Z:/picture/008/save_picture_350157.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ Adguard 2.1.3.611 nightly (CL - 1.5.60) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350148.jpg" />
+  <img src="Z:/picture/008/save_picture_350148.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ cDock 3 v3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350144.jpg" />
+  <img src="Z:/picture/008/save_picture_350144.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ AnyTrans for Android 7 v7.3.0 (build 20190925) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350143.jpg" />
+  <img src="Z:/picture/008/save_picture_350143.jpg" />
 </div>
 
 
@@ -585,113 +693,6 @@ AnyTrans for Android - предназначен для быстрой и удо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93B5CCD664CBE83F76DB15F817E24D6CF873B755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256938   (350136) от 24.10.2018
-
-Deliver 2.6.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliver - это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлением по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке электронной почты, сжатие, доставку по нескольким направлениям и многое другое. Сообщения уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCB824EA4425953E4ADD5DABABCF14C4A5C2F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578095   (350059) от 21.09.2022
-
-FoneDog Toolkit – iOS Data Recovery 2.1.66 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективное программное обеспечение iOS Data Recovery поможет вам восстановить удаленные данные с iPhone, iPad и iPod. Поддержка iPhone XS, XR, 8 и последней версии iOS.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2021Разработчик: © 2021 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565FF407EFEF9CA1E5AC7B26727D2A140077AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256834   (350055) от 24.10.2018
-
-Fenêtre 0.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Держите окно открытым, всегда поверх всего остального.
-Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Yoann MoinetПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5048C95F5C3D05F512AB3E194A678A76BC55605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256874   (350052) от 24.10.2018
-
-ColorWell 7.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350052.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре OS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезный инструмент в любом наборе инструментов хорошего веб-дизайнера, и его можно легко настроить для работы на панели инструментов и открыть глобальную горячую клавишу.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42F2EA00D2A716ED635974C7AFBEBAEA85ED976
 ```
 
 https://mybot314.ru/tekegram_catalog/

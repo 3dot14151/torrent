@@ -1,3 +1,235 @@
+###  Публикация: 1750663   (104149) от 21.09.2024
+
+Lucinda Williams - Lucinda Williams (1988) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Folk Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 I Just Wanted To See You So Bad
+A2 The Night's Too Long
+A3 Abandoned(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B480B570961275EA1EFA46DD7CCD1469CC2A55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751034   (104114) от 22.09.2024
+
+Wizard - Studio Albums (12 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wizard — пауэр-метал-группа из Германии, сформированная в 1989 году. Группу часто называют «немецким ответом Manowar».1995 - Son Of Darkness
+1997 - Battle Of Metal
+1999 - Bound By Metal
+2001 - Head of the DeceiverЖанр: Power MetalПродолжительность: 10:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3B5A3F747182C624A04A9D171F668A2F3279C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751836   (104040) от 27.09.2024
+
+Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armored Saint — американская хэви-метал-группа, наиболее известная вокальными стилями певца Джона Буша, который в течение нескольких лет работал также с группой Anthrax.2000 - Revelation
+2010 - La Raza
+2015 - Win Hands Down
+2020 - Punching The SkyЖанр: Heavy MetalПродолжительность: 04:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E482D559D5DA2FFC0EA4EFEE5BA407F8087C021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752263   (103951) от 29.09.2024
+
+Serious Black - Studio Albums (7 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Black - пауэр-метал группа из Германии.2015 - As Daylight Breaks
+2016 - Mirrorworld
+2017 - First Light
+2017 - MagicЖанр: Power MetalПродолжительность: 06:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8A42B3E4B7A4262DCEF53C4D3A491DDEA4AEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753030   (103886) от 03.10.2024
+
+Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Morgana Lefay - шведская трэш/пауэр-метал-группа из Боллнеса. В 1986 году была образована группа "Damage", которая в 1989 сменила название на "Morgana Lefay". В 1997 году группа разделилась, причём право на оригинальное название осталось у одной части, а желание исполнять музыку — у другой. В результате новая группа получила название "Lefay" (   Читать дальше...   )1993 - Knowing Just as I
+1993 - The Secret Doctrine
+1995 - Sanctified
+1996 - Maleficium(   Читать дальше...   )Жанр: Power/Thrash/Groove MetalПродолжительность: 09:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662711   (103820) от 05.10.2024
+
+Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sylosis — британская метал-группа из Рединга. Группа была основана в 2000 году гитаристом Джошем Миддлтоном и бас-гитаристом Карлом Парнеллом.2006 - Casting Shadows (EP)
+2007 - The Supreme Oppressor (EP)
+2008 - Conclusion of an Age
+2011 - Edge of the EarthЖанр: Melodic Death Metal, Thrash Metal, MetalcoreПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF3A624E8061F1237F9377BCDE3841CA01A4789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753708   (103776) от 06.10.2024
+
+Twelve Foot Ninja - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Math Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twelve Foot Ninja — австралийская группа из Мельбурна, штат Виктория, исполняющая смесь из авангарда, альтернативного метала, фанка и мат-метала.2008 - New Dawn (EP)
+2010 - Smoke Bomb! (EP)
+2012 - Silent Machine
+2016 - OutlierЖанр: Progressive Metal, Math Metal, DjentПродолжительность: 03:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51237C2C33634F573D1C3D56111D1023A5DB5C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754041   (103735) от 08.10.2024
+
+k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103735.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:42:28
+
+Side A:
+A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756213   (103528) от 19.10.2024
 
 Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
@@ -6,7 +238,7 @@ Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103528.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103302.jpg" />
 </div>
 
 
@@ -63,7 +295,7 @@ Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103275.jpg" />
 </div>
 
 
@@ -92,7 +324,7 @@ Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103231.jpg" />
 </div>
 
 
@@ -119,7 +351,7 @@ Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103222.jpg" />
 </div>
 
 
@@ -146,7 +378,7 @@ As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103154.jpg" />
 </div>
 
 
@@ -175,7 +407,7 @@ Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103150.jpg" />
 </div>
 
 
@@ -204,7 +436,7 @@ Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103130.jpg" />
 </div>
 
 
@@ -231,7 +463,7 @@ Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103034.jpg" />
 </div>
 
 
@@ -259,7 +491,7 @@ WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102955.jpg" />
 </div>
 
 
@@ -288,7 +520,7 @@ Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102912.jpg" />
 </div>
 
 
@@ -317,7 +549,7 @@ Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102846.jpg" />
 </div>
 
 
@@ -346,7 +578,7 @@ Elvis Costello - Spike (1989) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Alternative R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102808.jpg" />
 </div>
 
 
@@ -375,7 +607,7 @@ Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102774.jpg" />
 </div>
 
 
@@ -405,7 +637,7 @@ My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102721.jpg" />
 </div>
 
 
@@ -433,7 +665,7 @@ Eldritch - Studio Albums (13 releases) (1995-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101472.jpg" />
 </div>
 
 
@@ -462,7 +694,7 @@ Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101452.jpg" />
 </div>
 
 
@@ -491,7 +723,7 @@ Volturian - Studio Albums (2 releases) (2020-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101422.jpg" />
 </div>
 
 
@@ -503,232 +735,6 @@ Volturian — итальянская симфо-метал группа. Про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0618A117C4D24FF14ABF0CAAF17F7138CADB65B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765510   (101393) от 13.12.2024
-
-The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101393.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Drowning - группа из Уэльса, Великобритания. Основана в 2003 году.2005 - Withered (EP)
-2006 - When the Light Was Taken from Us
-2008 - This Bleak Descent
-2010 - Black Lights And Silent RoadsЖанр: Melodic Doom/Death MetalПродолжительность: 05:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEDA3B6CC9F506BA68A6A11F134267D17A85B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766083   (101277) от 16.12.2024
-
-Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vexovoid - трэш-метал группа из Италии, основана в 2013 году.2014 - Heralds of the Stars (EP)
-2017 - Call of the StarforgerЖанр: Progressive Thrash MetalПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D90C878DFF334AFF0581DC5160FA7BD6670DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766261   (101257) от 17.12.2024
-
-Terrifier - Studio Albums (3 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terrifier - трэш-метал группа из Канады, основана в 2012 году.2012 - Destroyers Of The Faith
-2017 - Weapons Of Thrash Destruction
-2023 - Trample the Weak, Devour the DeadЖанр: Thrash MetalПродолжительность: 02:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A890C50D23FB662FE30E045530C55ED322E9D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766552   (101249) от 19.12.2024
-
-66crusher - Studio Albums (4 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101249.jpg" />
-</div>
-
-
-###  Подробнее
-
-66crusher - метал-группа из Норвегии, образована в 2000 году.2007 - Truth Unmasked
-2011 - Blackest Day
-2015 - Wanderer
-2023 - LimboЖанр: Progressive/Thrash MetalПродолжительность: 04:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766719   (101220) от 20.12.2024
-
-Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Europop, DiscoПродолжительность: 01:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26C845A01E4662DE6B713C213989FC141584A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766773   (101214) от 20.12.2024
-
-Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pallbearer — американская дум-метал группа из Литл-Рока, штат Арканзас, образованная в 2008 году.2012 - Sorrow And Extinction
-2014 - Foundations Of Burden
-2017 - Heartless
-2020 - Forgotten DaysЖанр: Doom MetalПродолжительность: 05:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F562F73833B68AE583C07F00ECC92C11B5C6E396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822603   (100931) от 07.10.2025
-
-Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастьян Бах (Себастьян Филипп Бьёрк) — канадско-американский вокалист, наиболее известный как фронтмен группы Skid Row в 1987—1996 годах.2001 - Bach 2: Basics
-2007 - Angel Down
-2011 - Kicking & Screaming
-2014 - Give 'Em HellЖанр: Heavy Metal, Hard RockПродолжительность: 05:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8627A3B9280F79AD96A2796BD2135A7749CBCC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822326   (100783) от 06.10.2025
-
-Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sadist — итальянская дэт-метал группа, образованная в Генуе, в январе 1991 года.1993 - Above The Light
-1996 - Tribe
-1997 - Crust
-2000 - LegoЖанр: Progressive Death MetalПродолжительность: 08:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1FC90CDE6CCD639F4E8086509105276C7A0045
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1642595   (233222) от 28.06.2023
+
+n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A53B4213563AE9D29B5180B56D7AB0AD382E4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642610   (233215) от 28.06.2023
+
+Clipboard Manager 2.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер истории буфера обмена для Mac.
+Сохраняет все, что вы копируете для последующего использования.
+Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: © 2016-2023 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFB36D5F0539E17A419F892310573B76A731915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642748   (233208) от 28.06.2023
+
+PullTube 1.8.5.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5F3698D7013BB8EA2666D29B8B8DCCD9E7C556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530857   (233206) от 12.02.2022
+
+Screenium 3 v3.3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_233206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запишите то, что вы видите на экране, и превратите это в скринкаст. Screenium 3 позволяет делать записи с частотой 60 кадров в секунду, предлагая оптимальное качество для ваших учебных материалов, записей игрового процесса или содержимого экрана, которое вы хотите записать. Если вы работаете с ультравысоким разрешением 4K или 5K дисплея, или Retina Mac, Screenium (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: © 2021 Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2461F5801CF366147A0D6711949A1FA0379EFEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628218   (233188) от 22.04.2023
 
 Task Office 8.12 [Multi]
@@ -6,7 +113,7 @@ Task Office 8.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233188.jpg" />
+  <img src="Z:/picture/005/save_picture_233188.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ GrandTotal 8.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233180.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Reader for Mac 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233124.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ CleanShot X 4.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233077.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ MediaInfo for Mac 23.06 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233047.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ Hides 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233037.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ Feeder 4 v.4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232950.jpg" />
+  <img src="Z:/picture/005/save_picture_232950.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ CleanShot X 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232943.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232941.jpg" />
+  <img src="Z:/picture/005/save_picture_232941.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ Speech 1.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232908.jpg" />
+  <img src="Z:/picture/005/save_picture_232908.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ PDF Expert 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232802.jpg" />
+  <img src="Z:/picture/004/save_picture_232802.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ SiteSucker 5.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232787.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ Text Workflow 1.6.4  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232772.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ MarsEdit 4 v.5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232743.jpg" />
+  <img src="Z:/picture/005/save_picture_232743.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ Feeder 4 v.4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232731.jpg" />
+  <img src="Z:/picture/005/save_picture_232731.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ Things 3 v.3.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232720.jpg" />
+  <img src="Z:/picture/005/save_picture_232720.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ iShowU Instant (Advanced) 1.4.14 (beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232699.jpg" />
+  <img src="Z:/picture/005/save_picture_232699.jpg" />
 </div>
 
 
@@ -462,7 +569,7 @@ Grids for Instagram 8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232687.jpg" />
+  <img src="Z:/picture/005/save_picture_232687.jpg" />
 </div>
 
 
@@ -488,7 +595,7 @@ Disk Xray 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232684.jpg" />
 </div>
 
 
@@ -517,7 +624,7 @@ DMG Canvas 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232673.jpg" />
+  <img src="Z:/picture/005/save_picture_232673.jpg" />
 </div>
 
 
@@ -543,7 +650,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232659.jpg" />
+  <img src="Z:/picture/005/save_picture_232659.jpg" />
 </div>
 
 
@@ -570,7 +677,7 @@ System Toolkit 5.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232647.jpg" />
+  <img src="Z:/picture/005/save_picture_232647.jpg" />
 </div>
 
 
@@ -581,111 +688,6 @@ System Toolkit - приложение «все-в-одном» для монит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F8168F473A501D3335C0D23E7545176A13B17EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639466   (232645) от 13.06.2023
-
-EdgeView 4.2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232645.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.06.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73FC94B9E9B74BAF0941D98FAFE7C0481053694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639536   (232637) от 13.06.2023
-
-SiteSucker Pro 5.1.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232637.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2023Разработчик: © 2022 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A094DF16C6410C3DB076C019BC15831A48ADE831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608922   (232608) от 01.02.2023
-
-Viper FTP 6.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярных протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
-Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2023Разработчик: © 2022 Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4695714A5DEC1FC65CF23C20AC98BCE0D0E3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608848   (232601) от 01.02.2023
-
-FSNotes 6.1.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232601.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2023Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7A7CEDE65300F9D5413AE19158EA0BBE091E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

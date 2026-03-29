@@ -1,3 +1,32 @@
+###  Публикация: 1507192   (798722) от 03.11.2021
+
+Alan Parsons - The Neverending Show: Live in the Netherlands (2021) Live [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798722.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. One Note Symphony (Live)  (04:49)
+ 02. Damed If I Do (Live)  (04:47)
+ 03. Don't Answer Me (Live)  (04:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0345EE183042539F86C339D053691A39CCB73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506942   (798713) от 03.11.2021
 
 R.E.M. - New Adventures In Hi-Fi (1996) 2xCD, 25th Anniversary Edition, 2021, Craft Recordings [MP3|320 Kbps] <Rock, Pop>
@@ -6,7 +35,7 @@ R.E.M. - New Adventures In Hi-Fi (1996) 2xCD, 25th Anniversary Edition, 2021, Cr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798713.jpg" />
+  <img src="Z:/picture/008/save_picture_798713.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Classic Rock: The Ultimate Collection (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797380.jpg" />
+  <img src="Z:/picture/008/save_picture_797380.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Zombies - Odessey And Oracle (1968) Reissue, 1987, Rhino Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796370.jpg" />
+  <img src="Z:/picture/008/save_picture_796370.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sweet - The Rainbow - Live In The UK 1973 (2018) [MP3|320 Kbps] <Glam Rock, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794985.jpg" />
+  <img src="Z:/picture/008/save_picture_794985.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Walking Papers - WP2 (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794974.jpg" />
+  <img src="Z:/picture/008/save_picture_794974.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Aqueous - Dark Side of Oz (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794916.jpg" />
+  <img src="Z:/picture/008/save_picture_794916.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794066.jpg" />
+  <img src="Z:/picture/008/save_picture_794066.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ John Fogerty - Fogerty's Factory (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793413.jpg" />
+  <img src="Z:/picture/008/save_picture_793413.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Stone Foxes - Twelve Spells (2015) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793312.jpg" />
+  <img src="Z:/picture/008/save_picture_793312.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793145.jpg" />
+  <img src="Z:/picture/008/save_picture_793145.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternativ
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792820.jpg" />
+  <img src="Z:/picture/008/save_picture_792820.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Atom Pink Floyd Tribute - Collection (2016-2019) 2 альбома [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792477.jpg" />
+  <img src="Z:/picture/008/save_picture_792477.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Lenny Kravitz - Raise Vibration (2018) Japanese Edition [MP3|320 Kbps] <Rock, So
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792241.jpg" />
+  <img src="Z:/picture/008/save_picture_792241.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - 80s Arena Rock Essentials (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792157.jpg" />
+  <img src="Z:/picture/008/save_picture_792157.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791856.jpg" />
+  <img src="Z:/picture/008/save_picture_791856.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The C Sides Project (C Sides) - 6CD (2011-2021) [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791645.jpg" />
+  <img src="Z:/picture/008/save_picture_791645.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Roger Waters - Greatest Hits (2018) 2CD [MP3|320 Kbps] <Rock, Progressive & Art-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791607.jpg" />
+  <img src="Z:/picture/008/save_picture_791607.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Igor & The Red Elvises - She Works For KGB (2017) [MP3|320 Kbps] <Rockabilly, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791558.jpg" />
+  <img src="Z:/picture/008/save_picture_791558.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791466.jpg" />
+  <img src="Z:/picture/008/save_picture_791466.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Rockin' the 70's (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791268.jpg" />
+  <img src="Z:/picture/008/save_picture_791268.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Rockin' the 80's (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791263.jpg" />
+  <img src="Z:/picture/008/save_picture_791263.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Robert Plant & Alison Krauss - Raise The Roof (2021) Deluxe Edition [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790271.jpg" />
+  <img src="Z:/picture/008/save_picture_790271.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Sting - The Bridge (2021) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790175.jpg" />
+  <img src="Z:/picture/008/save_picture_790175.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Shakin' Stevens And The Sunsets - A Legend (1970) Parlophone, PCS 7112, UK [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789927.jpg" />
+  <img src="Z:/picture/008/save_picture_789927.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Like Black Holes in the Sky - The Tribute to Syd Barrett (2008) [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789893.jpg" />
+  <img src="Z:/picture/008/save_picture_789893.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Like Black Holes in the Sky - The Tribute to Syd Barrett (2008) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08E84DD835233A911ECBCEC192744766635D55E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511022   (789726) от 19.11.2021
-
-Без Обмежень / БеZ Обмежень / Without Limits - Вільні люди (2021) [MP3|320 kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забрала ніч (02:50)
-02. Вільні люди (02:56)
-03. ЛітоКамон (03:00)
-04. Малий (03:20)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BCEE6D2C1B8F80B4123326ADC20E56018B597A
 ```
 
 https://mybot314.ru/tekegram_catalog/

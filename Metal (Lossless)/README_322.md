@@ -1,3 +1,90 @@
+###  Публикация: 1691616   (123053) от 13.01.2024
+
+Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Next
+02. The Variable
+03. Urban Terror
+04. Weakness Fed The Fear(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA52F5B3329F5D1C42A6755080A0D885910D0377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691676   (123046) от 13.01.2024
+
+Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being
+02. Nihilus
+03. Thanatophobia
+04. REM(nants)(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00: 46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05B146D9D07DBE5E9BE407E4A9F87A117320FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691678   (123045) от 13.01.2024
+
+Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropic
+02. Building A Shrine Upon Vanishing Sands
+03. Shallow Vaults
+04. The Temple Of Knowledge(   Читать дальше...   )Жанр: Brutal Technical Death MetalПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4D90933D013602E798A7051B3A64B5429C9C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691789   (123044) от 13.01.2024
 
 Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Power Metal>
@@ -6,7 +93,7 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123044.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122937.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - The Battle Of Metal Vol​.​8 (2024) Compilations [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122901.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ritual Earth & Kazak - Turned To Stone Chapter 9 (Split) (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122899.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Navagon - Prepare To Meet Thy God (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122873.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122706.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Holy Dragons - Fortress (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122365.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Chrysis - Borderline (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122348.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Blood Lightning - Blood Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122347.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Algid - Catasterismi (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122341.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122336.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122330.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ ASP - Horrors  A Collection of Gothic Novellas (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122008.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Aasymar - Corona de Escamas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122005.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Final Coil - The World We Inherited (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121988.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Abysmal Grief - Narcissistic Necrophiles (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121840.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Animarum - Machina (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121836.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Animarum - The Gaian Mind (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121820.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Bloodlost - Evil Origins (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121713.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Cartesian Ghost - Lux Arcana (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121712.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Cadacross - So pale is the Light (2001) Reissued 2005 [APE|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121696.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Death Level - The Era of Religion's Demise (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121693.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Avenger - Steel On Steel: The Complete Avenger Recordings (2024) 3CD [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121687.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Avenger - Steel On Steel: The Complete Avenger Recordings (2024) 3CD [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500D4CBB9276F923BC008DACF53D513D89A4578D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693697   (121680) от 21.01.2024
-
-Horskh - Body (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tension [00:02:00]
-02. Do it [00:03:05]
-03. Interface [00:03:20]
-04. Body Building [00:03:40](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E8C0C7FFD7F8E6A1E1578A4CA6DD7FAD4A8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693605   (121676) от 21.01.2024
-
-Bloodlost - Trashell (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. 57 Minutes to Die
-03. Bestial Butcher
-04. Chemical X(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164151E6CCB2019ACEA26D15A23E4F25265D7DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693518   (121675) от 21.01.2024
-
-Bloodlost - Hellcome (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellcome
-02. Escape From Violence
-03. Stray
-04. Juge Red(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AF86E1A1BAF41084302D5D60E0467CAABF9763
 ```
 
 https://mybot314.ru/tekegram_catalog/

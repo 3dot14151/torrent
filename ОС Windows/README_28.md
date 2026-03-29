@@ -1,3 +1,55 @@
+###  Публикация: 1827500   (188074) от 21.10.2025
+
+Windows Server 2022 LTSC [10.0.20348.4294], Version 21H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE1D1824EEC97625F460920C0E1D4B4DCAC245F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827501   (188072) от 21.10.2025
+
+Windows Server [10.0.25398.1913], version 23H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DB639D30EDDC660550B5EFE85A2BEDF017FFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827502   (188070) от 21.10.2025
 
 Windows Server 2025 LTSC [10.0.26100.6899], Version 24H2 (Updated October 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
@@ -6,7 +58,7 @@ Windows Server 2025 LTSC [10.0.26100.6899], Version 24H2 (Updated October 2025) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188070.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188028.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Microsoft Windows 10 [10.0.19045.6456], Version 22H2 (Updated October 2025) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187939.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187760.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187755.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Microsoft Windows 11 [10.0.22000.1219], Version 21H2 (Updated November 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187741.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ Microsoft Windows 10.0.19043.2251, Version 21H1 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187716.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ Microsoft Windows 11 [10.0.22000.1219], Version 21H2 (Updated November 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187677.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ Microsoft Windows 10.0.19044.2251, Version 21H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187673.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187663.jpg" />
 </div>
 
 
@@ -284,7 +336,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187653.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1249 (Updated November 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187637.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187604.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.3650 (Updated November 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187601.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187326.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Microsoft Windows 10.0.19045.2251, Version 22H2 (Updated November 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187312.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187287.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187260.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1970 (Updated September 2023)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187245.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187229.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186902.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Microsoft Windows 11 [10.0.22621.2283], Version 22H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186604.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186110.jpg" />
 </div>
 
 
@@ -634,7 +686,7 @@ Windows 11 PRO 24H2 26100.6899 Update 20 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186090.jpg" />
 </div>
 
 
@@ -648,61 +700,6 @@ Windows 11 PRO 24H2 26100.6899 Update 20 by Ghost Spectre [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C899269EC03C5443D6953A93D83025C06D148A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664605   (184282) от 27.09.2023
-
-Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Оригинальные образы от Microsoft [En]
-
->>ОС Windows
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновление Windows 11 2023 года (также известное как версия 23H2) — второе крупное обновление Windows 11. Он поставлялся в виде пакета поддержки для обновления Windows 11 2022 и имеет номер сборки 10.0.22631.
-
-Оригинальные образы - Windows 11 Version 23H2 Build 22631.2361.
-Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9A34620ECDE85136B018827F179B7891DD9818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593008   (180610) от 26.11.2022
-
-Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальные образы от Microsoft MSDN [Ukr]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Enterprise LTSC 2021 основана на Windows 10 Pro версии 21H2 (выпущена в ноябре 2021 года), добавляя дополнительные функции, предназначенные для удовлетворения потребностей крупных и средних организаций (включая крупные академические учреждения), такие как расширенная защита от современных угроз безопасности, полная гибкость развертывания ОС, возможности (   Читать дальше...   )Язык интерфейса: Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3604300C14C0CA3DD9EC81FCC74521AA9AAA5907
 ```
 
 https://mybot314.ru/tekegram_catalog/

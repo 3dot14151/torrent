@@ -1,3 +1,109 @@
+###  Публикация: 1536940   (671068) от 14.03.2022
+
+Multitouch 1.27.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B458BBDBAAE2C4F8B03D5C53EE6AE559CCE4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537035   (671067) от 14.03.2022
+
+Scrutiny 10 v10.4.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC128F467E8115E35B3C4E5C9A21012481A4AA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536939   (671066) от 14.03.2022
+
+SuperDuper! 3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671066.jpg" />
+</div>
+
+
+###  Подробнее
+
+SuperDuper! - утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © 2022 Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB92EC7F7C8EF466B6FB2FF3284C29D2B6BB8E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536946   (671065) от 14.03.2022
+
+WiFi Explorer 3.3.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_671065.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F744D21ED51FDB8EBCC8E72F5F2929BB812AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536980   (671064) от 14.03.2022
 
 Music Tag Editor Pro 6.1.1 [Multi]
@@ -6,7 +112,7 @@ Music Tag Editor Pro 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671064.jpg" />
+  <img src="Z:/picture/008/save_picture_671064.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Text Workflow 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671063.jpg" />
+  <img src="Z:/picture/008/save_picture_671063.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Alfred 4 Powerpack 4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671062.jpg" />
+  <img src="Z:/picture/008/save_picture_671062.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ SQLPro Studio 2022.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671060.jpg" />
+  <img src="Z:/picture/008/save_picture_671060.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ NeoFinder 6.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671057.jpg" />
+  <img src="Z:/picture/008/save_picture_671057.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ BetterZip 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671028.jpg" />
+  <img src="Z:/picture/008/save_picture_671028.jpg" />
 </div>
 
 
@@ -171,7 +277,7 @@ Swift Publisher 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671026.jpg" />
+  <img src="Z:/picture/008/save_picture_671026.jpg" />
 </div>
 
 
@@ -197,7 +303,7 @@ Auto Highlight 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670981.jpg" />
+  <img src="Z:/picture/008/save_picture_670981.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ Soulver 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670978.jpg" />
+  <img src="Z:/picture/008/save_picture_670978.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ PullTube 1.7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670971.jpg" />
+  <img src="Z:/picture/008/save_picture_670971.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ Navicat Premium 16.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670966.jpg" />
+  <img src="Z:/picture/008/save_picture_670966.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ Sparkle 1.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670960.jpg" />
+  <img src="Z:/picture/008/save_picture_670960.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ Translator App : Linguist 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670882.jpg" />
+  <img src="Z:/picture/008/save_picture_670882.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ SQLPro for MSSQL 2022.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670881.jpg" />
+  <img src="Z:/picture/008/save_picture_670881.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ WiFi Explorer Pro 3 v3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670879.jpg" />
+  <img src="Z:/picture/008/save_picture_670879.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ SuperDuper! 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670866.jpg" />
+  <img src="Z:/picture/008/save_picture_670866.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ Permute 3 v3.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670847.jpg" />
+  <img src="Z:/picture/008/save_picture_670847.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ Downie 3 v3.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670842.jpg" />
+  <img src="Z:/picture/008/save_picture_670842.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670833.jpg" />
+  <img src="Z:/picture/008/save_picture_670833.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ ForkLift 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670813.jpg" />
+  <img src="Z:/picture/008/save_picture_670813.jpg" />
 </div>
 
 
@@ -544,7 +650,7 @@ Paw 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670783.jpg" />
+  <img src="Z:/picture/008/save_picture_670783.jpg" />
 </div>
 
 
@@ -572,7 +678,7 @@ App Tamer 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670701.jpg" />
+  <img src="Z:/picture/008/save_picture_670701.jpg" />
 </div>
 
 
@@ -583,113 +689,6 @@ App Tamer 2.4.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F53FB644398822DC7061AB424E2AED6485B55BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291195   (670688) от 24.03.2019
-
-Librarian Pro 4 v4.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7650E122518B96F6E148052457960E500C049491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828393   (670670) от 20.05.2015
-
-iMazing 1.1.5 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670670.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing  - это новое имя менеджера DiskAid
-Приложение iMazing, поможет легко выгрузить данные с вашего девайса без физического подключения к компьютеру. Утилита, полностью избавит вас от необходимости запускать iTunes. Так же она позволяет узнать подробную информацию (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 мая 2015Разработчик: DigiDNAПоддерживаемая ОС: Mac OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134669E24DB9864CE0FD9C46C479F604EC35DB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136868   (670636) от 24.05.2017
-
-VLC media player 2.2.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670636.jpg" />
-</div>
-
-
-###  Подробнее
-
-VLC Media Player - Представляет собой мощный медиацентр-проигрыватель все в одном. Одной из особенностей является возможность проигрывания практически любого типа потокового видео. Умеет также конвертировать и захватывать видео. Есть возможность установки видео в качестве обоев рабочего стола. Может быть использован в качестве сервера для трансляции потока по протоколам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 мая 2017Разработчик: VideoLANПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DBC91C6B506A4EB858BB52B811E58DA5CFE781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136700   (670628) от 24.05.2017
-
-Charles Web Debugging Proxy 4.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Charles Web Debugging Proxy – это набирающий популярность зарубежный веб-прокси-сервер, работающий на вашем персональном компьютере, или ноутбуке, который зачастую относят к разделу программ HTTP Monitor. Свою популярность данная программа получила из-за высокой функциональности, быстроты работы и отличного, понятного и доступного дизайна.
-
-Множество работников IT-отделов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.05.2017Разработчик: Karl von RandowПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E8136558B8306E457137F1B91488754D7651BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

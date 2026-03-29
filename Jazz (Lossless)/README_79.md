@@ -1,3 +1,119 @@
+###  Публикация: 1206518   (782130) от 14.02.2018
+
+Nicki Parrott - Close To You: Burt Bacharach Song Book (2017) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk On By [03:09]
+02. Alfie [04:41]
+03. Close To You [03:17]
+04. Raindrops Keep Fallin' On My Head [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED7C6BCECD3B3F8512A5ABC79DDBB08C446499B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390967   (781955) от 18.06.2020
+
+Cannonball Aderley - Riverside Profiles 1958 - 1963 (2006) 2CD, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781955.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. This Here [11:47]
+02. Dizzy's Business [7:00]
+03. Nardis [5:33](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A020FC2FD552CB330F13BE21AB647563F561FBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206541   (781743) от 15.02.2018
+
+Harry James - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Sleepy Lagoon [03:02]
+02. Trumpet Blues and Cantabile [03:04]
+03. Easter Parade [03:28]
+04. Crazy Rhythm [03:46](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5FD8620189A638EFC0227FAD3AD4CEAD590D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391384   (781083) от 20.06.2020
+
+Archie Shepp - Blase & Live at the Pan-African Festival 1969 (2004) 2CD, Charly Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781083.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Angel [10:11]
+02. Blase [10:27]
+03. There Is a Balm in Gilead [6:00](   Читать дальше...   )Жанр: Avant-Garde Jazz, Soul-JazzПродолжительность: 01:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285CACD0C0CA7FFECCB5FFEB958D23DFB7A91149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207182   (780915) от 17.02.2018
 
 Jonah  Jones - 1936 - 1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
@@ -6,7 +122,7 @@ Jonah  Jones - 1936 - 1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_780915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_780915.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Eddie Bert - Encore (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780905.jpg" />
+  <img src="Z:/picture/008/save_picture_780905.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bud Powell - Live in Lausanne 1962 (2002) Stretch Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780904.jpg" />
+  <img src="Z:/picture/008/save_picture_780904.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780903.jpg" />
+  <img src="Z:/picture/008/save_picture_780903.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780902.jpg" />
+  <img src="Z:/picture/008/save_picture_780902.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Brian Culbertson - Colors Of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780775.jpg" />
+  <img src="Z:/picture/008/save_picture_780775.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Leonard   Feather - 1937 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780615.jpg" />
+  <img src="Z:/picture/008/save_picture_780615.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Enrico Pieranunzi & Art Farmer - Isis (1981) Soul Note [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780614.jpg" />
+  <img src="Z:/picture/008/save_picture_780614.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ George Masso, Randy Sandke & Ed Polcer - Jazz Live At The Musikhalle: One, Two, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780613.jpg" />
+  <img src="Z:/picture/008/save_picture_780613.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Billy Eckstine And His Orchestra - Together (1945) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780610.jpg" />
+  <img src="Z:/picture/008/save_picture_780610.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Helen Merrill & Gil Evans - Dream Of You (1956) 1988, Emarcy [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780436.jpg" />
+  <img src="Z:/picture/008/save_picture_780436.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Veronneau - Love & Surrender (2018) Veronneau Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780432.jpg" />
+  <img src="Z:/picture/008/save_picture_780432.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Carmen McRae - Carmen Sings Monk (1988) 2017, Sony Music [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780425.jpg" />
+  <img src="Z:/picture/008/save_picture_780425.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780132.jpg" />
+  <img src="Z:/picture/008/save_picture_780132.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780131.jpg" />
+  <img src="Z:/picture/008/save_picture_780131.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780130.jpg" />
+  <img src="Z:/picture/008/save_picture_780130.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780127.jpg" />
+  <img src="Z:/picture/008/save_picture_780127.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780126.jpg" />
+  <img src="Z:/picture/008/save_picture_780126.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780125.jpg" />
+  <img src="Z:/picture/008/save_picture_780125.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780124.jpg" />
+  <img src="Z:/picture/008/save_picture_780124.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780123.jpg" />
+  <img src="Z:/picture/008/save_picture_780123.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780122.jpg" />
+  <img src="Z:/picture/008/save_picture_780122.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208187   (780121) от 21.02.2018
-
-Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Worry About A Thing [02:19]
-02. It Didn't Turn Out That Way [02:44]
-03. Your Mind Is On Vacation [02:38]
-04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208193   (780118) от 21.02.2018
-
-Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [02:19]
-02. Song for Carabello [05:15]
-03. Surrender Song [07:05]
-04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208340   (780108) от 21.02.2018
-
-Noa Fort - No World Between Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Now Is Our Time
-02 – Traveling (In Time And Space)
-03 – Variations On Longing
-04 – Mirrors(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC7AB5BA8AAAB023D368DB1EE322CF75B021EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208460   (780002) от 22.02.2018
-
-Louisiana Rhythm Kings - 1929 - 1930 (2003) Classics [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futuristic Rhythm [03:01]
-02. Out Where The Blues Began [03:02]
-03. That's A Plenty [02:49]
-04. Ballin' The Jack [03:15](   Читать дальше...   )Жанр: SwingПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68D697687874BD1FEC1B8F1913E3E9B0A121673
 ```
 
 https://mybot314.ru/tekegram_catalog/

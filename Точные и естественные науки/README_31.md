@@ -1,3 +1,137 @@
+###  Публикация: 1651741   (206895) от 07.08.2023
+
+М.Я. Выгодский | Справочник по высшей математике  (1973) [PDF] [10-е издание]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга составляет продолжение Справочника по элементарной математике того же автора и включает весь материал, входящий в программу основного курса математики высших технических учебных заведений (механико-машиностроительных, строительных, авиационных, транспортных, электротехнических, энергетических и горнометаллургических).Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20913BFB77DD130D07339A824764E70F82AE25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650947   (206794) от 09.08.2023
+
+М.Я. Выгодский | Справочник по элементарной математике (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит все определения, правила, формулы и теоремы элементарной математики, а также математические таблицы. Предметный указатель и подробное содержание позволяет легко и быстро получать необходимую информацию.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6AA8DD56DEAB9937655991D8C255E397400B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614319   (206776) от 21.02.2023
+
+Сборник | Учебники по квантовым вычислениям, квантовой механике [210 книг] (1999-2023) [PDF, EPUB, DJVU] [RU, EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка учебников (книг) на русском и английском языке по квантовым вычислениям, квантовой механике, квантовой криптографии за период с 1999 по 2023 год. Подробный список содержимого под спойлером.
+
+Пожелания, ссылки на новые материалы по теме, указания на ошибки приветствуются. Тема планируется обновляться.
+(   Читать дальше...   )Жанр: Физика, Математика, ПрограммированиеЯзык: Русский, АнглийскийФормат: PDF, EPUB, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFC72749A5B8898FEE4CC085BB58D11B144FEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614482   (206718) от 22.02.2023
+
+Л.Н. Большев, Н.В. Смирнов | Таблицы математической статистики (1983) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник статистических таблиц с подробными пояснениями и примерами, которые выходят за рамки простого описания и представляют самостоятельный интерес как справочный материал. В отличие от других книг аналогичного содержания, здесь функции табулированы по всей естественной области определения, что достигается с помощью табулирования поправок (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A08E50D524349A73B01FB274196F942B54D74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615451   (206473) от 25.02.2023
+
+Н.И. Кошкин, М.Г. Ширкевич | Справочник по элементарной физике (1982) [PDF] [9-е издание]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник охватывает все основные разделы элементарной физики. В нем даны определения основных физических понятий, кратко сформулированы физические законы. Приводятся справочные таблицы и графики. В новом издании уточнены некоторые формулировки, введены современные обозначения.
+Справочник рекомендуется учащимся школ, профессионально-технических училищ и техникумов, (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD77624FC3FA269CA262DEB69F324A758788116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653055   (206391) от 14.08.2023
 
 А.П. Норден | Элементарное введение в геометрию Лобачевского (1953) [DJVU]
@@ -6,7 +140,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206391.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206357.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206300.jpg" />
+  <img src="Z:/picture/005/save_picture_206300.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206254.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206245.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205937.jpg" />
 </div>
 
 
@@ -163,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205355.jpg" />
 </div>
 
 
@@ -192,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205243.jpg" />
 </div>
 
 
@@ -218,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204775.jpg" />
+  <img src="Z:/picture/004/save_picture_204775.jpg" />
 </div>
 
 
@@ -244,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204496.jpg" />
 </div>
 
 
@@ -271,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203510.jpg" />
 </div>
 
 
@@ -299,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203458.jpg" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203446.jpg" />
 </div>
 
 
@@ -351,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203282.jpg" />
+  <img src="Z:/picture/004/save_picture_203282.jpg" />
 </div>
 
 
@@ -377,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202738.jpg" />
+  <img src="Z:/picture/004/save_picture_202738.jpg" />
 </div>
 
 
@@ -403,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201293.jpg" />
+  <img src="Z:/picture/005/save_picture_201293.jpg" />
 </div>
 
 
@@ -429,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201242.jpg" />
+  <img src="Z:/picture/005/save_picture_201242.jpg" />
 </div>
 
 
@@ -455,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201144.jpg" />
+  <img src="Z:/picture/005/save_picture_201144.jpg" />
 </div>
 
 
@@ -481,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201104.jpg" />
+  <img src="Z:/picture/005/save_picture_201104.jpg" />
 </div>
 
 
@@ -507,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200825.jpg" />
+  <img src="Z:/picture/005/save_picture_200825.jpg" />
 </div>
 
 
@@ -534,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200332.jpg" />
+  <img src="Z:/picture/005/save_picture_200332.jpg" />
 </div>
 
 
@@ -545,142 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBCE5850E821F945B5FE1E62B31F472856E1DD4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626311   (199926) от 14.04.2023
-
-Г.С. Ходаков | Физика измельчения (1972) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены результаты экспериментальных и теоретических исследований механического измельчения неорганических твердых тел до частиц микронных и субмикронных размеров. Рассмотрены влияния внешней среды на процесс получения высокодисперсных порошков, измельчение кристаллической структуры малых частиц и возникающих в связи с этим изменениями механохимические явления. (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE20CD4A79873DA823AB0975929DBA33F340FD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629333   (199268) от 27.04.2023
-
-Н.М. Матвеев | Методы интегрирования обыкновенных дифференциальных уравнений (1974) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для механико-математических факультетов университетов по курсу дифференциальных уравнений.
-
-В книге даются основные понятия и определения теории обыкновенных дифференциальных уравнений, излагаются наиболее важные методы интегрирования, доказываются теоремы существования решений и исследуются свойства последних.
-(   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDDDA3C4BD9E6603CC2734BCB7B14A74D3FF1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624961   (198829) от 05.05.2023
-
-Сборник | Electronics books collection [2110 книг] (1950-2022) [PDF, DJVU] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка книг и учебников на английском языке по Электронике, изданных в
-период с 1950 по 2022 год.
-
-Collections of the books in English on Electronics, published by(   Читать дальше...   )Жанр: ЭлектроникаЯзык: АнглийскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C179C3592C1A617E8CB7191D403F6CFED8CB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639287   (196447) от 27.06.2023
-
-В.Ф. Зайцев, А.Д. Полянин | Справочник по обыкновенным дифференциальным уравнениям (1995) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит более 5000 обыкновенных дифференциальных уравнений с решениями. Описано много новых интегрируемых уравнений. В целом в книге рассмо­трено в семь раз больше нелинейных уравнений второго, третьего и более высоких порядков, чем в известном "Справочнике по обыкновенным дифференциальным урав­нениям" Э.Камке. Приведены некоторые точные решения (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84AB3D2E22B0634F1FDCD5C384C954F137D07FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490624   (196300) от 02.07.2023
-
-А.Д. Полянин, А.В. Вязьмин, А.И. Журов и др. | Справочник по точным решениям уравнений тепло - и массопереноса (1998) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой справочник по точным решениям линейных и нелинейных уравнений тепло- и массопереноса. Приводятся точные решения стационарных и нестационарных уравнений теплопроводности как с постоянными, так и с переменными коэффициентами для различных начальных и граничных условий. Подробно представлены решения одномерных, двумерных и трехмерных задач теплопроводности (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC39C99976036291D5FA884217483062E2AE360
 ```
 
 https://mybot314.ru/tekegram_catalog/

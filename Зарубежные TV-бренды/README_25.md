@@ -1,3 +1,107 @@
+###  Публикация: 725188   (796597) от 27.04.2016
+
+NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имея 40 млн. фанатов по всему миру, компания "Wargaming" прилагает все усилия, чтобы как можно скорее выпустить новую игру - "Мир танков".Жанр: Документальный, игрыПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA078F6C5A8AC9E63825656D58E3DAF0D67B7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385908   (796549) от 26.05.2020
+
+NG: Дикая природа Новой Зеландии: затерянный рай / Wild New Zealand: Lost Paradise (2017) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эволюция животного и растительного мира в своем буйном развитии создала в Новой Зеландии таких редких и необычных представителей дикой природы, которые превратили ее в настоящую заповедную страну, населенную диковинными созданиями.Производство: Новая Зеландия, Natural History New Zealand for National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Крэйг МидеПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC092C0058120427AA2431C9FAAB5F9CED238514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385561   (796541) от 26.05.2020
+
+NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под нашими ногами, под триллионами тонн камня, скрываются удивительные и смертельные секреты. Землетрясения, цунами, извержения вулканов - все это вызвано скрытыми силами глубоко внутри нашей планеты. Теперь, используя последние научные данные от датчиков и сканирования поверхности, мы можем сделать рентгеновские снимки Земли, чтобы выявить опасности, запертые внутри (   Читать дальше...   )Производство: Великобритания, BLINK FILMS for National GeographicЖанр: Документальный, Научно-популярныйРежиссер: Дэн ЧамберсПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273B63947BE67FE5F43DF4CF5EA0354FE3853EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321611   (796508) от 26.05.2020
+
+BBC: Удивительный мир данных / The Joy of Data (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что наш мир затопили потоки данных. Их собирают, передают, обрабатывают и пытаются расшифровать. Они накатывают волна за волной, от новостей и сообщений до измерения шагов. И чем больше мы вычерпываем их, тем больше поступает. Мы приобретаем данные, пытаемся в них выплыть, иногда тонем. С помощью современных технологий мы количественно измеряем самих (   Читать дальше...   )Производство: Wingspan Productions, BBCЖанр: ДокументальныйРежиссер: Catherine GaleАктеры: Hannah FryПеревод: Двуголосый профессиональный (Первый ТВЧ)Продолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B502D14C197B02A0619080A12BFBEC9F516509CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747154   (796056) от 28.04.2016
 
 BBC. Взломщики кодов. Забытые герои Блетчли-Парка / Code-Breakers: Bletchley Park's Lost Heroes (2011) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796056.jpg" />
+  <img src="Z:/picture/008/save_picture_796056.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795250.jpg" />
+  <img src="Z:/picture/008/save_picture_795250.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794923.jpg" />
+  <img src="Z:/picture/008/save_picture_794923.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794852.jpg" />
+  <img src="Z:/picture/008/save_picture_794852.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794625.jpg" />
+  <img src="Z:/picture/008/save_picture_794625.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794592.jpg" />
+  <img src="Z:/picture/008/save_picture_794592.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794581.jpg" />
+  <img src="Z:/picture/008/save_picture_794581.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794569.jpg" />
+  <img src="Z:/picture/008/save_picture_794569.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ BBC. Искусство России / The Art of Russia (2009) HDTVRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794495.jpg" />
+  <img src="Z:/picture/008/save_picture_794495.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ PBS: Истории из королевской спальни / Tales from the 
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794239.jpg" />
+  <img src="Z:/picture/008/save_picture_794239.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793857.jpg" />
+  <img src="Z:/picture/008/save_picture_793857.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793855.jpg" />
+  <img src="Z:/picture/008/save_picture_793855.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793690.jpg" />
+  <img src="Z:/picture/008/save_picture_793690.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793370.jpg" />
+  <img src="Z:/picture/008/save_picture_793370.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793340.jpg" />
+  <img src="Z:/picture/008/save_picture_793340.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ DV. Чудеса механики / Wonders of the Clockwork World / Mechanical 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793229.jpg" />
+  <img src="Z:/picture/008/save_picture_793229.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ PBS. Жизнь колибри. Волшебство в воздухе / Humming
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793159.jpg" />
+  <img src="Z:/picture/008/save_picture_793159.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793099.jpg" />
+  <img src="Z:/picture/008/save_picture_793099.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792749.jpg" />
+  <img src="Z:/picture/008/save_picture_792749.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792713.jpg" />
+  <img src="Z:/picture/008/save_picture_792713.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792700.jpg" />
+  <img src="Z:/picture/008/save_picture_792700.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792677.jpg" />
+  <img src="Z:/picture/008/save_picture_792677.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:301BA4CC27EBE2B97F972952BC9F81EEDE7D67EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509978   (792674) от 14.11.2021
-
-По следам пришельцев / In Search of Aliens (2014) SATRemux [H.264] (сезон 1, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джорджио Цукалос, один из создателей "Древних пришельцев", популярного сериала на канале H2, представляет новый телевизионный проект, связанный с поисками следов инопланетного вмешательства в человеческую историю.Производство: США, Prometheus EntertainmentЖанр: Документальный, история, исследованияРежиссер: Кевин БёрнсПеревод: Двуголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627CA7AC64635937BD5CB3C21953DA18567D5F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509824   (792668) от 14.11.2021
-
-Древние пришельцы / Ancient Aliens (2015) BDRip [H.264] (сезон 10, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно ли, что разумные формы жизни посетили Землю тысячи лет назад, принеся с собой технологии кардинально повлиявшие на ход истории и развития человечества? Теория "древних пришельцев", опубликованная в 1968 году в бестселлере Эриха фон Дэникена "Колесницы богов", пошатнула представления людей об общеизвестном прогрессе человечества. Древние (   Читать дальше...   )Производство: США, Prometheus Entertainment, A&E Television Networks, LLC.Жанр: Документальный, история, исследованияРежиссер: Кевин БёрнсПеревод: Многоголосый профессиональный (H2)Субтитры: отсутствуютПродолжительность: серии x ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775CC6CFF5C8D83BA42479A24647C6361A62CFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201240   (792654) от 24.01.2018
-
-History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p-LQ] (сезон 1-6, серии 1-78 из 78)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792654.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале с помощью современной компьютерной графики и, основываясь на передовых исследованиях в области космоса, создатели фильма смогли воссоздать то, что происходит на других планетах, в других галактиках, вообразить какие формы жизни могли бы развиться в других атмосферах. Вы сможете увидеть космические бедствия, параллельные вселенные, скорость света и (   Читать дальше...   )Телекомпания: США, Flight 33 ProductionsЖанр: Документальный, историяРежиссер: Лаура Верклан, Луис Тарантино, Darryl RehrПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 78 х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D18994AF655FEC2CE6FE1EBC86AEEBBDE202EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193886   (792602) от 24.01.2018
-
-Расшифрованные сокровища (Сокровища мира) / Treasures Decoded (2017) DVB (сезон 4, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища прошлого хранят свои секреты, которые попытается разгадать группа ученых. Надо ли говорить о том, что эти энтузиасты планируют применить в своей работе всё имеющееся в их распоряжении ультрасовременное оборудование и по ходу дела раскроют телезрителям новые величайшие тайны о жизни далёких предков и мироздании в целом.Производство: Великобритания, Канада, Entertainment One & Blink FilmsЖанр: Документальный, альтернативная история, псевдоисторияРежиссер: Ник Харди, Том Фоули, Эллиот КьюПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE5A133DD576408E58FBF9FE60E662A22F1C11B
 ```
 
 https://mybot314.ru/tekegram_catalog/

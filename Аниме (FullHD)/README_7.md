@@ -1,3 +1,159 @@
+###  Публикация: 1354607   (986990) от 23.01.2020
+
+Arete Hime | Arite Hime | The Adventure of Princess Arete | Принцесса Аритэ [2001, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запертая отцом-королём до замужества в высокой башне замка, принцесса Аритэ коротает дни, созерцая мир, открывающийся из окна. Иногда она украдкой ускользает из дворца, чтобы понаблюдать простой люд в его обыденных трудах. Рыцари королевства соперничают за право жениться на ней и править подвластными землями, пытаясь добыть для неё самые ценные сокровища магии, созданные (   Читать дальше...   )Производство: Studio 4°C / スタジオ4℃Жанр: фэнтези, драма, приключенияРежиссер: Катабути СунаоПеревод: Ramzes-III + ДмитрийЯзык озвучки: ЯпонскийСубтитры: Русские, английские, французскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC19DDC29BE48E4AACE81B1E930B98AA554B577F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354838   (986044) от 24.01.2020
+
+Roujin Z | Old Person Z | Старик Зет [1991, Movie] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство здравоохранения Японии спешит представить миру инновационную разработку, которая обеспечит беззаботную жизнь для престарелых японцев и их родных. Однако, для молоденькой Харуко, которая присматривает за пожилым Киджуро, современные разработки не пришлись по вкусу, так как в них отсутствует человеческая любовь и забота. На что готова пойти Харуко-сан, (   Читать дальше...   )Производство: A.P.P.P.Жанр: комедия, фантастика, мехаРежиссер: Китакубо ХироюкиПеревод: LupusЯзык озвучки: Японский и английскийСубтитры: Русские, английскиеПродолжительность: 80 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DD7D52BF373C6762CC874C587087C2C83CC3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612796   (985539) от 02.02.2013
+
+Kannagi: Crazy Shrine Maidens / Хранительницы: веселые девчата [2008, TV, 13 +1] BDrip Hi10p 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985539.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Дзин Микурия любил играть в старом синтоистском храме под вечнозеленой священной нагеей. Парень вырос, храм снесли, а дерево спилили. Художник-любитель Дзин, тонко чувствующий природу и не чуждый сверхъестественного, выпросил кусок священного дерева, чтобы вырезать из него статую девушки. Обняв свое творение, Дзин вознес горячую молитву богам, прося их простить людей за неразумие. Разумеется, произошло чудо, и кусок дерева превратился в красавицу по имени Наги – земное воплощение богини-хранительницы окрестных земель. Освоившись в новом мире, Наги поняла, что силы у нее не те и исполнять свои обязанности придется с активной помощью нового знакомого. Погрузившись в медитацию по поводу стратегии борьбы со злом, богиня не заметила, как заскучавший хозяин включил ТВ, и, как на грех, попал на аниме жанра «махо-седзе». Знамение судьбы, понимаете ли… Отныне Наги решила вести жизнь обычной школьницы, а в промежутках бороться за любовь и справедливость на вверенной территории, назначив бедного Дзина на роль местного (   Читать дальше...   )Жанр: комедия, романтика, мистикаРежиссер: Ямамото ЮтакаПродолжительность: 00:25 x14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6754506A8FEBF8EA8441FDA3DB2F9729152663FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355077   (984862) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon Super S: Sailor 9 Senshi Shuuketsu! Black Dream Hole no Kiseki | Pretty Soldier Sailor Moon Super S: Black Dream Hole | Красавица-воин Сейлор Мун Супер Эс: Чёрная дыра с ...
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен Чибиусе. Однажды она знакомится с симпатичным эльфом по имени Перуру и естественно влюбляется в него. Но есть одна проблема — Перуру вынужден подчиняться злобной королеве, которая похищает маленьких детей посредством гипноза...Производство: Toei Animation / 東映アニメーションЖанр: махо-сёдзё, приключения, драмаРежиссер: Сибата ХирокиПеревод: Yuri Gilfanov (Izh R.An.Ma) aka YurikoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AF697DB04FC7DD17EA2E93BEB4B043E58E9D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355070   (984857) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito | Pretty Soldier Sailor Moon S: Hearts In Ice | Красавица-воин Сейлор Мун Эс: Снежная принцесса Кагуя [1994, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984857.jpg" />
+</div>
+
+
+###  Подробнее
+
+К Земле стремительно приближается комета. На ней летит Снежная Принцесса Кагуя, которая хочет заморозить Землю для своей коллекции. Для этого ей нужен ее Кристалл, когда-то упавший на Землю. Она посылает Снежных Балерин-демонов на поиски, но Сейлор Мун встают на защиту Земли...Производство: Toei Animation / 東映アニメーションЖанр: махо-сёдзё, приключения, романтикаРежиссер: Сибата ХирокиПеревод: Dr.BarsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1728127E9725A10275C737E11E5E56034089C73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355079   (984856) от 25.01.2020
+
+Bishoujo Senshi Sailor Moon Gaiden: Ami-chan no Hatsukoi | Pretty Soldier Sailor Moon Super S: Ami's First Love | Красавица-воин Сейлор Мун: Первая любовь Ами [1995, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984856.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории стоит Сейлор Меркурий, "мозг" команды. Однажды, в вывешенном списке лучших учеников она замечает таинственного Меркуриуса, который так же хорош в учебе, как и она сама. Ами решает, что это вызов на "дуэль силы духа". Теперь она может думать только об одном - учебе, которой она занимает теперь и днем, и ночью, еще усерднее, чем (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: махо-сёдзё, комедия, романтикаРежиссер: Игараси ТакуяПеревод: Dr.Bars, Yuri Gilfanov (Izh R.An.Ma) aka YurikoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 16 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6F83C1E8130A96518FEB99899DC145CD29BB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355075   (984831) от 25.01.2020
 
 Bishoujo Senshi Sailor Moon Super S Special | Pretty Soldier Sailor Moon Super S Special | Красавица-воин Сейлор Мун Супер Эс: Спецвыпуск [1995, Special, 1 из 1] BDRip 1080p raw
@@ -6,7 +162,7 @@ Bishoujo Senshi Sailor Moon Super S Special | Pretty Soldier Sailor Moon Super S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984831.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ Bishoujo Senshi Sailor Moon S | Pretty Soldier Sailor Moon S | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984825.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ Bishoujo Senshi Sailor Moon Super S | Pretty Soldier Sailor Moon Super S | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984821.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ Bishoujo Senshi Sailor Moon R | Pretty Soldier Sailor Moon R | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984818.jpg" />
 </div>
 
 
@@ -115,7 +271,7 @@ Bishoujo Senshi Sailor Moon Sailor Stars | Pretty Soldier Sailor Moon Sailor Sta
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984763.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ Bishoujo Senshi Sailor Moon Crystal Season III | Pretty Soldier Sailor Moon Crys
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984759.jpg" />
 </div>
 
 
@@ -167,7 +323,7 @@ Big Order / Приказ свыше [2015, OVA, 1] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984357.jpg" />
 </div>
 
 
@@ -194,7 +350,7 @@ Chaos;Head / Хаос;Вершина [2008, TV, 12] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983897.jpg" />
 </div>
 
 
@@ -222,7 +378,7 @@ Zetsumetsu Kigu Shoujo: Amazing Twins | Разрушительные опасн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983202.jpg" />
 </div>
 
 
@@ -248,7 +404,7 @@ Gingitsune: Messenger Fox of the Gods | Серебряный Лис [2013, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983098.jpg" />
 </div>
 
 
@@ -274,7 +430,7 @@ Hibike! Euphonium | Sound! Euphonium | Играй, Эуфониум! [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983087.jpg" />
 </div>
 
 
@@ -300,7 +456,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай Грисайи [2015, TV, 10 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982799.jpg" />
 </div>
 
 
@@ -326,7 +482,7 @@ Dragon Ball Z Movies / Драгонболл Z Фильмы [1989 - 2015, Movie, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982711.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ Saint Seiya(Jashin Eris|Kamigami no Atsuki Tatakai|Shinku no Shounen Densets|Sai
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977930.jpg" />
 </div>
 
 
@@ -380,7 +536,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977787.jpg" />
 </div>
 
 
@@ -406,7 +562,7 @@ Haja Taisei Dangaiou | Dangaioh: Hyper-Combat Unit | Гигантский зве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975533.jpg" />
 </div>
 
 
@@ -432,7 +588,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, OVA, 12 сери
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974647.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972833.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970555.jpg" />
 </div>
 
 
@@ -514,7 +670,7 @@ Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схва�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968456.jpg" />
 </div>
 
 
@@ -525,162 +681,6 @@ Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96DFBB1DBBF79B0BCCD78D756AF455697ACE4961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687393   (963461) от 18.01.2014
-
-Yahari Ore no Seishun Love Come wa Machigatteiru. | OreGairu | Мой подростковый ромком не складывается, как и ожидалось. [2013, TV, 13 эп. + 1 OVA] BDrip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963461.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летний Хатиман Хикигая – юный циник и пессимист, уверенный, что «весна юности», дружба и любовь - обман, ложь и фикция, а поддержание сего мифа есть коллективный заговор тех, кто обжегся и ничего не получил, но не хочет признавать очевидного. Молодая учительница Сидзука Хирацука оказалась не в силах переубедить проблемного ученика и в отчаянии отправила его в (   Читать дальше...   )Производство: Студия Brains BaseЖанр: комедия, школаРежиссер: Ёсимура АйПеревод: Dreamers TeamЯзык субтитров: русскийПродолжительность: 13 серий + 1 OVA по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED99018D2AE216A7C84C0EB61854A0B793E3B6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837588   (958328) от 04.01.2015
-
-Tokyo Ghoul / Токийский гуль [2014, TV, 12] BDRip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раса гулей существует с незапамятных времен. Ее представители вовсе не против людей, они их даже любят – преимущественно в сыром виде. Любители человечины внешне неотличимы от нас, сильны, быстры и живучи – но их мало, потому гули выработали строгие правила охоты и маскировки, а нарушителей наказывают сами или по-тихому сдают борцам с нечистью. В век науки люди знают (   Читать дальше...   )Жанр: приключения, мистика, ужасы, сэйнэнРежиссер: Морита Сюхэй / Morita Shuhei / 森田修平Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFD0B0D49C4CD2BD5F00A39034ED483983B33C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854709   (957273) от 05.01.2015
-
-Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, MV] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, далёкое будущее. После череды катастроф (рукотворных и не очень), земля превратилась в пустыню. Подавляющее большинство населения оцифровали и поместили в киберпространство. В этом пространстве можно воссоздать любую окружающую среду, какую только пожелаешь. А заодно не надо заботиться о пропитании, крыше над головой, крупные преступления быстро пресекаются, (   Читать дальше...   )Жанр: приключения, фантастика, эттиРежиссер: Мидзусима СэйдзиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: Русские отПродолжительность: 103 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9765EDA8B3055B7527D84772A78F0DB305F17F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854713   (957258) от 05.01.2015
-
-Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, MV] BDrip 1080p HEVC raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, далёкое будущее. После череды катастроф (рукотворных и не очень), земля превратилась в пустыню. Подавляющее большинство населения оцифровали и поместили в киберпространство. В этом пространстве можно воссоздать любую окружающую среду, какую только пожелаешь. А заодно не надо заботиться о пропитании, крыше над головой, крупные преступления быстро пресекаются, (   Читать дальше...   )Жанр: приключения, фантастика, эттиРежиссер: Мидзусима СэйдзиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: русские отПродолжительность: 103 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72FF3CBEC2AB038D05A22A25DAFEAA80DBA46440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361267   (955733) от 19.02.2020
-
-Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Грязная парочка: Ноландское дело [1985, OVA, 1 из 1] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолёты, нанятые фондом Ватанабе, терпят катастрофы. Непонятные видения пилота при посадке привели к аварии. Кто-то должен разобраться в происходящем. И Грязная парочка берётся за работу! Да вот незадача, клиент убит и уже ничего не сможет объяснить. Работа провалена? Ну, нет! Девушки никогда не бросают дела незавершёнными, а планеты... не разрушенными. Правда, (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастикаРежиссер: Окуваки МасахаруПеревод: Offspring-BlackFoxЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7440283D3990DF3E0074EBB322C88B8C4323C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361272   (955637) от 19.02.2020
-
-Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куда не посмотришь везде сплошной киберпанк... Огромные небоскребы, многоуровневые автострады, те кто побогаче лезут поближе к солнышку, а там внизу остаются остальные, те кто не успел запрыгнуть в лодку удачи... Но мир живет и развивается, время от времени происходят всякие неприятности, которые разрастаются до размеров катастроф... Наши героини и есть специалисты (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, комедия, фантастикаРежиссер: Ятабэ КацуёсиПеревод: MisterX, UtenaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B5B49C35662E297E0926B1032AA152C66E19EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

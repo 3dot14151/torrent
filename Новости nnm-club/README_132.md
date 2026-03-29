@@ -1,3 +1,161 @@
+###  Публикация: 1297375   (604011) от 22.04.2019
+
+Остановивший WannaCry исследователь признался в создании вредоносного ПО
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_604011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маркус Хатчинс признал свою вину в создании и распространении банковских троянов.Исследователь безопасности, два года назад остановивший волну атак WannaCry, признал свою вину в создании и распространении вредоносного ПО.Британец Маркус Хатчинс (Marcus Hutchins), использующий псевдоним MalwareTech, больше всего известен тем, что в 2017 году остановил распространение (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296375   (603992) от 22.04.2019
+
+World War Z (2019) [Ru/Multi] (1.0) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603992.jpg" />
+</div>
+
+
+###  Подробнее
+
+World War Z — это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z — наследнице одноименного блокбастера от Paramount Pictures — вас ждет сверхдинамичный игровой процесс.Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AB64BCBD73C3583831D62D473E082985817606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353146   (603735) от 06.07.2017
+
+Operation Flashpoint Антология [Ru] (L) 2001-2003
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Peacemaker — превосходное продолжение грандиозного шутера от первого лица Operation Flashpoint.
+
+Еще в 1985 году, задолго до операции "Буря Пустыне" на острове Эверон сошлись в смертельном поединке войска СССР и США, а также местные правительственные войска и повстанцы, манипулируемые советскими и американскими идеологами. Вас ждут масштабные баталии с (   Читать дальше...   )Тип издания: МодификацияРазработчик: flashpoint.ruЖанр: Action (Tactical / Shooter) / Strategy (Tactical) / Simulator (Flight Combat / Helicopter / Tank)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748A86A800C8002A00093C477CF5F547451069F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231753   (603630) от 20.06.2018
+
+Symantec Endpoint Protection 14.2 Build 758 (14.2.758.0000) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symantec Endpoint Protection - комплексный антивирус и фаервол с несколькими уровнями безопасности. Антивирусная и превентивная защита, защита от сетевых угроз и эксплойтов нулевого дня, система предотвращения вторженийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF507200362208E919A5E7685DFEAFAEC87B533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297517   (603519) от 23.04.2019
+
+Всё, что известно про Windows Core OS
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_603519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непросто следить за тем, как происходит развитие проекта Microsoft Windows Core OS (WCOS). Даже специализирующиеся на делах Microsoft издания испытывают трудности с различными кодовыми именами, планами и вносимыми в эти планы изменениями. Журналисты портала Windows Central предприняли попытку систематизировать известные на данный момент сведения относительно Windows (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035248   (603503) от 23.04.2019
+
+Shadows of Kurgansk (2016) [Ru/Multi] (0.1.51) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadows of Kurgansk — игра, в которой вам предстоит выжить в Зоне, населенной зомби и полной опасностей и загадок. Ваша главная цель – остаться в живых и найти дорогу домой, сражаясь с монстрами и выполняя сюжетные миссии. Чтобы не погибнуть, собирайте припасы, охотьтесь, стройте хранилища и убежища. Грамотно расходуйте ресурсы, и вы сможете создавать различные орудия (   Читать дальше...   )Тип издания: RepackРазработчик: Yadon StudioЖанр: Adventure, Action (Survival horror), 1st PersonЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8678B53699EED2C20CEF08C32CB285D6B2F3828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297316   (603502) от 23.04.2019
 
 Игры разумов / The Professor and the Madman (2019) WEB-DL [H.264/1080p-LQ] [MVO]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603502.jpg" />
+  <img src="Z:/picture/008/save_picture_603502.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_603224.jpg" />
+  <img src="Z:/picture/005/save_picture_603224.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.652]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603209.jpg" />
+  <img src="Z:/picture/008/save_picture_603209.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603117.jpg" />
+  <img src="Z:/picture/008/save_picture_603117.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ Nvidia DriverPack v.430.39 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603043.jpg" />
+  <img src="Z:/picture/008/save_picture_603043.jpg" />
 </div>
 
 
@@ -140,7 +298,7 @@ Business Insider составил рейтинг 20 лучших смартфо�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_603040.jpg" />
+  <img src="Z:/picture/005/save_picture_603040.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602747.jpg" />
+  <img src="Z:/picture/008/save_picture_602747.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ S7 Space намерена возобновить производство сов
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_602703.jpg" />
+  <img src="Z:/picture/005/save_picture_602703.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602684.jpg" />
+  <img src="Z:/picture/008/save_picture_602684.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602293.jpg" />
+  <img src="Z:/picture/008/save_picture_602293.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_602203.jpg" />
+  <img src="Z:/picture/005/save_picture_602203.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (13140) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602062.jpg" />
+  <img src="Z:/picture/008/save_picture_602062.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601929.jpg" />
+  <img src="Z:/picture/008/save_picture_601929.jpg" />
 </div>
 
 
@@ -350,7 +508,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601924.jpg" />
+  <img src="Z:/picture/008/save_picture_601924.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_601193.jpg" />
+  <img src="Z:/picture/005/save_picture_601193.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_600996.jpg" />
+  <img src="Z:/picture/005/save_picture_600996.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ Malwarebytes Anti-Malware Premium 2.1.8.1057 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600786.jpg" />
+  <img src="Z:/picture/008/save_picture_600786.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ Planetary Annihilation (2014) [Ru/Multi] (build 83391) Unofficial ALI213
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600778.jpg" />
+  <img src="Z:/picture/008/save_picture_600778.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600772.jpg" />
+  <img src="Z:/picture/008/save_picture_600772.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600655.jpg" />
+  <img src="Z:/picture/008/save_picture_600655.jpg" />
 </div>
 
 
@@ -517,165 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93950A5FC252CF2ACFD2DE923004F3133D5E3522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073249   (600650) от 30.04.2019
-
-Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transport Fever - это железнодорожная экономическая стратегия. Игроки начинают в 1850 и строят процветающую транспортную компанию. Будучи новоиспеченным магнатом, игрок возводит станции, аэропорты, доки и зарабатывает деньги, соединяя области, которым нужно транспортное сообщение.Тип издания: RepackРазработчик: Urban GamesЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E63DA78973E2FDB66FF2D139CBD53510248CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683922   (599942) от 07.08.2013
-
-Call of Duty: Black Ops 2 (2012) [En] (Multiplayer Only/39.1337.4/DLC 1-3) Rip Straicker [FourDeltaOne]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call Of Duty: Black Ops II продвигает игроков в ближайшее будущее 21-го века холодной войны, где технологии и оружие сошлись для создания нового поколения войн! Call of Duty: Black Ops II — мультиплатформенная компьютерная игра в жанре трёхмерного шутера от первого лица. Является девятой игрой в серии Call of Duty и прямым сиквелом Call of Duty: Black Ops. Разрабатывается американской студией Treyarch.
-
-В мультиплеере доступны несколько режимов командной или индивидуальной игры.
-Игра с друзьями по сети,совместная (   Читать дальше...   )Тип издания: RipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st Person / Online Only*Язык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1DC4E008B298A7FA5D1CC572D372A5D3BBA5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147840   (599553) от 11.07.2017
-
-Tor Browser Bundle 7.0.2 Final [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A05C55BAA7FE3E7D45809D293072E1837AA1010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078333   (599542) от 11.07.2017
-
-Darksiders (2016) [Ru/Multi] (1.0.2679/u12) Repack =nemos= [Warmastered Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поддавшись лживым вестям сил зла о конце света, один из четырех всадников апокалипсиса, Война, обвиняется в нарушении священного закона и провоцирования войны между Раем и Адом. В невероятных битвах, проходивших во время той войны, победу одержали силы зла - и они же потребовали власти над Землей. Война предстал перед Расплавленным советом и был обвинен в совершении (   Читать дальше...   )Тип издания: RepackРазработчик: KAIKO, Vigil GamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD71E221C92F3E6A5B10F6C99DD556E14E23FD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038962   (599284) от 30.07.2016
-
-Без клавиатуры и мыши - видение будущего компьютерных интерфейсов от компании Microsoft
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователи современных компьютеров могут использовать беспроводные клавиатуры и мыши, тем не менее, их способности к управлению компьютером остаются ограниченными возможностями этих устройств ввода и манипулирования информацией. Однако, исследователи компании Microsoft видят будущее компьютерных интерфейсов несколько по-иному, согласно этому видению в будущем для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804248   (599233) от 01.07.2015
-
-Скрипты — Scripts collection for After Effects CS & CC 2015 [JSXBIN, JSX, JSXINC]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационные текстовые инструментыЯзык интерфейса: EnglishФормат: JSXBIN, JSX, JSXINC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1E467F4757232F2E26C4E4A867A1876E79DDA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

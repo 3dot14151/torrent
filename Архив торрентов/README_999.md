@@ -6,7 +6,7 @@ Google Chrome 63.0.3239.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818864.jpg" />
+  <img src="Z:/picture/008/save_picture_818864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818862.jpg" />
+  <img src="Z:/picture/008/save_picture_818862.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.38 (4/16/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818840.jpg" />
+  <img src="Z:/picture/008/save_picture_818840.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Talisman  (2014) [Ru/Multi] (7.51/dlc) Repack LinXP [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818838.jpg" />
+  <img src="Z:/picture/008/save_picture_818838.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818833.jpg" />
+  <img src="Z:/picture/008/save_picture_818833.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818831.jpg" />
+  <img src="Z:/picture/008/save_picture_818831.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Infix PDF Editor Pro 6.49 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818830.jpg" />
+  <img src="Z:/picture/008/save_picture_818830.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Autodesk AutoCAD Mechanical 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818824.jpg" />
+  <img src="Z:/picture/008/save_picture_818824.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe InCopy 2020 15.0.3.425 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818809.jpg" />
+  <img src="Z:/picture/008/save_picture_818809.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Light Image Resizer 5.0.5.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818799.jpg" />
+  <img src="Z:/picture/008/save_picture_818799.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Audirvana Plus 2.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818798.jpg" />
+  <img src="Z:/picture/008/save_picture_818798.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Winclone Pro 6 v6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818785.jpg" />
+  <img src="Z:/picture/008/save_picture_818785.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818782.jpg" />
+  <img src="Z:/picture/008/save_picture_818782.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818776.jpg" />
+  <img src="Z:/picture/008/save_picture_818776.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818772.jpg" />
+  <img src="Z:/picture/008/save_picture_818772.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ SpeedyFox 2.0.22 Build 125 Portable[En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818770.jpg" />
+  <img src="Z:/picture/008/save_picture_818770.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Google Chrome 63.0.3239.132 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818762.jpg" />
+  <img src="Z:/picture/008/save_picture_818762.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ LogMeIn [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818732.jpg" />
+  <img src="Z:/picture/008/save_picture_818732.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818726.jpg" />
+  <img src="Z:/picture/008/save_picture_818726.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mushroom Wars (2016) [Ru/En] (1.0.1) Repack VseTop
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818718.jpg" />
+  <img src="Z:/picture/008/save_picture_818718.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.04) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818717.jpg" />
+  <img src="Z:/picture/008/save_picture_818717.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ eBay 4.2.1.1 (AdFree Mod) [Rus]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818713.jpg" />
+  <img src="Z:/picture/008/save_picture_818713.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818704.jpg" />
+  <img src="Z:/picture/008/save_picture_818704.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ O&O Defrag Professional / Server 23.5 Build 5016 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818690.jpg" />
+  <img src="Z:/picture/008/save_picture_818690.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Auslogics BoostSpeed 11.4.0.3 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818682.jpg" />
+  <img src="Z:/picture/008/save_picture_818682.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818676.jpg" />
+  <img src="Z:/picture/008/save_picture_818676.jpg" />
 </div>
 
 

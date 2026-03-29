@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867172.jpg" />
+  <img src="Z:/picture/008/save_picture_867172.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867167.jpg" />
+  <img src="Z:/picture/008/save_picture_867167.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NVIDIA GeForce/ION driver release 267.24 Beta (Драйвер для видео�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_867145.jpg" />
+  <img src="Z:/picture/009/save_picture_867145.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867128.jpg" />
+  <img src="Z:/picture/008/save_picture_867128.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867124.jpg" />
+  <img src="Z:/picture/008/save_picture_867124.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MassTube Plus 12.9.8.364 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867118.jpg" />
+  <img src="Z:/picture/008/save_picture_867118.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Glary Utilities Pro 5.140.0.166 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867115.jpg" />
+  <img src="Z:/picture/008/save_picture_867115.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The KMPlayer 4.2.2.38 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867107.jpg" />
+  <img src="Z:/picture/008/save_picture_867107.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867098.jpg" />
+  <img src="Z:/picture/008/save_picture_867098.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867093.jpg" />
+  <img src="Z:/picture/008/save_picture_867093.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867088.jpg" />
+  <img src="Z:/picture/008/save_picture_867088.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Bat! Voyager 9.1.14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867040.jpg" />
+  <img src="Z:/picture/008/save_picture_867040.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Soft4Boost Easy Disc Burner 6.6.3.389 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867036.jpg" />
+  <img src="Z:/picture/008/save_picture_867036.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Easy Data Transform 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867035.jpg" />
+  <img src="Z:/picture/008/save_picture_867035.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PDF-XChange PRO 8.0.336.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867026.jpg" />
+  <img src="Z:/picture/008/save_picture_867026.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NirLauncher Package 1.23.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867024.jpg" />
+  <img src="Z:/picture/008/save_picture_867024.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ant Download Manager Pro 1.17.4 Build 68694 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867023.jpg" />
+  <img src="Z:/picture/008/save_picture_867023.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Isoo Backup 4.4.1.771 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866950.jpg" />
+  <img src="Z:/picture/008/save_picture_866950.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Tamayomi / Тамаёми [2020, TV, 2 из 12] WEBRip 720p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866949.jpg" />
+  <img src="Z:/picture/008/save_picture_866949.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BELOFF [dp] 2020.04.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866941.jpg" />
+  <img src="Z:/picture/008/save_picture_866941.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ W10Privacy 3.4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866862.jpg" />
+  <img src="Z:/picture/008/save_picture_866862.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ TreeSize Professional 7.1.5.1471 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866856.jpg" />
+  <img src="Z:/picture/008/save_picture_866856.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ R-Studio Network Edition 8.13 Build 176095 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866785.jpg" />
+  <img src="Z:/picture/008/save_picture_866785.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866778.jpg" />
+  <img src="Z:/picture/008/save_picture_866778.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866767.jpg" />
+  <img src="Z:/picture/008/save_picture_866767.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866744.jpg" />
+  <img src="Z:/picture/008/save_picture_866744.jpg" />
 </div>
 
 

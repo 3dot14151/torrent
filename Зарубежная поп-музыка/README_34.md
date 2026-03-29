@@ -1,3 +1,32 @@
+###  Публикация: 1228104   (639397) от 30.05.2018
+
+VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, Hands Up, Hard Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Bartasek - Pop Remixes Megamix (Continuous Mix)
+02. Toxic Outbreak - All Of Me (Sunny Dee And Dreaming Canon Remix Edit)
+03. Orangez - I Gotta Feeling (B-Tastic Remix Edit)
+04. Phat Bomb - Bad (Sunny Dee Remix Edit)(   Читать дальше...   )Жанр: Dancecore, Hands Up, Hard Dance, PopПродолжительность: 02:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7765ED87907BAC2DD6DC2682D362EDA4DE6BA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033406   (638232) от 11.07.2016
 
 Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
@@ -6,7 +35,7 @@ Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638232.jpg" />
+  <img src="Z:/picture/008/save_picture_638232.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Susan Wong - Woman In Love (2014) [MP3|320 Kbps] <Pop, Easy Listening, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638231.jpg" />
+  <img src="Z:/picture/008/save_picture_638231.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sally Dige - Hard To Please (2015) [MP3|320 кб/с]<Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638193.jpg" />
+  <img src="Z:/picture/008/save_picture_638193.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
+  <img src="Z:/picture/008/save_picture_638191.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638138.jpg" />
+  <img src="Z:/picture/008/save_picture_638138.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Hilary Duff - Breathe In. Breathe Out. (2015) Deluxe Edition [MP3|320 кб/с]<P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637987.jpg" />
+  <img src="Z:/picture/008/save_picture_637987.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Adam Lambert - The Original High (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637819.jpg" />
+  <img src="Z:/picture/008/save_picture_637819.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Lenka - The Bright Side (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637805.jpg" />
+  <img src="Z:/picture/008/save_picture_637805.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Giorgio Moroder - Deja Vu (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637756.jpg" />
+  <img src="Z:/picture/008/save_picture_637756.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ostrich - The ostrich effect (2012) [MP3|320 kbps] <Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637589.jpg" />
+  <img src="Z:/picture/008/save_picture_637589.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ James Taylor - Before This World (2015) [MP3|320 кб/с]<Folk-Rock, Country, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636163.jpg" />
+  <img src="Z:/picture/008/save_picture_636163.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Jenni Vartiainen - 3 альбома (2007-2014) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636052.jpg" />
+  <img src="Z:/picture/008/save_picture_636052.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Dirty Vegas - Photograph (2015) [MP3|320 Kbps] <Dance, Synth Pop, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636041.jpg" />
+  <img src="Z:/picture/008/save_picture_636041.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Michael Jackson - The Best 39 (2015) [MP3|320 кб/с]<Pop, R&B, Rock, Funk, Pos
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635157.jpg" />
+  <img src="Z:/picture/008/save_picture_635157.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ VA - NOW That's What I Call Music 102 (2019) 2CD [MP3|320 Kbps] <Synthpop, Regga
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633737.jpg" />
+  <img src="Z:/picture/008/save_picture_633737.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Duran Duran - A Diamond in the Mind, Duran Duran – A Performance – 2011 (201
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633309.jpg" />
+  <img src="Z:/picture/008/save_picture_633309.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Giorgio Moroder & Joe Esposito - Solitary Men (1983) [MP3|320 кб/с]<Pop/Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633183.jpg" />
+  <img src="Z:/picture/008/save_picture_633183.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ Sarah Cracknell - Red Kite (2015) [MP3|320 кб/с]<Indie Pop, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632486.jpg" />
+  <img src="Z:/picture/008/save_picture_632486.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ Kacey Musgraves - Pageant Material (2015) [MP3|320 кб/с]<Country, Pop, Folk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632402.jpg" />
+  <img src="Z:/picture/008/save_picture_632402.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ Sydne Rome - Sydne Rome (1980) LP [MP3|320 Kbps] <Disco, Ballad, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632379.jpg" />
+  <img src="Z:/picture/008/save_picture_632379.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632244.jpg" />
+  <img src="Z:/picture/008/save_picture_632244.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ Philippe Renaux - Noels Cosmiques (1977) LP [MP3|320 Kbps] <Electronic, Synth-po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632203.jpg" />
+  <img src="Z:/picture/008/save_picture_632203.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electroni
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
+  <img src="Z:/picture/008/save_picture_631630.jpg" />
 </div>
 
 
@@ -692,7 +721,7 @@ Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631435.jpg" />
+  <img src="Z:/picture/008/save_picture_631435.jpg" />
 </div>
 
 
@@ -727,7 +756,7 @@ Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631134.jpg" />
+  <img src="Z:/picture/008/save_picture_631134.jpg" />
 </div>
 
 
@@ -747,35 +776,6 @@ Gusttavo Lima - E Voce (2011)(Live) [MP3|320 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D01583042BB518012D4A56E19381FD552052B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294366   (629993) от 07.04.2019
-
-Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Swing All Night Long With You
-02 - Stronger Than The Truth
-03 - Storm In A Shot Glass
-04 - Tammy Wynette Kind Of Pain(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
 ```
 
 https://mybot314.ru/tekegram_catalog/

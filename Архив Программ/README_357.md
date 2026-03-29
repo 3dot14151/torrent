@@ -6,7 +6,7 @@ PicturesToExe Deluxe 9.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868123.jpg" />
+  <img src="Z:/picture/008/save_picture_868123.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ xrecode II Build 1.0.0.230 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868083.jpg" />
+  <img src="Z:/picture/008/save_picture_868083.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rainmeter 3.3.1 Build 2602 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868072.jpg" />
+  <img src="Z:/picture/008/save_picture_868072.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sony Xperia Companion 2.14.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868031.jpg" />
+  <img src="Z:/picture/008/save_picture_868031.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GeoGebra 6.0.665.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868030.jpg" />
+  <img src="Z:/picture/008/save_picture_868030.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Telegram Desktop 3.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868029.jpg" />
+  <img src="Z:/picture/008/save_picture_868029.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FreeFileSync 11.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868025.jpg" />
+  <img src="Z:/picture/008/save_picture_868025.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rainlendar Lite 2.17 Build 169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868016.jpg" />
+  <img src="Z:/picture/008/save_picture_868016.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Freeplane 1.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868015.jpg" />
+  <img src="Z:/picture/008/save_picture_868015.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BurnAware Professional 10.1 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868001.jpg" />
+  <img src="Z:/picture/008/save_picture_868001.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Punto Switcher 4.3.5 Build 1815 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867993.jpg" />
+  <img src="Z:/picture/008/save_picture_867993.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Prelude CC 2015.3 4.3.0 (19) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867958.jpg" />
+  <img src="Z:/picture/008/save_picture_867958.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Far Manager  3.0.5888 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867873.jpg" />
+  <img src="Z:/picture/008/save_picture_867873.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Shockwave Player 12.2.7.197 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867852.jpg" />
+  <img src="Z:/picture/008/save_picture_867852.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Advanced SystemCare Pro 14.6.0.307 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867728.jpg" />
+  <img src="Z:/picture/008/save_picture_867728.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Auslogics File Recovery 7.1.2.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867690.jpg" />
+  <img src="Z:/picture/008/save_picture_867690.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 54 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867683.jpg" />
+  <img src="Z:/picture/008/save_picture_867683.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Acrobat Pro DC 2021.007.20091 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867586.jpg" />
+  <img src="Z:/picture/008/save_picture_867586.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Soft Organizer 6.06 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867544.jpg" />
+  <img src="Z:/picture/008/save_picture_867544.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Punto Switcher 4.3.5 Build 1815 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867537.jpg" />
+  <img src="Z:/picture/008/save_picture_867537.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wire 2.11.2712 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867427.jpg" />
+  <img src="Z:/picture/008/save_picture_867427.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ FastStone Photo Resizer 3.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867425.jpg" />
+  <img src="Z:/picture/008/save_picture_867425.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cowboy MInstALL StartSoft Spring 11-2016 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867400.jpg" />
+  <img src="Z:/picture/008/save_picture_867400.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ K-Lite Codec Pack 12.9.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867345.jpg" />
+  <img src="Z:/picture/008/save_picture_867345.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VueScan Pro 9.5.70 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867342.jpg" />
+  <img src="Z:/picture/008/save_picture_867342.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Windows 10 Manager 2.0.6 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867340.jpg" />
+  <img src="Z:/picture/008/save_picture_867340.jpg" />
 </div>
 
 

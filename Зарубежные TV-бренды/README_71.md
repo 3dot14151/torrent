@@ -1,3 +1,108 @@
+###  Публикация: 1261226   (550907) от 19.06.2019
+
+Шон Бин при Ватерлоо / Sean Bean on Waterloo (2015) HDTVRip [H.264/720p-LQ] (2 серии из 2)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливудский актер Шон Бин рассказывает историю сражения при Ватерлоо, одной из самых значимых битв истории. Рассказ Шона вдохновлен его собственным опытом игры наполеоновского солдата Ричарда Шарпа в телевизионных фильмах на основе бестселлеров Бернарда Корнуэлла. В фильме он опирается на свидетельские показания солдат, которые сражались при Ватерлоо, чтобы рассказать (   Читать дальше...   )Производство: Великобритания, History ChannelЖанр: Документальный, война, история, исследованиеРежиссер: Патрик МакГрэйдиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 2 x ~ 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A38A74F63312C5320BE09959449F9D3DF6DC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916215   (550288) от 25.07.2018
+
+BBC: Зараженный. Жизнь с паразитами / Unfested! Living With Parasites (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Майкл Мосли исследует странный и удивительный мир паразитов. Он едет в Кению, чтобы поселить в себе солитера - паразита, который может вырасти до нескольких метров в кишечнике человека. Он также изучает вшей, пиявок и смертельных паразитов, вызывающих малярию, после чего глотает таблетку-камеру, чтобы мы могли увидеть, что в нем растет.Телекомпания: British Broadcasting Corporation (BBC), Science ProductionЖанр: Документальный. научно-популярный, паразитологияРежиссер: Натан УильямсПеревод: Русский VO профессиональный (Видеофильм ТВ); Украинский DVO профессиональныйПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93ECFE6C5BAF77EC45C666D53143C4EB96128EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905399   (550285) от 25.07.2018
+
+Animal Planet: Голубые Багамы / Bahama Blue (2014) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Багамы. Острова, знаменитые своей красотой. За многие тысячи лет выросшие на основании древнего кораллового рифа. На 3000 багамских островах идёт постоянная борьба между жизнью и смертью, которые ведут самые устрашающие и самые чудесные создания на планете.
+Этот документальный фильм из шести серий перенесет вас в сердце глубокого синего моря. Погрузитесь в удивительные (   Читать дальше...   )Телекомпания: Parallax Film ProductionsЖанр: ДокументальныйРежиссер: Ian HerringПеревод: Одноголосый закадровый, профессиональный, озвучено на студии АРК ТВ, текст читают Антон Савенков, Денис Некрасов, Александр ГаврилинПродолжительность: 6x~00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8D1AEDFBCEA66222B3CF4601CD4B14838729A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047161   (549890) от 29.08.2016
+
+BBC. Большой Барьерный риф с Дэвидом Аттенборо  / Great Barrier Reef with David Attenborough (2016) BDRip [H.264/720p] (серия 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гости рифа / VisitorsВ этом фильме Дэвид Аттенборо с помощью научно-исследовательского судна Алюсия расскрывает историю и тайны богатого биоразнообразием самого волшебного места на Земле - Большого Барьерного рифа.Жанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Одноголосый закадровый, любительский (Ю. Онищенко)Язык субтитров: Русский, английскийПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD338D810BADC4C29D38D0DCA1A13000FAB938E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047162   (549882) от 29.08.2016
 
 BBC. Большой Барьерный риф с Дэвидом Аттенборо  / Great Barrier Reef with David Attenborough (2016) BDRip [H.264/720p] (серия 3)
@@ -6,7 +111,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549882.jpg" />
+  <img src="Z:/picture/008/save_picture_549882.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549828.jpg" />
+  <img src="Z:/picture/008/save_picture_549828.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Discovery. Короли столярного дела  / Redwood KINGS (2013) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549345.jpg" />
+  <img src="Z:/picture/008/save_picture_549345.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548362.jpg" />
+  <img src="Z:/picture/008/save_picture_548362.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548025.jpg" />
+  <img src="Z:/picture/008/save_picture_548025.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NG: Последние тайны Третьего рейха  / Nazi Underworld
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548024.jpg" />
+  <img src="Z:/picture/008/save_picture_548024.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547631.jpg" />
+  <img src="Z:/picture/008/save_picture_547631.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547628.jpg" />
+  <img src="Z:/picture/008/save_picture_547628.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547624.jpg" />
+  <img src="Z:/picture/008/save_picture_547624.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Animal Planet: В дикие края с Эваном. Поездка в Пер�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547623.jpg" />
+  <img src="Z:/picture/008/save_picture_547623.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ NGW: Секретное королевство Борнео: странные и
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546984.jpg" />
+  <img src="Z:/picture/008/save_picture_546984.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ Discovery. Титаник. Ответы из Бездны / Titanic. Answers fro
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546464.jpg" />
+  <img src="Z:/picture/008/save_picture_546464.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ BBC. Большое австралийское приключение / Coast Au
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546138.jpg" />
+  <img src="Z:/picture/008/save_picture_546138.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545982.jpg" />
+  <img src="Z:/picture/008/save_picture_545982.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545750.jpg" />
+  <img src="Z:/picture/008/save_picture_545750.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544866.jpg" />
+  <img src="Z:/picture/008/save_picture_544866.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544619.jpg" />
+  <img src="Z:/picture/008/save_picture_544619.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544509.jpg" />
+  <img src="Z:/picture/008/save_picture_544509.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTV [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544501.jpg" />
+  <img src="Z:/picture/008/save_picture_544501.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543707.jpg" />
+  <img src="Z:/picture/008/save_picture_543707.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543637.jpg" />
+  <img src="Z:/picture/008/save_picture_543637.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543388.jpg" />
+  <img src="Z:/picture/008/save_picture_543388.jpg" />
 </div>
 
 
@@ -565,111 +670,6 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10ADEEF934FAC86DBDC55A5634754B515DB79AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276939   (543267) от 28.06.2019
-
-NG. Настольная книга диктатора / Dictators Rulebook (2018) HDTVRip [H.264/720p-LQ] (2-6 серии из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543267.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Муссолини до Саддама Хусейна, диктаторы участвовали в формировании мира в том виде, в котором мы сейчас его знаем. Но как они это делали? Документальный сериал расскажет о методах, используемых тиранами для управления нациями.Телекомпания: США, National GeographicЖанр: Документальный, биография, история, политикаПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 5 х ~ 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5F464D1E769B6848917F4D25B0E02E837D9612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276936   (543261) от 28.06.2019
-
-NG. Настольная книга диктатора / Dictators Rulebook (2018) HDTVRip (2-6 серии из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543261.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Муссолини до Саддама Хусейна, диктаторы участвовали в формировании мира в том виде, в котором мы сейчас его знаем. Но как они это делали? Документальный сериал расскажет о методах, используемых тиранами для управления нациями.Телекомпания: США, National GeographicЖанр: Документальный, биография, история, политикаПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 5 х ~ 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC31741E58EE841F3C1DC3BC03E4B9E8AE3ECA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154209   (542658) от 29.07.2017
-
-BBC. Город под водой. Павлопетри / City Beneath the Waves: Pavlopetri (2011) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Павлопетри — самый древний из затонувших городов. Он процветал, когда западные цивилизации только зарождались. Международная группа учёных пытается раскрыть тайны, которым более 5 тысяч лет. Это уникальный шанс заглянуть в жизнь древнего города.Производство: Великобритания, British Broadcasting Corporation (BBC) TelevisionЖанр: Документальный, история, исследованияРежиссер: Пол ОлдингПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272B0C54F2D113B015E10142121E605160734AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239070   (542270) от 03.08.2018
-
-NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264/1080i-LQ] (фильмы 9 из 9)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл фильмов о природе и её обитателях.
-Меркантур, Новая Каледония, Французская Гвиана, вот лишь небольшой список уголков дикой природы, где мы побываем с командой National Geographic Channel.Производство: Великобритания, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Сандра Руде, Джулиано Рибейро Сальгадо, Надин Кун и др.Перевод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 9 x ~ 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D819CDD1F33DCE922E9413CFE06A95083F59FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1073224   (347662) от 15.11.2016
+
+Freedom to Glide - 3 альбома (2012-2016) [MP3|320 Kbps] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_347662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind And Gales - Rain (Part 3) 04:43
+02. Starfall 04:14
+03. Zero 02:05
+04. Repose 02:43(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F11EE60DA1B14508958E17820D5E44D50FF6E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418682   (346932) от 25.10.2020
 
 Zeus - Attack Time (1981) LP [MP3|320 Kbps] <Electronic, Krautrock>
@@ -6,7 +35,7 @@ Zeus - Attack Time (1981) LP [MP3|320 Kbps] <Electronic, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346932.jpg" />
+  <img src="Z:/picture/008/save_picture_346932.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pink Floyd - The Endless River (2014) [MP3|320 кб/с]<Progressive Rock , Ambie
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346521.jpg" />
+  <img src="Z:/picture/008/save_picture_346521.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345939.jpg" />
+  <img src="Z:/picture/008/save_picture_345939.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345938.jpg" />
+  <img src="Z:/picture/008/save_picture_345938.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343677.jpg" />
+  <img src="Z:/picture/008/save_picture_343677.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Stratovarius - Stratovarius (2005) Reissue, 2012, Victor [OGG Vorbis|484 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343656.jpg" />
+  <img src="Z:/picture/008/save_picture_343656.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Stratovarius - Polaris (2009) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343654.jpg" />
+  <img src="Z:/picture/008/save_picture_343654.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Stratovarius - Elysium (2011) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343653.jpg" />
+  <img src="Z:/picture/008/save_picture_343653.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Stratovarius - Elements Pt.2 (2003) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Sy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343550.jpg" />
+  <img src="Z:/picture/008/save_picture_343550.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Russell Means - The Radical (1996) [MP3|192 Kbps] <Rockin' Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342837.jpg" />
+  <img src="Z:/picture/008/save_picture_342837.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Green Grey - WTF?! (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342661.jpg" />
+  <img src="Z:/picture/008/save_picture_342661.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Anathema - 11 Studio Albums, 3 Live Albums, 6 Compilations (1993-2018) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342600.jpg" />
+  <img src="Z:/picture/008/save_picture_342600.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Ose - Adonia (1978) Reissue CD, 2017, Amphonotones [MP3|320 Kbps] <Electronic, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342199.jpg" />
+  <img src="Z:/picture/008/save_picture_342199.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Bryan Adams - Ultimate (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342082.jpg" />
+  <img src="Z:/picture/008/save_picture_342082.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Looking-Glass Lantern - A World of Great Invention (2020) [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342057.jpg" />
+  <img src="Z:/picture/008/save_picture_342057.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ The Flower Kings - Islands (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342055.jpg" />
+  <img src="Z:/picture/008/save_picture_342055.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Stratovarius - Fourth Dimension (1995) Remastered, 1995, T&T [OGG Vorbis|484 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341225.jpg" />
+  <img src="Z:/picture/008/save_picture_341225.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Stratovarius - Intermission (2001) [OGG Vorbis|484 Kbps] <Rock, Prog Rock, Heavy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341223.jpg" />
+  <img src="Z:/picture/008/save_picture_341223.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Black Angel - 5 Albums (2019-2022) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341219.jpg" />
+  <img src="Z:/picture/008/save_picture_341219.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Freddie Mercury - Mr. Bad Guy (1985) Special Edition, Remastered, 2019 [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341009.jpg" />
+  <img src="Z:/picture/008/save_picture_341009.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Chris Rea - The Best Of Chris Rea (1994) [OGG Vorbis|484 Kbps] <Rock, Soft Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340959.jpg" />
+  <img src="Z:/picture/008/save_picture_340959.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ AC/DC - Fort Lauderdale 6th September 1977 (2018) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340888.jpg" />
+  <img src="Z:/picture/008/save_picture_340888.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Krystal Jyl And The Jacks - Krystal Jyl And The Jacks (2017) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340275.jpg" />
+  <img src="Z:/picture/008/save_picture_340275.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Def Leppard - On Through The Night (1980) [OGG Vorbis|484 Kbps] <Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339001.jpg" />
+  <img src="Z:/picture/008/save_picture_339001.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Def Leppard - Pyromania (1983) Reissue, Remastered, 1989, Mobile Fidelity Sound 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338995.jpg" />
+  <img src="Z:/picture/008/save_picture_338995.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Def Leppard - Pyromania (1983) Reissue, Remastered, 1989, Mobile Fidelity Sound 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACF7C5EBF9D586C955240CDF13A0AFDEB81A21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330593   (338685) от 11.10.2019
-
-Freddie Mercury - Never Boring (2019) (Special Edition) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Pretender (Special Edition)
-02. I Was Born To Love You (Special Edition)
-03. Barcelona (2012 Orchestrated Version)
-04. In My Defence (2000 Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 02:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F979F626FE0FF010C5C9DD20F811804B82E4B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

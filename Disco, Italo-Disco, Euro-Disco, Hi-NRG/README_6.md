@@ -6,7 +6,7 @@ VA - ZYX Italo Disco New Generation. Vol. 1-10 (2012-2017) [MP3|320 Kbps]<Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834521.jpg" />
+  <img src="Z:/picture/008/save_picture_834521.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blush - Out Of This World (1978) Reissue, Private Records, 2013 [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833602.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Goombay Dance Band - 30th Anniversary Collection (2009) [MP3|320 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830207.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Candido - Candi's Funk (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827814.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Nu Disco Vol. 1 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826443.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dream Express - A Million In 1, 2, 3 (1977) LP [MP3|320 Kbps] <Electronic, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826251.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Black Soul - Black Soul (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826250.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Amii Stewart - Knock On Wood & Paradise Bird (1979) Reissue, 1999, Limited Editi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824660.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Unyque - Makes Me Higher (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822772.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Zoom - Zoom (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822408.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Miami Disco 2017  [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821062.jpg" />
+  <img src="Z:/picture/008/save_picture_821062.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Secret Star - I Need A Man | Jump In My Car (2 Singles) (1986) [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820803.jpg" />
+  <img src="Z:/picture/008/save_picture_820803.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Judy Cheeks - Mellow Lovin’ (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820741.jpg" />
+  <img src="Z:/picture/008/save_picture_820741.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Dance Hits Explode (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820740.jpg" />
+  <img src="Z:/picture/008/save_picture_820740.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Saturday Night Band - Come On Dance, Dance (1994) 2 Albums (1978;1979), Remaster
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819247.jpg" />
+  <img src="Z:/picture/008/save_picture_819247.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Dance On Fire (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819068.jpg" />
+  <img src="Z:/picture/008/save_picture_819068.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ El Coco - Revolucion (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819061.jpg" />
+  <img src="Z:/picture/008/save_picture_819061.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Arabesque - The HQ Vinil Collection (1978-1984) All Studio Albums [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818558.jpg" />
+  <img src="Z:/picture/008/save_picture_818558.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - ZYX Italo Disco Instrumental Hits (2017) 2CD, Compilation [MP3|~245 Kbps (V
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815669.jpg" />
+  <img src="Z:/picture/008/save_picture_815669.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Camp Galore - Deco Disco (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815586.jpg" />
+  <img src="Z:/picture/008/save_picture_815586.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Venti Compilation 1-4 (2009-2016) 4х2CD, Compilation [MP3|320 Kbps] <Italo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813655.jpg" />
+  <img src="Z:/picture/008/save_picture_813655.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - New Italo Disco Top 25 (Compilation Vol.6) (2017) [MP3|320 Kbps] <Disco, It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813322.jpg" />
+  <img src="Z:/picture/008/save_picture_813322.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - New Italo Disco Top 25 (Compilation Vol.5) (2016) [MP3|320 Kbps] <Disco, It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813312.jpg" />
+  <img src="Z:/picture/008/save_picture_813312.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Geraldine Cordeau - Space And Time (1984) [MP3|320 кб/с] <Electronic, Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811803.jpg" />
+  <img src="Z:/picture/008/save_picture_811803.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Patty Ryan - Golden Disco Hits (2001) [MP3|320 кб/с] <Eurodisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811789.jpg" />
+  <img src="Z:/picture/008/save_picture_811789.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Baby's Gang - Challenger (2016) Deluxe Edition [MP3|320 Kbps] <Italo-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811376.jpg" />
+  <img src="Z:/picture/008/save_picture_811376.jpg" />
 </div>
 
 

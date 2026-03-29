@@ -1,3 +1,57 @@
+###  Публикация: 1250269   (426281) от 27.09.2018
+
+Роман Злотников | Швейцарец (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Швейцарец».
+
+Первый роман нового цикла Романа Злотникова! Новый подход к жанру альтернативной истории. …Алекс не горевал о развале СССР и никогда не мечтал помочь Сталину разбить Гитлера малой кровью. У него были простые желания: жить в Европе и стать действительным членом международного байкерского клуба «Ангелы Ада». Казалось бы, мечты начали (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9646F738C2CBCFE276636B52409CC81FE0C5BD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166309   (426279) от 16.09.2017
+
+Александр Жикаренцев (сост.) | Под одним солнцем. Наша старая добрая фантастика [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расцвет русской фантастической прозы совпал с годами хрущевской «оттепели» и ею же был без сомнения вызван. Владимир Савченко, Анатолий Днепров, Ариадна Громова, Евгений Войскунский и Исай Лукодьянов с их знаменитым «Экипажем „Меконга“», Илья Варшавский, Дмитрий Биленкин… Список можно множить и множить, отечественных писателей-фантастов будто прорвало, читательский (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастика, Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59060E9F11DB7C5D272E02300C4C4F4D75C6D81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166435   (426089) от 16.09.2017
 
 Виктор Сиголаев | Дважды в одну реку (2017) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426089.jpg" />
+  <img src="Z:/picture/008/save_picture_426089.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425968.jpg" />
+  <img src="Z:/picture/008/save_picture_425968.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425797.jpg" />
+  <img src="Z:/picture/008/save_picture_425797.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425787.jpg" />
+  <img src="Z:/picture/008/save_picture_425787.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425297.jpg" />
+  <img src="Z:/picture/008/save_picture_425297.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425194.jpg" />
+  <img src="Z:/picture/008/save_picture_425194.jpg" />
 </div>
 
 
@@ -174,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424802.jpg" />
+  <img src="Z:/picture/008/save_picture_424802.jpg" />
 </div>
 
 
@@ -203,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424799.jpg" />
+  <img src="Z:/picture/008/save_picture_424799.jpg" />
 </div>
 
 
@@ -232,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424249.jpg" />
+  <img src="Z:/picture/008/save_picture_424249.jpg" />
 </div>
 
 
@@ -259,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423478.jpg" />
+  <img src="Z:/picture/008/save_picture_423478.jpg" />
 </div>
 
 
@@ -287,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423474.jpg" />
+  <img src="Z:/picture/008/save_picture_423474.jpg" />
 </div>
 
 
@@ -313,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423370.jpg" />
+  <img src="Z:/picture/008/save_picture_423370.jpg" />
 </div>
 
 
@@ -339,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423352.jpg" />
+  <img src="Z:/picture/008/save_picture_423352.jpg" />
 </div>
 
 
@@ -365,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423188.jpg" />
+  <img src="Z:/picture/008/save_picture_423188.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423174.jpg" />
+  <img src="Z:/picture/008/save_picture_423174.jpg" />
 </div>
 
 
@@ -419,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423065.jpg" />
+  <img src="Z:/picture/008/save_picture_423065.jpg" />
 </div>
 
 
@@ -445,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422699.jpg" />
+  <img src="Z:/picture/008/save_picture_422699.jpg" />
 </div>
 
 
@@ -471,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422512.jpg" />
+  <img src="Z:/picture/008/save_picture_422512.jpg" />
 </div>
 
 
@@ -499,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422366.jpg" />
+  <img src="Z:/picture/008/save_picture_422366.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422238.jpg" />
+  <img src="Z:/picture/008/save_picture_422238.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422140.jpg" />
+  <img src="Z:/picture/008/save_picture_422140.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421855.jpg" />
+  <img src="Z:/picture/008/save_picture_421855.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421681.jpg" />
+  <img src="Z:/picture/008/save_picture_421681.jpg" />
 </div>
 
 
@@ -639,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421429.jpg" />
+  <img src="Z:/picture/008/save_picture_421429.jpg" />
 </div>
 
 
@@ -652,61 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00907C83962CE2C730AC60CAAD310D7B30663E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831257   (421346) от 14.10.2014
-
-Дмитрий Силлов | Пикник на обочине. Никто не уйдёт (2014) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из межавторского цикла «Пикник на обочине».
-Рэдрик Шухарт пожелал «счастья для всех, даром, и пусть никто не уйдет обиженным». Но его желание обернулось большим горем для жителей Хармонта. Город оцеплен воинскими подразделениями, отгорожен от остального мира колючей проволокой. Люди с признаками мутаций отправлены в лаборатории для научных исследований. И вдобавок (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D27B0A287BA38A92B280093FA57897E0F186C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831319   (421341) от 14.10.2014
-
-Анна Гаврилова, Наталья Жильцова | Танец Огня (2014) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Академия Стихий».
-
-Я никогда не мечтала о других мирах и магии. Да и не верила во все это. Моей главной целью было закончить универ и стать хорошим экономистом. Но судьба распорядилась иначе. Кто-то из жителей Полара решил, что у меня есть магический дар, и вот я здесь, на факультете Огня в Академии Стихий. Против воли. Без вещей, денег и документов. (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88109CCE021E5C0AFCC1C5537C307DC596324A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

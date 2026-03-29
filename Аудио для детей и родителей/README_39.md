@@ -1,3 +1,82 @@
+###  Публикация: 340300   (664829) от 22.05.2011
+
+Олег Анофриев  |  Старинные русские сказки (1998) [MP3|192 Kbps]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664829.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске представлены памятники русского устного творчества времен Древнекиевской Руси, что само по себе интересно и познавательно. Но особый интерес вызывает исполнитель, он же автор инсценировки и музыки  -  великий артист и великолепный чтец - Олег Анофриев, представлять которого излишне. Старинные тексты в сочетании с музыкальными фрагментами погружают нас (   Читать дальше...   )1. Былина о Дунае, Добрыне и Владимире Красно Солнышко (38:46)
+2. Волшебное яблочко (24:56)Жанр: СказкиПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD07A754ECC5089741D8F270C750D4DC7EE7BD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340670   (663536) от 23.05.2011
+
+Владислав Крапивин | Дети синего фламинго (Радиоспектакль) (2008) [MP3, Михаил Ефремов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_663536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль для детей 6-12 лет по замечательной повести Владислава Крапивина «Дети синего фламинго».  Если ты смел и отважен, если готов прийти на помощь своим друзьям, что бы ни случилось – значит, ты Рыцарь! Да-да, именно Рыцарь. Неважно, сколько тебе лет, в какой стране и в какое время ты живешь: враги всегда коварны и подлы, но никакие козни им не помогут, (   Читать дальше...   )Жанр: Детская литература, повестьВ ролях: Михаил Ефремов, Татьяна Веселкина,  Ольга Кузнецова и др.Издательство: Эксмо-СидикомПродолжительность: 03:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1D74685811998A363A31CE52027F55E7AC6587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138630   (663093) от 30.05.2017
+
+Вильгельм Гауф | Карлик Нос (2008) [WavPack Lossless|image + .cue]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_663093.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мелодия" продолжает реставрировать знаменитые и любимые многими слушателями записи, выходившие на пластинках в 60-80-е годы XX века. Меняется время, меняется государство, его устройство. Но люди - не меняются. И как во все времена и при любых правителях есть честность, преданность, щедрость, доброта, так всегда, к сожалению, будут идти с ними рядом жадность, (   Читать дальше...   )Жанр: Аудиоспектакль, Детская литература, СказкаПродолжительность: 0:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92712CA9870907D19957ED36FC320CF56B33D48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513031   (662501) от 20.06.2012
 
 VA - Ultimate Disney [3 Альбома] (2004) [MP3|320 kbps]<Детская музыка>
@@ -6,7 +85,7 @@ VA - Ultimate Disney [3 Альбома] (2004) [MP3|320 kbps]<Детская м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662501.jpg" />
+  <img src="Z:/picture/008/save_picture_662501.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662307.jpg" />
+  <img src="Z:/picture/008/save_picture_662307.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ Raimond Lap - Muzyka bobasa 2 (2003) [MP3|320 кб/с]<Детская музык
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661558.jpg" />
+  <img src="Z:/picture/008/save_picture_661558.jpg" />
 </div>
 
 
@@ -91,7 +170,7 @@ Raimond Lap – Muzyka bobasa 1 (2002) [MP3|320 кб/с]<Детская музы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661552.jpg" />
+  <img src="Z:/picture/008/save_picture_661552.jpg" />
 </div>
 
 
@@ -120,7 +199,7 @@ Raimond Lap - Muzyka bobasa 3 (2003) [MP3|320 кб/с]<Детская музык
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661547.jpg" />
+  <img src="Z:/picture/008/save_picture_661547.jpg" />
 </div>
 
 
@@ -149,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661417.jpg" />
+  <img src="Z:/picture/008/save_picture_661417.jpg" />
 </div>
 
 
@@ -175,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661096.jpg" />
+  <img src="Z:/picture/008/save_picture_661096.jpg" />
 </div>
 
 
@@ -201,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659241.jpg" />
+  <img src="Z:/picture/008/save_picture_659241.jpg" />
 </div>
 
 
@@ -227,7 +306,7 @@ Raimond Lap - Usypianki bobasa (2005) [MP3|320 кб/с]<Детская музы�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658054.jpg" />
+  <img src="Z:/picture/008/save_picture_658054.jpg" />
 </div>
 
 
@@ -256,7 +335,7 @@ Raimond Lap - Madry bobas (2008) [MP3|320 kbps]<Детская музыка>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658048.jpg" />
+  <img src="Z:/picture/008/save_picture_658048.jpg" />
 </div>
 
 
@@ -285,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657919.jpg" />
+  <img src="Z:/picture/008/save_picture_657919.jpg" />
 </div>
 
 
@@ -312,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657907.jpg" />
+  <img src="Z:/picture/008/save_picture_657907.jpg" />
 </div>
 
 
@@ -338,7 +417,7 @@ Raimond Lap - Klasyka Bobasa (2005) [MP3|320 кб/с]<Классическая �
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657743.jpg" />
+  <img src="Z:/picture/008/save_picture_657743.jpg" />
 </div>
 
 
@@ -367,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657277.jpg" />
+  <img src="Z:/picture/008/save_picture_657277.jpg" />
 </div>
 
 
@@ -393,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656916.jpg" />
+  <img src="Z:/picture/008/save_picture_656916.jpg" />
 </div>
 
 
@@ -420,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656445.jpg" />
+  <img src="Z:/picture/008/save_picture_656445.jpg" />
 </div>
 
 
@@ -446,7 +525,7 @@ VA - Super Hit. Летняя дискотека. Часть 1 (2012) [MP3|224 к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656405.jpg" />
+  <img src="Z:/picture/005/save_picture_656405.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656199.jpg" />
+  <img src="Z:/picture/008/save_picture_656199.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656190.jpg" />
+  <img src="Z:/picture/005/save_picture_656190.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655581.jpg" />
+  <img src="Z:/picture/008/save_picture_655581.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ VA - Большая коллекция песен для детей (2011) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653406.jpg" />
+  <img src="Z:/picture/008/save_picture_653406.jpg" />
 </div>
 
 
@@ -586,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653376.jpg" />
+  <img src="Z:/picture/008/save_picture_653376.jpg" />
 </div>
 
 
@@ -614,7 +693,7 @@ VA - Sweet Dreams: Baby's First Mozart (2000) [MP3|320 kbps]<Классика  �
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653213.jpg" />
+  <img src="Z:/picture/008/save_picture_653213.jpg" />
 </div>
 
 
@@ -625,84 +704,6 @@ VA - Sweet Dreams: Baby's First Mozart (2000) [MP3|320 kbps]<Классика  �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D2CB07FC8DB8E96ED0F8CC0E3ADB6E69C7B545E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540544   (652723) от 30.03.2022
-
-Кэти Ист Дубовски | История игрушек (2021) [MP3, Андрей Лёвин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шериф Вуди – игрушка, и он всем сердцем предан своему маленькому хозяину – мальчику по имени Энди. Но наступает день рождения Энди, и в его комнате появляется потрясающий новичок – блистательный астронавт Базз Лайтер! Ковбою не нравится такая конкуренция, и он мечтает снова стать главным любимцем Энди. Вуди надеется избавиться от Базза, но в результате они оба попадают (   Читать дальше...   )Жанр: Детская литература, ПриключенияПродолжительность: 02:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B60962D12C7E5B9D67E91B638D4FD9E4D351BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540555   (652717) от 30.03.2022
-
-Элизабет Рудник | Мулан (2021) [MP3, Наталья Терешкова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обожающей свободу и приключения Мулан всю жизнь приходится сдерживать себя, чтобы не уронить честь своей семьи. Однако после катастрофы на встрече со свахой последний шанс не разочаровать родителей – достойно выйти замуж – развеивается как дым. Но судьба подготовила для Мулан ещё более серьёзное испытание. Её пожилого отца призывают на войну, и, желая спасти его (   Читать дальше...   )Жанр: Детская литература, Фантастика, СказкаПродолжительность: 05:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E45A71C10974AFF84CDE8C6124A80D6302EA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540548   (652710) от 30.03.2022
-
-Сьюзан Фрэнсис | Большое приключение Моаны (2021) [MP3, Марина Гладкая]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моана не может в это поверить – наконец-то начался долгожданный праздник Тиале! Впереди столько интересного, старые легенды предков и новые приключения! Празднование будет длиться несколько дней, но больше всего Моана ждёт соревнований в конце. Ей так хочется показать себя с лучшей стороны! Есть, правда, одна проблема – Моана не умеет нырять в море с высокой скалы, (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86D514A340A8A25282C1AF26673673BCE04CFC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

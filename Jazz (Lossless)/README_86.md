@@ -1,3 +1,119 @@
+###  Публикация: 1521216   (766087) от 01.01.2022
+
+Noah Haidu - Slowly: Song For Keith Jarrett (2021) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Dancing [10:38]
+02. Duchess [9:14]
+03. What a Difference a Day Makes [10:08]
+04. Rainbow/Keith Jarrett [12:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78926D39B7637D13122835EE0A58E377DF56DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279459   (766046) от 29.01.2019
+
+Michael Arthur Holloway (Michael A Holloway) - Guilt Noir (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Doom Jazz, Dark Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lift Your Curtain (7:48)
+02. Exposure (5:07)
+03. Dead Weight (6:06)
+04. Bottom Feeder Blues (4:51)(   Читать дальше...   )Жанр: Dark Ambient, Doom Jazz, Dark Jazz, Jazz Noir, CinematicПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A7B2005CB3169084C5EAF96D48EE04B25D7C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214247   (765811) от 20.03.2018
+
+Frank Minion - The Forward Sound (1958) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The “A” Train [03:09]
+02. But Not For Me [03:17]
+03. I've Done My Share [03:58]
+04. Watermelon [03:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEF83278D1D561D5289B27D7BE5333C3E5770D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214244   (765809) от 20.03.2018
+
+Frank Minion - The Soft Land Of Make Believe (1960) 2013, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soft Land Of Make Believe [01:35]
+02. Knowbody Knows [03:33]
+03. Autobiography Of A Musician [01:26]
+04. Bongo Blues [02:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB76AA27A3B5774EA3022EB8ED1B9BE28A0AA702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394039   (765474) от 03.07.2020
 
 Ben Webster - Ben Webster's First Concert In Denmark 1965 (2019) Storyville Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -6,7 +122,7 @@ Ben Webster - Ben Webster's First Concert In Denmark 1965 (2019) Storyville Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765474.jpg" />
+  <img src="Z:/picture/008/save_picture_765474.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dena DeRose - Another World (1999) Sharp Nine Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765469.jpg" />
+  <img src="Z:/picture/008/save_picture_765469.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Beegie Adair & Friends - Jazz For The Road (2012) Green Hill Productions [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765460.jpg" />
+  <img src="Z:/picture/008/save_picture_765460.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Beegie Adair - Love Letters: The Beegie Adair Romance Collection (2011) 2CD, Gre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765453.jpg" />
+  <img src="Z:/picture/008/save_picture_765453.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - The Art Of The Piano: Trio, Quartet, Quintet and Beyond (Milestones of Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765230.jpg" />
+  <img src="Z:/picture/008/save_picture_765230.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Harold Mabern Trio - Falling In Love With Love (2002) Venus Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765227.jpg" />
+  <img src="Z:/picture/008/save_picture_765227.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Harold Mabern Trio - Don't Know Why (2004) Venus Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765221.jpg" />
+  <img src="Z:/picture/008/save_picture_765221.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Bud Freeman - 1928 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Early J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764980.jpg" />
+  <img src="Z:/picture/008/save_picture_764980.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ferdinand Povel - Beboppin' (1983) 2016, Solid Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764978.jpg" />
+  <img src="Z:/picture/008/save_picture_764978.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Michael Musillami Trio + 4 - Mettle (2012) Playscape Recordings [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764977.jpg" />
+  <img src="Z:/picture/008/save_picture_764977.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Gerry Mulligan - Mainstream Of Jazz: Special Edition (1955, 1956) 1986, EmArcy [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764700.jpg" />
+  <img src="Z:/picture/008/save_picture_764700.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dave Douglas - A Thousand Evenings (2000) RCA [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764699.jpg" />
+  <img src="Z:/picture/008/save_picture_764699.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Milt Jackson - Vibrations (1960, 1961) Remaster, 2013, Warner [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764661.jpg" />
+  <img src="Z:/picture/008/save_picture_764661.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dizzy Gillespie, Sonny Stitt, Sonny Rollins - Sonny Side Up (1957) 1986, Verve [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764658.jpg" />
+  <img src="Z:/picture/008/save_picture_764658.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Marilyn - Romance Dance (2004) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764656.jpg" />
+  <img src="Z:/picture/008/save_picture_764656.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Duke Ellington - The Girls And Premieres 1958-1963 (2014) La Maison du Duke [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764650.jpg" />
+  <img src="Z:/picture/008/save_picture_764650.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Philippe Soirat Quartet - You Know I Care (2015) Paris Jazz Underground [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764603.jpg" />
+  <img src="Z:/picture/008/save_picture_764603.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Richard Cole - The Forgotten (2001) Origin Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764602.jpg" />
+  <img src="Z:/picture/008/save_picture_764602.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Mel Torme & Rob McConnell - And The Boss Brass (1986) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764601.jpg" />
+  <img src="Z:/picture/008/save_picture_764601.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Harry Connick, Jr. - What a Night! A Christmas Album (2008) Columbia Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764600.jpg" />
+  <img src="Z:/picture/008/save_picture_764600.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Domagoy Ralasic With Benny Bailey - The Bag Is Packed (1997) Timeless [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764599.jpg" />
+  <img src="Z:/picture/008/save_picture_764599.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764598.jpg" />
+  <img src="Z:/picture/008/save_picture_764598.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B738DCA97E7335BAC7F862D84EE42DE470260967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521615   (764500) от 03.01.2022
-
-Lee Konitz & The Brazilian Band - Brazilian Rhapsody (1995) Venus Records [FLAC|Lossless|image + .cue] <Cool, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Triste [7:30]
-02. Berimbau [7:31]
-03. Menina Moca [6:09]
-04. Triste [6:46](   Читать дальше...   )Жанр: Cool, Bossa NovaПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDE8BB5988984B0DA34C0EFF1C21DFF47A2D1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214636   (764147) от 22.03.2018
-
-Michael Musillami Trio - Zephyr (2015) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loops [09:40]
-02. Pacific School [09:48]
-03. Francesca's Flowers [04:30]
-04. Zephyr Cove (Bass Entrance) [02:35](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C1A550A75249C00AC3A54BC0E85996BE60DE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214640   (764144) от 22.03.2018
-
-Janice Lakers - The Rainbow Lady (1985) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rainbow Lady [03:58]
-02. So Sorry, S'il Vous Plait [02:43]
-03. Body And Soul [06:26]
-04. In Your Own Sweet Way [03:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6C9A7D7A2D5715261967EDB42BD87568AE5292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214642   (764073) от 22.03.2018
-
-Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristeza [02:52]
-02. Amelia Emilia [06:37]
-03. Chick De Ipanema [03:16]
-04. O Pato [02:53](   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
 ```
 
 https://mybot314.ru/tekegram_catalog/

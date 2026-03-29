@@ -1,3 +1,29 @@
+###  Публикация: 1074403   (337958) от 19.11.2016
+
+Шаблоны - GraphicRiver - Nail Salon/ A5 Brochure Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nail Salon - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3579x2551 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55582A9557F4DAF5C5DB6B15A6AF0DC49AE8A997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074388   (337957) от 19.11.2016
 
 Шаблоны - GraphicRiver - Coffee Shop - Flyer Template [PSD]
@@ -6,7 +32,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337957.jpg" />
+  <img src="Z:/picture/008/save_picture_337957.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337860.jpg" />
+  <img src="Z:/picture/008/save_picture_337860.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337506.jpg" />
+  <img src="Z:/picture/008/save_picture_337506.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337306.jpg" />
+  <img src="Z:/picture/008/save_picture_337306.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337184.jpg" />
+  <img src="Z:/picture/008/save_picture_337184.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337002.jpg" />
+  <img src="Z:/picture/008/save_picture_337002.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336088.jpg" />
+  <img src="Z:/picture/008/save_picture_336088.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335758.jpg" />
+  <img src="Z:/picture/008/save_picture_335758.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335751.jpg" />
+  <img src="Z:/picture/008/save_picture_335751.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335681.jpg" />
+  <img src="Z:/picture/008/save_picture_335681.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335672.jpg" />
+  <img src="Z:/picture/008/save_picture_335672.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335668.jpg" />
+  <img src="Z:/picture/008/save_picture_335668.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335573.jpg" />
+  <img src="Z:/picture/008/save_picture_335573.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334911.jpg" />
+  <img src="Z:/picture/008/save_picture_334911.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327279.jpg" />
+  <img src="Z:/picture/008/save_picture_327279.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323614.jpg" />
+  <img src="Z:/picture/008/save_picture_323614.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323492.jpg" />
+  <img src="Z:/picture/008/save_picture_323492.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323369.jpg" />
+  <img src="Z:/picture/008/save_picture_323369.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322773.jpg" />
+  <img src="Z:/picture/008/save_picture_322773.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322609.jpg" />
+  <img src="Z:/picture/008/save_picture_322609.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322494.jpg" />
+  <img src="Z:/picture/008/save_picture_322494.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321303.jpg" />
+  <img src="Z:/picture/008/save_picture_321303.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320258.jpg" />
+  <img src="Z:/picture/008/save_picture_320258.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320108.jpg" />
+  <img src="Z:/picture/008/save_picture_320108.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319515.jpg" />
+  <img src="Z:/picture/008/save_picture_319515.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A97E7C1D8BC104652AA2A97F1E8A6340192FE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075658   (318226) от 23.11.2016
-
-Шаблоны - CreativeMarket - Watercolor unicorn magic collection [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor unicorn magic collection - Этот набор высокого качества из акварельных рисунков демонстрирует единорогов и другие красивые элементы. Я сделал прекрасную бесшовную модель с этими элементами. Идеально подходит для этикетки, фонов, листовок, обоев, блогов, плакатов, приглашений, открыток, тканей, подушек и других вариантов. Подробности: комплект из 25 красочных (   Читать дальше...   )Формат: PSDРазрешение файлов: 6000x5603 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59729450E07A8BCC760DBA7E29C917B659126EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,139 @@
+###  Публикация: 1392436   (769370) от 25.06.2020
+
+UninstallPKG 1.1.7 (build 1343) [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769370.jpg" />
+</div>
+
+
+###  Подробнее
+
+UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые «пакеты» (расширения файла *pkg) и все их установленное содержимое с Вашего Mac.
+
+UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. UninstallPKG (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26C8FF45FAE34C58233C4FEF75C5DE3D43537F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392532   (769263) от 26.06.2020
+
+Cisdem ContactsMate 5 v5.2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Cisdem ContactsMate — эффективное решение для управления контактными данными. Приложение позволяет осуществлять резервное копирование всей контактной информации, редактировать поля контактных данных, а также экспортировать адресную книгу в форматы CSV, vCard, TXT, DocX, HTML, Excel, обеспечивая удобное резервное копирование и синхронизацию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C419230BAF55C1723D61792EA87294DD0A8396E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392777   (769037) от 27.06.2020
+
+Exposure Software Plug-ins Bundle 2020 update 25.06.2020 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769037.jpg" />
+</div>
+
+
+###  Подробнее
+
+В комплекте продукты для ускорения профессионального рабочего процесса, Вы сэкономите время, улучшая качество изображения и предоставляя свободу творчества. В сочетании эти продукты еще более эффективны. Например, симуляция объектива Bokeh и симуляция пленки Exposure предоставляют традиционные фотографические инструменты, которые делают цифровые фотографии более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2020Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE665243F53D0EA4128AF8F927DD44344E3FA689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392923   (768991) от 28.06.2020
+
+Record Lectures 3.1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Record Lectures была разработана с целью помочь тем, кто ведет запись лекций, встреч и бесед, чтобы иметь возможность сохранять их в календаре, снабжать текстовыми комментариями и в дальнейшем использовать.
+
+Приложение Record Lectures может быть востребовано учениками и студентами, а так же людьми посещающими встречи и конференции. Простота эксплуатации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2020Разработчик: iLifeTouch.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C5ECA6E108CE089EA1D47816DAAD4ED8F894A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125281   (768681) от 14.04.2017
+
+Dr. Cleaner Pro 1.1.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr. Cleaner Pro — это профессиональная версия Dr. Cleaner. Dr. Cleaner Pro также включает в себя функции «Поиск повторяющихся файлов» и «Удаление приложений».
+
+Очищайте, оптимизируйте и поддерживайте Mac работоспособным с помощью одного профессионального инструмента!Тип издания: macOS SoftwareРелиз состоялся: 10.04.2017Разработчик: Trend Micro IncorporatedПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902E64227227693CE2C6A979AB1DBFDE432E7C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125324   (768635) от 14.04.2017
 
 Amarra 4.0.237 [En]
@@ -6,7 +142,7 @@ Amarra 4.0.237 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768635.jpg" />
+  <img src="Z:/picture/008/save_picture_768635.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ Apple iMovie 10.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768594.jpg" />
+  <img src="Z:/picture/008/save_picture_768594.jpg" />
 </div>
 
 
@@ -62,7 +198,7 @@ Calligraphic Fonts 2.00 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768365.jpg" />
+  <img src="Z:/picture/008/save_picture_768365.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ XMind Pro 8 (3.7.6) (Update 6) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768240.jpg" />
+  <img src="Z:/picture/008/save_picture_768240.jpg" />
 </div>
 
 
@@ -114,7 +250,7 @@ PixelStyle Photo 3.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768004.jpg" />
+  <img src="Z:/picture/008/save_picture_768004.jpg" />
 </div>
 
 
@@ -142,7 +278,7 @@ iCalamus 2.15 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768000.jpg" />
+  <img src="Z:/picture/008/save_picture_768000.jpg" />
 </div>
 
 
@@ -170,7 +306,7 @@ Trim Enabler Pro 3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767893.jpg" />
+  <img src="Z:/picture/008/save_picture_767893.jpg" />
 </div>
 
 
@@ -196,7 +332,7 @@ Postico 1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767856.jpg" />
+  <img src="Z:/picture/008/save_picture_767856.jpg" />
 </div>
 
 
@@ -225,7 +361,7 @@ WindowMizer 5 v5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767842.jpg" />
+  <img src="Z:/picture/008/save_picture_767842.jpg" />
 </div>
 
 
@@ -254,7 +390,7 @@ Adobe InDesign CC 2018.1 v13.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767153.jpg" />
+  <img src="Z:/picture/008/save_picture_767153.jpg" />
 </div>
 
 
@@ -280,7 +416,7 @@ Desk 3 v3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767129.jpg" />
+  <img src="Z:/picture/008/save_picture_767129.jpg" />
 </div>
 
 
@@ -308,7 +444,7 @@ Touch Forms Pro 7 v7.40.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766947.jpg" />
+  <img src="Z:/picture/008/save_picture_766947.jpg" />
 </div>
 
 
@@ -336,7 +472,7 @@ Symantec Endpoint Protection v14.0.2349.0100 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766881.jpg" />
+  <img src="Z:/picture/008/save_picture_766881.jpg" />
 </div>
 
 
@@ -362,7 +498,7 @@ Arturia SYNCLAVIER V v2.0.2 macOSX-DDP [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766867.jpg" />
+  <img src="Z:/picture/008/save_picture_766867.jpg" />
 </div>
 
 
@@ -388,7 +524,7 @@ uMark Photo Watermarker 6.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766866.jpg" />
+  <img src="Z:/picture/008/save_picture_766866.jpg" />
 </div>
 
 
@@ -414,7 +550,7 @@ Arturia MATRIX-12 V v2.3.2 macOS-DDP [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766800.jpg" />
+  <img src="Z:/picture/008/save_picture_766800.jpg" />
 </div>
 
 
@@ -441,7 +577,7 @@ Super PhotoCut Pro 2.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766280.jpg" />
+  <img src="Z:/picture/008/save_picture_766280.jpg" />
 </div>
 
 
@@ -467,7 +603,7 @@ MindNode 2.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766070.jpg" />
+  <img src="Z:/picture/008/save_picture_766070.jpg" />
 </div>
 
 
@@ -496,7 +632,7 @@ Yummy FTP Pro 2.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765714.jpg" />
+  <img src="Z:/picture/008/save_picture_765714.jpg" />
 </div>
 
 
@@ -522,7 +658,7 @@ Orion Label And Print Studio 2.60 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765443.jpg" />
+  <img src="Z:/picture/008/save_picture_765443.jpg" />
 </div>
 
 
@@ -548,7 +684,7 @@ Aeon Timeline 2 v2.3.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765399.jpg" />
+  <img src="Z:/picture/008/save_picture_765399.jpg" />
 </div>
 
 
@@ -560,139 +696,6 @@ Aeon Timeline: программный инструмент для создани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB245866D54E5B7A2EDC93F3190D4AC75AEE2A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279615   (765326) от 30.01.2019
-
-TunesKit iPhone Data Recovery 2.2.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление до 20 типов потерянных и удаленных данных на iPhone/iPad/iPod touch с высокой скоростью восстановления всего за несколько кликов - на 100% безопасно, легко и просто.
-
-Потерянны данные на iPhone, iPad или iPod? Не принимайте это близко к сердцу! TunesKit iPhone Data Recovery для Mac поможет вам, спасти от любые данных на iOS, полностью восстановив более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2898B4C52B91B7C76DB50A69500E3C7FB596C88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394061   (765185) от 03.07.2020
-
-DxO Photo Software Suite (02.07.2020) [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для редактирования фотографий, разработанное для фотографов с высокими стандартами и любовью к красивым изображениям. Ручная или автоматическая коррекция, технология локальной регулировки, технология Prime Denoising. Технологии призваны помочь вам в работе самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 02.07.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84D673CE73BF49B8A9E9757492F63B61564F948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126719   (764616) от 19.04.2017
-
-Lingon X 4.3.8 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Немецкий  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6BB1C154BC303740F7D11DE220FB7593A56B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279806   (764536) от 31.01.2019
-
-Smart Player 1.0.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкое воспроизведение видео и управление библиотекой на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2019Разработчик: ShedWorxПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFCA155FC52021DF1CC0803CBC7C5FD2A7F5947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279803   (764467) от 31.01.2019
-
-Joyoshare Screen Recorder 2.0.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joyoshare Screen Recorder for Mac - приложение для записи видео, а также аудио с экрана. Программа запишет любое видео: лекции, чаты, фильмы, звонки Skype и т.д. в полноэкранном режиме и сохранит видео и аудио файлы в форматах: HD, MP4, AVI, FLV, MOV, SWF, MP3, AAC, M4A, M4B, и т.д. Вы можете проигрывать полученную запись , а также передавать ее на любые устройства: (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2019Разработчик: JoyoshareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21EE093F2F1C8FEF61166DEA1CFCE1651E31FF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

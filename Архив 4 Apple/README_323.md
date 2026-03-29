@@ -1,3 +1,111 @@
+###  Публикация: 1040618   (586150) от 05.08.2016
+
+CleanMyMac 3.4.1 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586150.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - лучшее приложение для очистки Мака.
+CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
+
+CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 августа 2016Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74135B1509A1C9E53A321DBF5E5963A17B15D9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918651   (585685) от 16.07.2015
+
+MAMP & MAMP PRO 3.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2015Разработчик: Appsolute GmbH.Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8BD965527640F69EEFADC57E2BD95487770A9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889972   (585679) от 16.07.2015
+
+HandsFree 2.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте любой телефон Bluetooth для звонков, текстовых сообщений, записи ….
+HandsFree 2 позволяет использовать Mac, для совершения телефонных звонков, отправлять / получать текстовые сообщения *, записывать разговоры, см списки вызовов и многое другое. Hands Free 2 работает в фоновом режиме (с всегда доступным значком в меню состояния), вам не придется беспокоиться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2015Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE358F151217277BF0B96DD65E7D37BFF9C388F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918740   (585677) от 16.07.2015
+
+PhoneClean Pro 3.7.0 (20150710) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585677.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneClean Pro – персональный уборщик мусора для устройств на базе операционной системы iOS. Программа поможет избавиться от различного ненужного хлама владельцам iPhone, iPod Touch и iPad. Довольно часто, пользователи этих устройств сталкиваются с тем, что места во встроенной памяти становится недостаточно и приходится искать приложения, которые можно было бы удалить, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 июля 2015Разработчик: iMobie Inc.Поддерживаемая ОС: Mac OS 10.7 +Язык интерфейса: Русский, Английский, Японский, Китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF7E8DC39D9557A8F0347E760B7E87AD42B9B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875892   (585594) от 16.07.2015
 
 Balsamiq Mockups For Desktop 3.1.7 [En]
@@ -6,7 +114,7 @@ Balsamiq Mockups For Desktop 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585594.jpg" />
+  <img src="Z:/picture/008/save_picture_585594.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ HazeOver 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585530.jpg" />
+  <img src="Z:/picture/008/save_picture_585530.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ Tower 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585529.jpg" />
+  <img src="Z:/picture/008/save_picture_585529.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ Swinsian 1.12 (290) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585528.jpg" />
+  <img src="Z:/picture/008/save_picture_585528.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ MindNode 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585469.jpg" />
+  <img src="Z:/picture/008/save_picture_585469.jpg" />
 </div>
 
 
@@ -145,7 +253,7 @@ Ulysses 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585461.jpg" />
+  <img src="Z:/picture/008/save_picture_585461.jpg" />
 </div>
 
 
@@ -172,7 +280,7 @@ HoudahGeo 5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585439.jpg" />
+  <img src="Z:/picture/008/save_picture_585439.jpg" />
 </div>
 
 
@@ -199,7 +307,7 @@ MindNode 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584774.jpg" />
+  <img src="Z:/picture/008/save_picture_584774.jpg" />
 </div>
 
 
@@ -228,7 +336,7 @@ Downie 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584666.jpg" />
+  <img src="Z:/picture/008/save_picture_584666.jpg" />
 </div>
 
 
@@ -256,7 +364,7 @@ Nik Software Complete Collection by Google 1.2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584593.jpg" />
+  <img src="Z:/picture/008/save_picture_584593.jpg" />
 </div>
 
 
@@ -283,7 +391,7 @@ Synalyze It! Pro 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584466.jpg" />
+  <img src="Z:/picture/008/save_picture_584466.jpg" />
 </div>
 
 
@@ -312,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584382.jpg" />
+  <img src="Z:/picture/008/save_picture_584382.jpg" />
 </div>
 
 
@@ -339,7 +447,7 @@ SnippetsLab 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584028.jpg" />
+  <img src="Z:/picture/008/save_picture_584028.jpg" />
 </div>
 
 
@@ -366,7 +474,7 @@ ExpanDrive 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584019.jpg" />
+  <img src="Z:/picture/008/save_picture_584019.jpg" />
 </div>
 
 
@@ -395,7 +503,7 @@ This War of Mine [iOS 7.0+] [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583621.jpg" />
+  <img src="Z:/picture/008/save_picture_583621.jpg" />
 </div>
 
 
@@ -424,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583619.jpg" />
+  <img src="Z:/picture/008/save_picture_583619.jpg" />
 </div>
 
 
@@ -450,7 +558,7 @@ KeyFlow Pro 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583455.jpg" />
+  <img src="Z:/picture/008/save_picture_583455.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ Cardhop 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583383.jpg" />
+  <img src="Z:/picture/008/save_picture_583383.jpg" />
 </div>
 
 
@@ -507,7 +615,7 @@ FSNotes 3 v3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583340.jpg" />
+  <img src="Z:/picture/008/save_picture_583340.jpg" />
 </div>
 
 
@@ -533,7 +641,7 @@ HoudahSpot 4 v4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583336.jpg" />
+  <img src="Z:/picture/008/save_picture_583336.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ Quiver: The Programmer's Notebook 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583325.jpg" />
+  <img src="Z:/picture/008/save_picture_583325.jpg" />
 </div>
 
 
@@ -591,7 +699,7 @@ PaintCode 3 v3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583272.jpg" />
+  <img src="Z:/picture/008/save_picture_583272.jpg" />
 </div>
 
 
@@ -602,117 +710,6 @@ PaintCode 3 v3.4.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC765BCF3184518C95CD70BE016EFE0D2C8D7EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301719   (583133) от 13.05.2019
-
-Gemini 2: The Duplicate Finder 2.5.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, это Gemini 2: умная программа для поиска дубликатов на Mac. Она находит дубликаты и похожие файлы и удаляет их. Gemini 2 находит дубликаты с хирургической точностью.
-
-Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65604283E8080F90DD8883DADDCC5576CF5BD87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041691   (582529) от 09.08.2016
-
-Permute 2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 августа 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C4EF9B521F2862A89EA70757CE98329AF4D770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041537   (582466) от 09.08.2016
-
-iA Writer 3.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582466.jpg" />
-</div>
-
-
-###  Подробнее
-
-iA Writer — фон, шрифт и курсор
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 августа 2016Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97F741EEF2841EEF1E1664B674375AFD9235CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041540   (582462) от 09.08.2016
-
-Paws for Trello 1.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paws for Trello красивый Trello клиент для Mac.
-Trello уже полон полезных ярлыков и опций. В том числе сочетания клавиш, drag & drop и многое другое.
-
-- Красивый минимальный интерфейс, который позволяет Вам оставаться продуктивным.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Milosz FalinskiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60A3F5085E3F82229F1BE8E46C1EBF63E4E0AF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

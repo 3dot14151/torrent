@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802426.jpg" />
+  <img src="Z:/picture/008/save_picture_802426.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Google Chrome 83.0.4103.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802420.jpg" />
+  <img src="Z:/picture/008/save_picture_802420.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ SupRemo 4.1.0.2322 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802414.jpg" />
+  <img src="Z:/picture/008/save_picture_802414.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sonic Dash 4.10.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802407.jpg" />
+  <img src="Z:/picture/008/save_picture_802407.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802402.jpg" />
+  <img src="Z:/picture/008/save_picture_802402.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ iToolab UnlockGo 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802401.jpg" />
+  <img src="Z:/picture/008/save_picture_802401.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802398.jpg" />
+  <img src="Z:/picture/008/save_picture_802398.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Display Driver Uninstaller 18.0.4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802397.jpg" />
+  <img src="Z:/picture/008/save_picture_802397.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Reg Organizer 8.81 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802392.jpg" />
+  <img src="Z:/picture/008/save_picture_802392.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Internet Download Manager 6.30 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802380.jpg" />
+  <img src="Z:/picture/008/save_picture_802380.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WhatsApp 0.2.8000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802375.jpg" />
+  <img src="Z:/picture/008/save_picture_802375.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ummy Video Downloader 1.8.3.3 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802373.jpg" />
+  <img src="Z:/picture/008/save_picture_802373.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Anvir Task Manager 9.2.3 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802371.jpg" />
+  <img src="Z:/picture/008/save_picture_802371.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Reg Organizer 8.05 Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802369.jpg" />
+  <img src="Z:/picture/008/save_picture_802369.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802334.jpg" />
+  <img src="Z:/picture/008/save_picture_802334.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Steen Thottrup - Sunset People (2009) [FLAC|Lossless|image + .cue] <Downtempo, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802333.jpg" />
+  <img src="Z:/picture/008/save_picture_802333.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802330.jpg" />
+  <img src="Z:/picture/008/save_picture_802330.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Ciro Visone - Fantasia (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802328.jpg" />
+  <img src="Z:/picture/008/save_picture_802328.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Alternate File Shredder 1.860 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802327.jpg" />
+  <img src="Z:/picture/008/save_picture_802327.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ FIFA Mobile Anthology [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802317.jpg" />
+  <img src="Z:/picture/008/save_picture_802317.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Adobe Animate 2022 22.0.0.93 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802294.jpg" />
+  <img src="Z:/picture/008/save_picture_802294.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wireshark 3.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802289.jpg" />
+  <img src="Z:/picture/008/save_picture_802289.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Transmit 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802285.jpg" />
+  <img src="Z:/picture/008/save_picture_802285.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802273.jpg" />
+  <img src="Z:/picture/008/save_picture_802273.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ iSkysoft Video Converter for Mac 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802264.jpg" />
+  <img src="Z:/picture/008/save_picture_802264.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802261.jpg" />
+  <img src="Z:/picture/008/save_picture_802261.jpg" />
 </div>
 
 

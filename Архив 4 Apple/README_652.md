@@ -1,3 +1,111 @@
+###  Публикация: 1348446   (143547) от 28.12.2019
+
+AnyMP4 Mac Blu-ray Ripper 8.2.20 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143547.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Mac Blu-ray Ripper разработан с наиболее эффективными решениями для копирования дисков Blu-ray в любой популярный видеоформат, такой как MP4, TS, MKV, MOV, M4V, AVI, WMV, VOB, DivX, XviD, MPEG, F4V, WebM. и даже больше, и даже конвертировать Blu-ray в HD-видео 4K и 1080p с кодеком H.265, H.264, MPEG4, XviD, VP8, VP9 и другими. Он также извлекает фоновую музыку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BB229DF289AB9A29E7961A24620046FC7190D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348696   (143508) от 28.12.2019
+
+DxO ViewPoint 3.1.15 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143508.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO ViewPoint — окончательная победа над геометрическими искажениями
+DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский , Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C199CBED3EEE2A74CAB889634DD6A481FD66B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520353   (143434) от 27.12.2021
+
+Nik Complete 4 Collection by DxO v4.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © DxOПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA50B516C81C76B8A4C3A22EFB68C37DD3F8480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348451   (143405) от 28.12.2019
+
+MarginNote 3 Pro v3.5.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Делать аннотации и примечания к книгам, организовывать их в карты разума или быстро создавать карточки, чтобы быстрее запоминать их содержимое. MarginNote предлагает новый подход к чтению книг и созданию ярких, примечательных или аннотаций. Утилита отслеживает каждую запись и позволяет вам организовывать данные в карты разума или карточки.
+
+Независимо от вашей профессии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2019Разработчик: Sun MinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338E47A66CD6BE2BEB71F776F2447CB7850DB02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272168   (143398) от 27.12.2018
 
 Wondershare Recoverit 7.4.1.3 [En]
@@ -6,7 +114,7 @@ Wondershare Recoverit 7.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143398.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Dark Mode for Safari 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143385.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Boom 2 v1.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143367.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ CleanMyMac X 4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143352.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ Paragon NTFS v15.4.44 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143345.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Native Instruments Traktor Pro 3 v3.5.2.299 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143313.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ Capture One Pro 9.0.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143255.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Default Folder X 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143144.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Keep It 2.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143139.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ InstaBro | Browser for Instagram 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143068.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ MediaHuman Youtube Downloader 3.9.9.10 (2712) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143047.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ Instastack for Instagram 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142985.jpg" />
 </div>
 
 
@@ -333,7 +441,7 @@ Startupizer 2.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142927.jpg" />
 </div>
 
 
@@ -362,7 +470,7 @@ SkyLab Studio 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142861.jpg" />
 </div>
 
 
@@ -391,7 +499,7 @@ Reflect Studio 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142835.jpg" />
 </div>
 
 
@@ -419,7 +527,7 @@ Room Arranger 9 v9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142819.jpg" />
 </div>
 
 
@@ -445,7 +553,7 @@ BluePlum Home Inventory 4 v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142815.jpg" />
 </div>
 
 
@@ -471,7 +579,7 @@ Permute 3 v3.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142807.jpg" />
 </div>
 
 
@@ -497,7 +605,7 @@ Graphic Inspector 2 v2.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142795.jpg" />
 </div>
 
 
@@ -523,7 +631,7 @@ SteerMouse 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142794.jpg" />
 </div>
 
 
@@ -549,7 +657,7 @@ DirEqual 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142745.jpg" />
 </div>
 
 
@@ -576,7 +684,7 @@ Nevercenter CameraBag Photo 2020.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142735.jpg" />
 </div>
 
 
@@ -588,116 +696,6 @@ CameraBag позволяет мгновенно применить одну из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903384C3A41FC2818E5A8AB4E9F052EFE7448846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435715   (142714) от 29.12.2020
-
-Chaos Control Premium 1.11 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаос-контроль: органайзер целей и задач на базе GTD.
-Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
-Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435918   (142693) от 29.12.2020
-
-Dropshare 5.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142693.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435947   (142654) от 29.12.2020
-
-Downie 4 v4.1.13 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F0C49F68EEEB6CB029013887C5CCCA161C01E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435641   (142643) от 29.12.2020
-
-GrabIt 4.930 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всякий раз, когда вы хотите избавиться от чего-либо на экране, вы, вероятно, использовали Cmd + Shift + 4 или другие приложения. Но, как вы знаете, «Cmd + Shift + 4», приложение «снимок экрана», включенное в Mac OS X, просто сохраняет захваченное изображение на рабочем столе, а не показывает его вам мгновенно.
-Это приложение захватывает любую часть экрана в виде (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: MajimakHARUПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Упрощенный китайский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F924F3425BD2CFC7468DA9E16ADE3AA5EADDACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

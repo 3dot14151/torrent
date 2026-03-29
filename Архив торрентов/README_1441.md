@@ -6,7 +6,7 @@ Soft4Boost Easy Disc Burner 4.8.3.375 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726702.jpg" />
+  <img src="Z:/picture/008/save_picture_726702.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ColorWell 7.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726699.jpg" />
+  <img src="Z:/picture/008/save_picture_726699.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tidy Up 5 v5.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726697.jpg" />
+  <img src="Z:/picture/008/save_picture_726697.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mic Drop 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726696.jpg" />
+  <img src="Z:/picture/008/save_picture_726696.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Timecode Pro 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726694.jpg" />
+  <img src="Z:/picture/008/save_picture_726694.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Avec Sans - Heartbreak Hi (2016) [MP3|320 кб/с] <Synthpop, Electropop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726685.jpg" />
+  <img src="Z:/picture/008/save_picture_726685.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Free Studio 6.6.19.602 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726682.jpg" />
+  <img src="Z:/picture/008/save_picture_726682.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Cryptoforestry (2016) [MP3|320 кб/с] <Forest Psytrance, Night Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726680.jpg" />
+  <img src="Z:/picture/008/save_picture_726680.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726678.jpg" />
+  <img src="Z:/picture/008/save_picture_726678.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Audirvana Plus 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726677.jpg" />
+  <img src="Z:/picture/008/save_picture_726677.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Soft4Boost Dup File Finder 6.2.5.447 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726675.jpg" />
+  <img src="Z:/picture/008/save_picture_726675.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Soft4Boost Any Uninstaller 6.9.7.541 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726671.jpg" />
+  <img src="Z:/picture/008/save_picture_726671.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Translator App : Linguist 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726661.jpg" />
+  <img src="Z:/picture/008/save_picture_726661.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ SponsorBlock for YouTube 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726658.jpg" />
+  <img src="Z:/picture/008/save_picture_726658.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726649.jpg" />
+  <img src="Z:/picture/008/save_picture_726649.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726648.jpg" />
+  <img src="Z:/picture/008/save_picture_726648.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726646.jpg" />
+  <img src="Z:/picture/008/save_picture_726646.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ BookMacster 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726645.jpg" />
+  <img src="Z:/picture/008/save_picture_726645.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Posterino 3.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726643.jpg" />
+  <img src="Z:/picture/008/save_picture_726643.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726642.jpg" />
+  <img src="Z:/picture/008/save_picture_726642.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726640.jpg" />
+  <img src="Z:/picture/008/save_picture_726640.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726639.jpg" />
+  <img src="Z:/picture/008/save_picture_726639.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ DJ Feel - TranceMission (17-04-2017) [MP3|320 Kbps] <Progressive Trance, Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726636.jpg" />
+  <img src="Z:/picture/008/save_picture_726636.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726632.jpg" />
+  <img src="Z:/picture/008/save_picture_726632.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Icicle - Differentia (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726631.jpg" />
+  <img src="Z:/picture/008/save_picture_726631.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726622.jpg" />
+  <img src="Z:/picture/008/save_picture_726622.jpg" />
 </div>
 
 

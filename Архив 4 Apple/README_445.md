@@ -1,3 +1,111 @@
+###  Публикация: 1421653   (317758) от 05.11.2020
+
+File List Export 2.4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317758.jpg" />
+</div>
+
+
+###  Подробнее
+
+File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B0DF21888F81606E1D71B70F561E0C9E522398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421629   (317757) от 05.11.2020
+
+Reeder 5 v5.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа чтения новостей для Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: Silvio RizziПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59DBD3414DCA47F9E4A2777D779CB0607B1CFC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421631   (317756) от 05.11.2020
+
+SiteSucker 3.2.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317756.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2020Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29526778C83426D5B68A9104683C6D4BB235DD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421636   (317755) от 05.11.2020
+
+Tower 6 v6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: fournova Software GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F97F0D9D8C37674EFB7EDA492B0B99817D1A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421700   (317752) от 05.11.2020
 
 Swinsian 2.3.2 [En]
@@ -6,7 +114,7 @@ Swinsian 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317752.jpg" />
+  <img src="Z:/picture/008/save_picture_317752.jpg" />
 </div>
 
 
@@ -35,7 +143,7 @@ Memory Clean 3 v1.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317662.jpg" />
+  <img src="Z:/picture/008/save_picture_317662.jpg" />
 </div>
 
 
@@ -63,7 +171,7 @@ Bootstrap Studio 5.4.3 Lifetime Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317648.jpg" />
+  <img src="Z:/picture/008/save_picture_317648.jpg" />
 </div>
 
 
@@ -91,7 +199,7 @@ Wondershare Recoverit 9.0.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317573.jpg" />
+  <img src="Z:/picture/008/save_picture_317573.jpg" />
 </div>
 
 
@@ -118,7 +226,7 @@ Living Earth - Weather & Clock 1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317570.jpg" />
+  <img src="Z:/picture/008/save_picture_317570.jpg" />
 </div>
 
 
@@ -144,7 +252,7 @@ TechSmith Snagit 2021.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317564.jpg" />
+  <img src="Z:/picture/008/save_picture_317564.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ QuarkXPress 2020 16.1.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317485.jpg" />
+  <img src="Z:/picture/008/save_picture_317485.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ PDF Expert 2.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317411.jpg" />
+  <img src="Z:/picture/008/save_picture_317411.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ PDF Expert 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317302.jpg" />
+  <img src="Z:/picture/008/save_picture_317302.jpg" />
 </div>
 
 
@@ -254,7 +362,7 @@ Tower 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317195.jpg" />
+  <img src="Z:/picture/008/save_picture_317195.jpg" />
 </div>
 
 
@@ -281,7 +389,7 @@ Comic Life 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317193.jpg" />
+  <img src="Z:/picture/008/save_picture_317193.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ Hides 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317167.jpg" />
+  <img src="Z:/picture/008/save_picture_317167.jpg" />
 </div>
 
 
@@ -333,7 +441,7 @@ iExplorer 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317155.jpg" />
+  <img src="Z:/picture/008/save_picture_317155.jpg" />
 </div>
 
 
@@ -361,7 +469,7 @@ Carbon Copy Cloner 5.0.4 (5163) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317141.jpg" />
+  <img src="Z:/picture/008/save_picture_317141.jpg" />
 </div>
 
 
@@ -390,7 +498,7 @@ Leaf - RSS News Reader 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316951.jpg" />
+  <img src="Z:/picture/008/save_picture_316951.jpg" />
 </div>
 
 
@@ -419,7 +527,7 @@ DiskCatalogMaker 7.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316849.jpg" />
+  <img src="Z:/picture/008/save_picture_316849.jpg" />
 </div>
 
 
@@ -446,7 +554,7 @@ Tidy Up 5 v5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316847.jpg" />
+  <img src="Z:/picture/008/save_picture_316847.jpg" />
 </div>
 
 
@@ -472,7 +580,7 @@ TurboMosaic Pro 3.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316846.jpg" />
+  <img src="Z:/picture/008/save_picture_316846.jpg" />
 </div>
 
 
@@ -498,7 +606,7 @@ Acorn 6 v6.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316845.jpg" />
+  <img src="Z:/picture/008/save_picture_316845.jpg" />
 </div>
 
 
@@ -526,7 +634,7 @@ Downie 3 v3.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316844.jpg" />
+  <img src="Z:/picture/008/save_picture_316844.jpg" />
 </div>
 
 
@@ -554,7 +662,7 @@ DupeZap 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316843.jpg" />
+  <img src="Z:/picture/008/save_picture_316843.jpg" />
 </div>
 
 
@@ -583,7 +691,7 @@ iTubeDownloader 6 v6.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316842.jpg" />
+  <img src="Z:/picture/008/save_picture_316842.jpg" />
 </div>
 
 
@@ -596,116 +704,6 @@ iTubeDownloader 6 v6.5.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:391049A74C784D4DA598D98C7B17C155D8CA0491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332214   (316840) от 19.10.2019
-
-Vectoraster 7 v7.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vectoraster - программа для создания векторной графики на основе растровых моделей и полутонов из растровых изображений. Вы можете всячески конфигурировать растровые и точечные узоры для создания различных стилей изображений.
-
-Растры могут быть легко экспортированы в качестве векторов в EPS или PDF-файлы, как изображения, JPEG, PNG или TIFF, или просто скопировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E492B862FF72BAD5D4A2C5C6D7C0AA34DEB7193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332298   (316839) от 19.10.2019
-
-PrefEdit 4.3 (Build 191018) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316839.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrefEdit - утилита для изменения настроек программ, путем редактирования их plist-файлов.
-PrefEdit - уникальное приложение для просмотра и редактирования скрытых настроек системы и приложений Mac OS X, в том числе и в файлах plist. Для облегчения задач редактирования, в приложении доступен полнотекстовый поиск по любым критериям. Встроенный браузер обеспечивает удобную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480E39D811E08E3DD1F4CC54EC0CF5DE62D31E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332210   (316838) от 19.10.2019
-
-SILKYPIX Developer Studio Pro 9E v9.0.14.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316838.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
-
-С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AB9662351843D125BADDBC57BFC85B7F1EFBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332046   (316837) от 19.10.2019
-
-JixiPix Chromatic Edges 1.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316837.jpg" />
-</div>
-
-
-###  Подробнее
-
-JixiPix переносит винтаж в совершенно новый экстрим. Прошли те времена, когда у вас было несколько крошечных вариантов добавления бликов к вашим изображениям. Chromatic Edges возвращает тонкую магию обработки фотографий с помощью стеклянных, серебряных и бумажных гравюр - всего несколько нажатий и у вас уникальная фотография.
-Особое внимание тут уделено краям ваших (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F766E044765286024417165D6F8074BDB4D683A
 ```
 
 https://mybot314.ru/tekegram_catalog/

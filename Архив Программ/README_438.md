@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817255.jpg" />
+  <img src="Z:/picture/008/save_picture_817255.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Care 365 Pro 5.5.4.549 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817251.jpg" />
+  <img src="Z:/picture/008/save_picture_817251.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Video Converter Ultimate 10.0.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817249.jpg" />
+  <img src="Z:/picture/008/save_picture_817249.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FBackup 8.7.308 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817240.jpg" />
+  <img src="Z:/picture/008/save_picture_817240.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CCleaner 5.86.9258 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817212.jpg" />
+  <img src="Z:/picture/008/save_picture_817212.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Start Menu X 5.85 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817146.jpg" />
+  <img src="Z:/picture/008/save_picture_817146.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Volume2 1.1.5.369 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817137.jpg" />
+  <img src="Z:/picture/008/save_picture_817137.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Anvir Task Manager 9.2.1 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817131.jpg" />
+  <img src="Z:/picture/008/save_picture_817131.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ICQ 10.0 build 12277 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817119.jpg" />
+  <img src="Z:/picture/008/save_picture_817119.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Balabolka 2.15.0.742 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817085.jpg" />
+  <img src="Z:/picture/008/save_picture_817085.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ O&O Defrag Professional  23.5 Build 5016 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817081.jpg" />
+  <img src="Z:/picture/008/save_picture_817081.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817075.jpg" />
+  <img src="Z:/picture/008/save_picture_817075.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CrystalDiskInfo 8.5.2 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817074.jpg" />
+  <img src="Z:/picture/008/save_picture_817074.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Comodo Internet Security Premium 10.1.0.6474 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816999.jpg" />
+  <img src="Z:/picture/008/save_picture_816999.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Mem Reduct 3.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816996.jpg" />
+  <img src="Z:/picture/008/save_picture_816996.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Dr. Folder 2.1.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816978.jpg" />
+  <img src="Z:/picture/008/save_picture_816978.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Dism++ 10.1.4.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816866.jpg" />
+  <img src="Z:/picture/008/save_picture_816866.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Autodesk AutoCAD Electrical 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816861.jpg" />
+  <img src="Z:/picture/008/save_picture_816861.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ RuntimePack 16.4.17 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816859.jpg" />
+  <img src="Z:/picture/008/save_picture_816859.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NVIDIA GeForce 364.96 Hotfix driver [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816856.jpg" />
+  <img src="Z:/picture/008/save_picture_816856.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SamDrivers 16.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816854.jpg" />
+  <img src="Z:/picture/008/save_picture_816854.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.04) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816852.jpg" />
+  <img src="Z:/picture/008/save_picture_816852.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ oCam 379.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816790.jpg" />
+  <img src="Z:/picture/008/save_picture_816790.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Error Lookup 2.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816737.jpg" />
+  <img src="Z:/picture/008/save_picture_816737.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816731.jpg" />
+  <img src="Z:/picture/008/save_picture_816731.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Webroot SecureAnywhere AntiVirus for Gamers 9.0.29.38 (акция Comss) Web-ins
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816708.jpg" />
+  <img src="Z:/picture/008/save_picture_816708.jpg" />
 </div>
 
 

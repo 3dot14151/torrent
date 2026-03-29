@@ -1,3 +1,230 @@
+###  Публикация: 1776605   (71200) от 02.02.2025
+
+Omnium Gatherum - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omnium Gatherum - метал-группа из Финляндии, основанная осенью 1996 года.
+Хотя группа в основном следует по пути мелодичного дэт-метала, во многих их работах чувствуется сильное влияние прогрессивного металла, особенно в их поздних альбомах. На их творчество оказали влияние такие группы, как At the Gates, In Flames, Dissection, Dark Tranquillity, а также Iron Maiden, (   Читать дальше...   )2003 - Spirits and August Light
+2004 - Years In Waste
+2007 - Stuck Here on Snakes Way
+2008 - The RedshiftЖанр: Melodic Death MetalПродолжительность: 09:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94D5C17CAB79E3E64671CF4284F6F4660E75B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776914   (71138) от 03.02.2025
+
+We Sell The Dead - Studio Albums (2 releases) (2018-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71138.jpg" />
+</div>
+
+
+###  Подробнее
+
+We Sell The Dead - шведская хард-рок группа из Гетеборга. Сформирована в 2016 году.2018 - Heaven Doesn't Want You And Hell Is Full
+2020 - Black SleepЖанр: Heavy Metal, Hard RockПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B2ADC7EDC2553EEAAB35655E11BA53C52EB265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776911   (71136) от 03.02.2025
+
+The Kovenant (Covenant) - Studio Albums (4 releases) (1997-2003) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71136.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Kovenant — норвежская метал-группа. The Kovenant начинали с мелодичного блэк-метала; впоследствии стилистика группы сместилась в сторону индастриал-метала.1997 - In Times Before The Light
+1998 - Nexus Polaris
+1999 - Animatronic
+2003 - SETIЖанр: Black/Industrial MetalПродолжительность: 04:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3828D1DD60B5F4AC65D2DDCABD1244C29A0536A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775001   (71122) от 04.02.2025
+
+Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
+1985 - The Spectre Within
+1986 - Awaken The Guardian
+1988 - No ExitЖанр: Progressive MetalПродолжительность: 15:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE360B4F650911EF05278DCDC972AF6B61C6C93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777070   (71110) от 04.02.2025
+
+Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be'lakor — австралийская рок-группа, основанная в 2004 году в Мельбурне.2007 - The Frail Tide
+2009 - Stone's Reach
+2012 - Of Breath and Bone
+2016 - Vessels(   Читать дальше...   )Жанр: Melodic/Progressive Death MetalПродолжительность: 04:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48558B6935761FFE842C991B28B8A621026BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777281   (71059) от 05.02.2025
+
+Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enshine - международное сотрудничество музыкантов из Швеции и Франции.2013 - Origin
+2015 - Singularity
+2021 - Transcending Fire (EP)Жанр: Melodic Death/Doom MetalПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC10EB2ED900E5178C8D3F38993A0BCDA728281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777820   (70973) от 07.02.2025
+
+Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canterra - метал-группа с женским вокалом из Лейпцига, Германия.2016 - First Escape
+2020 - HeartmachineЖанр: Symphonic/Gothic MetalПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777826   (70939) от 07.02.2025
+
+Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamland — группа из Швеции, играющая в стиле мелодик-пауэр-метал.2005 - Future's Calling
+2007 - Eye For An Eye
+2009 - Exit 49Жанр: Power MetalПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778883   (70785) от 10.02.2025
 
 The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Deathrock, Thrash>
@@ -6,7 +233,7 @@ The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70785.jpg" />
 </div>
 
 
@@ -35,7 +262,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70561.jpg" />
 </div>
 
 
@@ -64,7 +291,7 @@ Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70441.jpg" />
 </div>
 
 
@@ -92,7 +319,7 @@ Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70440.jpg" />
 </div>
 
 
@@ -120,7 +347,7 @@ Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70370.jpg" />
 </div>
 
 
@@ -149,7 +376,7 @@ JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70339.jpg" />
 </div>
 
 
@@ -178,7 +405,7 @@ Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70250.jpg" />
 </div>
 
 
@@ -207,7 +434,7 @@ Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70235.jpg" />
 </div>
 
 
@@ -236,7 +463,7 @@ Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70214.jpg" />
 </div>
 
 
@@ -265,7 +492,7 @@ Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70212.jpg" />
 </div>
 
 
@@ -294,7 +521,7 @@ Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70190.jpg" />
 </div>
 
 
@@ -323,7 +550,7 @@ Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70079.jpg" />
 </div>
 
 
@@ -352,7 +579,7 @@ Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70077.jpg" />
 </div>
 
 
@@ -380,7 +607,7 @@ Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70020.jpg" />
 </div>
 
 
@@ -409,7 +636,7 @@ Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69967.jpg" />
 </div>
 
 
@@ -438,7 +665,7 @@ Silent Stream of Godless Elegy (SSoGE) - Studio Albums (9 releases) (1996-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69921.jpg" />
 </div>
 
 
@@ -467,7 +694,7 @@ Harlott - Studio Albums (5 releases) (2012-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69898.jpg" />
 </div>
 
 
@@ -496,7 +723,7 @@ Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69857.jpg" />
 </div>
 
 
@@ -509,232 +736,6 @@ Thrashfire - турецкая метал-группа, основанная в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782961   (69853) от 03.03.2025
-
-Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Bluegrass>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69853.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mr. Wonderful
-A2 Yesterday
-A3 Good Morning Starshine
-A4 Body And Soul(   Читать дальше...   )Жанр: Folk, BluegrassПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33208A9C25F7FE841C24338C008F6BD33C983291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783234   (69848) от 04.03.2025
-
-Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asylum - метал-группа, образованная в Голд -Кост, Австралия, в 2012 году.2017 - Concealed Death/Slaughterhouse
-2022 - TyrannicideЖанр: Thrash MetalПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783160   (69847) от 04.03.2025
-
-Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Blackened Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fatal Embrace - метал-группа из Варберга, Швеция. Была активна с 1992 по 1998 год и воссоединилась в 2016 году.1997 - Shadowsouls' Garden
-2023 - Manifestum Infernalis
-2024 - Hail Down DeepЖанр: Melodic Blackened Death MetalПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783153   (69846) от 04.03.2025
-
-Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adversor - трэш-метал группа из Италии, сформированная в сентябре 2015 года2016 - Rise To Survive
-2018 - The End Of Mankind
-2023 - Portrait of a WastelandЖанр: Thrash MetalПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783470   (69799) от 06.03.2025
-
-Thrashist Regime - Studio Albums (2 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrashist Regime - трэш-метал группа из Абердина, Шотландия. Образована в 2007 году.2012 - Fearful Symmetry
-2018 - Carnival Of MonstersЖанр: Thrash MetalПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784315   (69556) от 10.03.2025
-
-Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kayser - трэш-метал группа из Хельсингборга, Швеция. Образована в 2004 году.2005 - Kaiserhof
-2006 - Frame The World... Hang It On The Wall
-2014 - Read Your Enemy
-2016 - IV: Beyond The Reef Of SanityЖанр: Thrash MetalПродолжительность: 03:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4065AB796F73AE9ED637A6EB358F5F190F3A5B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784645   (69506) от 13.03.2025
-
-Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cryptosis - голландская метал-группа, сформированная в 2013 году под названием Distillator и сменившая название на Cryptosis в 2020 году.2015 - Revolutionary Cells (as Distillator)
-2017 - Summoning the Malicious (as Distillator)
-2021 - Bionic Swarm  (as Cryptosis)
-2025 - Celestial Death  (as Cryptosis)Жанр: Thrash MetalПродолжительность: 03:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E65845E4D2717CD66D2BA7628A0B010C5C12B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784904   (69477) от 13.03.2025
-
-Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Folk Metal, Viking Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69477.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Tyven
-A2 - Sankarihauta
-A3 - Kylän Päässä
-B1 - Hiidenpelto Including Häpeän Hiljaiset Vedet(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Black MetalПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A5B1995B612EFFACDE0A6095C4C423FD3E83E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

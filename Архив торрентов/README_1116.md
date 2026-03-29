@@ -6,7 +6,7 @@ Photo Editor 6 Movavi v6.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795237.jpg" />
+  <img src="Z:/picture/008/save_picture_795237.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ XYplorer 20.90.0500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795235.jpg" />
+  <img src="Z:/picture/008/save_picture_795235.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795234.jpg" />
+  <img src="Z:/picture/008/save_picture_795234.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Opera GX 68.0.3618.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795233.jpg" />
+  <img src="Z:/picture/008/save_picture_795233.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ TogetherShare Data Recovery 7.1 Professional (акция "Comss") [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795228.jpg" />
+  <img src="Z:/picture/008/save_picture_795228.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MAGIX Sound Forge Pro 14.0 Build 65 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795227.jpg" />
+  <img src="Z:/picture/008/save_picture_795227.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WinSCP 5.17.6 Build 10516 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795223.jpg" />
+  <img src="Z:/picture/008/save_picture_795223.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VirtualBox 5.0.20 Build 106931 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795210.jpg" />
+  <img src="Z:/picture/008/save_picture_795210.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ WinPE 10 Sergei Strelec (x64) 2016.04.28 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795208.jpg" />
+  <img src="Z:/picture/008/save_picture_795208.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795207.jpg" />
+  <img src="Z:/picture/008/save_picture_795207.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sleipnir 6.4.6.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795201.jpg" />
+  <img src="Z:/picture/008/save_picture_795201.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795193.jpg" />
+  <img src="Z:/picture/008/save_picture_795193.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795183.jpg" />
+  <img src="Z:/picture/008/save_picture_795183.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795175.jpg" />
+  <img src="Z:/picture/008/save_picture_795175.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ SQLPro for SQLite 1.0.74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795174.jpg" />
+  <img src="Z:/picture/008/save_picture_795174.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795172.jpg" />
+  <img src="Z:/picture/008/save_picture_795172.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Adobe Photoshop Lightroom 6.5.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795169.jpg" />
+  <img src="Z:/picture/008/save_picture_795169.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Microsoft Windows Server 2016 Technical Preview 5 (10.0.14300) MSDN [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795144.jpg" />
+  <img src="Z:/picture/008/save_picture_795144.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NVIDIA GeForce Desktop 446.14 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795138.jpg" />
+  <img src="Z:/picture/008/save_picture_795138.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Google Earth Pro 7.3.3.7721 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795137.jpg" />
+  <img src="Z:/picture/008/save_picture_795137.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ MAGIX Sound Forge Pro 14.0 Build 65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795127.jpg" />
+  <img src="Z:/picture/008/save_picture_795127.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Windows 10 Manager 3.2.7.0 Final RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795125.jpg" />
+  <img src="Z:/picture/008/save_picture_795125.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MAGIX Vegas Pro 17.0 Build 452 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795104.jpg" />
+  <img src="Z:/picture/008/save_picture_795104.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SketchUp Pro 2020 20.1.235 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795080.jpg" />
+  <img src="Z:/picture/008/save_picture_795080.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Adobe Illustrator 2020 24.1.3.428 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795078.jpg" />
+  <img src="Z:/picture/008/save_picture_795078.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Futuremark 3DMark 2.11.6911 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795075.jpg" />
+  <img src="Z:/picture/008/save_picture_795075.jpg" />
 </div>
 
 

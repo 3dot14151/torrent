@@ -6,7 +6,7 @@
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801377.jpg" />
+  <img src="Z:/picture/008/save_picture_801377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801311.jpg" />
+  <img src="Z:/picture/008/save_picture_801311.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791983.jpg" />
+  <img src="Z:/picture/008/save_picture_791983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653978.jpg" />
+  <img src="Z:/picture/008/save_picture_653978.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556149.jpg" />
+  <img src="Z:/picture/008/save_picture_556149.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555820.jpg" />
+  <img src="Z:/picture/008/save_picture_555820.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555810.jpg" />
+  <img src="Z:/picture/008/save_picture_555810.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555352.jpg" />
+  <img src="Z:/picture/008/save_picture_555352.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555050.jpg" />
+  <img src="Z:/picture/008/save_picture_555050.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553942.jpg" />
+  <img src="Z:/picture/008/save_picture_553942.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549525.jpg" />
+  <img src="Z:/picture/008/save_picture_549525.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549523.jpg" />
+  <img src="Z:/picture/008/save_picture_549523.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548837.jpg" />
+  <img src="Z:/picture/008/save_picture_548837.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548728.jpg" />
+  <img src="Z:/picture/008/save_picture_548728.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503365.jpg" />
+  <img src="Z:/picture/008/save_picture_503365.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499444.jpg" />
+  <img src="Z:/picture/008/save_picture_499444.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473253.jpg" />
+  <img src="Z:/picture/008/save_picture_473253.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383622.jpg" />
+  <img src="Z:/picture/008/save_picture_383622.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383617.jpg" />
+  <img src="Z:/picture/008/save_picture_383617.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383536.jpg" />
+  <img src="Z:/picture/008/save_picture_383536.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383532.jpg" />
+  <img src="Z:/picture/008/save_picture_383532.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383514.jpg" />
+  <img src="Z:/picture/008/save_picture_383514.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383512.jpg" />
+  <img src="Z:/picture/008/save_picture_383512.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367668.jpg" />
+  <img src="Z:/picture/008/save_picture_367668.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367654.jpg" />
+  <img src="Z:/picture/008/save_picture_367654.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367653.jpg" />
+  <img src="Z:/picture/008/save_picture_367653.jpg" />
 </div>
 
 

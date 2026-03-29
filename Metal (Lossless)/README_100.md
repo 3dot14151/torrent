@@ -1,3 +1,90 @@
+###  Публикация: 1287870   (699884) от 09.03.2019
+
+Obscura - Illegimitation (2012) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - And All Will Come to an End (2:58)
+02 - Crucified (4:24)
+03 - Fear (4:37)
+04 - Immanent Desaster (6:03)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BB90FD769464BEE776BC94F4CAC0FB017C99D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287840   (699883) от 09.03.2019
+
+Nifelheim - Devil's Force (1998) [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Deathstrike From Hell
+02 - The Final Slaughter
+03 - Desecration Of The Dead
+04 - Demonic Evil(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34E303C842099AF87197CFE777A775C947418C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287872   (699881) от 09.03.2019
+
+Obscura - Omnivium (2011) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Septuagint
+02. Vortex Omnivium
+03. Ocean Gateways
+04. Euclidean Elements(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604376BEDE9FA33E9E5B84E03470E9F1A38F828C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287869   (699879) от 09.03.2019
 
 Obscura - Diluvium (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
@@ -6,7 +93,7 @@ Obscura - Diluvium (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699879.jpg" />
+  <img src="Z:/picture/008/save_picture_699879.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Uneven Structure - Februus (2011) 2CD [FLAC|Lossless|image + .cue] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699875.jpg" />
+  <img src="Z:/picture/008/save_picture_699875.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Iron Savior - Kill or Get Killed (2019) 2CD Japan [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699765.jpg" />
+  <img src="Z:/picture/008/save_picture_699765.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Tyr - Hel (2019) Limited Edition [FLAC|lossless|image + .cue] <Progressive, Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699762.jpg" />
+  <img src="Z:/picture/008/save_picture_699762.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Rhapsody Of Fire - The Eight Mountain (2019) Japanese Edition [FLAC|lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699760.jpg" />
+  <img src="Z:/picture/008/save_picture_699760.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Doro - Backstage To Heaven (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699753.jpg" />
+  <img src="Z:/picture/008/save_picture_699753.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Anthrax - State Of Euphoria (1988) (2019) 2CD, Japanese Edition [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699630.jpg" />
+  <img src="Z:/picture/008/save_picture_699630.jpg" />
 </div>
 
 
@@ -211,7 +298,7 @@ Pathology - Throne of Reign (2014) [WavPack|Lossless|image + .cue] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699625.jpg" />
+  <img src="Z:/picture/008/save_picture_699625.jpg" />
 </div>
 
 
@@ -240,7 +327,7 @@ Venator - Echoes From The Gutter (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699414.jpg" />
+  <img src="Z:/picture/008/save_picture_699414.jpg" />
 </div>
 
 
@@ -269,7 +356,7 @@ Within Temptation - Resist (2019) 2CD, Limited Fanbox [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699039.jpg" />
+  <img src="Z:/picture/008/save_picture_699039.jpg" />
 </div>
 
 
@@ -299,7 +386,7 @@ Merciless - The Treasures Within (1992) 2003 Remaster [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698979.jpg" />
+  <img src="Z:/picture/008/save_picture_698979.jpg" />
 </div>
 
 
@@ -328,7 +415,7 @@ Havukruunu - Kelle Surut Soi (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698862.jpg" />
+  <img src="Z:/picture/008/save_picture_698862.jpg" />
 </div>
 
 
@@ -357,7 +444,7 @@ Severoth - Winterfall (2015) [FLAC|Lossless|image + .cue] <Ambient, Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698471.jpg" />
+  <img src="Z:/picture/008/save_picture_698471.jpg" />
 </div>
 
 
@@ -386,7 +473,7 @@ Severoth - Solitude (2016) [FLAC|Lossless|image + .cue] <Ambient, Atmospheric Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698469.jpg" />
+  <img src="Z:/picture/008/save_picture_698469.jpg" />
 </div>
 
 
@@ -415,7 +502,7 @@ Solence - Direction (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock / Ele
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698097.jpg" />
+  <img src="Z:/picture/008/save_picture_698097.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ Ancient Bards - Origine: The Black Crystal Sword Saga Part 2 (2019) Jараn Edi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698007.jpg" />
+  <img src="Z:/picture/008/save_picture_698007.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ Vanir - Allfather (2019) Japan[FLAC|Lossless|image + .cue] <Viking Metal, Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697873.jpg" />
+  <img src="Z:/picture/008/save_picture_697873.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Megadeth - Warchest (2007) 4CD, Box Set [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697633.jpg" />
+  <img src="Z:/picture/008/save_picture_697633.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ X.I.L - Rip & Tear (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697521.jpg" />
+  <img src="Z:/picture/008/save_picture_697521.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ Rumahoy - The Triumph of Piracy (2018) Japan [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696806.jpg" />
+  <img src="Z:/picture/008/save_picture_696806.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Medieval Steel - Gods Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695987.jpg" />
+  <img src="Z:/picture/008/save_picture_695987.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Pathology - The Time Of Great Purification (2012) [WavPack|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695936.jpg" />
+  <img src="Z:/picture/008/save_picture_695936.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Imperia - Flames of Eternity (2019) Limited Edition [FLAC|lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695673.jpg" />
+  <img src="Z:/picture/008/save_picture_695673.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Imperia - Flames of Eternity (2019) Limited Edition [FLAC|lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C98C84873ADAD8C77BB73DAA0A48024994DB994F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221296   (695144) от 24.04.2018
-
-James Murphy - Feeding the Machine (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeding The Machine
-02. Contagion
-03. No One Can Tell You
-04. Epoch(   Читать дальше...   )Жанр: Progressive Metal, ShredПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA25D0021AE1566B291C833005EE875985FC36E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027859   (694935) от 20.06.2016
-
-Hater - Requiem Aeternam (2016) [FLAC|tracks|WEB-DL]<Deathcore, Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694935.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:36] 01. Psalm 22:1
-[04:33] 02. Proclamation (feat. Andrew Patterson from 'Cortexiphan')
-[04:35] 03. In Vain
-[04:22] 04. Bleakness (feat. Mattia Sogari from 'Pursuing The End')(   Читать дальше...   )Жанр: Deathcore, DowntempoПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120A524E864262220558BFAA7CA950444E563AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403085   (694411) от 18.08.2020
-
-The Black Dahlia Murder - Verminous (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verminous (03:50)
-02. Godlessly (03:28)
-03. Removal of the Oaken Stake (04:26)
-04. Child of Night (03:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEB167D4C8A71129EFC384DCC274D40795D3E9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

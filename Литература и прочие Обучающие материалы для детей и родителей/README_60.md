@@ -1,3 +1,133 @@
+###  Публикация: 1479787   (1009441) от 25.06.2021
+
+Н.Н. Семке, Ю.В. Доля, С.Н. Смоленский и др. | ЕГЭ. Обществознание: пошаговая подготовка (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит все темы школьного курса обществознания, необходимые для сдачи ЕГЭ. Весь материал чётко структурирован и разделён на 35 логических блоков (недель), включающих необходимые теоретические сведения, задания для самоконтроля в виде схем и таблиц, а также в форме ЕГЭ. Изучение каждого блока рассчитано на 2—3 самостоятельных занятия в неделю в течение (   Читать дальше...   )Жанр: ЕГЭ/ОбществознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B2E7953AC04B9ABF25C4E14BBEC7CC8F7282FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479802   (1009437) от 25.06.2021
+
+Людмила Прокопович | Энциклопедия занимательных наук для детей. География (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, ты думаешь, что география – не очень интересная наука. Но это совсем не так! Ты когда-нибудь задумывался над тем, зачем были созданы географические карты и чем они отличаются от глобуса? Почему в одних местах нашей планеты образовались пустыни, а в других – моря и океаны? Что такое рельеф и как он обозначается? Почему в районе экватора всегда жарко? Что (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD87C421956A31D22676B9A81BA52E64F7C807A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479797   (1009405) от 25.06.2021
+
+Л.А. Скубачевская, Т.В. Надозирная, Н.В. Слаутина | ЕГЭ. Литература: универсальный справочник (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник предназначен для подготовки учащихся к ЕГЭ по литературе. Пособие содержит подробный теоретический материал по всем темам, проверяемым экзаменом. После разделов даются примеры заданий ЕГЭ по соответствующим темам. Для итогового контроля знаний в конце справочника приводятся тренировочные варианты ЕГЭ по литературе. Ко всем заданиям приводятся ответы. (   Читать дальше...   )Жанр: ЕГЭ/ЛитератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926E682A375A8FF9115010D40D4D1A28FB9C8603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480233   (1009188) от 27.06.2021
+
+Марлизе Арольд | Восьмой день. Старые секреты. Книга 3 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миру восьмого дня грозит опасность – компания «ТЕМП» хочет проникнуть в Замок Вечности, чтобы выведать все секреты и использовать их в корыстных интересах. Мир восьмого дня может исчезнуть! Необычайно одарённым друзьям Лауры предстоит защищать его любой ценой. И когда они думали, что всё уже потеряно, у них появился неожиданный сильный союзник…Жанр: Детская литература/Фантастика/ПриключенияПеревод: Жанна ТальФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CAB46C0D2CF49780DDFECE2ABC0767243061C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480255   (1009167) от 27.06.2021
+
+А.А. Кошелева, С.И. Кужель | История. Историческое сочинение на ЕГЭ: интенсивная подготовка (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие поможет учащимся эффективно и в краткие сроки подготовиться к написанию исторического сочинения на ЕГЭ по истории. В книге приводятся обзор критериев оценивания работы с пояснениями и рекомендациями, план написания работы и модели готовых сочинений с подробным разбором. Кроме того, издание содержит обширный справочный материал, который будет полезен (   Читать дальше...   )Жанр: ЕГЭ/ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD7662F0BC2221622852D0F5C9B1B045E0D9E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480269   (1009145) от 27.06.2021
 
 Анна Спектор | Энциклопедия занимательных наук для детей. История (2017) [PDF]
@@ -6,7 +136,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009145.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009091.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009005.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009002.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008996.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008926.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008920.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008908.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008810.jpg" />
 </div>
 
 
@@ -245,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008721.jpg" />
 </div>
 
 
@@ -271,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008695.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008675.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008674.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008660.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008450.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008418.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008337.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007983.jpg" />
 </div>
 
 
@@ -483,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007980.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007964.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007957.jpg" />
 </div>
 
 
@@ -546,142 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA85412D40AE1BF01FDA2E3CCEC587440081513C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308784   (1007937) от 05.07.2021
-
-Евгений Комаровский | Начало жизни вашего ребенка (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступная и увлекательная книга, написанная практикующим врачом-педиатром и рассказывающая о наиболее
-сложном и ответственном этапе в жизни ребенка и его родителей.
-Простые решения, казалось бы, сложных задач.
-Ответы на вопросы о том, что такое хорошо и что такое плохо, рекомендации, позволяющие принять правильные решения,(   Читать дальше...   )Жанр: Книги для пап и мам, Воспитание детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270D2D86F492599E6272A4829546F67C1EC1425F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458252   (1007936) от 05.07.2021
-
-Л.В. Кузнецова | Основы специальной психологии (2003) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007936.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии излагаются история возникновения специальной психологии как отрасли психологической науки и практики, методологические вопросы специальной психологии, связанные с современным пониманием нормального и отклоняющегося развития, проблемы организации специальной психологической помощи и психокоррекционной работы в системе образования, даны клинико-психолого-педагогические (   Читать дальше...   )Жанр: детская психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DFC7590EBDB59442D00EC25B2BA09154005D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482025   (1007911) от 06.07.2021
-
-Иеромонах Роман (Матюшин-Правдин) | Святорусье (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Святорусье" похожа на календарь: на её страницах сменяют друг друга времена года и церковные праздники, которые вместе с человеком встречает природа. Для автора этой книги, иеромонаха Романа (Матюшина-Правдина), природа - это Храм, где всё сотворённое славословит Творца. Стихи отца Романа написаны в скиту Ветрово, среди лесов и болот, и эти же пустынные (   Читать дальше...   )Жанр: Отечественная поэзия для детей. ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF20B0FBAFD83B3E0C5A6C352F92DB4DBE32DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654159   (1007859) от 06.07.2021
-
-С. Михалков | Дядя Степа [1997] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дядя Стёпа - известные стихи вместе с продолжением про сына Егора и про ветеранство Степана.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F60A9E0E493427EC0606F334A126BD114798E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 671932   (1007571) от 08.07.2021
-
-Андрей Геласимов | Кольцо Белого Волка (2010) [RTF, FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Андрей Геласимов современный российский писатель, обладатель премий Русский Букер, 2004 и Национальный бестселлер, 2009 за серьезные взрослые книги.
-Эту книгу Андрей Геласимов писал для своих троих детей, когда они еще были маленькими и хотели каждый вечер перед сном слушать увлекательные волшебные истории.
-(   Читать дальше...   )Жанр: Детская, приключения, сказкаФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4828195E95A04490E4156742D00CF0DA575884
 ```
 
 https://mybot314.ru/tekegram_catalog/

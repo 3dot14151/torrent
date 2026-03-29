@@ -1,3 +1,119 @@
+###  Публикация: 1247944   (448809) от 17.09.2018
+
+Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me voy pa' Cuba [5:37]
+02. Africa [5:09]
+03. Feria [3:57]
+04. Lobo's Cha [5:26](   Читать дальше...   )Жанр: Cuban JazzПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBF8900B49D84644FE0895A6FD82D1877A01A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247938   (448808) от 17.09.2018
+
+Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448808.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Angela [2:44]
+02. Five O Clock Whistle [4:27]
+03. Everything I Love [3:12](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 03:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F1F88E8D416C2D9CF17C6F46F7C16E106807AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 38638   (448738) от 15.09.2020
+
+Felix Slovacek - A Jeho Beatles (1996) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феликс Словачек - это целая планета на мировом джазовом небосклоне. Без участия этого блистательного саксофониста и кларнетиста из Праги, без его знаменитого биг-бэнда не обходится почти ни один фестиваль мирового уровня. Феликс Словачек - мультиинструменталист. Он играет на кларнете, фортепиано, контрабасе, ударных, дирижирует и сочиняет музыку, прекрасно знает (   Читать дальше...   )01. Free As A Bird  (4:06)
+02. And I Love Her  (3:18)
+03. Something  (2:48)
+04. Eleanor Rigby  (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87BD2CA94321DF0B86E4A731EEBA23794BF16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163637   (448583) от 06.09.2017
+
+Randy Brecker & Eliane Elias - Amanda (1985) Passport Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splash [05:24]
+02. Para Nada (For Nothing) [07:10]
+03. Pandamandium [06:23]
+04. Samba De Bamba [08:17](   Читать дальше...   )Жанр: World Fusion, Latin JazzПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DC9E2FB41BCBEA4C406953CE250FDED4CA2428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163640   (448571) от 06.09.2017
 
 Artie Shaw - The Essential Artie Shaw (1938 - 1953) 2CD, 2005, RVG [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Artie Shaw - The Essential Artie Shaw (1938 - 1953) 2CD, 2005, RVG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448571.jpg" />
+  <img src="Z:/picture/008/save_picture_448571.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Eliane Elias, Bob Brookmeyer & The Danish Radio Jazz Orchestra - Play The Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448423.jpg" />
+  <img src="Z:/picture/008/save_picture_448423.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Matthieu Bore - Sometimes On My Own (2010) Bonsai Music [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448414.jpg" />
+  <img src="Z:/picture/008/save_picture_448414.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Marcus Miller - A Night In Monte-Carlo (2010) [FLAC|Lossless]<Jazz, Funk, Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447854.jpg" />
+  <img src="Z:/picture/005/save_picture_447854.jpg" />
 </div>
 
 
@@ -127,7 +243,7 @@ Sidney Bechet - Petite Fleur (1932-1957) 3CD /2014, Le Chant Du Monde/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447343.jpg" />
+  <img src="Z:/picture/008/save_picture_447343.jpg" />
 </div>
 
 
@@ -156,7 +272,7 @@ Lillian Boutte - The Jazz Book (1994) Blues Beacon Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447307.jpg" />
+  <img src="Z:/picture/008/save_picture_447307.jpg" />
 </div>
 
 
@@ -185,7 +301,7 @@ The Charlie Byrd Quintet - Du Hot Club De Concord (1995) Concord Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447301.jpg" />
+  <img src="Z:/picture/008/save_picture_447301.jpg" />
 </div>
 
 
@@ -214,7 +330,7 @@ Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446744.jpg" />
+  <img src="Z:/picture/008/save_picture_446744.jpg" />
 </div>
 
 
@@ -243,7 +359,7 @@ Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446739.jpg" />
+  <img src="Z:/picture/008/save_picture_446739.jpg" />
 </div>
 
 
@@ -272,7 +388,7 @@ Pharoah Sanders - Spiritual Blessings (2013) Jazzclub [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446615.jpg" />
+  <img src="Z:/picture/008/save_picture_446615.jpg" />
 </div>
 
 
@@ -301,7 +417,7 @@ VA - Jazz For Weddings (2007) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446614.jpg" />
+  <img src="Z:/picture/008/save_picture_446614.jpg" />
 </div>
 
 
@@ -330,7 +446,7 @@ VA - Sweet Jazz Soul (1997) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446592.jpg" />
+  <img src="Z:/picture/005/save_picture_446592.jpg" />
 </div>
 
 
@@ -362,7 +478,7 @@ Barbara Morrison - Live at the 9:20 Special (2002) Springboard Production [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446583.jpg" />
+  <img src="Z:/picture/008/save_picture_446583.jpg" />
 </div>
 
 
@@ -391,7 +507,7 @@ Newropean Jazz Quartet (Danilo Memoli Trio,Ralph Reichert) & Ruth Young - Early 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446576.jpg" />
+  <img src="Z:/picture/005/save_picture_446576.jpg" />
 </div>
 
 
@@ -426,7 +542,7 @@ Midnight Serenaders - A Little Keyhole Business (2013) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446451.jpg" />
+  <img src="Z:/picture/008/save_picture_446451.jpg" />
 </div>
 
 
@@ -455,7 +571,7 @@ Chris Connor - Sings Ballads of the Sad Cafe (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446417.jpg" />
+  <img src="Z:/picture/005/save_picture_446417.jpg" />
 </div>
 
 
@@ -489,7 +605,7 @@ Joachim Kuhn - Springfever (1976) 2008, Wounded Bird [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446355.jpg" />
+  <img src="Z:/picture/008/save_picture_446355.jpg" />
 </div>
 
 
@@ -518,7 +634,7 @@ Mel Torme - The Mel Torme Collection 1944-1985 (1996) BoxSet 4CD[FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446234.jpg" />
+  <img src="Z:/picture/005/save_picture_446234.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ Charlie Parker - Chasin' The Bird (1940-e - 1950-e) 4CD, 2005, Proper Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446213.jpg" />
+  <img src="Z:/picture/008/save_picture_446213.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ Norah Jones - Little Broken Hearts [SHM-CD] [Limited Pressing] [Japan Bonus Trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446146.jpg" />
+  <img src="Z:/picture/008/save_picture_446146.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Stanley Clarke, Lenny White and Hiromi Uehara - Jazz In The Garden (2009) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445966.jpg" />
+  <img src="Z:/picture/005/save_picture_445966.jpg" />
 </div>
 
 
@@ -646,7 +762,7 @@ VA - Jazz vocal - Favorites Collection (1994) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445848.jpg" />
+  <img src="Z:/picture/005/save_picture_445848.jpg" />
 </div>
 
 
@@ -666,134 +782,6 @@ VA - Jazz vocal - Favorites Collection (1994) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552229   (445773) от 27.09.2012
-
-Chie Ayado - 3 альбома (2000-2007) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazing Grace [03:05]
-02. A Natural Woman [05:12]
-03. Your Song [05:38]
-04. El Condor Pasa (If I Could) [05:36]
-08. A Time for Love [04:38]
-09. Everything Must Change [04:49]
-07. The Way We Were [04:52]
-08. The Rose [05:25]
-09. Love [03:29]
-10. Wonderful Tonight [04:52](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550583   (445764) от 27.09.2012
-
-George Benson, Joe Pass & Wes Montgomery - Les Incontournables Guitare (2000) [FLAC|Lossless]<Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' [05:49]
-02. Blues'n'Boogie [09:37]
-03. 'Round Midnight [04:55]
-04. Geno [02:57]
-05. D-Natural Blues [05:24]
-06. Movin' Along [05:40]
-07. Baubles, Bangles And Beads [02:22]
-08. Mister Walker [04:32]
-09. Twisted Blues [05:36]
-10. Freddie The Freeloader [05:17](   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550567   (445759) от 27.09.2012
-
-Youn Sun Nah - 3 альбома (2003 - 2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitter Ballad [04:08]
-02. Avec le Temps [05:06]
-03. Peace [03:21]
-04. Utviklingssang [06:08]Жанр: JazzПродолжительность: 00:18:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943942   (445339) от 05.10.2015
-
-Sam Most - Musically Yours (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stella By Starlight [05:57]
-02.Hush-A-Bye [07:02]
-03.Obvious Conclusion [04:58]
-04.Autumn Leaves [04:49](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3984D915422A9FB098EA87BEBBC739069A1DFC47
 ```
 
 https://mybot314.ru/tekegram_catalog/

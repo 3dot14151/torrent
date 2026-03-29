@@ -1,3 +1,83 @@
+###  Публикация: 548817   (460008) от 21.09.2012
+
+Приключения Робин Гуда / The Adventures of Robin Hood (1938) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_460008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно из легенд, добрый король английский Ричард отправился в Крестовый поход и попал там в плен. Принц Джон захватил трон и, движимый жаждой наживы, начал обирать народ.
+ Разоренный им сэр Робин Локсли ушел в Шервудский лес и под именем Робин Гуда возглавил банду разбойников, объявив войну прихвостням принца Джона - рыцарю Гаю  Гизборну и трусливому шерифу (   Читать дальше...   )Жанр: Боевик, ПриключенияРежиссер: Майкл Кертиц / Michael Curtiz, Уильям Кайли / William KeighleyАктеры: Эррол Флинн, Оливия Де Хэвиллэнд, Клод Рэйнс, Патрик Ноулз, Юджин Паллет, Алан Хейл, Мелвилл Купер, Йен Хантер, Монтагу Лав, Роберт Ноубл, Кеннет Хантер, Роберт Уорвик, Колин Кенни, Лестер Мэтьюз, Ховард Хилл, Иван Ф. СимпсонПеревод: Многоголосый закадровыйСубтитры: НетПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF838F3416D5AEF163F990886FDFEEAEAE879740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388165   (459996) от 16.09.2011
+
+Звездные войны: Эпизод 1 - Скрытая угроза / Star Wars: Episode I - The Phantom Menace (1999) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мирная и процветающая планета Набу. Торговая федерация, не желая платить налоги, вступает в прямой конфликт с королевой Амидалой, правящей на планете, что приводит к войне. На стороне королевы и республики в ней участвуют два рыцаря-джедая: учитель и ученик, Квай-Гон-Джин и Оби-Ван Кеноби…Жанр: Фантастика, Боевик, ПриключенияРежиссер: Джордж Лукас / George LucasАктеры: Лиам Нисон, Юэн МакГрегор, Натали Портман, Джейк Ллойд, Иэн МакДайармид, Пернилла Аугуст, Оливер Форд Дэвис, Хью Куарши, Ахмед Бест, Энтони ДэниелсПеревод: Гоблинский, МногоголосныйСубтитры: нетПродолжительность: 02:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B15963EB9F05ACD239FC221D130CC73A8DC48C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401248   (459785) от 10.09.2020
+
+Под знаком Козерога / Under Capricorn (1949) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралия, 19 век. Сэм, отсидевший срок за убийство, возвращается домой, к своей жене и пытается начать новую жизнь. Сэм усердно работает и вскоре становится богатым, но общество его не принимает - у Сэма небезупречное прошлое.
+Их гость Чарльз влюбляется в хозяйку дома и, пытаясь узнать о ней как можно больше, начинает понимать, что у семьи немало страшных тайн и (   Читать дальше...   )Производство: Великобритания / Transatlantic PicturesЖанр: Драма, Мелодрама, КриминалРежиссер: Альфред ХичкокАктеры: Ингрид Бергман, Джозеф Коттен, Майкл Уайлдинг, Маргарет Лейтон, Сесил Паркер, Денис О’Ди, Джек Уотлинг, Харкорт Уильямс, Джон Руддок, Билл ШайнПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559507EE8BAB7C5CD945B1F858114BA9F33A273B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567022   (459756) от 09.08.2022
 
 Мир движется вперед / The World Moves On (1934) WEBRip [AVO]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459756.jpg" />
+  <img src="Z:/picture/008/save_picture_459756.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459735.jpg" />
+  <img src="Z:/picture/008/save_picture_459735.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459542.jpg" />
+  <img src="Z:/picture/008/save_picture_459542.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459469.jpg" />
+  <img src="Z:/picture/008/save_picture_459469.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459384.jpg" />
+  <img src="Z:/picture/008/save_picture_459384.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458881.jpg" />
+  <img src="Z:/picture/008/save_picture_458881.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458770.jpg" />
+  <img src="Z:/picture/008/save_picture_458770.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458484.jpg" />
+  <img src="Z:/picture/008/save_picture_458484.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457984.jpg" />
+  <img src="Z:/picture/008/save_picture_457984.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457902.jpg" />
+  <img src="Z:/picture/008/save_picture_457902.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457650.jpg" />
+  <img src="Z:/picture/008/save_picture_457650.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457455.jpg" />
+  <img src="Z:/picture/008/save_picture_457455.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457447.jpg" />
+  <img src="Z:/picture/008/save_picture_457447.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456946.jpg" />
+  <img src="Z:/picture/008/save_picture_456946.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456630.jpg" />
+  <img src="Z:/picture/008/save_picture_456630.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455561.jpg" />
+  <img src="Z:/picture/008/save_picture_455561.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455540.jpg" />
+  <img src="Z:/picture/008/save_picture_455540.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455444.jpg" />
+  <img src="Z:/picture/008/save_picture_455444.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454449.jpg" />
+  <img src="Z:/picture/008/save_picture_454449.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_454290.jpg" />
+  <img src="Z:/picture/005/save_picture_454290.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453498.jpg" />
+  <img src="Z:/picture/008/save_picture_453498.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453398.jpg" />
+  <img src="Z:/picture/008/save_picture_453398.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453246.jpg" />
+  <img src="Z:/picture/008/save_picture_453246.jpg" />
 </div>
 
 
@@ -594,87 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836B87B713F13DB81AF38D22533478557BBFC2C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055079   (452959) от 08.10.2016
-
-Возлюбленная Юпитера / Jupiter's Darling (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452959.jpg" />
-</div>
-
-
-###  Подробнее
-
-217 до нашей эры. Фабиус любит свой красивый, но уязвимый город — Рим, а также любит свою красивую, и неуязвимую невесту — Амитис. Очарованная рассказами о Ганнибале, который собирается напасть и разрушить на Рим, Амитис, гонимая любопытством, отправляется в расположения лагеря врага.
-Случайно выдав себя, она попадает в руки дозорных, и ее отводят к главнокомандующему. (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Фэнтези, Мелодрама, Комедия, ПриключенияРежиссер: Джордж СидниАктеры: Эстер Уильямс, Ховард Кил, Мардж Чэмпион, Гауэр Чемпион, Джордж Сэндерс, Ричард Хейдн, Уильям Демарест, Норма Варден, Дагласс Дамбрилл, Генри КорденПеревод: Многоголосый закадровыйПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119C358BDFB1370EB9CCAA245A64A92719B62831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247041   (452533) от 15.09.2018
-
-Именем итальянского народа (Полмиллиарда за алиби) / In nome del popolo italiano (1971) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен Сантеночито имеет обширные связи, мастерски дает взятки и расталкивает конкурентов не только локтями, но и остальными частями тела. Дельца ничуть не смущает, что его фабрика загрязняет окружающую среду. Главное, что она приносит доход. Но помехой на его пути встает судья Бонифацци — один из тех редких чиновников, к которым не подходят традиционные методы (   Читать дальше...   )Производство: Италия / International Apollo FilmsЖанр: Комедия, ДетективРежиссер: Дино РизиАктеры: Уго Тоньяцци, Витторио Гассман, Эли Галлеани, Ивонн Фюрно, Мишель Чимароза, Ренато Бальдини, Пьетро Торди, Мария Тереза Албани, Кекко Дуранте, Симонетта СтефанеллиПеревод: Дублированный, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA05BA8F57E0EB373CA0FF144E989CE2DC057C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053630   (452463) от 08.10.2016
-
-Падение Римской империи / The Fall of the Roman Empire (1964) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правлению императора Марка Аврелия приходит конец, умирая, он назначает своим преемником не сына Комадаса, а полководца Гая Ливия, влюбленного в его дочь.
-Именно из-за этого Комадас все-таки приходит к власти и ситуация в Римской империи резко меняется: рушатся все военные и политические достижения, племена
-варваров вместе с предводителями бывших имперских провинций (   Читать дальше...   )Производство: США, Samuel Bronston ProductionsЖанр: Драма, военный, историяРежиссер: Энтони Манн/Anthony MannАктеры: Софи Лорен, Стивен Бойд, Алек Гиннесс, Джеймс Мейсон, Кристофер Пламмер, Энтони Куэйл, Джон Айрленд, Омар Шариф, Мел Феррер, Эрик Портер и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: АнглийскийПродолжительность: 01:29:16 + 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F408E16FA13B0F6E8066BDD66183366F5B73E0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

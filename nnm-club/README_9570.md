@@ -1,83 +1,22 @@
-###  Публикация: 1137737   (666771) от 27.05.2017
+###  Публикация: 1537060   (669262) от 15.03.2022
 
-VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Artenovum - Blue Sun (ambient Lounge mix) 05:33
-2. Pascheba - Nirvana 03:28
-3. Buddhatronic - World Of Grace (Mystic Voice mix) 04:54
-4. Artenovum - Francesca (Mystic Dream mix) 04:54(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427D6B2BDEA4C54E98C9A4F1B36BBA38E9365E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137485   (666770) от 27.05.2017
-
-Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gimme The Beat (3:05)
-02 - Dirt Rich (2:43)
-03 - Fight (3:27)
-04 - Unbroken (3:25)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136779   (666769) от 27.05.2017
-
-Man Made - Man Made (1971) Reissue, 2010, Mandala [MP3|320 Kbps] <Rock, Prog Rock>
+King Gizzard & The Lizard Wizard - The Dripping Tap (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666769.jpg" />
+  <img src="Z:/picture/008/save_picture_669262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Man Made
-2. Carnival
-3. Reflections
-4. Evolution(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:32
+01. The Dripping Tap [18:17]Жанр: Psychedelic RockПродолжительность: 00:18:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3152D6AAA3F343EDA15B4E47D8AFDC87B6CCC512
+magnet:?xt=urn:btih:A2F9A5F53F2DC366BF3A3B62FCEE485C1F1145F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537372   (666768) от 17.03.2022
+###  Публикация: 1537179   (669260) от 15.03.2022
 
-Lyre le temps - Outside the Box (Extended Version) (2014) [AAC|~310 Kbps] <Electro Swing, Hip Hop>
+VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666768.jpg" />
+  <img src="Z:/picture/008/save_picture_669260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome (1:48)
-02. The Mission (3:32)
-03. Rob the Banker (3:05)
-04. Lyre le temps, Beat Assailant - Going On (3:44)(   Читать дальше...   )Жанр: Electro Swing, Hip HopПродолжительность: 00:55:15
+01. ACRAZE feat. Cherish - Do It To It
+02. Adele - Easy On Me
+03. ArrDee - Flowers (Say My Name)
+04. Beyonce - Be Alive (Original Song from the Motion Picture King Richard)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:16:12 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B9CF945199A47EBF99D77B93555307E19860A13
+magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,451 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537580   (666767) от 17.03.2022
+###  Публикация: 1536795   (669258) от 15.03.2022
 
-Milt Jackson & The Ray Brown Big Band - Memphis Jackson (1969) 2011, Universal [FLAC|Lossless|image + .cue] <Hard Bop, Big Band>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uh-Huh [3:50]
-02. One Mint Julep (One Way) [2:38]
-03. Oh Happy Day [3:34]
-04. Memphis Junction [2:55](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537667   (666766) от 17.03.2022
-
-VA - Eargasm Chill Out, Vol. 2 (An Obsession of Erotic Lounge) (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pianochocolate - Lilac (4:12)
-02. Lemongrass - Spacetime (3:16)
-03. Michael e - Aha (5:16)
-04. 351 Lake Shore Drive - Spanish Lullaby (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F19F2FEC1AC562D0FF5288758363353FD6D4CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537765   (666765) от 17.03.2022
-
-Кристине Нёстлингер | Долой огуречного короля (2020) [MP3, Анастасия Дадыко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды в одной австрийской семье появляется гость: изгнанный поддаными Огурцарь. Он требует постоянного внимания и заботы. Как повели себя дед, мама, папа, два мальчика и одна девочка, и какие семейные тайны при этом обнаружились, с юмором описано в этой истории.Жанр: Детская литератураПродолжительность: 03:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299C996114849455400399E6020B639EEC69F918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537553   (666764) от 17.03.2022
-
-VA - This Is Chillout Jazz, Vol. 4 (Cool Jazzy Sounds in a Lounge Mood) (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jestofunk - Straight to you (6:04)
-02. LTJ XPerience - And I Love Him (Remix) (5:47)
-03. Papik, Wendy D. Lewis - Sunny (3:47)
-04. D'Andy, Melania - Yesterday (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E7A31729C86BC4E83DD1D539F6CDB5A81D99AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537431   (666763) от 17.03.2022
-
-Humanotone - 2 Albums (2017-2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Antilogies 08:17
-02. Ephemeral 11:01
-03. A Flourishing Fall 11:43
-04. Scrolls For The Blind 09:33(   Читать дальше...   )Жанр: Stoner Rock, Doom Metal, Psychedelic & Progressive RockПродолжительность: 2CD, 02:01:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537644   (666762) от 17.03.2022
-
-SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666762.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro11 для FUJIFILM предназначен для камеры FUJIFILM, выпущенной ограниченным тиражом. Это программное обеспечение для обработки формата RAW, которое оказывает мощную поддержку при создании собственных фоторабот с помощью различных функций настройки, таких как «Режимы композитинга», «Инструмент частичной коррекции» и «Dehaze» включены в профессиональное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.03.2022Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1772DAE8700CC095E5F5DFDE6C4BFC2DDA4BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537678   (666761) от 17.03.2022
-
-KCNcrew Pack 03-15-22 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666761.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под macOS с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2005-2022 KCNcrewПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754E730922ACFF3834B57705C3B9D312392213FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537202   (666760) от 17.03.2022
-
-The Delines - The Sea Drift (2022) Deluxe Edition [MP3|320 Kbps] <Blues Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Earl
-02. Kid Codeine
-03. Drowning In Plain Sight
-04. All Along The Ride(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB90AE7C264CC490914A0EB635B67996F6EB3CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537121   (666759) от 17.03.2022
-
-VA - Sunrise Avenue, Vol. 3 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralf Harris - Mad About (Original Mix) (3:35)
-02. Sheldon Correira - Vanity Experia (New York Sunset Mix) (3:36)
-03. Xavier Salo - Every Day (Original Mix) (5:06)
-04. Tim Washington - White Passion (Original Mix) (3:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF280590B6F46A91634ABF86698CE214F633D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537648   (666758) от 17.03.2022
-
-SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666758.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro11 для Panasonic предназначен для камеры Panasonic, выпущенной ограниченным тиражом. Это программное обеспечение для обработки формата RAW, которое оказывает мощную поддержку при создании собственных фоторабот с помощью различных функций настройки, таких как «Режимы композитинга», «Инструмент частичной коррекции» и «Dehaze» включены в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.03.2022Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B71FA65028BA098A820F6135E6F2D412E1B56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537557   (666757) от 17.03.2022
-
-Chillhop Guitar - Soothing Vacation (2022) [AAC|~344 Kbps] <Chill Out, Smooth Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiny Monsters (6:26)
-02. A Castle made of Ice (6:34)
-03. Shell Hunting (5:59)
-04. Origami (5:50)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB752BEB2F3F57762AB7F2283C39224FF29E4CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537120   (666756) от 17.03.2022
-
-VA - Sunrise Avenue, Vol. 2 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waldo Martinez - Loving Me (Original Mix) (5:46)
-02. Adrienne Gowan - Sunrise (Original Mix) (4:03)
-03. Zak Niemi - Free Your Mind (Original Mix) (4:31)
-04. Kevin Jenkins - So Many Hopes (Original Mix) (3:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537672   (666755) от 17.03.2022
-
-VA - Eargasm Chill Out, Vol. 4 (An Obsession of Erotic Lounge) (2015) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Seasons, Gushi - Bare Feet (5:09)
-02. 351 Lake Shore Drive - Flying Ants (4:19)
-03. Lemongrass - Supergalactic (3:59)
-04. The Diventa Project - Crying Soul (Mazelo Nostra Mix) (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9895A3413D66AAC2CC651A3FE40C08661802DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537669   (666754) от 17.03.2022
-
-VA - Eargasm Chill Out, Vol. 3 (An Obsession of Erotic Lounge) (2015) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Besame (Planet Chill Mix) (8:18)
-02. 351 Lake Shore Drive - Underwater Lights (5:02)
-03. Pianochocolate - Sacura (2:17)
-04. Lemongrass, Jane Maximova - Deep River (6:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7D536FE2CE7C65A5D292FC5357F4EEBF4ECFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536922   (666753) от 17.03.2022
-
-Малолетка - Памяти Юры Петлюры (2007) [AAC|~341 Kbps] <Chanson, Folk>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Суд девушки (5:05)
-02. Туманы (3:27)
-03. Стена (4:03)
-04. Ночь на кладбище (4:12)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537751   (666752) от 17.03.2022
-
-Agathodaimon - The Seven (2022) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Gothic Black Metal>
+Konvent - Call Down the Sun (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666752.jpg" />
+  <img src="Z:/picture/008/save_picture_669258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Haine (5:01)
-02. Ain't Death Grand (4:15)
-03. Wolf Within (5:07)
-04. Ghosts of Greed (5:15)(   Читать дальше...   )Жанр: Gothic Black MetalПродолжительность: 00:48:07
+01. Into the Distance (5:23)
+02. Sand is King (4:12)
+03. In the Soot (4:52)
+04. Grains (6:05)(   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 00:45:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29ECD5FB42FB05D0BF4522A055BC2B1264DF928E
+magnet:?xt=urn:btih:3CD37A70841818ED5ABEA4C1A7CBED1B627A1398
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,54 +82,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537578   (666751) от 17.03.2022
+###  Публикация: 798469   (669257) от 22.06.2014
 
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Ювентус (Италия) - Вильярреал (Испания) (16.03.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Ответный матч. Ювентус (Италия) - Вильярреал (Испания) (16.03.2021)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-Судья на линии 1: Сокольницкий Павел (Польша)
-Судья на линии 2: Листкевич Томаш (Польша)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B706EBD591C8F2F0997F23B6C50DE3A2D27B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537659   (666750) от 17.03.2022
-
-SILKYPIX JPEG Photography 11 v11.2.3.3 [En]
+Зной / Swelter (2014) BDRip [720p] [EN]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666750.jpg" />
+  <img src="Z:/picture/008/save_picture_669257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С SILKYPIX JPEG Photography вы можете раскрыть свой творческий потенциал. Улучшите свои фотографии в формате JPEG, сделанные цифровыми камерами, смартфонами и другими устройствами. Используйте инструменты четкости для настройки резкости, кисть выделения от руки и другие инструменты. Создайте высококачественную фотографию, которую вы себе представляли, когда делали (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+История о четырех сбежавших заключенных, которые прибывают в пыльный, маленький городок Калифорнии, где стоит невыносимая жара.
+Беглецы ищут пятого сбежавшего, который скрылся с $10 миллионами наличнымиПроизводство: США |  Grand Peaks Entertainment, Film Invaders, Exchange Peaks Film CapitalЖанр: Боевик, Триллер, ДрамаРежиссер: Кит ПармерАктеры: Ленни Джеймс, Грант Боулер, Каталина Сандино Морено, Альфред Молина, Джош Хендерсон, Жан-Клод Ван Дамм, Минди Робинсон, Фрея Тингли, Брэд Картер, Эбби МиллерПеревод: ОтсутствуетПродолжительность: 01:36:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EEDD150341A5FA196E9DB65F0D788E82B93885A
+magnet:?xt=urn:btih:D7381ABFDC469F35C546D52BF9E55FA531429202
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,24 +109,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537574   (666749) от 17.03.2022
+###  Публикация: 1536784   (669256) от 15.03.2022
 
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Лилль (Франция) - Челси (Англия) (16.03.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Cloven Hoof - Time Assassin (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666749.jpg" />
+  <img src="Z:/picture/008/save_picture_669256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Ответный матч. Лилль (Франция) - Челси (Англия) (16.03.2021)
-СУДЬЯ Масса Давиде (Империя, Италия)
-Судья на линии 1: Мели Филиппо (Италия)
-Судья на линии 2: Алассио Стефано (Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:59
+01. Guardians of the Universe (4:34)
+02. Liquidator (3:20)
+03. Lords of Death (4:24)
+04. After Forever (4:06)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D0A425FBCAC2B17483705226FA2156C5037BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537123   (669254) от 15.03.2022
+
+VA - Sunrise Avenue, Vol. 4 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Parker - Orange Lights (Original Mix) (4:54)
+02. Gil Ward - Fluctuate (Original Mix) (4:32)
+03. Bennett Robinson - Mister Key (Original Mix) (5:10)
+04. Jason Torres - Dorme Il Mare (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A92FC4C1B078341D5AF941D5AE5A8B46FEECE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537081   (669252) от 15.03.2022
+
+Atlantic - Power (1994) Reissue, 2008, Escape Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_669252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Only Love
+02. Power Over Me
+03. When The War Is Over
+04. Bad Blood(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:48
 
 ## Скачать торент
 ```bash
@@ -650,28 +196,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 900729   (666737) от 23.05.2015
+###  Публикация: 1537296   (669251) от 15.03.2022
 
-Bonfire - Glorious (2015) [FLAC|Lossless]<Melodic Hard Rock>
+Дарья Донцова | Джентльмен сыска Иван Подушкин (Книга 11). Яблоко Монте-Кристо (2022) [MP3, Денис Белых]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективное агентство «Ниро» снова взялось за расследование очень загадочного преступления. После разговора с призраком умершего сына от шока умерла клиентка агентства Зоя Вяземская.
+
+Хозяйка «Ниро» Элеонора на все сто уверена, что никакого призрака не было, а Зою кто-то убил таким вот изощренным образом. Расследовать же все это безобразие предстоит не кому иному, (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 10:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EBA70CFAAD0B05B8FE4CA63BDAEBD5337C5395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537214   (669250) от 15.03.2022
+
+VA - Hipster Punk (Hipster Punk) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это продукт рефлекторной попытки оглянуться назад и отыскать что-то светлое в прошлом, которая оборачивается довольно печальной констатацией факта, что и там на самом деле было мало хорошего. Но несмотря ни на что — это было не самое худшее время.001. Revenge Of The Psychotronic Man - Rrose Selavy
+002. The Thirtysevens - The Fools
+003. Grillijono K.O. - Kuluta Mut Loppuun
+004. Tove Lo - Are U Gonna Tell Her(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 09:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2FD6980C7607F8C9FDEC7E2A0CA233874CF676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536256   (669248) от 15.03.2022
+
+Wolves At The Gate - Eulogies (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666737.jpg" />
+  <img src="Z:/picture/008/save_picture_669248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 21 Guns Salute (Goes Boom)
-02. Nothin' At All
-03. Can't Break Away
-04. Remember(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:29
+01. Shadows
+02. Peace That Starts the War
+03. Kiss the Wave
+04. Lights & Fire(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:304ECDB97F7B04B022BC82B0A39227DE7745C1B7
+magnet:?xt=urn:btih:D84B62EAD4F311AD5AF7433E6F4F67D580910BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,26 +282,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 900524   (666736) от 23.05.2015
+###  Публикация: 798597   (669247) от 22.06.2014
 
-O.K. Савельева (сост.) | 100 лучших рецептов тортов и пирожных (2007) [PDF]
+Жена астронавта / The Astronaut's Wife (1999) BDRip [H.264/720p-LQ]
 
->>Разное (категория книг)
->>Кулинария
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666736.jpg" />
+  <img src="Z:/picture/008/save_picture_669247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Торты и пирожные — это воистину вершина кулинарного искусства. И наверняка ни один человек не сможет удержаться и не попробовать хотя бы кусочек изумительного изделия, испеченного любимой хозяйкой.
-В этой книге мы собрали для вас лучшие рецепты фруктовых, шоколадных, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+Находясь в открытом космосе, астронавт Спенсер Армакост (Джонни Депп) на несколько минут потерял связь с Землей. Но все обошлось, и экипажу удалось вернуться назад. Спенсер и его жена опять были вместе.
+Но вскоре Джиллиан (Шарлиз Терон) начинает подозревать, что ее муж стал другим. И если прежде она тревожилась за его жизнь, то теперь стала бояться за свою. Она оказалась (   Читать дальше...   )Производство: США / Mad Chance, New Line CinemaЖанр: Фантастика, Триллер, ДрамаРежиссер: Рэнд РэвичАктеры: Джонни Депп, Шарлиз Терон, Джо Мортон, Клеа ДюВалл, Донна Мерфи, Ник Кассаветис, Саманта Эггар, Гэри Граббс, Блэр Браун, Том НуненПеревод: Дублированный, авторскийПродолжительность: 01:49:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5371A8F996DDE9A27251D6C072F5AF65F38E6C81
+magnet:?xt=urn:btih:847EDBBE084BB6F358168824D3AF5165C4AE8BEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,25 +309,409 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 900833   (666731) от 23.05.2015
+###  Публикация: 1537181   (669246) от 15.03.2022
 
-BurnAware Professional 8.1 DC 22.05.2015 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+Лиссабонская история / Lisbon story (1994) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звукооператор Филипп Винтер получает открытку от своего друга, снимающего фильм в Лиссабоне, с просьбой помочь записать звуковую дорожку к фильму. Проезжая через всю Европу и добравшись, наконец, до Португалии, Филипп селится в квартире друга и, не найдя его самого, но обнаружив незаконченный фильм, приступает к работе. Проходив день с микрофоном, он возвращается (   Читать дальше...   )Производство: Германия, Португалия, Madragoa Filmes, Road Movies Filmproduktion, Wim Wenders StiftungЖанр: драма, музыкаРежиссер: Вим ВендерсАктеры: Рюдигер Фоглер, Патрик Бошо, Вашку Сикейра, Канту-и-Каштру, Вириату Жозе да Силва, Жуан Канижу, Рикарду Колариш, Жуэл Кунья Феррейра, София Бенар да Кошта, Вера Кунья РошаПеревод: авторский (Юрий Сербин)Субтитры: русские, английские, немецкие (SDH)Продолжительность: 01:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD88193741398457D93A0DA7625B9139A1FC8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537302   (669244) от 15.03.2022
+
+Ти Джей Клун | Дом в лазурном море (2022) [MP3, Дмитрий Стрелков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Линус Бейкер живет четко по расписанию: утром – работа инспектора в Департаменте по делам магической молодежи, вечером – уютные посиделки дома с кошкой и старыми пластинками. Линус не собирается ничего менять в своей жизни, пока в один прекрасный день не получает от Чрезвычайно Высокого Руководства серьезное задание… Инспектору предстоит отправиться в сиротский приют (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтези, Зарубежное фэнтезиПродолжительность: 12:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD04762E341E02B5362F1E932A2472E1B274CA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535968   (669242) от 15.03.2022
+
+Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [MP3|320 Kbps] <Sympho Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Howling (Instrumental) (05:39)
+02. What Have You Done (Instrumental) (05:14)
+03. Frozen (Instrumental) (04:29)
+04. Our Solemn Hour (Instrumental) (04:17)(   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 04:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559BD303AB144CDE5B7372EE5EE54469EBAD7994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537142   (669239) от 15.03.2022
+
+VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunz For Hire - Ongedierte van de Nacht
+02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
+03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
+04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776506   (669238) от 22.06.2014
+
+Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Нананы [2014, TV, 11 эп.] HDTV 720p raw
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666731.jpg" />
+  <img src="Z:/picture/008/save_picture_669238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+Главным героем выступает ОЯШ по имени Дзюго, от которого отрёкся родной отец, в результате чего парень был вынужден перевестись в старшую школу в «Особой Студенческой Зоне» на искусственном острове. Имея за душой всего 40 000 (около $400) месячного довольствия, Дзюго снимает самую дешёвую квартиру, где знакомится с Нананой, призраком прекрасной девушки, которая, однако, при жизни было NEET’ом. Причем, не смотря на сомнительный социальный статус, у Нананы было некое «сокровище, обладающее таинственной силой», которое ныне спрятано где-то на острове. К охоте за этим самым сокровищем и подключается главный герой, вместе с членами школьного клуба любителей приключений.
+
+© K-GЖанр: комедия, романтика, сверхъестественноеРежиссер: Камэй КантаПродолжительность: 11 серий по 24 минуты
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB4C4F357844124F2B7AA141587E7E4162D8589E
+magnet:?xt=urn:btih:8A23BA3ECB9E38CA3CDC8A23A19368EFD7F09AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537190   (669237) от 15.03.2022
+
+Firefox Browser 98.0.1 Portable by PortableApps [Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_669237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536014   (669235) от 15.03.2022
+
+Пламя - Время "Пик" (1982) [AAC|~344 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег кружится (4:14)
+02. Лабиринт (4:23)
+03. Сказка (3:49)
+04. Колосок золотой (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BF8B304174F1CA3A7C43686EE92C0F05BD19AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537167   (669234) от 15.03.2022
+
+Лиссабонская история / Lisbon story (1994) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звукооператор Филипп Винтер получает открытку от своего друга, снимающего фильм в Лиссабоне, с просьбой помочь записать звуковую дорожку к фильму. Проезжая через всю Европу и добравшись, наконец, до Португалии, Филипп селится в квартире друга и, не найдя его самого, но обнаружив незаконченный фильм, приступает к работе. Проходив день с микрофоном, он возвращается (   Читать дальше...   )Производство: Германия, Португалия, Madragoa Filmes, Road Movies Filmproduktion, Wim Wenders StiftungЖанр: драма, музыкаРежиссер: Вим ВендерсАктеры: Рюдигер Фоглер, Патрик Бошо, Вашку Сикейра, Канту-и-Каштру, Вириату Жозе да Силва, Жуан Канижу, Рикарду Колариш, Жуэл Кунья Феррейра, София Бенар да Кошта, Вера Кунья РошаПеревод: авторский (Юрий Сербин)Субтитры: русские, английскиеПродолжительность: 01:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9975AC5C7BCFDCF8252FF0E5F47BF6D48447748E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537019   (669233) от 15.03.2022
+
+VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paramore - Misery Business (3:31)
+02. Skillet - Feel Invincible (3:49)
+03. Linkin Park - Numb (3:07)
+04. Slipknot - Wait and Bleed (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 02:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537129   (669232) от 15.03.2022
+
+Дорога к дому / Jibeuro / The Way Home (2002) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вредный избалованный мальчишка вынужден некоторое время жить вдали от привычной ему городской суеты со своей немой бабушкой. Казалось бы, беспомощная старая женщина - удобный объект для проявления детской жестокости. Но бабушка терпелива и мудра, она обладает даром, против которого жестокость бессильна - даром любви.Производство: Южная Корея / CJ Entertainment, Tube EntertainmentЖанр: драма, семейныйРежиссер: Ли Джон-хянАктеры: Ким Ыль-бун, Ю Сын-хо, Тон Хё-хи, Мин Гён-хун, Лим Ын-гёнПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, КорейскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF462AD253AD2214B25897190174EAA15C7B4D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137049   (669227) от 25.05.2017
+
+Вечерний Ургант (2017.05.24) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:56Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4D617E0E161B9E413B799FEAAEC8C4A911E20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137119   (669226) от 25.05.2017
+
+Screens VNC 4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screens – это доступ к компьютеру из любой точки мира.
+
+Нужно доделать презентацию, а файл остался на домашнем компьютере? Требует срочного обновления ПО на удаленном сервере? Родители попросили помочь настроить компьютер, а заехать к ним все нет времени?
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Edovia Inc.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1FFE3EE74094D5E933ECC256B9A7E2F0A87550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137034   (669225) от 25.05.2017
+
+VA - Jazz Dictionary G (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konrad Paszkudzki Trio - A Gal in Calico (3:32)
+02. Keissy Costa - Garota De Ipanema (3:08)
+03. Barbara Carroll Trio - Gee Baby Ain't I Good to You (6:13)
+04. Jacob Fischer Trio - Gentle Rain (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191B6D83512A11F280031194C46697A663CA87B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137077   (669224) от 25.05.2017
+
+Omnicopter от ETH Zurich - беспилотник, который не имеет ни верха, ни низа, ни правой и левой стороны
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_669224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство созданных людьми летательных аппаратов имеют максимальную эффективность при полете в каком-либо определенном направлении. Даже такие аппараты, как вертолеты и квадрокоптеры имеют приоритетное направление полета, что обусловлено взаимным расположением их двигателей, аэродинамикой фюзеляжа, местом расположения стабилизирующих и управляющих плоскостей. Одним (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137100   (669223) от 25.05.2017
+
+Flux 7.0.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flux является передовым программным обеспечением для веб-дизайнеров, создающих сайты на XHTML и CSS. На западе Flux называют убийцей Dreamweaver. Флюкс может оказаться полезной тем, кто тыкал и пытался что-то сделать в iWeb, но не имеет терпения почитать книжек и запустить, например, Coda или Textmate. Flux поддерживает наиболее распространенные на сегодняшний день (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: The Escapers Ltd.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3128973ADED3EF751081B477A58E2AE78333C358
 ```
 
 https://mybot314.ru/tekegram_catalog/

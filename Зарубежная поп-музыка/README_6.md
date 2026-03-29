@@ -6,7 +6,7 @@ Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996213.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Francesco Napoli - Disco Italiano (2010) [MP3|~225 кб/с (V1)]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996134.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Gazebo - Greatest Hits (1991) [MP3|320 кб/с]<pop, disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996070.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gianni Morandi - Rinascimento - Collezione (2011) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995171.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Diana Ross - Love & Life - The Very Best Of Diana Ross (2CD) (2001) [MP3|320 к�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995125.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Viola Valentino - 4 альбома (2004-2010) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994807.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Joe Dolan - 4 альбома (1975-1993) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994664.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Halsey - Manic (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993286.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Pop Giganten NDW (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992685.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Johnny Burnette - The Ballads Of (2010) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991285.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Radio Italia Love (2CD) (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990726.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ C.C.Catch - 25th Anniversary Box (5CD) (2011) [MP3|320 kbps] <Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988683.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - 100 Hits Winter (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986980.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Alizee - The Best Songs (2013) [MP3|320 кб/с]<pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986620.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Klusters - Olbers' Paradox (2015) [OGG|406-488 кб/с] <Alternative Pop, Psyche
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984644.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - 100 Greatest 21st Century Number 1s (2020) [MP3|320 Kbps] <Pop, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983444.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ WeAreCastor - Invade & Disco (2014) [MP3|320 кб/с] <Alternative Pop, Nu Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981932.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - 100 Greatest Feel Good (2020) [MP3|320 Kbps] <Pop, R&B, Disco, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981048.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Smash Hits volume 1 (1995) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980772.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Fashion TV. Самые модные хиты (2005) [MP3|224 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980675.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Ed Sheeran - X (2014) UK Deluxe Edition [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980634.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Chilly & Cherry Laine - Stars Of A World Disco (3CD) (2011) [MP3|320 кб/с]<п
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979465.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - 3am Collection: Grooves, Hits, Party (2004) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978186.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Mirko Hirsch - Obsession (2011) [MP3|320 kbps]<Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977956.jpg" />
 </div>
 
 
@@ -759,7 +759,7 @@ Liz Mitchell (Ex-Boney M) - Let It Be (2004) [MP3|320 кб/с]<Pop,Disco,Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977494.jpg" />
 </div>
 
 
@@ -794,7 +794,7 @@ Andrea Bocelli - Passione [Deluxe Edition] (2013) [MP3|320 кб/с]<Pop/Classica
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977300.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1724455   (55966) от 20.05.2024
+
+Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в глубоком космосе, на очевидно заброшенной шахте на астероиде Альфа Прайм, что-то пошло крайне не так. Шахтеры были предупреждены, что хаббардий, который они выкапывали, был слишком опасен, но соблазн невообразимого богатства был слишком силен. Теперь что-то произошло с ними и это ваше дело спасти их и встретиться с неизвестной угрозой. Оснастившись избытком (   Читать дальше...   )Тип издания: RepackРазработчик: Black ElementЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38979316B5A5EF4A6657341D481513C68DFDB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725153   (55664) от 23.05.2024
+
+Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55664.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Back 4 Blood разворачивается вокруг зомби-апокалипсиса, погубившего большую часть человечества. Те, кто выжил из-за смертельно опасных паразитов превратились в жутких монстров, с ними и будут бороться главные герои – Чистильщики. Это ветераны, которые объединились в группу и приняли бой с нежитью, чтобы уничтожить этих существ и спасти мир. Это шутер от первого (   Читать дальше...   )Тип издания: SceneРазработчик: Turtle Rock StudiosЖанр: Экшены от первого лицаЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DD75361F1E8D860B4FDB932232E1A944CE7EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699664   (55590) от 24.05.2024
+
+System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55590.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Shock 2023 - ремейк легендарного иммерсив-сима в сеттинге киберпанка, переносящая игрока в 2072 год и дающая почувствовать себя непревзойденным хакером, чтобы помешать планам злобного искусственного интеллекта SHODAN. Сюжет игры стартует с момента, когда хакера, пытающийся взломать доступ станции Цитадель, ловит корпорация TriOptimum. Эдвардом Диего - глава (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive StudiosЖанр: Action, FPS, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323A0A545CD2100BF627267B6CE2472A1418166A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716069   (55489) от 25.05.2024
+
+System Shock Remake (2023) [Ru/Multi] (1.2.318898) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55489.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Shock 2023 - ремейк легендарного иммерсив-сима в сеттинге киберпанка, переносящая игрока в 2072 год и дающая почувствовать себя непревзойденным хакером, чтобы помешать планам злобного искусственного интеллекта SHODAN. Сюжет игры стартует с момента, когда хакера, пытающийся взломать доступ станции Цитадель, ловит корпорация TriOptimum. Эдвардом Диего - глава (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive StudiosЖанр: Action, FPS, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870963B05F15E3B4E522D7355AD9FB94E63AA315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314847   (54852) от 31.05.2024
 
 BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
@@ -6,7 +110,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54852.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54758.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54732.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54647.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54646.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54632.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54623.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54618.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54614.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54547.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ RIPOUT (2024) [Ru/Multi] (1.0:01) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54520.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) Repack FitGirl [Complete E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54514.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54512.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54438.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54437.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54408.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54385.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54337.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0u9/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54332.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54328.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54325.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54300.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Crysis: Warhead - продолжение приключенческого шут
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3990DE01AFC8560EE7D67C84D5572939B68B5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728334   (54195) от 06.06.2024
-
-Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это научно-фантастическая игра на выживание в жанре "ужасы", в которой сочетаются свободное исследование мрачного мира, сложные бои, уникальный крафтинг и нелинейный сюжет. Попробуйте выжить и раскрыть запутанные тайны Чернобыля в воссозданной с помощью 3D-сканирования реальной Зоне отчуждения. Помните, что присутствие военных – не единственная ваша проблема.Тип издания: RepackРазработчик: The Farm 51Жанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65062100257BA8B3AEC486981688626E5C5E53BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728420   (54123) от 07.06.2024
-
-Far Cry 3 Дилогия (2012-2013) [Ru/Multi] (1.05/1.02/dlc) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Far Cry 3: Blood Dragon - футуристический шутер с видом от первого лица во вселенной Far Cry. Год 2007. Это будущее. Земля была разорена в результате ядерной войны и новые пути для мира должны быть найдены. Армия США-киборгов, возможно, нашла решение: мощное биологическое оружие на далеком острове. Марк IV кибер-командос, сержант Рекс "Мощный Кольт" были (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Шутер от первого лицаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C14096FDEF5855928D411906234F4435E31C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728917   (53893) от 09.06.2024
-
-Red Faction (2001) [Ru/En] (1.21) Repack dixen18
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53893.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Red Faction ваш персонаж – Паркер, усталый шахтер, который работает на порочную корпорацию «Ультор» на Марсе, в далеком будущем. Когда в шахтерском поселке начинается чума, некоторые сотрудники корпорации обнаруживают страшный заговор. И простые рабочие под предводительством образованного Паркера начинают бороться за прекращение жутких экспериментов, которые проводятся (   Читать дальше...   )Тип издания: RepackРазработчик: VolitionЖанр: Шутеры, От первого лица, ФантастикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF3511159AAF7942B944094CACF6B94AADA1E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729119   (53784) от 10.06.2024
-
-TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Айден Крон совершил временной скачок через пространственно-временной континуум - достаточно необдуманный поступок с ужасными последствиями. Теперь потревоженная альтернативная реальность эволюционировала внутри холодного и сырого района Альфа. С помощью своего экспериментального бета-костюма только вы способны замедлить, остановить или обратить вспять ход (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83F403B2FDBF5F6F6BF2247B88606DC8A0D684E
 ```
 
 https://mybot314.ru/tekegram_catalog/

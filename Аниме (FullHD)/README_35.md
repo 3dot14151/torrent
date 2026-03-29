@@ -1,3 +1,166 @@
+###  Публикация: 1251291   (420038) от 30.09.2018
+
+Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-антология, состоящий из трёх коротких историй, каждая из которых происходит в одном из китайских городов, и с основной темой для каждой:
+1. «Солнечный завтрак» (город — Пекин, тема — еда);
+2. «Маленький показ мод» (город — Гуанчжоу, тема — одежда).
+3. «Любовь в Шанхае» (город — Шанхай, тема — кров).Жанр: повседневностьРежиссер: Такэути ЁситакаПеревод: SovetRomantica; NetflixЯзык озвучки: ЯпонскийСубтитры: Русские; Английские (MultiSub)Продолжительность: 80 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E4BDD5F3472F6108D8A274F096CBDB2C5D428E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251310   (419858) от 30.09.2018
+
+Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 1080p 10bit raw [Theatrical Cut]
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно профессор Орланд, влиятельная фигура в книгопечатной промышленности, изобрел новую печатную машину для своей жены Молли, чтобы она могла писать романы после потери зрения. Машина получила вид небольшой прекрасной куклы. Вложив в него свое сердце и надежды, профессор назвал его «самопишущая кукла». В конце концов, его изобретение стало широко распространено, (   Читать дальше...   )Жанр: приключения, драмаРежиссер: Исидатэ ТайтиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ~ 90 минут x4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F94E99D5830DEFFFC580CB8F52F743383F8176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251312   (419702) от 30.09.2018
+
+Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно профессор Орланд, влиятельная фигура в книгопечатной промышленности, изобрел новую печатную машину для своей жены Молли, чтобы она могла писать романы после потери зрения. Машина получила вид небольшой прекрасной куклы. Вложив в него свое сердце и надежды, профессор назвал его «самопишущая кукла». В конце концов, его изобретение стало широко распространено, (   Читать дальше...   )Жанр: повседневность, драмаРежиссер: Исидатэ ТайтиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 14 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F46BE3C4F95462495F0A1F6C74FF592618052F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412483   (418207) от 29.09.2020
+
+Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 2 [2019, TV, 13 из 13] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка очаровывает, восхищает, заставляет задуматься и отвлечься от повседневной суеты. Звуки, которые профессионалы извлекают из музыкальных инструментов, — каждый прекрасен по-своему. Но те, что создают дилетанты, неумело и неловко — тоже могут вызвать бурю эмоций. Пусть еще не виртуозы, а всего лишь любители, собравшись вместе и вложив душу, некоторые из них могут (   Читать дальше...   )Производство: Platinumvision / プラチナビジョンЖанр: повседневность, романтика, драмаРежиссер: Мидзуно РёмаПеревод: AkiraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485F888CB53025993397131FE00AF00951C36B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412482   (418203) от 29.09.2020
+
+Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [2019, TV, 13 из 13] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кото — традиционный японский музыкальный инструмент. Струнный, громоздкий, непопулярный. Чем он может заинтересовать обычного школьника с ветром в голове и смартфоном в руках? Волшебным звучанием, чем же ещё! И хотя Такэдзо Курата стал членом школьного клуба кото, как он сначала считал, по ошибке, стоило ему втянуться — и мир вокруг зазвучал по-новому.
+Время шло, (   Читать дальше...   )Производство: Platinumvision / プラチナビジョンЖанр: повседневность, романтика, драмаРежиссер: Мидзуно РёмаПеревод: AkiraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CE5D3545F0022B69C46338AE436B7E524CD5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412455   (418189) от 29.09.2020
+
+Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-волшебница Иллия OVA-3 | Судьба/Калейдопутница Призматическая Иллия: Призматическая Фантазия [2019, OVA, 1 эп.] BDRIp 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой комедийный альманах по миру "Девочки-волшебницы Илии" в духе "Карнавального фантазма" расскажет несколько историй об основных и второстепенных героях сериала:
+- Несколько неудачных попыток Руби найти подходящую кандидатуру на роль девочки-волшебницы;
+- День открытых дверей в лапшичной Котомине Кирея, где подают адски острые блюда;
+- (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключенияРежиссер: Онума СинПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 65 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC40F1E56DFEB6767557BB7B38F0AEBDF9E109A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412474   (417830) от 29.09.2020
 
 Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 10-bit raw
@@ -6,7 +169,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417830.jpg" />
+  <img src="Z:/picture/008/save_picture_417830.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417541.jpg" />
+  <img src="Z:/picture/008/save_picture_417541.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415893.jpg" />
+  <img src="Z:/picture/008/save_picture_415893.jpg" />
 </div>
 
 
@@ -85,7 +248,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415707.jpg" />
+  <img src="Z:/picture/008/save_picture_415707.jpg" />
 </div>
 
 
@@ -111,7 +274,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414546.jpg" />
+  <img src="Z:/picture/008/save_picture_414546.jpg" />
 </div>
 
 
@@ -137,7 +300,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413605.jpg" />
+  <img src="Z:/picture/008/save_picture_413605.jpg" />
 </div>
 
 
@@ -163,7 +326,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412717.jpg" />
+  <img src="Z:/picture/008/save_picture_412717.jpg" />
 </div>
 
 
@@ -189,7 +352,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412591.jpg" />
+  <img src="Z:/picture/008/save_picture_412591.jpg" />
 </div>
 
 
@@ -217,7 +380,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408212.jpg" />
+  <img src="Z:/picture/008/save_picture_408212.jpg" />
 </div>
 
 
@@ -244,7 +407,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406727.jpg" />
+  <img src="Z:/picture/008/save_picture_406727.jpg" />
 </div>
 
 
@@ -270,7 +433,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399305.jpg" />
+  <img src="Z:/picture/008/save_picture_399305.jpg" />
 </div>
 
 
@@ -296,7 +459,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391726.jpg" />
+  <img src="Z:/picture/008/save_picture_391726.jpg" />
 </div>
 
 
@@ -322,7 +485,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391712.jpg" />
+  <img src="Z:/picture/008/save_picture_391712.jpg" />
 </div>
 
 
@@ -348,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391699.jpg" />
+  <img src="Z:/picture/008/save_picture_391699.jpg" />
 </div>
 
 
@@ -376,7 +539,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390233.jpg" />
+  <img src="Z:/picture/008/save_picture_390233.jpg" />
 </div>
 
 
@@ -402,7 +565,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388956.jpg" />
+  <img src="Z:/picture/008/save_picture_388956.jpg" />
 </div>
 
 
@@ -431,7 +594,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388769.jpg" />
+  <img src="Z:/picture/008/save_picture_388769.jpg" />
 </div>
 
 
@@ -457,7 +620,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387590.jpg" />
+  <img src="Z:/picture/008/save_picture_387590.jpg" />
 </div>
 
 
@@ -483,7 +646,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387273.jpg" />
+  <img src="Z:/picture/008/save_picture_387273.jpg" />
 </div>
 
 
@@ -509,7 +672,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386807.jpg" />
+  <img src="Z:/picture/008/save_picture_386807.jpg" />
 </div>
 
 
@@ -522,162 +685,6 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61131A577DAF0B6E4080CD27ED3915EB2E2900E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067452   (386227) от 29.10.2016
-
-Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайти Манацу вырос на острове Танэгасима, в сердце японской космической программы. После гибели отца-астронавта мальчик уехал с острова и вернулся уже 17-летним подростком. Гуляя по знакомым до боли местам, парень заглянул в заброшенный ангар, где, как и положено, встретил свою судьбу. Теперь Дайти – пилот боевого робота и лидер команды защиты Земли, состоящей из (   Читать дальше...   )Жанр: приключения, фантастика, меха, романтикаРежиссер: Игараси Такуя / Igarashi Takuya / 五十嵐卓哉Продолжительность: 25 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B7DB91516B8177BBC4D39AC784A2FF1C4B7711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719411   (385639) от 05.11.2013
-
-Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на утесе [2008, MV] BDRip 1080p Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Сосукэ – моряк, мать – социальный работник, а сам он – маленький мальчик из дома на утесе. Однажды утром он находит в море удивительную рыбешку: у нее человеческое лицо и красные плавнички, она любит колбасу и умеет колдовать. Сосукэ называет свою находку «Поньо» и решает беречь и защищать. Откуда ему знать, что он выловил дочь морской владычицы и тем обрек (   Читать дальше...   )Жанр: сказка, приключения, повседневностьРежиссер: Миядзаки ХаяоСубтитры: •Продолжительность: 101 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFE57FBB0574876DE576D9979C0EE517146C45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414564   (385505) от 08.10.2020
-
-Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? OVA [2019, OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чино выбрана для сольной партии на концерте. Чино просит Ризе помочь ей привыкнуть к пению на глазах у других, и поэтому они устраивают караоке-турнир. Но пока Чино тренируется, все слишком взволнованы предстоящим событием, заставляя Чино нервничать.Производство: Production doAЖанр: комедия, повседневностьРежиссер: Hashimoto HiroyukiПеревод: ХельшиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A25EF89688F82EB9704B073F65B3D832139ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414561   (385504) от 08.10.2020
-
-Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали? (спэшл) [2017, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кокоа навещает свою семью в горах спустя некоторое время после того, как ее сестра Мокко написала ей письмо, чтобы она скорее вернулась. Ее друзьям придется провести неделю в городе без нее, в то время как Кокоа проводит время с семьей, которую она давно не видела. Но Чино, самопровозглашенная младшая сестра Кокоа, хочет вместе с Какао и всеми ее друзьями посмотреть (   Читать дальше...   )Производство: Студия Production doAЖанр: комедия, повседневностьРежиссер: Hashimoto HiroyukiПеревод: iazЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D3831BFCBA70F40D17CA527B494ECB9D3E23B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944178   (384258) от 30.10.2016
-
-Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружки! [2015, TV, 12 эп] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384258.jpg" />
-</div>
-
-
-###  Подробнее
-
-В средней школе Нанамори продолжаются приключения четырех девчонок, основавших «Клуб развлечений»! Кёко Тосино, заводила компании, продолжает рисовать додзинси, сходить с ума от аниме-идола Миракурун и ставить всю школу на уши, несмотря на голос здравого смысла в лице лучшей подруги Юй Фунами. Новичок Тинацу Ёсикава, отлично вписавшаяся в группу, твердо отбивается (   Читать дальше...   )Производство: Жанр: комедия, повседневностьРежиссер: Хата ХироюкиПеревод: 1) GMC; 2) Усатый НяЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 00:25 x12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF88AE308FBF9E186E92EA11838BCFA29212038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067451   (384159) от 30.10.2016
-
-One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во вселенной комиксов никто не удивляется монстрам, злодеям и безумным ученым. Они как явления природы – неприятно, конечно, но что поделаешь? Главное, чтобы хватало героев для защиты простых людей, а дальше – как повезет. И надо же такому случиться, что Сайтама - сильнейший из героев Зет-Сити – на борца за мир и справедливость вообще не похож: лысый, невысокий, (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Нацумэ Синго / Natsume Shingo / 夏目真悟Продолжительность: 12 серии по 25 мин + 6 спэшлов по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534FC964361753F71BBB4FB5CA3693FC275E109C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NG:Взгляд изнутри. Одиночное заключение / NG:Ins
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842661.jpg" />
+  <img src="Z:/picture/008/save_picture_842661.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842659.jpg" />
+  <img src="Z:/picture/008/save_picture_842659.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NirLauncher Package 1.23.19 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842649.jpg" />
+  <img src="Z:/picture/008/save_picture_842649.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Русский DJ (2011) [MP3|128 kbps]<Pop, Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842648.jpg" />
+  <img src="Z:/picture/008/save_picture_842648.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_842644.jpg" />
+  <img src="Z:/picture/009/save_picture_842644.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842641.jpg" />
+  <img src="Z:/picture/008/save_picture_842641.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ ZW3D 2016 20.00 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842632.jpg" />
+  <img src="Z:/picture/008/save_picture_842632.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Sandboxie 5.52.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842617.jpg" />
+  <img src="Z:/picture/008/save_picture_842617.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ GeoGebra 6.0.668.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842608.jpg" />
+  <img src="Z:/picture/008/save_picture_842608.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842596.jpg" />
+  <img src="Z:/picture/008/save_picture_842596.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Digital Clock 4.5.4 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842593.jpg" />
+  <img src="Z:/picture/008/save_picture_842593.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ SideFx Houdini FX 16.0.504.20 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842589.jpg" />
+  <img src="Z:/picture/008/save_picture_842589.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tor Browser Bundle 6.5.1 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842584.jpg" />
+  <img src="Z:/picture/008/save_picture_842584.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ qBittorrent 4.2.5 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842557.jpg" />
+  <img src="Z:/picture/008/save_picture_842557.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842535.jpg" />
+  <img src="Z:/picture/008/save_picture_842535.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842519.jpg" />
+  <img src="Z:/picture/008/save_picture_842519.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842518.jpg" />
+  <img src="Z:/picture/008/save_picture_842518.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842498.jpg" />
+  <img src="Z:/picture/008/save_picture_842498.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842495.jpg" />
+  <img src="Z:/picture/008/save_picture_842495.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Process Lasso Pro 10.3.0.50 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842486.jpg" />
+  <img src="Z:/picture/008/save_picture_842486.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Reveal Sound - Spire 1.5.10 VSTi, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842483.jpg" />
+  <img src="Z:/picture/008/save_picture_842483.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ FinePrint 11.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842481.jpg" />
+  <img src="Z:/picture/008/save_picture_842481.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Opera 80.0.4170.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842476.jpg" />
+  <img src="Z:/picture/008/save_picture_842476.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Paint.NET 4.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842465.jpg" />
+  <img src="Z:/picture/008/save_picture_842465.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842462.jpg" />
+  <img src="Z:/picture/008/save_picture_842462.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Within Temptation - The Unforgiving (2011) [MP3|192-320 kbps]<Symphonic Gothic M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842396.jpg" />
+  <img src="Z:/picture/008/save_picture_842396.jpg" />
 </div>
 
 

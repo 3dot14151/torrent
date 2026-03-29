@@ -6,7 +6,7 @@ TweakPower 1.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783022.jpg" />
+  <img src="Z:/picture/008/save_picture_783022.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XnView Classic 2.49.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783020.jpg" />
+  <img src="Z:/picture/008/save_picture_783020.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Bridge 2020 10.1.0.163 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783018.jpg" />
+  <img src="Z:/picture/008/save_picture_783018.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (06.2020) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782993.jpg" />
+  <img src="Z:/picture/008/save_picture_782993.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Geek Uninstaller 1.4.5 Build 124 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782943.jpg" />
+  <img src="Z:/picture/008/save_picture_782943.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aiseesoft Screen Recorder 1.1.30 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782925.jpg" />
+  <img src="Z:/picture/008/save_picture_782925.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Norton AntiVirus 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782902.jpg" />
+  <img src="Z:/picture/008/save_picture_782902.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Daum PotPlayer 1.7.8557 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782899.jpg" />
+  <img src="Z:/picture/008/save_picture_782899.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Norton 360 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782894.jpg" />
+  <img src="Z:/picture/008/save_picture_782894.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DP Animation Maker 3.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782893.jpg" />
+  <img src="Z:/picture/008/save_picture_782893.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Icecream PDF Converter PRO 2.75 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782887.jpg" />
+  <img src="Z:/picture/008/save_picture_782887.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Norton Internet Security 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782886.jpg" />
+  <img src="Z:/picture/008/save_picture_782886.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Alcohol 120% 2.0.3.10203 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782883.jpg" />
+  <img src="Z:/picture/008/save_picture_782883.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Alcohol 120% 2.0.3.10203 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782881.jpg" />
+  <img src="Z:/picture/008/save_picture_782881.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ DU Meter 7.30 Build 4769 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782880.jpg" />
+  <img src="Z:/picture/008/save_picture_782880.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Movavi Video Converter 18.1.2 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782876.jpg" />
+  <img src="Z:/picture/008/save_picture_782876.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Icecream Ebook Reader PRO 5.07 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782873.jpg" />
+  <img src="Z:/picture/008/save_picture_782873.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Techsmith Snagit 2018.1.0 Build 775 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782854.jpg" />
+  <img src="Z:/picture/008/save_picture_782854.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bookmanager modelplusmodel 2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782848.jpg" />
+  <img src="Z:/picture/008/save_picture_782848.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782844.jpg" />
+  <img src="Z:/picture/008/save_picture_782844.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ESET Internet Security 11.0.159.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782810.jpg" />
+  <img src="Z:/picture/008/save_picture_782810.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ DU Meter 7.30.Build 4769 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782807.jpg" />
+  <img src="Z:/picture/008/save_picture_782807.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ESET NOD32 Antivirus 11.0.159.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782805.jpg" />
+  <img src="Z:/picture/008/save_picture_782805.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Windows 7 Ultimate SP1 x64 Plus Office 2010 StartSoft Generation DVD 06-07 2018 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782804.jpg" />
+  <img src="Z:/picture/008/save_picture_782804.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VirtualBox 3.1.8 build 61349 Final [Русский(ML)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782768.jpg" />
+  <img src="Z:/picture/008/save_picture_782768.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Vivaldi 3.1.1929.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782729.jpg" />
+  <img src="Z:/picture/008/save_picture_782729.jpg" />
 </div>
 
 

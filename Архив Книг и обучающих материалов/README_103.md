@@ -1,3 +1,29 @@
+###  Публикация: 815605   (551559) от 24.08.2014
+
+Подшивка журналов | Теле-AudioVision №07-10 (июль-октябрь 2014) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупнейший в мире журнал о бизнесе цифрового ТВ. Представлены обзоры новинок электронных устройств и их характеристики, новости с международных выставок.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7119FDD558377D87DEAEF1CBF8B69F7439F365F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046563   (551095) от 28.08.2016
 
 Журнал | Servo Magazine №9 (сентябрь 2016) [PDF] [En]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551095.jpg" />
+  <img src="Z:/picture/008/save_picture_551095.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551019.jpg" />
+  <img src="Z:/picture/008/save_picture_551019.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550942.jpg" />
+  <img src="Z:/picture/008/save_picture_550942.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550930.jpg" />
+  <img src="Z:/picture/008/save_picture_550930.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550921.jpg" />
+  <img src="Z:/picture/008/save_picture_550921.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550783.jpg" />
+  <img src="Z:/picture/008/save_picture_550783.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550051.jpg" />
+  <img src="Z:/picture/008/save_picture_550051.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549825.jpg" />
+  <img src="Z:/picture/008/save_picture_549825.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549762.jpg" />
+  <img src="Z:/picture/008/save_picture_549762.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549760.jpg" />
+  <img src="Z:/picture/008/save_picture_549760.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549758.jpg" />
+  <img src="Z:/picture/008/save_picture_549758.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549756.jpg" />
+  <img src="Z:/picture/008/save_picture_549756.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549165.jpg" />
+  <img src="Z:/picture/008/save_picture_549165.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549164.jpg" />
+  <img src="Z:/picture/008/save_picture_549164.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548986.jpg" />
+  <img src="Z:/picture/008/save_picture_548986.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548854.jpg" />
+  <img src="Z:/picture/008/save_picture_548854.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548849.jpg" />
+  <img src="Z:/picture/008/save_picture_548849.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548848.jpg" />
+  <img src="Z:/picture/008/save_picture_548848.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548846.jpg" />
+  <img src="Z:/picture/008/save_picture_548846.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548668.jpg" />
+  <img src="Z:/picture/008/save_picture_548668.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548563.jpg" />
+  <img src="Z:/picture/008/save_picture_548563.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548338.jpg" />
+  <img src="Z:/picture/008/save_picture_548338.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548262.jpg" />
+  <img src="Z:/picture/008/save_picture_548262.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548252.jpg" />
+  <img src="Z:/picture/008/save_picture_548252.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548003.jpg" />
+  <img src="Z:/picture/008/save_picture_548003.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05E9BF0B0F3E368ED08BC6BA985EA0F91CED2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310235   (547854) от 23.06.2019
-
-Журнал | История от "Русской семёрки" №6 (2019) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «История от «Русской Семерки»» - уникальный журнал, охватывающий все аспекты истории мировой цивилизации.
-Исторический журнал нового поколения, позволяющий узнать о ключевых событиях российской и мировой истории в доступной, современной и развлекательной форме.
-Журналисты проекта по-новому раскрывают известные исторические события, исторические фигуры, открывают (   Читать дальше...   )Жанр: популярный исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE73890D888934EF5987378809504E9972F9090A
 ```
 
 https://mybot314.ru/tekegram_catalog/

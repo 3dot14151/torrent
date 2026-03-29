@@ -1,3 +1,139 @@
+###  Публикация: 1371498   (890276) от 31.03.2020
+
+И. Кушнерев (Ред.) | Как Паша старался быть добрым мальчиком (1894) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская литература, 19 в.
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0B82AB9777EF4078C17A1313FDA995F45E3691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371499   (890275) от 31.03.2020
+
+Павел Соколов | Снегурочка (1894) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки народов мира. В произведениях русских поэтов и писателей.
+Для детей младшего школьного возраста.Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A1E03E075D0F243F800FA67BF884046383CE2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371501   (890270) от 31.03.2020
+
+Александра Щепкина | Мельница на овраге (1894) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36B8D4E8B29A0F73CDDDF8627CB87F58D6F9849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371500   (890196) от 31.03.2020
+
+Павел Соколов | Мальчик с пальчик (1894) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки народов мира. В произведениях русских поэтов и писателей.
+Для детей младшего школьного возраста.Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D03BB9DEA7E941E81BA4678DE6D062DF84F3BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371551   (890143) от 31.03.2020
+
+Народная сказка | Баба-Яга [4 книги] (1908, 1916, 1918, 1930) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская народная сказка.
+Баба-Яга - 1908. Типография Т-ва И.Д. Сытина, Москва. (32 стр.)
+Баба-Яга - 1916. Типография Т-ва И.Д. Сытина, Москва.  (22 стр.)
+Баба-Яга - 1918. Типография Т-ва И.Д. Сытина, Москва.  (22 стр.)(   Читать дальше...   )Жанр: Русские народные сказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F74A424F4DA3516C0614B036704FF4674D1BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994538   (889874) от 08.03.2016
 
 Виктор Авдеев | Моя Одиссея (1960) [FB2, DOC]
@@ -6,7 +142,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889874.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889737.jpg" />
+  <img src="Z:/picture/005/save_picture_889737.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889729.jpg" />
+  <img src="Z:/picture/005/save_picture_889729.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889725.jpg" />
+  <img src="Z:/picture/005/save_picture_889725.jpg" />
 </div>
 
 
@@ -111,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889619.jpg" />
+  <img src="Z:/picture/005/save_picture_889619.jpg" />
 </div>
 
 
@@ -137,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889618.jpg" />
+  <img src="Z:/picture/005/save_picture_889618.jpg" />
 </div>
 
 
@@ -163,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889528.jpg" />
+  <img src="Z:/picture/005/save_picture_889528.jpg" />
 </div>
 
 
@@ -192,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889232.jpg" />
+  <img src="Z:/picture/005/save_picture_889232.jpg" />
 </div>
 
 
@@ -220,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888820.jpg" />
+  <img src="Z:/picture/005/save_picture_888820.jpg" />
 </div>
 
 
@@ -246,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888724.jpg" />
+  <img src="Z:/picture/005/save_picture_888724.jpg" />
 </div>
 
 
@@ -272,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887703.jpg" />
+  <img src="Z:/picture/005/save_picture_887703.jpg" />
 </div>
 
 
@@ -298,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887594.jpg" />
+  <img src="Z:/picture/005/save_picture_887594.jpg" />
 </div>
 
 
@@ -325,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887466.jpg" />
+  <img src="Z:/picture/005/save_picture_887466.jpg" />
 </div>
 
 
@@ -351,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887451.jpg" />
+  <img src="Z:/picture/005/save_picture_887451.jpg" />
 </div>
 
 
@@ -377,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887403.jpg" />
+  <img src="Z:/picture/005/save_picture_887403.jpg" />
 </div>
 
 
@@ -403,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_887248.jpg" />
+  <img src="Z:/picture/008/save_picture_887248.jpg" />
 </div>
 
 
@@ -430,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887233.jpg" />
+  <img src="Z:/picture/005/save_picture_887233.jpg" />
 </div>
 
 
@@ -456,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887224.jpg" />
+  <img src="Z:/picture/005/save_picture_887224.jpg" />
 </div>
 
 
@@ -483,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887215.jpg" />
+  <img src="Z:/picture/005/save_picture_887215.jpg" />
 </div>
 
 
@@ -509,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887180.jpg" />
+  <img src="Z:/picture/005/save_picture_887180.jpg" />
 </div>
 
 
@@ -535,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886982.jpg" />
+  <img src="Z:/picture/005/save_picture_886982.jpg" />
 </div>
 
 
@@ -546,140 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E95F5D466B7AA2039908BA28B09F45EBF0A93469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371923   (886962) от 02.04.2020
-
-Эйко Кадоно | Цикл "Ведьмина служба доставки" [5 книг] (2018-2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эйко Кадоно написала свои первые рассказы о Кики в 1985 году. Вдохновленная успехом и многочисленными литературными наградами Японии, она продолжила историю юной ведьмочки — на радость поклонникам, среди которых оказался и великий Хаяо Миядзаки, создавший на основе книг Кадоно свой мультипликационный шедевр 1989 года. А в 2014 году вышел и полнометражный художественный (   Читать дальше...   )Жанр: Приключения для детей и подростков, Фантастика для детейПеревод: Галина Викторовна СоловьеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C00F6D286B1F95AB186A60F824B6532632415DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372276   (886883) от 02.04.2020
-
-Соман Чайнани | Цикл: «Школа Добра и Зла» [5 книг] (2018-2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бестселлер в жанре детского фэнтези! Серия «Школа добра и зла» напоминает Диснеевский фильм наоборот. На поверхности мы видим светлую, сказочную историю, но внутри она полна тёмных тайн.
-История серии - тот самый случай, когда начинающий автор в одночасье стал знаменит. Соман Чайнани – английский писатель, с отличием окончивший Гарвардский и Колумбийский университеты. (   Читать дальше...   )Жанр: Героическое фэнтези, Фэнтези для детейПеревод: Константин МольковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A558CC68B4A69D6C79D985A144A64EA57A75F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372236   (886867) от 02.04.2020
-
-Лорена Паджалунга | Играем в йогу утром (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети от природы очень активны, и поэтому перед родителями стоит непростая задача — научить их не просто высвобождать и растрачивать эту энергию, а правильно ее использовать.
-
-Вот почему так важно предлагать детям заниматься йогой, особенно по утрам. Утренние упражнения отлично помогают проснуться и подготовиться к новому дню, чтобы войти в него энергичными и позитивным, (   Читать дальше...   )Жанр: Воспитание детей, Йога, ПедагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256F123D694E555EBD00D25CE0295FC822F1012E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870058   (886241) от 18.02.2015
-
-Юлия Кузнецова | Выдуманный Жучок (2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть Юлии Кузнецовой «Выдуманный Жучок» — лауреат Национальной детской литературной премии «Заветная мечта-2009» — посвящена жизни детей, страдающих от тяжелых заболеваний. Действие происходит в больнице, где юные герои живут и взрослеют. Играют и придумывают сказки, как и их здоровые ровесники. Учатся сочувствовать, понимать, бороться и побеждать. Больничная (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2021F3B620E2ADEBBE82FD85CCF27C9D021400F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372345   (885636) от 03.04.2020
-
-Надежда Островская | Дети (1898) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтение и рассказывание детям.
-Рассказы для детей младшего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FC809674AC7FE3BA0F328AD5A62E4291ED3CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

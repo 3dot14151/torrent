@@ -6,7 +6,7 @@ Native Instruments - Kontakt 6.7.0 STANDALONE, VSTi, VSTi3, AAX (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712569.jpg" />
+  <img src="Z:/picture/008/save_picture_712569.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bigasoft Video Downloader Pro 3.14.4.6331 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712553.jpg" />
+  <img src="Z:/picture/008/save_picture_712553.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IsMyHdOK 3.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712537.jpg" />
+  <img src="Z:/picture/008/save_picture_712537.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows 10 (v1809) x64 HSL/PRO by KulHanter v19 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712484.jpg" />
+  <img src="Z:/picture/008/save_picture_712484.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ USDownloader 1.3.5.9 Portable (02.05.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712472.jpg" />
+  <img src="Z:/picture/008/save_picture_712472.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v4 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712447.jpg" />
+  <img src="Z:/picture/008/save_picture_712447.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Slimjet 14.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712440.jpg" />
+  <img src="Z:/picture/008/save_picture_712440.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ WinRAR 5.70 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712392.jpg" />
+  <img src="Z:/picture/008/save_picture_712392.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ABBYY FineReader 14.0.107.232 Enterprise RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712390.jpg" />
+  <img src="Z:/picture/008/save_picture_712390.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ uTorrent Pro 3.5.5 Build 46206 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712254.jpg" />
+  <img src="Z:/picture/008/save_picture_712254.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MInstAll Portable-Soft Lite 02.05.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712104.jpg" />
+  <img src="Z:/picture/008/save_picture_712104.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Microsoft .NET Framework 4.7 Developer Pack [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712102.jpg" />
+  <img src="Z:/picture/008/save_picture_712102.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ASUS M51Ta (X56T) драйверы под Windows 10 (х86/х64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712093.jpg" />
+  <img src="Z:/picture/008/save_picture_712093.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Alcohol 120% 2.0.3 Build 9902 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712088.jpg" />
+  <img src="Z:/picture/008/save_picture_712088.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ AnyMP4 Video Converter Ultimate 7.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712059.jpg" />
+  <img src="Z:/picture/008/save_picture_712059.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Soft Organizer 5.11 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711958.jpg" />
+  <img src="Z:/picture/008/save_picture_711958.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ ICQ 10.0 build 12080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711954.jpg" />
+  <img src="Z:/picture/008/save_picture_711954.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Freemake Video Converter 4.1.9.16 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711949.jpg" />
+  <img src="Z:/picture/008/save_picture_711949.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ USDownloader 1.3.5.9 Portable ( 14.04.2018 ) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711909.jpg" />
+  <img src="Z:/picture/008/save_picture_711909.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Infix PDF Editor Pro 7.2.5 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711907.jpg" />
+  <img src="Z:/picture/008/save_picture_711907.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Advanced Installer Architect 8.1.3 Build 35117 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711904.jpg" />
+  <img src="Z:/picture/005/save_picture_711904.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Videomizer 2.0.16.504 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711873.jpg" />
+  <img src="Z:/picture/008/save_picture_711873.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ pdfFactory Pro 5.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711865.jpg" />
+  <img src="Z:/picture/008/save_picture_711865.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ WinUtilities Pro 15.22  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711826.jpg" />
+  <img src="Z:/picture/008/save_picture_711826.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Windows 10 Manager 1.1.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711803.jpg" />
+  <img src="Z:/picture/008/save_picture_711803.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Ummy Video Downloader 1.7.0.0 portable by DRON[Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711782.jpg" />
+  <img src="Z:/picture/008/save_picture_711782.jpg" />
 </div>
 
 

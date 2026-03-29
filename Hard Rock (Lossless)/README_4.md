@@ -1,3 +1,61 @@
+###  Публикация: 1443522   (1035447) от 29.01.2021
+
+Michael Schenker Group - Immortal (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drilled to Kill (4:32)
+02. Don't Die on Me Now (4:53)
+03. Knight of the Dead (4:05)
+04. After the Rain (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA9BD8313B3C595998F9A1DD166C1003033B7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444027   (1034935) от 31.01.2021
+
+Ram Jam - 3 Albums, 1 Single (1977-2006) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ram Jam — рок-группа, родом из Нью-Йорка, Соединенных Штатов Америки. Коллектив был основан ещё в начале 1970-х годов. Коллектив внёс определённую лепту в развитие американского рока. Самым узнаваемым хитом группы доныне является трек «Black Betty». У истоков рок-коллектива стоят Билл Бартлетт, Стив Волмслей (бас-гитара) и Боб Неф (орган). Изначально музыканты создавали (   Читать дальше...   )--------------------------
+
+01. Black Betty (3:58)
+02. Let It All Out (4:00)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 02:47:38 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB483F761F3C0327F3065A5FE9EBCA088208B083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443792   (1034892) от 31.01.2021
 
 April Wine - 21 Albums, 1 Box-set, 35 CD (1971-2016) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock>
@@ -6,7 +64,7 @@ April Wine - 21 Albums, 1 Box-set, 35 CD (1971-2016) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034892.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Steel Panther - 7 Albums (2009-2023) [FLAC|Lossless|image + .cue] <Glam Rock, Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034834.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Seventh Crystal - Wonderland (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034172.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Demons Down - I Stand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034169.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Wig Wam - Never Say Die (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034005.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Wig Wam - Out Of The Dark (2023) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033672.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Iron Butterfly - 9 Albums, 1 Box-set, 26 CD (1967-2020) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033494.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Many Faces Of Def Leppard - A Journey Through The Inner World Of Def Le
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033284.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Vilivant - Running On Empty (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033212.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Spooky Tooth - 12 Albums, 1 Box-set, 24 CD (1967-2015) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033191.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ The Norseman Company - The Coming Of The Chord (2021) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033050.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Marco Luponero & The Loud Ones - The War On Science (2023) [FLAC|Lossless|WEB-DL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033002.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ W.E.T. - 5 Studio Albums (2009-2021) 6xCD [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032731.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Raz - The Raz (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032339.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Heroes And Monsters - Heroes And Monsters (2023) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032331.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) 2xCD, Japanese Edition [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032300.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Creye - Creye II (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032296.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Magnum - Dance Of The Black Tattoo (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032288.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Paakallo - Paakallo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Dar
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032147.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Dante's View - Happiness Is a War (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032137.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Road Crew - Rock'n'Roll Train (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032121.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Zalomon Grass - Space Opera (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032115.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Replica Jesus - Echoes From The Expanse (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032108.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Paralyzed - Paralyzed (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032055.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Paralyzed - Paralyzed (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0B0567CE7B52607C42B99DC141E9CB3FDD6E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447156   (1031896) от 13.02.2021
-
-Mecca - 3 albums (2002-2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мекка - проект, созданный певцом Джо Вана и Джимом Петериком (Survivor). Группа исповедует классический АОР в духе таких монстров как Тото, Survivor, Alliance, Foreigner, AsiA и получается у них ничуть не хуже. Материал у этих парней настолько сильный и хитовый, что выйди дебютник в начале 80-х, участники группы сразу же бы стали звездами первой величины. Эталонный (   Читать дальше...   )--------------------------
-
-01. Take My Hand (3:18)
-02. Unknown (4:23)(   Читать дальше...   )Жанр: Melodic Rock, FM Rock, AOR |Продолжительность: 02:18:01 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D54FF49C7C2727CB33D3FFEDBD7E3E2C03946C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447307   (1031894) от 13.02.2021
-
-Inglorious - We Will Ride (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Won't Let You Go (3:38)
-02. Messiah (3:56)
-03. Medusa (3:55)
-04. Eye of the Storm (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E2B76A6C883086913E331176D7D603E3104E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

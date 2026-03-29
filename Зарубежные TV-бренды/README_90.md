@@ -1,3 +1,109 @@
+###  Публикация: 1217857   (365550) от 17.10.2018
+
+History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip [H.264/720p-LQ] (10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробный рассказ о том, как работали древние технологии. В программе принимают участие Беттани Хьюз и Эндри Торбет, которые познакомят зрителей с десятью выдающимися изобретениями древности.
+Каждая серия будет посвящена определенной теме: «Самое смертоносное оружие», «Тайны Египта», «Древний Рим». Удивительно, каким «продвинутым» был древний мир.Производство: США, History, A&E Television NetworksЖанр: Документальный, научно-популярный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 x ~ 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9EDB0D3F96D677334B8FBBD2904DB1002E310D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217862   (365420) от 17.10.2018
+
+History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip (10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробный рассказ о том, как работали древние технологии. В программе принимают участие Беттани Хьюз и Эндри Торбет, которые познакомят зрителей с десятью выдающимися изобретениями древности.
+Каждая серия будет посвящена определенной теме: «Самое смертоносное оружие», «Тайны Египта», «Древний Рим». Удивительно, каким «продвинутым» был древний мир.Производство: США, History, A&E Television NetworksЖанр: Документальный, научно-популярный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 x ~ 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C36E36DF18DA9CB46FC847D362DF1BF3FE17CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950185   (365203) от 28.10.2015
+
+BBC. Человеческая Вселенная / Human Universe (2014) BDRip [H.264/720p-LQ] [Сезон 1, серия 4]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Брайан Кокс задаст самые важные вопросы какие только мы можем задать. Одни ли мы? Почему мы здесь? Какое наше будущее? Присоединитесь к нему в потрясающем торжестве жизни человека, как он исследует свои истоки, наше место и нашу судьбу во Вселенной.Жанр: Документальный, научно-познавательныйПеревод: Двухголосый закадровый, профессиональный (Омикрон)Субтитры: АнглийскиеПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915C1E477BE7B9947AD1241B95728106A4F5E1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406819   (365186) от 05.11.2011
+
+NG: Секретные материалы древности. Кровь Христа. Фестский диск / Ancient X-files (2011) SATRip
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы рассмотрим нерешенные загадки прошлого и исследуем артефакты, существование которых не поддается рациональному объяснению.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E42E53F5CE7EFF944E6A0745C3FD416C50FFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499109   (364802) от 24.10.2017
 
 BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRip
@@ -6,7 +112,7 @@ BBC: Враги разума [2 серии] / The Enemies of Reason (2007) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364802.jpg" />
+  <img src="Z:/picture/008/save_picture_364802.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ NGW: Остров муссонов. Слоненок Лока / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364093.jpg" />
+  <img src="Z:/picture/008/save_picture_364093.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ NG. Миссия на Марс / Ultimate Mars Challenge (2012) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363970.jpg" />
+  <img src="Z:/picture/008/save_picture_363970.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ NG. Вся правда о ледяном человеке / Iceman Autopsy (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363835.jpg" />
+  <img src="Z:/picture/008/save_picture_363835.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ NGW: Остров муссонов. Королева Яла / Island of the Mons
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363832.jpg" />
+  <img src="Z:/picture/008/save_picture_363832.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Animal Planet: В дебрях Латинской Америки / Wildest Latin
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363827.jpg" />
+  <img src="Z:/picture/008/save_picture_363827.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363793.jpg" />
+  <img src="Z:/picture/008/save_picture_363793.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Animal Planet: Неизведанный Индокитай / Wildest Indochina (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363621.jpg" />
+  <img src="Z:/picture/008/save_picture_363621.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363614.jpg" />
+  <img src="Z:/picture/008/save_picture_363614.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362878.jpg" />
+  <img src="Z:/picture/008/save_picture_362878.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362461.jpg" />
+  <img src="Z:/picture/008/save_picture_362461.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ Animal Planet. Древо жизни / Africa's Trees of Life (2015) HDTV [H.264
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361367.jpg" />
+  <img src="Z:/picture/008/save_picture_361367.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ Animal Planet. Другой Китай с Найджелом Марвеном / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361242.jpg" />
+  <img src="Z:/picture/008/save_picture_361242.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ Animal Planet: В дебрях Индии / Wildest India (2011) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361241.jpg" />
+  <img src="Z:/picture/008/save_picture_361241.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ Animal Planet. Смертельные острова / Deadly Islands (2014) HDT
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361237.jpg" />
+  <img src="Z:/picture/008/save_picture_361237.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ Animal Planet: Планета мутантов (Жизненная сила) / M
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361016.jpg" />
+  <img src="Z:/picture/008/save_picture_361016.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ Animal Planet: Неизведанные острова / Wildest Islands (2012-2
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361015.jpg" />
+  <img src="Z:/picture/008/save_picture_361015.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ BBC: Начало и конец Вселенной / The Beginning and End of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359969.jpg" />
+  <img src="Z:/picture/008/save_picture_359969.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359876.jpg" />
+  <img src="Z:/picture/008/save_picture_359876.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359366.jpg" />
+  <img src="Z:/picture/008/save_picture_359366.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ Discovery. Жизнь и смерть на Эвересте / To Live or Die on 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359245.jpg" />
+  <img src="Z:/picture/008/save_picture_359245.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359023.jpg" />
+  <img src="Z:/picture/008/save_picture_359023.jpg" />
 </div>
 
 
@@ -565,110 +671,6 @@ NGW: Чудаки животного мира. Обезьяны носачи / F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DFD5AC5BADCBDB717B595064C7CABC0DDCD6C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328817   (358909) от 02.10.2019
-
-NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against the Inferno (2019) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358909.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 апреля 2019 года. 18 часов 20 минут. В Нотр-Дам-де-Пари, этом архитектурном, культурном и религиозном символе Франции, проходит служба, посвященная Страстному Понедельнику. Внезапно в соборе вспыхивает пожар. Звучат пожарные сирены, никто не знает, смогут ли пожарные расчеты спасти здание. Это точка отсчета в длившейся почти 15 часов эпической битве с огнем, за (   Читать дальше...   )Производство: Франция, Galaxie Presse, National GeographicЖанр: Документальный, катастрофы, расследованиеРежиссер: Симон Кесслер, Фабрик ГардельПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16007300D9AAC01B18DBBD5190E48120FFF5F13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255953   (358902) от 20.10.2018
-
-NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авиаинженер расследует опасные ситуации на борту, при которых чудом удалось избежать серьезного инцидента, а пассажиры ничего не узнали.Производство: Великобритания, Arrow Media, National Geographic ChannelЖанр: Документальный, катастрофы, исследованиеРежиссер: Сэм Миллер, Эоин О'ШиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6FEBD2212E154CDF579B3849E1606489EA4B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328972   (358765) от 02.10.2019
-
-Загадка Моны Лизы / The Mona Lisa Mystery (2014) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самое известное произведение искусства в мире. Её имя - синоним интриги. Выражение её лица хранит тайну вот уже пять веков. Мы видим женщину которая вот-вот улыбнется... "Мона Лиза" не всегда была знаменитой, она не привлекала всеобщего внимания до тех пор, пока её не похитили. Картина исчезла и два года о ней ничего не было известно. А тем временем (   Читать дальше...   )Производство: Австрия, Великобритания, Terra Mater Factual Studios, Thirteen ProductionsЖанр: ДокументальныйРежиссер: Клаус ШтейндльПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAC28C063F18100EE7DA184D78B67757451C88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328979   (358760) от 02.10.2019
-
-Загадки тёмной материи / The Mystery of Dark Matter (2012) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Факты упрямая вещь: масса всех объектов во Вселенной, которые мы знаем и можем наблюдать, составляет лишь 5%. Все остальное - это неизвестный материал, материя, которую мы не видим и не можем найти. Её назвали "чёрная материя". Какова природа этого феномена и существует ли он? Если да, то это приведет к необходимости переписать все постулаты физики со времен (   Читать дальше...   )Производство: Франция, ARTE France, Scientifilms, CEA, CNRS ImagesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Сесиль ДанжанПеревод: Одноголосый закадровый, профессиональныйСубтитры: Английские, Английские (SDH)Продолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBA26D89692E2324B73BD828FAD7D844C16D028
 ```
 
 https://mybot314.ru/tekegram_catalog/

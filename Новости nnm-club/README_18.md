@@ -1,3 +1,115 @@
+###  Публикация: 599132   (999223) от 06.01.2013
+
+NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999223.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks
+Название программы: NVIDIA GeForce
+Версия программы: 310.90 WHQL
+Последняя Версия программы: 310.90
+Адрес официального сайта: NVIDIA
+Язык интерфейса: MULTi / РусскийЛечение: не требуется
+Системные требования:Windows 8, 7, Vista, XP (x32/x64)Описание: Вышла новая официальная версия драйверов для видеокарт на базе графических процессоров компании nVidia. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599319   (999207) от 06.01.2013
+
+Skins kaspersky internet security 2013 3.0 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка скинов для Kaspersky Internet Security 2013. 28 штук в одном инсталляторе. Вы получите не только измененный вид окон, но и дополнительную кнопку "Активация ключом" и некоторые дополнительные настройки.Название программы: skins kaspersky internet security 2013Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599641   (998992) от 07.01.2013
+
+Recovery Partition for ASUS K56 CM / Windows 8 (х64)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS K56CM-XX064H
+Образ Recovery Partition ASUS K56CM.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599649   (998991) от 07.01.2013
+
+[Автомагнитола Masushita NSDN-W59] (2009) файл для SD карты
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Папка PRIVATE закидывается на отформатированную sd-карту, затем вставляется в слот в нижней части дисплея. И магнитола считав файл загружается в рабочий режим.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2215C942C2D97FF9F9DA4F2E7130F0738EE8FA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600223   (998736) от 08.01.2013
 
 Stop SMS Uni Boot v.3.1.7 [Русский и английский]
@@ -6,7 +118,7 @@ Stop SMS Uni Boot v.3.1.7 [Русский и английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998736.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998722.jpg" />
 </div>
 
 
@@ -59,7 +171,7 @@ Driver: San Francisco [Ru/En] (RePack/1.0.04.1114) 2012 l R.G.Games
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998708.jpg" />
 </div>
 
 
@@ -85,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998705.jpg" />
 </div>
 
 
@@ -111,7 +223,7 @@ Adobe Acrobat XI (v11.0.1) Professional Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998449.jpg" />
 </div>
 
 
@@ -146,7 +258,7 @@ Pirates of the Caribbean / Корсары 2: Пираты Карибского �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998438.jpg" />
 </div>
 
 
@@ -173,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998436.jpg" />
 </div>
 
 
@@ -204,7 +316,7 @@ Kaspersky CRYSTAL 13.0.2.558 Technical Release [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998180.jpg" />
 </div>
 
 
@@ -232,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998166.jpg" />
 </div>
 
 
@@ -261,7 +373,7 @@ Test Drive Unlimited Gold [Ru/En] (RePack/1.66а) 2007 l R.G.Games
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998160.jpg" />
 </div>
 
 
@@ -287,7 +399,7 @@ AMD Radeon RAMDisk 4.0.1 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997630.jpg" />
 </div>
 
 
@@ -315,7 +427,7 @@ VA - 2000 Best, Gold and Grest Hit. VOL. 01-20 (2011) [MP3|184-320 kbps кб/с]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997615.jpg" />
 </div>
 
 
@@ -350,7 +462,7 @@ Hiren's Boot DVD 15.2 Restored Edition 1.1 (January 2013) [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997614.jpg" />
 </div>
 
 
@@ -378,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997335.jpg" />
 </div>
 
 
@@ -404,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997334.jpg" />
 </div>
 
 
@@ -430,7 +542,7 @@ Emperor: Battle for Dune [Ru/En] (RePack/1.09) 2001 | volkogriz
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997329.jpg" />
 </div>
 
 
@@ -456,7 +568,7 @@ TrackMania 2 Canyon [Ru] (P) 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997316.jpg" />
 </div>
 
 
@@ -482,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997313.jpg" />
 </div>
 
 
@@ -510,7 +622,7 @@ Extensoft Artisteer 4.1.0.59688 Beta [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997089.jpg" />
 </div>
 
 
@@ -538,7 +650,7 @@ Sniper: Ghost Warrior - Gold Edition [Ru/En/Multi6] (L) 2010 | *PROPHET*
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997086.jpg" />
 </div>
 
 
@@ -565,7 +677,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (RePack) 2009-2010 | R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997081.jpg" />
 </div>
 
 
@@ -593,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997080.jpg" />
 </div>
 
 
@@ -604,116 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4373898BA22131136283C3361CB0E7D00C56F09A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602996   (997077) от 14.01.2013
-
-Rage [Ru] (RiP/1.0.34.2015/3 DLC) 2011 | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда человечество оказалось перед угрозой уничтожения от столкновения Земли с гигантским астероидом, лидеры всех наций приняли решение создать специальные ковчеги, в которых избранные нашли бы убежище глубоко под поверхностью планеты... Именно они должны возродить жизнь на Земле, после того как минует опасность. Вы попали в число избранных. Спустя годы после катастрофы ковчеги открылись, и вы оказались в мире, который сильно отличается от прежнего. Но самое главное — далеко не все его обитатели рады вашему возвращению. Вам надо научиться бороться и выживать. Учтите, времени очень мало — бандиты, мутанты и даже местное правительство уже идут по вашему следу. (   Читать дальше...   )Тип издания: RiP (Лицензии)Жанр: Action (Shooter) / Add-on (Content pack) / 3D / 1st PersonЯзык озвучки: Русский, Английский (DLC The Scorchers)Язык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D149E1667E45F4F5F7B3C722E1847D041AB836D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603411   (996840) от 15.01.2013
-
-Церковь и трезвость несовместимы (2012) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Церковь столетиями старательно спаивает свою паству. В этом ни у кого нет сомнений. Но вот слова они говорят противоположные, и не опасаясь своего бога, обманывают всех верующих направо и налево, имея доход от торговли вином...
-
-На днях состоялся круглый стол Координационного Совета по борьбе с алкоголизмом в Санкт-Петербурге, совместно с представителями РПЦ. Видеозапись этого мероприятия вы можете посмотреть по этой ссылке, а здесь мы представим небольшой анализ всего, прозвучавшего на этом Круглом Столе, и рассмотрим наиболее принципиальные моменты.Жанр: ИнформационныйПеревод: Не требуетсяФормат: AVIПродолжительность: 00:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C603F2F7F8E791A72B79ACA89BB7AD0FB3ECE72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603300   (996823) от 15.01.2013
-
-"Лаборатория Касперского" раскрыла международную шпионскую сеть
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996823.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-14.01.2013Антивирусная "Лаборатория Касперского" обнаружила международную сеть под кодовым названием "Red October" ("Красный октябрь"), используемую для кибершпионажа. Первая часть "исследования операции 'Red October'" опубликована на сайте лаборатории 14 января. Анонсирована также вторая часть, "содержащая детальный технический анализ всех известных модулей", которая должна выйти в течение нескольких дней.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603761   (996809) от 15.01.2013
-
-Photodex ProShow Producer 5.0.3297 RePack by KpoJIuK [Русский / Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996809.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProShow Producer 5 – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать маски слоя, эффекты перехода, градиентную заливку или заливку цветом. Фотографии, используемые в презентации, можно редактировать, применяя к ним такие инструменты как повышение четкости, изменение контрастности и насыщенности цветов. Презентация может содержать подписи, в том числе и анимированные, и фоновую музыку. Готовый проект может быть сохранен в одном из четырнадцати форматов, в том числе в HD Video, Flash и QuickTime.
-
-(   Читать дальше...   )Название программы: Photodex ProShow ProducerЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

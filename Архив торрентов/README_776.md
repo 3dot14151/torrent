@@ -6,7 +6,7 @@ Windows 10 Manager 3.5.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875699.jpg" />
+  <img src="Z:/picture/005/save_picture_875699.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875619.jpg" />
+  <img src="Z:/picture/008/save_picture_875619.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ O&O Defrag Professional 25.0 Build 7210 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875610.jpg" />
+  <img src="Z:/picture/008/save_picture_875610.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875608.jpg" />
+  <img src="Z:/picture/005/save_picture_875608.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - JES: Unleash The Beat (Mixed By Jes) (2015) [FLAC|Lossless|WEB-DL|tracks|im
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875603.jpg" />
+  <img src="Z:/picture/005/save_picture_875603.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875595.jpg" />
+  <img src="Z:/picture/005/save_picture_875595.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - The Essential Chill Lounge Bossa Yoga Relaxing Complete Collection Vol. 1 (
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875586.jpg" />
+  <img src="Z:/picture/005/save_picture_875586.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875580.jpg" />
+  <img src="Z:/picture/005/save_picture_875580.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - House Vip (26.03.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875573.jpg" />
+  <img src="Z:/picture/005/save_picture_875573.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_875535.jpg" />
+  <img src="Z:/picture/009/save_picture_875535.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875500.jpg" />
+  <img src="Z:/picture/005/save_picture_875500.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875472.jpg" />
+  <img src="Z:/picture/005/save_picture_875472.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Mozilla Thunderbird 38.7.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875471.jpg" />
+  <img src="Z:/picture/005/save_picture_875471.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875457.jpg" />
+  <img src="Z:/picture/005/save_picture_875457.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875455.jpg" />
+  <img src="Z:/picture/005/save_picture_875455.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Underworld - Barbara Barbara, We Face A Shining Future (2016) Japan [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875454.jpg" />
+  <img src="Z:/picture/008/save_picture_875454.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875450.jpg" />
+  <img src="Z:/picture/005/save_picture_875450.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Defender Control 2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875438.jpg" />
+  <img src="Z:/picture/005/save_picture_875438.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875419.jpg" />
+  <img src="Z:/picture/005/save_picture_875419.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ SparkyLinux 3.6 (Легкие дистрибутивы) [x86-64] 7xDVD, 1xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875390.jpg" />
+  <img src="Z:/picture/005/save_picture_875390.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875343.jpg" />
+  <img src="Z:/picture/005/save_picture_875343.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Driver Magician 4.81 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875338.jpg" />
+  <img src="Z:/picture/008/save_picture_875338.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875317.jpg" />
+  <img src="Z:/picture/005/save_picture_875317.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Hidden Mysteries: The Fateful Voyage - Titanic (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875316.jpg" />
+  <img src="Z:/picture/008/save_picture_875316.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ BWMeter 6.11.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875260.jpg" />
+  <img src="Z:/picture/005/save_picture_875260.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Balabolka 2.11.0.600 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875253.jpg" />
+  <img src="Z:/picture/005/save_picture_875253.jpg" />
 </div>
 
 

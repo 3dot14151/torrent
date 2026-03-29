@@ -1,3 +1,107 @@
+###  Публикация: 1838160   (258049) от 21.11.2025
+
+Семейный план 2 / The Family Plan 2 (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь, когда дни наемного убийцы Дэна остались позади, все, чего он хочет на Рождество, — это провести время со своими детьми. Но когда он узнает, что у его дочери свои планы, он заказывает семейную поездку в Лондон — ставит их всех под прицел неожиданного врага.Производство: США, Великобритания / Apple Original Films, Skydance ProductionsЖанр: боевик, комедия, семейныйРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Мишель Монахэн, Кит Харингтон, Зои Маргарет Коллетти, Ван Кросби, Peter Lindsay, Theodore Lindsay, Реда Эльазуар, Сидсе Бабетт Кнудсен, Санджив БхаскарПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (forced, full, SDH)Продолжительность: 01:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE518AC8DD991097D41882F7C84BF6829DE4E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838040   (257791) от 20.11.2025
+
+Проблемы с шампанским / Champagne Problems (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исполнительный директор отправляется во Францию, чтобы до Рождества обеспечить приобретение известного бренда шампанского, но ее планы рушатся, когда она влюбляется в очаровательного парижанина, который, как выясняется, является сыном основателя компании.Производство: США / FullDawa Films, Grumpy EntertainmentЖанр: мелодрама, комедияРежиссер: Марк Стивен ДжонсонАктеры: Том Возничка, Минка Келли, Флула Борг, Завьер Сэмюэл, Мэйв Куртье-Лилли, Тибо де Монталембер, Астрид Ветналл, Митчелл Маллен, Шон Эмсинг, Floran RoyerПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308C556803ADE4C21788571838EA69BE5AF9AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836728   (254112) от 12.11.2025
+
+Рождество с бывшим / A Merry Little Ex-Mas (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт и Эверетт собираются в последний раз отпраздновать Рождество как одна семья и цивилизованно развестись. Однако всё усложняется из-за новых симпатий и старых чувств.Производство: США / Hartbreak FilmsЖанр: мелодрама, комедияРежиссер: Стив КаррАктеры: Алисия Сильверстоун, Пирсон Фод, Мелисса Джоан Харт, Оливер Хадсон, Джамила Джамил, Тимоти Иннес, Линда Кэш, Эмили ХоллПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0C3AE3FD88D7936779BD48A527974253B81FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836148   (252497) от 09.11.2025
+
+Манго / Mango (2025) WEB-DL [H.264/1080p] [EN, DA / RU, EN, DA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амбициозная сотрудница сети отелей и ее недовольная дочь отправляются в Малагу, где в тихом манговом саду находят то, что искали.Производство: Дания / Nordisk Film, Drive Studios, Rocket Road PicturesЖанр: комедия, драма, мелодрамаРежиссер: Мехди АвазАктеры: Йозефин Парк, Дар Салим, Йосефине Хёйбьерг, Сара Хименес, Паприка Стеэн, Андерс В. Бертельсен, Себастьян Йессен, Лизе Бааструп, Ninton Sánchez, Логан Коннор КэлвертПеревод: СубтитрыЯзык озвучки: Английский, ДатскийСубтитры: Русские, Английские (forced, full, SDH), Датские (forced, full, SDH)Продолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BD3921A953146496D8C6012CF54CA6370AC6B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634972   (252081) от 23.05.2023
 
 Джон Уик 4 / John Wick: Chapter 4 (2023) WEB-DL [H.264/1080p] [EN / EN, FR Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252081.jpg" />
+  <img src="Z:/picture/004/save_picture_252081.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250621.jpg" />
+  <img src="Z:/picture/004/save_picture_250621.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250477.jpg" />
+  <img src="Z:/picture/004/save_picture_250477.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249503.jpg" />
+  <img src="Z:/picture/004/save_picture_249503.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245717.jpg" />
+  <img src="Z:/picture/004/save_picture_245717.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243573.jpg" />
+  <img src="Z:/picture/004/save_picture_243573.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243450.jpg" />
+  <img src="Z:/picture/004/save_picture_243450.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243433.jpg" />
+  <img src="Z:/picture/004/save_picture_243433.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243146.jpg" />
+  <img src="Z:/picture/004/save_picture_243146.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240609.jpg" />
+  <img src="Z:/picture/004/save_picture_240609.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240220.jpg" />
+  <img src="Z:/picture/004/save_picture_240220.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240140.jpg" />
+  <img src="Z:/picture/004/save_picture_240140.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240083.jpg" />
+  <img src="Z:/picture/004/save_picture_240083.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240066.jpg" />
+  <img src="Z:/picture/004/save_picture_240066.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239541.jpg" />
+  <img src="Z:/picture/004/save_picture_239541.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237144.jpg" />
+  <img src="Z:/picture/005/save_picture_237144.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236296.jpg" />
+  <img src="Z:/picture/005/save_picture_236296.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234844.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234461.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233052.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232912.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232657.jpg" />
+  <img src="Z:/picture/005/save_picture_232657.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24DC45625DB740B38544BB8C93592CE3FCAC9225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554170   (232239) от 29.05.2022
-
-Чрезвычайная ситуация / Emergency (2022) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовые к легендарной вечеринке, трое студентов колледжа должны взвесить все за и против вызова полиции, когда сталкиваются с неожиданной ситуацией.Производство: США / Amazon Studios, Temple Hill EntertainmentЖанр: Триллер, драма, комедияРежиссер: Кэри УильямсАктеры: АрДжей Сайлер, Дональд Уоткинс, Себастьян Чакон, Сабрина Карпентер, Мэдди Николс, Мэдисон Томпсон, Диего Абрахам, Саммер Мэдисон, Джиллиан Рабин, Патрик Ламонт мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, немецкие и др.Продолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93C8DCCA68FAD79824991E78F1EF124463EFEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580199   (232221) от 30.09.2022
-
-Экзорцизм моей лучшей подруги / My Best Friend's Exorcism (2022) WEB-DL [H.264/1080p] [EN / RU, EN, Multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие подруги Эбби и Гретхен борются с потусторонним демоном, который вселяется в тело Гретхен.Производство: США / Endeavor Content, Gotham GroupЖанр: комедия, ужасыРежиссер: Дэймон ТомасАктеры: Элси Фишер, Амайя Миллер, Рэйчел Кану, Кэти Ан, Клэйтон Ройал Джонсон, Крис Лоуэлл, Нэйтан Андерсон, Синтия Эванс, Рэйчел Леа Коэн, Джон СтоунбернерПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Full, SDH) и др.Продолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D712E84D1A1E4FBC72960C1A6402F96E65D6CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581940   (230910) от 07.10.2022
-
-Восставший из ада / Hellraiser (2022) WEB-DL [H.264/1080p-LQ] [EN / EN, ES Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230910.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руки молодой женщины попадает древнее устройство-головоломка, похожее на кубик Рубика. Девушка и не подозревает, что с помощью этой вещицы можно вызвать синобитов — существ с садистскими наклонностями из другого измерения, из-за которых пропал её брат.Производство: США, Сербия / 20th Century Studios, 247Hub, Phantom Four FilmsЖанр: ужасыРежиссер: Дэвид БрукнерАктеры: Одесса Адлон, Джеми Клейтон, Адам Фэйзон, Дрю Старки, Брэндон Флинн, Ифа Хайндс, Джейсон Лилз, Yinka Olorunnife, Селина Ло, Zachary HingПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH), испанские (SDH)Продолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C6310D8292E38EA235AF0CAB0EC92E1114E94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964648   (229860) от 12.12.2015
-
-128 ударов сердца в минуту / We Are Your Friends  (2015) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лос-Анджелес, Калифорния - это мир бесконечных возможностей днем и нереальных голливудских вечеринок ночью. Оба этих мира стремится покорить молодой DJ по имени Коул, неустанно работающий над своим пробивным треком, который должен взорвать весь мир. Его замечает и берет под крыло опытный продюсер Джеймс, но все становится крайне запутанным, когда Коул влюбляется (   Читать дальше...   )Производство: Великобритания, Франция, США, Polygram Filmed Entertainment, StudioCanal, Working Title FilmsЖанр: драма, мелодрама, музыкаРежиссер: Макс ДжозефАктеры: Зак Эфрон, Уэс Бентли, Эмили Ратаковски, Джонни Уэстон, Шайло Фернандес, Алекс Шеффер, Джон Бернтал, Алисия Коппола, Уайли М. Пикетт, Джон Абрахамс, Молли Хэйгэн, Бриттани ФурланПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8EA5B695C70E25C182BD1774F66C15DC2016AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 995744   (883107) от 12.03.2016
+
+VA - Glamour Beach & Apero (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blu X - Human Life [03:21]
+02. Summer House - Perfidiax [04:07]
+03. Music of Life - Rayba Vagy [04:43]
+04. Connections - Island Dalmo [05:58](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A72C8F6E140A0DE70979FDF1AEF681C9DE5C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995729   (883101) от 12.03.2016
+
+VA - Sunrise Lovers Vol.3: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Rodgers - Endless Love - Original Mix
+02. Jessica Hathaway - Fly to the Sky - Bonus Track
+03. Lounge Surfers - Sunrise - Original Mix
+04. Sarah Martin - Give It Up - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B13F2D5EEF37595A5E6BC3589D3237672B6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995909   (883092) от 12.03.2016
 
 VA - Club Dance Ambience vol 58 (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
@@ -6,7 +64,7 @@ VA - Club Dance Ambience vol 58 (2016) [MP3|320 кб/с] <Club House, Vocal Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883092.jpg" />
+  <img src="Z:/picture/005/save_picture_883092.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trance Desire Volume 63 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882965.jpg" />
+  <img src="Z:/picture/005/save_picture_882965.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882699.jpg" />
+  <img src="Z:/picture/005/save_picture_882699.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882181.jpg" />
+  <img src="Z:/picture/005/save_picture_882181.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882108.jpg" />
+  <img src="Z:/picture/005/save_picture_882108.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882068.jpg" />
+  <img src="Z:/picture/005/save_picture_882068.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Electro House NME DJ Promo (2020) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881324.jpg" />
+  <img src="Z:/picture/005/save_picture_881324.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Nu Disco Cosmic St.Tropez (2015) [MP3|320 кб/с] <Disco, Nu-Disco, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881283.jpg" />
+  <img src="Z:/picture/005/save_picture_881283.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Drum & Bass The World Of Remix (2016) [MP3|320 кб/с] <Drum & Bass, Remix
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881208.jpg" />
+  <img src="Z:/picture/005/save_picture_881208.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Positive Frequency: Really Techno Sound (2021) [MP3|320 Kbps] <Clubbing Tec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880726.jpg" />
+  <img src="Z:/picture/005/save_picture_880726.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Golden Summer Party (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880720.jpg" />
+  <img src="Z:/picture/005/save_picture_880720.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880717.jpg" />
+  <img src="Z:/picture/005/save_picture_880717.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880716.jpg" />
+  <img src="Z:/picture/005/save_picture_880716.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Record Super Chart 11.09.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880526.jpg" />
+  <img src="Z:/picture/005/save_picture_880526.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - EDM Extasy: Electro Dance Mix (2021) [MP3|320 Kbps] <Club, Dance, EDM, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880391.jpg" />
+  <img src="Z:/picture/005/save_picture_880391.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Chill Boutique (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880287.jpg" />
+  <img src="Z:/picture/005/save_picture_880287.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Chillout Hits Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880173.jpg" />
+  <img src="Z:/picture/005/save_picture_880173.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879934.jpg" />
+  <img src="Z:/picture/005/save_picture_879934.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Ethno Chillin: Best World Lounge and Ethno Chillout (2016) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879519.jpg" />
+  <img src="Z:/picture/005/save_picture_879519.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Massive House Future Running (2016) [MP3|255-320 кб/с] <Bigroom, Club, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879517.jpg" />
+  <img src="Z:/picture/005/save_picture_879517.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879406.jpg" />
+  <img src="Z:/picture/005/save_picture_879406.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Best Of Trance 52 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harm
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879377.jpg" />
+  <img src="Z:/picture/005/save_picture_879377.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Top 100 Workout 2 (2016) [MP3|128-320 кб/с] <House, Tech House, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879284.jpg" />
+  <img src="Z:/picture/005/save_picture_879284.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Beatport Top 100 (12.03.2016) [MP3|320 кб/с] <House, Electro, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879279.jpg" />
+  <img src="Z:/picture/005/save_picture_879279.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Beatport Top 100 (12.03.2016) [MP3|320 кб/с] <House, Electro, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FAD374662418D84BE37AE53B8C13AE01594B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373477   (878542) от 07.04.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #46 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Breathead - Pot & Psychedelics
-002. Elenski - Go Down To Hell
-003. Abigail Noises - Shadow Profile
-004. Alex Starsound - Made From Biohazard(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEE01F1841D1F8B0A15D7A6AE4A9F5FB41C0554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104550   (878208) от 16.02.2017
-
-VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Schweizer - Era (Original Mix)  5:15
-02.  Allen & Envy ft. Gemma Pavlovic - Heaven Won't Wait (Eximinds Remix)  4:44
-03.  Filo & Peri ft. Aruna - Ashley (Maria Healy Remix)  7:48
-04.  Eximinds & Vigel - Handprint (Original Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, EuphoricПродолжительность: 09:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

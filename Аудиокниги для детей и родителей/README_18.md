@@ -1,3 +1,84 @@
+###  Публикация: 1007232   (823486) от 14.04.2016
+
+Павел Мисько | Новоселы (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о детях и для детей. О том, как нелегко быть маленьким. На каждом шагу обязательно что-нибудь случается, и только для взрослых всё это мелочи, не стоящие внимания. И так вот попадаешь из истории в историю, а жизнь, как нарочно, подсовывает всё новые испытания: расти, учись, умней. В будущем это ох как пригодится!
+Герои этой повести и учатся познавать себя, (   Читать дальше...   )Жанр: Детская литература, повестьПродолжительность: 06:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185BDD5E5ED36231DD799CE09741A2A5777A5D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543408   (823217) от 14.04.2016
+
+Кир Булычев | Вампир Полумракс (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823217.jpg" />
+</div>
+
+
+###  Подробнее
+
+В институте палеогенетики стали выводить вымерших животных. И скоро этих животных стало так много, что для них решили сделать специальный заповедник — Палеоозо на шотландском острове Элис, на котором стоит старинный замок. А потом в подвалах замка были обнаружены частички существ эпохи легенд. И решили палеогенетики их возродить. Лучше бы они это не делали...Жанр: Детская фантастикаПродолжительность: 06:29:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542583   (823127) от 14.04.2016
+
+Кир Булычев | Золотой медвежонок. Королева пиратов на планете сказок (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823127.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каких только приключениях не участвует героиня фантастической повести Алиса Селезнева! Она переносится на машине времени в прошлое,
+становится принцессой средневекового королевства, объявляет войну космическим пиратам.
+Эта девочка из будущего совершает столько необыкновенного, что, по нашим понятиям, под силу только лишь какому-то супермену...Жанр: Детская фантастикаПродолжительность: 03:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A8F9EBD17B80CE2D618B966D05F4CCAFF6DF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542617   (823116) от 14.04.2016
 
 Кир Булычев | Алиса и крестоносцы (2008) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823116.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823014.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821339.jpg" />
+  <img src="Z:/picture/008/save_picture_821339.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821046.jpg" />
+  <img src="Z:/picture/008/save_picture_821046.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817525.jpg" />
+  <img src="Z:/picture/008/save_picture_817525.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815754.jpg" />
+  <img src="Z:/picture/008/save_picture_815754.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815604.jpg" />
+  <img src="Z:/picture/008/save_picture_815604.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815589.jpg" />
+  <img src="Z:/picture/008/save_picture_815589.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813667.jpg" />
+  <img src="Z:/picture/008/save_picture_813667.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812372.jpg" />
+  <img src="Z:/picture/008/save_picture_812372.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812363.jpg" />
+  <img src="Z:/picture/008/save_picture_812363.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812221.jpg" />
+  <img src="Z:/picture/008/save_picture_812221.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808432.jpg" />
+  <img src="Z:/picture/008/save_picture_808432.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808430.jpg" />
+  <img src="Z:/picture/008/save_picture_808430.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808337.jpg" />
+  <img src="Z:/picture/008/save_picture_808337.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807971.jpg" />
+  <img src="Z:/picture/008/save_picture_807971.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805256.jpg" />
+  <img src="Z:/picture/008/save_picture_805256.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803473.jpg" />
+  <img src="Z:/picture/008/save_picture_803473.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802715.jpg" />
+  <img src="Z:/picture/008/save_picture_802715.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802337.jpg" />
+  <img src="Z:/picture/008/save_picture_802337.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802323.jpg" />
+  <img src="Z:/picture/008/save_picture_802323.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800514.jpg" />
+  <img src="Z:/picture/008/save_picture_800514.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800190.jpg" />
+  <img src="Z:/picture/008/save_picture_800190.jpg" />
 </div>
 
 
@@ -599,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48528EB5AF3EFE08F0855FE7289993025390108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506528   (800183) от 31.10.2021
-
-Светлана Белл | Территория F. Крылатый лев, или Тайна цветных облаков (2021) [MP3, Дмитрий Рыбин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана Белл – автор из Уфы, журналист и главный редактор газеты, посвящённой ветеранам. Ведёт работу в социальной сфере, активно участвует в общественной жизни региона.
-Роман «Крылатый лев, или Тайна цветных облаков» занял в конкурсе второе место и получил специальный приз «Серебряная буква». Также книга вошла в лонг-лист Международной детской литературной премии (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 07:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635C173FA12BCB787496188571DAA4AF07822A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506511   (800175) от 31.10.2021
-
-Хельга Воджик | Территория F. Монстры под лестницей (2021) [MP3, Дмитрий Рыбин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Монстры под лестницей» была написана Хельгой Воджик для литературного конкурса детской и подростковой фантастики «Территория F» и принесла автору победу.
-Герою книги Максу неполных одиннадцать, но он умён не по годам. Однако жизнь складывается не лучшим образом. У мальчика нет отца: тот однажды загадочно исчез, не оставив следов. Почти нет у Макса и друзей, (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 05:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C012DF4BD1BC47787DB0F5F789CA3C963A2B9EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506506   (800174) от 31.10.2021
-
-Анна Овчинникова | Территория F. Принц, нищий и планета Везуха (2021) [MP3, Дмитрий Филимонов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Роберта по прозвищу «скиолитовый король» – могущественный человек: он мультимиллиардер, владелец собственного космического города и стоит у руля целой промышленной империи по добыче энергетических кристаллов-скиолитов. Но десятилетний Роберт – обычный мальчик, и в голове у него то же, что и у других мальчишек: приключения, тайны и преодоление опасностей. У него (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 08:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673000E71E8775A28AE850C74B0B002064FA6156
 ```
 
 https://mybot314.ru/tekegram_catalog/

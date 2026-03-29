@@ -1,3 +1,107 @@
+###  Публикация: 1081586   (282132) от 10.12.2016
+
+Signal Ops (2013) [En] (1.0.5361) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_282132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы - вошь на голове террориста. Мы - прыщик на заднице повстанца. Мы - гроза всех кто не с нами! Мы - сверх-засекреченная группа правительственных агентов. Мы настолько засекречены что даже не знаем где мы находимся! Но знаем мы одно - мы блюдём порядок в этой стране. Да умрёт повстанец, да будет наказан хакер! Во имя Тёмного Отца!Тип издания: LicenseРазработчик: Space Bullet Dynamics CorporationЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065C3BD3DF78E298BAF07AA2496552424E373C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082704   (276687) от 13.12.2016
+
+Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Killing Room – шутер от первого лица с элементами непредсказуемой ролевой игры и пародии на реалити-шоу. Вы – (не)везучий участник Killing Room, популярного в разлагающемся 22 веке реалити-шоу. Вы знаете, что отсюда два выхода – слава или смерть, причем смерть наступает в 99 из 100 случаев.Тип издания: RepackРазработчик: Alda GamesЖанр: Action (Shooter), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDDE1D402751727C39A5964A0119E11F4A28868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078933   (276627) от 13.12.2016
+
+Maize (2016) [En] (1.0.1310) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maize – приключение с видом от первого лица, рассказывающее о событиях, причиной которых стало неправильное понимание заметки от правительства США двумя учеными. В результате был выведен сорт разумной кукурузы, и эта самая кукуруза – не самое нелепое, что есть в игре. Игрокам предстоит исследовать заброшенную ферму и не столь уж и заброшенную подземную исследовательскую (   Читать дальше...   )Тип издания: LicenseРазработчик: Finish Line GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A1A2FD5B14A4AEC30F9CEF70ED45E9F3412DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 118000   (276180) от 26.11.2018
+
+Outlaws (1997) [En] (1.0) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276180.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дом честного и, конечно, бедного начальника полицейского участка напали бандиты: достал он их своей честностью и принципиальностью. Бандиты убили жену полицейского, сожгли его дом и похитили единственную дочь – Сару. Безутешный отец и муж (в его роли – Джеймс Андерсон) решил, что ему больше нечего терять, и пошел мочить бандитов направо и налево.Тип издания: LicenseРазработчик: Lucas ArtsЖанр: Action, 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082960   (275408) от 14.12.2016
 
 Drift Into Eternity (2016) [En] (1.0) License PLAZA
@@ -6,7 +110,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275408.jpg" />
+  <img src="Z:/picture/008/save_picture_275408.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275360.jpg" />
+  <img src="Z:/picture/008/save_picture_275360.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275348.jpg" />
+  <img src="Z:/picture/008/save_picture_275348.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274157.jpg" />
+  <img src="Z:/picture/008/save_picture_274157.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Elena (2016) [En/Ge] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271912.jpg" />
+  <img src="Z:/picture/008/save_picture_271912.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271863.jpg" />
+  <img src="Z:/picture/008/save_picture_271863.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270197.jpg" />
+  <img src="Z:/picture/008/save_picture_270197.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212) License PLAZA [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270053.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Far Cry 3 (2012) [Ru/En] (1.05/dlc) Repack xatab [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270008.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ SOMA (2015) [Ru/Multi] (1.500) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267486.jpg" />
+  <img src="Z:/picture/008/save_picture_267486.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267466.jpg" />
+  <img src="Z:/picture/008/save_picture_267466.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267271.jpg" />
+  <img src="Z:/picture/008/save_picture_267271.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265623.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264757.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264332.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264160.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Emily Wants to Play Too (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264038.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263461.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Sniper: Ghost Warrior 2 (2013) [Multi] (3.4.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263428.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263083.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261654.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Killbug (2023) [En] (1.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260755.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ Killbug (2023) [En] (1.5) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838597   (260733) от 23.11.2025
-
-Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждёт невероятное погружение в тотальную войну. Участвуйте в динамичных пехотных боях. Рассекайте небеса в воздушных сражениях. Разрушайте окружение ради стратегического преимущества. Благодаря кинестетической боевой системе полный контроль над каждым движением и действием - в ваших руках. В войне с танками, истребителями и огромным боевым арсеналом ваш отряд (   Читать дальше...   )Тип издания: SceneРазработчик: Battlefield StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A39E5334E14EAF446B4A02AFC8F7F18ECE5943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838599   (260717) от 24.11.2025
-
-Battlefield 6 (2025) [En] (1.0.387.51411.SP) Repack Decepticon
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждёт невероятное погружение в тотальную войну. Участвуйте в динамичных пехотных боях. Рассекайте небеса в воздушных сражениях. Разрушайте окружение ради стратегического преимущества. Благодаря кинестетической боевой системе полный контроль над каждым движением и действием - в ваших руках. В войне с танками, истребителями и огромным боевым арсеналом ваш отряд (   Читать дальше...   )Тип издания: RepackРазработчик: Battlefield StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F916CB49CED59D7B3CAEB4FD474E9BE97507549D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838629   (260672) от 23.11.2025
-
-Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждёт невероятное погружение в тотальную войну. Участвуйте в динамичных пехотных боях. Рассекайте небеса в воздушных сражениях. Разрушайте окружение ради стратегического преимущества. Благодаря кинестетической боевой системе полный контроль над каждым движением и действием - в ваших руках. В войне с танками, истребителями и огромным боевым арсеналом ваш отряд (   Читать дальше...   )Тип издания: SceneРазработчик: Battlefield StudiosЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB2324DE87D6F2D445FFFB071758B37556D99BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502071   (260144) от 31.05.2012
-
-Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение знаменитой игры Red Orchestra: Ostfront 41-45 — одного из лучших тактических многопользовательских шутеров о Второй мировой.
-Игра посвящена важнейшему сражению, которое стало поворотным моментом в великой войне, — Сталинградской битве, а также связанным с ней боевым операциям, проводившимся как советскими, так и германскими войсками с июля 1942 года по февраль 1943 года.
-Проект создан на графическом движке Unreal Engine 3. Современные технологии позволили не только воплотить на новом уровне геймплей, представленный еще в Red Orchestra: Ostfront 41-45, но и сделать его гораздо разнообразнее. Преображенный игровой интерфейс позволит новичкам без труда освоить управление. А пристальное внимание к историческим и техническим деталям обеспечивает невероятный реализм сражений.(   Читать дальше...   )Тип издания: RePackРазработчик: Tripwire InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71EA4CF8F9DAA5B59A7C052F5C9754A696FA94A
 ```
 
 https://mybot314.ru/tekegram_catalog/

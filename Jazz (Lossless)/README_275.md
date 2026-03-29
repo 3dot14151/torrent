@@ -1,3 +1,119 @@
+###  Публикация: 1593610   (179900) от 28.11.2022
+
+Konstantin Klashtorni - Smooth Essence (The Best Of) (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 x 7 (4:13)
+ 02. Humble and Kind (4:07)
+ 03. Irresistible (4:13)
+ 04. Together Again (4:07)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E926DAC9A886FA1225FC40CC66518CB00E274D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666414   (179714) от 04.10.2023
+
+George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [7:56]
+02. I Should Care [9:54]
+03. Time Was [7:37]
+04. Joshua Fit the Battle of Jericho [9:24](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35257C29FB3CADAC6379A4C520A281DC9E973DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666417   (179704) от 04.10.2023
+
+George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Cha Time! [4:04]
+02. Hot Box [5:28]
+03. And She Left Me [4:16]
+04. Vonski [5:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3803B3277D0BB09490D65E504F36DD8A91893E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666411   (179682) от 04.10.2023
+
+John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favorite Things [15:54]
+02. When Lights Are Low [15:27]
+03. Impressions [10:13]
+04. Greensleeves [16:03](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD39467372D7FB1EBF793CD5300756CA070F428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666399   (179665) от 04.10.2023
 
 Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz-Funk, Afrobeat>
@@ -6,7 +122,7 @@ Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179665.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179656.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Scherzoo - 05 (2020) [FLAC|Lossless|image + .cue] <Zeuhl, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179381.jpg" />
+  <img src="Z:/picture/005/save_picture_179381.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Clark Terry - Live At The Village Gate (1991) Chesky Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179365.jpg" />
+  <img src="Z:/picture/005/save_picture_179365.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Lee Wiley - Sings the Songs of George & Ira Gershwin & Cole Porter (1939 - 1940)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179361.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Herb Geller - Plays The Arthur Schwartz Songbook (2005) Hep Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179013.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178983.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Kenton Presents Bob Cooper, Bill Holman & Frank Rosolino (1954 - 1961) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178811.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sonny Clark Trio - Complete Studio Recordings (1954 - 1960) 3CD, 2007, Gambit Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178465.jpg" />
+  <img src="Z:/picture/005/save_picture_178465.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ George Shearing - Easy To Love (1953, 1954) 2014, Sounds Of Yester Year [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178436.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178169.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bud Powell - Birdland (1953) 3CD, 2013, ESP Disk' [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177710.jpg" />
+  <img src="Z:/picture/005/save_picture_177710.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177625.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Mike Wofford - Live At Maybeck Recital Hall, Vol. 18 (1992) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177442.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Ellis Marsalis Trio - Twelve's It (1998) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177434.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Sonny Rollins & Heikki Sarmanto Trio - Live at Finlandia Hall Helsinki (1972) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177038.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Charlie Parker - Jazz Giants (1994) Universe [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176872.jpg" />
+  <img src="Z:/picture/005/save_picture_176872.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Illinois Jacquet - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176862.jpg" />
+  <img src="Z:/picture/005/save_picture_176862.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Joey Alexander - Warna (2020) Verve Records [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176854.jpg" />
+  <img src="Z:/picture/005/save_picture_176854.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Quarantine Doom Jazz vol. 3 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176847.jpg" />
+  <img src="Z:/picture/005/save_picture_176847.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Headin' For The Christmas Ball (2020) [FLAC|Lossless|image + .cue] <Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176784.jpg" />
+  <img src="Z:/picture/005/save_picture_176784.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ron Carter - Finding The Right Notes (2022) In+Out Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176260.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ron Carter - Finding The Right Notes (2022) In+Out Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F15AAABB154B2AE82C446E987C685926B34AC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595156   (176171) от 04.12.2022
-
-Gerry Mulligan & Chet Baker - The Complete Pacific Jazz and Capitol Recordings Of The Original Gerry Mulligan Quartet And Tentette With Chet Baker (1952, 1953) 3CD, 1989, Mosaic Records [FLAC|L ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176171.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Bob Cooper & Bill Holman:
-01. Get Happy [2:34]
-02. 'S Wonderful [3:34]
-03. Godchild [2:55](   Читать дальше...   )Жанр: CoolПродолжительность: 03:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4B136049528697F91F9D96ED20A7779FF2B62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667705   (176098) от 09.10.2023
-
-Bill Jennings & Jack McDuff - Legends Of Acid Jazz: Glide On (1959, 1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enough Said [6:43]
-02. Tough Gain [4:17]
-03. Volare (aka Nel Blu, Dipinto di Blu) [7:02]
-04. Dark Eyes [4:42](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A9DF6A3B5C4A34A9BE30D9C93D15E37285C8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595388   (175710) от 05.12.2022
-
-George Coleman Featuring Ned Otter - Danger High Voltage (1996) 2000, Two and Four Recording [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't She Lovely [9:55]
-02. Conversation [10:22]
-03. Portrait of Jennie [13:31]
-04. Simone [5:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C451ED875C2225E2B8CD20CF32FCAC1A362548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595389   (175682) от 05.12.2022
-
-Richie Beirach & George Coleman - Convergence (1991) Triloka Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lamp Is Low [7:01]
-02. I Wish I Knew [6:51]
-03. Flamenco Sketches [4:42]
-04. Rectilinear [5:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B558DF9ED3358ABA873F28FC1AA230FDD69FAD74
 ```
 
 https://mybot314.ru/tekegram_catalog/

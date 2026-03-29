@@ -1,3 +1,164 @@
+###  Публикация: 929742   (516910) от 21.08.2015
+
+Destroy Windows 10 Spying 1.5 Build 295 Hot Fix [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516910.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65291DD3D6277103DF1D240166B654AC9DC987F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929895   (516896) от 21.08.2015
+
+Geekbrains | Вебинары (2014-2015) PCRec [H.264] (Часть 1)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный мир - это мир асинхронного взаимодействия клиента с сервером. Давно ушли те времена, когда единственной возможностью получить информацию с сайта, было полное обновление ее содержимого. Сейчас веб-страница может запрашивать только то, что ей нужно. Но мы пойдем дальше - напишем свой собственный чат!
+
+В ходе вебинара мы поработаем над созданием чата на (   Читать дальше...   )Жанр: Программирование, ВебинарыПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD0FA92FF6E671F80DEE7F346A39B0B6C9B9BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930128   (516895) от 21.08.2015
+
+Терминатор: Генезис / Terminator: Genisys (2015) HDTVRip [H.264/720p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джон Коннор, лидер сопротивления, посылает сержанта Кайла Риза назад в 1984 год, чтобы защитить Сару Коннор и спасти будущее, неожиданный поворот событий создает разлом во времени. Сержант Риз оказывается в новой, незнакомой версии прошлого, где он встречает неожиданных союзников, в том числе Терминатора, новых опасных врагов, и новую миссию: изменить будущее.Производство: США, Paramount Pictures, Skydance ProductionsЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Алан ТейлорАктеры: Арнольд Шварценеггер, Джейсон Кларк, Эмилия Кларк, Джай Кортни, Дж.К. Симмонс, Дайо Окенийи, Мэтт Смит, Кортни Б. Вэнс, Ли Бён Хон, Майкл ГлэдиПеревод: Дублированный (Чистый звук)Субтитры: Корейские (Вшитые не отключаемые)Продолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A224FBA10A39CB81BBB79C65571507B0814447EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929859   (516893) от 21.08.2015
+
+UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 RePack by VIPol [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516893.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9973183477A25C3D8C290592134656A5A909B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219598   (516873) от 20.08.2018
+
+Full Metal Panic! Invisible Victory | Fullmetal Panic! Invisible Victory | Стальная тревога! Незримая победа [2018, TV, 12 из 12] WEB-DL 1080p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в альтернативном мире, где СССР не был уничтожен, а великие державы ведут периферийные войны, в том числе, с помощью разнообразных мех.
+
+Образцовый мальчик-солдат, сержант Сосукэ Сагару, был направлен в обычную среднюю школу Японии для защиты Канамэ Тидори, девушки, которая обладает странными сверхспособностями.
+(   Читать дальше...   )Производство: Япония / XebecЖанр: Альтернативная история, комедия, приключения, фантастика, мехаРежиссер: Накаяма КацуитиПеревод: LazyFox & Костин Тимофей; HorribleSubsЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: ТВ, 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0DC904ACAB65BF5EA41D4CE055D70B310B2A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313951   (516749) от 16.07.2019
+
+Пляжный бездельник / The Beach Bum (2019) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отвязный тусовщик по кличке Лунный Пёс плевать хотел на все общественные нормы. Всё, что ему нужно, — это бабки на бухло и пляжные вечеринки. Но если он не допишет поэму, не получит наследства покойной жены. И стоит ли из-за этого париться?Производство: США, Великобритания / Iconoclast, Anonymous Content, Grisbi Productions, LeЖанр: KомедияРежиссер: Хармони КоринАктеры: Мэттью МакКонахи, Снуп Догг, Айла Фишер, Стефания Оуэн, Мартин Лоуренс, Зак Эфрон, Джона Хилл, Джимми Баффетт, Донован Сент Ви Уильямс, Дэвид БеннеттПеревод: АвторскийСубтитры: ОтсутствуютПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE0B998F7ADC25887BF176B2C43A23DC8CA61F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 52942   (516748) от 16.07.2019
 
 Aquadelic GT / Powerboat GT / Акваделик: Быстрее торпеды! (2007) [En] (1.0) License
@@ -6,7 +167,7 @@ Aquadelic GT / Powerboat GT / Акваделик: Быстрее торпеды!
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516748.jpg" />
+  <img src="Z:/picture/008/save_picture_516748.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516426.jpg" />
+  <img src="Z:/picture/008/save_picture_516426.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ VA - Лучшие Танцевальные Хиты 90-х (1993 - 1998) [FLAC|Lo
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516368.jpg" />
+  <img src="Z:/picture/008/save_picture_516368.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515929.jpg" />
+  <img src="Z:/picture/008/save_picture_515929.jpg" />
 </div>
 
 
@@ -117,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515916.jpg" />
+  <img src="Z:/picture/008/save_picture_515916.jpg" />
 </div>
 
 
@@ -143,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515890.jpg" />
+  <img src="Z:/picture/008/save_picture_515890.jpg" />
 </div>
 
 
@@ -171,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515745.jpg" />
+  <img src="Z:/picture/008/save_picture_515745.jpg" />
 </div>
 
 
@@ -198,7 +359,7 @@ eWeather HD v7.9.5 Premium [Ru/Multi] - погода, качество возд�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515699.jpg" />
+  <img src="Z:/picture/008/save_picture_515699.jpg" />
 </div>
 
 
@@ -224,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515415.jpg" />
+  <img src="Z:/picture/008/save_picture_515415.jpg" />
 </div>
 
 
@@ -250,7 +411,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (Loss
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515306.jpg" />
+  <img src="Z:/picture/008/save_picture_515306.jpg" />
 </div>
 
 
@@ -277,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_515001.jpg" />
+  <img src="Z:/picture/005/save_picture_515001.jpg" />
 </div>
 
 
@@ -303,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_514997.jpg" />
+  <img src="Z:/picture/005/save_picture_514997.jpg" />
 </div>
 
 
@@ -329,7 +490,7 @@ Acronis True Image 2019 Build 13660 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514729.jpg" />
+  <img src="Z:/picture/008/save_picture_514729.jpg" />
 </div>
 
 
@@ -355,7 +516,7 @@ Disturbed - 6albums + 1EP +7singles (2000-2015) [MP3|320kbps] <Alternative Metal
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514652.jpg" />
+  <img src="Z:/picture/008/save_picture_514652.jpg" />
 </div>
 
 
@@ -383,7 +544,7 @@ Winamp Pro 5.666 Build 3516 Final Repack by elchupacabra (22.08.2015) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514634.jpg" />
+  <img src="Z:/picture/008/save_picture_514634.jpg" />
 </div>
 
 
@@ -409,7 +570,7 @@ Endless Space - Emperor Special Edition [Ru] (Repack/1.0.14) 2012 | R.G. Element
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514219.jpg" />
+  <img src="Z:/picture/008/save_picture_514219.jpg" />
 </div>
 
 
@@ -435,7 +596,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 RC [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514190.jpg" />
+  <img src="Z:/picture/008/save_picture_514190.jpg" />
 </div>
 
 
@@ -463,7 +624,7 @@ CorelDRAW Graphics Suite X6 16.1.0.843 SP1 RePack by MKN [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514174.jpg" />
+  <img src="Z:/picture/008/save_picture_514174.jpg" />
 </div>
 
 
@@ -491,7 +652,7 @@ Microsoft Visual Studio 2012 - Оригинальные образы MSDN [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514169.jpg" />
+  <img src="Z:/picture/008/save_picture_514169.jpg" />
 </div>
 
 
@@ -521,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514126.jpg" />
+  <img src="Z:/picture/008/save_picture_514126.jpg" />
 </div>
 
 
@@ -532,166 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:460887FA67F43F1C7B795645B06590CE035E25B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229660   (513740) от 26.08.2010
-
-Microsoft Office Outlook 2007
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office Outlook 2007 — это программа-органайзер с функциями почтового клиента, входящая в пакет офисных программ Microsoft Office.
-
-Вместе, Microsoft Office Outlook 2007 и бизнес-почта на базе Exchange Server 2007 образуют комплексное решение для управления временем и информацией, способствующее повышению эффективности совместной работы с коллегами, клиентами (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930844   (513707) от 24.08.2015
-
-Антарктическая нейтрино-обсерватория IceCube подтверждает существование нейтрино, прибывающих из глубин Вселенной
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_513707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находящаяся в глубине антарктических льдов, нейтрино-обсерватория IceCube зарегистрировала некоторое количество призрачных, неуловимых и практически невесомых частиц нейтрино, прибывших из глубин Вселенной из источников, находящихся далеко за пределами Млечного Пути. Обнаружение этих космических нейтрино не только подтверждает факт их существования, измерение их (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930534   (513549) от 24.08.2015
-
-Windows 10 SpyStop 1.0.0 [Ru/De]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win10 SpyStop - еще одна программа для Windows 10, которая защищает вас от нежелательной передачи персональных данных.Язык интерфейса: Русский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADA71C96149E0F954FC288EEE83DBEA7EAD12D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930432   (513544) от 24.08.2015
-
-Windows 10 x86 x64 StartSoft 56-57 2015 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на ПК Windows 10 Enterprise и Windows 10 Pro VL,  с разной разрядностью.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E91AE87E3A32FAAE1A745831B69A865529039B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561751   (513299) от 06.07.2022
-
-Far Cry 6 (2021) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Far Cry 6 - компьютерная игра в жанре шутера от первого лица и action-adventure, разработанная студией Ubisoft Toronto и изданная компанией Ubisoft. Является шестой основной игрой из одноимённой серии. Действие происходит в вымышленной тропической стране Яра, и повествует о противостоянии главного героя (или героини) местного сопротивления по имени Дани Рохас и жестокого (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Toronto, Montreal, Shanghai, Berlin, KyivЖанр: Action (Shooter), FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1371CD3452D9A692C733FC6337F4E65710A1700C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536626   (513123) от 19.08.2012
-
-Topaz Labs Photoshop Plugins Bundle 2012 (x86/x64) [Английский + Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор плагинов от известной компании Topaz Labs для Adobe Photoshop, а также для Photoshop Elements. Плагины предназначены для регулирования программного расширения, имитации рисования маслом и акварелью, снижения шумов, отделения объекта от фона и объединения с другим изображением, увеличения резкости и многого другого. Большинство плагинов в комплекте с русификаторами.
-
-(   Читать дальше...   )Название программы: Topaz Labs Photoshop Plugins Bundle 2012Язык интерфейса: Английский + Русский *
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

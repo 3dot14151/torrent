@@ -6,7 +6,7 @@ EagleGet 2.0.4.20 Stable Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862914.jpg" />
+  <img src="Z:/picture/008/save_picture_862914.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862913.jpg" />
+  <img src="Z:/picture/008/save_picture_862913.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.16 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862874.jpg" />
+  <img src="Z:/picture/008/save_picture_862874.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862869.jpg" />
+  <img src="Z:/picture/008/save_picture_862869.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Current Value - Biocellulose (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862843.jpg" />
+  <img src="Z:/picture/008/save_picture_862843.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862836.jpg" />
+  <img src="Z:/picture/008/save_picture_862836.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ oCam 370.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862820.jpg" />
+  <img src="Z:/picture/008/save_picture_862820.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862816.jpg" />
+  <img src="Z:/picture/008/save_picture_862816.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ DevID Agent 4.37 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862812.jpg" />
+  <img src="Z:/picture/008/save_picture_862812.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ PDF24 Creator 8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862809.jpg" />
+  <img src="Z:/picture/008/save_picture_862809.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Extreme Picture Finder 3.33.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862804.jpg" />
+  <img src="Z:/picture/008/save_picture_862804.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862780.jpg" />
+  <img src="Z:/picture/008/save_picture_862780.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Comodo Dragon 48.12.18.249 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862777.jpg" />
+  <img src="Z:/picture/008/save_picture_862777.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ReGen - KeyCode 1.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862772.jpg" />
+  <img src="Z:/picture/008/save_picture_862772.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FileZilla 3.16.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862770.jpg" />
+  <img src="Z:/picture/008/save_picture_862770.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Password Safe 3.38.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862768.jpg" />
+  <img src="Z:/picture/008/save_picture_862768.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Monstercat 026 - Resistance (2016) [MP3|320 кб/с] <Drum & Bass, Drumstep
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862766.jpg" />
+  <img src="Z:/picture/008/save_picture_862766.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Traffic Monitor Plus 6.5.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862761.jpg" />
+  <img src="Z:/picture/008/save_picture_862761.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Commander One PRO - FTP client 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862755.jpg" />
+  <img src="Z:/picture/008/save_picture_862755.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft Windows and Office ISO Download Tool 4.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862718.jpg" />
+  <img src="Z:/picture/008/save_picture_862718.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862711.jpg" />
+  <img src="Z:/picture/008/save_picture_862711.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862705.jpg" />
+  <img src="Z:/picture/008/save_picture_862705.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862703.jpg" />
+  <img src="Z:/picture/008/save_picture_862703.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862698.jpg" />
+  <img src="Z:/picture/008/save_picture_862698.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ CodeRunner 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862695.jpg" />
+  <img src="Z:/picture/008/save_picture_862695.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862680.jpg" />
+  <img src="Z:/picture/008/save_picture_862680.jpg" />
 </div>
 
 

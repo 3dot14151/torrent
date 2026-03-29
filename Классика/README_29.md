@@ -6,7 +6,7 @@
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527293.jpg" />
+  <img src="Z:/picture/008/save_picture_527293.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Claude Debussy - The Complete Chamber Music (2002) 3CD [FLAC|Lossless|tracks]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523633.jpg" />
+  <img src="Z:/picture/008/save_picture_523633.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Tchaikovsky - Piano Concerto No.1; Prokofiev - Piano Concerto No.1 (Andrei Gavri
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523275.jpg" />
+  <img src="Z:/picture/008/save_picture_523275.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520870.jpg" />
+  <img src="Z:/picture/008/save_picture_520870.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Francesco Geminiani - Six Concerti Grossi, Op. 3: Christopher Hogwood & The Acad
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517626.jpg" />
+  <img src="Z:/picture/008/save_picture_517626.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Michael J. Burkard - Solar Symphony (2017) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517024.jpg" />
+  <img src="Z:/picture/008/save_picture_517024.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Sony Classical - Great Performances [1903-1998] (1999) 4CD BoxSet[FLAC|Loss
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516566.jpg" />
+  <img src="Z:/picture/008/save_picture_516566.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Lionel Rogg - Johann Sebastian Bach - Organ Works (12 CD) (1992) [FLAC|Lossless|
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515941.jpg" />
+  <img src="Z:/picture/008/save_picture_515941.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Johann Sebastian Bach - Audiophile Classic Collection (2000) tracks [Flac|Lossle
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515407.jpg" />
+  <img src="Z:/picture/008/save_picture_515407.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514935.jpg" />
+  <img src="Z:/picture/008/save_picture_514935.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mozart - The Piano Sonatas, Vol.1 (Glenn Gould) (2CDs) (1990) [FLAC|image +.cue]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513948.jpg" />
+  <img src="Z:/picture/008/save_picture_513948.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Ludovico Einaudi - Seven Days Walking (Day 5) (2019) Decca Records [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513735.jpg" />
+  <img src="Z:/picture/008/save_picture_513735.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513609.jpg" />
+  <img src="Z:/picture/008/save_picture_513609.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Robert Wells - Rhapsody In Rock Complete (2000) [FLAC|Lossless|image + .cue] <In
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512786.jpg" />
+  <img src="Z:/picture/008/save_picture_512786.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Highlights from Jesus Christ Superstar (1996) [MP3|320 кб/с]<Rock opera>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512222.jpg" />
+  <img src="Z:/picture/008/save_picture_512222.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Albinoni Tomaso Giovanni: Collegium Musicum 90 Simon Standage Authentic instrume
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512131.jpg" />
+  <img src="Z:/picture/008/save_picture_512131.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Diva - 30 Great Prima Donnas (2001) [FLAC|Lossless]<Classic, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511406.jpg" />
+  <img src="Z:/picture/008/save_picture_511406.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Luciano Pavarotti - Love Songs (2008) [MP3|320 кб/с]<Opera, Classical Music>
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511299.jpg" />
+  <img src="Z:/picture/008/save_picture_511299.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ William Sterndale Bennett - Piano Concertos Nos.2 & 5 (Nicholas Braithwaite & Ph
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510103.jpg" />
+  <img src="Z:/picture/008/save_picture_510103.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Shostakovich - Symphony No.10 (Herbert von Karajan & Berlin Philharmonic Orchest
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505355.jpg" />
+  <img src="Z:/picture/008/save_picture_505355.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Chopin - Nocturnes (Nelson Freire) (1998) [FLAC| image +.cue]<Classical, Romanti
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505282.jpg" />
+  <img src="Z:/picture/008/save_picture_505282.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Adagios (FLAC)
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503256.jpg" />
+  <img src="Z:/picture/008/save_picture_503256.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Vanhal - Symphonies (Concerto Koln) (2007) [FLAC|image +.cue]<Classical, Orchest
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502400.jpg" />
+  <img src="Z:/picture/008/save_picture_502400.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Nikita Magaloff - La Valse (1990) [FLAC|image +.cue]<Classical, Romantic Period,
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502324.jpg" />
+  <img src="Z:/picture/008/save_picture_502324.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossles
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502009.jpg" />
+  <img src="Z:/picture/008/save_picture_502009.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500824.jpg" />
+  <img src="Z:/picture/008/save_picture_500824.jpg" />
 </div>
 
 

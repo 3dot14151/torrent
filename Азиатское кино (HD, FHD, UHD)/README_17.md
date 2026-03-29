@@ -1,3 +1,107 @@
+###  Публикация: 1497315   (866459) от 21.09.2021
+
+Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный , Многоголосый профессиональныйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98927D3C4DB0FF38F06C959E61F76B606C876E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497349   (864868) от 22.09.2021
+
+Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный , Многоголосый профессиональныйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6C51447CB7CBA05FB9585B367A0309A354AC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497482   (864866) от 22.09.2021
+
+Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54CE0CAF98BE60D9D491B01F9CDBFCCAD226E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497467   (864788) от 22.09.2021
+
+Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9E77D064259A1CDCB97A020B6175CB1EA6D525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497483   (864774) от 22.09.2021
 
 Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864774.jpg" />
+  <img src="Z:/picture/008/save_picture_864774.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862757.jpg" />
+  <img src="Z:/picture/008/save_picture_862757.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862166.jpg" />
+  <img src="Z:/picture/008/save_picture_862166.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861971.jpg" />
+  <img src="Z:/picture/008/save_picture_861971.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861965.jpg" />
+  <img src="Z:/picture/008/save_picture_861965.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861831.jpg" />
+  <img src="Z:/picture/008/save_picture_861831.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861486.jpg" />
+  <img src="Z:/picture/008/save_picture_861486.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861246.jpg" />
+  <img src="Z:/picture/008/save_picture_861246.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860608.jpg" />
+  <img src="Z:/picture/008/save_picture_860608.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860606.jpg" />
+  <img src="Z:/picture/008/save_picture_860606.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860534.jpg" />
+  <img src="Z:/picture/008/save_picture_860534.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860035.jpg" />
+  <img src="Z:/picture/008/save_picture_860035.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859420.jpg" />
+  <img src="Z:/picture/008/save_picture_859420.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858663.jpg" />
+  <img src="Z:/picture/008/save_picture_858663.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858049.jpg" />
+  <img src="Z:/picture/008/save_picture_858049.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857897.jpg" />
+  <img src="Z:/picture/008/save_picture_857897.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857816.jpg" />
+  <img src="Z:/picture/008/save_picture_857816.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857657.jpg" />
+  <img src="Z:/picture/008/save_picture_857657.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857009.jpg" />
+  <img src="Z:/picture/008/save_picture_857009.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856893.jpg" />
+  <img src="Z:/picture/008/save_picture_856893.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856673.jpg" />
+  <img src="Z:/picture/008/save_picture_856673.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856662.jpg" />
+  <img src="Z:/picture/008/save_picture_856662.jpg" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C15E8CB22B1B01647DE8A8C484006F975839D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376909   (856347) от 19.04.2020
-
-Ип Ман 4 / Yip Man 4 (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [АVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1964 год. Уже немолодой Ип Ман узнаёт, что у него рак, а сына отчисляют из школы за очередную драку. Тут как раз Брюс Ли присылает учителю приглашение на чемпионат по карате и билет на самолёт в Штаты. Великий мастер отправляется в Сан-Франциско подыскать школу для сына и заодно посмотреть, как там живёт китайская диаспора. Выясняется, что в частные школы не берут (   Читать дальше...   )Производство: Гонконг, Китай / Bullet Films, Mandarin Motion PicturesЖанр: Боевик, Биография, ДрамаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Многоголосый профессиональный, АвторскийСубтитры: Русские (Forced), Английские (Full)Продолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E999C826E86FD1BBA2CDAE0228C980DED755DB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376976   (856342) от 19.04.2020
-
-Ип Ман 4 / Ip Man 4 (2019) BDRip [H.264/720p] [АVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1964 год. Уже немолодой Ип Ман узнаёт, что у него рак, а сына отчисляют из школы за очередную драку. Тут как раз Брюс Ли присылает учителю приглашение на чемпионат по карате и билет на самолёт в Штаты. Великий мастер отправляется в Сан-Франциско подыскать школу для сына и заодно посмотреть, как там живёт китайская диаспора. Выясняется, что в частные школы не берут (   Читать дальше...   )Производство: Гонконг, Китай | Bullet Films, Mandarin Motion PicturesЖанр: Боевик, Биография, ДрамаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Авторский (Дмитрий Есарев), Многоголосый профессиональныйСубтитры: Русские (Forced) Английские (Full)Продолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329B9546B19DA6C3630E9A2A94BC7ACF1F0F883D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375775   (856330) от 19.04.2020
-
-Ип Ман 4 / Yip Man 4 (2019) BDRemux [H.264/1080p] [АVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1964 год. Уже немолодой Ип Ман узнаёт, что у него рак, а сына отчисляют из школы за очередную драку. Тут как раз Брюс Ли присылает учителю приглашение на чемпионат по карате и билет на самолёт в Штаты. Великий мастер отправляется в Сан-Франциско подыскать школу для сына и заодно посмотреть, как там живёт китайская диаспора. Выясняется, что в частные школы не берут (   Читать дальше...   )Производство: Гонконг, Китай | Bullet Films, Mandarin Motion PicturesЖанр: Боевик, Биография, ДрамаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Авторский (Дмитрий Есарев), Многоголосый профессиональныйСубтитры: Русские (Forced) Английские (Full)Продолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4778E32D19FC860348B549B13125F0AC9DB32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375795   (856204) от 19.04.2020
-
-Ип Ман 4 / Yip Man 4 (2019) BDRip [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1964 год. Уже немолодой Ип Ман узнаёт, что у него рак, а сына отчисляют из школы за очередную драку. Тут как раз Брюс Ли присылает учителю приглашение на чемпионат по карате и билет на самолёт в Штаты. Великий мастер отправляется в Сан-Франциско подыскать школу для сына и заодно посмотреть, как там живёт китайская диаспора. Выясняется, что в частные школы не берут (   Читать дальше...   )Производство: Гонконг, Китай | Bullet Films, Mandarin Motion PicturesЖанр: Боевик, Биография, ДрамаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Авторский (Дмитрий Есарев), Многоголосый профессиональныйСубтитры: Русские (Forced) Английские (Full)Продолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9C5A3FFFECDF9E38126C733372D73E03540286
 ```
 
 https://mybot314.ru/tekegram_catalog/

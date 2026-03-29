@@ -6,7 +6,7 @@ Windows Firewall Control 4.6.2.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889526.jpg" />
+  <img src="Z:/picture/005/save_picture_889526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889507.jpg" />
+  <img src="Z:/picture/005/save_picture_889507.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Baptiste Giabiconi & Marie Mai - La-Bas (2013) HDTV [H.264/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889498.jpg" />
+  <img src="Z:/picture/005/save_picture_889498.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Car Audio Vol.7 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889479.jpg" />
+  <img src="Z:/picture/005/save_picture_889479.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ ASiE - Скованные льдом (2010) [MP3|256-320 kbps]<Club, Blues, Acou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889475.jpg" />
+  <img src="Z:/picture/005/save_picture_889475.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA -Artmkiss Chart Top10 (16.02.11)  [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889469.jpg" />
+  <img src="Z:/picture/005/save_picture_889469.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Last Autumn's Dream - In Disguise (2016) Japanese Edition [FLAC|Lossless|image +
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889468.jpg" />
+  <img src="Z:/picture/005/save_picture_889468.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Elements Lab - Templates for iWork 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889464.jpg" />
+  <img src="Z:/picture/005/save_picture_889464.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ CloudTV 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889463.jpg" />
+  <img src="Z:/picture/005/save_picture_889463.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Krusseldorf - Laidback (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889460.jpg" />
+  <img src="Z:/picture/005/save_picture_889460.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889440.jpg" />
+  <img src="Z:/picture/005/save_picture_889440.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889431.jpg" />
+  <img src="Z:/picture/005/save_picture_889431.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889417.jpg" />
+  <img src="Z:/picture/005/save_picture_889417.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ DomainHostingView 1.65 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889414.jpg" />
+  <img src="Z:/picture/005/save_picture_889414.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889412.jpg" />
+  <img src="Z:/picture/005/save_picture_889412.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Insta Shape Pro 1.2.8 [En/Ru] - обрезка ваших фотографий �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889410.jpg" />
+  <img src="Z:/picture/005/save_picture_889410.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mujuice - Amore e morte (2016) [MP3|320 кб/с] <Ambient, Electronic, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889397.jpg" />
+  <img src="Z:/picture/005/save_picture_889397.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889390.jpg" />
+  <img src="Z:/picture/005/save_picture_889390.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Elmedia Video Player Pro 6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889368.jpg" />
+  <img src="Z:/picture/005/save_picture_889368.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ K-Lite Codec Pack Update 16.4.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889366.jpg" />
+  <img src="Z:/picture/005/save_picture_889366.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Screen Snapshot 5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889363.jpg" />
+  <img src="Z:/picture/005/save_picture_889363.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Sensei 1.4.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889359.jpg" />
+  <img src="Z:/picture/005/save_picture_889359.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ MP3 Gain 4 v4.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889357.jpg" />
+  <img src="Z:/picture/005/save_picture_889357.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Typinator 8 v8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889342.jpg" />
+  <img src="Z:/picture/005/save_picture_889342.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Cocktail Big Sur Edition 14.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889340.jpg" />
+  <img src="Z:/picture/005/save_picture_889340.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Let It Roll: Drum & Bass, Vol. 2 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889336.jpg" />
+  <img src="Z:/picture/005/save_picture_889336.jpg" />
 </div>
 
 

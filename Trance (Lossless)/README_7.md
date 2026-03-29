@@ -6,7 +6,7 @@ VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [FLAC|Lossless|WEB
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363601.jpg" />
+  <img src="Z:/picture/008/save_picture_363601.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nicholson - Glorious (2019) [FLAC|Lossless|WEB|tracks|image] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363598.jpg" />
+  <img src="Z:/picture/008/save_picture_363598.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Armin Van Buuren - Embrace (2015) [FLAC|tracks+.cue]<Trance, Progressive House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362756.jpg" />
+  <img src="Z:/picture/008/save_picture_362756.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Koan - Crossing The Rubicon (2017) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360757.jpg" />
+  <img src="Z:/picture/008/save_picture_360757.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jurgen Vries feat. Andrea Britton ‎ - Take My Hand (2014) [FLAC|Lossless|WEB-D
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350278.jpg" />
+  <img src="Z:/picture/008/save_picture_350278.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Anjunabeats Volume 14 (Mixed By Above & Beyond) (2019) [FLAC|Lossless|WEB|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347858.jpg" />
+  <img src="Z:/picture/008/save_picture_347858.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Hitmen - Completed (2017) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346820.jpg" />
+  <img src="Z:/picture/008/save_picture_346820.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sion Rae - Everlast (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifti
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345744.jpg" />
+  <img src="Z:/picture/008/save_picture_345744.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ult
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341317.jpg" />
+  <img src="Z:/picture/008/save_picture_341317.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341301.jpg" />
+  <img src="Z:/picture/008/save_picture_341301.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Indecent Noise - Everything Is Connected (2020) Black Hole Recordings [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339975.jpg" />
+  <img src="Z:/picture/008/save_picture_339975.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Best Of Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337369.jpg" />
+  <img src="Z:/picture/008/save_picture_337369.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Techno Club Vol.56 (Mixed By Talla 2XLC & Taucher) (2019) [FLAC|Lossless|CD
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336598.jpg" />
+  <img src="Z:/picture/008/save_picture_336598.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Dash Berlin - The New Daylight (2009) [FLAC|Lossless|image + .cue] <Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334448.jpg" />
+  <img src="Z:/picture/008/save_picture_334448.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Paul Oakenfold – Mount Everest - The Base Camp Mix (2018)(2CD) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334340.jpg" />
+  <img src="Z:/picture/008/save_picture_334340.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Cosmic Baby - Heaven (1998) [APE|Lossless|image + .cue] <Trance, Downtempo, Ambi
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333040.jpg" />
+  <img src="Z:/picture/008/save_picture_333040.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Pavel Khvaleev feat Lia - Losing Battles (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305577.jpg" />
+  <img src="Z:/picture/008/save_picture_305577.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Richard Durand - The Air We Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305450.jpg" />
+  <img src="Z:/picture/008/save_picture_305450.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2017) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303526.jpg" />
+  <img src="Z:/picture/008/save_picture_303526.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - The Dark Side Of The Noom (1995) [FLAC|Lossless|tracks] <Acid, Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303521.jpg" />
+  <img src="Z:/picture/008/save_picture_303521.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Robert Miles - Dreamland (Remastered) (2016) [FLAC|Lossless|WEB-DL|tracks] <Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302103.jpg" />
+  <img src="Z:/picture/008/save_picture_302103.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Robert Nickson - Tellurian (2019) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301438.jpg" />
+  <img src="Z:/picture/008/save_picture_301438.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Men On The Noom - Labelcompilation #3 (2001) [FLAC|Lossless|tracks] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301378.jpg" />
+  <img src="Z:/picture/008/save_picture_301378.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Blank & Jones - The Singles (The Hitmix by Oliver Momm) (2019) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301346.jpg" />
+  <img src="Z:/picture/008/save_picture_301346.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [FLAC|Lossless|WEB-DL]<
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301328.jpg" />
+  <img src="Z:/picture/008/save_picture_301328.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Noomwalk The 5th Noom Compilation (1999) [FLAC|Lossless|tracks] <Hard House
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301297.jpg" />
+  <img src="Z:/picture/008/save_picture_301297.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1612083   (1040561) от 14.02.2023
+
+The Three-Body Problem - Light Gave Way (2023) [MP3|320 Kbps] <Progressive Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homecoming 03:46
+02. Light Gave Way To Her 04:20
+03. The Crested Ibis 02:50
+04. Writing Letters 04:59(   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F5EB96446310D23CC6AAB35D7186E72F0B477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611707   (1040559) от 14.02.2023
 
 VA - Intrigue - Steven Wilson presents Progressive Sounds in UK Alternative Music 1979-89 (2023) 4CD, Super Deluxe Edition, Demon Records [MP3|320 Kbps] <Progressive Rock,  Psychodelic>
@@ -6,7 +35,7 @@ VA - Intrigue - Steven Wilson presents Progressive Sounds in UK Alternative Musi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040559.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Solence - Hope is a Cult (2023) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040172.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Creye - III: Weightless (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040170.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Trevor Bolder - Sail The Rivers (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040115.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Brad Wallace - Slow Worm (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039954.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ ProAge - 4. Wymiar (2021) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039945.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Black Keys - Discography (2002 - 2010) [MP3|320 kbps]<Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039676.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Osi - Free (2006) Deluxe Edition, Remastered, 2021 [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039605.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Crack The Sky - Tribes (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039596.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Shocking Blue - The Blue Box (2017) 13CD (2017) [MP3|320 Kbps] <Classic Rock, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039579.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039338.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Steve Hughes - 3 Albums (2022-2023) [MP3|320 Kbps] <Neo Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039099.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Chris Norman (ex-Smokie) - Close Up (2007) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038863.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ VA - Romantic Collection '2000. Metal Ballads (2000) [OGG Vorbis|480 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038784.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Rick Miller - Altered States (2023) [MP3|320 Kbps] <Progressive Rock, Crossover 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038595.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038517.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Kungens Man - Trappmusik (2020) 2xCD [MP3|320 Kbps] <Krautrock, Psychedelic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038066.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - Romantic Collection: Metal Ballads 2 (2000) [OGG Vorbis|480 Kbps] <Rock, Ha
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038046.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Gerry Rafferty & Stealers Wheel - 14 Albums, Box Set (1971 - 2021) 17CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037842.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Inverna - Inverna, Pt. 1 (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037303.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Khan - Creatures (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037294.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ The Alan Parsons Project - The Turn Of A Friendly Card (1980) Limited Edition Bo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036703.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Fatal Fusion - Land of the Sun (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036630.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Roland Gassin - Born In The Seventies (2021) [MP3|320 Kbps] <Progressive Rock, C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036353.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036345.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F19F2077B4937B8B0085BEF98ABE2A1918935AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442833   (1036338) от 26.01.2021
-
-Be Cause - New Knights (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Me (04:32)
- 02. Lilith (04:18)
- 03. The Water's Gift (05:21)
- 04. Once In A While (05:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02B376364FBAD38F0DACC5E83D02B9DFA74AD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

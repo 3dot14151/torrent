@@ -6,7 +6,7 @@
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809410.jpg" />
+  <img src="Z:/picture/008/save_picture_809410.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809212.jpg" />
+  <img src="Z:/picture/008/save_picture_809212.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808813.jpg" />
+  <img src="Z:/picture/008/save_picture_808813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808731.jpg" />
+  <img src="Z:/picture/008/save_picture_808731.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806955.jpg" />
+  <img src="Z:/picture/008/save_picture_806955.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806951.jpg" />
+  <img src="Z:/picture/008/save_picture_806951.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806948.jpg" />
+  <img src="Z:/picture/008/save_picture_806948.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806840.jpg" />
+  <img src="Z:/picture/008/save_picture_806840.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806835.jpg" />
+  <img src="Z:/picture/008/save_picture_806835.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803125.jpg" />
+  <img src="Z:/picture/008/save_picture_803125.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799142.jpg" />
+  <img src="Z:/picture/008/save_picture_799142.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796732.jpg" />
+  <img src="Z:/picture/008/save_picture_796732.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795389.jpg" />
+  <img src="Z:/picture/008/save_picture_795389.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794619.jpg" />
+  <img src="Z:/picture/008/save_picture_794619.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794297.jpg" />
+  <img src="Z:/picture/008/save_picture_794297.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794212.jpg" />
+  <img src="Z:/picture/008/save_picture_794212.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794183.jpg" />
+  <img src="Z:/picture/008/save_picture_794183.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793485.jpg" />
+  <img src="Z:/picture/008/save_picture_793485.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793136.jpg" />
+  <img src="Z:/picture/008/save_picture_793136.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790896.jpg" />
+  <img src="Z:/picture/008/save_picture_790896.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790300.jpg" />
+  <img src="Z:/picture/008/save_picture_790300.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787432.jpg" />
+  <img src="Z:/picture/008/save_picture_787432.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786256.jpg" />
+  <img src="Z:/picture/008/save_picture_786256.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780489.jpg" />
+  <img src="Z:/picture/008/save_picture_780489.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780065.jpg" />
+  <img src="Z:/picture/008/save_picture_780065.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780047.jpg" />
+  <img src="Z:/picture/008/save_picture_780047.jpg" />
 </div>
 
 

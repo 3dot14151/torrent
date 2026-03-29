@@ -6,7 +6,7 @@ Meshuggah - The Violent Sleep of Reason (2016) [MP3|320 Kbps] <Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457253.jpg" />
+  <img src="Z:/picture/008/save_picture_457253.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rammstein - Verbrannte Erde (Der Arena, Berlin-Treptow - 27.09.1996) Live Bootle
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456939.jpg" />
+  <img src="Z:/picture/008/save_picture_456939.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Skyborne Reveries - Utterly Away (2020) [MP3|320 Kbps] <Atmospheric Black Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456132.jpg" />
+  <img src="Z:/picture/008/save_picture_456132.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dephosphorus - Sublimation (2020) [MP3|320 Kbps] <Dea﻿th Metal, Black M﻿etal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456125.jpg" />
+  <img src="Z:/picture/008/save_picture_456125.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Frowning - Death Requiem (2020) [MP3|320 Kbps] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456119.jpg" />
+  <img src="Z:/picture/008/save_picture_456119.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Night - High Tides - Distant Skies (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456019.jpg" />
+  <img src="Z:/picture/008/save_picture_456019.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455802.jpg" />
+  <img src="Z:/picture/008/save_picture_455802.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Queensryche - Condition Human (2015) [MP3|320 кб/с]<Heavy/ Power/ Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455754.jpg" />
+  <img src="Z:/picture/008/save_picture_455754.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Parsifal - Heavy Duty (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455307.jpg" />
+  <img src="Z:/picture/008/save_picture_455307.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Space Chaser - Dead Sun Rising (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455301.jpg" />
+  <img src="Z:/picture/008/save_picture_455301.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Liquid Steel - Midnight Chaser (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455298.jpg" />
+  <img src="Z:/picture/008/save_picture_455298.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Black Veil Brides - 2 Альбома 3 Сингла (2007-2011) [MP3|96-320 Кб
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455019.jpg" />
+  <img src="Z:/picture/008/save_picture_455019.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Leprous - Malina (2017) [MP3|320 Kbps] <Progressive Metal, Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454951.jpg" />
+  <img src="Z:/picture/008/save_picture_454951.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ After All - Waves Of Annihilation (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454904.jpg" />
+  <img src="Z:/picture/008/save_picture_454904.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Fit For A King - Dark Skies (2018) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454838.jpg" />
+  <img src="Z:/picture/008/save_picture_454838.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Tarja (Tarja Turunen) - Dead Promises (2019) Single [MP3|320 Kbps] <Symphonic Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454796.jpg" />
+  <img src="Z:/picture/008/save_picture_454796.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Soijl - Endless Elysian Fields (2015) [MP3|320 кб/с]<Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454076.jpg" />
+  <img src="Z:/picture/008/save_picture_454076.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Trivium - Silence In The Snow (2015) Special Edition [MP3|320 кб/с]<Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453400.jpg" />
+  <img src="Z:/picture/008/save_picture_453400.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ W.A.S.P. - Golgotha (2015) Limited Digipak [MP3|320 кб/с]<Hard Rock, Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453103.jpg" />
+  <img src="Z:/picture/008/save_picture_453103.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Nemesea - White Flag (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452593.jpg" />
+  <img src="Z:/picture/008/save_picture_452593.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Metallica - 2019/07/21 Moscow, RUS - LUZHNIKI STADIUM (2019) [MP3|256 Kbps] <Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452383.jpg" />
+  <img src="Z:/picture/008/save_picture_452383.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ For Today - 6 Альбомов + 2 EP (2007-2015) [MP3|224-320 кб/с]<Christia
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451362.jpg" />
+  <img src="Z:/picture/008/save_picture_451362.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [MP3|320 кб/с]<Melo
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450854.jpg" />
+  <img src="Z:/picture/008/save_picture_450854.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Tarja - In the Raw (2019) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450264.jpg" />
+  <img src="Z:/picture/008/save_picture_450264.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449449.jpg" />
+  <img src="Z:/picture/008/save_picture_449449.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Snakeskin - Tunes For My Santimea (2016) [MP3|320 Kbps] <Gothic Metal, EBM, Indu
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448508.jpg" />
+  <img src="Z:/picture/008/save_picture_448508.jpg" />
 </div>
 
 

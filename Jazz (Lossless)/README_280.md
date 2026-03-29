@@ -1,3 +1,119 @@
+###  Публикация: 1596281   (170437) от 09.12.2022
+
+Jojo Effect - Spreading Rhythm (2022) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz, Broken Beat, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dizzy's Bob
+02. Higher (Smooth Return)
+03. Rockin' Your Soul
+04. When Your Smilin'(   Читать дальше...   )Жанр: Future Jazz, Broken Beat, Acid JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2B37ED899D1A89E228A2716C6BA84353FD4DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515199   (170407) от 06.12.2021
+
+Modern Jazz Quartet - Milestones Of A Legend (1953 - 1962) 10CD, 2016, The Intense Media [FLAC|Lossless|tracks + .cue] <Cool, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170407.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 -  The Modern Jazz Quartet 1953 & Concorde:
+01. All The Things You Are [3:17]
+02. La Ronde [3:10]
+03. Vendome [3:15](   Читать дальше...   )Жанр: Cool, Third StreamПродолжительность: 12:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CACE0D4E3E8AB7024585B51815A93F92173D501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430719   (169998) от 11.12.2020
+
+Charlie Parker - 3 Essential Albums (1948 - 1952) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169998.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Jam Session:
+01. Jam Blues [14:45]
+02. What Is This Thing Called Love? [15:54]
+03. Ballad Medley [17:26](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 03:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCEE2E7AD070301EE6AAD671E52A1393CB30261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430843   (169984) от 11.12.2020
+
+Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) (2018) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 My Funny Valentine 6:37
+2 Bye Bye Blackbird 5:50
+3 For Once In My Life 6:15
+4 'S Wonderful 3:33(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3BDE591AD204EA03C0EBAB0894F2B9B8382359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596433   (169890) от 10.12.2022
 
 Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1993, Mosaic Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -6,7 +122,7 @@ Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169890.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169881.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169877.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169839.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169830.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169678.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169554.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Toshiyuki Miyama & The New Herd - Sunday Thing (1976) 2021, Three Blind Mice [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169542.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ J.J. Johnson - The Eminent Jay Jay Johnson, Vol. 1 (1953, 1954) 1995, Blue Note,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169533.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kazumi Tateishi Trio - Ghibli Meets Jazz: Memorable Songs (2011) Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169528.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Ben Webster - The Soul Of Ben Webster (1954 - 1958) 2019, MatchBall [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169522.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Good Feeling Chilly Light Relaxing Jazz Playlist (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169376.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Jazz Bar (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169271.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Andy Fusco - Vortex (2019) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169229.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Coleman Hawkins - In Europe 1934-1939 (1993) Timeless Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169170.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Peggy Lee - Trav'lin' Light 1946 - 1949 (2000) Capitol [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169143.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ McCoy Tyner & Freddie Hubbard Quartet - Live at Fabrik, Hamburg (1986) 2CD, 2022
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169087.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Bucky & John Pizzarelli - Family Fugue (2011) Arbors Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168722.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Monty Alexander - The Montreux Years (1993 - 2016) 2022, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168426.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Red Nichols And His Five Pennies - The Jazz Collector Edition 1929 (1991) LaserL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168366.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Jeanne Lee & Ran Blake - The Newest Sound Around 1961 (2000) RCA Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168361.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Peggy Lee - That Old Feeling & You Go To My Head 1944 - 1953 (2001) 2CD, Past Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168336.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9204EC7098B6B0B09A972D82CCDC2FBC0B851F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672814   (168270) от 29.10.2023
-
-Kammerflimmer Kollektief - Remixed (2006) [FLAC|Lossless|tracks + .cue] <Future Jazz, Free Jazz, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt (David Last's Doki Doki Rock Mix) (6:25)
-02. After The Rain (Aoki Takamasa Remix) (3:52)
-03. Lichterloh (Nôze Remix) (4:57)
-04. Unstet-Schleifen (Jan Jelinek Remix) (6:45)(   Читать дальше...   )Производство: Staubgold – staubgold 70Жанр: Electronic, Free Jazz, Abstract, Future Jazz, ExperimentalПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB246450A28F7CD9377FC0453DCA43A6C35E81E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672592   (168243) от 29.10.2023
-
-Acker Bilk - Great Moments With... (1998) Timeless Records [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening, Traditional Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jepers Creepers [4:38]
-02. Just A Closer Walk With Thee [6:12]
-03. Watermelon Man [3:50]
-04. Blaze Away [3:33](   Читать дальше...   )Жанр: Dixieland, Easy Listening, Traditional JazzПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E8415A5BFBA99FA0F3706FF1792EE54330B2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672594   (168223) от 29.10.2023
-
-Jeremy Pelt - The Art of Intimacy, Vol. 2: His Muse (2023) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...For Whom I Love So Much [6:31]
-02. Slow Hot Wind [5:19]
-03. If I Ruled the World [3:04]
-04. I Can't Escape from You [4:38](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F513D2E6BADBB2DA260021FA16D43ED254E8EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672591   (168183) от 29.10.2023
-
-Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine #1 [2:20]
-02. Over the Rainbow [3:32]
-03. Let's Get Lost [3:44]
-04. I've Never Been in Love Before [4:28](   Читать дальше...   )Жанр: CoolПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41EA78662831369D8C35D9BB4067C658E236CAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

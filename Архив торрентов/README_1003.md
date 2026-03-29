@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817828.jpg" />
+  <img src="Z:/picture/008/save_picture_817828.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sketch 78.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817789.jpg" />
+  <img src="Z:/picture/008/save_picture_817789.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ K-Lite Codec Pack Update 16.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817787.jpg" />
+  <img src="Z:/picture/008/save_picture_817787.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Bushido (2021) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Bo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817785.jpg" />
+  <img src="Z:/picture/008/save_picture_817785.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Artlantis 2021.2 v9.5.2.28201 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817782.jpg" />
+  <img src="Z:/picture/008/save_picture_817782.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Internet Download Manager 6.39 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817778.jpg" />
+  <img src="Z:/picture/008/save_picture_817778.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Benny Benassi & Vassy - Even If (Remixes) (2016) [MP3|320 кб/с] <Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817756.jpg" />
+  <img src="Z:/picture/008/save_picture_817756.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Elmedia Player PRO 6.5.1 (903) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817749.jpg" />
+  <img src="Z:/picture/008/save_picture_817749.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817747.jpg" />
+  <img src="Z:/picture/008/save_picture_817747.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817745.jpg" />
+  <img src="Z:/picture/008/save_picture_817745.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817735.jpg" />
+  <img src="Z:/picture/008/save_picture_817735.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817734.jpg" />
+  <img src="Z:/picture/008/save_picture_817734.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817732.jpg" />
+  <img src="Z:/picture/008/save_picture_817732.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817731.jpg" />
+  <img src="Z:/picture/008/save_picture_817731.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817728.jpg" />
+  <img src="Z:/picture/008/save_picture_817728.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817725.jpg" />
+  <img src="Z:/picture/008/save_picture_817725.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817717.jpg" />
+  <img src="Z:/picture/008/save_picture_817717.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Meta 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817709.jpg" />
+  <img src="Z:/picture/008/save_picture_817709.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Yate 5 v5.1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817688.jpg" />
+  <img src="Z:/picture/008/save_picture_817688.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Adware Zap Pro 2.7.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817686.jpg" />
+  <img src="Z:/picture/008/save_picture_817686.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Cascadea 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817684.jpg" />
+  <img src="Z:/picture/008/save_picture_817684.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Simple WebMonitor 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817676.jpg" />
+  <img src="Z:/picture/008/save_picture_817676.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Posterino 3 v3.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817674.jpg" />
+  <img src="Z:/picture/008/save_picture_817674.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ CPU-Z 1.98.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817647.jpg" />
+  <img src="Z:/picture/008/save_picture_817647.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Wise Care 365 Pro 5.9.2.584 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817645.jpg" />
+  <img src="Z:/picture/008/save_picture_817645.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Textify 1.8.7 RePack by AlexYar Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817641.jpg" />
+  <img src="Z:/picture/008/save_picture_817641.jpg" />
 </div>
 
 

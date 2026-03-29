@@ -1,3 +1,90 @@
+###  Публикация: 1561943   (512597) от 07.07.2022
+
+Patriarchs In Black - Reach for the Scars (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Groove Metal, Doom, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I'm the Dog (00:03:15)
+02 - Sing for the Devil (00:02:33)
+03 - The Submission Bell (00:04:39)
+04 - Built of Misery (00:03:20)(   Читать дальше...   )Жанр: Heavy Groove Metal, Doom, Stoner RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B845AA18DB8237FD1EAF628BD9982CE541123A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561704   (512593) от 07.07.2022
+
+Toblakai - The Book of the Fallen (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Witness (00:03:58)
+02 - Hail the Marines (00:03:34)
+03 - Edge of a Blade (00:03:44)
+04 - Icarium Lifestealer (00:04:18)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2DECC67849DD1F03F35B6505C7290FF6A9763C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561939   (512442) от 07.07.2022
+
+Crematory - Inglorious Darkness (2022) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inglorious Darkness
+02. Break Down The walls
+03. Trümmerwelten
+04. Rest In Peace(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB11A7767273D6EFAB061A87D60E22DA40714AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536484   (512390) от 20.08.2012
 
 Damnation Angels - Bringer Of Light (2012) Japanese Edition [FLAC|Lossless]<Symphonic Power Metal>
@@ -6,7 +93,7 @@ Damnation Angels - Bringer Of Light (2012) Japanese Edition [FLAC|Lossless]<Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512390.jpg" />
+  <img src="Z:/picture/008/save_picture_512390.jpg" />
 </div>
 
 
@@ -41,7 +128,7 @@ In The Silence - A Fair Dream Gone Mad (2012) [FLAC|Lossless]<Atmospheric Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512376.jpg" />
+  <img src="Z:/picture/008/save_picture_512376.jpg" />
 </div>
 
 
@@ -74,7 +161,7 @@ Tristania - Rubicon (2010) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511925.jpg" />
+  <img src="Z:/picture/008/save_picture_511925.jpg" />
 </div>
 
 
@@ -109,7 +196,7 @@ Violentor - Manifesto Di Odio (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511573.jpg" />
+  <img src="Z:/picture/008/save_picture_511573.jpg" />
 </div>
 
 
@@ -138,7 +225,7 @@ Profetus - The Sadness Of Time Passing (2019) [FLAC|Lossless|image + .cue] <Fune
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511572.jpg" />
+  <img src="Z:/picture/008/save_picture_511572.jpg" />
 </div>
 
 
@@ -167,7 +254,7 @@ Vaamatar - Medievalgeist (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511560.jpg" />
+  <img src="Z:/picture/008/save_picture_511560.jpg" />
 </div>
 
 
@@ -196,7 +283,7 @@ Virgin Idol - Virgin Idol (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511559.jpg" />
+  <img src="Z:/picture/008/save_picture_511559.jpg" />
 </div>
 
 
@@ -225,7 +312,7 @@ Profetus - Coronation Of The Black Sun & Saturnine (2006, 2009) 2xCD, Remastered
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511555.jpg" />
+  <img src="Z:/picture/008/save_picture_511555.jpg" />
 </div>
 
 
@@ -253,7 +340,7 @@ Vortesvin - What Remains of the World (2022) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511553.jpg" />
+  <img src="Z:/picture/008/save_picture_511553.jpg" />
 </div>
 
 
@@ -282,7 +369,7 @@ Transmetal - Adios Satanas (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511545.jpg" />
+  <img src="Z:/picture/008/save_picture_511545.jpg" />
 </div>
 
 
@@ -311,7 +398,7 @@ Trooper - X (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511533.jpg" />
+  <img src="Z:/picture/008/save_picture_511533.jpg" />
 </div>
 
 
@@ -340,7 +427,7 @@ Powerwolf - The Monumental Mass:  A Cinematic Metal Event (2022) 2xCD [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511493.jpg" />
+  <img src="Z:/picture/008/save_picture_511493.jpg" />
 </div>
 
 
@@ -369,7 +456,7 @@ Carnifex - 7 Альбомов + 1 EP (2007-2019) [FLAC|tracks|Lossless] <Deathco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510891.jpg" />
+  <img src="Z:/picture/008/save_picture_510891.jpg" />
 </div>
 
 
@@ -398,7 +485,7 @@ Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510181.jpg" />
+  <img src="Z:/picture/008/save_picture_510181.jpg" />
 </div>
 
 
@@ -427,7 +514,7 @@ Telekinetic Yeti - Abominable (2017) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509292.jpg" />
+  <img src="Z:/picture/008/save_picture_509292.jpg" />
 </div>
 
 
@@ -456,7 +543,7 @@ Wilt - Wilt (2012) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509291.jpg" />
+  <img src="Z:/picture/008/save_picture_509291.jpg" />
 </div>
 
 
@@ -485,7 +572,7 @@ Telekinetic Yeti - Primordial (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509290.jpg" />
+  <img src="Z:/picture/008/save_picture_509290.jpg" />
 </div>
 
 
@@ -514,7 +601,7 @@ Traitor - Exiled To The Surface (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509023.jpg" />
+  <img src="Z:/picture/008/save_picture_509023.jpg" />
 </div>
 
 
@@ -543,7 +630,7 @@ Zonaria - Arrival Of The Red Sun (2012) [FLAC|Lossless]<Melodic Death Metal/Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508640.jpg" />
+  <img src="Z:/picture/008/save_picture_508640.jpg" />
 </div>
 
 
@@ -578,7 +665,7 @@ Grave - Endless Procession of Souls (2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508633.jpg" />
+  <img src="Z:/picture/008/save_picture_508633.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Papa Roach - Time For Annihilation... On the Record & On the Road (2010) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508193.jpg" />
+  <img src="Z:/picture/008/save_picture_508193.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Negative 13 - Mourning Asteri (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508159.jpg" />
+  <img src="Z:/picture/008/save_picture_508159.jpg" />
 </div>
 
 
@@ -671,7 +758,7 @@ Within the Pyre - Within The Pyre (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508157.jpg" />
+  <img src="Z:/picture/008/save_picture_508157.jpg" />
 </div>
 
 
@@ -685,93 +772,6 @@ Within the Pyre - Within The Pyre (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F7FEC1B7C9129E57CA72E104AA11431DE86A2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562533   (508155) от 10.07.2022
-
-HolyRoller - Swimming Witches (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Atheist Prayer (00:03:28)
-02 - Stumbling Towards Death (00:05:14)
-03 - Earthdweller (00:03:25)
-04 - Last Embrace (00:04:49)(   Читать дальше...   )Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42A6CA07B720A51305661575CA02BF2ED23D174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562507   (508153) от 10.07.2022
-
-Undertow - Bipolar (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When Tears Became Scars (00:08:28)
-02 - On Fire (00:04:17)
-03 - Life Kills (00:06:02)
-04 - Call of the Sin (00:04:59)(   Читать дальше...   )Жанр: Groove, Gothic, Doom MetalПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7CDCA355E9FACD0415CDA13CF8D67D48F55BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562576   (508151) от 10.07.2022
-
-Wiegedood - There's Always Blood At The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - FN SCAR 16 (00:04:07)
-02 - And in Old Salamano's Room, The Dog Whimpered Softly (00:04:32)
-03 - Noblesse Oblige Richesse Oblige (00:05:06)
-04 - Until It Is Not (00:05:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9452CE89C331600943A550AACFBC000F9E6B216
 ```
 
 https://mybot314.ru/tekegram_catalog/

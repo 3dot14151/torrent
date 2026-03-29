@@ -1,3 +1,30 @@
+###  Публикация: 1048887   (544710) от 04.09.2016
+
+Виталий Крывич | Мастер-класс "Матчевая удочка" (1,2 части) (2013) DVDRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер-класс по матчевой удочке в онлайн видео, снятом членами Запорожского рыболовного клуба.
+Видео состоит из 2-х частей. В первой, теоретической, части рыболовы-спортсмены расскажут Вам о матчевой удочке: как выбрать матчевое удилище, матчевую катушку, различные виды матчевой оснастки, условия ловли матчевой удочкой и т.д. Во второй, практической, части настоящего (   Читать дальше...   )Производство: УкраинаЖанр: РыбалкаПродолжительность: 00:47:26, 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E0DE6DCF7247AD0F193842A710ED2EF859D5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924559   (542394) от 05.08.2015
 
 Евгений Попов | 7 уроков по лучшему облачному мененджеру задач Wunderlist (2015) PCRec [H.264/720p-LQ]
@@ -6,7 +33,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542394.jpg" />
+  <img src="Z:/picture/008/save_picture_542394.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531231.jpg" />
+  <img src="Z:/picture/008/save_picture_531231.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529118.jpg" />
+  <img src="Z:/picture/008/save_picture_529118.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524163.jpg" />
+  <img src="Z:/picture/008/save_picture_524163.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522995.jpg" />
+  <img src="Z:/picture/008/save_picture_522995.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518293.jpg" />
+  <img src="Z:/picture/008/save_picture_518293.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Games Workshop | Как красить миниатюры Citadel [2012] DVDRip 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514258.jpg" />
+  <img src="Z:/picture/008/save_picture_514258.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513927.jpg" />
+  <img src="Z:/picture/008/save_picture_513927.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Caden Painter | SWA COMPLETE FL STUDIO 12 (2015) PCRec [H.264/1080p] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512578.jpg" />
+  <img src="Z:/picture/008/save_picture_512578.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510044.jpg" />
+  <img src="Z:/picture/008/save_picture_510044.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497153.jpg" />
+  <img src="Z:/picture/008/save_picture_497153.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496038.jpg" />
+  <img src="Z:/picture/008/save_picture_496038.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491442.jpg" />
+  <img src="Z:/picture/008/save_picture_491442.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488188.jpg" />
+  <img src="Z:/picture/008/save_picture_488188.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487854.jpg" />
+  <img src="Z:/picture/008/save_picture_487854.jpg" />
 </div>
 
 
@@ -415,7 +442,7 @@ CHESS.COM | Видеолекции по шахматам сайта chess.com / 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470010.jpg" />
+  <img src="Z:/picture/008/save_picture_470010.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467846.jpg" />
+  <img src="Z:/picture/008/save_picture_467846.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456964.jpg" />
+  <img src="Z:/picture/008/save_picture_456964.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452685.jpg" />
+  <img src="Z:/picture/008/save_picture_452685.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ Michael Hauge, Christopher Vogler | Два пути героя. Секреты �
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444812.jpg" />
+  <img src="Z:/picture/008/save_picture_444812.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432230.jpg" />
+  <img src="Z:/picture/008/save_picture_432230.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424566.jpg" />
+  <img src="Z:/picture/008/save_picture_424566.jpg" />
 </div>
 
 
@@ -605,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423757.jpg" />
+  <img src="Z:/picture/008/save_picture_423757.jpg" />
 </div>
 
 
@@ -631,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422403.jpg" />
+  <img src="Z:/picture/008/save_picture_422403.jpg" />
 </div>
 
 
@@ -657,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422247.jpg" />
+  <img src="Z:/picture/008/save_picture_422247.jpg" />
 </div>
 
 
@@ -670,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78806CD5A77DB0D5B67C9CAF03DC2D6EF696CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947055   (419774) от 16.10.2015
-
-Андрей Сурков | Инсталяция навыков (2014) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тренинг, благодаря которому вы получите полный разбор всех технологий, необходимых для приобретения любого навыка в любой сфере.Жанр: Обучение, Навыки, СкорочтениеПродолжительность: 15:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CC70E6281DDCA67C94EFE4E41D07CB0D5C034C
 ```
 
 https://mybot314.ru/tekegram_catalog/

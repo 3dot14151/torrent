@@ -1,3 +1,143 @@
+###  Публикация: 1567821   (243660) от 04.08.2022
+
+Никита Строков | Адекватный директ (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243660.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе я расскажу, как:
+
+Запускать рабочие рекламные кампании за 5-6 дней
+Вести кампании и сокращать цену заявки в 2-5 раз(   Читать дальше...   )Жанр: Яндекс ДиректЯзык озвучки: РусскийПродолжительность: 19:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572911   (238425) от 29.08.2022
+
+Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Bootcamp  (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы гарантируем вам, что это самый полный и актуальный курс Cyber Security Bootcamp, который вы можете найти. Вы изучите и освоите самые современные инструменты и лучшие практики, чтобы вас могли нанять в качестве инженера и эксперта по кибербезопасности в таких ролях, как: аналитик реагирования на инциденты, аналитик рисков, пентестер и криминалист!Производство: Zero To Mastery Academy (ZTM)Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 10:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9551CDA462B5CFBA1F3E62957A5142744F7EF9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548762   (236966) от 06.05.2022
+
+Дмитрий Лаврик | React. Интенсивный курс для программистов (2022) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучить философию и дух компонентного подхода современных javascript-фреймворков, научиться использовать React для решения практических задач.
+Для новичков React сложнее, чем Vue.js. Но вакансий и заказов на фрилансе на нём больше.
+Для прохождения данного курса необходимо нормальное владение javascript, в том числе, понимание ООП, контекста, замыканий и стандарта (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 15:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C2929D964E8AB2CA172E0AF4C214EC089F317A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549717   (236910) от 07.05.2022
+
+Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое No-code - это современный тренд в запуске IT-продуктов, который позволяет создавать мобильные и веб приложения с помощью специальных сервисов-конструкторов вместо написания кода. Благодаря No-code подходу можно самому создать MVP без навыков программирования, за 2—4 недели и с вложениями до 100$.
+
+Как вы экономите и зарабатываете больше благодаря работе (   Читать дальше...   )Производство: Cyberband AcademyЖанр: No-CodeЯзык озвучки: РусскийПродолжительность: 143:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E973AF63200C29B053AEFE59534226C9286CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549478   (236838) от 07.05.2022
+
+DesignCourse, Gary Simon | Kickstart your UI/UX Design Career (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236838.jpg" />
+</div>
+
+
+###  Подробнее
+
+DesignCourse построен таким образом, чтобы предоставить начинающим дизайнерам необходимую основу для создания красивых пользовательских интерфейсов.
+Основы. Понимание и применение основных основ дизайна пользовательского интерфейса послужит вам фундаментом.
+Дизайн компонентов. Начните с основ дизайна компонентов.
+Дизайн макета. Как только вы поймете основы дизайна (   Читать дальше...   )Производство: DesignCourseЖанр: Веб-дизайн, UI/UXЯзык озвучки: АнглийскийПродолжительность: 16:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EED2F7AEFBBC6231C9104BE33C27E72B2C76701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549482   (236748) от 07.05.2022
 
 OTUS, Сергей Караткевич и др. | SRE практики и инструменты (2022) WEB-DL [RU]
@@ -6,7 +146,7 @@ OTUS, Сергей Караткевич и др. | SRE практики и ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236748.jpg" />
+  <img src="Z:/picture/005/save_picture_236748.jpg" />
 </div>
 
 
@@ -32,7 +172,7 @@ Udemy, Антон Трунович | Основы информационной �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236608.jpg" />
+  <img src="Z:/picture/005/save_picture_236608.jpg" />
 </div>
 
 
@@ -58,7 +198,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236583.jpg" />
+  <img src="Z:/picture/005/save_picture_236583.jpg" />
 </div>
 
 
@@ -84,7 +224,7 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236313.jpg" />
+  <img src="Z:/picture/005/save_picture_236313.jpg" />
 </div>
 
 
@@ -110,7 +250,7 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236045.jpg" />
+  <img src="Z:/picture/005/save_picture_236045.jpg" />
 </div>
 
 
@@ -136,7 +276,7 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236011.jpg" />
+  <img src="Z:/picture/005/save_picture_236011.jpg" />
 </div>
 
 
@@ -162,7 +302,7 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235994.jpg" />
+  <img src="Z:/picture/005/save_picture_235994.jpg" />
 </div>
 
 
@@ -188,7 +328,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235953.jpg" />
+  <img src="Z:/picture/005/save_picture_235953.jpg" />
 </div>
 
 
@@ -214,7 +354,7 @@ JUG Ru Group | TechTrain 2022 Spring. Фестиваль для разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235580.jpg" />
 </div>
 
 
@@ -240,7 +380,7 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235512.jpg" />
 </div>
 
 
@@ -269,7 +409,7 @@ JUG Ru Group | Mobius 2022 Spring. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235468.jpg" />
 </div>
 
 
@@ -297,7 +437,7 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235395.jpg" />
 </div>
 
 
@@ -323,7 +463,7 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235291.jpg" />
 </div>
 
 
@@ -350,7 +490,7 @@ Udemy, Oleg Novikov | Сайт на Django 3. Сервис по сбору да�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235273.jpg" />
 </div>
 
 
@@ -376,7 +516,7 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235238.jpg" />
 </div>
 
 
@@ -402,7 +542,7 @@ JUG Ru Group | HolyJS 2022 Spring. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235187.jpg" />
 </div>
 
 
@@ -430,7 +570,7 @@ Fulltimegamedev, Thomas Brush | Full Time Game Dev (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235150.jpg" />
 </div>
 
 
@@ -457,7 +597,7 @@ JUG Ru Group | DotNext 2022 Spring. Конференция для .NET‑раз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235115.jpg" />
 </div>
 
 
@@ -486,7 +626,7 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234996.jpg" />
 </div>
 
 
@@ -512,7 +652,7 @@ JUG Ru Group | C++ Russia 2022. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234985.jpg" />
 </div>
 
 
@@ -538,7 +678,7 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234877.jpg" />
+  <img src="Z:/picture/005/save_picture_234877.jpg" />
 </div>
 
 
@@ -552,142 +692,6 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19259603DC35F68A22B14F8DDDFFA8EAFA0D701B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551462   (234842) от 16.05.2022
-
-Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширенный курс JavaScript для всех! Scope, closures, prototypes, 'this', построение собственного фреймворка и многое другое.
-Javascript - это язык, который современные разработчики должны знать хорошо. Поистине зная Javascript, вы получите работу и сможете создавать качественные веб-и серверные приложения.
-В этом курсе вы получите глубокое понимание Javascript, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576887   (234781) от 16.09.2022
-
-Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собственного веб приложения (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальный коммерческий проекта на Ruby on Rails 6.0.2.1. Вы вместе со мной разработаете реальный коммерческий проект. Он будет состоять из API приложения, написанном на фреймворке Ruby on Rails последней версии на 2020 год 6.0.2.1 И часть фронтэнд на Java Script. Который будет отвечать за работу вашей веб камеры. Это будет немаленький кусок который дает понять как (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E54954790A1B80F3C3041AEB0BDBDAB0A769CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551848   (234605) от 17.05.2022
-
-Аналитика плюс, Вячеслав Ерин | Видео-курс «Основы теории создания хранилищ данных (DWH)» (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234605.jpg" />
-</div>
-
-
-###  Подробнее
-
-В навыки, требующиеся от эксперта по управлению данными, входит умение смоделировать и организовать хранилище данных. С точки зрения теории существуют правила построения, упрощающие дальнейшую работу (развитие и эксплуатацию) хранилища, — это так называемые нормальные формы.
-Начало практикума будет посвящено разбору всех известных в настоящее время нормальных форм, (   Читать дальше...   )Производство: Аналитика плюсЖанр: Базы данныхЯзык озвучки: РусскийПродолжительность: 04:27:08Реклама: Присутствуют сторонние наложения и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BFF29F156325C8206047AA51B6F5D2BEDE078A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577591   (234191) от 19.09.2022
-
-Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте высококачественные и готовые к игре функциональные транспортные средства в Unreal Engine 5 с помощью этого курса!
-В этом курсе я научу вас создавать транспортные средства, используя 100% Blueprints и готовые к использованию ассеты Unreal Engine 5. Конечно, в этом видео я также объясню, как вы можете импортировать свои собственные ресурсы из Blender, Maya (   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, Разработка игрЯзык озвучки: АнглийскийПродолжительность: 03:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA503C3B4AA8DCE7BC7A4A26BAF81488CC0BA851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577590   (234184) от 19.09.2022
-
-Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создать прототип игры Zombie Survival FPS с нуля, используя Unreal Engine 5.
-Мы будем шаг за шагом создавать нашего персонажа от первого лица, оружие, анимацию, эффекты и многое другое с нуля.
-После того, как мы это сделаем, мы перейдем к созданию искусственного интеллекта зомби и игровой механики.Производство: UdemyЖанр: Unreal Engine, Разработка игрЯзык озвучки: АнглийскийПродолжительность: 06:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFE12FF3166CE2223BD5A7164346AF40ADF9B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

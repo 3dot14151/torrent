@@ -1,3 +1,113 @@
+###  Публикация: 1346739   (157890) от 20.12.2019
+
+Big Mean Folder Machine 2 v2.41 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определеннокму критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
+
+Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE32AA06599EA2F7C84A8336906FC4368B3036D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346614   (157881) от 20.12.2019
+
+Hydra 4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hydra от Creaceed SPRL – программа для создания HDR-изображений. Вы можете импортировать в этот редактор до семи фотографий, снятых с различной экспозицией, для создания потрясающих HDR-изображений. Несмотря на то, что программа достаточно простая, в ней есть все необходимые средства для того, чтобы контролировать весь творческий процесс.
+
+Одна фотография не может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.11 El CapitanЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262D8775752C9CBAB7D80BD71DBF76C6546949C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600408   (157879) от 27.12.2022
+
+Finder Windows 1.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Finder Windows — это плавающая панель, которая дает вам мгновенный доступ к списку открытых окон Finder в любое время. Это решает ежедневную «борьбу» с попытками добраться до нужных папок среди постоянно меняющегося беспорядка открытых окон. Теперь вы можете просто мельком взглянуть на список и выбрать нужное окно. Или мгновенно закройте те, которые вам больше не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.12.2022Разработчик: © 2022 Finder Windows.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8083CD2F03FD9ACD84030AE0A4C1E0BE8C5EA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346705   (157871) от 20.12.2019
+
+Polarr Photo Editor Pro 5.10.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Polarr - единственный редактор фотографий, который вам нужен.
+
+Неважно, если вы новичок в области фотографии или профессионала, у Polarr есть все. Новички оценят, что Polarr предлагает расширенные средства автоматического улучшения и сложные фильтры для редактирования всех деталей вашей фотографии. Профессиональные фотографы с нетерпением ждут нашей поддержки слоев, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2019Разработчик: Polarr Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003FEA33FB5095B9F96EA54CF4FD6CC4E94006F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346713   (157838) от 20.12.2019
 
 Separation Studio 2.0.1 [En]
@@ -6,7 +116,7 @@ Separation Studio 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157838.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ uDock 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157836.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ DaVinci Resolve Studio 12.5.4 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157801.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ Weedcraft Inc. 1.3 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157795.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ TG Pro (Temperature Gauge Pro) 2.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157780.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ Things 3 v3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157770.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ Cinemagraph Pro 2.8.3 (build 223) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157655.jpg" />
 </div>
 
 
@@ -196,7 +306,7 @@ Path Finder 2149 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157653.jpg" />
 </div>
 
 
@@ -222,7 +332,7 @@ Mellel 4.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157624.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ Audirvana Plus 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157586.jpg" />
 </div>
 
 
@@ -276,7 +386,7 @@ Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157447.jpg" />
 </div>
 
 
@@ -302,7 +412,7 @@ MacPilot 12 v12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157423.jpg" />
 </div>
 
 
@@ -329,7 +439,7 @@ MediaInfo 17.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157418.jpg" />
 </div>
 
 
@@ -357,7 +467,7 @@ MacClean360 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157393.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ Money Pro - Personal Finance 2.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157384.jpg" />
 </div>
 
 
@@ -410,7 +520,7 @@ iA Writer 5.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157314.jpg" />
 </div>
 
 
@@ -436,7 +546,7 @@ TG Pro (Temperature Gauge Pro) 2.54 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157175.jpg" />
 </div>
 
 
@@ -463,7 +573,7 @@ Winclone Pro 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157118.jpg" />
 </div>
 
 
@@ -489,7 +599,7 @@ Permute 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157017.jpg" />
 </div>
 
 
@@ -516,7 +626,7 @@ Rhinoceros 7 v7.2.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157013.jpg" />
 </div>
 
 
@@ -544,7 +654,7 @@ LogTail 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157010.jpg" />
 </div>
 
 
@@ -572,7 +682,7 @@ Pastebot 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156964.jpg" />
 </div>
 
 
@@ -584,117 +694,6 @@ Pastebot - менеджер истории буфера обмена
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6540F53D74667A261A6E32B144ACBCCBAA005E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085910   (156928) от 22.12.2016
-
-Later - Create Quick Reminders With Presets 1.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Later позволяет планировать напоминания естественным образом, выбирая время, как в этот вечер, завтра утром или на следующей неделе. Чтобы добавить простое напоминание, позже приложение будет идеальным для вас.
-
-Основные преимущества:
-• Напоминания, которые появляются, когда вы вернулись на свой Mac(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Regular SIAПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC70CD2205454F494443641DCF7CCD8810B69D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085820   (156917) от 22.12.2016
-
-Sidify Apple Music Converter 1.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sidify Apple Music Converter -  хорошо продуманный аудио конвертер для iTunes музыки для пользователей Mac.
-Sidify Apple Music Converter может удалить DRM от Apple Music и позволяет сохранить треки в формате AAC или MP3 на локальном компьютере или музыкальных плеерах. Кроме того, вы можете использовать Sidify Apple Music конвертер для преобразования аудиокниги и музыку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Sidify Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFD8EBBFF28E1F8CC5B7EF34CC445AC30562DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968364   (156902) от 23.12.2015
-
-iMazing 1.4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156902.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 декабря 2015Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212B73FB724FF7A1001D57F84C8167C4973A46E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085912   (156794) от 22.12.2016
-
-Downie 2.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 декабря 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81637D4110BAA6FF4FE099E337D27DEAB4EBCD49
 ```
 
 https://mybot314.ru/tekegram_catalog/

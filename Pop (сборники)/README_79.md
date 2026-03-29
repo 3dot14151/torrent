@@ -1,3 +1,177 @@
+###  Публикация: 1057701   (472912) от 29.09.2016
+
+VA - 100 Planet Pop Love Songs Lyric (2016) [MP3|320 Kbps] <Pop, Lyric >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_472912.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George Ezra - Budapest
+002. Birdy - Growing Pains
+003. Calum Scott - Dancing On My Own
+004. Hozier - Take Me To Church(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 10:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED625059885058DF8DD815B42139B0AFF186B446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160937   (471768) от 26.08.2017
+
+VA - German Top 100 Single Charts 25.08.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471768.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axwell  Ingrosso - More Than You Know
+002. Luis Fonsi - Despacito (feat. Daddy Yankee)
+003. J. Balvin - Mi Gente
+004. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448BF580BDB09F9AF5B1A84442C651B52A743D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320335   (471391) от 18.08.2019
+
+VA - German Top 100 Single Charts 23.08.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes & Camila Cabello - Señorita
+002. Loredana - Eiskalt (feat. Mozzik)
+003. DJ Snake, J Balvin, Tyga - Loco Contigo
+004. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C904EA2C550BFFE9330D79AEC6D8090E106E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057805   (471314) от 30.09.2016
+
+VA - Хитовый Бум 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471314.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алексей Федоров - Развяжите Мои Крылья
+002. Flo Rida - My House
+003. Stephen - Your Life
+004. Миран Шильке - Гудки(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BD589F919E3FAB6C041361062CB352C59E6027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057817   (471303) от 30.09.2016
+
+VA - Попсовая Лихорадка Осени 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471303.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kim Waters - Possession
+002. Александр Закшевский - Может Быть
+003. Kendji Girac - Sonrisa
+004. Ева Польна - Мало(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E851FECC8F472DB39FC7DAC2C02C01BDAED5429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160637   (471277) от 26.08.2017
+
+VA - Ukrainian Hits - 33 Tracks (2017) [MP3|320 Kbps] <Pop, Pop rock, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скрябін - Пусти Мене (Lalo Project Remix) (3:33)
+02. Maximus - Леді (3:06)
+03. The HardKiss - Антарктида (3:59)
+04. Фактично Самi - Саша... (3:48)(   Читать дальше...   )Жанр: Pop, Pop Rock, Rock, ...Продолжительность: 02:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F8021126DBBA6A7C5A0D5ED7ECA638B832E868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057808   (471151) от 30.09.2016
 
 VA - Хит Атака 7 (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +180,7 @@ VA - Хит Атака 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471151.jpg" />
+  <img src="Z:/picture/008/save_picture_471151.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470998.jpg" />
+  <img src="Z:/picture/008/save_picture_470998.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470977.jpg" />
+  <img src="Z:/picture/008/save_picture_470977.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethni
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470853.jpg" />
+  <img src="Z:/picture/008/save_picture_470853.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470687.jpg" />
+  <img src="Z:/picture/008/save_picture_470687.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - 100 Greatest Dinner Party Songs (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470602.jpg" />
+  <img src="Z:/picture/008/save_picture_470602.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - XXXL Русский The Best (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469950.jpg" />
+  <img src="Z:/picture/008/save_picture_469950.jpg" />
 </div>
 
 
@@ -215,7 +389,7 @@ VA - Осенний Муз-драйв (2012) [MP3|128-256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469947.jpg" />
+  <img src="Z:/picture/008/save_picture_469947.jpg" />
 </div>
 
 
@@ -250,7 +424,7 @@ VA - Day At The Beach: Popular Dance Music (2018) [MP3|320 Kbps] <Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469893.jpg" />
+  <img src="Z:/picture/008/save_picture_469893.jpg" />
 </div>
 
 
@@ -279,7 +453,7 @@ VA - Осенняя Позитивная Сотка 2 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469068.jpg" />
+  <img src="Z:/picture/008/save_picture_469068.jpg" />
 </div>
 
 
@@ -308,7 +482,7 @@ VA - Любимая Волна Europa Plus (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469059.jpg" />
+  <img src="Z:/picture/008/save_picture_469059.jpg" />
 </div>
 
 
@@ -337,7 +511,7 @@ VA - German Top 50 Official Dance Charts 07.09.2018 (2018) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467879.jpg" />
+  <img src="Z:/picture/008/save_picture_467879.jpg" />
 </div>
 
 
@@ -366,7 +540,7 @@ VA - German Top 100 Single Charts 07.09.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467781.jpg" />
+  <img src="Z:/picture/008/save_picture_467781.jpg" />
 </div>
 
 
@@ -395,7 +569,7 @@ VA - Фабрика Русских Хитов (2012) [MP3|256 кб/с]<Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467601.jpg" />
+  <img src="Z:/picture/008/save_picture_467601.jpg" />
 </div>
 
 
@@ -430,7 +604,7 @@ VA - Попсовый Бум 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466314.jpg" />
+  <img src="Z:/picture/008/save_picture_466314.jpg" />
 </div>
 
 
@@ -459,7 +633,7 @@ VA - Мега Хиты Хорошего Настроения 9 (2016) [MP3|256 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466308.jpg" />
+  <img src="Z:/picture/008/save_picture_466308.jpg" />
 </div>
 
 
@@ -488,7 +662,7 @@ VA - Новички в попсе Vol 5 (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466116.jpg" />
+  <img src="Z:/picture/008/save_picture_466116.jpg" />
 </div>
 
 
@@ -517,7 +691,7 @@ Pet Shop Boys - Mega Collection (2016) [MP3|320 Kbps] <Europop, Synthpop, Euro-D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465863.jpg" />
+  <img src="Z:/picture/008/save_picture_465863.jpg" />
 </div>
 
 
@@ -546,7 +720,7 @@ VA - Дискотека: Звездопад на DFM 50/50 (2011) [MP3|256 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465285.jpg" />
+  <img src="Z:/picture/008/save_picture_465285.jpg" />
 </div>
 
 
@@ -581,7 +755,7 @@ VA - New Format Disco: Progressive Mix (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465268.jpg" />
+  <img src="Z:/picture/008/save_picture_465268.jpg" />
 </div>
 
 
@@ -595,186 +769,6 @@ VA - New Format Disco: Progressive Mix (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02770044C64B61AEB7C40BBDFC625B21A221ECEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320728   (465251) от 21.08.2019
-
-VA - Summer Madness: Pop Dance Selection (2019) [MP3|320 Kbps] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465251.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Caique Carvalho - Sexy Lady (Original Mix)
-002. Turbotronic - Body Talk (Original Mix)
-003. Nacim Ladj - Storm
-004. The Rockets - Spark (Edit)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 10:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CA15DCC2DB1B13F00514BC5CD0D45221B75B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940879   (464757) от 26.09.2015
-
-VA - Dream Hits vol.13 (2005) [MP3|256 кб/с]<Pop/Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464757.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Triplex vs. Apocalyptica - Battle With The Shadow
-002 X-Mode - Animals
-003 Sarah Connor - From Zero To Hero (Single Version)
-004 Alcazar - Alcastar(   Читать дальше...   )Жанр: Pop/DanceПродолжительность: 06:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E707F025382E8AFC5C3DF0631607524C9F46B2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548862   (464679) от 19.09.2012
-
-VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Radiohead - Creep
-02 Cb Milton - A Real Love
-03 Kaoma - Lambada
-04 Depeche Mode - I Feel Loved
-05 Intrance - Te Quierro Puta (Original Mix)
-06 Ivan - Fotonovella
-07 Whitney Houston - I Learned From The Best
-08 Maxi Priest - Close To You
-09 White Town - Your Woman
-10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059254   (464142) от 03.10.2016
-
-VA - Попсовый бум. Часть 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464142.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Филипп Киркоров & Soprano Турецкого - Ты Все Что Нужно Мне  3:51
-002. Макsим - Хорошо  3:34
-003. Biffguyz - Ты Вкусно Пахнешь  3:22
-004. Елена Есенина - Cup Your Hands  3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7344BBF8E34E73A8615B0C391DFF48EE34EB2ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568301   (463952) от 07.08.2022
-
-Kelly Clarkson - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minute (Intro)
-02. Bad Reputation
-03. The War is Over
-04. Standing in Front of You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 03:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115865C38E891740C77FFEC5F5791EC6889CAA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058953   (463891) от 03.10.2016
-
-VA - 80s Euro Disco Collection (2016) [MP3|320 Kbps] <Space Disco, Italo Disco, Eurobeat>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Bodyguard (12 Version) 06:23
-02. Silent Circle - Moonlight Affair (Maxi Version) 06:18
-03. C.C. Catch - I Can Lose My Heart Tonight (Extended Club Remix) 05:53
-04. Grant Miller - (Find My) Tracks In The Snow (12 Version) 05:06(   Читать дальше...   )Жанр: Space Disco, Italo Disco, EurobeatПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387AB2AABB29260D417F8B64EF62734B4E9F7362
 ```
 
 https://mybot314.ru/tekegram_catalog/

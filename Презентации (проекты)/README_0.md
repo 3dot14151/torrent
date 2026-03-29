@@ -1,3 +1,110 @@
+###  Публикация: 1851118   (1054793) от 31.01.2026
+
+Проекты - VideoHive - Vertical Promo Opener - 61554528 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон Vertical Promo Opener — это высококачественный видеошаблон, разработанный для оптимизации вашего творческого процесса и оживления ваших визуальных образов. Независимо от того, создаете ли вы профессиональные презентации, контент для социальных сетей, видеоролики для YouTube или рекламные материалы, этот шаблон предлагает стильные, настраиваемые элементы, которые (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A6734C929AADA6BCC79D5BE784F8DB4A641CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850785   (1054702) от 29.01.2026
+
+Проекты - VideoHive - Dark Cinematic Grunge Intro | Criminal Opener - 61507703 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачный кинематографический гранж-шаблон для After Effects.
+Идеально подходит для криминальных заставок, драматических вступительных роликов, мрачных промо-роликов, трейлеров, документальных фильмов и видеороликов в стиле триллера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AA27298E1896481D80D7C0E707C24D4DF11F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850723   (1054454) от 29.01.2026
+
+Проекты - VideoHive - Burn Opener - 52685643 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burn Opener — это экспрессивный, жаркий и визуально насыщенный шаблон для After Effects, который добавляет вашему видео огня. Эффектные переходы с имитацией горящей кинопленки (Film Burns), световые засветы и динамичный ритм создают атмосферу драйва, страсти и необузданной энергии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B173F0BD5AC3F9E424930C6ECCFEBB728BAEF94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850523   (1054410) от 28.01.2026
+
+Проекты - VideoHive - Movies Opener - 61588336 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movies Opener — это атмосферный, эмоциональный и профессионально сбалансированный шаблон для After Effects, созданный для того, чтобы задать правильный тон вашему фильму или видеоролику. Спокойная динамика, элегантная работа с текстом и фокус на визуальном повествовании позволяют погрузить зрителя в историю с первых секунд.
+
+Этот проект идеально подходит для тех, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2674560C8F397C9D5FE3564AB083AC3ED513B2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849942   (1053874) от 25.01.2026
 
 Проекты - VideoHive - Fashion Promo - 61518154 [AEP]
@@ -6,7 +113,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053874.jpg" />
+  <img src="Z:/picture/005/save_picture_1053874.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053679.jpg" />
+  <img src="Z:/picture/005/save_picture_1053679.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053522.jpg" />
+  <img src="Z:/picture/005/save_picture_1053522.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052810.jpg" />
+  <img src="Z:/picture/005/save_picture_1052810.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052620.jpg" />
+  <img src="Z:/picture/005/save_picture_1052620.jpg" />
 </div>
 
 
@@ -144,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052611.jpg" />
+  <img src="Z:/picture/005/save_picture_1052611.jpg" />
 </div>
 
 
@@ -172,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052232.jpg" />
+  <img src="Z:/picture/005/save_picture_1052232.jpg" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052032.jpg" />
+  <img src="Z:/picture/005/save_picture_1052032.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051439.jpg" />
+  <img src="Z:/picture/005/save_picture_1051439.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051067.jpg" />
+  <img src="Z:/picture/005/save_picture_1051067.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051046.jpg" />
+  <img src="Z:/picture/005/save_picture_1051046.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050996.jpg" />
+  <img src="Z:/picture/005/save_picture_1050996.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050255.jpg" />
+  <img src="Z:/picture/005/save_picture_1050255.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049711.jpg" />
+  <img src="Z:/picture/005/save_picture_1049711.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049222.jpg" />
+  <img src="Z:/picture/008/save_picture_1049222.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048899.jpg" />
+  <img src="Z:/picture/008/save_picture_1048899.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048525.jpg" />
+  <img src="Z:/picture/008/save_picture_1048525.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048416.jpg" />
+  <img src="Z:/picture/008/save_picture_1048416.jpg" />
 </div>
 
 
@@ -484,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048129.jpg" />
+  <img src="Z:/picture/008/save_picture_1048129.jpg" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048003.jpg" />
+  <img src="Z:/picture/008/save_picture_1048003.jpg" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046488.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034524.jpg" />
 </div>
 
 
@@ -573,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE4CAB537D2E930413077E9A5C421644DB42DF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448549   (1030611) от 18.02.2021
-
-Проекты - VideoHive - Awards Titles 2 - Ceremony Show - 25060571 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030611.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Awards Titles 2 - Ceremony Show» - это шаблон для церемонии награждения или шоу талантов. Он также может быть использован для любых других тем, таких как мода, и рекламные акции, номинации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3936F865784B94E41DC581E23F9CB036CA77BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448695   (1030609) от 18.02.2021
-
-Проекты - VideoHive - The Movie Awards Opener - 28382368 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030609.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Movie Awards Opener» - это проект для церемонии награждения и шоу талантов. Он также может быть использован для любых других тем, таких как мода, вечеринки, и в рекламных акциях.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1302438B7000D1464C6F6DDAC3AB3129F4049835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448734   (1030597) от 18.02.2021
-
-Проекты - VideoHive - Monochrome. Professional Photobook - 30217415 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный проект с модульной структурой и с изменяемыми размерами страниц.
-Можно использовать как презентацию, портфолио и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAFB2E98DB697936E102D97A98AA756BF3A3A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449479   (1029870) от 21.02.2021
-
-Проекты - VideoHive - News Pack - 22307759 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный пакет проектов в разрешении 4K, для оформления новостного канала.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86408EFA73F4569C0D7F21C7F39C0A24D028E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

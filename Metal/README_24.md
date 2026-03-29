@@ -6,7 +6,7 @@ Emmure - Look At Yourself (2017) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852023.jpg" />
+  <img src="Z:/picture/008/save_picture_852023.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sinister - Syncretism (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851919.jpg" />
+  <img src="Z:/picture/008/save_picture_851919.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andromida - 3 альбома + 3 EP (2016-2020) [MP3|320 Kbps] <Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851889.jpg" />
+  <img src="Z:/picture/008/save_picture_851889.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Infant Annihilator - The Elysian Grandeval Galeriarch (2016) [MP3|320 Kbps] <Tec
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851842.jpg" />
+  <img src="Z:/picture/008/save_picture_851842.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Judas Priest - Battle Cry (2016) Live / Bootleg [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850299.jpg" />
+  <img src="Z:/picture/008/save_picture_850299.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850161.jpg" />
+  <img src="Z:/picture/008/save_picture_850161.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Trivium - What the Dead Men Say (2020) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850084.jpg" />
+  <img src="Z:/picture/008/save_picture_850084.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Katatonia - City Burials (2020) [MP3|320 Kbps] <Doom Metal, Depressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849889.jpg" />
+  <img src="Z:/picture/008/save_picture_849889.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ SpellBlast - Nineteen (2014) [MP3|320 кб/с] <Rock, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849114.jpg" />
+  <img src="Z:/picture/008/save_picture_849114.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Axenstar - Far From Heaven (2003) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849111.jpg" />
+  <img src="Z:/picture/008/save_picture_849111.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Hellshaker - The Contract (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849108.jpg" />
+  <img src="Z:/picture/008/save_picture_849108.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Battlesword - Banners Of Destruction (2016) [MP3|320 кб/с] <Death Metal,Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848997.jpg" />
+  <img src="Z:/picture/008/save_picture_848997.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Dead Territory - Mind Of Damnation (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848995.jpg" />
+  <img src="Z:/picture/008/save_picture_848995.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Path Of Destiny - Dreams in Splendid Black (2016) [MP3|320 кб/с] <Symphonic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848986.jpg" />
+  <img src="Z:/picture/008/save_picture_848986.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ The Algorithm - Brute Force (2016) [MP3|320 кб/с] <Progressive Metal, Electro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848785.jpg" />
+  <img src="Z:/picture/008/save_picture_848785.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Ocean - Pelagial (2013) Limited Edition [MP3|320 кб/с]<Progressive Metal 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847736.jpg" />
+  <img src="Z:/picture/008/save_picture_847736.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846753.jpg" />
+  <img src="Z:/picture/008/save_picture_846753.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Doro - Love's Gone To Hell (2016) EP [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844921.jpg" />
+  <img src="Z:/picture/008/save_picture_844921.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Tommy Vitaly - Indivisible (2017) [MP3|320 Kbps] <Power Metal, Neoclassical Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844851.jpg" />
+  <img src="Z:/picture/008/save_picture_844851.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Moonsorrow - Jumalten Aika (2016) 2CD Limited Edition [MP3|320 кб/с] <Folk Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843491.jpg" />
+  <img src="Z:/picture/008/save_picture_843491.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Victorius - Heart of the Phoenix (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843303.jpg" />
+  <img src="Z:/picture/008/save_picture_843303.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Fen - Winter (2017) Deluxe Edition [MP3|320 Kbps] <Atmospheric Black Metal, Post
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843300.jpg" />
+  <img src="Z:/picture/008/save_picture_843300.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Cellador - Off The Grid (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843290.jpg" />
+  <img src="Z:/picture/008/save_picture_843290.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Earthists. - Dreamscape (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843191.jpg" />
+  <img src="Z:/picture/008/save_picture_843191.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Black Sabbath - Heaven and Hell (1980) 2xCD, Deluxe Edition, Reissue, Remastered
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842600.jpg" />
+  <img src="Z:/picture/008/save_picture_842600.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Bastian - Rock Of Daedalus (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841901.jpg" />
+  <img src="Z:/picture/008/save_picture_841901.jpg" />
 </div>
 
 

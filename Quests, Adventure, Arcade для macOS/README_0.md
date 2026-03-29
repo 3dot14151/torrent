@@ -6,7 +6,7 @@ Beyond Eyes (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Between Me and The Night (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925814.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Layers of Fear (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925745.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Leo's Fortune - HD Edition (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925729.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MISSING: An Interactive Thriller - Episode One (2015) [Multi/Ru] [OS X Native ga
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924107.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Toby: The Secret Mine (2015) [Eng] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924035.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Syberia Dilogy [Ru] (License GOG) [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923812.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Walking Dead: Michonne – A Telltale Miniseries. Episode 1 (2016) [Multi/Ru
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913048.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Raven - Legacy of a Master Thief. Chapter 1-3 (2013) [En/De] [OS X Native ga
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912957.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FEIST v2.4.0.7 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911432.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Fire (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907580.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Flame in the Flood (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907525.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Soul Axiom (2016) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902347.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Deponia Doomsday (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900511.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893447.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Beat Cop v1.1.744 (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889851.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Dwarrows v1.3 (2020) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883489.jpg" />
+  <img src="Z:/picture/005/save_picture_883489.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ In Other Waters 1.0.0 (2020) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881987.jpg" />
+  <img src="Z:/picture/005/save_picture_881987.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ The Witness v.19235 (2016) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876435.jpg" />
+  <img src="Z:/picture/005/save_picture_876435.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Donut County v1.1.0 (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870754.jpg" />
+  <img src="Z:/picture/008/save_picture_870754.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Littlewood v0.926 (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870752.jpg" />
+  <img src="Z:/picture/008/save_picture_870752.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Leviathan: The Last Day of the Decade. Episode 1-5 (2014) [Multi/Ru] [OS X Nativ
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869687.jpg" />
+  <img src="Z:/picture/008/save_picture_869687.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Shelter 2 + DLC (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869669.jpg" />
+  <img src="Z:/picture/008/save_picture_869669.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ CAYNE v2.0.0.1 (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868830.jpg" />
+  <img src="Z:/picture/008/save_picture_868830.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kentucky Route Zero: PC Edition v35733 (2013) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868726.jpg" />
+  <img src="Z:/picture/008/save_picture_868726.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The White Door v1.0 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858469.jpg" />
+  <img src="Z:/picture/008/save_picture_858469.jpg" />
 </div>
 
 

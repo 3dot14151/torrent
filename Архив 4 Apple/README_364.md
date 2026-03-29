@@ -1,3 +1,108 @@
+###  Публикация: 1566861   (478653) от 31.07.2022
+
+TextMan 1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478653.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C9F434367545697A72E9931E3957C1576CD0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566897   (478651) от 31.07.2022
+
+BusyContacts 2022.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478651.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2022Разработчик: © 2007-2022 Busy AppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911B5C1E64E86612AD4C633A11C253ABC3440FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566858   (478650) от 31.07.2022
+
+BarLinks: Menu Bar Bookmarks 1.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478650.jpg" />
+</div>
+
+
+###  Подробнее
+
+BarLinks позволяет хранить, быстро находить и открывать закладки прямо из строки меню. Он открывает любую ссылку, которую вы сохраняете, в новой вкладке с помощью браузера по умолчанию. Вам необязательно использовать браузер, чтобы открывать закладки из BarLinks. Утилита автоматически переключится на ваш браузер, пока вы используете любое другое приложение на своем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2022Разработчик: © Eric LesrimaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54332462771C37A4C4DE4873C0EEAC81DAE74CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566862   (478646) от 31.07.2022
+
+rcmd • App Switcher 2.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переосмысленная вкладка Command. Мы переосмыслили Command-Tab, чтобы переключать приложения без суеты.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2022Разработчик: © 2022 The low-tech guysПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7E036E20529FE47DBD1AB67E9C6E1C391248B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566908   (478640) от 31.07.2022
 
 FontLab 8 v8.0.1.8238 [En]
@@ -6,7 +111,7 @@ FontLab 8 v8.0.1.8238 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478640.jpg" />
+  <img src="Z:/picture/008/save_picture_478640.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ CleanMyMac 3.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478596.jpg" />
+  <img src="Z:/picture/008/save_picture_478596.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ macOS Server 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478595.jpg" />
+  <img src="Z:/picture/008/save_picture_478595.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Prism 9 v9.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478485.jpg" />
+  <img src="Z:/picture/008/save_picture_478485.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ Wondershare PDFelement Pro OCR 9.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478421.jpg" />
+  <img src="Z:/picture/008/save_picture_478421.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478338.jpg" />
+  <img src="Z:/picture/008/save_picture_478338.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Clipboard Manager 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478257.jpg" />
+  <img src="Z:/picture/008/save_picture_478257.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ BetterTouchTool 2.626 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478169.jpg" />
+  <img src="Z:/picture/008/save_picture_478169.jpg" />
 </div>
 
 
@@ -222,7 +327,7 @@ TotalFinder 1.10.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478119.jpg" />
+  <img src="Z:/picture/008/save_picture_478119.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478099.jpg" />
+  <img src="Z:/picture/008/save_picture_478099.jpg" />
 </div>
 
 
@@ -278,7 +383,7 @@ Direct Message for Instagram Pro 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478082.jpg" />
+  <img src="Z:/picture/008/save_picture_478082.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ Serial Box 09.2018 + SerialSeeker 1.3.15 (B8) + iSerial Reader 2.0.21 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477964.jpg" />
+  <img src="Z:/picture/008/save_picture_477964.jpg" />
 </div>
 
 
@@ -333,7 +438,7 @@ VueScan Pro 9.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477960.jpg" />
+  <img src="Z:/picture/008/save_picture_477960.jpg" />
 </div>
 
 
@@ -359,7 +464,7 @@ Downie 3.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477826.jpg" />
+  <img src="Z:/picture/008/save_picture_477826.jpg" />
 </div>
 
 
@@ -387,7 +492,7 @@ Business Mix for Pages 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477722.jpg" />
+  <img src="Z:/picture/008/save_picture_477722.jpg" />
 </div>
 
 
@@ -416,7 +521,7 @@ Corporate Packs for Pages 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477716.jpg" />
+  <img src="Z:/picture/008/save_picture_477716.jpg" />
 </div>
 
 
@@ -444,7 +549,7 @@ Layouts for Keynote 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477709.jpg" />
+  <img src="Z:/picture/008/save_picture_477709.jpg" />
 </div>
 
 
@@ -470,7 +575,7 @@ Elements for iWork 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477708.jpg" />
+  <img src="Z:/picture/008/save_picture_477708.jpg" />
 </div>
 
 
@@ -496,7 +601,7 @@ Forecast Bar - Weather, Radar and Alerts 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477606.jpg" />
+  <img src="Z:/picture/008/save_picture_477606.jpg" />
 </div>
 
 
@@ -524,7 +629,7 @@ Permute 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477599.jpg" />
+  <img src="Z:/picture/008/save_picture_477599.jpg" />
 </div>
 
 
@@ -550,7 +655,7 @@ CaptureGRID 4 v4.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477597.jpg" />
+  <img src="Z:/picture/008/save_picture_477597.jpg" />
 </div>
 
 
@@ -576,7 +681,7 @@ Wondershare DVD Creator 6.1.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477592.jpg" />
+  <img src="Z:/picture/008/save_picture_477592.jpg" />
 </div>
 
 
@@ -588,118 +693,6 @@ Wondershare DVD Creator - программа для создания новог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A8C5AB3B4B89D75A3D5DAB0F9EB544287C9DB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057084   (477513) от 27.09.2016
-
-Day One 2 Journal + Notes 2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day One 2: новый журнал-дневник
-Разработчики персонального журнала Day One выпустили новую, кардинально переработанную версию приложения. Версия 2.0, доступная на i-устройствах и "маках", получала ряд важных функций. Во-первых, теперь у пользователей есть возможность вести несколько дневников одновременно, а также присваивать им собственные цвета и названия. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 сентября 2016Разработчик: Bloom Built, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C9E9314D4B94E460BA92841161DB195E784A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057104   (477508) от 27.09.2016
-
-Super Vectorizer 2.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Vectorizer – профессиональное приложение для трассировки векторных изображений, осуществляющее преобразование растровых изображений форматов типа JPEG, BMP и PNG в масштабируемые векторные форматы всего за несколько щелчков мышью.
-
-Вы можете импортировать множество форматов в Super Vectorizer:
-JPG,BMP,PNG,GIF,PDF,PSD,PNT,RGB,ARW,BMPF,CUR,CRW,CR2,DCR,DNG,EPSF,EPSI,EPI,EPS,(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 сентября 2016Разработчик: Photo-in-Art StudioПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78BA5F22445DFE74FF035252D594733BB1A6FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406289   (477364) от 02.09.2020
-
-Art Text 4.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Text - красивая текстовая графика
-Art Text - незаменимая программа под Mac OS для тех кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. Программа позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
-
-Благодаря поддержке слоев, обширной векторной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.09.2020Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F28F922D43B8408A2028304754FECE481B7A287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406284   (477214) от 02.09.2020
-
-TG Pro (Temperature Gauge Pro) 2.50 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477214.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08F099847A1F366772867535A56DB968F8B477E
 ```
 
 https://mybot314.ru/tekegram_catalog/

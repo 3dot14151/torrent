@@ -1,3 +1,61 @@
+###  Публикация: 1019587   (748347) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O'Kay - The Wild Wild Western ( 1989 )
+02. Al Bano & Romina Power - Felicitа ( 1982 )
+03. Scotch - Delirio Mind ( 1985 )
+04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019572   (748332) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Colder Than Ice ( 1985 )
+02. Flirts - Boy Crazy ( 1982 )
+03. Lee Marrow - Shangai ( 1987 )
+04. Modern Talking - You Can Win If You Want ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019616   (748198) от 24.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -6,7 +64,7 @@ VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748198.jpg" />
+  <img src="Z:/picture/008/save_picture_748198.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747865.jpg" />
+  <img src="Z:/picture/008/save_picture_747865.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746839.jpg" />
+  <img src="Z:/picture/008/save_picture_746839.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Новички в попсе Vol 4 (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746754.jpg" />
+  <img src="Z:/picture/008/save_picture_746754.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Русский супер-хит (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746719.jpg" />
+  <img src="Z:/picture/008/save_picture_746719.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - German Top 100 Single Charts 18.02.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746709.jpg" />
+  <img src="Z:/picture/008/save_picture_746709.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - От Края До Края: Популярный Русский Хит (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746614.jpg" />
+  <img src="Z:/picture/008/save_picture_746614.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - All Out 60's (Vol.30) (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746123.jpg" />
+  <img src="Z:/picture/008/save_picture_746123.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Зарубежная Дискотека ХХ Века - 11 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745303.jpg" />
+  <img src="Z:/picture/008/save_picture_745303.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Улетай. Русский сборник попмузыки (2016) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745221.jpg" />
+  <img src="Z:/picture/008/save_picture_745221.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Shazam: Хит-парад Russia Top 100 Февраль (2019) [MP3|320 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744923.jpg" />
+  <img src="Z:/picture/008/save_picture_744923.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Schlager-Marathon 2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744869.jpg" />
+  <img src="Z:/picture/008/save_picture_744869.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Зарубежная Дискотека ХХ Века - 14 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743793.jpg" />
+  <img src="Z:/picture/008/save_picture_743793.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Зарубежная Дискотека ХХ Века - 17 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743787.jpg" />
+  <img src="Z:/picture/008/save_picture_743787.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Зарубежная Дискотека ХХ Века - 13 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743784.jpg" />
+  <img src="Z:/picture/008/save_picture_743784.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Зарубежная Дискотека ХХ Века - 19 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743711.jpg" />
+  <img src="Z:/picture/008/save_picture_743711.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Зарубежная Дискотека ХХ Века - 12 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743707.jpg" />
+  <img src="Z:/picture/008/save_picture_743707.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Зарубежная Дискотека ХХ Века - 15 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743706.jpg" />
+  <img src="Z:/picture/008/save_picture_743706.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Зарубежная Дискотека ХХ Века - 18 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743700.jpg" />
+  <img src="Z:/picture/008/save_picture_743700.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Зарубежная Дискотека ХХ Века - 20 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743694.jpg" />
+  <img src="Z:/picture/008/save_picture_743694.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Hot hits Car international (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743693.jpg" />
+  <img src="Z:/picture/008/save_picture_743693.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743585.jpg" />
+  <img src="Z:/picture/008/save_picture_743585.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743570.jpg" />
+  <img src="Z:/picture/008/save_picture_743570.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Зарубежная Дискотека ХХ Века - 21 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743462.jpg" />
+  <img src="Z:/picture/008/save_picture_743462.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 21 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3AC499072878207A29F038091DF35CC1FFAC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217135   (743356) от 04.04.2018
-
-VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dream Squad - Flow With the Fantasy
-002. E-Type - Back in the Loop
-003. The Free - Born Crazy
-004. 2alive - Tell it to My Heart Tonight(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217327   (743112) от 04.04.2018
-
-VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance, Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743112.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. No Mercy - Missing
-002. Culture Beat - Got To Get It
-003. Modjo - Lady(Hear Me Tonight)
-004. Take Twice - It's True(   Читать дальше...   )Жанр: Dance, Disco, EurodanceПродолжительность: 06:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
 ```
 
 https://mybot314.ru/tekegram_catalog/

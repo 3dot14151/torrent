@@ -6,7 +6,7 @@ SamDrivers 17.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853468.jpg" />
+  <img src="Z:/picture/008/save_picture_853468.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AdwCleaner 6.044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853467.jpg" />
+  <img src="Z:/picture/008/save_picture_853467.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853421.jpg" />
+  <img src="Z:/picture/008/save_picture_853421.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BluffTitler Ultimate 14.8.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853420.jpg" />
+  <img src="Z:/picture/008/save_picture_853420.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Drive Image Technician 6.3 Build 6302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853413.jpg" />
+  <img src="Z:/picture/008/save_picture_853413.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AOMEI Backupper Technician Plus 5.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853412.jpg" />
+  <img src="Z:/picture/008/save_picture_853412.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Disk Cleaner 10.2.8.779 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853411.jpg" />
+  <img src="Z:/picture/008/save_picture_853411.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853379.jpg" />
+  <img src="Z:/picture/008/save_picture_853379.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Techsmith Snagit 13.1.1 Build 7662 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853358.jpg" />
+  <img src="Z:/picture/008/save_picture_853358.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Clover 3.3.1.02271 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853356.jpg" />
+  <img src="Z:/picture/008/save_picture_853356.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AdminPE 3.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853346.jpg" />
+  <img src="Z:/picture/008/save_picture_853346.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Affinity Designer 1.5.2.58 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853344.jpg" />
+  <img src="Z:/picture/008/save_picture_853344.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stellarium 0.20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853280.jpg" />
+  <img src="Z:/picture/008/save_picture_853280.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853276.jpg" />
+  <img src="Z:/picture/008/save_picture_853276.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AdminPE10 1.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853235.jpg" />
+  <img src="Z:/picture/008/save_picture_853235.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 7 Manager 5.1.9.2 RePack (& portable) by KpoJIuK (02.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_853225.jpg" />
+  <img src="Z:/picture/009/save_picture_853225.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.03.02 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853221.jpg" />
+  <img src="Z:/picture/008/save_picture_853221.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Microsoft Windows and Office ISO Download Tool 8.35.0.141 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853147.jpg" />
+  <img src="Z:/picture/008/save_picture_853147.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AOMEI Backupper Pro 5.7.0 (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853140.jpg" />
+  <img src="Z:/picture/008/save_picture_853140.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Foxit Reader 9.7.2.29539 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853050.jpg" />
+  <img src="Z:/picture/008/save_picture_853050.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Foxit PhantomPDF Business 9.7.2.29539 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853044.jpg" />
+  <img src="Z:/picture/008/save_picture_853044.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852919.jpg" />
+  <img src="Z:/picture/008/save_picture_852919.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Google Earth Pro 7.3.3.7673 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852911.jpg" />
+  <img src="Z:/picture/008/save_picture_852911.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Opera GX 79.0.4143.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852726.jpg" />
+  <img src="Z:/picture/008/save_picture_852726.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ LDPlayer 4.0.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852725.jpg" />
+  <img src="Z:/picture/008/save_picture_852725.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ File & Image Uploader 8.1.5 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852724.jpg" />
+  <img src="Z:/picture/008/save_picture_852724.jpg" />
 </div>
 
 

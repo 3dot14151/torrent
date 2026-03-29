@@ -6,7 +6,7 @@ Serial Box 07.2020 + SerialSeeker 2.0 (build 44) + iSerial Reader 2.0.23 (build 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766941.jpg" />
+  <img src="Z:/picture/008/save_picture_766941.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766940.jpg" />
+  <img src="Z:/picture/008/save_picture_766940.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766939.jpg" />
+  <img src="Z:/picture/008/save_picture_766939.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Xliff Editor 2.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766938.jpg" />
+  <img src="Z:/picture/008/save_picture_766938.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Cisdem AppCrypt 4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766935.jpg" />
+  <img src="Z:/picture/008/save_picture_766935.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ IconJar 1.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766931.jpg" />
+  <img src="Z:/picture/008/save_picture_766931.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Boxy SVG 3.22.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766930.jpg" />
+  <img src="Z:/picture/008/save_picture_766930.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ iRingg 1.0.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766929.jpg" />
+  <img src="Z:/picture/008/save_picture_766929.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ApolloOne - Photo Video Viewer 2.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766926.jpg" />
+  <img src="Z:/picture/008/save_picture_766926.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Q-Dir 7.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766925.jpg" />
+  <img src="Z:/picture/008/save_picture_766925.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Prizmo Pro 3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766921.jpg" />
+  <img src="Z:/picture/008/save_picture_766921.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Q-Dir 8.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766912.jpg" />
+  <img src="Z:/picture/008/save_picture_766912.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Opera GX 68.0.3618.191 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766911.jpg" />
+  <img src="Z:/picture/008/save_picture_766911.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ K-Lite Codec Pack Update 15.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766902.jpg" />
+  <img src="Z:/picture/008/save_picture_766902.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Firefox Browser 78.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766900.jpg" />
+  <img src="Z:/picture/008/save_picture_766900.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ TechSmith Snagit 2020.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766895.jpg" />
+  <img src="Z:/picture/008/save_picture_766895.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766889.jpg" />
+  <img src="Z:/picture/008/save_picture_766889.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766885.jpg" />
+  <img src="Z:/picture/008/save_picture_766885.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Stand Up (2017.04.16) SATRip (сезон 6, выпуск 9) [AD]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766878.jpg" />
+  <img src="Z:/picture/008/save_picture_766878.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dism++ 10.1.25.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766877.jpg" />
+  <img src="Z:/picture/008/save_picture_766877.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WinTools.net Premium 19.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766872.jpg" />
+  <img src="Z:/picture/008/save_picture_766872.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Process Lasso Pro 9.0.0.568 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766870.jpg" />
+  <img src="Z:/picture/008/save_picture_766870.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Glary Utilities Pro 5.113.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766868.jpg" />
+  <img src="Z:/picture/008/save_picture_766868.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Mozilla Firefox Quantum ESR 60.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766858.jpg" />
+  <img src="Z:/picture/008/save_picture_766858.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Mozilla Thunderbird 68.10.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766849.jpg" />
+  <img src="Z:/picture/008/save_picture_766849.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766841.jpg" />
+  <img src="Z:/picture/008/save_picture_766841.jpg" />
 </div>
 
 

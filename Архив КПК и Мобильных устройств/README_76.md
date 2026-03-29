@@ -1,3 +1,29 @@
+###  Публикация: 869119   (367383) от 28.09.2019
+
+ArtRage v1.3.15 [Ru/En] - рисование красками на Android
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выразите свою художественную сторону с простыми в использовании инструментами, которые работают так же, как и реальные! ArtRage моделирует рисование красками на Android. Исследуйте мощную и интуитивно понятную среду, которая позволяет пользователям всех уровней работать с широким спектром натуральных красок и эскизных инструментов.Тип издания: Пиратка (Убрана проверка лицензии) + ModРелиз состоялся: 05.06.2019Разработчик: Ambient Design Ltd.Поддерживаемая ОС: Android 4.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6389E1EA58D4994183F8B060B87F3CBCDD087FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794540   (367206) от 27.10.2015
 
 Hangouts 5.1.105976615 [Ru] - Мессенджер от Google
@@ -6,7 +32,7 @@ Hangouts 5.1.105976615 [Ru] - Мессенджер от Google
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367206.jpg" />
+  <img src="Z:/picture/008/save_picture_367206.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Z.O.N.A Project X v1.03.02b  full [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367199.jpg" />
+  <img src="Z:/picture/008/save_picture_367199.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Cryten 10.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367191.jpg" />
+  <img src="Z:/picture/008/save_picture_367191.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Blippar 1.8.14 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366671.jpg" />
+  <img src="Z:/picture/008/save_picture_366671.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hardware Info 4.2.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365813.jpg" />
+  <img src="Z:/picture/008/save_picture_365813.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Alien Rescue Episode 1 v1.2.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365684.jpg" />
+  <img src="Z:/picture/005/save_picture_365684.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ System Info Droid 1.3.10 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365626.jpg" />
+  <img src="Z:/picture/008/save_picture_365626.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ringtone MP3 maker Premium 1.13 [En] - Cоздай собственный рин
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365500.jpg" />
+  <img src="Z:/picture/008/save_picture_365500.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Sixaxis Enabler 1.1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365492.jpg" />
+  <img src="Z:/picture/008/save_picture_365492.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ GLTools (Chainfire3D) 1.98 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365487.jpg" />
+  <img src="Z:/picture/008/save_picture_365487.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365343.jpg" />
+  <img src="Z:/picture/005/save_picture_365343.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Dead Effect v1.2.1 + Mod Money [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365331.jpg" />
+  <img src="Z:/picture/008/save_picture_365331.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Vuze Torrent Downloader 1.9.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365330.jpg" />
+  <img src="Z:/picture/008/save_picture_365330.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Durak-elite 6.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365321.jpg" />
+  <img src="Z:/picture/008/save_picture_365321.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Assassin's Creed 3  (2012) <Ru/En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365138.jpg" />
+  <img src="Z:/picture/005/save_picture_365138.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365123.jpg" />
+  <img src="Z:/picture/005/save_picture_365123.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Injustice: Gods Among Us v2.6.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364940.jpg" />
+  <img src="Z:/picture/008/save_picture_364940.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ EA SPORTS™ UFC v1.6.847112 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364823.jpg" />
+  <img src="Z:/picture/008/save_picture_364823.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ SimCity BuildIt v1.7.8.34921 + Mod Money [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364732.jpg" />
+  <img src="Z:/picture/008/save_picture_364732.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Paranormal Escape 2 v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363312.jpg" />
+  <img src="Z:/picture/008/save_picture_363312.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Outside World 1.4.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363308.jpg" />
+  <img src="Z:/picture/008/save_picture_363308.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362778.jpg" />
+  <img src="Z:/picture/005/save_picture_362778.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Nihilumbra v2.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362750.jpg" />
+  <img src="Z:/picture/008/save_picture_362750.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Hero Siege v2.0.4 + Mod  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362612.jpg" />
+  <img src="Z:/picture/008/save_picture_362612.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Digital Clock Widget Xperia 3.8.0.96 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362491.jpg" />
+  <img src="Z:/picture/008/save_picture_362491.jpg" />
 </div>
 
 
@@ -648,33 +674,6 @@ Digital Clock Widget Xperia - симпатичный виджет часов д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5731ACA567EF56EE82908BE81EB7A5160C3283CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653866   (362285) от 25.10.2017
-
-VPlayer 3.2.6 [RU]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362285.jpg" />
-</div>
-
-
-###  Подробнее
-
-VPlayer - очередной видеопроигрыватель на Android. Этот функциональный плеер способен воспроизводить самые популярные видео файлы. Поддерживает форматы: MOV, AVI, FLV, MKV, 3GP, WMV, 3G2, ASF, TP, TS, MTP, M2T, MP4, M4VРазработчик: Xuan Yi XiaПоддерживаемая ОС: Android 2.3+Субтитры: - (Advanced) SubStation Alpha (.ssa/.ass), SAMI (.smi), SubViewer (.sub), Subrip (.srt), MicroDVD (.sub), MPL2 (.txt)
- - MKV subtitle extraction supportedЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1DA3C3F49E76669EE1DFACA7A3E94C3D71AF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

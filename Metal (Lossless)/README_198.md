@@ -1,3 +1,90 @@
+###  Публикация: 1620575   (245651) от 20.03.2023
+
+Phantom Elite - Blue Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin Of My Teeth
+02. Inner Beast
+03. This Sick World
+04. Birdcage(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01D1829062CF34A4E3BE24552D1FDB24C8B42FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448651   (245634) от 19.02.2021
+
+Korpiklaani - Jylha (2021) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verikoira (6:19)
+02. Niemi (3:42)
+03. Levaluhta (3:50)
+04. Mylly (4:43)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A5C5963D0E49A51FE809E47D3554A238723F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608628   (245605) от 31.01.2023
+
+Strider - Midnight Zen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hive (00:03:50)
+02 - Bystander Apathy (00:08:16)
+03 - Dream With the Dreamer (00:05:26)
+04 - Midnight Zen (00:10:25)(   Читать дальше...   )Жанр: Heavy Psychedelic Rock, StonerПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F4D120C875FEFE7DD73D3035C34A56C5F59F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448638   (245597) от 19.02.2021
 
 Wizard - Metal In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
@@ -6,7 +93,7 @@ Wizard - Metal In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245597.jpg" />
+  <img src="Z:/picture/004/save_picture_245597.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ HammerFall - Renegade 2.0 (2021) 2xCD, Compilation, Remastered, Nuclear Blast, 2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245586.jpg" />
+  <img src="Z:/picture/004/save_picture_245586.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Jen Ascending - Bleeding Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245584.jpg" />
+  <img src="Z:/picture/004/save_picture_245584.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Iron Mask - Diabolica (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245577.jpg" />
+  <img src="Z:/picture/004/save_picture_245577.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Graveworm - Scourge of Malice (2001) [FLAC|Lossless|image + .cue] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245576.jpg" />
+  <img src="Z:/picture/004/save_picture_245576.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Kenziner - Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245568.jpg" />
+  <img src="Z:/picture/004/save_picture_245568.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Ola Englund - Starzinger (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245562.jpg" />
+  <img src="Z:/picture/004/save_picture_245562.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Within Temptation - And We Run (2014) Japanese Edition, EP [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245551.jpg" />
+  <img src="Z:/picture/004/save_picture_245551.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Marco Garau's Magic Opera - Battle of Ice (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245541.jpg" />
+  <img src="Z:/picture/004/save_picture_245541.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Diablation - Par Le Feu (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245494.jpg" />
+  <img src="Z:/picture/004/save_picture_245494.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Carnivored - Revival (2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245474.jpg" />
+  <img src="Z:/picture/004/save_picture_245474.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Den Saakaldte - Kapittel II: Faen I Helvete (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245464.jpg" />
+  <img src="Z:/picture/004/save_picture_245464.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Kayser - IV: Веуоnd Тhе Rееf Оf Sаnitу (2016) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245445.jpg" />
+  <img src="Z:/picture/004/save_picture_245445.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ The Fallen Prophets - No End In Sight (2021) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245442.jpg" />
+  <img src="Z:/picture/004/save_picture_245442.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Roxxcalibur - Gems Of The NWOBHM (2015) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245435.jpg" />
+  <img src="Z:/picture/004/save_picture_245435.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Withering Worlds - The Long Goodbye (2021) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245423.jpg" />
+  <img src="Z:/picture/004/save_picture_245423.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Discreation - Iron Times (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245410.jpg" />
+  <img src="Z:/picture/004/save_picture_245410.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Vanish - A Hint Of Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245407.jpg" />
+  <img src="Z:/picture/004/save_picture_245407.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ High Spirits - Another Night (2011) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245390.jpg" />
+  <img src="Z:/picture/004/save_picture_245390.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Austere - Corrosion of Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245389.jpg" />
+  <img src="Z:/picture/004/save_picture_245389.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Deathcode Society - Eschatonizer (2015) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245383.jpg" />
+  <img src="Z:/picture/004/save_picture_245383.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Demonstealer - The Propaganda Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245378.jpg" />
+  <img src="Z:/picture/004/save_picture_245378.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Manegarm - Manegarm (2015) [FLAC|Lossless|image + .cue] <Viking Metal, Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245365.jpg" />
+  <img src="Z:/picture/004/save_picture_245365.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Manegarm - Manegarm (2015) [FLAC|Lossless|image + .cue] <Viking Metal, Black Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD72C6107836FB35D44EF22079B558C6AE0D5F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060832   (245358) от 08.10.2016
-
-Panopticon - Roads To The North (2014) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Echoes Of A Dissonant Evensong 09:35
-02. Where Mountains Pierce the Sky 12:42
-03. The Long Road Part 1: One Last Fire... 05:56
-04. The Long Road Part 2: Capricious Miles 07:53(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442E3B2E8AFFF6F3B714A5D0AB2CA36862F780D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512634   (245344) от 25.11.2021
-
-Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set You Free
-02. Destroy & Conquer
-03. You Made Me Want To Live
-04. Forever And A Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593F4F9AA874B2B9A75C485ED31BDFC101CC0A43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060800   (245336) от 08.10.2016
-
-Ninja - Invincible (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invincible
-02. Phoenix
-03. Wet Dreams
-04. Hard As Steel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB37900D8CE9A56D7342BCB756CC2B1AE2B61A8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

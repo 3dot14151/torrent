@@ -1,3 +1,32 @@
+###  Публикация: 1816906   (3900) от 07.09.2025
+
+Lady Gaga - Mayhem (2025) [MP3|320 Kbps] <Pop, Dance-Pop, Art Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disease [3:51]
+02 - Abracadabra [3:44]
+03 - Garden Of Eden [4:00]
+04 - Perfect Celebrity [3:50](   Читать дальше...   )Жанр: Pop, Dance-Pop, Art RockПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FA1F4FE59CB60F0D9AB12420D0EC4EB86AF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817779   (2932) от 13.09.2025
 
 Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop>
@@ -6,7 +35,7 @@ Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2932.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sophie Ellis-Bextor - Perimenopop (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2768.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1985.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1569.jpg" />
 </div>
 
 

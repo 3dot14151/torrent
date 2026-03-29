@@ -1,3 +1,30 @@
+###  Публикация: 1554229   (232267) от 29.05.2022
+
+CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное полное обновление самого классного и профессионального курса по созданию персонажа!
+Целью этого курса является освоение процесса создания персонажей для фильмов и игровых синематиков, включая все аспекты композиции и нарратив. Каждую неделю курса мы посвятим отдельному аспекту процесса создания модели персонажа и последовательно создадим полностью законченную (   Читать дальше...   )Производство: CGMAЖанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 31:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317746C0020B1DEEB88823FEFF83C8DB7E14E9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554431   (232161) от 30.05.2022
 
 Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2020) PCRec [EN]
@@ -6,7 +33,7 @@ Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232161.jpg" />
+  <img src="Z:/picture/005/save_picture_232161.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232093.jpg" />
+  <img src="Z:/picture/005/save_picture_232093.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231997.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ World Of Level Design | UE4 Fundamentals Vol.1: The Essential Beginner's Guide t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231973.jpg" />
+  <img src="Z:/picture/005/save_picture_231973.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231964.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231955.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231945.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231938.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ Lynda, Brian Morse | PFTrack Essential Training (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231937.jpg" />
+  <img src="Z:/picture/005/save_picture_231937.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Udemy, Michael Gerard | Unreal Engine 4 - Learn How to Create a Lost Road scene 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231911.jpg" />
+  <img src="Z:/picture/005/save_picture_231911.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ The Gnomon Workshop, Gary Meyer | Fundamentals of Perspective Vol. 1-3 (2012) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231826.jpg" />
+  <img src="Z:/picture/005/save_picture_231826.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ Rohan Dalvi | Procedural Modeling in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231698.jpg" />
+  <img src="Z:/picture/005/save_picture_231698.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231307.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231247.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231215.jpg" />
+  <img src="Z:/picture/005/save_picture_231215.jpg" />
 </div>
 
 
@@ -415,7 +442,7 @@ Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231128.jpg" />
+  <img src="Z:/picture/005/save_picture_231128.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230633.jpg" />
+  <img src="Z:/picture/004/save_picture_230633.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230627.jpg" />
+  <img src="Z:/picture/004/save_picture_230627.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230612.jpg" />
+  <img src="Z:/picture/004/save_picture_230612.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230601.jpg" />
+  <img src="Z:/picture/004/save_picture_230601.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230580.jpg" />
+  <img src="Z:/picture/004/save_picture_230580.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ CG Forge, Tyler Bay | Pyro II - Flames & Sparse Pyro (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230523.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230413.jpg" />
+  <img src="Z:/picture/005/save_picture_230413.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230393.jpg" />
+  <img src="Z:/picture/005/save_picture_230393.jpg" />
 </div>
 
 
@@ -664,7 +691,7 @@ Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230317.jpg" />
+  <img src="Z:/picture/005/save_picture_230317.jpg" />
 </div>
 
 
@@ -677,32 +704,6 @@ Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:570065B9F8A558A18C17CA54B5AE8CA091CE83E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556922   (230284) от 11.06.2022
-
-The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material System Overview (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230284.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом всеобъемлющем семинаре из 18 глав, который проводит ведущий инженер по цифровым проектам Чарлстон Сильверман, дается полный обзор системы Материалов Unreal. Предоставляя ценную информацию о функциях Unreal и демонстрируя, как использовать многие из функций, доступных в этой мощной системе, Чарлстон проводит зрителя как по основным, так и по расширенным настройкам, (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Создание материаловЯзык озвучки: Русский (отдельным файлом)Продолжительность: 03:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A0D24C5B66972EB1AC6536EF965223F54113BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

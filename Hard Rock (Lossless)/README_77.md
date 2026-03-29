@@ -1,3 +1,61 @@
+###  Публикация: 1638441   (212017) от 08.06.2023
+
+White Spirit - Right or Wrong (2022) Special Edition, 2023, Malcolm Pearson [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_212017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Right or Wrong (00:04:49)
+02 - Runaway (00:04:03)
+03 - The Dice Rolls On (00:04:53)
+04 - Lady of the Night (00:04:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE99430153016F41E70ACED7B7591B9F02E48964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252532   (211854) от 20.10.2022
+
+Steelheart - 7 Albums (1990-2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_211854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых недооценённых групп - американская глэм-метал-группа Steelheart «Стальное сердце», созданная в 1990 году Майклом Матиевичем (уроженец Загреба Мильенко Матиевич, сменивший имя в 6 лет при переезде в США). Идея названия группы так-же принадлежит ему, бессменному лидеру группы. В разгар раскрутки альбома "Tangled In Reins", вышедшего в 1992 году, (   Читать дальше...   )--------------------------
+
+01. Blood Pollution (8:12)
+02. Livin' The Life (3:57)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Modern Rock |Продолжительность: 05:53:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF53006384CB855E1CFDE3F720A9C91B46CCEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638854   (211821) от 10.06.2023
 
 Shakra - Invincible (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Shakra - Invincible (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211821.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211767.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Space Queen - Nebula (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211751.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Halocene - Maleficent (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211739.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Gary Glitter / The Glitter Band - 21 Albums, 2 Box-sets, 26CD (1972-2021) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209376.jpg" />
+  <img src="Z:/picture/005/save_picture_209376.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209215.jpg" />
+  <img src="Z:/picture/005/save_picture_209215.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ H.E.A.T - 9 Studio Albums (2008-2022) 14xCD, Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207882.jpg" />
+  <img src="Z:/picture/005/save_picture_207882.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206477.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Aerosmith - Greatest Hits (2023) 3CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205842.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205608.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Enuff Z'nuff - Peach Fuzz (1996) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205601.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Axe - 10 albums, 19 CD (1979-2019) Discography [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205061.jpg" />
+  <img src="Z:/picture/004/save_picture_205061.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Jorn - 40 albums, 54CD (1994-2022) [FLAC|Lossless|image + .cue |tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204920.jpg" />
+  <img src="Z:/picture/004/save_picture_204920.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204898.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Samuel Keen - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204864.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Phil Vincent - Divine Intervention (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204757.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Seraina Telli - Addicted To Color (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204264.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Vandenberg - Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204247.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ AB/CD - Back 'n' Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204075.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Rito Verdugo - Kamikaze Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204018.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Hephaistos - Medusa (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203723.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Villanos - Bisonte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203552.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Astral Wizard - Astral Wizard (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203281.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Ugly Kid Joe - 5 Studio Albums, 2 Compilations, 4 Singles & EPs (1991 - 2022) 11
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203230.jpg" />
+  <img src="Z:/picture/004/save_picture_203230.jpg" />
 </div>
 
 
@@ -688,63 +746,6 @@ Ugly Kid Joe - 5 Studio Albums, 2 Compilations, 4 Singles & EPs (1991 - 2022) 11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E7960352C73DBF82DA4A92A23215857D299F92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656707   (203031) от 31.08.2023
-
-Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking In Circles [00:04:09]
-02. Too Much Is Never Enough [00:02:54]
-03. Hammer And Dance [00:03:13]
-04. Strike The Match [00:04:12](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B688D6474B635BFB45F413BDDD2476528AF676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218644   (202668) от 15.02.2023
-
-Budgie - 19 Albums, 1 Box Set (1970 - 2006) 38 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не смотря на свое "легкое" название, Budgie (в пер. с англ. - Волнистый попугайчик), попугаи на обложках и причудливые названия песен, музыка банды - это тяжелые риффы в духе "Black Sabbath" и вокал а-ля "Rush". Команда появилась в Уэльсе еще в 1967 году, в Кардиффе. Только в 1971 году с помощью продюсора Rodger Bain (Black Sabbath) (   Читать дальше...   )1971 - Budgie
-1972 - Squawk
-1973 - Never Turn Your Back On A FriendЖанр: Hard RockПродолжительность: 33:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B9AC1E694E49E04A6A3D6CCEA22112A1F30941
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 478839   (1003138) от 06.01.2020
+
+По ту сторону закона / Al di l della legge / Beyond The Law (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизменный герой спагетти-вестернов, Ли Ван Клиф, на этот раз выступает в роли грабителя, решившего встать на путь исправления и даже принявшего на себя нелёгкие обязанности шерифа маленького городка, чтобы покончить с преступностью в этом отдельно взятом населённом пункте. Однако, к сожалению, его благие намерения не простираются дальше того момента, когда в городе (   Читать дальше...   )Производство: Германия, Италия / Roxy Film GmbH, SancrosiapЖанр: ВестернРежиссер: Джорджио СтеганиАктеры: Антонио Сабато, Бад Спенсер, Гордон Митчел, Карло Гадди, Лайонел Стэндер, Ли Ван Клиф, Херберт Фукс ...Перевод: Одноголосый закадровыйПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFC44D0DF3B95B52475A32C4493B943B4580788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346905   (1002351) от 09.01.2020
+
+В свете серебристой луны / By the Light of the Silvery Moon (1953) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в маленьком городке штата Индиана после Первой мировой войны. Дорис Дэй в роли сорвиголовы из колледжа, которая доставляет много проблем окружающим. Все меняется, когда приходится заняться проблемами брата…Производство: США / Warner Bros. PicturesЖанр: Мюзикл, Мелодрама, Комедия, СемейныйРежиссер: Дэвид БатлерАктеры: Дорис Дэй, Гордон МакРэй, Леон Эймс, Розмари ДеКамп, Билли Грэй, Мэри Уикс, Расселл Армс, Мария Палмер, Ховард УенделлПеревод: Многоголосый профессиональный, ТК «Домашний»Субтитры: ОтсутствуютПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C5A23409DC5FE10DF9DC8C11514F9ACCD50ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 51404   (1001494) от 12.01.2020
+
+Плутовство (Хвост виляет собакой) / Wag the Dog (1997) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы отвлечь внимание общественности от сексуального скандала, связанного с президентом США, срочно вызван специалист по нештатным ситуациям Конрад Брин (Роберт Де Ниро). Брин решает инсценировать небольшую войну с помощью голливудского продюсера Стенли Мотса (Дастин Хоффман). Вдвоем они смело организуют задуманное шоу с небывалым размахом! Ну не мог Стенли Мотс (   Читать дальше...   )Производство: США / Baltimore Pictures, New Line Cinema, Punch Productions, Tribeca ProductionsЖанр: Комедия, Драма, Политическая сатираРежиссер: Бэрри ЛевинсонАктеры: Дастин Хоффман, Роберт Де Ниро, Энн Хеч, Дэнис Лири, Уилли Нельсон, Андреа Мартин, Кирстен Данст, Вуди Харрельсон, Уильям Х. Мэйси, Джон МайклПеревод: Профессиональный многоголосыйЯзык озвучки: русский,  английскийСубтитры: ОтсутствуютПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C7AA1A08B6280BD8294AFCAFC535739392EE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488649   (1001383) от 13.08.2021
 
 Один из тринадцати / 12 + 1 (1969) WEB-DLRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001383.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001228.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000129.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999584.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999570.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999090.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999047.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998880.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998605.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998552.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998287.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998238.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998015.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997998.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997693.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997177.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997108.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996930.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996838.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996669.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996065.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995728.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995383.jpg" />
 </div>
 
 
@@ -605,88 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7570824D9CF736BCA6F232D69F4D2B8780FF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605841   (995127) от 21.01.2013
-
-Странные супруги / Strange Bedfellows (1965) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие развивается в Лондоне, симпатичный американец знакомится с художницей итальянкой Тони, моментально влюбившись друг в друга пара по быстрому оформляет отношения но буквально на следующее утро оказывается что они не совпадают ни по одному вопросу. Следует бурный разрыв в стиле итальянского темперамента героини. Следующая встреча происходит спустя семь лет, когда герои решают наконец оформить официальный развод, однако ситуация немного изменилась и герою для продвижения по службе необходимо состоять в браке, вот тут он и начинает использовать и применять на своей страстной супруге фирменные уловки и хитрости.Жанр: КомедияРежиссер: Мелвин ФрэнкАктеры: Рок Хадсон, Джина Лоллобриджида, Гиг Янг, Эдвард Джадд, Ховард Ст. Джон, Дейв Кинг, Пегги Ри, Джозеф Сирола, Нэнси Калп, Люси Ландау, Бернард Фокс, Эдит ЭтуотерПеревод: Одноголосный закадровыйПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBD8AB093D8CABEF4A2A89D09FE9A424F5A34DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604847   (995105) от 21.01.2013
-
-Солдат удачи / Soldier of Fortune (1955) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американка Джейн Хойт прибывает в Гонконг в поисках своего пропавшего мужа, фотографа. Натолкнувшись на бездействие властей, она знакомится с американским наемником, Хэнком Ли. Тот обещает помочь ей разыскать мужа, хотя сам влюблен в Джейн...Жанр: Драма, ПриключенияРежиссер: Эдвард ДмитрыкПродюсер: Бадди АдлерАктеры: Кларк Гейбл, Сьюзен Хэйуорд, Майкл Ренни, Джин Бэрри,  Александр Д’Арси, Том Талли, Анна Стен, Расселл Коллинз, Лео Гордон, Ричард ЛуПеревод: Многоголосый закадровый (РенТВ)Продолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9832A60ADE1A7187AD80B37ED2A153CD0360FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605871   (994794) от 22.01.2013
-
-Легко любить / Easy to Love (1953) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэй Ллойд — это продюсер и рекламный агент одного из самых престижных водных аттракционов во Флориде. Он использует девочек в бикини для съемок в различных видах рекламы, от зубной пасты до холодильников и телевизоров. Его фавориткой является Джули Холлертон, которая неустанно работает на него уже в течение восьми лет.
-
-Рэй «старый» холостяк и никак не хочет признаться в своих давно возникших чувствах к девушке даже себе. И вот однажды, после очередного воднолыжного шоу, Джули сообщает работодателю, что скоро собирается выйти замуж за знакомого пловца. Рэй решает пригласить ее в Нью-Йорк для съемок в модном журнале, чтобы попытаться отговорить ее от свадьбы.
-
-Но здесь, в столице американского шоу-бизнеса, девушке предстоит встретить певца Барри Гордона, которому сразу приглянется красотка из Флориды. А это заставит сильно понервничать Рэя…Жанр: Мелодрама, Комедия, МюзиклРежиссер: Чарльз Уолтерс / Charles WaltersАктеры: Эстер Уильямс, Ван Джонсон, Тони Мартин, Джон Бромфилд, Эдна Скиннер, Кинг Донован, Пол Брайар, Кэррол Бейкер, Эд Оливер, Питер АдамсПеревод: Многоголосый закадровыйПродолжительность: 1:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7B2CEF8053EBB3D2D272E47DFE75C53E2F21F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

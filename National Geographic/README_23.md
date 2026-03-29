@@ -1,3 +1,107 @@
+###  Публикация: 1310362   (547631) от 23.06.2019
+
+На крючке. Нашествие кальмаров / Squid invasion (2010) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колонии кальмара Гумбольдта быстро распространяются, вторгаясь на новые территории в северной части Тихого океана. Какую опасность они несут?Производство: США, Michael Hoff Productions, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Джонатан БурхопПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1C237984CCEC3A78CF7D4DD06C7EA4BD221284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310367   (547628) от 23.06.2019
+
+Акула против хищников / Shark v. Predator (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкие и примечательные примеры нападения на акул различных животных, зафиксированные как профессиональными фотографами, так и случайными свидетелями, позволяют осознать, что первенству даже самых грозных хищников вполне может быть брошен вызов.Производство: США, Earth Touch for National Geographic ChannelЖанр: Документальный, природа, фаунаРежиссер: Даниэль ШейрПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7302AD96ADBFC7396C1818C4F17EDE2FE87046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215774   (546984) от 29.07.2018
+
+NGW: Секретное королевство Борнео: странные и дикие / Borneo's Secret Kingdom: Weird and Wild (2017) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остров Борнео. Миллионы лет эволюция его обитателей проходила в изоляции от всего мира. Она породила огромное многообразие диковинных существ. В широких реках, колоссальных лесах и на заболоченных землях попавшие на остров животные и растения столкнулись с невероятными трудностями но нашли способы их преодолеть. "Секретное королевство Борнео: странные и дикие" (   Читать дальше...   )Производство: Австралия, Малайзия, WildBear Entertainment and Scuba ZooЖанр: Документальный, научно-популярный, фауна, флораРежиссер: Nicholas RoosenПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989FBF9E9CCA29AFB9315540FFC8900AB27CA198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049037   (545750) от 03.09.2016
+
+NG:Армия львов: Битва за выживание / Lion Army. Battle To Survive (2009) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Африке, в национальном парке Крюгера, львиный мега-прайд переживает кризис. Львицы не могут добыть достаточно еды, и каждая добыча становится причиной конфликта. Без поддержки взрослого самца, десять молодых львов стали не управляемыми. Во время охоты их не опытность приводит к катастрофе. Чтобы восстановить равновесие нужно кое-чему научиться в армии львов.Телекомпания: США, Aquavision TV Productions, National Geographic ChannelЖанр: Документальный, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A91EA1BB83C2155AD0CF9588DDE34DE7C35E8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049274   (544866) от 04.09.2016
 
 NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
@@ -6,7 +110,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544866.jpg" />
+  <img src="Z:/picture/008/save_picture_544866.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544509.jpg" />
+  <img src="Z:/picture/008/save_picture_544509.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543707.jpg" />
+  <img src="Z:/picture/008/save_picture_543707.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543267.jpg" />
+  <img src="Z:/picture/008/save_picture_543267.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543261.jpg" />
+  <img src="Z:/picture/008/save_picture_543261.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542270.jpg" />
+  <img src="Z:/picture/008/save_picture_542270.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Как это связано? От мечей до беспилотнико�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542144.jpg" />
+  <img src="Z:/picture/008/save_picture_542144.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541713.jpg" />
+  <img src="Z:/picture/008/save_picture_541713.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG. Осушить океан: Тайны начала операции / Drain 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541709.jpg" />
+  <img src="Z:/picture/008/save_picture_541709.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538597.jpg" />
+  <img src="Z:/picture/008/save_picture_538597.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538456.jpg" />
+  <img src="Z:/picture/008/save_picture_538456.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NG. По его собственным словам / In His Own Words (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536097.jpg" />
+  <img src="Z:/picture/008/save_picture_536097.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534999.jpg" />
+  <img src="Z:/picture/008/save_picture_534999.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534552.jpg" />
+  <img src="Z:/picture/008/save_picture_534552.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533142.jpg" />
+  <img src="Z:/picture/008/save_picture_533142.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528618.jpg" />
+  <img src="Z:/picture/008/save_picture_528618.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526538.jpg" />
+  <img src="Z:/picture/008/save_picture_526538.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520490.jpg" />
+  <img src="Z:/picture/008/save_picture_520490.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519269.jpg" />
+  <img src="Z:/picture/008/save_picture_519269.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ NG. Осушить океан: глубокое погружение. Подво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518077.jpg" />
+  <img src="Z:/picture/008/save_picture_518077.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ NG. Осушить океан: глубокое погружение / Drain the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517785.jpg" />
+  <img src="Z:/picture/008/save_picture_517785.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515878.jpg" />
+  <img src="Z:/picture/008/save_picture_515878.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58539BAC805051FA5F6B292BEDC9BC1FEF7C7335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562153   (512355) от 07.07.2022
-
-Затерянные сокровища Майя  Lost Treasures of the Maya (2019) WEB-DL [H.264/1080p] (серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь - Альберт Лин. Он инженер и исследователь Нэшнл Джеографик. А вокруг - затерянный мир, целые города, скрытые в джунглях. Его задача - разгадать секреты одной из самых загадочных древних цивилизаций планеты... Майя. Сейчас, благодаря новейшим технологиям, её история пишется заново. Древняя цивилизация в Центральной Америке была более развитой, чем считали (   Читать дальше...   )Производство: Великобритания, Wild Blue Media, National GeographicЖанр: документальный, история, исследованияРежиссер: Алистер Дункан, Джеймс Левелл, Бенджамин Уилсон, Грэхэм Купер, Торал Диксит, Лаура БалфорПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 4x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1905D7C41820332C1430C6C39F01968384A55F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562181   (511436) от 08.07.2022
-
-NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-6 из 6) [EN / EN Sub]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это земля, которую мы любим, и земля, которую, как нам кажется, мы знаем. Мы считаем захватывающие дух пейзажи и дикую природу Америки вечными, но на самом деле все совсем по-другому. Его уникальная география доводит силы природы до предела, формируя и перекраивая землю и бросая новые вызовы жизни.Производство: США, National Geographic, Disney+Жанр: документальный, природаРежиссер: Ванесса Берловиц, Марк ЛинфельдПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английскиеПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE88AF1A3D20A1537C078FC819ADCE834EADD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562987   (507050) от 11.07.2022
-
-Сесар Миллан: Вожак стаи / Cesar Millan's Leader of the Pack (2012) SATRip (серии 1-12 из 12)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сесар Миллан берется за воспитание и коррекцию поведения самых проблемных собак, с которыми не могут справиться ни хозяева, ни опекуны. Всемирно известный исследователь собачьего поведения Сесар Миллан ищет идеальных кандидатов, которые заберут себе домой спасённых собак. У этих собак есть проблемы с поведением, которые мешают им найти новых хозяев. В каждом эпизоде (   Читать дальше...   )Производство: США, Powwow Media Partners, Nat Geo WildЖанр: документальный, кинологияРежиссер: Грегори ВангерПеревод: многоголосый профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 12x ~00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ACB43B55D9DE8E24DEA2A2B9972BB2B5DA8EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931570   (505285) от 02.09.2015
-
-NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Львы мудрые и сильные животные по праву считаются царями природы. Так и было до недавнего времени… Человеческий эгоизм, неукротимая жажда развития поставила этот вид кошачьих на грань вымирания. Те особи, что остались в дикой природе, находятся под пристальным вниманием как защитников природы, так и алчных браконьеров. Ведь на черном рынке шкура льва стоит невероятно (   Читать дальше...   )Производство: США, БотсванаЖанр: Документальный, семейныйРежиссер: Дерек ЖуберАктеры: Джереми АйронсПеревод: Дублированный, Профессиональный (Одноголосый, закадровый)Субтитры: ОтсутствуютФормат: MKVПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BAEDE5B050E4326C3D435A2B6387C59B9C7C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

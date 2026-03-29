@@ -1,3 +1,159 @@
+###  Публикация: 1387053   (792508) от 31.05.2020
+
+Gekijouban Haikyuu!! | Волейбол (компиляция) [2015, Movie, 4 из 4] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие моменты сериала Волейбол.Производство: Production I.GЖанр: спортРежиссер: Mitsunaka SusumuПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 4 эп. по 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC92C90102C1993ECF333F3996DB432A93EB1261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387049   (792507) от 31.05.2020
+
+Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA, 2 из 2] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792507.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отборочных матчах префектуры Мияги к весеннему турниру волейбольной команде средней школы Карасуно удается победить в Академии Сираторизава в напряженной битве и занять свое место в национальном турнире. Тем временем в токийских отборочных, Nekoma High School, Fukurodani High School, Nohebi Academy и Itachiyama Academy сражаются за 3 место. Сможет ли Nekoma High (   Читать дальше...   )Производство: Production I.GЖанр: спортРежиссер: Satou MasakoПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20487594253120FEDD29B4E68589D3A548DE662A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386946   (792503) от 31.05.2020
+
+Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno High School vs Shiratorizawa Academy | Волейбол [ТВ-3] [2016, TV, 10 из 10] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волейбольная команда школы Карасуно смогла подняться с колен и пробиться в финал отборочных игр префектуры Мияги. Теперь им нужно доказать, что они не просто темная лошадка, топчущаяся на земле, а гордые птицы, рвущиеся в небеса. Только сейчас путь воронов закрывает могучий орел, хладнокровно защищающий свою территорию. Кто останется в небе - решит матч Карасуно (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9797E55357F35D21DA8B8E75F771224324F22C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386944   (792481) от 31.05.2020
+
+Haikyuu!! Second Season | Волейбол [ТВ-2] [2015, TV, 25 из 25] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сёё Хината — ученик старшей школы, который случайно увидел матч национального чемпионата по телевизору, после чего полюбил волейбол. Хината решил стать похожим на того популярного игрока, которого он увидел по телевизору, из-за его прозвища «маленький гигант», несмотря на свой небольшой рост. Вскоре Сёё создаёт волейбольный клуб в школе, где и начинает самостоятельную (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405B680C71B5FC8ECFCA1E3690210D162D5848B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386879   (792439) от 31.05.2020
+
+Haikyuu!! | Волейбол TB-1 [2014, 25 из 25] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792439.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Сёё Хината увидел по телевизору несколько матчей – и влюбился в волейбол. Три года парень работал на свою мечту – и в последний год средней школы смог собрать команду и вывести ее на настоящий турнир. А там, понятно, новичков, набранных «с бору по сосенке», побили в первом же круге, причем жуткий разгром им устроил, чуть ли не в одиночку, гениальный плеймейкер (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325E32BE49AB8E4D601C75C82A421F39A2C58615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123112   (792412) от 07.04.2017
+
+Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 12 + OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместо сюжета тут повседневная жизнь трёх подруг-старшеклассниц Галко, Отако и Одзё. Первая — популярная и добрая в глубине души девушка, но матерщинница, её хобби является кинокритика (в общем, ей самое место на КГ). Вторая — девочка, которая всегда сидит где-то в сторонке, но по неясной причине они с Галко близкие подруги. Третья — просто беспечная девушка, любящая (   Читать дальше...   )Жанр: комедия, этти, школаРежиссер: Кавагути Кэйитиро / Kawaguchi Keiichiro / 川口敬一郎Продолжительность: каждый эпизод по 8 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8F4CB0505EE573D28F0944B4BE9ECC1E4E4AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510047   (791872) от 15.11.2021
 
 Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 2022 [2017, SP] BDRip 1080p 10-bit raw+eng
@@ -6,7 +162,7 @@ Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791872.jpg" />
+  <img src="Z:/picture/008/save_picture_791872.jpg" />
 </div>
 
 
@@ -35,7 +191,7 @@ Godzilla 3: Hoshi wo Kuu Mono | Godzilla: The Planet Eater | Годзилла: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791548.jpg" />
+  <img src="Z:/picture/008/save_picture_791548.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790531.jpg" />
+  <img src="Z:/picture/008/save_picture_790531.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790499.jpg" />
+  <img src="Z:/picture/008/save_picture_790499.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ Tales of Zestiria The Cross | Tales of Zestiria The X | Сказания Зес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790425.jpg" />
+  <img src="Z:/picture/008/save_picture_790425.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789876.jpg" />
+  <img src="Z:/picture/008/save_picture_789876.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788995.jpg" />
+  <img src="Z:/picture/008/save_picture_788995.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788462.jpg" />
+  <img src="Z:/picture/008/save_picture_788462.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787556.jpg" />
+  <img src="Z:/picture/008/save_picture_787556.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786723.jpg" />
+  <img src="Z:/picture/008/save_picture_786723.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786664.jpg" />
+  <img src="Z:/picture/008/save_picture_786664.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786656.jpg" />
+  <img src="Z:/picture/008/save_picture_786656.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786542.jpg" />
+  <img src="Z:/picture/008/save_picture_786542.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786294.jpg" />
+  <img src="Z:/picture/008/save_picture_786294.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786088.jpg" />
+  <img src="Z:/picture/008/save_picture_786088.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786080.jpg" />
+  <img src="Z:/picture/008/save_picture_786080.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786048.jpg" />
+  <img src="Z:/picture/008/save_picture_786048.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786036.jpg" />
+  <img src="Z:/picture/008/save_picture_786036.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784855.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784577.jpg" />
 </div>
 
 
@@ -520,162 +676,6 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEB262DF8AA479A7862E3AFD15FEC797322A879A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389300   (784554) от 10.06.2020
-
-Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2007, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784554.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2007 году Закон о Наказании за Сексуальные Извращения вступает в силу. Город окружён отрядом людей в защитных костюмах, цель которых – арестовать всех извращенцев города. Поэтому не удивительно, что укротитель инуками Кейта Кавахира и инуками Йоко разыскиваются, как особо опасные преступники. Что же случится с Кейтой, Йоко, инуками Каору и другими полюбившимися (   Читать дальше...   )Производство: Seven Arcs / セブン・アークスЖанр: комедия, романтика, мистика, эттиРежиссер: Кусакава КэйдзоПеревод: redbull + DezЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CF320276CB8CCB3A2C99A4331B2AA8C87E8324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389574   (784199) от 11.06.2020
-
-Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784199.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о двух совершенно разных людях, волею судьбы оказавшихся связанными друг с другом. Ичиро Инуяшики - 58-летний бизнесмен, но из-за напряжённой жизни и кучи потраченных нервных клеток, он выглядит гораздо старше. Но рак - болезнь без возраста, она не щадит никого. Поэтому, когда Ичиро узнал, что болен, он впал в депрессию. Уже перестав бороться, он решил доживать (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фантастика, драмаРежиссер: Сато КэйитиПеревод: Бульбазавр + SYMRAKЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA75AED99D1EDE2241CDA4DAF96E588D20994E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390140   (783407) от 14.06.2020
-
-Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обаятельной молодой героине сложно давалось общение с ровесниками. Она не умела выражать свои мысли привычным для всех людей образом, поэтому девушку считали страной особой. С Юшикиро Нанако перестали общаться одноклассники и остальные ученики старшей школы. Она начала комплексовать по этому поводу и полностью закрылась от окружающего мира. Школьница выражала все (   Читать дальше...   )Производство: студия ConnectЖанр: комедия, повседневность, романтикаРежиссер: Дзимбо МасатоПеревод: Funimation; Anderground TeamЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B2E1AFA26D0797CED9F2366C51A15414C13D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390139   (783354) от 14.06.2020
-
-Koi wa Ameagari no You ni | After the Rain | Любовь похожа на прошедший дождь [2018, TV, 12 эп.] BDRip 1080 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783354.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мне нравится, когда волосы слегка взъерошены. И когда ширинка иногда бывает расстегнута. И когда он громко чихает». Именно так семнадцатилетняя Акира Татибана описывает парня своей мечты, и этот странный портрет срисован с натуры – старшеклассница влюблена в сорокапятилетнего Масами Кондо, менеджера сетевого ресторана, где она подрабатывает официанткой. Акира полна (   Читать дальше...   )Производство: студия Wit Studio / ウィットスタジオЖанр: романтика, повседневностьРежиссер: Ватанабэ АюмуПеревод: #0: Funimation; #1: laci; #2: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BF3C455099D6F2E78B669665A6DAC1E6FCE8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390141   (783351) от 14.06.2020
-
-Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэн Фудзи - это обычный школьник, который недавно устроил драку со своим, уже бывшим, лучшим другом. Оправиться от потери товарища ему помогает его подруга детства Касуми Аясэ и старшеклассница Рэа Химуро, что позволяет ему постепенно влиться в школьную жизнь. Внезапно волна жестоких убийств захлёстывает город. Все жертвы были найдены обезглавленными. А что действительно (   Читать дальше...   )Производство: студия A.C.G.T. / エーシージーティーЖанр: приключения, мистикаРежиссер: Кудо СусумуПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 18 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E890A4FE9796EAB24533FBC2CE43B0F7B10A006F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205892   (783185) от 11.02.2018
-
-Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [2017, TV, 13 из 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1863 год, бурная эпоха самураев подходит к концу. Япония разделена между фракциями за сёгуната и против сёгуната. Судьба мира находится под угрозой, поскольку армия исторических ревизионистов отправляется из будущего, чтобы изменить ход истории. Чтобы остановить эти силы и защитить настоящую историю, два мечей-воинов, духи, которые являются мечами, оживленными Санивой, (   Читать дальше...   )Производство: Студия UFO TableЖанр: приключения, фэнтезиРежиссер: Сирай ТосиюкиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3FD3AEBD32D605B5E87E13B428E30E42FF0E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom Classic CC 2018 v7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741702.jpg" />
+  <img src="Z:/picture/008/save_picture_741702.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Character Animator CC 2018 1.5.0.138 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741700.jpg" />
+  <img src="Z:/picture/008/save_picture_741700.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 7.4.73.102 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741666.jpg" />
+  <img src="Z:/picture/008/save_picture_741666.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EssentialPIM Pro 6.06 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741665.jpg" />
+  <img src="Z:/picture/008/save_picture_741665.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Start Menu X 5.42 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741660.jpg" />
+  <img src="Z:/picture/008/save_picture_741660.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MKVToolNix 9.2.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741650.jpg" />
+  <img src="Z:/picture/008/save_picture_741650.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cool Record Edit DeLuxe 9.1.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741635.jpg" />
+  <img src="Z:/picture/008/save_picture_741635.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ESET NOD32 8.0 (x32 x64) Offline Update 13551 (май 2016)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741633.jpg" />
+  <img src="Z:/picture/008/save_picture_741633.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Duplicate File Remover 3.6.24 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741583.jpg" />
+  <img src="Z:/picture/008/save_picture_741583.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741579.jpg" />
+  <img src="Z:/picture/008/save_picture_741579.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Actual Window Menu 8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741577.jpg" />
+  <img src="Z:/picture/008/save_picture_741577.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ESET Smart Security 9.0.381.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741565.jpg" />
+  <img src="Z:/picture/008/save_picture_741565.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ R-Studio 8.0 Build 164571 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741557.jpg" />
+  <img src="Z:/picture/008/save_picture_741557.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Retrica Pro v3.0.4 Patched [Ru/Multi] - фото с фильтрами реал�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741553.jpg" />
+  <img src="Z:/picture/008/save_picture_741553.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ iSpy 6.3.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741520.jpg" />
+  <img src="Z:/picture/008/save_picture_741520.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ uTorrent Pro 3.4.3 Build 40097 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741517.jpg" />
+  <img src="Z:/picture/008/save_picture_741517.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741506.jpg" />
+  <img src="Z:/picture/008/save_picture_741506.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741505.jpg" />
+  <img src="Z:/picture/008/save_picture_741505.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Microsoft Windows 10 Insider Preview 10.0.14352 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741502.jpg" />
+  <img src="Z:/picture/008/save_picture_741502.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ESET NOD32 Antivirus 9.0.381.0 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741493.jpg" />
+  <img src="Z:/picture/008/save_picture_741493.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kaspersky Internet Security 2016 16.0.1.445 (c) MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741492.jpg" />
+  <img src="Z:/picture/008/save_picture_741492.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741488.jpg" />
+  <img src="Z:/picture/008/save_picture_741488.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741485.jpg" />
+  <img src="Z:/picture/008/save_picture_741485.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741481.jpg" />
+  <img src="Z:/picture/008/save_picture_741481.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6718.5000 RePack by D!akov (22.04.2015
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741411.jpg" />
+  <img src="Z:/picture/008/save_picture_741411.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741408.jpg" />
+  <img src="Z:/picture/008/save_picture_741408.jpg" />
 </div>
 
 

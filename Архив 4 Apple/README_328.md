@@ -1,3 +1,110 @@
+###  Публикация: 1234247   (572480) от 04.07.2018
+
+1Password 7.0.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572480.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
+
+Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB8B7BA2A40093BAAC7A0501997AB8F61A3414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234033   (572450) от 04.07.2018
+
+От семьи не убежишь / La ch'tite famille (2018) BDRip [1080p] ATV
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые и успешные парижские дизайнеры Валентин и Констанция готовятся заключить многомиллионный контракт, но в самый неподходящий момент на выставку приезжает вся семейка Валентина, которая проливает свет на его прошлое и расстраивает все планы.Производство: Франция / Les Productions du Ch'timi, PathéЖанр: КомедияРежиссер: Дэни БунАктеры: Дани Бун, Лин Рено, Лоранс Арне, Валери Боннетон, Ги Леклюиз, Франсуа Берлеан, Пьер Ришар, Жюлиан Лепоро, Стефан Пезера, Ян ТуальПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1548F2D4FC55BBCAEDC50BBB8F88100073CDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303403   (572385) от 21.05.2019
+
+TechTool Pro 11 v11.0.2 (5062) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572385.jpg" />
+</div>
+
+
+###  Подробнее
+
+echTool Pro — диагностику заказывали?
+Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2019Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E963FB87B5788978F1F936888426B00EE20A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048213   (572289) от 04.07.2018
+
+Prison Architect v.14k (2015) [Multi/Ru] [OS X Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prison Architect - симулятор тюремного магната, с полным контролем всех аспектов жизни заключенных! Вашей задачей будет постройка и развитие самой настоящей тюрьмы. Создатели игры вдохновлялись такими хитами прошлых лет как Dwarf Fortress и Dungeon Keeper. Причём надо будет организовывать не только камеры для заключённых, но и заниматься постройкой различных служб, (   Читать дальше...   )Тип издания: OS X Native gameРелиз состоялся: 6 октября 2015Разработчик: Introversion SoftwareПоддерживаемая ОС: Mac: OSX 10.7.0 +Жанр: Strategy (Manage,Busin.), Top-downЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8339391430ADB049FF27B23F3981BE3D161B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361657   (572263) от 12.07.2011
 
 Mac OS X 10.7 Lion Golden Master
@@ -6,7 +113,7 @@ Mac OS X 10.7 Lion Golden Master
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572263.jpg" />
+  <img src="Z:/picture/005/save_picture_572263.jpg" />
 </div>
 
 
@@ -41,7 +148,7 @@ Path Finder 2133 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572240.jpg" />
+  <img src="Z:/picture/008/save_picture_572240.jpg" />
 </div>
 
 
@@ -67,7 +174,7 @@ Wondershare PDFelement Pro OCR 8.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572216.jpg" />
+  <img src="Z:/picture/008/save_picture_572216.jpg" />
 </div>
 
 
@@ -93,7 +200,7 @@ Wondershare Filmora Х 11.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572100.jpg" />
+  <img src="Z:/picture/008/save_picture_572100.jpg" />
 </div>
 
 
@@ -119,7 +226,7 @@ UninstallPKG 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571910.jpg" />
+  <img src="Z:/picture/008/save_picture_571910.jpg" />
 </div>
 
 
@@ -147,7 +254,7 @@ Murus Pro Suite 1.4.21 (include Vallum 3.2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571908.jpg" />
+  <img src="Z:/picture/008/save_picture_571908.jpg" />
 </div>
 
 
@@ -175,7 +282,7 @@ Sketch 55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571907.jpg" />
+  <img src="Z:/picture/008/save_picture_571907.jpg" />
 </div>
 
 
@@ -202,7 +309,7 @@ Permute 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571069.jpg" />
+  <img src="Z:/picture/008/save_picture_571069.jpg" />
 </div>
 
 
@@ -229,7 +336,7 @@ TextSoap 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571049.jpg" />
+  <img src="Z:/picture/008/save_picture_571049.jpg" />
 </div>
 
 
@@ -255,7 +362,7 @@ Viscosity 1.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570949.jpg" />
+  <img src="Z:/picture/008/save_picture_570949.jpg" />
 </div>
 
 
@@ -284,7 +391,7 @@ iStat Menus 5.20 (677) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570947.jpg" />
+  <img src="Z:/picture/008/save_picture_570947.jpg" />
 </div>
 
 
@@ -313,7 +420,7 @@ TG Pro (Temperature Gauge Pro) 2.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570794.jpg" />
+  <img src="Z:/picture/008/save_picture_570794.jpg" />
 </div>
 
 
@@ -340,7 +447,7 @@ PhotoDesk for Instagram 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570792.jpg" />
+  <img src="Z:/picture/008/save_picture_570792.jpg" />
 </div>
 
 
@@ -369,7 +476,7 @@ Clipboard Manager 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570748.jpg" />
+  <img src="Z:/picture/008/save_picture_570748.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ iTools Pro 1.7.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570466.jpg" />
+  <img src="Z:/picture/008/save_picture_570466.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ Movavi Video Editor 4 v4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570115.jpg" />
+  <img src="Z:/picture/008/save_picture_570115.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ Adobe Muse CC 2015.0.1.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569662.jpg" />
+  <img src="Z:/picture/008/save_picture_569662.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Downie 3 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569490.jpg" />
+  <img src="Z:/picture/008/save_picture_569490.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ Money Pro 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569471.jpg" />
+  <img src="Z:/picture/008/save_picture_569471.jpg" />
 </div>
 
 
@@ -537,7 +644,7 @@ WonderPen 1.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569465.jpg" />
+  <img src="Z:/picture/008/save_picture_569465.jpg" />
 </div>
 
 
@@ -565,7 +672,7 @@ Cardhop 1.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569446.jpg" />
+  <img src="Z:/picture/008/save_picture_569446.jpg" />
 </div>
 
 
@@ -593,7 +700,7 @@ RightFont 5 v5.5.3 () [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569433.jpg" />
+  <img src="Z:/picture/008/save_picture_569433.jpg" />
 </div>
 
 
@@ -605,113 +712,6 @@ RightFont - менеджер шрифтов с красивым интерфей
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA7EB369287464FC848CE64C8BE70ED7390E1816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303612   (569420) от 23.05.2019
-
-Book Collector 19.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборщик книг позволяет автоматически каталогизировать ваши книги в базе данных, просто напечатав название книги или отсканировав штрих-код ISBN, чтобы загрузить все данные из различных источников в Интернете. Просматривайте свою коллекцию по ряду организационных факторов или используйте представление миниатюр для просмотра изображений обложки.Тип издания: macOS SoftwareРелиз состоялся: 16.05.2019Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CB03E90E4DF097AD750156910E059C7B4D2508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303866   (569410) от 23.05.2019
-
-Scrutiny 8 v8.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.05.2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F7410D78003B7BBF4B95CD97BA84A2191386B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303609   (569406) от 23.05.2019
-
-Movie Collector Pro 19.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог ваших фильмов, книг, музыки, комиксов и видеоигр. Просто введите названия или отсканируйте штрих-коды для автоматической детализации элемента и изображения обложки. Все программные решения (для настольных компьютеров, онлайн или мобильных устройств) поставляются с бесплатным облачным хранилищем CLZ для сбора данных. Используйте облачное хранилище CLZ для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.05.2019Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65C12F19C159E9CF97FFE17AA4C968D906D09EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303699   (569401) от 23.05.2019
-
-Multitouch 1.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch!
-
-Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 21.05.2019Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CEC42E2664041D5B8CFA4686CC06D9525E1452
 ```
 
 https://mybot314.ru/tekegram_catalog/

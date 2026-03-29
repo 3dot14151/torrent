@@ -1,3 +1,81 @@
+###  Публикация: 1450134   (1023566) от 30.03.2021
+
+Залог успеха (Врач страховой кассы) / il medico della mutua (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023566.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о молодых и амбициозных выпускниках медицинской школы, которые не всегда соблюдают профессиональную этику для продвижения по карьерной лестнице. Фильм рассказывает общественности о всей неэффективности и абсурдности национальной медицинской системы, и может считаться почти документальным. Фильм был настолько острым в своем критицизме и аморальности итальянской (   Читать дальше...   )Производство: Италия / Euro Film, Explorer Film '58Жанр: Комедия, драмаРежиссер: Луиджи ДзампаАктеры: Альберто Сорди, Сара Франкетти, Ида Галли, Нанда Примавера, Биче Валори, Леопольдо Триесте, Франко Скандурра, Клаудио Гора, Пупелла МаджиоПеревод: ДублированныйСубтитры: Русские (на места без перевода)Продолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F3A5AB9CB42626C5FFE7F658F11709EE0D9C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450241   (1023402) от 31.03.2021
+
+Суббота, воскресенье и пятница / Sabato, domenica e venerdi (1979) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всех трех сегментах главные герои попадают в комические ситуации. В первом итальянская компания, ожидая приезда японского инженера, направляет в качестве его гида свою сотрудницу, но затем выясняется, что инженер — женщина. Во втором водитель грузовика по просьбе соседки притворяется ее мужем на время, пока родители с Сицилии наносят девушке визит. В третьем театральному (   Читать дальше...   )Производство: Италия, Испания / As Films Producción, Dania Film, Medusa Distribuzione, National CinematograficaЖанр: КомедияРежиссер: Франко Кастеллано, Паскуале Феста Кампаниле, Серджо Мартино, Джузеппе МоччиаАктеры: Эдвиж Фенек, Лино Банфи, Даниэле Варгас, Лори Дель Санто, Милена Вукотич, Барбара Буше, Микеле Плачидо, Антонио Феррандис, Марго Коттенс, Мануэль Сарсо, Адриано Челентано, Лова Мур, Мануэль Галлардо, Сальваторе Боргезе, Франко ДиодженеПеревод: Многоголосый профессиональный, одноголосый любительскийСубтитры: ИтальянскиеПродолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D3BB63906DB890D12350CF87940995CD3D44B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450798   (1023249) от 01.04.2021
+
+Боинг-Боинг / Boeing, Boeing (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский журналист Бернард Лоуренс работает в Париже и встречается одновременно с тремя стюардессами. Так как девушки работают на различных авиалиниях и каждая из них бывает дома раз в три дня, они не подозревают о неверности своего возлюбленного. Все идет хорошо до тех пор, пока у девушек не меняется расписание полетов, позволяющее бывать дома чаще. Кроме того, (   Читать дальше...   )Производство: США / Wallis-HazenЖанр: КомедияРежиссер: Джон РичАктеры: Тони Кертис, Джерри Льюис, Дани Саваль, Кристиана Шмидтмер, Сюзанна Ли, Тельма Риттер, Ломакс Стади, Алекс Акимофф, Най Бонет, Юджин БорденПеревод: Двуголосый профессиональный, Paramount ChannelСубтитры: ОтсутствуютПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF097037726E116FCC1818F8F203E25EECE6972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 35530   (1023191) от 01.04.2021
 
 Зардоз / Zardoz (1974) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023191.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023065.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022420.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022046.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021914.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021711.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021698.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021363.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021138.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021101.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020959.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020577.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020571.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020220.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020109.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020106.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019941.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019743.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019716.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019616.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019597.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019405.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019075.jpg" />
 </div>
 
 
@@ -601,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D6E50D8DF33D0D815BAECF7D987F2100F8ABA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457828   (1018725) от 28.04.2021
-
-Летние рассказы / Racconti d'estate (1958) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летняя пора — лучшее время для романов. Дорина ищет богатого любовника; Клара увлечена молодым Уолтером, а ее дочь Лиина пытается удержать мать от опрометчивых поступков. Аристарх бросил карьеру, чтобы последовать за Адой, но на самом деле любит Жаклин. А Марчелло, которому нужно отправить Мишлен во Францию, опаздывает на поезд и… влюбляется в нее.Производство: Италия, Франция / Gallus Films, Maxima Film Compagnia Cinematografica, Monteluce FilmЖанр: Драма, Мелодрама, КомедияРежиссер: Джанни ФранчолиниАктеры: Альберто Сорди, Мишель Морган, Марчелло Мастроянни, Сильва Кошина, Габриэле Ферцетти, Дориан Грей, Франка Марци, Лорелла Де Лука, Франко Фабрици, Эннио ДжироламиПеревод: Многоголосый профессиональный, Петербург 5-й каналСубтитры: ОтсутствуютПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB471255D6DDF8DC1B0EACDF0AE45DA3091A4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455331   (1018721) от 28.04.2021
-
-Зеленая лошадь / La jument verte (1959) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного произведения Марселя Эме.
-1870 год, Франко-прусская война. Мать крестьянина, обвиненного в пособничестве партизанам, насилует прусский солдат. Крестьянин, вынужденный наблюдать эту сцену, мстит тому, кто выдал его пруссакам, заставляя пройти через то же унижение.Производство: Франция, Италия / Raimbourg, S.O.P.A.C., Societe Nouvelle des Etablissements Gaumont (SNEG), Star Presse, Zebra FilmsЖанр: КомедияРежиссер: Клод Отан-ЛараАктеры: Бурвиль, Франсис Бланш, Сандра Мило, Ив Робер, Жюльен Каретт, Валери Лагранж, Мари Деа, Ги Бертиль, Мирей Перре, Жорж ВильсонПеревод: Одноголосый любительский (Виктор Рутилов)Субтитры: ОтсутствуютПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F419BF57F7B79252B43313FAC322BE200996A7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461522   (1018563) от 29.04.2021
-
-Нормандская дыра / Le trou normand (1952) DVDRip [H.264] [Цветная версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018563.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти хозяина постоялого двора под невеселым названием «Нормандская дыра» наследником объявляют умственно отсталого Ипполита. Его сестра в бешенстве, но у нее есть шанс получить поместье: дело в том, что Ипполит давно влюблен в ее дочь и хочет жениться на ней…Производство: Франция / Cité FilmsЖанр: КомедияРежиссер: Жан БуайеАктеры: Бурвиль, Брижит Бардо, Пьер Ларке, Джейн Маркен,  Жорж Баконне, Альберт Дувалекс, Марсель Шарве, Флоренс Майкл, Джанин Клэйрвилль, Надин Базиль, Жак ДереПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D3A42E995AE1DA27D82CE4AC04182594311E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

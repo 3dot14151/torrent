@@ -1,3 +1,32 @@
+###  Публикация: 1085476   (214692) от 21.12.2016
+
+Marc Ford & The Neptune Blues Club - The Vulture (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|   Devil's in the Details  (03:42) 
+02|   The Same Coming Up  (01:50) 
+03|   All We Need to Do Is Love  (04:30) 
+04|   This Ride  (02:00) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286F4A6BFF9A78077BF698146872D2D1D15EBC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426604   (213642) от 25.11.2020
 
 Randall Bramblett - Pine Needle Fire (2020) [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +35,7 @@ Randall Bramblett - Pine Needle Fire (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213642.jpg" />
+  <img src="Z:/picture/005/save_picture_213642.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Natural Blues - I Can’t Breathe (2020) [MP3|320 Kbps] <Blues/Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213633.jpg" />
+  <img src="Z:/picture/005/save_picture_213633.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dennis Siggery & Neil Sadler - Testify (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207402.jpg" />
+  <img src="Z:/picture/005/save_picture_207402.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Moon BB Band - Collection (2018-2022) 3CD  [MP3|320 Kbps] <Blues, Jazz, Easy Lis
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207387.jpg" />
+  <img src="Z:/picture/005/save_picture_207387.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Savoy Brown - Blues All Around (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207193.jpg" />
+  <img src="Z:/picture/005/save_picture_207193.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Joe Bonamassa - Road To Redemption (2022) EP [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204817.jpg" />
+  <img src="Z:/picture/004/save_picture_204817.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Marvin Gaye - Let's Get It On (1978) 5CD, Deluxe Edition, 2023, Motown [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204290.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Azula Queen Quartet - Blues Sem Fronteiras (2023) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203354.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202660.jpg" />
+  <img src="Z:/picture/004/save_picture_202660.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Hugo Race ft. Michelangelo Russo - John Lee Hooker's World Today (2017) [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195680.jpg" />
+  <img src="Z:/picture/004/save_picture_195680.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Winter Blues 2023 (2022) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189995.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Brian Grey - Collection (2021-2022) 9CD [MP3|320 Kbps] <Blues, Rock, Bluegrass>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186562.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Akella Presents - vol.209 - Blues-Rock Live!(2CD) (2019) [MP3|320 Kbps] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185104.jpg" />
+  <img src="Z:/picture/004/save_picture_185104.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Blues Company - Take the Stage (2020) Live [MP3|320 Kbps] <Rock Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184992.jpg" />
+  <img src="Z:/picture/004/save_picture_184992.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ King King - Maverick (Deluxe) (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183375.jpg" />
+  <img src="Z:/picture/004/save_picture_183375.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Max Merritt - I Can Dream (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181369.jpg" />
+  <img src="Z:/picture/005/save_picture_181369.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Blues Masters (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180034.jpg" />
+  <img src="Z:/picture/005/save_picture_180034.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ VA - Modern Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180029.jpg" />
+  <img src="Z:/picture/005/save_picture_180029.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179468.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Catch 23 - Blues Hotel (2022) [mp3|320 kbps|tracks] <Blues, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179286.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178901.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178148.jpg" />
+  <img src="Z:/picture/005/save_picture_178148.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Rory Gallagher - Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175969.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175709.jpg" />
+  <img src="Z:/picture/004/save_picture_175709.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173920.jpg" />
 </div>
 
 
@@ -710,34 +739,6 @@ VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D5109914D0B888F0587E954ABA100C51753E0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430438   (173763) от 10.12.2020
-
-Matt O'Ree Band - 3 альбома (2013-2019) [MP3|320 Kbps] <Blues, Blues Rock, Hammond>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173763.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - Live In Denver, CO
-2016 - Brotherhood
-2019 - Live at the Stone Pony! (Live)Жанр: Blues, Blues Rock, HammondПродолжительность: 03:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297427CE814808ABF9726547171FEE287B8EF8BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

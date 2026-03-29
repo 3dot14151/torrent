@@ -1,3 +1,148 @@
+###  Публикация: 992529   (898972) от 03.03.2016
+
+VA - Romantic Collection - Boogie-Woogie (2000) [FLAC|Lossless|image + .cue] <Rock n Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Dirty  Boogie (The  Brian  Setzer  Orchestra) [03:15]
+2. Katushka (Pilgrims) [02:41]
+3. Brand New Cadillac (Es Feiv) [02:08]
+4. Run For Your Life (Robert Cordon) [02:20](   Читать дальше...   )Жанр: Rock n RollПродолжительность: 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89DC06C788B6B87B0A951BAEDF700AD7985527C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493008   (898766) от 01.09.2021
+
+Brian Setzer - Gotta Have The Rumble (2021) [FLAC|Lossless|image + .cue] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Checkered Flag (4:05)
+02. Smash Up On Highway One (3:47)
+03. Stack My Money (2:46)
+04. The Wrong Side Of The Tracks (4:01)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2919418F388C81CE3F40BEC545CF29A1F274433B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492371   (898247) от 26.03.2020
+
+George Michael And Queen With Lisa Stansfield – Five Live (1993) [FLAC|Lossless|image + .cue] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody To Love (5:19)
+02. Killer (5:58)
+03. Papa Was A Rollin' Stone (5:24)
+04. These Are The Days of Our Lives (with Lisa Stansfield) (4:44)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504C64EF08EB8274DE55B17C0E42416BBC312F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100664   (898107) от 05.02.2017
+
+Eris Pluvia - Different Earths (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance (The Door Of My Soul Reprise) (3:23)
+02. Man On A Rope (5:58)
+03. Aqua (4:11)
+04. Rain Is Falling (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8206A52001C85FE2F82BBAB0F051F3DABCB57AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100770   (898103) от 05.02.2017
+
+Hear N' Ade - Now Hear This (2016) [FLAC|Lossless|tracks + .cue] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bible Belt 04:06
+02. Shout 04:12
+03. Miss Demeanor 04:35
+04. High Road 03:19(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6BC5E0CB46C1A3B55D66F5BAFF82B6744FFC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100752   (898011) от 05.02.2017
 
 Pride Of Lions - Fearless (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +151,7 @@ Pride Of Lions - Fearless (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898011.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Yes - The Ultimate Yes: 35th Anniversary Collection (2003) 2 x CD, Compilation [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897503.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Brian Fallon - Local Honey (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897036.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Dan McCafferty - Two Original Albums(2CD) (2002) [WavPack|Lossless]<Blues Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896749.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Rock Legends (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic Rock, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896672.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Boneyard Dog - Bluesbound Train (2016) [FLAC|Lossless|image + .cue] <Rock, Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896408.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Cirrus Bay - Places Unseen (2016) [FLAC|Lossless|image + .cue] <Symphonic Prog, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896402.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Alessandro Corvaglia - Out Of The Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895708.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Imagine Dragons - Mercury: Act 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895407.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Barry Goudreau's Engine Room - The Road (2021) [FLAC|Lossless|image + .cue] <AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895276.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895272.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Bernie Marsden - Kings (2021) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895253.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Interstate Blues - Dragon Lady (2016) [FLAC|Lossless|image + .cue] <Heavy Blues-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894737.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Elvis Presley - Elvis: The Complete 1954-62 U.S.A. Singles (2015) 4CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894552.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Bad Company - Holy Water (1990) [FLAC|Lossless|image + .cue]<Hard Rock, Arena Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894521.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ The Alan Parsons Project - 11 альбомов (1976-2007) Japanese remasters /2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893909.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Elvis Presley with the Royal Philharmonic Orchestra - If I Can Dream (2015) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893869.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Do-Re-Mi - The Happiest Place In Town (1988) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893749.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Leather & Lace (1990) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893679.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Fish On Friday - 3 альбома (2010-2014) [FLAC|Lossless|image + .cue] <Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893676.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Baby Miss Julia - Room of Gardenia (1995) [FLAC|Lossless|tracks + .cue] <Pop-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893135.jpg" />
 </div>
 
 
@@ -600,150 +745,6 @@ Baby Miss Julia - Room of Gardenia (1995) [FLAC|Lossless|tracks + .cue] <Pop-Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE20AD2B971F14AA2EC15A53A9E54DBF81BC6EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101791   (893130) от 08.02.2017
-
-Lucas Sideras - One Day (1972) Remaster 2014 [FLAC|Lossless|tracks + .cue] <Classic Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893130.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. And I Cry 4:02
-2. Lady 3:35
-3. Rising Sun 5:00
-4. I Was About To Die 4:05(   Читать дальше...   )Жанр: Classic Rock, PsychedelicПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6B594ACC48912D71B3B907AA735EA0007902E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101723   (892941) от 08.02.2017
-
-Eric Johnson - EJ (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Jazz Fusion, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mrs. Robinson (2:43)
-02. Water Under The Bridge (2:35)
-03. Wonder (3:12)
-04. Wrapped In A Cloud (6:07)(   Читать дальше...   )Жанр: Instrumental Rock, Jazz Fusion, BluesПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E5428B4B660720B39D6F28199EE8351017F62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493706   (892570) от 05.09.2021
-
-Nebulous Sun - First Tale (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Avant Prog, Canterbury Scene>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come to Pass (04:26)
-02. First Tale (07:00)
-03. Vacuite (09:45)
-04. Bargain (04:38)(   Читать дальше...   )Жанр: Progressive Rock, Avant Prog, Canterbury SceneПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA9C530CE87FDA74E4E149DFF0F63BD67547ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493710   (892568) от 05.09.2021
-
-A Kew's Tag - Hephioz (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ... T. R. U. T. H. [00:01:39]
-02. Prologue: Congregation [00:02:08]
-03.Жанр: Progressive RockПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAD840608E8022A34AA980542ACBA81CDF625E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493878   (892554) от 05.09.2021
-
-Fragile - Beyond (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond:
-- Sent Through The Morning
-- Sharkflight
-- Dawn(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D915DA52A0C29ACC1B70D8B5BE47F26E67903AB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

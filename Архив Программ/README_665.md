@@ -6,7 +6,7 @@ Glary Utilities Pro 5.24.0.43 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715037.jpg" />
+  <img src="Z:/picture/008/save_picture_715037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CoolUtils Total PDF Converter 6.1.0.232 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715009.jpg" />
+  <img src="Z:/picture/008/save_picture_715009.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dr.Web CureIt 6.00.2.05140 [Multi] (09.06.2010)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714982.jpg" />
+  <img src="Z:/picture/005/save_picture_714982.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6785.5000 (2018.04) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714971.jpg" />
+  <img src="Z:/picture/008/save_picture_714971.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AkelPad 4.9.3 + Plugins (х86/х64) RePack + Portable by San_dr (25.04.15) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714943.jpg" />
+  <img src="Z:/picture/008/save_picture_714943.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reg Organizer 7.11 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714940.jpg" />
+  <img src="Z:/picture/008/save_picture_714940.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Start Menu X 5.43 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714939.jpg" />
+  <img src="Z:/picture/008/save_picture_714939.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CoolUtils Total Audio Converter 5.3.0.199 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714929.jpg" />
+  <img src="Z:/picture/008/save_picture_714929.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mp3tag 2.94 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714920.jpg" />
+  <img src="Z:/picture/008/save_picture_714920.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714914.jpg" />
+  <img src="Z:/picture/008/save_picture_714914.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ SQL Dynamite 2.1.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714908.jpg" />
+  <img src="Z:/picture/008/save_picture_714908.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DiskDigger 1.31.53.3041 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714876.jpg" />
+  <img src="Z:/picture/008/save_picture_714876.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tarma InstallMate 9.95.0.7518 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714874.jpg" />
+  <img src="Z:/picture/008/save_picture_714874.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Topaz Sharpen AI 2.1.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714872.jpg" />
+  <img src="Z:/picture/008/save_picture_714872.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ LogViewPlus 2.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714822.jpg" />
+  <img src="Z:/picture/008/save_picture_714822.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Google Chrome 42.0.2311.135 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714821.jpg" />
+  <img src="Z:/picture/008/save_picture_714821.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Google Chrome 42.0.2311.135 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714811.jpg" />
+  <img src="Z:/picture/008/save_picture_714811.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mozilla Firefox Quantum 65.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714794.jpg" />
+  <img src="Z:/picture/008/save_picture_714794.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Opera 29.0.1795.47 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714793.jpg" />
+  <img src="Z:/picture/008/save_picture_714793.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ uTorrent 3.5.5 Build 45095 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714792.jpg" />
+  <img src="Z:/picture/008/save_picture_714792.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Topaz DeNoise AI 2.2.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714761.jpg" />
+  <img src="Z:/picture/008/save_picture_714761.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-08-07) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714759.jpg" />
+  <img src="Z:/picture/008/save_picture_714759.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ MetaProducts Offline Explorer Enterprise 7.8.4660 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714753.jpg" />
+  <img src="Z:/picture/008/save_picture_714753.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Maxthon Browser 5.2.7.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714714.jpg" />
+  <img src="Z:/picture/008/save_picture_714714.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Total Commander 8.51a Final MAX-Pack Extended 2015.04.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714697.jpg" />
+  <img src="Z:/picture/008/save_picture_714697.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ IObit Driver Booster Pro 2.3.1.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714696.jpg" />
+  <img src="Z:/picture/008/save_picture_714696.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 904278   (654258) от 03.06.2015
+
+Death Moto 3 1.2.5 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death Moto - довольно известная серия экшен ранеров в мистическом стиле, первые две части которой выпустила студия разработчик ICLOUDZONE GAMES , третья же часть разработана молодым коллективом WEDO1.COM GAME . В целом сюжет остался без изменений, вы в роли поднявшегося из могилы беспощадного гонщика сев за руль адского байка отправляетесь мстить за что-то там, об (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 1 июня 2015 г.Разработчик: WEDO1.COM GAMEПоддерживаемая ОС: Android 2.3+Жанр: RacingЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DFCA151D4E52D35DFC0AAD7A9CA9FE08344B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516369   (653431) от 28.06.2012
 
 [MP4 360x640] Матч (2012) DVDRip
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653431.jpg" />
+  <img src="Z:/picture/005/save_picture_653431.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653422.jpg" />
+  <img src="Z:/picture/005/save_picture_653422.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653365.jpg" />
+  <img src="Z:/picture/005/save_picture_653365.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653359.jpg" />
+  <img src="Z:/picture/005/save_picture_653359.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653312.jpg" />
+  <img src="Z:/picture/008/save_picture_653312.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653247.jpg" />
+  <img src="Z:/picture/005/save_picture_653247.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653237.jpg" />
+  <img src="Z:/picture/005/save_picture_653237.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653229.jpg" />
+  <img src="Z:/picture/005/save_picture_653229.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653113.jpg" />
+  <img src="Z:/picture/005/save_picture_653113.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653020.jpg" />
+  <img src="Z:/picture/005/save_picture_653020.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653017.jpg" />
+  <img src="Z:/picture/005/save_picture_653017.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Talking Caller ID + 2.24 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653004.jpg" />
+  <img src="Z:/picture/008/save_picture_653004.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_652912.jpg" />
+  <img src="Z:/picture/005/save_picture_652912.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_652910.jpg" />
+  <img src="Z:/picture/005/save_picture_652910.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_652898.jpg" />
+  <img src="Z:/picture/005/save_picture_652898.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ ViPER4Android (V4A) 2.3.4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652807.jpg" />
+  <img src="Z:/picture/008/save_picture_652807.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ VLC for Android 2.1.10 (ARMv7/ARMv8/x86/x64) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651622.jpg" />
+  <img src="Z:/picture/008/save_picture_651622.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_650792.jpg" />
+  <img src="Z:/picture/005/save_picture_650792.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ HTC Смартфоны и планшеты [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650724.jpg" />
+  <img src="Z:/picture/008/save_picture_650724.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649378.jpg" />
+  <img src="Z:/picture/005/save_picture_649378.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Shards - the Brick Breaker Pro 2.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649259.jpg" />
+  <img src="Z:/picture/008/save_picture_649259.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649216.jpg" />
+  <img src="Z:/picture/005/save_picture_649216.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649190.jpg" />
+  <img src="Z:/picture/005/save_picture_649190.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648983.jpg" />
+  <img src="Z:/picture/005/save_picture_648983.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Lenovo Vibe Z2 Pro [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648940.jpg" />
+  <img src="Z:/picture/008/save_picture_648940.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Lenovo Vibe Z2 Pro [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0147BE36074E0BADA72DDD845B3B1CE587564B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517142   (648917) от 30.06.2012
-
-[Программа] (Android 1.6+) Startup Manager (Full Version) 3.7 - Запуск приложений и сервисов
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управление запуском приложений и сервисов. На прошивках с рутом не просто убивает приложения при загрузке, но отключает их. Данный вариант модифицирован, и кроме основных благ дает возможность убрать из загрузки сам Startup Manager.Разработчик: IMOBLIFE Co. LtdЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

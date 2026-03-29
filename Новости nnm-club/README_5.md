@@ -1,3 +1,108 @@
+###  Публикация: 1614958   (1037413) от 26.02.2023
+
+Стук в хижине / Knock at the Cabin (2023) WEB-DLRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастливая пара с семилетней дочерью отдыхает в лесном коттедже у озера. Внезапно у них на пороге возникают четыре незнакомца, вооруженных диковинными орудиями, и ставят отдыхающим ультиматум: либо те выбирают и убивают кого-то из собственной семьи, либо наступает апокалипсис, и остальное человечество погибает в адских муках.Производство: США / Blinding Edge Pictures, FilmNation Entertainment, Perfect World Pictures, Universal Pictures, WishmoreЖанр: триллерРежиссер: М. Найт ШьямаланАктеры: Дэйв Батиста, Джонатан Грофф, Бен Элдридж, Никки Амука-Бёрд, Руперт Гринт, Эбби Куинн, Кристен Цуй, МакКенна Керриган, Йен Мэрилл Пикс, Denise NakanoПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370FE83411A9D5EE5AE4331B750A25242F069D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441278   (1037363) от 22.01.2021
+
+Что такое цифровая реинкарнация человека
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровые технологии проникают во все сферы жизни человека: науку, производство, образование, медицину, быт, отдых. Специалисты американской компании Microsoft пошли дальше – они вторглись в загробную жизнь человека, запатентовав идею цифровой реинкарнации.В чем суть цифровой реинкарнации человека
+Авторы идеи предложили создать чат-бот на основе информации об умершем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990520   (1037310) от 22.01.2021
+
+Flowx Smart Weather (ранее WeatherBomb) v3.316 [Ru/En] - приложение для просмотра прогноза погоды (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037310.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeatherBomb - Универсальное приложение, которое покажет вам прогноз погоды, в реальном времени. Не все так просто как кажется, здесь присутствует интерактивная карта, которая показывает вам прогноз погоды в реальном времени. Есть одно меню, благодаря которому пользователь может выбрать нужную ему информацию. Имеется такой уникальный пункт как высота волн, эти данные (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 16.01.2021Разработчик: Enzure DigitalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A41BF6F3F6BE0DABEEE54773BE041512892914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615276   (1037157) от 27.02.2023
+
+Учёные создали основу для полного слияния человека и машины — электроды научились выращивать прямо в организме
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многочисленные работы по интеграции электронных схем и биологических организмов строятся на тех или иных операциях по вживлению мёртвого в живое. Открытие шведских учёных может в корне изменить подход и привести к по-настоящему полной интеграции машины и человека. Разветвлённую сеть электродов можно будет создавать прямо в клетках и живых тканях с использованием (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495995   (1037139) от 27.02.2023
 
 Никто / Nobody (2021) BDRip [H.265/1080p-LQ] [AVO]
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037139.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037015.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Raspberry выпустила Pi Pico — свой самый маленький 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036786.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036752.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036746.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ OpenAI открыли вакансию «инженер-выключатель»
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036655.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036504.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036453.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036379.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036367.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.0.7.15) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036170.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036074.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036073.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036072.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035905.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035879.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035790.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035237.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035236.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ F-Secure Freedome VPN 2.64.767.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034981.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ Opera 73.0.3856.344 Portable by JolyAnderson [Multi/Ru] (авторская ра
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034815.jpg" />
 </div>
 
 
@@ -554,120 +659,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034724.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Эксперты по кибербезопасности из компании Quarkslab обнаружили две уязвимости в реализации Trusted Platform Module (TPM) 2.0, создающие потенциальную угрозу для миллиардов компьютеров с такими чипами.Чипы TPM 2.0 устанавливаются на материнские платы компьютеров с середины 2016 года. Технология, уточняют в Microsoft, необходима для реализации функций, связанных с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444254   (1034501) от 01.02.2021
-
-Палмер / Palmer (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выйдя из тюрьмы, бывшая звезда школьного американского футбола Эдди Палмер возвращается в родной городок. Парень надеется наладить свою жизнь, но сталкивается с проблемами прошлого и неожиданно становится наставником мальчика, которого оставила мать.Производство: США / Sidney Kimmel Entertainment, Hercules Film Fund, Rhea Films (II)Жанр: ДрамаРежиссер: Фишер СтивенсАктеры: Джастин Тимберлейк, Джуно Темпл, Джун Скуиб, Дин Уинтерс, Алиша Вейнрайт, Винн Эверетт, Райдер Аллен, Дж.Д. Эвермор, Джейк Бреннан, Джесси БойдПеревод: Дублированный (Apple TV+)Субтитры: Русские, украинские, английские (SDH)Продолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1967AA28D0482E3EE91E87350F6E19C3BB978D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448656   (1034482) от 09.03.2023
-
-Груз 200 (2007) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034482.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1984 год. Провинция. После дискотеки пропадает дочь секретаря райкома партии. Свидетелей нет, виновные не обнаружены. В этот же вечер в доме на окраине города происходит жестокое убийство. Обвиняемый — хозяин дома. Расследования обоих преступлений поручены капитану милиции Журову.Производство: Россия, Кинокомпания CTB / СТВЖанр: триллер, драмаРежиссер: Алексей БалабановАктеры: Агния Кузнецова, Алексей Полуян, Леонид Громов, Алексей Серебряков, Леонид Бичевин, Наталья Акимова, Юрий Степанов, Михаил Скрябин, Сергей Александров, Валентина АндрюковаСубтитры: русские, английскиеПродолжительность: 01:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9607DB02810125D6CA9392715C32356FE0BBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617996   (1034481) от 09.03.2023
-
-Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до результата! (2023) WEB-DL [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ранняя версия курса. Курс готов на 70% и охватывает все основные темы JS.
-Существующего материала хватит минимум на 3 месяца активной учебы. До 31 марта 2023 года, курс будет дополнен еще 3-мя темами. Студенты приобретающие курс получат доступ ко всем дополнениям бесплатно и автоматически.
-
-Привет!) Меня зовут Дима.(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B419E3B8AACC0323EC8C7B50097DBBD95DD48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443738   (1034318) от 02.02.2021
-
-Гиперхаос поможет физикам создать квантовые компьютеры
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаотичное поведение квантовых битов – кубитов может позволить физикам моделировать сложные квантовые системы без необходимости использовать огромные вычислительные мощности.Парадоксально, но развитие квантового компьютера следующего поколения ограничивается скоростью работы обычных процессоров. Даже самые быстрые в мире суперкомпьютеры не обладают достаточной мощностью (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

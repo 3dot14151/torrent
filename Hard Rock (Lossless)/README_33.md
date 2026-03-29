@@ -1,3 +1,61 @@
+###  Публикация: 1536820   (672790) от 13.03.2022
+
+Heartwind - Strangers (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers In The Night
+02. Line Of Fire
+03. Amanda
+04. Angels Cry Again(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E72DC4096B67C3BB8BCC391324511AF2A8E4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536583   (670977) от 14.03.2022
+
+D'or - Veni Vidi Ignis (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veni Vidi Ignis (03:54)
+02. Scream (03:55)
+03. Jack-In-The-Box (04:02)
+04. Future, Baby! (03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B27F54332CB823E3AD073490AB23E4A889F92F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536876   (670972) от 14.03.2022
 
 Tim - Tim (1983) Reissue, 2021, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +64,7 @@ Tim - Tim (1983) Reissue, 2021, MelodicRock Classics [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670972.jpg" />
+  <img src="Z:/picture/008/save_picture_670972.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The End Machine - The End Machine (2019) [FLAC|lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670698.jpg" />
+  <img src="Z:/picture/008/save_picture_670698.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tora Tora - Bastards of Beale (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668803.jpg" />
+  <img src="Z:/picture/008/save_picture_668803.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ La Chinga - Freewheelin’ (2016) [FLAC|Lossless|tracks] <Hard Rock, Classic Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668769.jpg" />
+  <img src="Z:/picture/008/save_picture_668769.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Chains over Razors - Chains over Razors (2022) [FLAC|Lossless|WEB-DL|tracks] <Mo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667892.jpg" />
+  <img src="Z:/picture/008/save_picture_667892.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Bonfire - Glorious (2015) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666737.jpg" />
+  <img src="Z:/picture/008/save_picture_666737.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Nalle Pahlsson's Royal Mess - Royal Mess (2015) Special Edition [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664386.jpg" />
+  <img src="Z:/picture/008/save_picture_664386.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Mott The Hoople (British Lions) - 21 albums, 3 Box-sets, 39CD (1969-2021) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664292.jpg" />
+  <img src="Z:/picture/008/save_picture_664292.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Quickstrike - None Of A Kind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663443.jpg" />
+  <img src="Z:/picture/008/save_picture_663443.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Ransom - Back To The Boozer (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663437.jpg" />
+  <img src="Z:/picture/008/save_picture_663437.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Stone Axe - Stay Of Execution (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663429.jpg" />
+  <img src="Z:/picture/008/save_picture_663429.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Orange Goblin - 8 albums (1997-2012) [FLAC/APE|Lossless] <Stoner / Hard Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_662490.jpg" />
+  <img src="Z:/picture/005/save_picture_662490.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ Jorn - Dukebox (2009) [FLAC|Lossless|image + .cue]<Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662409.jpg" />
+  <img src="Z:/picture/008/save_picture_662409.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ Sandstorm - Zeitgeist (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661383.jpg" />
+  <img src="Z:/picture/008/save_picture_661383.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ Moxy - 6 albums (1975-2015) [FLAC|Lossless|image + .cue | tracks + .cue ] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661275.jpg" />
+  <img src="Z:/picture/008/save_picture_661275.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ Lou Pardini - Look The Other Way (1998) [FLAC|Lossless]<AOR, Soft Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660223.jpg" />
+  <img src="Z:/picture/008/save_picture_660223.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ King Mountain - Tempest at the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657269.jpg" />
+  <img src="Z:/picture/008/save_picture_657269.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ Gov't Mule - Dub Side Of The Mule (2015) 3 CD Deluxe Edition [FLAC|image+.cue]<C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656777.jpg" />
+  <img src="Z:/picture/008/save_picture_656777.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ Humble Pie - On To Victory (1980) & Go For The Throat (1981) Remastered /2005, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656672.jpg" />
+  <img src="Z:/picture/008/save_picture_656672.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Foreigner - Head Games (1979) Remastered /1995, Atlantic/ [FLAC|image+.cue]<Clas
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656661.jpg" />
+  <img src="Z:/picture/008/save_picture_656661.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Foreigner - 4 (1981) /1988, Warner-Pioneer/ [FLAC|image+.cue]<Classic Rock, Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656656.jpg" />
+  <img src="Z:/picture/008/save_picture_656656.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Foreigner - Agent Provocateur (1985) [FLAC|image+.cue]<Classic Rock, Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656384.jpg" />
+  <img src="Z:/picture/008/save_picture_656384.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Hardcore Superstar - 11 альбомов (1998 - 2015) [FLAC|APE|Lossless]<Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656292.jpg" />
+  <img src="Z:/picture/008/save_picture_656292.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655838.jpg" />
+  <img src="Z:/picture/008/save_picture_655838.jpg" />
 </div>
 
 
@@ -692,66 +750,6 @@ Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D5EAD57B13E0AAD923BF77DB2340AEC702A8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140343   (655789) от 06.06.2017
-
-Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
-
-Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
-02. Hammered to the Cross (The Business) (5:29)
-03. Love Is the Remedy (4:53)
-04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904101   (655571) от 02.06.2015
-
-Room Experience - Room Experience (2015) [FLAC|Lossless]<Melodic Hard Rock / AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shock Me
-2. Tomorrow Came
-3. Run To You
-4. Queen Of Every Heart(   Читать дальше...   )Жанр: Melodic Hard Rock / AORПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BDF3ECC523FCCCFA1B29ED6EA3579C006028A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

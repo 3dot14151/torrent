@@ -7,7 +7,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061238.jpg" />
+  <img src="Z:/picture/005/save_picture_1061238.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Franck Pourcel And His Orchestra - Pourcel Himself (2024) Remastered [FLAC 24/48
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060164.jpg" />
+  <img src="Z:/picture/009/save_picture_1060164.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Mladen Franko & Norman Candler Magic Strings - Just Beautiful (2024) Remastered 
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060163.jpg" />
+  <img src="Z:/picture/009/save_picture_1060163.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060040.jpg" />
+  <img src="Z:/picture/005/save_picture_1060040.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Paul Mauriat - Retalhos De Cetim (1974) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059941.jpg" />
+  <img src="Z:/picture/009/save_picture_1059941.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Paul Mauriat - Sommer Souvenirs (1975) [FLAC 24/192|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059939.jpg" />
+  <img src="Z:/picture/009/save_picture_1059939.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059018.jpg" />
+  <img src="Z:/picture/005/save_picture_1059018.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058998.jpg" />
+  <img src="Z:/picture/005/save_picture_1058998.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058980.jpg" />
+  <img src="Z:/picture/005/save_picture_1058980.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk R
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058063.jpg" />
+  <img src="Z:/picture/005/save_picture_1058063.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057915.jpg" />
+  <img src="Z:/picture/005/save_picture_1057915.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057567.jpg" />
+  <img src="Z:/picture/005/save_picture_1057567.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057296.jpg" />
+  <img src="Z:/picture/005/save_picture_1057296.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056800.jpg" />
+  <img src="Z:/picture/005/save_picture_1056800.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055677.jpg" />
+  <img src="Z:/picture/005/save_picture_1055677.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055606.jpg" />
+  <img src="Z:/picture/005/save_picture_1055606.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Franck Pourcel - Cole Porter Story (2018) Remasterisé en 2018 [FLAC 24/44.1|Los
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054072.jpg" />
+  <img src="Z:/picture/005/save_picture_1054072.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Vayper - Матерные частушки (Алексей Иванов) (2026) 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054009.jpg" />
+  <img src="Z:/picture/005/save_picture_1054009.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051088.jpg" />
+  <img src="Z:/picture/005/save_picture_1051088.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050748.jpg" />
+  <img src="Z:/picture/005/save_picture_1050748.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050661.jpg" />
+  <img src="Z:/picture/008/save_picture_1050661.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047128.jpg" />
+  <img src="Z:/picture/005/save_picture_1047128.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045731.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045672.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Sessio
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045374.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downte
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045311.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Psytatyx - Double View (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797496.jpg" />
+  <img src="Z:/picture/008/save_picture_797496.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ FreeFileSync 9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797491.jpg" />
+  <img src="Z:/picture/008/save_picture_797491.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ AVG Internet Security 2016 16.71.7596 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797480.jpg" />
+  <img src="Z:/picture/008/save_picture_797480.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AMD Radeon Software Crimson Edition 16.4.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797474.jpg" />
+  <img src="Z:/picture/008/save_picture_797474.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Otem's Defiance (2016) [En/Es] (2.0.0.9) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797472.jpg" />
+  <img src="Z:/picture/008/save_picture_797472.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Piriform CCleaner Professional Plus 5.17.5590 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797471.jpg" />
+  <img src="Z:/picture/008/save_picture_797471.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797469.jpg" />
+  <img src="Z:/picture/008/save_picture_797469.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797466.jpg" />
+  <img src="Z:/picture/008/save_picture_797466.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797465.jpg" />
+  <img src="Z:/picture/008/save_picture_797465.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Pro Audio Converter 1.9.1 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797461.jpg" />
+  <img src="Z:/picture/008/save_picture_797461.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ FonePaw iPhone Data Recovery 6.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797455.jpg" />
+  <img src="Z:/picture/008/save_picture_797455.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ OmniFocus Pro 3 v3.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797454.jpg" />
+  <img src="Z:/picture/008/save_picture_797454.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AIMP 5.00 Build 2342 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797448.jpg" />
+  <img src="Z:/picture/008/save_picture_797448.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Freeplane 1.9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797447.jpg" />
+  <img src="Z:/picture/008/save_picture_797447.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Geekbench 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797439.jpg" />
+  <img src="Z:/picture/008/save_picture_797439.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797438.jpg" />
+  <img src="Z:/picture/008/save_picture_797438.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Norton Remove and Reinstall 4.4.0.71 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797434.jpg" />
+  <img src="Z:/picture/008/save_picture_797434.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ QQ Browser 10.0.608 Portable by Cento8 [Ru/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797432.jpg" />
+  <img src="Z:/picture/008/save_picture_797432.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ XnViewMP 0.89 + portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797431.jpg" />
+  <img src="Z:/picture/008/save_picture_797431.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797419.jpg" />
+  <img src="Z:/picture/008/save_picture_797419.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797412.jpg" />
+  <img src="Z:/picture/008/save_picture_797412.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Essential Guide Progressive Trance Vol.06 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797408.jpg" />
+  <img src="Z:/picture/008/save_picture_797408.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797407.jpg" />
+  <img src="Z:/picture/008/save_picture_797407.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797405.jpg" />
+  <img src="Z:/picture/008/save_picture_797405.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797399.jpg" />
+  <img src="Z:/picture/008/save_picture_797399.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Honeyview 5.41 Build 5915 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797389.jpg" />
+  <img src="Z:/picture/008/save_picture_797389.jpg" />
 </div>
 
 

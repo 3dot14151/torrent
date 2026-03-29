@@ -1,3 +1,164 @@
+###  Публикация: 1658139   (191503) от 07.09.2023
+
+Очередное достижение: 1000+ релизов от Vitaxa52!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191503.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Очередное достижение: 1000+ релизов от Vitaxa52!Дорогие одноклубники! Ещё один из наших релизёров добрался до желанной отметки в 1000 релизов!От лица всего коллектива модераторов и администрации трекера, хочу поздравить и выразить благодарность. Спасибо тебе за упорство, труд и потраченные силы. Уверен, что пользователи нашего трекера присоединятся к поздравлениям (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587976   (191221) от 05.11.2022
+
+Названа доля пользователей Windows 11
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_191221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Statcounter: на Windows 11 перешли 15 процентов пользователей ОС от Microsoft
+Специалисты агентства Statcounter назвали долю пользователей актуальной операционной системы от Microsoft. Об этом сообщает издание Neowin.По данным Statcounter, на Windows 11 перешли 15,44 процента пользователей ОС от Microsoft — новая операционная система оказалась на втором месте по (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 685984   (191157) от 05.11.2022
+
+SoundHound∞ v10.2 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_191157.jpg" />
+</div>
+
+
+###  Подробнее
+
+SoundHound поможет вам легко найти понравившуюся мелодию (аналог Shazam). Просто поднесите устройство к источнику звука или же напойте мелодию сами. Давно искали песню, даже мелодию успели забыть... и тут она играет по радио или тв. Или проснулись утром, а в голове крутится одна и та же мелодия, мотив из детства или та самая композиция со школьной дискотеки. Да просто (   Читать дальше...   )Тип издания: Mod / PaidРелиз состоялся: 02.11.2022Разработчик: SoundHound Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BE05B3E5ED8906FBC73410D27A61CB1641C6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623401   (191039) от 08.09.2023
+
+Юмор на все времена (2022-2023) WEBRip (56 выпусков)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа «Юмор на все времена» рассказывает о творческой жизни талантливых юмористов, их взлётах и падениях, курьёзных ситуациях и о незабываемых эстрадных номерах. Ведущий программы Аркадий Инин с каждым из героев программы был знаком лично или дружен до сих пор. Он знает о советских юмористах практически всё и готов поделиться с телезрителями неизвестными до сих (   Читать дальше...   )Производство: Россия, Москва МедиаЖанр: документальный, биография, эстрадаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: выпуски ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDBC68A29AAF77D53E7DC74AF9396E1EE3FB208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968846   (191027) от 08.09.2023
+
+Сквозь горизонт  / Горизонт событий / Event Horizon (1997) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_191027.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2047 году космический корабль под названием «Сквозь горизонт» вновь появился после исчезновения семь лет назад. На нем ставился эксперимент путешествия со сверхсветовой скоростью. С корабля был получен сигнал, но голос лишь отдаленно напоминал человеческий. Группа ученых и астронавтов тут же отправляется на корабль с целью его исследования и возвращения домой. (   Читать дальше...   )Производство: Великобритания, США / Paramount Pictures, Golar Productions, Impact PicturesЖанр: Ужасы, Фантастика, Триллер, ДетективРежиссер: Пол У. С. АндерсонАктеры: Лоренс Фишбёрн, Сэм Нил, Кэтлин Куинлен, Джоэли Ричардсон, Ричард Т. Джонс, Джек Ноузуорти, Джейсон Айзекс, Шон Пертуи, Питер Маринкер, Холли ЧантПеревод: Многоголосый закадровый (Киномания)Субтитры: Русские, английскиеПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8CED45067C8F21F84BACB5AC72CB074FD50A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587936   (190926) от 06.11.2022
+
+GoodbyeDPI 0.2.2. Launcher 5.7 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_190926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
+Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
+
+Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DF961777A627655042717BAC39902E34E62745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588291   (190712) от 07.11.2022
 
 Китайская мафия держит в заложниках 100 тысяч азиатов, заставляя их заниматься кибермошенничеством
@@ -6,7 +167,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_190712.jpg" />
+  <img src="Z:/picture/005/save_picture_190712.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190278.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Rocket Lab не смогла поймать первую ступень раке
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_190107.jpg" />
+  <img src="Z:/picture/005/save_picture_190107.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189968.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189859.jpg" />
 </div>
 
 
@@ -137,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189853.jpg" />
+  <img src="Z:/picture/005/save_picture_189853.jpg" />
 </div>
 
 
@@ -165,7 +326,7 @@ Skypro | Разработчик на Python (2021) WEB-DL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189808.jpg" />
 </div>
 
 
@@ -194,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189804.jpg" />
+  <img src="Z:/picture/005/save_picture_189804.jpg" />
 </div>
 
 
@@ -220,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189522.jpg" />
 </div>
 
 
@@ -246,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189513.jpg" />
+  <img src="Z:/picture/005/save_picture_189513.jpg" />
 </div>
 
 
@@ -272,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189510.jpg" />
 </div>
 
 
@@ -298,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189463.jpg" />
+  <img src="Z:/picture/005/save_picture_189463.jpg" />
 </div>
 
 
@@ -324,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189451.jpg" />
+  <img src="Z:/picture/005/save_picture_189451.jpg" />
 </div>
 
 
@@ -350,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189447.jpg" />
+  <img src="Z:/picture/005/save_picture_189447.jpg" />
 </div>
 
 
@@ -376,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189443.jpg" />
+  <img src="Z:/picture/005/save_picture_189443.jpg" />
 </div>
 
 
@@ -402,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189003.jpg" />
+  <img src="Z:/picture/005/save_picture_189003.jpg" />
 </div>
 
 
@@ -428,7 +589,7 @@ Intel представила самые производительные про�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188924.jpg" />
+  <img src="Z:/picture/005/save_picture_188924.jpg" />
 </div>
 
 
@@ -454,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188681.jpg" />
 </div>
 
 
@@ -480,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188649.jpg" />
+  <img src="Z:/picture/005/save_picture_188649.jpg" />
 </div>
 
 
@@ -506,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188625.jpg" />
 </div>
 
 
@@ -517,166 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2036B962CE4662C67C171377F31CC99F1F70A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589820   (188604) от 14.11.2022
-
-Реклама в космосе — наше мрачное будущее
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188604.jpg" />
-</div>
-
-
-###  Подробнее
-
- 
-Благодаря более дешевым запускам ракет и новым недорогим спутникам космос стал доступнее, чем когда-либо прежде. И, естественно, где есть новые технологии — там есть и маркетологи, пытающиеся эти технологии использовать. Как сейчас весь Интернет живет на рекламе, так и будущие космические программы могут спонсироваться за счет показа логотипов именитых брендов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555945   (188572) от 14.11.2022
-
-Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Shooter Course (2021) PCRec [EN, RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс совместим с любой версией Unreal Engine, даже с Unreal Engine 5!
-Заметка: 345 видео, полностью загружено!
-Это самая полная серия руководств по Unreal Engine в Интернете. Вы создадите шутер с качественной игровой механикой ААА. Изучите теорию игровой механики шутеров, а затем воплотите их в этом прекрасном игровом проекте.
-Разобранные темы:(   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, C++Язык озвучки: Английский, Русский(отдельным файлом)Продолжительность: 34:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF5F3453A810C29E6366179FCA69746C1473448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145203   (188570) от 14.11.2022
-
-Невеста любой ценой (2009) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — удачливый бизнесмен и гениальный сердцеед, хорошо изучивший женскую психологию. Чтобы заслужить повышение по службе, он вступает в контакт с опасным бизнесменом с криминальным прошлым. Но во время переговоров, не сдержав темперамента, легко соблазняет его подругу, а выходя от нее утром, попадается на глаза шоферу бизнесмена. Теперь ему грозит серьезная (   Читать дальше...   )Производство: Россия,  студия Magnum по заказу ПЦ "Централ Партнершип"Жанр: КомедияРежиссер: Дмитрий ГрачевАктеры: Павел Воля, Любовь Толкалина, Татьяна Геворкян, Максим Костромыкин, Оксана Кутузова, Наталья Рычкова, Александр Самойленко, Виталий Хаев, Ксения Худоба, Мария Шалаева, Ольга ШелестПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9078B5348AC55F0DB2459A2DFE2DBC8F2635614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590250   (188385) от 15.11.2022
-
-Клиницисты впервые сделали переливание искусственно созданной крови — образцы испытывают на 10 пациентах-добровольцах
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188385.jpg" />
-</div>
-
-
-###  Подробнее
-
-При успешном результате дальнейших клинических исследований возможно массовое производство искусственно созданной крови редких групп.На сегодня больницы нуждаются в около 30 000 мл крови ежедневно для лечения жертв несчастных случаев и людей с заболеваниями крови, такими как серповидноклеточная анемия. Материала катастрофически не хватает в первую очередь для пациентов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661507   (188289) от 15.09.2023
-
-Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 09.2023
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188289.jpg" />
-</div>
-
-
-###  Подробнее
-
-оптимизированная облегчённая (LITE) сборка на основе оригинальных русских образов новой версии операционной системы Windows 10 x64 (64 бит.) 22H2 от Microsoft 2-х редакций, Профессиональная и Домашняя, объединённых в один установочный образ. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные приложения, кроме (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764EA4D6F52AE066ACF2BBA8EE1D83D023308780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661760   (188286) от 15.09.2023
-
-CorelDRAW Graphics Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденные возможности CorelDRAW Graphics Suite 2023 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 11 или Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DE6E549D2A1679D6E4DD43BEEDF0FDC5D09533
 ```
 
 https://mybot314.ru/tekegram_catalog/

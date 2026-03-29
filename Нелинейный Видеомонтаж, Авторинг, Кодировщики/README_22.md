@@ -1,3 +1,211 @@
+###  Публикация: 1817556   (3361) от 11.09.2025
+
+Win Movie Maker 2025 10.0.0.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3361.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью Win Movie Maker вы можете легко создавать собственные фильмы из коллекций изображений и видео. Вы можете добавлять текст, музыку, анимацию, эффекты и т.д. Настраивайте и редактируйте музыку для своих видео. Публикуйте видео в Интернете или на DVD.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A90B959C99C699252C38FBBF09884DF2756EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817669   (3264) от 12.09.2025
+
+Topaz Video AI 7.1.4 RePack by KpoJIuK [En]
+
+>>След.
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61F09C20C2A2F7053FDD6EAA25EAB7A690A0B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817660   (3263) от 12.09.2025
+
+Adobe Premiere Pro 2025 25.5.0.13 RePack by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro 2025 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C2765FF3D2ED80E1EB645FCFCB5C4C13148A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817656   (3237) от 12.09.2025
+
+MAGIX Vegas Pro 23.0 Build 278 RePack by KpoJIuK [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3237.jpg" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F1343CB548982794FC110D8D6762EA8F848EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817662   (3219) от 12.09.2025
+
+Adobe Media Encoder 2025 25.5.0.13 RePack by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Media Encoder - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E521E81E928EA6BEDA391821B354DF3E087BEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818207   (2663) от 15.09.2025
+
+MKVToolNix 95.0 Stable + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2663.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA769FEB9500B6CEE9F95ACD4993F935D675EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818202   (2651) от 15.09.2025
+
+ВидеоМОНТАЖ 22.5 (DC 2025.08.04) RePack (& Portable) by elchupacabra  + Music Library [Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2651.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВидеоМОНТАЖ - это невероятно доступный и удобный видеоредактор, позволяющий с лёгкостью создавать эффектные видеоролики и увлекательные фильмы в домашних условиях. Всего за 5 шагов вы получите отличное видео с красивыми переходами, титрами, эффектами и фоновой музыкой.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B96FC34051F77649618F6255FB9313975DC4D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818334   (2498) от 16.09.2025
+
+Freemake Video Converter 5.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A8ED15CC50D48A7215359D39E8BC31F183355E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818335   (2492) от 16.09.2025
 
 Aiseesoft Video Converter Ultimate 10.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +214,7 @@ Aiseesoft Video Converter Ultimate 10.9.18 RePack (& Portable) by elchupacabra [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2492.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ XMedia Recode 3.6.1.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2308.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ DumboFab Blu-ray Ripper 7.3.1 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2026.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ Dashcam Viewer 4.0.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1630.jpg" />
 </div>
 
 
@@ -111,7 +319,7 @@ Videomass 6.1.20 Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1480.jpg" />
 </div>
 
 
@@ -137,7 +345,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.1 Build 6 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1331.jpg" />
 </div>
 
 
@@ -163,7 +371,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.1 Build 6 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1055.jpg" />
 </div>
 
 
@@ -189,7 +397,7 @@ Adobe After Effects 2025 25.5.0.4 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1036.jpg" />
 </div>
 
 
@@ -215,7 +423,7 @@ Kdenlive 25.08.1 + Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1013.jpg" />
 </div>
 
 
@@ -241,7 +449,7 @@ Topaz Video 1.0.1 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_623.jpg" />
 </div>
 
 
@@ -267,7 +475,7 @@ StaxRip 2.50.2.1 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_542.jpg" />
 </div>
 
 

@@ -1,3 +1,134 @@
+###  Публикация: 1266429   (269200) от 03.12.2018
+
+Октябрьские дни в Сокольническом районе: по воспоминаниям участников (1922) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания участников Октябрьской революции расположены в этом сборнике в такой последовательности: впереди идут воспоминания работников Сокольнического района, далее следуют воспоминания работников бывш. Железно-дорожного района, затем Городского района. Заканчивается сборник воспоминаниями о погибших в Октябрьские дни...Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9574AB95BFA600B7F08CDDC79A109A10B1DB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266447   (269141) от 03.12.2018
+
+Чарльз Уильям Гекертон | Тайные общества всех веков и всех стран (2018) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масоны и тамплиеры, алхимики и розенкрейцеры, каббалисты и гностики - практически все известные мировой истории тайные общества описаны в фундаментальном труде Чарльза Гекертона. Сам автор считал свою книгу "самым ясным отчетом о тайных обществах".
+Эта книга фактически является путеводителем по истории образования, развития и деятельности тайных обществ. (   Читать дальше...   )Жанр: Всемирная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC1CA79940A8159AFD79D65C6E197C6D882FCEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266887   (268418) от 04.12.2018
+
+Г. С. Зайдель, М. М. Цвибак | Классовый враг на историческом фронте [Тарле и Платонов и их «школы»] (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник представляет собой обработанные стенограммы докладов тт. Зайделя и Цвибака о Тарле и Платонове и их «школах» и прений по этим докладам, состоявшимся 29 января, 1, 12 и 16 февраля 1931 г., на объединенном заседании института истории и общества историков-марксистов при Ленинградском отделении Коммунистической академии. В прениях выступал ряд людей, (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70772410106D178F9B1DC276FFBAD4C96514DCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190590   (266842) от 10.12.2017
+
+Ж. Лонгэ | Рост социализма в Соединенных Штатах (1905) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266842.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре рассказано о борьбе американских социалистов за права трудящихся США в конце ХІХ века, анализируются причины подъемов и спадов революционного движения.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F8C005BA0229689E325C6213C1FDB931C3BF24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267526   (265127) от 08.12.2018
+
+Женевьева Табуи | Двадцать лет дипломатической борьбы (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265127.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, на документальной основе, освещаются события, предшествовавшие началу Второй мировой войны, свидетелем которых стала французская журналистка Женевьева Табуи. После присоединения Австрии к Германии сбылись её предсказания, что следующей жертвой Гитлера станет Чехословакия. В 1942 г., уже в США, она издает книгу "Они называли ее Кассандрой". После (   Читать дальше...   )Жанр: История, политология, дипломатия, журналистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4703470864003C694A8139CBB48C8BEE02C166EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268141   (264440) от 09.12.2018
 
 В.И. Засулич | Сборник статей [2 тома] (1907) [PDF]
@@ -6,7 +137,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264440.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264410.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264367.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264227.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263896.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263887.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263583.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263483.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263051.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262902.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262886.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262880.jpg" />
 </div>
 
 
@@ -323,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262837.jpg" />
 </div>
 
 
@@ -349,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262806.jpg" />
 </div>
 
 
@@ -377,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262571.jpg" />
 </div>
 
 
@@ -405,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262299.jpg" />
 </div>
 
 
@@ -431,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262268.jpg" />
 </div>
 
 
@@ -459,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262105.jpg" />
 </div>
 
 
@@ -488,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261806.jpg" />
 </div>
 
 
@@ -514,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261337.jpg" />
+  <img src="Z:/picture/005/save_picture_261337.jpg" />
 </div>
 
 
@@ -540,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257255.jpg" />
+  <img src="Z:/picture/005/save_picture_257255.jpg" />
 </div>
 
 
@@ -552,143 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9A58C15A9BF6E1FA922562AED90D3F2F2BB0763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497954   (253759) от 17.05.2012
-
-Книжная серия | "Энциклопедия спецслужб" (3 книги) [2008-2011] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энциклопедия спецслужб - серия книг о деятельности самых мощных спецслужб.
-Моссад, ЦРУ, Смерш, КГБ и др.
-
-Внешняя разведка СССР
-Спецслужбы Российской Империи
-ЦРУ и другие спецслужбы США2008-2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6FB87F04C0A7A23502F2E8EB3456FF59DC5F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836257   (252423) от 09.11.2025
-
-Денис Бояринов | Цой. История рок-звезды в буквах и картинках (2024) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти песни хотя бы раз в жизни слышал каждый. Группа "Кино" стала символом эпохи перемен, самой популярной группой 1980-1990-х. Их песни слушают, поют, на них делают каверы, по ним учат аккорды. Имя лидера группы знают все, даже если никогда не слушали рок. Виктор Цой – поэт и музыкант, актер и художник, легенда и кумир миллионов. Человек, чья музыка будет (   Читать дальше...   )Жанр: Научно-популярное издание, русская рок-музыкаИздательство: Альпина ПаблишерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F27F19E8C5391174BFCD50D529ABB75910BCDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835267   (250944) от 06.11.2025
-
-Александр Широкорад | Швеция. Гроза с Балтики (2008) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250944.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о тысячелетней истории взаимоотношений России и ее северного соседа Швеции. Почему братские как в прямом, так и в переносном смысле отношения русских князей и варяжских конунгов к XIII веку перешли в непримиримую вражду? Что произошло на самом деле на Неве в 1240 году? Стал ли шведский король Магнус схимонахом Валаамского монастыря? Как шведы (   Читать дальше...   )Жанр: Популярная историяИздательство: ВечеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B74A04771DA1FD1FF005BF617F34F3085AAE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494310   (250838) от 10.05.2012
-
-Александр Больных | «Проклятые вопросы» Великой Отечественной. Утерянные победы, упущенные возможности [2012] [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мог ли Вермахт осенью 1941 года взять Москву и выиграть войну? Что, если бы Манштейн прорвался к Сталинграду на помощь армии Паулюса? А если бы Жукову удалось одержать решительную победу в «Ржевской мясорубке»? Можно ли было избежать танкового побоища под Прохоровкой и разгромить немцев на Курской дуге меньшей кровью? Был ли у Красной Армии шанс развить успех после (   Читать дальше...   )Издательство: Яуза: ЭксмоФормат: DJVUКачество: Хороший скан c OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC8A1B4EE5417960EB9B7FB00D30AFB243D1280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617875   (250125) от 09.03.2023
-
-Г.Г. Бунатян | Город муз (1987) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литературные памятные места города Пушкина
-
-"Книга, состоящая из 20 краеведческих очерков, знакомит со своеобразной литературной биографией города Пушкина. Этот город известен не только своими замечательными памятниками архитектуры и садово-паркового искусства, но и тем, что в нем жили и творили многие выдающиеся писатели и поэты. Среди них А. С. Пушкин, М. (   Читать дальше...   )Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A69505CEAB967D33F69C0A8238C6CC0A620289E
 ```
 
 https://mybot314.ru/tekegram_catalog/

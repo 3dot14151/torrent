@@ -1,3 +1,161 @@
+###  Публикация: 1587137   (213882) от 29.10.2022
+
+Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 эп.+2 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена высокоразвитой в техническом плане человеческой цивилизации давно минули. Из-за внезапного пространственно-временного сотрясения люди лишились возможности космических полётов, и отрезанные планетарные колонии деградировали.
+Но однажды на орбите планеты Трансвааль, расположенной на задворках вселенной, появился космический объект, являющийся осколком прежней (   Читать дальше...   )Производство: Япония, Madhouse / マッドハウスЖанр: приключения, пародия, комедияРежиссер: Асака МориоПеревод: Vik Pol (оформление и обработка субтитров напильником - моё)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (24 эп. + 2 спэшла), 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3642943F8BF8506680F5526EE8EF4C2BA58A9A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587141   (213867) от 29.10.2022
+
+Cannon Busters | Приятели с пушками | Пушечные ядра [2019, Web, 12 эп.] BDRip 1080p 10-bit eng+raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный по имени Филли колесит по фантастическому миру в котором магия соседствует с продвинутыми технологиями. За ним по пятам следует множество наемников, у которых задача убить его.Жанр: приключения, вестерн, мехаРежиссер: Натори ТакахироПеревод: Netflix (Кирилл Гаращук)Язык озвучки: #1: Английский; #2: Японский;Субтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779CB37B0918FEA1540F913EBCAAA8CC057D1AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587149   (213863) от 29.10.2022
+
+Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 18 эп.+1 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена высокоразвитой в техническом плане человеческой цивилизации давно минули. Из-за внезапного пространственно-временного сотрясения люди лишились возможности космических полётов, и отрезанные планетарные колонии деградировали.
+Но однажды на орбите планеты Трансвааль, расположенной на задворках вселенной, появился космический объект, являющийся осколком прежней (   Читать дальше...   )Производство: Япония, Madhouse / マッドハウスЖанр: приключения, пародия, комедияРежиссер: Асака МориоПеревод: Vik Pol + Xander + Erty  (оформление и обработка субтитров напильником - моё)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (18 эп.+1 спешл), 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D787E8275B3224387C17142CA3420BE74690BBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587167   (213797) от 29.10.2022
+
+Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война между Церковью и Ведьмами, продолжавшаяся 500 лет, наконец закончилась. Однако притаившиеся в тёмных уголках мира угли этого векового конфликта всё ещё тлеют. В Королевской академии магии королевства Вениас учится студент по имени Сейбл, который ничего не помнит о своей жизни до зачисления в Академию. В рамках специальной тренировки и по приказу директора Альбуса (   Читать дальше...   )Жанр: комедия, фэнтезиРежиссер: Кувабара СатосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E02D33C8E87FA019DFEE0D2E27BFBDCF459F031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344101   (213684) от 09.12.2019
+
+Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве духов (фильм первый) [1993, Movie] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступили летние каникулы и Юсуке и Кувабарой наслаждаются свободным временем, занимаясь одним из своих любимых увлечений - ввязываются в групповые бои. Тем не менее, их отпуск подходит к концу, когда появляется Ботан и говорит им, что лорд Кёнма, принц мира Духов, был похищен. Похитители требуют Золотую печать в качестве выкупа - эта печать такая мощная, что даже (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтезиРежиссер: Абэ НориюкиПеревод: Юрий ЯворовскийЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDF192AFD18AADCF2F1C9C60A58B4820F9B8BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344102   (213679) от 09.12.2019
+
+Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie - Poltergeist Report | Отчет о буйстве духов (фильм второй) [1994, Movie] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Духовный мир затоплен из-за необычного дождя, который переполняет реку Сандзу, лорд Кёнма чувствует приближение чрезвычайно сильного врага. Он доверяет богу смерти Ботан доставить духовному детективу Юсуке таинственный предмет, который должен быть защищен от вторгшегося врага. Однако к тому времени, когда Ботан находит Юсуке, она слишком слаба, чтобы объяснить (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: приключения, фэнтезиРежиссер: Иидзима МасакацуПеревод: Юрий ЯворовскийЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 93 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD615AC9A56F841C04B4AC87C1FC781992212E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344100   (213623) от 09.12.2019
 
 Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве духов [1992, TV, 112 из 112] BDRip 1080p 10-bit raw+eng
@@ -6,7 +164,7 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213623.jpg" />
+  <img src="Z:/picture/005/save_picture_213623.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212712.jpg" />
+  <img src="Z:/picture/005/save_picture_212712.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Witch Craft Works | Ведьмовство | Ремесло ведьмы [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212363.jpg" />
+  <img src="Z:/picture/005/save_picture_212363.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212133.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211015.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210957.jpg" />
+  <img src="Z:/picture/005/save_picture_210957.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210590.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209953.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209767.jpg" />
+  <img src="Z:/picture/005/save_picture_209767.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208147.jpg" />
+  <img src="Z:/picture/005/save_picture_208147.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208104.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207237.jpg" />
+  <img src="Z:/picture/005/save_picture_207237.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206231.jpg" />
+  <img src="Z:/picture/005/save_picture_206231.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205873.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205782.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204642.jpg" />
+  <img src="Z:/picture/004/save_picture_204642.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204615.jpg" />
+  <img src="Z:/picture/004/save_picture_204615.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204584.jpg" />
+  <img src="Z:/picture/004/save_picture_204584.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203940.jpg" />
+  <img src="Z:/picture/004/save_picture_203940.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203877.jpg" />
+  <img src="Z:/picture/004/save_picture_203877.jpg" />
 </div>
 
 
@@ -516,166 +674,6 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C264D7F7F844F62181BFF0E2BD25709CA907DD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287829   (203870) от 18.01.2023
-
-Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп Фантазии [2011, OVA, 17 из ? эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл фанатских короткометражек по вселенной Touhou.
-
-Описание первой серии:
-(   Читать дальше...   )Жанр: приключения, фэнтезиПеревод: Каенс Бард и qx aka NightЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: >17 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5D9566455F36575FBB8031585AE052987130F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605518   (203866) от 18.01.2023
-
-Aru Machikado no Monogatari | Tales of a Street Corner | История одной улицы [1962, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самая обычная улица, на которой живут Девочка и ее игрушечный Мишка, молодой Скрипач и юная Пианистка с афиш, разбитная Девица с винной рекламы, дерево-Смоковница на углу, непоседливый Мышонок и отвязная Моль. Жизнь людей, вещей и растений идет своим чередом – дерево зеленеет, мыши суетятся, девочка играет – а потом наступает война...
-© Анастасия Розанова, World (   Читать дальше...   )Производство: студия Mushi Productions / 虫プロダクションЖанр: романтика, драма, музыкальныйРежиссер: Ямамото ЭйитиПеревод: dai_konЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624C99E98A95B6F8A8BE49C9175B46693C53378B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605630   (203865) от 18.01.2023
-
-Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: По ту сторону [2019, Movie, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямое продолжение сериала Soukyuu no Fafner: Dead Aggressor - ExodusЖанр: приключения, фантастика, меха, драмаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101E520682F76DAD2904E004884F2831DB0864A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605596   (203859) от 18.01.2023
-
-Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 25 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерявший родителей Щинпей Адзиро некоторое время жил на острове Хитогащима с сестрами Кофуне — Мио и Ущио, а затем переехал в Токио. Но получив весть о гибели Ущио из-за несчастного случая, он возвращается. Однако увидев синяки на теле погибшей девушки, он начинает сомневаться в причинах её смерти. И вскоре Щинпей убеждается, что есть другое объяснение. Опасные (   Читать дальше...   )Производство: студия OLM / オー・エル・エムЖанр: триллер, мистика, детективРежиссер: Ватанабэ АюмуПеревод: RikuSempaiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A231D5378D09C4F0B98ACFC61B16F71D2F420B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835231   (203554) от 25.01.2023
-
-Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан Харлок: Аркадия моей юности [1982, MV] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203554.jpg" />
-</div>
-
-
-###  Подробнее
-
-С чего началась история Харлока — человека, ставшего вольным пиратом на просторах бескрайнего космоса? С возвращения на Землю капитаном военного корабля, перевозящего беженцев. Была война, и земляне потерпели поражение. Сопротивление ушло в подполье, и только радиовещание на пиратской волне — «Голос свободной Аркадии» — напоминает о том, что земляне продолжают бороться. (   Читать дальше...   )Жанр: приключения, драма, фантастикаРежиссер: Кацумата ТомохаруПеревод: VampirY; DragonflyM (фикс Tuzik55555)Язык озвучки: ЯпонскийСубтитры: РусскиеЯзык: ЯпонскийПродолжительность: 130 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADC59AE7565B8133E4553AD05104E1B36A64E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579679   (202097) от 28.02.2023
-
-Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вейрон-сити — город на огромном плавучем острове в Тихом океане, который не принадлежит ни к одной стране. Благодаря добыче оргония, нового источника энергии, он находится в центре мирового внимания. И на нём происходят так называемые Д-бедствия — происшествия, вызываемые дьяволами. О Д-бедствиях знают немногие, в том числе ЧВК, которые занимаются их ликвидацией. (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: комедия, романтикаРежиссер: Танака ТомояПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C375CDA25C160C29545376A81259A5B7E03059D
 ```
 
 https://mybot314.ru/tekegram_catalog/

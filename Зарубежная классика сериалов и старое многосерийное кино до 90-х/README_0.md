@@ -1,3 +1,29 @@
+###  Публикация: 1496826   (861093) от 24.09.2021
+
+Вьетнам, до востребования / Vietnam (1987) DVDRemux (сезон 1, серии 1-10 из 10) ОРТ
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала происходит с 1964 по 1972 год. Показана жизнь одной австралийской семьи на фоне участия страны во Вьетнамской войне. Глава семейства работает советником в правительстве и причастен к решению об отправке австралийских войск во Вьетнам, сын призывается в армию и попадает на войну, а дочь участвует в антивоенных демонстрациях.Производство: Австралия / Kennedy Miller ProductionsЖанр: драма, военныйРежиссер: Джон Дайган, Крис НуненАктеры: Бэрри Отто, Николь Кидман, Николас Иди, Вероника Лэнг, Джон Полсон, Грэйс Парр, Марк Ли, Полин Чан, Вирджиния Хей, Алисса-Джэйн Кук и др.Перевод: Многоголосый профессиональный (ОРТ)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB8914E32F002AC94DDE2C2967571252D59761F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769555   (854629) от 23.03.2014
 
 Грехи / Sins (1986) DVDRip (7 серий из 7) [Cinema Prestige]
@@ -6,7 +32,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854629.jpg" />
+  <img src="Z:/picture/008/save_picture_854629.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849471.jpg" />
+  <img src="Z:/picture/008/save_picture_849471.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844494.jpg" />
+  <img src="Z:/picture/008/save_picture_844494.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817020.jpg" />
+  <img src="Z:/picture/008/save_picture_817020.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808317.jpg" />
+  <img src="Z:/picture/008/save_picture_808317.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808199.jpg" />
+  <img src="Z:/picture/008/save_picture_808199.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807567.jpg" />
+  <img src="Z:/picture/008/save_picture_807567.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803306.jpg" />
+  <img src="Z:/picture/008/save_picture_803306.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787160.jpg" />
+  <img src="Z:/picture/008/save_picture_787160.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785046.jpg" />
+  <img src="Z:/picture/008/save_picture_785046.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774023.jpg" />
+  <img src="Z:/picture/008/save_picture_774023.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764156.jpg" />
+  <img src="Z:/picture/008/save_picture_764156.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759248.jpg" />
+  <img src="Z:/picture/008/save_picture_759248.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756423.jpg" />
+  <img src="Z:/picture/008/save_picture_756423.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732431.jpg" />
+  <img src="Z:/picture/008/save_picture_732431.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731220.jpg" />
+  <img src="Z:/picture/005/save_picture_731220.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723732.jpg" />
+  <img src="Z:/picture/008/save_picture_723732.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722226.jpg" />
+  <img src="Z:/picture/008/save_picture_722226.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710295.jpg" />
+  <img src="Z:/picture/005/save_picture_710295.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705387.jpg" />
+  <img src="Z:/picture/008/save_picture_705387.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696602.jpg" />
+  <img src="Z:/picture/008/save_picture_696602.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691797.jpg" />
+  <img src="Z:/picture/008/save_picture_691797.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689883.jpg" />
+  <img src="Z:/picture/008/save_picture_689883.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687893.jpg" />
+  <img src="Z:/picture/008/save_picture_687893.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680037.jpg" />
+  <img src="Z:/picture/008/save_picture_680037.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6860E78AC51A8B9864E3EAB8779CCA9A05E6678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117255   (678710) от 20.05.2017
-
-Команда «А» / The A-Team (1983-1984) BDRip [H.264/720p] (Сезон 2, серии 1-23 из 23)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1972 году военный трибунал приговорил к тюремному заключению группу солдат особого отряда за преступление, которого они не совершали. Несмотря на мощную охрану, они бежали и растворились в Лос-Анджелесе. Их, ставших солдатами удачи, власти разыскивают до сих пор. Если вы попали в беду и вам удастся их найти, вам всегда поможет Команда "А".Производство: СШАЖанр: Военный, Боевик, ПриключенияРежиссер: Майкл О’Херлихи, Дэннис Доннелли, Крэйг Р. БэкслиАктеры: Джордж Пеппард, Дирк Бенедикт, Дуайт Шульц, Мистер Ти, Мелинда Кьюлиа, Марла Хизли, Уильям Лакин, Ланс ЛаГо, Карл Фрэнклин, Джек Джинг и др.Перевод: Двуголосый закадровый, профессиональный - ДТВ/ЧЕПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DA0B3BFC4068D4CB4244417D37CA455F08FDEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

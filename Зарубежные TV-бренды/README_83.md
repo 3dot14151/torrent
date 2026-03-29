@@ -1,3 +1,108 @@
+###  Публикация: 1248047   (448481) от 17.09.2018
+
+NG: Голливудская наука. Чудо машины / Hollywood Science. Amazing Vehicles (2006) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 3 из 5)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как Голливуд создаёт на экране невозможное. И посмотрите, какие технические ухищрения помогают ему в этом!Производство: США, Prometheus Entertainment, National Geographic ChannelЖанр: Документальный, познавательный, научно-популярныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии х~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506BC5F44CFA7188076366BD88636C1BA6D02428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248019   (448476) от 17.09.2018
+
+NGW: Прекрасная Америка: Величественный Северо-Запад. В тени Скалистых Гор / The Mighty Northwest (2018) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с жизнью дикой природы на Северо-Западе Америки.
+Жизнь в долинах Скалистых Гор и на склонах бьет ключом, но животным здесь для выживания приходится преодолевать целый ряд трудностей.Производство: США, Red Rock Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5989C1C717F985506B6F782C41EA3A7DBC66797B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248031   (448320) от 17.09.2018
+
+NGW: Национальные парки Америки / America's National Parks (2017-2018) HDTVRip [H.264/1080p-LQ] (Сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соединенные Штаты Америки являются домом для некоторых из самых невероятных национальных парков в мире. Йеллоустоун, Йосемити и Гранд-Каньон - это лишь некоторые из природных чудес, которые может представить страна. Настройтесь на невиданные ранее кадры этой волшебной среды и уникальных животных, которые ее населяют.Производство: США, NDR Naturfilm, Studio Hamburg DocLights, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Генри М. Микс, Ян Кочачевский, Ян Хафт, Уве Андерс, Оливер ГетцльПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C5A33F6556B447B505BC8ABEEE082A85A45B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247852   (448199) от 17.09.2018
+
+BBC: Каковы размеры Вселенной? / How Big is the Universe? (2012) HDTV [H.264/1080i-LQ] (Сезон 49, эпизод 4)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из самых загадочных вопросов, который ученые могут задать: насколько велика Вселенная, в которой мы живем? Эта серия цикла Горизонт расскажет нам об амбициозном проекте космологов, которые создают самую большую карту в истории - карту Вселенной. И она страннее, чем кто-либо мог себе представить - Вселенная без конца, Вселенная, которая простирается далеко (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярный, космосРежиссер: Кенни СкоттПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B1475A2F1A61457E482D83F17B59C2ECE1138D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943781   (447119) от 04.10.2015
 
 Discovery: Америка: факты и домыслы / America: Facts vs. Fiction [сезон 2 серии 1-12 из 12] (2010) SATRip
@@ -6,7 +111,7 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447119.jpg" />
+  <img src="Z:/picture/008/save_picture_447119.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446937.jpg" />
+  <img src="Z:/picture/008/save_picture_446937.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446832.jpg" />
+  <img src="Z:/picture/008/save_picture_446832.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446641.jpg" />
+  <img src="Z:/picture/008/save_picture_446641.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ History Channel. Между молотом и наковальней / Forged in
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446073.jpg" />
+  <img src="Z:/picture/008/save_picture_446073.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445984.jpg" />
+  <img src="Z:/picture/008/save_picture_445984.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444918.jpg" />
+  <img src="Z:/picture/008/save_picture_444918.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Discovery: Разрушители легенд. В поисках утрачен
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444748.jpg" />
+  <img src="Z:/picture/008/save_picture_444748.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444658.jpg" />
+  <img src="Z:/picture/008/save_picture_444658.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444601.jpg" />
+  <img src="Z:/picture/008/save_picture_444601.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444600.jpg" />
+  <img src="Z:/picture/008/save_picture_444600.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444486.jpg" />
+  <img src="Z:/picture/008/save_picture_444486.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443989.jpg" />
+  <img src="Z:/picture/008/save_picture_443989.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ NGW: Вся правда о крокодилах / The whole truth about crocodi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443578.jpg" />
+  <img src="Z:/picture/008/save_picture_443578.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ NG. Зеленоглазый леопард / Jade Eyed Leopard (2020) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442721.jpg" />
+  <img src="Z:/picture/008/save_picture_442721.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442251.jpg" />
+  <img src="Z:/picture/008/save_picture_442251.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442248.jpg" />
+  <img src="Z:/picture/008/save_picture_442248.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ BBC: Ада Лавлейс: первая леди программировани
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441597.jpg" />
+  <img src="Z:/picture/008/save_picture_441597.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441303.jpg" />
+  <img src="Z:/picture/008/save_picture_441303.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441168.jpg" />
+  <img src="Z:/picture/008/save_picture_441168.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440142.jpg" />
+  <img src="Z:/picture/008/save_picture_440142.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439983.jpg" />
+  <img src="Z:/picture/008/save_picture_439983.jpg" />
 </div>
 
 
@@ -564,110 +669,6 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E772BAA39193F1081836B943AAD035B1359AF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248740   (439625) от 21.09.2018
-
-BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agents (2017) SATRip (1-3 серия из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена королевы Елизаветы I Англия была охвачена междоусобицами. В стране царили хаос и кровопролитие. Несмотря на это, Елизавета правила более сорока лет. За годы правления она пережила четырнадцать покушений. Но первая в мире тайная служба под началом отца и сына Сесилов, всегда вселяла уверенность в королеву. Им, людям исключительного ума и смелости - была (   Читать дальше...   )Производство: Великобритания, ВВС, 72 Films, BBC TwoЖанр: Документальный, история, реконструкцияРежиссер: Крис ДурлахерПеревод: Документальный дубляж студии «СВ-Дубль» (голос рассказчика - дубляж, интервью - двухголосый закадровый перевод)Продолжительность: х ~ 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA01DCFFA1B0B91AEF6CDBA394B8A4DE302DD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249323   (435147) от 23.09.2018
-
-NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i-LQ] (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Ботсване, в парке, который населён опасными хищными животными. Каждый день они вынуждены вести борьбу за своё существование, используя не только ловкость, но и хитрость. Реальные истории из жизни безжалостных хищников и тех, на кого они охотятся. Их жизнь полна нешуточных страстей: соперничества, предательства, сражений, борьбы и триумфов.Производство: США, Icon Productions, National Geographic WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд БестелинкПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 6 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5967748F6E2F8C0342D5D0DDFE72080180340D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249419   (435144) от 23.09.2018
-
-Discovery: Первые обитатели Америки / America's First Nations (2010) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеких 500 лет назад высадившиеся с кораблей французские первопроходцы, оказавшись в северо-восточных дремучих лесах Америки, встретили племена аборигенов, которых прозвали «ирокезами». Конгломерат племен управлял громадной территорией, на которой ныне располагаются Онтарио, Квебек и штат Нью-Йорк. Кроме физических данных лесных гигантов, французы были поражены (   Читать дальше...   )Производство: США, Half Yard Productions, Discovery Channel LLCЖанр: Документальный, познавательный, история, реконструкцияРежиссер: Кристофер ГолдингПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45975FEADDBA46120F5DB32C9E8205C82E1B8F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249282   (435139) от 23.09.2018
-
-History Channel. Титаник: Тайна раскрыта / Titanic at 100: Mystery Solved (2012) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из всех обломков на океанском дне, нет более загадочных или притягательных, чем "Титаник", который знают все благодаря книгам, фильмам и телевидения. Но существует другой "Титаник", который еще никто не видел. Мы до сих пор не знаем местонахождения половины обломков. До сегодняшнего момента никто и никогда раньше не составлял детальную схему катастрофы (   Читать дальше...   )Производство: США, Lone Wolf Documentary Group, History ChannelЖанр: Документальный, историяРежиссер: Тони Бэкон, Рашмор ДеНоиерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B78D7B27E19C748B8419ECAF03F169A2EC46FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 236204   (494534) от 14.09.2010
+
+Battlestrike: Force of Resistance / Партизаны Второй мировой (2007) [Ru] Unofficial
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентябрь 1943-го. Почти вся Европа оккупирована немцами. С самого начала войны на огромной территории, от Нормандии до Сталинграда, поднимается волна народного гнева. Но такие отряды отчаянно нуждались в помощи профессиональных военных и диверсантов, ведь их бойцами были простые граждане. Игроками как раз уготована роль такого наставника и инструктора. Основная задача: (   Читать дальше...   )Тип издания: UnofficialРазработчик: City InteractiveЖанр: Action (3D Shooter)Язык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158255   (493319) от 15.08.2017
+
+Condemned: Criminal Origins (2006) [Multi] (1.0) License RELOADED
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент отдела по расследованию серийных убийств Итан Томас должен ответить на этот вопрос и привести к правосудию худшие слои общества. Он лучше и быстрее всех раскрывает преступления в отделе... возможно, это слишком хорошо.Тип издания: LicenseРазработчик: Monolith ProductionsЖанр: Action, 3D, 1st PersonЯзык озвучки: Не озвученаЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A432B800020938CA4A29B2FE0978B14A1CC15B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219000   (492271) от 07.08.2019
+
+Arma 3 (2013) [Ru/Multi] (1.94.145.977/dlc) License CODEX [Apex Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arma 3 — это новый виток в жанре тактических военных симуляторов от независимой студии Bohemia Interactive, создателей нашумевшей Operation Flashpoint. Arma 3 впитала в себя все самое лучшее из предыдущих игр серии и привнесла множество инноваций. Новый физический движок позволит игроку с невиданной ранее реалистичностью управлять боевыми действиями.Тип издания: LicenseРазработчик: Bohemia InteractiveЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A60D42836C87A64E5AE126FD8E7FC3E784F36DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318905   (490377) от 08.08.2019
+
+Hello Neighbor (2017) [Ru/Multi] (1.4) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hello Neighbor — игра в жанре хоррор, в которой игроку нужно проникнуть в соседский дом и узнать, что скрывает его зловещий сосед. Твой противник - искусственный интеллект, который учится на всех твоих действиях: любишь забираться в дом через окно? — Не попадись в капкан. Пытаешься убежать? — Он найдёт способ перехватить тебя.Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Adventure (Horror), Strategy, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723949BD07BD098F3472AD17D2EC24D35D8C703F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242366   (489460) от 28.08.2018
 
 Typical Nightmare (2018) [Ru/Multi] (1.1) License PLAZA
@@ -6,7 +110,7 @@ Typical Nightmare (2018) [Ru/Multi] (1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489460.jpg" />
+  <img src="Z:/picture/008/save_picture_489460.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Behind These Eyes (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485679.jpg" />
+  <img src="Z:/picture/008/save_picture_485679.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Thief: Trilogy [Ru/En] (RePack) 1998 - 2004 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484140.jpg" />
+  <img src="Z:/picture/008/save_picture_484140.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2009) [En] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483639.jpg" />
+  <img src="Z:/picture/008/save_picture_483639.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Clive Barker's Jericho [Ru/En] (RePack) 2007 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482021.jpg" />
+  <img src="Z:/picture/008/save_picture_482021.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482009.jpg" />
+  <img src="Z:/picture/008/save_picture_482009.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Watch This! (2016) [Ru/En] (4.10.4) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480832.jpg" />
+  <img src="Z:/picture/008/save_picture_480832.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Invention 2 (2016) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480695.jpg" />
+  <img src="Z:/picture/008/save_picture_480695.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Singularity (2010) [Ru] (1.1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479466.jpg" />
+  <img src="Z:/picture/008/save_picture_479466.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477849.jpg" />
+  <img src="Z:/picture/008/save_picture_477849.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Singularity [Ru/En] (RePack/1.1.0.507821) 2010 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477814.jpg" />
+  <img src="Z:/picture/008/save_picture_477814.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ TimeShift (2007) [Ru] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477630.jpg" />
+  <img src="Z:/picture/008/save_picture_477630.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Desolate (2018) [Ru/En] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476400.jpg" />
+  <img src="Z:/picture/008/save_picture_476400.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475553.jpg" />
+  <img src="Z:/picture/008/save_picture_475553.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475542.jpg" />
+  <img src="Z:/picture/008/save_picture_475542.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475532.jpg" />
+  <img src="Z:/picture/008/save_picture_475532.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475442.jpg" />
+  <img src="Z:/picture/008/save_picture_475442.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475425.jpg" />
+  <img src="Z:/picture/008/save_picture_475425.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ Soldier of Fortune (2001) [En] (1.07fHF) License GOG [Platinum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473883.jpg" />
+  <img src="Z:/picture/008/save_picture_473883.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Конец Света (2014) [Ru] (1.0/upd
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472590.jpg" />
+  <img src="Z:/picture/008/save_picture_472590.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ Zero Tolerance (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471829.jpg" />
+  <img src="Z:/picture/008/save_picture_471829.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Overhead (2018) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471578.jpg" />
+  <img src="Z:/picture/008/save_picture_471578.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ Overhead (2018) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE341B94D3B23B592C7BB350F88179BEF6B9C8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245587   (471412) от 06.09.2018
-
-Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь одни посреди океана, дрейфуя на нескольких досках и осматриваетесь: на горизонте нет даже островов. Хуже того, единственное, что вы видите в воде — акулий плавник, нарезающий круги вокруг плота. Здесь и начинается ваше приключение!Тип издания: RepackРазработчик: UniSoft GamesЖанр: Adventure, Action (Survival), 3D, 1st PersonЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB2332454E11134E62AF7B1252F70C6E21585DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547883   (471093) от 16.09.2012
-
-Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471093.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Проклятые» созданы по сценарию знаменитого автора романов ужасов Клайва Баркера и представляют собой смелый эксперимент по скрещиванию интерактивных развлечений с современной литературой: игру можно смело называть «экранизацией» очередного романа писателя. Но одно дело смотреть фильм ужасов в кинотеатре и совсем другое — участвовать в событиях самому. Мастерски расказанная мрачная история и ураганное действие в лучших традициях Unreal и Quake, оккультизм и религия, древняя магия и последние достижения технического прогресса, — все компоненты сливаются воедино, создавая игру невероятно динамичную и вместе с тем совсем не по-детски страшную. (   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / Racing (Futuristic) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC2CC8483C90449F9115A4E12B4E75160C1E35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043196   (469746) от 04.08.2022
-
-Kingpin: Life of Crime (1999) [Ru/En] (1.21) License GOG
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как головорез, избитый до полусмерти, Вы начали свой путь к мести. Вы жаждете похоронить тех ублюдков после того, что они сделали с Вами, но сначала Вы должны создать свою собственную банду, набирая рекрутов прямо с улиц. Если новый член банды не оправдал ваших ожиданий, наймите других. Идите к успеху, но не упустите главаря, в конце-концов вы встретитесь с ним.Тип издания: LicenseРазработчик: Xatrix EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский (отдельно), АнглийскийЯзык субтитров: Русский (отдельно), АнглийскийЯзык интерфейса: Русский (отдельно), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F6DACDA3BC06784035EF7DE81CE93D8E980D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233473   (467013) от 08.09.2018
-
-The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467013.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Solus Project, захватывающая история выживания на пустынной планете среди останков иной цивилизации. 2183 год. Человечество ищет планеты для колонизации. Ваша экспедиция потерпела катастрофу, и вы в полном одиночестве оказались в чужом, мертвом мире.Тип издания: RepackРазработчик: Hourences, Grip GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C528536D3D14BF28E19424FE9CA92B45D3681560
 ```
 
 https://mybot314.ru/tekegram_catalog/

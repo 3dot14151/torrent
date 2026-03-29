@@ -1,4 +1,214 @@
 https://t.me/izofen
+###  Публикация: 1862128   (1062949) от 
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 Final RePack (& Portable) by KpoJIuK (28.03.2026) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062949.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B847B30D0425F4FB70BCB671B8F9725BB6FC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861836   (1062822) от 
+
+Auslogics Disk Defrag Pro 12.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BF886C2E2F8788381695F14636703DB2A62E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861217   (1062620) от 
+
+HWiNFO 8.45 Build 5945 Beta Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062620.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FC235A2601B32E44222CDDAD6805E3B700204F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861522   (1062431) от 
+
+OCCT 16.1.1 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A335D094C73060AA1DCD6ACD8C0DD548DE2F1957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861133   (1062314) от 
+
+AIDA64 Extreme Edition 8.25.8217 Beta Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062314.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A77BE47A6C01BB2AA7466B55EEADD0D50E0428D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861032   (1062199) от 
+
+OCCT 16.1.0 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CAFF38F72C5BD21F4BA5E38DC454D5BD3EBE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860646   (1062076) от 
+
+AlbusBit NTFS Permissions Auditor Pro 26.3.20 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062076.jpg" />
+</div>
+
+
+###  Подробнее
+
+NTFS Permissions Auditor сканирует весь файловый сервер и точно показывает, кто и к чему имеет доступ — без необходимости использования скриптов PowerShell.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051F3FB7C84BBB1421B47D962B1A80094EEC9844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860660   (1062066) от 
+
+AppControl 1.1.1.208b [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062066.jpg" />
+</div>
+
+
+###  Подробнее
+
+AppControl — приложение, представляющее собой диспетчер задач с современным интерфейсом и дополнительными функциями, которые могут оказаться полезными для обычного пользователя, желающего отследить, что именно происходит на его компьютере и управлять этим.
+
+По умолчанию программа добавляется в автозагрузку Windows и отображает значок в области уведомлений, по клику (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE78A05B9969E910E21103B4E4335462AB49E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859890   (1061397) от 
 
 IObit Smart Defrag Pro 11.2.0.472 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -7,7 +217,7 @@ IObit Smart Defrag Pro 11.2.0.472 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061397.jpg" />
+  <img src="Z:/picture/005/save_picture_1061397.jpg" />
 </div>
 
 
@@ -33,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061272.jpg" />
+  <img src="Z:/picture/005/save_picture_1061272.jpg" />
 </div>
 
 
@@ -60,7 +270,7 @@ CPU-Z 2.19.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060963.jpg" />
+  <img src="Z:/picture/005/save_picture_1060963.jpg" />
 </div>
 
 
@@ -86,7 +296,7 @@ CPU-Z 2.19.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060936.jpg" />
+  <img src="Z:/picture/005/save_picture_1060936.jpg" />
 </div>
 
 
@@ -112,7 +322,7 @@ SIV (System Information Viewer) 5.86 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060824.jpg" />
+  <img src="Z:/picture/005/save_picture_1060824.jpg" />
 </div>
 
 
@@ -138,7 +348,7 @@ StressMyPC 5.71 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060773.jpg" />
+  <img src="Z:/picture/005/save_picture_1060773.jpg" />
 </div>
 
 
@@ -164,7 +374,7 @@ Macrorit Partition Expert 8.9.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059913.jpg" />
 </div>
 
 
@@ -190,7 +400,7 @@ Quick CPU 6.3.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059911.jpg" />
+  <img src="Z:/picture/009/save_picture_1059911.jpg" />
 </div>
 
 
@@ -216,7 +426,7 @@ HWiNFO 8.44 Build 5935 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059607.jpg" />
 </div>
 
 
@@ -242,7 +452,7 @@ OCCT 16.0.2 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059308.jpg" />
+  <img src="Z:/picture/005/save_picture_1059308.jpg" />
 </div>
 
 
@@ -268,7 +478,7 @@ OCCT 16.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059285.jpg" />
+  <img src="Z:/picture/005/save_picture_1059285.jpg" />
 </div>
 
 
@@ -294,7 +504,7 @@ Quick CPU 6.2.1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059166.jpg" />
+  <img src="Z:/picture/005/save_picture_1059166.jpg" />
 </div>
 
 
@@ -320,7 +530,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059001.jpg" />
+  <img src="Z:/picture/005/save_picture_1059001.jpg" />
 </div>
 
 
@@ -346,7 +556,7 @@ NIUBI Partition Editor 10.3.0 Free | Enterprise | Professional | Server | Techni
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058904.jpg" />
+  <img src="Z:/picture/005/save_picture_1058904.jpg" />
 </div>
 
 
@@ -373,7 +583,7 @@ MiniTool Partition Wizard Technician 13.6.0 RePack (& Portable) by elchupacabra 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058803.jpg" />
+  <img src="Z:/picture/005/save_picture_1058803.jpg" />
 </div>
 
 
@@ -399,7 +609,7 @@ AIDA64 Extreme | Engineer | Business Edition 8.25.8200 Final RePack (& Portable)
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058743.jpg" />
+  <img src="Z:/picture/005/save_picture_1058743.jpg" />
 </div>
 
 
@@ -425,7 +635,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058690.jpg" />
+  <img src="Z:/picture/005/save_picture_1058690.jpg" />
 </div>
 
 
@@ -451,7 +661,7 @@ NIUBI Partition Editor 10.3.0 Technician Edition RePack (& Portable) by elchupac
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058685.jpg" />
+  <img src="Z:/picture/005/save_picture_1058685.jpg" />
 </div>
 
 
@@ -463,214 +673,6 @@ NIUBI Partition Editor – программа для простого и над�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84B842929BEE913C05361E55BB399B8152F7A880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856272   (1058670) от 27.02.2026
-
-AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 Final RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058670.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E505DC553E52873C20A40C4D26383D57B5C0899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855796   (1058476) от 24.02.2026
-
-MiniTool Partition Wizard Technician 13.6.0 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058476.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Partition Wizard Technician - мощный менеджер для работы с разделами жесткого диска. С его помощью можно изменять размер раздела, создавать новые разделы на жестком диске, удалять и форматировать уже существующие разделы. Partition Wizard обладает удобным интерфейсом, который будет понятным большинству более-менее подготовленных пользователей, MiniTool Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3D41AE525D4EB7B5C4C687735A4F5DD90CDAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855800   (1058474) от 24.02.2026
-
-AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058474.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - является средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256271F8556A6578ADC029F94445CD673CEA43EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855809   (1058356) от 25.02.2026
-
-AIDA64 Business Edition 8.25.8200 Portable by FC Portables [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058356.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67A935EA63062F125F3FFD8F6277BDDD4E408D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855916   (1058346) от 25.02.2026
-
-Hard Disk Sentinel PRO 6.40 Build 13782 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B734A302F9981AB7F1B2FD8E615EF3BB2CF3657C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855920   (1058345) от 25.02.2026
-
-Macrorit Partition Expert 8.9.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2C37567ABAF67CE2EFC5583A2368792CBC2422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855720   (1058194) от 24.02.2026
-
-Auslogics Disk Defrag Pro 12.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2045C4343DFDDEC7A06982BF97B798D07BA1BFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855739   (1058175) от 24.02.2026
-
-HWiNFO 8.42 Build 5930 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058175.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB10E30208CF698AAD846386ACB46F198ED0EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

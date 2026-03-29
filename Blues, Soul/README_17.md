@@ -1,3 +1,32 @@
+###  Публикация: 910460   (622231) от 20.06.2015
+
+Susanne Plahl & The Lightning Rod - Colours (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyscraper (4:18)
+02. Restless Blues (3:33)
+03. I Could Not Read (6:04)
+04. A Simple Thing (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B951700220EBAA0C76A77C3AA7E2BAC20FFEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910769   (620794) от 21.06.2015
 
 Giant Jack - Giant Jack (2015) [MP3|320 кб/с]<Blues Rock>
@@ -6,7 +35,7 @@ Giant Jack - Giant Jack (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620794.jpg" />
+  <img src="Z:/picture/008/save_picture_620794.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lee Palmer - Like Elway (2015) [MP3|320 кб/с]<Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620366.jpg" />
+  <img src="Z:/picture/008/save_picture_620366.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Etta James - 44 CDs (1960..2011) Discography [MP3|152..320 kbps]<Blues, R&B, Sou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_619516.jpg" />
+  <img src="Z:/picture/005/save_picture_619516.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ VA - King & Deluxe Acetate Series: Beef Ball Baby - New Orleans R&B Sessoions (2
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619247.jpg" />
+  <img src="Z:/picture/008/save_picture_619247.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Sven Lundestad & The BlueZmates - Lookin´ Back (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618505.jpg" />
+  <img src="Z:/picture/008/save_picture_618505.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Taylor Carano - Where Hate & Ash Bury (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618502.jpg" />
+  <img src="Z:/picture/008/save_picture_618502.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Albert King - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618488.jpg" />
+  <img src="Z:/picture/008/save_picture_618488.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ The Mike Henderson Band - If You Think It's Hot In Here (2015) [MP3|320 кб/с]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618424.jpg" />
+  <img src="Z:/picture/008/save_picture_618424.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ The Ramble Riders - Super Fat Bitch (2015) [MP3|320 кб/с]<Heavy Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618416.jpg" />
+  <img src="Z:/picture/008/save_picture_618416.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ VA - 100 Greatest Northern Soul (2019) [MP3|320 Kbps] <Soul, RnB, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616841.jpg" />
+  <img src="Z:/picture/008/save_picture_616841.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Rev. Sekou - In Times Like These (2017) [MP3|320 Kbps] <Blues, Gospel>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616496.jpg" />
+  <img src="Z:/picture/008/save_picture_616496.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ George Thorogood & The Delaware Destroyers - George Thorogood & The Delaware Des
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616193.jpg" />
+  <img src="Z:/picture/008/save_picture_616193.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ John McNamara - Rollin' With It (2017) [MP3|320 Kbps] <Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615961.jpg" />
+  <img src="Z:/picture/008/save_picture_615961.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Shri Blues Band - SHRI (2014) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614766.jpg" />
+  <img src="Z:/picture/008/save_picture_614766.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Gary Rex Tanner - Feel The Heat (1997) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614592.jpg" />
+  <img src="Z:/picture/008/save_picture_614592.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Dave Stewart & Thomas Lindsey - Spitballin' (2016) [MP3|320 Kbps] <Blues, Gospel
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613778.jpg" />
+  <img src="Z:/picture/008/save_picture_613778.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Mic Gillette Band - Turning Two (2014) [MP3|320 кб/с]<Blues & Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612989.jpg" />
+  <img src="Z:/picture/008/save_picture_612989.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Big Joe William - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612920.jpg" />
+  <img src="Z:/picture/008/save_picture_612920.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ The Wisemans Circus - Lonely Traveller (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612918.jpg" />
+  <img src="Z:/picture/008/save_picture_612918.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Billy Price & Otis Clay (ft. Duke Robillard) - This Time For Real (2015) [MP3|32
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612900.jpg" />
+  <img src="Z:/picture/008/save_picture_612900.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Tracy Chapman - Greatest Hits (2015) Compilation (Remastered)[MP3|320 Kbps] <Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612014.jpg" />
+  <img src="Z:/picture/008/save_picture_612014.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Shaw Davis & The Black Ties - Shaw Davis & The Black Ties (2017) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611315.jpg" />
+  <img src="Z:/picture/008/save_picture_611315.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Last Chance Saloon - Last Chance Saloon (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610880.jpg" />
+  <img src="Z:/picture/008/save_picture_610880.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Curtis Mayfield - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610773.jpg" />
+  <img src="Z:/picture/008/save_picture_610773.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ The Curtis King Band - Steam Train Blues (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610767.jpg" />
+  <img src="Z:/picture/008/save_picture_610767.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ The Curtis King Band - Steam Train Blues (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2779F637EC148E17F851CBD7F444D5905341A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230961   (610513) от 15.06.2018
-
-Buddy Guy - The Blues Is Alive And Well (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Few Good Years (4:48)
-02. Guilty As Charged (3:20)
-03. Cognac (feat. Jeff Beck & Keith Richards)(5:22)
-04. The Blues Is Alive And Well (5:14)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22989801A67E35D4126B190F8D33D0B041303F36
 ```
 
 https://mybot314.ru/tekegram_catalog/

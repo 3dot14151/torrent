@@ -6,7 +6,7 @@ VideoPad Video Editor Professional 5.02 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767651.jpg" />
+  <img src="Z:/picture/008/save_picture_767651.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CleanMyMac 3.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767650.jpg" />
+  <img src="Z:/picture/008/save_picture_767650.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Ocenaudio 3.7.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767649.jpg" />
+  <img src="Z:/picture/008/save_picture_767649.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ IObit Uninstaller Pro 9.6.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767647.jpg" />
+  <img src="Z:/picture/008/save_picture_767647.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ YouTube By Click Premium 2.2.132 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767642.jpg" />
+  <img src="Z:/picture/008/save_picture_767642.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Glary Utilities Pro 5.145.0.171 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767632.jpg" />
+  <img src="Z:/picture/008/save_picture_767632.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ IObit Smart Defrag Pro 6.5.5.119 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767629.jpg" />
+  <img src="Z:/picture/008/save_picture_767629.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Any Video Converter Ultimate 7.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767625.jpg" />
+  <img src="Z:/picture/008/save_picture_767625.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wondershare Recoverit 7.3.1.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767624.jpg" />
+  <img src="Z:/picture/008/save_picture_767624.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Avidemux 2.7.1.190126 Nightly [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767622.jpg" />
+  <img src="Z:/picture/008/save_picture_767622.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FileLocator Pro 8.5 Build 2880 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767618.jpg" />
+  <img src="Z:/picture/008/save_picture_767618.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Aiseesoft Video Converter Ultimate 9.2.60 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767612.jpg" />
+  <img src="Z:/picture/008/save_picture_767612.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ YouTube By Click Premium 2.2.97 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767611.jpg" />
+  <img src="Z:/picture/008/save_picture_767611.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767602.jpg" />
+  <img src="Z:/picture/008/save_picture_767602.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Norton Remove and Reinstall Tool 4.5.0.98 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767598.jpg" />
+  <img src="Z:/picture/008/save_picture_767598.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Balabolka 2.15.0.746 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767596.jpg" />
+  <img src="Z:/picture/008/save_picture_767596.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Movavi Photo Editor 6.6.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767589.jpg" />
+  <img src="Z:/picture/008/save_picture_767589.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7180.5002
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767580.jpg" />
+  <img src="Z:/picture/008/save_picture_767580.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767578.jpg" />
+  <img src="Z:/picture/008/save_picture_767578.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6766.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767573.jpg" />
+  <img src="Z:/picture/008/save_picture_767573.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767560.jpg" />
+  <img src="Z:/picture/008/save_picture_767560.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wondershare Recoverit 7.3.1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767554.jpg" />
+  <img src="Z:/picture/008/save_picture_767554.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ IObit Smart Defrag Pro 6.1.5.120 (sharewareonsale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767553.jpg" />
+  <img src="Z:/picture/008/save_picture_767553.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767552.jpg" />
+  <img src="Z:/picture/008/save_picture_767552.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Unreal Commander 3.57 Build 1383 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767551.jpg" />
+  <img src="Z:/picture/008/save_picture_767551.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Microsoft Visual C++ Runtimes AIO (x86-x64) Repack by @ricktendo64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767542.jpg" />
+  <img src="Z:/picture/008/save_picture_767542.jpg" />
 </div>
 
 

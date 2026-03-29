@@ -6,7 +6,7 @@ USDownloader 1.3.5.9 Portable (23.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862675.jpg" />
+  <img src="Z:/picture/008/save_picture_862675.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862669.jpg" />
+  <img src="Z:/picture/008/save_picture_862669.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862666.jpg" />
+  <img src="Z:/picture/008/save_picture_862666.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autorun Organizer 2.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862665.jpg" />
+  <img src="Z:/picture/008/save_picture_862665.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862664.jpg" />
+  <img src="Z:/picture/008/save_picture_862664.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862656.jpg" />
+  <img src="Z:/picture/008/save_picture_862656.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862624.jpg" />
+  <img src="Z:/picture/008/save_picture_862624.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862594.jpg" />
+  <img src="Z:/picture/008/save_picture_862594.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ UltraUXThemePatcher 3.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862593.jpg" />
+  <img src="Z:/picture/008/save_picture_862593.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862588.jpg" />
+  <img src="Z:/picture/008/save_picture_862588.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Internet Download Accelerator Pro 6.12.1.1545 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862586.jpg" />
+  <img src="Z:/picture/008/save_picture_862586.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862585.jpg" />
+  <img src="Z:/picture/008/save_picture_862585.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862577.jpg" />
+  <img src="Z:/picture/008/save_picture_862577.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862558.jpg" />
+  <img src="Z:/picture/008/save_picture_862558.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862550.jpg" />
+  <img src="Z:/picture/008/save_picture_862550.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FlipBuilder Flip PDF 4.3.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862544.jpg" />
+  <img src="Z:/picture/008/save_picture_862544.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Daum PotPlayer 1.6.59347 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862532.jpg" />
+  <img src="Z:/picture/008/save_picture_862532.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MediaInfo 0.7.62 Final RePack by nikollo2013 [Русский/Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862521.jpg" />
+  <img src="Z:/picture/008/save_picture_862521.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Process Lasso Pro 8.9.7.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862517.jpg" />
+  <img src="Z:/picture/008/save_picture_862517.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862493.jpg" />
+  <img src="Z:/picture/008/save_picture_862493.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862468.jpg" />
+  <img src="Z:/picture/008/save_picture_862468.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862467.jpg" />
+  <img src="Z:/picture/008/save_picture_862467.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 54 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862453.jpg" />
+  <img src="Z:/picture/008/save_picture_862453.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ ASoft .NET Version Detector 16 R3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862451.jpg" />
+  <img src="Z:/picture/008/save_picture_862451.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ SynWrite 6.20.2210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862427.jpg" />
+  <img src="Z:/picture/008/save_picture_862427.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862417.jpg" />
+  <img src="Z:/picture/008/save_picture_862417.jpg" />
 </div>
 
 

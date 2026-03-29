@@ -1,3 +1,115 @@
+###  Публикация: 1135053   (684584) от 17.05.2017
+
+Direct Message for Instagram Pro 4.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправка и получение прямых сообщений для Instagram с вашего Mac. Первое и единственное приложение для Mac, которые может это сделать!
+
+Примечание: Аккаунт Instagram требуется для использования этого приложения. Если его у вас нет, пожалуйста, зарегистрируйтесь из Instagram приложения на вашем смартфоне.Тип издания: macOS SoftwareРелиз состоялся: 17 мая 2017Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEA4A4CC5978A45E080193E7639A91E9A711B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029103   (684550) от 25.06.2016
+
+Fluid Browser 1.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fluid Browser - Создан для многозадачности
+Fluid  представляет собой «плаваующий» браузер, построенный для просмотра ваших любимых страниц с медиаконтентом, как Netflix, Youtube и Hulu прямо рядом с вашей работой. Fluid работает так же, как любой другой браузер, но со своими отличительными особенностями …
+
+Fluid находится поверх открытых приложений и может быть легко (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 июня 2016Разработчик: Defy Marketing LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E66A2E0E561CCDF368543CE3B1B1FCA173814EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029101   (684420) от 25.06.2016
+
+Murus Pro 1.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький и удобный PF сетевого брандмауэра, что позволяет настроить сложные сети с простыми и интуитивно понятными действиями.
+
+Некоторое время назад OS X поставляется с двумя брандмауэрами по умолчанию установлены, IPFW и IPFW 2. Несмотря на то, что IPFW работал блестяще, с выходом OS X 10.7, все версии OS X перешли на OpenBSD PF (сокращенно Packet Filter ) решение, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: murus.itПоддерживаемая ОС: OS X 10.9.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8ED7658B66BE3C1AE464D6FD17BBD06DB3472D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029242   (684418) от 25.06.2016
+
+1Blocker - Block ads, tracking scripts, anything 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Blocker - блокировка рекламы
+Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09.06.2016Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C469381282521DEB62B475DC2D2B811926D2B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029156   (684411) от 25.06.2016
 
 InstaBro | Browser for Instagram 4.1.2 [En]
@@ -6,7 +118,7 @@ InstaBro | Browser for Instagram 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684411.jpg" />
+  <img src="Z:/picture/008/save_picture_684411.jpg" />
 </div>
 
 
@@ -35,7 +147,7 @@ Araxis Merge Pro 2016.4774 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684297.jpg" />
+  <img src="Z:/picture/008/save_picture_684297.jpg" />
 </div>
 
 
@@ -63,7 +175,7 @@ Direct Mail 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684241.jpg" />
+  <img src="Z:/picture/008/save_picture_684241.jpg" />
 </div>
 
 
@@ -90,7 +202,7 @@ Wondershare Recoverit 7.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684235.jpg" />
+  <img src="Z:/picture/008/save_picture_684235.jpg" />
 </div>
 
 
@@ -117,7 +229,7 @@ eMail Address Extractor 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684130.jpg" />
+  <img src="Z:/picture/008/save_picture_684130.jpg" />
 </div>
 
 
@@ -146,7 +258,7 @@ VueScan Pro 9.5.77 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682903.jpg" />
+  <img src="Z:/picture/008/save_picture_682903.jpg" />
 </div>
 
 
@@ -172,7 +284,7 @@ Benvista PhotoZoom Pro 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682811.jpg" />
+  <img src="Z:/picture/008/save_picture_682811.jpg" />
 </div>
 
 
@@ -199,7 +311,7 @@ Forecast Bar 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682740.jpg" />
+  <img src="Z:/picture/008/save_picture_682740.jpg" />
 </div>
 
 
@@ -229,7 +341,7 @@ MacX Video Converter Pro 5.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682199.jpg" />
+  <img src="Z:/picture/008/save_picture_682199.jpg" />
 </div>
 
 
@@ -256,7 +368,7 @@ AnyTrans for Android 7 v7.0.0 (build 20190314) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682080.jpg" />
+  <img src="Z:/picture/008/save_picture_682080.jpg" />
 </div>
 
 
@@ -282,7 +394,7 @@ SmartAlbums 2.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681961.jpg" />
+  <img src="Z:/picture/008/save_picture_681961.jpg" />
 </div>
 
 
@@ -311,7 +423,7 @@ Boom 3D 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681877.jpg" />
+  <img src="Z:/picture/008/save_picture_681877.jpg" />
 </div>
 
 
@@ -337,7 +449,7 @@ PhotoScape X Pro 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681845.jpg" />
+  <img src="Z:/picture/008/save_picture_681845.jpg" />
 </div>
 
 
@@ -365,7 +477,7 @@ TG Pro (Temperature Gauge Pro) 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681683.jpg" />
+  <img src="Z:/picture/008/save_picture_681683.jpg" />
 </div>
 
 
@@ -392,7 +504,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681469.jpg" />
+  <img src="Z:/picture/008/save_picture_681469.jpg" />
 </div>
 
 
@@ -418,7 +530,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681377.jpg" />
+  <img src="Z:/picture/008/save_picture_681377.jpg" />
 </div>
 
 
@@ -444,7 +556,7 @@ Smooze 1.1.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681309.jpg" />
+  <img src="Z:/picture/008/save_picture_681309.jpg" />
 </div>
 
 
@@ -473,7 +585,7 @@ iGallery Pro — Best Instagram Uploader 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681301.jpg" />
+  <img src="Z:/picture/008/save_picture_681301.jpg" />
 </div>
 
 
@@ -502,7 +614,7 @@ AirFoil 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681192.jpg" />
+  <img src="Z:/picture/008/save_picture_681192.jpg" />
 </div>
 
 
@@ -528,7 +640,7 @@ Winclone Pro 6 v6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681190.jpg" />
+  <img src="Z:/picture/008/save_picture_681190.jpg" />
 </div>
 
 
@@ -555,7 +667,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681160.jpg" />
+  <img src="Z:/picture/008/save_picture_681160.jpg" />
 </div>
 
 
@@ -581,7 +693,7 @@ Principle 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681091.jpg" />
+  <img src="Z:/picture/008/save_picture_681091.jpg" />
 </div>
 
 
@@ -595,115 +707,6 @@ Principle — умный (   Читать дальше...   )Тип издан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E1660603A85BF1F2854619950A7F2061EC45693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135422   (680951) от 19.05.2017
-
-CleanMyMac 3.8.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680951.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - Программа для очистки Mac
-CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально сортируются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.05.2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.8 и вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883E179DB378BF63ABE827D487880CBE4BB6374A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135522   (680946) от 19.05.2017
-
-Winclone Pro 6 v6.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Winclone. Или как проще всего клонировать Windows на Mac..
-По непонятным  причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 мая 2017Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B7FD562E5642C91385C5D4E15410555D7BB499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135552   (680942) от 19.05.2017
-
-OmniGraffle Pro 7.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680942.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - Отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 мая 2017Разработчик: Omni GroupПоддерживаемая ОС: OS X 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658FC12A91600577852F93520BB084BE114F970A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135441   (680811) от 19.05.2017
-
-Hands Off! 3.1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: май 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957E3AADD74F782AEE448015AD7673E31B034628
 ```
 
 https://mybot314.ru/tekegram_catalog/

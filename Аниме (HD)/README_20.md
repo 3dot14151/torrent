@@ -1,3 +1,29 @@
+###  Публикация: 1124604   (614206) от 29.06.2017
+
+Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии для начинающих с нуля | Гримуар Зеро [2017, TV, 12 эп.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614206.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где существуют ведьмы, но никто толком не знает, что такое магия, как она работает и как ей научиться, вместе путешествуют ведьма по имени Зеро, которая мало знает об окружающем мире, и наёмник-зверолюд, мечтающий стать человеком. Ведьма ищет способный уничтожить мир гримуар под названием «Книга Зеро», похищенный из её логова какими-то разбойниками, а наёмник (   Читать дальше...   )Производство: студия White FoxЖанр: приключения, фэнтезиРежиссер: Хиракава ТэцуоПеревод: AniPlayЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29FF534B6B27525D4268E9951A2BA52D9A900C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126095   (612540) от 30.06.2017
 
 Fukumenkei Noise / Не скрывая крик [2017, TV, 12 из 12] HDTV 720p raw
@@ -6,7 +32,7 @@ Fukumenkei Noise / Не скрывая крик [2017, TV, 12 из 12] HDTV 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612540.jpg" />
+  <img src="Z:/picture/008/save_picture_612540.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gunslinger Stratos: The Animation | Небо стрелков [2015, TV, 12 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611979.jpg" />
+  <img src="Z:/picture/008/save_picture_611979.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Clockwork Planet | Механическая планета [2017, TV, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610697.jpg" />
+  <img src="Z:/picture/008/save_picture_610697.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Punch Line / Punchline / Трусы всему виной [2015, TV, 12 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608177.jpg" />
+  <img src="Z:/picture/008/save_picture_608177.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Shaman King (2021) | Король-шаман (2021) [2021, TV, 52 эп.] HDTVRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607303.jpg" />
+  <img src="Z:/picture/008/save_picture_607303.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Major Complete Collection | Мэйджор Полное собрание (6 Се
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606559.jpg" />
+  <img src="Z:/picture/008/save_picture_606559.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Мой п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606310.jpg" />
+  <img src="Z:/picture/008/save_picture_606310.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606309.jpg" />
+  <img src="Z:/picture/008/save_picture_606309.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Mushishi Zoku Shou / Мастер Муси [ТВ-2] [2014, TV, 10 ep] HDTVRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605778.jpg" />
+  <img src="Z:/picture/008/save_picture_605778.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Cat Shit One: The Animated Series / Котапокалипсис [2010, ONA, 1 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_605702.jpg" />
+  <img src="Z:/picture/005/save_picture_605702.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Ani ni Tsukeru Kusuri wa Nai! / Нет лекарства для моего бр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604201.jpg" />
+  <img src="Z:/picture/008/save_picture_604201.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Bakumatsu Kikansetsu Irohanihoheto | Intrigue in the Bakumatsu: Irohanihoheto | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603958.jpg" />
+  <img src="Z:/picture/008/save_picture_603958.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Uma Musume: Pretty Derby / Девушки-лошадки: Милое дерби 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603625.jpg" />
+  <img src="Z:/picture/008/save_picture_603625.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Junod | Жюно [2010, Movie] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603428.jpg" />
+  <img src="Z:/picture/008/save_picture_603428.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602432.jpg" />
+  <img src="Z:/picture/008/save_picture_602432.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Tsuki ga Kirei / Прекрасна, как луна [2017, TV, 12 эп. + 1 OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602351.jpg" />
+  <img src="Z:/picture/008/save_picture_602351.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Tsugumomo / Цугумомо [2017, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602322.jpg" />
+  <img src="Z:/picture/008/save_picture_602322.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Yowamushi Pedal: New Generation / Трусливый Велосипедист: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602317.jpg" />
+  <img src="Z:/picture/008/save_picture_602317.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Youkoso Japari Park | Welcome to Japari Park | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601624.jpg" />
+  <img src="Z:/picture/008/save_picture_601624.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Alice to Zouroku | Алиса и Дзоуроку [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599719.jpg" />
+  <img src="Z:/picture/008/save_picture_599719.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599467.jpg" />
+  <img src="Z:/picture/008/save_picture_599467.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Saredo Tsumibito wa Ryuu to Odoru: Dances with the Dragons | И всё же, г�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599465.jpg" />
+  <img src="Z:/picture/008/save_picture_599465.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Tsurune: Kazemai Koukou Kyuudou Bu | Звук тетивы [2018, TV, 13+SP] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599196.jpg" />
+  <img src="Z:/picture/008/save_picture_599196.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598993.jpg" />
+  <img src="Z:/picture/008/save_picture_598993.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598831.jpg" />
+  <img src="Z:/picture/008/save_picture_598831.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:886A5246690A541F2797288DC3F86548E972955A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299556   (597854) от 02.05.2019
-
-Hoozuki no Reitetsu 3 / Хладнокровный Ходзуки [ТВ-3] [2018, TV, 13 из 13] HDTV 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы думаете, что смерть способна решить все проблемы, то вы в корне ошибаетесь. В рай вы попадёте или же в ад, везде своих проблем предостаточно. Однако, речь в нашем аниме пойдёт именно про ад, ведь так куда интереснее. Про трудности простых смертных мы говорить не будем, у нас тут вопрос глобального масштаба. В аду перенаселение! Слишком уж много грешников (   Читать дальше...   )Производство: Studio DEENЖанр: комедия, фэнтезиРежиссер: Ёнэда КадзухироСубтитры: РусскиеПродолжительность: 13 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410918E231E6ECFC2D9C64ED40F9628E2043339C
 ```
 
 https://mybot314.ru/tekegram_catalog/

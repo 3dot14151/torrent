@@ -1,3 +1,81 @@
+###  Публикация: 1483610   (1006735) от 14.07.2021
+
+Эрнест Хемингуэй | Острова в океане (2014) [MP3, Максим Пинскер]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это последний, незавершённый роман писателя бы издан уже после его смерти в 1970 году. Искренняя и правдивая книга о самоотверженности и отваге, о нравственном долге перед собой и окружающими очень отличается от всех остальных произведений Хемингуэя. Во многом - благодаря разнообразию тем и настроений, во многом - из-за неожиданного юмора. Книга свидетельствует об (   Читать дальше...   )Жанр: Зарубежная классика, Классическая проза, Литература 20 векаПеревод: Евгения Калашникова, Наталья ВолжинаПродолжительность: 15:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A00187710230E6E2435317A955E3B8B612928E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484103   (1006390) от 17.07.2021
+
+Этель Лилиан Войнич | Овод (2017) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиоверсия бессмертного произведения, которое кроме многочисленных переизданий было трижды экранизировано, по его мотивам был поставлен балет и рок-мюзикл. Во времена Советского Союза «Овод» была настолько популярным произведением, что Н. С. Хрущёв даже выписал специальную премию автору за многократное переиздание книги. Произведение распространяли известные революционные (   Читать дальше...   )Жанр: Классическая прозаПеревод: Наталия Альбертовна ВолжинаПродолжительность: 11:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89087B024638580E344257DD239B41D3253107A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484254   (1006273) от 18.07.2021
+
+Дюма Александр | Чёрный тюльпан (2021) [MP3, Илья Акинтьев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиостудия «Ардис» предлагает вашему вниманию исторический роман Александра Дюма «Чёрный тюльпан», посвящённый драматическим событиям 1672 года, вошедшего в голландскую историю как «год бедствий». Французская армия вторглась на территорию Объединенных провинций, разъяренные голландцы линчуют главу своего правительства и его брата. Кроме того, страну охватила настоящая (   Читать дальше...   )Жанр: Зарубежная классика, Зарубежные приключения, Исторические приключенияПродолжительность: 07:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF219C08B055F418A7B36A1E40E06EBFD617B04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484240   (1006246) от 18.07.2021
 
 Евгений Иванович Замятин | Мы (2020) [MP3, Александр Клюквин]
@@ -6,7 +84,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006246.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006214.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005486.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005467.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005445.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003274.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003063.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002716.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002317.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997672.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993842.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993526.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990739.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990700.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988430.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987294.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986476.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985306.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985291.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985251.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985201.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985013.jpg" />
 </div>
 
 
@@ -599,95 +677,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981609.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В трагедии Вильяма Шекспира Ричард III изображен тираном, узурпатором королевской власти, убийцей собственных племянников, малолетних принцев Эдуарда (Эдуарда V) и Ричарда, сыновей Эдуарда IV. Тем не менее, именно Ричард, «ловкий и бессовестный», по мнению Шекспира, сможет вывести страну из хаоса. В его уста он вкладывает девиз: "Кулак - нам совесть, и закон (   Читать дальше...   )Жанр: ТрагедияПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356201   (980487) от 29.01.2020
-
-Маргарет Митчелл | Унесенные ветром (2020) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Унесенные ветром» один из лучших образцов американской прозы, правдиво и точно отражающий события гражданской войны 1861-1865 годов и период Реконструкции в США. В центре романа – пленительный женский образ главной героини – Скарлетт О’Хара, дочери французской аристократки и ирландского плантатора. Зеленоглазая красавица, капризная и своенравная, но, вместе (   Читать дальше...   )Жанр: Американская классическая прозаИздательство: СОЮЗПродолжительность: 47:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDC183ED21BBA928565964D47BA45177663C85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165245   (979851) от 12.01.2010
-
-Михаил Булгаков | Записки покойника [2007] [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979851.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Записки покойника" - острый, проницательный и грустный "роман с театром" Булгакова-драматурга, которому довелось пройти все круги театрального механизма, познать его трагическую и сладкую горечь и тайну.
-"Записки покойника" - сатирическая, язвительная, лирическая трагикомедия; увлекательная история "закулисного мира", где (   Читать дальше...   )Жанр: классика
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165569   (979557) от 12.01.2010
-
-Михаил Лермонтов | Герой нашего времени [1979] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Герой нашего времени» — одна из ярчайших страниц творчества М. Ю. Лермонтова.
-
-Он состоит из пяти отдельных повестей («Бэла», «Максим Максимыч», «Тамань», «Княжна Мэри», «Фаталист»), связанных воедино образом главного героя — Печорина.
-(   Читать дальше...   )Жанр: приключения, радиоспектакльФормат: MP3Продолжительность: 5:27:00
 
 ## Скачать торент
 ```bash

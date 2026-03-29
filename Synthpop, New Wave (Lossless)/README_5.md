@@ -1,3 +1,32 @@
+###  Публикация: 992900   (898968) от 03.03.2016
+
+Londonbeat - Best! The Singles (1995) [FLAC|Lossless|tracks + .cue] <Soul, Vocal, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Been Thinking About You (3:51)
+02. You Bring on the Sun (3:37)
+03. A Better Love (4:00)
+04. Come Back (3:55)(   Читать дальше...   )Жанр: Soul, Vocal, Synth-popПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F175C20EF71395238ADCEC266E98DEE2624F219E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992794   (898953) от 03.03.2016
 
 Lady Gaga - Artpop (2013) [FLAC|Lossless|tracks + .cue] <Electro, Synth-pop>
@@ -6,7 +35,7 @@ Lady Gaga - Artpop (2013) [FLAC|Lossless|tracks + .cue] <Electro, Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898953.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kadebostany - Pop Collection (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895270.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Device - 22B3 (1986) Reissue, 2007 [FLAC|Lossless|image + .cue] <Synth-Pop, Pop-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891333.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Die Hit-Giganten: Pop and Wave Hits Der 80er (2005) 2CD, Compilation [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889623.jpg" />
+  <img src="Z:/picture/005/save_picture_889623.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Midge Ure (Ex. Ultravox) - The Works (2013) 2CD [APE|Lossless]<Synthpop, New Wav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888769.jpg" />
+  <img src="Z:/picture/005/save_picture_888769.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Depeche Mode - 4CD's Rare Album Set (2006, 2013) Compilation [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888737.jpg" />
+  <img src="Z:/picture/005/save_picture_888737.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Johnny Hates Jazz - Turn Back The Clock (1988) [FLAC|Lossless|tracks] <Europop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884500.jpg" />
+  <img src="Z:/picture/005/save_picture_884500.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Space - Best Of (1998) 2002 BMG Russia [FLAC|Lossless|tracks + .cue] <Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880825.jpg" />
+  <img src="Z:/picture/005/save_picture_880825.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Gregory - Unknown Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880529.jpg" />
+  <img src="Z:/picture/005/save_picture_880529.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ The Now - Bobby Orlando Presents Now (2013) [FLAC|Lossless|image + .cue] <New Wa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880338.jpg" />
+  <img src="Z:/picture/008/save_picture_880338.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Depeche Mode - Greatest Hits. Volume 1,2 (2009) Compilation, 4CD [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877547.jpg" />
+  <img src="Z:/picture/005/save_picture_877547.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Vacuum - Your Whole Life Is Leading Up To This (2007) [FLAC|Lossless|image + .cu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876416.jpg" />
+  <img src="Z:/picture/005/save_picture_876416.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Christine - Atom From Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Fut
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876348.jpg" />
+  <img src="Z:/picture/005/save_picture_876348.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Tears For Fears - The Seeds Of Love (1989) [FLAC|Lossless|image + .cue] <New Wav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874987.jpg" />
+  <img src="Z:/picture/005/save_picture_874987.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Who Ha - Synthwave Belongs In A Museum (2016) EP [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873768.jpg" />
+  <img src="Z:/picture/008/save_picture_873768.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Space
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872845.jpg" />
+  <img src="Z:/picture/008/save_picture_872845.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872832.jpg" />
+  <img src="Z:/picture/008/save_picture_872832.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ a-ha - Time And Again: The Ultimate a-ha (2016) 2CD [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866114.jpg" />
+  <img src="Z:/picture/008/save_picture_866114.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ VA - I Love Synthes12''er Dance Vol. 1-3 (2002-2004) Limited Edition, Remastered
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865490.jpg" />
+  <img src="Z:/picture/008/save_picture_865490.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ NeoSpace - Revelation Tour (2020) Limited Edition [FLAC|Lossless|tracks + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863603.jpg" />
+  <img src="Z:/picture/008/save_picture_863603.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ New Arcades - In the Deepest of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861356.jpg" />
+  <img src="Z:/picture/008/save_picture_861356.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Mark Hartman - Synthesizer Instrumental Popsongs (1993) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851894.jpg" />
+  <img src="Z:/picture/008/save_picture_851894.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Mark Hartman - Synthesizer Classics (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851891.jpg" />
+  <img src="Z:/picture/008/save_picture_851891.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Mark Hartman - Synthesizer Themes (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851890.jpg" />
+  <img src="Z:/picture/008/save_picture_851890.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849815.jpg" />
+  <img src="Z:/picture/008/save_picture_849815.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F1D0035A26C2E4FCC52740236DC7F370CB79C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112134   (845048) от 07.03.2017
-
-Beborn Beton - She Cried (2016) EP [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Cried (Single Edit) (4:25)
- 02. The Black Hit Of Space (Version) (4:55)
- 03. She Cried (Extended Club Remix) (6:21)
- 04. 24/7 Mystery (Remix by Val Solo of S.P.O.C.K.) (3:53)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFC97E32B94C51799A3450E3DDD3755CBB67A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

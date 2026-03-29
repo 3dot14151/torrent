@@ -1,3 +1,59 @@
+###  Публикация: 1262924   (287621) от 19.11.2018
+
+VA - Options Remake Of Tracks November -B- (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pedro Capelossi & Hidden & Deaden - Green Saturn
+02. Andrew Lewis - Captivate
+03. 8Kays - Slider
+04. Lesh - Sundancer (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B00BA61FA9ED37F586456A22EE476D67E0FC68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963419   (287442) от 08.12.2015
+
+VA - Comfort Time (Compiled by Idenline) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. idenline - Love You (04:08)
+02. RJ Chevalier - Last Summer (Feat. Tara Minton)Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F800F3BF820132C85848CC39FADC998C9555957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186334   (286952) от 24.11.2017
 
 VA - Melodic Techno Tom IV [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic Techno>
@@ -6,7 +62,7 @@ VA - Melodic Techno Tom IV [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286952.jpg" />
+  <img src="Z:/picture/008/save_picture_286952.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286696.jpg" />
+  <img src="Z:/picture/008/save_picture_286696.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Micr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286689.jpg" />
+  <img src="Z:/picture/008/save_picture_286689.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286647.jpg" />
+  <img src="Z:/picture/008/save_picture_286647.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ VA - Club Hits (2016) [MP3|204-320 Kbps] <Club, Vocal, Commercial, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286637.jpg" />
+  <img src="Z:/picture/008/save_picture_286637.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286633.jpg" />
+  <img src="Z:/picture/008/save_picture_286633.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Sou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286556.jpg" />
+  <img src="Z:/picture/008/save_picture_286556.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ VA - Mayday 25 Years The History Of Rave (2016) [MP3|320 Kbps] <Rave, Techno, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286271.jpg" />
+  <img src="Z:/picture/008/save_picture_286271.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ VA - Record Super Chart 611 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286183.jpg" />
+  <img src="Z:/picture/008/save_picture_286183.jpg" />
 </div>
 
 
@@ -267,7 +323,7 @@ VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Brea
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285920.jpg" />
+  <img src="Z:/picture/008/save_picture_285920.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285820.jpg" />
+  <img src="Z:/picture/008/save_picture_285820.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ VA - Deep House Collection Vol.190 (2018) [MP3|~ 256 - 320 Kbps] <Deep House, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285431.jpg" />
+  <img src="Z:/picture/008/save_picture_285431.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ VA - Record Russian Mix Top 100 December (07.12.) (2016) [MP3|256-320 Kbps] <Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285395.jpg" />
+  <img src="Z:/picture/008/save_picture_285395.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ VA - Beatport Trance Pack (08.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284904.jpg" />
+  <img src="Z:/picture/008/save_picture_284904.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ VA - Trance Above Charts Top 100 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Mel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284901.jpg" />
+  <img src="Z:/picture/008/save_picture_284901.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ VA - YearMix 2K16 (2016) [MP3|201-247 Kbps] <Hands Up, Dance, House, Bigroom, Fu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284900.jpg" />
+  <img src="Z:/picture/008/save_picture_284900.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ VA - Top 100 Indie Dance & Nu Disco November (2016) [MP3|320 Kbps] <New Wave, Nu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284799.jpg" />
+  <img src="Z:/picture/008/save_picture_284799.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ VA - Junkie XL - Best275z (1997 - 2016) [MP3|320 Kbps] <Breakbeat, House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284744.jpg" />
+  <img src="Z:/picture/008/save_picture_284744.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ VA - Relax to House Vol. 5 (2016) [MP3|128-320 Kbps] <House, NuDisco, IndieDance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284604.jpg" />
+  <img src="Z:/picture/008/save_picture_284604.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ VA - Deep House Collection vol.146 (2017) [MP3|320 Kbps] <House, Indie Dance, Ja
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284570.jpg" />
+  <img src="Z:/picture/008/save_picture_284570.jpg" />
 </div>
 
 
@@ -586,7 +642,7 @@ VA - Record Super Chart #513 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284568.jpg" />
+  <img src="Z:/picture/008/save_picture_284568.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ VA - 60 minutes. Old School Dance Music vol.4 (mixed by Dj V) (2017) [MP3|320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284242.jpg" />
+  <img src="Z:/picture/008/save_picture_284242.jpg" />
 </div>
 
 
@@ -644,7 +700,7 @@ VA - Christmas Escapades (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284135.jpg" />
+  <img src="Z:/picture/008/save_picture_284135.jpg" />
 </div>
 
 
@@ -673,7 +729,7 @@ VA - Ethno Dub [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Ethno Dub>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284117.jpg" />
+  <img src="Z:/picture/008/save_picture_284117.jpg" />
 </div>
 
 
@@ -687,64 +743,6 @@ VA - Ethno Dub [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Ethno Dub>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3D136082C6CF37A0EE5EC08CF4F8550149A1AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081476   (283087) от 10.12.2016
-
-VA - Electro Fever 2016-2017 (by FG) (2016) [MP3|320 Kbps] <Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassanova - Fire Escape (Original Mix)
-02. Vicetone, Nicky Romero, When We Are Wild - Let Me Feel (Radio Edit)
-03. Olatunji, Lema, Bankay - Ola (Lema & Bankay Desert Club Mix)
-04. Melanie Fontana, Dzasko, Felder - Crashed(   Читать дальше...   )Жанр: ElectroПродолжительность: 04:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F80B6420E5819C1FB3123D27862D6C9F144B2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081617   (283076) от 10.12.2016
-
-VA - EDM Collection [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Showtek - Believer [03:45]
-02. Mosimann - Ti89 (Radio Edit) [02:53]
-03. Noah Neiman Vs. Andrew Parsons - Wildheart [02:53]
-04. Steve Aoki, Chris Lake & Tujamo - Boneless [04:32](   Читать дальше...   )Жанр: EDMПродолжительность: 03:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B41F1ED9724066D8D7CBECDDBBFA344E5153285
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1184374   (301276) от 17.11.2017
+
+Jeff Lynne's ELO - Wembley Or Bust (2017) Live [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standin' In The Rain
+02. Evil Woman
+03. All Over The World
+04. Showdown(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FA5A017BECF417383259F5A9A08E72DC691D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961277   (300815) от 01.12.2015
 
 Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) [MP3|320 кб/с]<Progressive Rock, Melodic Rock>
@@ -6,7 +35,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300815.jpg" />
+  <img src="Z:/picture/008/save_picture_300815.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Freddie Mercury - Mr. Bad Guy (Alternative Extended Version) (2014) 2CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299594.jpg" />
+  <img src="Z:/picture/008/save_picture_299594.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299581.jpg" />
+  <img src="Z:/picture/008/save_picture_299581.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298160.jpg" />
+  <img src="Z:/picture/008/save_picture_298160.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Wet Fish - Ready To Blow (2020) [MP3|320 Kbps] <Rock & Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298083.jpg" />
+  <img src="Z:/picture/008/save_picture_298083.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Pink Floyd - 1965: Their First Recordings (2015) [MP3|320 кб/с]<Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296988.jpg" />
+  <img src="Z:/picture/008/save_picture_296988.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Pianoбой - Take Off (2015) [MP3|320 кб/с]<Piano Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296980.jpg" />
+  <img src="Z:/picture/008/save_picture_296980.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Neo Geo - Self-Titled (2011) [MP3|320 kbps]<Alternative, Electronic, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296430.jpg" />
+  <img src="Z:/picture/008/save_picture_296430.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Sara Lee - Queen Of Your Heart (2016) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296133.jpg" />
+  <img src="Z:/picture/008/save_picture_296133.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Mike Sanchez & His Band Feat. Imelda May - Almost Grown (2012) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296132.jpg" />
+  <img src="Z:/picture/008/save_picture_296132.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Imelda May - Love Tattoo (2008) [MP3|320 Kbps] <Rockabilly, Jump Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295989.jpg" />
+  <img src="Z:/picture/008/save_picture_295989.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ VA - Jesus Christ Superstar (1970) 2CD, Remaster (De-Noised) SMRP, 2020, Russia 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295449.jpg" />
+  <img src="Z:/picture/008/save_picture_295449.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ The Rolling Stones - Voodoo Lounge Uncut (2018) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294895.jpg" />
+  <img src="Z:/picture/008/save_picture_294895.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294596.jpg" />
+  <img src="Z:/picture/008/save_picture_294596.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Suidakra - Cimbric Yarns (2018) [MP3|320 Kbps] <Folk Rock, Acoustic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293503.jpg" />
+  <img src="Z:/picture/008/save_picture_293503.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ VA - British Punk and New Wave (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293498.jpg" />
+  <img src="Z:/picture/008/save_picture_293498.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Fleetwood Mac And The Christine Perfect Band - Hey Baby (2014) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293484.jpg" />
+  <img src="Z:/picture/008/save_picture_293484.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ ACI - Tiefenrausch (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293365.jpg" />
+  <img src="Z:/picture/008/save_picture_293365.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Rush - Hemispheres (1978) 40th Anniversary, 2018, Mercury [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293328.jpg" />
+  <img src="Z:/picture/008/save_picture_293328.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Santiano - MTV Unplugged (2019) [MP3|320 Kbps] <Folk Rock, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293178.jpg" />
+  <img src="Z:/picture/008/save_picture_293178.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition, 3CD, 2017 [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292944.jpg" />
+  <img src="Z:/picture/008/save_picture_292944.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ VA - Great Rock Hits (2015) [MP3|224 кб/с]<Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292755.jpg" />
+  <img src="Z:/picture/008/save_picture_292755.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ VA - Top Of The Pops 1979 (2007) CD, Compilation [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289820.jpg" />
+  <img src="Z:/picture/008/save_picture_289820.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synt
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289752.jpg" />
+  <img src="Z:/picture/008/save_picture_289752.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289427.jpg" />
+  <img src="Z:/picture/008/save_picture_289427.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E0EA40A19FB4A552B06EFCE5B76E3249A3D3CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335158   (289426) от 01.11.2019
-
-Quiet Riot - Hollywood Cowboys (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Call It Love
-02. In The Blood
-03. Heartbreak City
-04. The Devil That You Know(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFC25CB0DEBF6EA67175A5BFB2BAA88BEE2BBA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

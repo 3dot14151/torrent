@@ -1,3 +1,117 @@
+###  Публикация: 1226903   (652352) от 23.05.2018
+
+Симптом - Ближе (2018) [MP3|320 Kbps] <Love Metal, Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Километры Снов
+2. Try
+3. Мегаполис
+4. Тысяча Дней(   Читать дальше...   )Жанр: Love Metal, Gothic Metal, Gothic RockПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1234CA77ADA946D8CCF691280AEB42D3F6FEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031416   (651806) от 04.07.2016
+
+Симптом - С новым утром! (2016) Single [MP3|320 Kbps] <Gothic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С Новым Утром!
+2. Твои Слёзы (Goth'n'Roll version)Жанр: Gothic Hard RockПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9B320D262148C1A61B51D1DD4229C8917BE84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540691   (650752) от 31.03.2022
+
+Теория Всего - Инициация (2022) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:02:36]
+02 - Правила игры [00:03:22]
+03 - Ты и они [00:03:18]
+04 - Отражение [00:03:35](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843F27C5E51A0B68E6D0F7167A391EC454D4D2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540693   (650751) от 31.03.2022
+
+Третье измерение - Открой позабытую сказку (2022) [MP3|320 Kbps] <Folk Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рим [00:04:34]
+02 - Суккуб [00:04:17]
+03 - Не со мной [00:04:04]
+04 - Языческая Русь [00:04:40](   Читать дальше...   )Жанр: Folk Rock, Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552B739AB5545B70669CD0585F338F746705C642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905541   (649486) от 06.06.2015
 
 FAQ - Цирковые Псы (2007) [MP3|320 кб/с]<Rock,Punk,Alternative>
@@ -6,7 +120,7 @@ FAQ - Цирковые Псы (2007) [MP3|320 кб/с]<Rock,Punk,Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649486.jpg" />
+  <img src="Z:/picture/008/save_picture_649486.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ R-Genium - Wonderful Wonderful World (2015) [MP3|320 кб/с]<Symphonic Power Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649477.jpg" />
+  <img src="Z:/picture/008/save_picture_649477.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649370.jpg" />
+  <img src="Z:/picture/008/save_picture_649370.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ Tequilajazzz \ Евгений Федоров \ Optimystica (Optimystica Orchestr
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649200.jpg" />
+  <img src="Z:/picture/008/save_picture_649200.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648855.jpg" />
+  <img src="Z:/picture/008/save_picture_648855.jpg" />
 </div>
 
 
@@ -157,7 +271,7 @@ Ravanna - АМОК (2019) [MP3|320 kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648753.jpg" />
+  <img src="Z:/picture/008/save_picture_648753.jpg" />
 </div>
 
 
@@ -186,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648649.jpg" />
+  <img src="Z:/picture/008/save_picture_648649.jpg" />
 </div>
 
 
@@ -215,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648529.jpg" />
+  <img src="Z:/picture/008/save_picture_648529.jpg" />
 </div>
 
 
@@ -244,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647763.jpg" />
+  <img src="Z:/picture/008/save_picture_647763.jpg" />
 </div>
 
 
@@ -273,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647683.jpg" />
+  <img src="Z:/picture/008/save_picture_647683.jpg" />
 </div>
 
 
@@ -302,7 +416,7 @@ Vespercellos - 2 Альбома, 4 Сингла (2016-2018) [MP3|320 Kbps] <Cell
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646684.jpg" />
+  <img src="Z:/picture/008/save_picture_646684.jpg" />
 </div>
 
 
@@ -332,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646666.jpg" />
+  <img src="Z:/picture/008/save_picture_646666.jpg" />
 </div>
 
 
@@ -360,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646639.jpg" />
+  <img src="Z:/picture/008/save_picture_646639.jpg" />
 </div>
 
 
@@ -395,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645951.jpg" />
+  <img src="Z:/picture/008/save_picture_645951.jpg" />
 </div>
 
 
@@ -424,7 +538,7 @@ Forces United - Симфония Холстинина (2018) [MP3|320 Kbps] <Hea
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644736.jpg" />
+  <img src="Z:/picture/008/save_picture_644736.jpg" />
 </div>
 
 
@@ -453,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644318.jpg" />
+  <img src="Z:/picture/008/save_picture_644318.jpg" />
 </div>
 
 
@@ -482,7 +596,7 @@ Radio Tapok - 7 Альбомов, 7 Синглов (2016-2019) [MP3|320 Kbps] <R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644317.jpg" />
+  <img src="Z:/picture/008/save_picture_644317.jpg" />
 </div>
 
 
@@ -512,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642001.jpg" />
+  <img src="Z:/picture/008/save_picture_642001.jpg" />
 </div>
 
 
@@ -541,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641790.jpg" />
+  <img src="Z:/picture/008/save_picture_641790.jpg" />
 </div>
 
 
@@ -570,7 +684,7 @@ LV (LVGroup) - Признание из XX-го (2015) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641700.jpg" />
+  <img src="Z:/picture/008/save_picture_641700.jpg" />
 </div>
 
 
@@ -599,7 +713,7 @@ I.F.K. - Абсолют (1998) [MP3|320 кб/с]<Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641695.jpg" />
+  <img src="Z:/picture/008/save_picture_641695.jpg" />
 </div>
 
 
@@ -628,7 +742,7 @@ Biting Elbows - Biting Elbows (2011) [MP3|320 кб/с]<Rock, Indie, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641629.jpg" />
+  <img src="Z:/picture/008/save_picture_641629.jpg" />
 </div>
 
 
@@ -642,125 +756,6 @@ Biting Elbows - Biting Elbows (2011) [MP3|320 кб/с]<Rock, Indie, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B161BB0D0AD36A8574F1A50AAC229F3CB51E1FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228194   (639014) от 30.05.2018
-
-Ленинград - Думаю (2018) Single [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДумаюЖанр: Rock, SkaПродолжительность: 00:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD66F3000A22C3EC0BC75D411A44D20A81ED0ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518945   (638766) от 05.07.2012
-
-Ляпис Трубецкой - Искаверканное (неофициальный сборник каверов) (2012) [MP3|56-320 кб/с]<Rock, Ska, Punk-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638766.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скворец (оригинал Машина Времени)
-2. Африка (оригинал Комитет Охраны Тепла)
-3. Зоопарк (оригинал Гражданская Оборона)
-4. I Wanna Be Your Boyfriend (оригинал Ramones)
-5. Зеленоглазое Такси (оригинал М. Боярский)
-6. Крошка моя (оригинал Руки Вверх!)
-7. Государство (оригинал Гражданская Оборона)
-8. Алюминиевые огурцы (оригинал Виктор Цой)
-9. Вопрос времени (оригинал Depeche Mode)
-10. За Полчаса До Весны (оригинал Песняры)(   Читать дальше...   )Жанр: Rock, Ska, Punk-rockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3258F133961A1387B49ADE93B7E79E4F55993095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033657   (638128) от 11.07.2016
-
-VA - Охота 66 (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник №66 посвящается выпускникам школ 2016 года, в честь которых группа Лунный Пёс представила заглавную песню, а Фёдор Михайлов из Группировки Беловежская Пуща нарисовал обложку. Хочется пожелать юному поколению удачи в выборе дальнейшего пути, новых свершений и гениальных открытий!01. Лунный Пёс - Алые паруса
-02. Angel DaRock - Я выбираю любовь
-03. RADIO.6 - Город
-04. Бильбао - Испания(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F891502EE1429B798C04B944CD24DA9003F65351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143215   (637072) от 17.06.2017
-
-Карелия. Камерный оркестр - Буйные ветры (2016) [MP3|320 Kbps] <Folk Rock, Art Pop, Chamber Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Все танцуют
-02. То ли быль
-03. Кали
-04. Жаркое солнце(   Читать дальше...   )Жанр: Folk Rock, Art Pop, Chamber Pop, Indie FolkПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A7DACBFCC300756432B48AEC1BE1736EA948D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1337508   (273766) от 11.11.2019
+
+Jivko Petrov Trio (JP3) - Between The Worlds (2015) [FLAC|Lossless|image + .cue] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance
+02. Between The Worlds
+03. The 3rd Day Of The Year
+04. Alfonsina Y El Mar(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A0EE175D5EE33B9FB64A6CD1B394024DB0189B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337646   (273689) от 11.11.2019
+
+VA - Midnight Radio - NOIR JAZZ vol. 2 (2019) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Doom Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senketsu No Night Club - Sokubaku to Kiritsu (5:00)
+02. Lowering - I Love you so much (3:49)
+03. Midnight Esemble - Blood in Moonlight (5:46)
+04. The Sarto Klyn V - Dream No More (8:21)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Dark Jazz, Noir Jazz, Doom Jazz, ExperimentalПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87226986DAB33571B17C79BFE1A9D0BA499D7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188717   (273683) от 03.12.2017
+
+Iiro Rantala & Ulf Wakenius - Good Stuff (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vienna [03:33]
+02. Carmen - Micaela and Don Jose [04:08]
+03. Helsinki [04:14]
+04. Palma [03:45](   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2967255101B6EF4A34B003EEA731C792D075F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188718   (273682) от 03.12.2017
+
+Herbie Hancock Trio - Live in New York (1994) Jazz Door [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [13:14]
+02. One Finger Snap [16:24]
+03. Cantaloupe Island [09:33]
+04. Maiden Voyage [15:17](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3412226915F6327D93794EA5C4FA6DF68958D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188715   (273668) от 03.12.2017
 
 Ella Fitzgerald - The Verve Recordings 1956 - 1959 (2014) 3CD, Not Now Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Ella Fitzgerald - The Verve Recordings 1956 - 1959 (2014) 3CD, Not Now Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273668.jpg" />
+  <img src="Z:/picture/008/save_picture_273668.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Vince Guaraldi Trio - A Charlie Brown Christmas (1965) 2003, Fantasy [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273591.jpg" />
+  <img src="Z:/picture/008/save_picture_273591.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Cannonball Adderley - The Complete Albums Collection 1958-1960 (2016) 4CD, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273054.jpg" />
+  <img src="Z:/picture/008/save_picture_273054.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272712.jpg" />
+  <img src="Z:/picture/008/save_picture_272712.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272710.jpg" />
+  <img src="Z:/picture/008/save_picture_272710.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272703.jpg" />
+  <img src="Z:/picture/008/save_picture_272703.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272702.jpg" />
+  <img src="Z:/picture/008/save_picture_272702.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ J.J. Johnson - J.J.'s Broadway (1963) Remaster, 2016, Universal[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272667.jpg" />
+  <img src="Z:/picture/008/save_picture_272667.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sonny Stitt and Bennie Green - My Main Man (1964) Remaster, 2004, Universal[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272664.jpg" />
+  <img src="Z:/picture/008/save_picture_272664.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Wes Montgomery & Clark Terry - Straight, No Chaser (1965) 1992, Jazz Door[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272650.jpg" />
+  <img src="Z:/picture/008/save_picture_272650.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Adam Makowicz Trio - The Music of Jerome Kern (1993) Concord[APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272649.jpg" />
+  <img src="Z:/picture/008/save_picture_272649.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Wes Montgomery - Full House (1962) 1992, Riverside[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272648.jpg" />
+  <img src="Z:/picture/008/save_picture_272648.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Nina Simone - A Very Rare Evening (2013) [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272641.jpg" />
+  <img src="Z:/picture/008/save_picture_272641.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Count Basie Orchestra - A Very Swingin' Basie Christmas! (2015) Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272603.jpg" />
+  <img src="Z:/picture/008/save_picture_272603.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Matthias Lupri Group - Same Time Twice (2000) 2002, Summit Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272535.jpg" />
+  <img src="Z:/picture/008/save_picture_272535.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Matt Bianco (Mark Reilly) meets New Cool Collective - The Things You Love (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272481.jpg" />
+  <img src="Z:/picture/008/save_picture_272481.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Donald Byrd & Pepper Adams Quintet - Out of This World: The Complete Warwick Ses
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272431.jpg" />
+  <img src="Z:/picture/008/save_picture_272431.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Frank Sinatra - The Sinatra Christmas Album (1987) Capitol[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272390.jpg" />
+  <img src="Z:/picture/008/save_picture_272390.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272376.jpg" />
+  <img src="Z:/picture/008/save_picture_272376.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Sir Roland Hanna - Colors From A Giant's Kit (2011) IPO Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272110.jpg" />
+  <img src="Z:/picture/008/save_picture_272110.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ben Webster - Live At The Haarlemse Jazzclub (1972) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271531.jpg" />
+  <img src="Z:/picture/008/save_picture_271531.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271528.jpg" />
+  <img src="Z:/picture/008/save_picture_271528.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Cannonball Adderley with Milt Jackson - Things Are Getting Better (1958) 1993, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67D9D99C77E758F04A38DC16E12A930C208DBECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084414   (271464) от 18.12.2016
-
-Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue And Sentimental [06:39]
- 02.She's Funny That Way [03:14]
- 03.If I Had You [02:51]
- 04.Get Happy [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781AE9D2F9B4DC55972CD51B88074816FF29649C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084422   (271462) от 18.12.2016
-
-Betty Carter & Trio - I Didn't Know What Time It Was (1993) Jazz Door[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro [07:49]
- 02.What's New [03:55]
- 03.Tight [01:50]
- 04.Medley [09:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6EA73ABF35D6EF6CE5E87BF5F564BCDD3E5D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266268   (271165) от 01.12.2018
-
-Earl Klugh - Life Stories (1986) Warner [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Traveler [4:05]
-02. Just For Your Love [4:15]
-03. Second Chance [4:01]
-04. For the Love of You [6:04](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15E7311EBBC812DC5D2365B189D95019FB79463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266207   (271164) от 01.12.2018
-
-Charlie Haden & Brad Mehldau - Long Ago And Far Away (2007) 2018, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Au Privave [9:55]
-02. My Old Flame [9:14]
-03. What'll I Do [12:00]
-04. Long Ago And Far Away [15:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E0E3748062C83C59C2B854F6FD7EC4FA33B3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

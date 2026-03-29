@@ -1,3 +1,81 @@
+###  Публикация: 562328   (405599) от 19.10.2012
+
+Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22DB0A0F1FA02858E14D351973102C2AD13E466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562322   (405472) от 19.10.2012
+
+Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&BПродолжительность: 00:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12A07484DE18832D1CD609430F8FA42F2F2C23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562341   (405470) от 19.10.2012
+
+Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648B3A5A91D62B0751075FCB1CFC548DAEDF3ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562338   (405428) от 19.10.2012
 
 Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
@@ -6,7 +84,7 @@ Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405428.jpg" />
+  <img src="Z:/picture/008/save_picture_405428.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404232.jpg" />
+  <img src="Z:/picture/008/save_picture_404232.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ Ace Of Base - Greatest Hits (2008) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401864.jpg" />
+  <img src="Z:/picture/008/save_picture_401864.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401473.jpg" />
+  <img src="Z:/picture/008/save_picture_401473.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401138.jpg" />
+  <img src="Z:/picture/008/save_picture_401138.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400031.jpg" />
+  <img src="Z:/picture/008/save_picture_400031.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399225.jpg" />
+  <img src="Z:/picture/008/save_picture_399225.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398388.jpg" />
+  <img src="Z:/picture/008/save_picture_398388.jpg" />
 </div>
 
 
@@ -229,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396550.jpg" />
+  <img src="Z:/picture/008/save_picture_396550.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395617.jpg" />
+  <img src="Z:/picture/008/save_picture_395617.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395610.jpg" />
+  <img src="Z:/picture/008/save_picture_395610.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394688.jpg" />
+  <img src="Z:/picture/008/save_picture_394688.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394595.jpg" />
+  <img src="Z:/picture/008/save_picture_394595.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394462.jpg" />
+  <img src="Z:/picture/008/save_picture_394462.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392909.jpg" />
+  <img src="Z:/picture/008/save_picture_392909.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392749.jpg" />
+  <img src="Z:/picture/008/save_picture_392749.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ Pirupa - Party Non Stop (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391680.jpg" />
+  <img src="Z:/picture/008/save_picture_391680.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ No Doubt - Looking Hot (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390885.jpg" />
+  <img src="Z:/picture/008/save_picture_390885.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Daniel Bedingfield - Secret Fear (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390207.jpg" />
+  <img src="Z:/picture/008/save_picture_390207.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Mungo Jerry - Video Collection (70-77) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390111.jpg" />
+  <img src="Z:/picture/008/save_picture_390111.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Christina Aguilera - Your Body (2012) HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389243.jpg" />
+  <img src="Z:/picture/008/save_picture_389243.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Space RockerZ & Ellie lawson - Under The Same Sky (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388270.jpg" />
+  <img src="Z:/picture/008/save_picture_388270.jpg" />
 </div>
 
 
@@ -613,7 +691,7 @@ Master and Ian Carey - Lights Out (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388261.jpg" />
+  <img src="Z:/picture/008/save_picture_388261.jpg" />
 </div>
 
 
@@ -624,84 +702,6 @@ Master and Ian Carey - Lights Out (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BACBEE445D1D357AE4A20913D5176E735D85F7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571523   (388016) от 07.11.2012
-
-Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD716F14FA7D971328EBA8D33D680BF394CDA0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571878   (388003) от 07.11.2012
-
-Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEEC113215ED1FE4E4D7B8B7ABF89E368987D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571525   (387865) от 07.11.2012
-
-Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Relax, Chill OutПродолжительность: 00:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497DD0C72E6C5304EBB80B2DB837311C4925EA43
 ```
 
 https://mybot314.ru/tekegram_catalog/

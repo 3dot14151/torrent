@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861422   (1062457) от 
+
+Битва за Москву (1985) WEBRip [H.264] (фильмы 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062457.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 июня 1941 года в 3 часа 30 минут фашистская Германия вероломно напала на Советский Союз. Суровым было начало Великой Отечественной войны. Красная Армия с жестокими боями отходила вглубь страны. Однако в самые трудные времена советский народ не покидала вера в победу. Уже в сорок первом году план молниеносной войны, разработанный германским командованием, был перечеркнут (   Читать дальше...   )Производство: СССР, Чехословакия, ГДР / Мосфильм, Баррандов (ЧССР), ДЕФАЖанр: драма, военный, историяРежиссер: Юрий ОзеровАктеры: Михаил Ульянов, Яков Трипольский, Александр Голобородько, Виталий Расстальной, Николай Засухин, Вячеслав Езепов, Владимир Трошин, Анатолий Никитин, Степан Микоян, Бруно Фрейндлих и др.Продолжительность: 01:17:46 + 01:28:11 + 01:23:00 + 01:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE8E83F8C0BE75642CD1B291F07B360F8F80705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857470   (1059701) от 07.03.2026
 
 Третий удар / Южный узел (1948) DVDRip [H.264]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059701.jpg" />
+  <img src="Z:/picture/005/save_picture_1059701.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059340.jpg" />
+  <img src="Z:/picture/005/save_picture_1059340.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057581.jpg" />
+  <img src="Z:/picture/005/save_picture_1057581.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056299.jpg" />
+  <img src="Z:/picture/005/save_picture_1056299.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053147.jpg" />
+  <img src="Z:/picture/005/save_picture_1053147.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051031.jpg" />
+  <img src="Z:/picture/005/save_picture_1051031.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050733.jpg" />
+  <img src="Z:/picture/005/save_picture_1050733.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050635.jpg" />
+  <img src="Z:/picture/005/save_picture_1050635.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049655.jpg" />
+  <img src="Z:/picture/005/save_picture_1049655.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049642.jpg" />
+  <img src="Z:/picture/005/save_picture_1049642.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048830.jpg" />
+  <img src="Z:/picture/008/save_picture_1048830.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048201.jpg" />
+  <img src="Z:/picture/008/save_picture_1048201.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048158.jpg" />
+  <img src="Z:/picture/008/save_picture_1048158.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047561.jpg" />
+  <img src="Z:/picture/008/save_picture_1047561.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047258.jpg" />
+  <img src="Z:/picture/005/save_picture_1047258.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046741.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045246.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045017.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044728.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044679.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043993.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042181.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041936.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041767.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041628.jpg" />
 </div>
 
 
@@ -649,34 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C14F4CF8905B3278D15C3B8427859C11581A92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715091   (1041296) от 11.02.2023
-
-Белый орел (1928) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041296.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Л.Андреева «Губернатор».
-1905 год. В одном из промышленных городов России бастуют рабочие. В окна губернаторского дома летят камни. Губернатор отдает приказ открыть огонь, в результате чего погибают трое детей. С этого дня угрызения совести не дают ему покоя...
-Именно его, губернатора, «наилучшего представителя царской власти», ставит режиссер в центр (   Читать дальше...   )Производство: СССР, МежрабпомфильмЖанр: драма, история, немое киноРежиссер: Яков ПротазановАктеры: Василий Качалов (единственная роль в кино), Анна Стэн, Всеволод Мейерхольд (единственная сохранившаяся кинороль), Михаил Жаров, Иван Чувелев, Андрей Петровский, Пётр Репнин, Е. Волконская, Юрий Васильчиков, Александр ГромовСубтитры: Русские интертирыПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC89099C995DB5AD1A77C3C936BAAFB93DF85A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

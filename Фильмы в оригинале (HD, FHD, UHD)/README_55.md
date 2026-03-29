@@ -1,3 +1,107 @@
+###  Публикация: 1655305   (193797) от 25.08.2023
+
+Мег 2: Бездна / Meg 2: The Trench (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Водолаз-спасатель Джонас отправляется во впадину, где обитает очередная акула-мегалодон. Одолеть суперхищницу и её подводных приспешников будет совсем непросто.Производство: США, Китай / Apelles Entertainment, China Media Capital, Flagship Entertainment Group, Gravity Pictures, Maeday Productions, Warner Bros. Studios LeavesdenЖанр: ужасы, фантастика, боевикРежиссер: Бен УитлиАктеры: Джейсон Стэйтем, Клифф Кёртис, Сиенна Гиллори, Шуя Софиа Цай, Скайлер Сэмюэлс, Мелиссанти Махут, Пейдж Кеннеди, Джеки У, Whoopie Van Raam, Киран Соня СаварПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full, SDH), французские (full)Продолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF22284AF3FB8613E34376F7B0F7B06A7414AF1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656077   (193642) от 29.08.2023
+
+Индиана Джонс и колесо судьбы / Indiana Jones and the Dial of Destiny (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неувядающий авантюрист и пытливый археолог-исследователь по-прежнему в седле. На этот раз ему придётся столкнуться с непростой задачей, которую решить на раз-два вряд ли получится. Но Индиана Джонс не даст слабину и не отступит при виде даже самой безнадёжной ситуации.Производство: США, Walt Disney Pictures, Lucasfilm, Paramount PicturesЖанр: боевик, приключенияРежиссер: Джеймс МэнголдАктеры: Харрисон Форд, Фиби Уоллер-Бридж, Мадс Миккельсен, Антонио Бандерас, Джон Рис-Дэвис, Тоби Джонс, Бойд Холбрук, Карен Аллен, Шонетт Рене Уилсон, Томас КречманПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full), французские, испанскиеПродолжительность: 02:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A98A21D7F88FDCECD5649978DC299F992FEB3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656621   (193550) от 31.08.2023
+
+Последнее путешествие «Деметра» / The Last Voyage of the Demeter (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракула путешествует в Лондон на русском корабле «Деметр» и потихоньку ест матросов и пассажиров.Производство: США, Великобритания, Мальта, Италия, Германия, Amblin Partners, Dreamworks Pictures, Firebrand Video, Latina Pictures, New Republic Pictures, Phoenix Pictures, Studio Babelsberg, Universal Pictures, Viola FilmЖанр: ужасыРежиссер: Андре ЭвредалАктеры: Кори Хокинс, Эшлинг Франчози, Лиам Каннингэм, Давид Дастмалчян, Крис Уолли, Джон Джон Брионес, Стефан Капичич, Мартин Фурулунд, Николай Николаефф, Вуди НорманПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH)Продолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3818B23FF5F68FF737453DF1EA63E4B9A20AC31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586969   (193053) от 29.10.2022
+
+На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEB-DL [H.264/1080p-LQ] [DE / RU, EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_193053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их вырвали из привычной жизни и швырнули в кровавую грязь войны. Когда-то они были юношами, учившимися жить и мыслить, а теперь они — пушечное мясо, которое учится выживать и не думать.Производство: Германия, США, Великобритания / Amusement Park Films, Rocket ScienceSliding, Down Rainbows EntertainmentЖанр: военный, боевик, драма, историяРежиссер: Эдвард БергерАктеры: Даниэль Брюль, Альбрехт Шух, Себастьян Хюльк, Эдин Хасанович, Феликс Каммерер, Антон фон Люк, Девид Штрисов, Люк Фейт, Джо Вайнтрауб, Михаэль ВиттенборнПеревод: отсутствуетЯзык озвучки: немецкийСубтитры: русские (full), украинские (full), английские (full, SDH) и др.Продолжительность: 02:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4CF64A13DF0A08C313EF5258E76F3A7685D354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657336   (192538) от 03.09.2023
 
 Барби / Barbie (2023) WEBRip [H.265/1080p] [EN]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192538.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192514.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192283.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191936.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191522.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191253.jpg" />
+  <img src="Z:/picture/004/save_picture_191253.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189599.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188351.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187883.jpg" />
+  <img src="Z:/picture/005/save_picture_187883.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187656.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187646.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187147.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187079.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187014.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186089.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185142.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185103.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185085.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ THE FANIMATRIX: Run Program (2003) WEBRip [H.264/1080p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185016.jpg" />
+  <img src="Z:/picture/004/save_picture_185016.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184309.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181762.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181466.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9AB7AD09CFEC8E666A601946CED77B8809C6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593371   (180355) от 27.11.2022
-
-Голливудский монстр / Hollywood-Monster (1987) Blu-Ray [Director`s Cut] [H.264/1080p] [GER]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180355.jpg" />
-</div>
-
-
-###  Подробнее
-
-В старом голливудском особняке мирно живет дух слуги, некогда прислуживавшего хозяевам дома. Его покой нарушает съемочная группа, решившая использовать особняк как бесплатные декорации. Раздосадованный дух вселяется в тело, а обретя плоть и кровь, устраивает наглым киношникам "веселую" жизнь...Производство: США, Centropolis Film Productions, Medusa Produzione.Жанр: Комедия, ужасыРежиссер: Роланд ЭммерихАктеры: Джейсон Лайвли, Тим МакДэниэл, Леонард Лэнсинк, Джилл Уитлоу, Пол Глисон, Иан МакНотон, Чак Митчел, Джулиэн Керри, Синтия ФростПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: ОтсутствуютПродолжительность: 01:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FF6967C9BE557589DC5ECF157AB5C476B0CE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666174   (179844) от 03.10.2023
-
-Великий уравнитель 3 / The Equalizer 3 (2023) WEB-DL [H.264/1080p] [EN / EN, UKR, GER Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт МакКолл приезжает на юг Италии и обнаруживает, что его друзья находятся под контролем местных криминальных авторитетов. Поскольку события становятся смертельно опасными, МакКолл становится защитником своих друзей.Производство: США, Италия / Columbia Pictures CorporationЖанр: боевик, триллер, криминалРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Дакота Фаннинг, Эудженио Мастрандреа, Дэвид Денман, Гая Скоделларо, Ремо Джироне, Андреа Скардуцио, Андреа Додеро, Даниэль Перрон, Zakaria HamzaПеревод: отсутствуетСубтитры: английские, украинские, немецкие и др.Продолжительность: 01:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522F5D1A2ECBED77D6BB2521C4FDB8BFC26C12F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593497   (179685) от 28.11.2022
-
-Звезда родилась / A Star Is Born (1976) BDRip [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карьера рок-звезды Джона Нормана Хауарда стремительно идет на спад, и он ищет утешения в спиртном. После одного особенно постыдного концерта расстроенный музыкант идет в ночной клуб, где поет женское трио «Ореос». Пораженный талантом певицы Эстер Хоффман, Джон устраивает ей прослушивание, закончившееся контрактом со студией звукозаписи.
-
-Выходит альбом, Эстер становится (   Читать дальше...   )Производство: СШАЖанр: драма, мелодрама, музыкаРежиссер: Фрэнк ПирсонАктеры: Барбра Стрейзанд, Крис Кристофферсон, Гэри Бьюзи, Оливер Кларк, Венетта Филдс, Клайди Кинг, Марта Хефлин, М. Г. Келли, Сэлли Кёркленд, Джоэнн ЛинвиллПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 02:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF0FE5D5647C4A9BCB5EDDCF203C4815004F67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594019   (178933) от 29.11.2022
-
-Треугольник печали / Triangle of Sadness (2022) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара моделей Карл и Яя отправляются в роскошный круиз на яхте в компании богатых пассажиров, где можно встретить и русского бизнесмена, и британских производителей оружия, и гения IT. Капитан судна — марксист, находящийся в перманентном запое. Пока всё идёт своим чередом: гости отдыхают, персонал трудится, жена русского бизнесмена чудит. Но вскоре произойдёт неожиданное (   Читать дальше...   )Производство: Швеция, Франция, Великобритания, Германия, Турция, Греция, США, Дания, Швейцария, Мексика / 30West, ARTE, arte France Cinéma, BBC Films, BFI, Bord Cadre Films, Canal+Жанр: драма, комедияРежиссер: Рубен ЭстлундАктеры: Харрис Дикинсон, Чарлби Дин, Вуди Харрельсон, Златко Бурич, Ханна Ольденбург, Мальте Гордингер, Долли Де Леон, Алисия Эрикссон, Каролина Джиннинг, Сунньи МеллесПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 02:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F44FFBB150553DDEB052E451253934A43BA8A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

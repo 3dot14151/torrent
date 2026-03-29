@@ -1,3 +1,30 @@
+###  Публикация: 532439   (537749) от 07.08.2012
+
+Дмитрий Силлов, Владислав Выставной | Кремль 2222 (5 книг) [2011-2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цивилизация погибла. Все, что осталось от России - Поля Смерти и горстка людей, обороняющих московский Кремль от биороботов, киборгов, безумных шаманов, и прочей нечисти, порожденной Третьей мировой войной.
+Молодой кремлевский дружинник Данила, сбежавший из плена нелюдей, в руинах бывшей столицы России встречает человека, который не боится ни биороботов, ни телепатов. (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F5CAD866C489470869389B7D573A42B649DAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366754   (537289) от 23.07.2011
 
 Журнал | What HI-FI? Звук и Видео №7 (2011) [PDF]
@@ -6,7 +33,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537289.jpg" />
+  <img src="Z:/picture/008/save_picture_537289.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537166.jpg" />
+  <img src="Z:/picture/008/save_picture_537166.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537117.jpg" />
+  <img src="Z:/picture/008/save_picture_537117.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537011.jpg" />
+  <img src="Z:/picture/008/save_picture_537011.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536852.jpg" />
+  <img src="Z:/picture/008/save_picture_536852.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536836.jpg" />
+  <img src="Z:/picture/008/save_picture_536836.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536732.jpg" />
+  <img src="Z:/picture/008/save_picture_536732.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536703.jpg" />
+  <img src="Z:/picture/008/save_picture_536703.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536556.jpg" />
+  <img src="Z:/picture/008/save_picture_536556.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536546.jpg" />
+  <img src="Z:/picture/008/save_picture_536546.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536533.jpg" />
+  <img src="Z:/picture/008/save_picture_536533.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536438.jpg" />
+  <img src="Z:/picture/008/save_picture_536438.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536437.jpg" />
+  <img src="Z:/picture/008/save_picture_536437.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536349.jpg" />
+  <img src="Z:/picture/008/save_picture_536349.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536274.jpg" />
+  <img src="Z:/picture/008/save_picture_536274.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536150.jpg" />
+  <img src="Z:/picture/008/save_picture_536150.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535468.jpg" />
+  <img src="Z:/picture/008/save_picture_535468.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535246.jpg" />
+  <img src="Z:/picture/008/save_picture_535246.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535017.jpg" />
+  <img src="Z:/picture/008/save_picture_535017.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534920.jpg" />
+  <img src="Z:/picture/008/save_picture_534920.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534888.jpg" />
+  <img src="Z:/picture/008/save_picture_534888.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534804.jpg" />
+  <img src="Z:/picture/008/save_picture_534804.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534794.jpg" />
+  <img src="Z:/picture/008/save_picture_534794.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534775.jpg" />
+  <img src="Z:/picture/008/save_picture_534775.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534636.jpg" />
+  <img src="Z:/picture/008/save_picture_534636.jpg" />
 </div>
 
 
@@ -655,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45E5B27AD5CD664B77C2B127CFD1F33DDEBC465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050947   (534554) от 10.09.2016
-
-Валентин З. | За чудесным зерном (2016) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои повести «За чудесным зерном» — провинциальные юноши, пережившие голод и неурожай. Увлеченные легендой о небывалой засухоустойчивой пшенице, они бегут из дома и попадают в Москву. Здесь они присоединяются к экспедиции, которая открывает в китайском Туркестане следы неведомой высокоразвитой цивилизации.
-Повесть 3. Валентина (под этим псевдонимом скрывался неизвестный (   Читать дальше...   )Жанр: Научная фантастика, ПриключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB42F642C41F21AC02B6525C4D5B30488811A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

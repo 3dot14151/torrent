@@ -1,3 +1,120 @@
+###  Публикация: 1016268   (771728) от 13.05.2016
+
+Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Starts Are In Your Eyes [06:29]
+ 02.Lover Man [06:12]
+ 03.Brandnew World / Breaking A New Day [09:24]
+ 04.Margy Pargy [05:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62D9430C9FB370990136805967AC0C6B6B60B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391793   (771640) от 22.06.2020
+
+The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Did I Fall In Love [4:33]
+02. Little Tin Box [4:14]
+03. Home Again [3:03]
+04. Till Tomorrow [2:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A3BEF0A026557306EB59DD8F7D6B96F8F54FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016223   (771592) от 13.05.2016
+
+Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaco Smiled
+02. One Night In Mumbai
+03. Unbreakable Heart
+04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761446   (771422) от 07.04.2015
+
+George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusion, Soul-Jazz, Latin Jazz, Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне уже приходилось писать на трекере о Бенсоне, этом десятикратном обладателем премии "Гремми". Представляемая Вашему вниманию дискография позволяет проследить эволюцию творчества Бенсона.
+Альбом Benson Burner первый из альбомов (наряду с It's Uptown и Cookbook), где Бенсон зарекомендовал себя джазовым мастером гитары. А в последних Irreplaceable и Songs (   Читать дальше...   )1966 - It's Uptown
+1967 - The George Benson Cookbook
+1968 - Giblet Gravy
+1968 - Shape Of Things To Come(   Читать дальше...   )Жанр: Jazz, Bop, Fusion, Soul-Jazz, Latin Jazz, Smooth Jazz, Easy ListeningПродолжительность: 26:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA67812B6E0B39DA8C85D85BFF1241BEBC114884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391938   (770690) от 23.06.2020
 
 Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -6,7 +123,7 @@ Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770690.jpg" />
+  <img src="Z:/picture/008/save_picture_770690.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ Tom Grant - Mystified (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770525.jpg" />
+  <img src="Z:/picture/008/save_picture_770525.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ Masabumi Kikuchi, Gary Peacock, Paul Motian - Tethered Moon (1991) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769700.jpg" />
+  <img src="Z:/picture/008/save_picture_769700.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ Stefano Bollani - Live From Mars (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769690.jpg" />
+  <img src="Z:/picture/008/save_picture_769690.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769394.jpg" />
+  <img src="Z:/picture/008/save_picture_769394.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769250.jpg" />
+  <img src="Z:/picture/008/save_picture_769250.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768997.jpg" />
+  <img src="Z:/picture/008/save_picture_768997.jpg" />
 </div>
 
 
@@ -209,7 +326,7 @@ Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768949.jpg" />
+  <img src="Z:/picture/008/save_picture_768949.jpg" />
 </div>
 
 
@@ -238,7 +355,7 @@ Club Des Belugas - Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Be
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768733.jpg" />
+  <img src="Z:/picture/008/save_picture_768733.jpg" />
 </div>
 
 
@@ -267,7 +384,7 @@ Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768610.jpg" />
+  <img src="Z:/picture/008/save_picture_768610.jpg" />
 </div>
 
 
@@ -294,7 +411,7 @@ George Mraz - Morava (2001) Milestone Records [FLAC|Lossless|tracks + .cue] <Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768607.jpg" />
+  <img src="Z:/picture/008/save_picture_768607.jpg" />
 </div>
 
 
@@ -323,7 +440,7 @@ The Three Sounds - Six Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768198.jpg" />
+  <img src="Z:/picture/008/save_picture_768198.jpg" />
 </div>
 
 
@@ -352,7 +469,7 @@ Carlo Actis Dato Quartet - Enna Milonga (2000) BAJ Records [APE|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768135.jpg" />
+  <img src="Z:/picture/008/save_picture_768135.jpg" />
 </div>
 
 
@@ -381,7 +498,7 @@ Johnny Griffin - Bush Dance (1978 / 1983) 2004, Galaxy [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768131.jpg" />
+  <img src="Z:/picture/008/save_picture_768131.jpg" />
 </div>
 
 
@@ -410,7 +527,7 @@ Corey King - Lashes (2016) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768122.jpg" />
+  <img src="Z:/picture/008/save_picture_768122.jpg" />
 </div>
 
 
@@ -439,7 +556,7 @@ Arthur Doyle & Sunny Murray - Live at Glenn Miller Cafe (2000) Ayler Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768114.jpg" />
+  <img src="Z:/picture/008/save_picture_768114.jpg" />
 </div>
 
 
@@ -468,7 +585,7 @@ Norman Brown - Let It Go (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767997.jpg" />
+  <img src="Z:/picture/008/save_picture_767997.jpg" />
 </div>
 
 
@@ -497,7 +614,7 @@ Scott Bradlee's Postmodern Jukebox - 33 Resolutions Per Minute (2017) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767932.jpg" />
+  <img src="Z:/picture/008/save_picture_767932.jpg" />
 </div>
 
 
@@ -526,7 +643,7 @@ Michael Franks - Collection 1975 - 1987 (2012) Light Mellow [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767884.jpg" />
+  <img src="Z:/picture/008/save_picture_767884.jpg" />
 </div>
 
 
@@ -557,7 +674,7 @@ Candy Dulfer - Together (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767883.jpg" />
+  <img src="Z:/picture/008/save_picture_767883.jpg" />
 </div>
 
 
@@ -586,7 +703,7 @@ Louis Hayes And The Cannonball Adderley Legacy Band - Live at Cory Weeds' Cellar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767793.jpg" />
+  <img src="Z:/picture/008/save_picture_767793.jpg" />
 </div>
 
 
@@ -615,7 +732,7 @@ Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767772.jpg" />
+  <img src="Z:/picture/008/save_picture_767772.jpg" />
 </div>
 
 
@@ -629,122 +746,6 @@ Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C9BE85F16404FD824084A7103A5942D33B8A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278866   (767743) от 27.01.2019
-
-Barnaby Finch - Digital Madness (1986) 2014, Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Don't Be So) Marxist in Bed [5:07]
-02. Where's the Hook [7:08]
-03. Don't Touch My Moustache [5:20]
-04. What Came Before [5:46](   Читать дальше...   )Жанр: Jazz Fusion, Smooth JazzПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A1352B983AD050DFAD562EC5E878A593824C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493592   (767676) от 27.01.2019
-
-Lena Horne & Michel Legrand - Lena & Michel (1975) [FLAC|Lossless]<Vocal Jazz, Traditional Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Wait for You (Je Ne Pourrai Jamais Vivre Sans Toi) (Jacques Demy, Norman Gimbel, Michel Legrand) (3:48)
-02. I Got a Name (Charles Fox, Gimbel) (3:52)
-03. Nobody Knows (Alan Bergman, Marilyn Bergman, Legrand) (3:39)
-04. Being a Woman (Larry Grossman, Hal Hackaday) (3:22)(   Читать дальше...   )Жанр: Vocal Jazz, Traditional PopПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212393   (767669) от 27.01.2019
-
-Michel Legrand - The Very Best Of Michel Legrand (1990) [FLAC|Lossless|image + .cue] <Jazz, Pop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Windmills Of Your Mind (3:35)
-02. The Summer Of 42 (2:44)
-03. I Still See You (2:49)
-04. Sea And Sky (vocal by Dusty Springfield) (2:15)(   Читать дальше...   )Жанр: Jazz, Pop, Big BandПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC79913BB953DD9B16CC7D6A808AFE1BE78CEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200868   (767545) от 27.01.2019
-
-Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Continental Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parlez-moi d'amour (Speak To Me Of Love) (4:59)
-02. C'est si bon (4:06)
-03. Les feuilles mortes (Autumn Leaves) (3:43)
-04. Theme From Summer of '42 (The Summer Knows-un ete 42) (5:22)(   Читать дальше...   )Жанр: Continental JazzПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

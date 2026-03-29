@@ -1,3 +1,148 @@
+###  Публикация: 1104705   (878224) от 16.02.2017
+
+Young Flowers - 1968-1969 (1997) [APE|Lossless|image + .cue] <Blues Rock, Heavy Psych, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_878224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture - Take Warning (4:15)
+02. The Moment Life Appeared (2:16)
+03. 25 øre (8:00)
+04. Oppe i træet (3:18)(   Читать дальше...   )Жанр: Blues Rock, Heavy Psych, Psychedelic RockПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DE1ABF9ECF71809A4A087A412859887082BDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104855   (878126) от 16.02.2017
+
+Men At Work - Business As Usual (1981) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_878126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Who Can It Be Now?  3:26
+02.  I Can See It In Your Eyes  3:33
+03.  Down Under  3:46
+04.  Underground  3:08(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ECBAF4CE8A03FD93D95F0A55A6CADE174EEE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495670   (877556) от 14.09.2021
+
+Andreas Aarflot - Det rivna pianot (1978) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock, Prog Rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_877556.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sista båten från Shanghai - 05:04
+2. Svedolfs telefonkiosk - 03:38
+3. Vägar - 04:36
+4. Surayya - 03:29(   Читать дальше...   )Жанр: Jazz-Rock, Prog Rock, FusionПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514996D543EDAC010A12BD20A24D4F1F18A0C8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495759   (877551) от 14.09.2021
+
+Syndone - Kama Sutra (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_877551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Only Make Believin 3:27
+02. Nirvana 2:52
+03. Carousel 2:32
+04. Into the Kama 5:51(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B600B054F3090BD9858FB95849BCFAFF88766E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105133   (876474) от 17.02.2017
+
+Cliff Richard - Always Guaranteed (1987) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Night (04:30)
+02. Once Upon A Time (04:32)
+03. Some People (03:51)
+04. Forever (04:02)(   Читать дальше...   )Жанр: Pop/Rock, VocalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3B2D79A9201116E5D6D82A548D13A7F057512E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 441042   (875614) от 15.09.2021
 
 BigBang (Norway) - 11 Albums (1995 - 2013) 12 CD [FLAC|Lossless]<Rock>
@@ -6,7 +151,7 @@ BigBang (Norway) - 11 Albums (1995 - 2013) 12 CD [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875614.jpg" />
+  <img src="Z:/picture/005/save_picture_875614.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ Grand Illusion - Ordinary Just Won't Do (2004) [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875164.jpg" />
+  <img src="Z:/picture/005/save_picture_875164.jpg" />
 </div>
 
 
@@ -61,7 +206,7 @@ Eric Clapton - Backless (1978) Reissue, 2008, Polydor [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875067.jpg" />
+  <img src="Z:/picture/005/save_picture_875067.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Jade Warrior - 14 альбомов / 15 CD (1971-2008) Дискография [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875051.jpg" />
+  <img src="Z:/picture/005/save_picture_875051.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Big Big Train - Common Ground (2021) [FLAC|Lossless|image + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874788.jpg" />
+  <img src="Z:/picture/005/save_picture_874788.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Lindsey Buckingham (ex-Fleetwood Mac) - Lindsey Buckingham (2021) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874638.jpg" />
+  <img src="Z:/picture/005/save_picture_874638.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Women In Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874632.jpg" />
+  <img src="Z:/picture/005/save_picture_874632.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ The Strokes - The New Abnormal (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874305.jpg" />
+  <img src="Z:/picture/005/save_picture_874305.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Joe Satriani - Shapeshifting (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874185.jpg" />
+  <img src="Z:/picture/005/save_picture_874185.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Polyphony - Without Introduction (1971) 2011, Gear Fab Records [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873749.jpg" />
+  <img src="Z:/picture/008/save_picture_873749.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Don McLean - The Best Of Don McLean (1991) [FLAC|Lossless|tracks + .cue] <Folk R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873377.jpg" />
+  <img src="Z:/picture/008/save_picture_873377.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872992.jpg" />
+  <img src="Z:/picture/008/save_picture_872992.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Billy F Gibbons - Stepping Out Of ZZ Top： Rare And Unreleased Vol. 1⁄ 2 (202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872725.jpg" />
+  <img src="Z:/picture/008/save_picture_872725.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ Freddie King - Burglar (1974) Reissue, 2001, Polydor [APE|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872048.jpg" />
+  <img src="Z:/picture/008/save_picture_872048.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ Spock's Beard - Live at High Voltage Festival (2011) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871673.jpg" />
+  <img src="Z:/picture/008/save_picture_871673.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Gerry Rafferty - Rest In Blue (2021) [FLAC|Lossless|tracks + .cue] <Rock, Folk-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871534.jpg" />
+  <img src="Z:/picture/008/save_picture_871534.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ The Night Flight Orchestra - Aeromantic II (2021) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871242.jpg" />
+  <img src="Z:/picture/008/save_picture_871242.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Metal Church - From the Vault (2020) [FLAC|Lossless|tracks] <Heavy Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871197.jpg" />
+  <img src="Z:/picture/008/save_picture_871197.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Mason - Harbour (1971) Reissue, 1999 [FLAC|Lossless|tracks + .cue] <Heavy Psych 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870143.jpg" />
+  <img src="Z:/picture/008/save_picture_870143.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Brother Wilson - Utopia (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Singe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870069.jpg" />
+  <img src="Z:/picture/008/save_picture_870069.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ VA - Classic Rock (The Collection) (2012) [FLAC|Lossless]<Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868888.jpg" />
+  <img src="Z:/picture/008/save_picture_868888.jpg" />
 </div>
 
 
@@ -601,150 +746,6 @@ VA - Classic Rock (The Collection) (2012) [FLAC|Lossless]<Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E2450F08E5D0D9B038C025FDBD3C226899A906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998817   (868450) от 20.03.2016
-
-Elvis Presley - Elvis Sings... (2014) Compilation, Live [FLAC|Lossless|tracks + .cue] <Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Think Twice, It's All Right (04:01)
-02. Got My Mojo Working / Keep Your Hands Off Of It (05:23)
-03. Bridge Over Troubled Water (04:30)
-04. Help Me Make It Through The Night (02:48)(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC26593948B0831DB54521B62EBB6D04DA60D7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496897   (868258) от 20.09.2021
-
-Viriditas - Green Mars (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Mars 05:25
-02. The Timeslip/Zygote 10:57
-03. Nirgal 11:55
-04. Small Boy In The Big City 12:56(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467FAE4F8DE56272C17439F5EECF447E639CC73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496881   (868254) от 20.09.2021
-
-Lucas Barnery - The Wave And The Sea (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wave 00:46
-02. Deep Into The Void 08:51
-03. Fate After Death 07:13
-04. Birds 04:12(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC07844C23C15CFFDA1F305861B84DE1F0B02E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107115   (868228) от 22.02.2017
-
-Foghat - 2 Album (2016 - 2017) [FLAC|Lossless|WEB-DL|image + .cue] <Southern rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс блюз-рока, харда, буги и рок-н-ролла, исполняемый этой командой, сделал ее весьма популярной в середине 70-х, однако впоследствии волна панка и диско выбросила "Foghat" на обочину шоу-бизнеса. Группу организовали в 1971 году выходцы из "Savoy Brown" Роджер Эрл (ударные), Дэйв Певеретт (р. 16 апреля 1943; гитара, вокал) и Тони Стивенс (бас), (   Читать дальше...   )Альбомы:
-2016 - Under The Influence (CD)
-2017 - Live At The Belly Up (WEB)Жанр: Southern rock, Blues RockПродолжительность: 02:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4323BAD5DE9848B050504BC22898B06B76556834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997915   (868221) от 20.03.2016
-
-Scorpions - Animal Magnetism (1980) 2015, 50th Anniversary Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock, Metal, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Make It Real (03:52)
-02.Dont Make No Promises - Your Body Cant Keep (03:00)
-03.Hold Me Tight (04:00)
-04.Twentieth Century Man (03:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A688055D4C7B82757043A57D4832F7F2AE0823
 ```
 
 https://mybot314.ru/tekegram_catalog/

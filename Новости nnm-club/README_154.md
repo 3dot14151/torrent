@@ -1,3 +1,163 @@
+###  Публикация: 229660   (513740) от 26.08.2010
+
+Microsoft Office Outlook 2007
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office Outlook 2007 — это программа-органайзер с функциями почтового клиента, входящая в пакет офисных программ Microsoft Office.
+
+Вместе, Microsoft Office Outlook 2007 и бизнес-почта на базе Exchange Server 2007 образуют комплексное решение для управления временем и информацией, способствующее повышению эффективности совместной работы с коллегами, клиентами (   Читать дальше...   )Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930844   (513707) от 24.08.2015
+
+Антарктическая нейтрино-обсерватория IceCube подтверждает существование нейтрино, прибывающих из глубин Вселенной
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_513707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находящаяся в глубине антарктических льдов, нейтрино-обсерватория IceCube зарегистрировала некоторое количество призрачных, неуловимых и практически невесомых частиц нейтрино, прибывших из глубин Вселенной из источников, находящихся далеко за пределами Млечного Пути. Обнаружение этих космических нейтрино не только подтверждает факт их существования, измерение их (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930534   (513549) от 24.08.2015
+
+Windows 10 SpyStop 1.0.0 [Ru/De]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win10 SpyStop - еще одна программа для Windows 10, которая защищает вас от нежелательной передачи персональных данных.Язык интерфейса: Русский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADA71C96149E0F954FC288EEE83DBEA7EAD12D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930432   (513544) от 24.08.2015
+
+Windows 10 x86 x64 StartSoft 56-57 2015 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на ПК Windows 10 Enterprise и Windows 10 Pro VL,  с разной разрядностью.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E91AE87E3A32FAAE1A745831B69A865529039B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561751   (513299) от 06.07.2022
+
+Far Cry 6 (2021) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Far Cry 6 - компьютерная игра в жанре шутера от первого лица и action-adventure, разработанная студией Ubisoft Toronto и изданная компанией Ubisoft. Является шестой основной игрой из одноимённой серии. Действие происходит в вымышленной тропической стране Яра, и повествует о противостоянии главного героя (или героини) местного сопротивления по имени Дани Рохас и жестокого (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Toronto, Montreal, Shanghai, Berlin, KyivЖанр: Action (Shooter), FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1371CD3452D9A692C733FC6337F4E65710A1700C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536626   (513123) от 19.08.2012
+
+Topaz Labs Photoshop Plugins Bundle 2012 (x86/x64) [Английский + Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор плагинов от известной компании Topaz Labs для Adobe Photoshop, а также для Photoshop Elements. Плагины предназначены для регулирования программного расширения, имитации рисования маслом и акварелью, снижения шумов, отделения объекта от фона и объединения с другим изображением, увеличения резкости и многого другого. Большинство плагинов в комплекте с русификаторами.
+
+(   Читать дальше...   )Название программы: Topaz Labs Photoshop Plugins Bundle 2012Язык интерфейса: Английский + Русский *
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 374796   (512956) от 14.08.2011
 
 Братья по оружию / Band of Brothers (2001) 6*Blu-ray [VC-1/1080p] (сезон 1, серии 1-10 из 10) Гланц и Королёва, Кубик в кубе
@@ -6,7 +166,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512956.jpg" />
+  <img src="Z:/picture/008/save_picture_512956.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512671.jpg" />
+  <img src="Z:/picture/008/save_picture_512671.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_512659.jpg" />
+  <img src="Z:/picture/005/save_picture_512659.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Windows 10 Enterprise LTSC 1809 17763.615 x64 Rus by OneSmiLe (19.07.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512554.jpg" />
+  <img src="Z:/picture/008/save_picture_512554.jpg" />
 </div>
 
 
@@ -113,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512488.jpg" />
+  <img src="Z:/picture/008/save_picture_512488.jpg" />
 </div>
 
 
@@ -139,7 +299,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512483.jpg" />
+  <img src="Z:/picture/008/save_picture_512483.jpg" />
 </div>
 
 
@@ -165,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511595.jpg" />
+  <img src="Z:/picture/008/save_picture_511595.jpg" />
 </div>
 
 
@@ -191,7 +351,7 @@ Destroy Windows 10 Spying 1.5 Build 325 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511546.jpg" />
+  <img src="Z:/picture/008/save_picture_511546.jpg" />
 </div>
 
 
@@ -217,7 +377,7 @@ Wolfenstein (2009) [Ru] (1.2) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511518.jpg" />
+  <img src="Z:/picture/008/save_picture_511518.jpg" />
 </div>
 
 
@@ -243,7 +403,7 @@ Garmin: Дороги России Топо 6.21-R2 (FID 3332 + FID 4594) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511516.jpg" />
+  <img src="Z:/picture/008/save_picture_511516.jpg" />
 </div>
 
 
@@ -270,7 +430,7 @@ WPI v 8 STARTSOFT [Русский-Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511060.jpg" />
+  <img src="Z:/picture/008/save_picture_511060.jpg" />
 </div>
 
 
@@ -296,7 +456,7 @@ Darksiders II [Ru/En] (L/Update 1) 2012 l SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511058.jpg" />
+  <img src="Z:/picture/008/save_picture_511058.jpg" />
 </div>
 
 
@@ -323,7 +483,7 @@ Divinity II: The Dragon Knight Saga / Divinity 2: Пламя мести [Ru/En] 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511055.jpg" />
+  <img src="Z:/picture/008/save_picture_511055.jpg" />
 </div>
 
 
@@ -351,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_510708.jpg" />
+  <img src="Z:/picture/005/save_picture_510708.jpg" />
 </div>
 
 
@@ -377,7 +537,7 @@ History Channel. В изоляции / Alone (2015) SATRip (1 сезон: 1-10 �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510605.jpg" />
+  <img src="Z:/picture/008/save_picture_510605.jpg" />
 </div>
 
 
@@ -403,7 +563,7 @@ Windows 10 x86 x64 DVD-USB StartSoft 58-59 2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510604.jpg" />
+  <img src="Z:/picture/008/save_picture_510604.jpg" />
 </div>
 
 
@@ -429,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510597.jpg" />
+  <img src="Z:/picture/008/save_picture_510597.jpg" />
 </div>
 
 
@@ -455,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510286.jpg" />
+  <img src="Z:/picture/008/save_picture_510286.jpg" />
 </div>
 
 
@@ -482,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510226.jpg" />
+  <img src="Z:/picture/008/save_picture_510226.jpg" />
 </div>
 
 
@@ -508,7 +668,7 @@ The Bat! Professional 5.2 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510151.jpg" />
+  <img src="Z:/picture/008/save_picture_510151.jpg" />
 </div>
 
 
@@ -521,164 +681,6 @@ The Bat! - популярный клиент электронной почты; 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538131   (510144) от 22.08.2012
-
-Adobe Acrobat X Professional v.10.1.4 DVD [RUS / ENG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный инструмент для технических и маркетинговых специалистов.Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881636   (509810) от 28.08.2015
-
-Clean Master  v5.10.7 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое clean master? Эта программа – очиститель приложений, которую должен иметь каждый пользователь андроид. Она содержит в себе всеобъемлющие методы для очистки: кэша, неиспользуемых файлов, личной истории и пакетов приложений на андроид телефонах. Она так же завершает приложения и освобождает память для ускорения телефона и продлевает время работы аккумулятора. (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 24 августа 2015 г.Разработчик: KsmobileПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06909531FD9C466F8DAAC54584544F7F26623695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931162   (509808) от 28.08.2015
-
-VMware Workstation 12 Pro 12.0.0 build 2985596 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509808.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — известная программа для виртуализации систем. Данный продукт является мощным решением для разработчиков программного обеспечения и системных администраторов, создающих и тестирующих полно-комплексные сетевые приложения класса серверов, работающие в различных средах. Уникальная технология VMware MultipleWorlds позволяет изолировать операционные (   Читать дальше...   )Язык интерфейса: Русский (loginvovchyk), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA77AC0C9EC712EF1C1FE25CBE682B9EBA8B3016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931962   (509803) от 28.08.2015
-
-Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.75 [CFW] [License] [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509803.jpg" />
-</div>
-
-
-###  Подробнее
-
-METAL GEAR SOLID V: The Phantom Pain от Kojima Productions откроет новую эпоху в истории культовой серии. Благодаря революционной технологии Fox Engine вы получите совершенно новое ощущение от игры – ощущение колоссальной тактической свободы при выполнении заданий в огромном открытом мире.
-
-Спустя девять лет после событий METAL GEAR SOLID V: Ground Zeroes Снейк, (   Читать дальше...   )Тип издания: LicenseРазработчик: Kojima ProductionsЖанр: Action-adventure, stealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA78B2712BB7F8C28987CC00C80E9AAD80AF0454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931832   (509802) от 28.08.2015
-
-Вне/себя / Self/less (2015) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509802.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем становится возможным победить смерть с помощью имплантации своего сознания в молодое тело, созданное методом генной инженерии. Операция эта дорогостоящая и проводится подпольно, а поэтому доступна лишь ограниченному кругу лиц. Умирающий пожилой бизнесмен решается на это и получает возможность прожить еще одну жизнь. Однако когда ему приоткрывается тайна (   Читать дальше...   )Производство: США, Endgame Entertainment, Ram Bergman ProductionsЖанр: Фантастика, Триллер, ДетективРежиссер: Тарсем СингхАктеры: Райан Рейнольдс, Бен Кингсли, Натали Мартинес, Мэттью Гуд, Виктор Гарбер, Дерек Люк, Джейни-Линн Кинчен, Мелора Хардин, Мишель Докери, Сэмюэл ПейджПеревод: Дублированный (iTunes)Продолжительность: 01:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3325760690E2B5E23722334E0EDC8B5461AFC1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932208   (509801) от 28.08.2015
-
-Кукла / The Boy (2015) WEB-DLRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тед Хенли живет со своим отцом в их придорожном мотеле на пустынном участке дороги. Отец зарабатывает себе на крошечное пособие, собирая различный мусор вдоль шоссе. Но когда проблема с наличными дает о себе знать, Тед находит необычное занятие.Производство: СШАЖанр: Триллер, Ужасы, ДрамаРежиссер: Крэйг Уилльям МакнейллАктеры: Дэвид Морс, Рэйн Уилсон, Джаред Бриз, Билл Сейдж, Майк Фогель, Зулейха Робинсон, Эйден Лавкамп, Дэвид Валенсиа, Амалия Санта МарияПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: LetEatBee / М. ВасильевПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B53981B183776AFDAD0DC0D34C5412A32CE083
 ```
 
 https://mybot314.ru/tekegram_catalog/

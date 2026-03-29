@@ -1,3 +1,88 @@
+###  Публикация: 1697205   (119116) от 05.02.2024
+
+Василий Ян | Финикийский корабль (2012) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Григорьевич Ян (1875–1954) – русский советский писатель, публицист, поэт и драматург, сценарист, педагог. Автор популярных исторических романов.
+Основой книги «Финикийский корабль» послужили записки одного моряка о его удивительных приключениях на разных морях. Записки эти были на глиняных табличках найденных на раскопках на восточном берегу Средиземного (   Читать дальше...   )Жанр: Русская литература, историческая повестьИздательство: Нигде не купишьПродолжительность: 05:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8770DD8DF1F5FF06261E8A32E3964396C8CCD81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306594   (116622) от 20.02.2024
+
+Вс.Н. Иванов | Иван III. Ночь царя Петра (2005) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Историческая библиотека.
+Всеволод Никанорович Иванов (1888–1971) – русский писатель, автор исторических повестей.
+В книгу Всеволода Иванова включены две повести о русской старине, воскрешающие для современного читателя некоторые поворотные моменты истории становления и этапов развития русской государственности.
+В «Иване Третьем» изображено время конца (   Читать дальше...   )Жанр: Русская историческая литература, повестьПродолжительность: 07:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8872E11B654A686A839BB8FB1613AB6AA5304559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306595   (116618) от 20.02.2024
+
+Вс.Н. Иванов | Императрица Фике (2005) [MP3, Ольга Вяликова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Историческая библиотека.
+Всеволод Никанорович Иванов (1888–1971) – русский писатель, автор исторических повестей.
+«Императрица Фике» — документальная хроника начального периода той яростной борьбы, которая сопровождала появление России на мировой арене,— интриг и заговоров вокруг русского трона.
+Принцесса Фикхен приехала в Россию, будучи всего четырнадцати (   Читать дальше...   )Жанр: Русская историческая литература, повестьИздательство: Студия «АРДИС»Продолжительность: 08:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4F504E5E340913EF93FED59FF2CF66455258F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 320671   (116614) от 20.02.2024
 
 М.Н. Загоскин | Юрий Милославский, или Русские в 1612 году (2009) [MP3, Олег Фёдоров]
@@ -6,7 +91,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116614.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116595.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116528.jpg" />
 </div>
 
 
@@ -88,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115796.jpg" />
 </div>
 
 
@@ -115,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115773.jpg" />
 </div>
 
 
@@ -143,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115760.jpg" />
 </div>
 
 
@@ -171,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115758.jpg" />
 </div>
 
 
@@ -198,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115688.jpg" />
 </div>
 
 
@@ -226,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115422.jpg" />
 </div>
 
 
@@ -253,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115420.jpg" />
 </div>
 
 
@@ -282,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115398.jpg" />
 </div>
 
 
@@ -309,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115393.jpg" />
 </div>
 
 
@@ -335,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114650.jpg" />
 </div>
 
 
@@ -363,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114631.jpg" />
 </div>
 
 
@@ -391,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114522.jpg" />
 </div>
 
 
@@ -418,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113753.jpg" />
 </div>
 
 
@@ -444,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113741.jpg" />
 </div>
 
 
@@ -473,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113434.jpg" />
 </div>
 
 
@@ -499,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113083.jpg" />
 </div>
 
 
@@ -526,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111838.jpg" />
 </div>
 
 
@@ -553,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111710.jpg" />
 </div>
 
 
@@ -580,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111706.jpg" />
 </div>
 
 
@@ -606,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111690.jpg" />
 </div>
 
 
@@ -619,87 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACCD864A8CC12BA1DDD469B192B0D7C859D005CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714852   (111687) от 10.04.2024
-
-Рафаэль Сабатини | Любовь и оружие (2015) [MP3, Светлана Раскатова]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рафаэль Сабатини (1875–1950), английский писатель итальянского происхождения, прославившийся приключенческими историческими романами.
-Герцогство Баббьяно на грани краха, на него положил глаз Чезаре Борджия, постепенно подчиняющий себе государства Италии, есть два пути спасения: поставить вместо Джан-Мария Скорце, герцога Баббьяно запустившего дела, популярного в (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 08:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B0AA77FF1893EA3B285876230989B6A380BCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714840   (111683) от 10.04.2024
-
-Рафаэль Сабатини | Скарамуш (2015) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рафаэль Сабатини (1875–1950), английский писатель итальянского происхождения, прославившийся приключенческими историческими романами.
-Франция, канун Великой Французской революции. Андре-Луи – приёмыш в семье дворянина, сам однако остающийся простолюдином. После того как заносчивый аристократ маркиз Латур Д'Азир беспричинно убивает друга героя и получает обещание (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 13:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8A5C6E78DD96713B7FFB635DF830ECF1A4B956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714888   (111681) от 10.04.2024
-
-Рафаэль Сабатини | Венецианская маска (2009) [MP3, Вадим Цымбалов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рафаэль Сабатини (1875–1950), английский писатель итальянского происхождения, прославившийся приключенческими историческими романами.
-Действие романа происходит в Италии, раздробленной в те времена на множество мелких государств. Читатель найдет здесь все атрибуты классического приключенческого романа — поединки, путешествия, интриги, предательство, борьбу за власть (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 11:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19322C335A43D150E59EC012D8B0F38FDFA75E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

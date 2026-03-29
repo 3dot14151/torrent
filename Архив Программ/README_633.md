@@ -6,7 +6,7 @@ Bulk Crap Uninstaller 5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731626.jpg" />
+  <img src="Z:/picture/008/save_picture_731626.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jetico BestCrypt 9.03.16.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731594.jpg" />
+  <img src="Z:/picture/008/save_picture_731594.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional Edition 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731593.jpg" />
+  <img src="Z:/picture/008/save_picture_731593.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FitDEFORMER 1.41 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731590.jpg" />
+  <img src="Z:/picture/008/save_picture_731590.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows 10 Manager 3.0.2 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731589.jpg" />
+  <img src="Z:/picture/008/save_picture_731589.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent 3.5.5 Build 45081 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731587.jpg" />
+  <img src="Z:/picture/008/save_picture_731587.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ JetBrains RubyMine 3.1.1 Build #RM-103.260 For Win/Mac/Linux [Английски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731557.jpg" />
+  <img src="Z:/picture/005/save_picture_731557.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731522.jpg" />
+  <img src="Z:/picture/008/save_picture_731522.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mozilla Firefox ESR 52.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731514.jpg" />
+  <img src="Z:/picture/008/save_picture_731514.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Reg Organizer 8.85 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731493.jpg" />
+  <img src="Z:/picture/008/save_picture_731493.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AI Roboform Enterprise 7.9.28.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731477.jpg" />
+  <img src="Z:/picture/008/save_picture_731477.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows 7 Professional VL SP1 (x86-x64) [2in1] by ivandubskoj (17.02.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731473.jpg" />
+  <img src="Z:/picture/008/save_picture_731473.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Bat! Voyager 8.8.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731462.jpg" />
+  <img src="Z:/picture/008/save_picture_731462.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Dism++ 10.1.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731429.jpg" />
+  <img src="Z:/picture/008/save_picture_731429.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wise Data Recovery 3.84.201 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731426.jpg" />
+  <img src="Z:/picture/008/save_picture_731426.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ IP-TV Player 0.28.1.8845 DC 30.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731419.jpg" />
+  <img src="Z:/picture/008/save_picture_731419.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dr.Web Security Space 11.0.3.5270 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731412.jpg" />
+  <img src="Z:/picture/008/save_picture_731412.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ CCleaner 5.29.6033 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731351.jpg" />
+  <img src="Z:/picture/008/save_picture_731351.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731327.jpg" />
+  <img src="Z:/picture/005/save_picture_731327.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Emsisoft Internet Security 11.7.0.6394 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731320.jpg" />
+  <img src="Z:/picture/008/save_picture_731320.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ WinRAR 5.40 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731315.jpg" />
+  <img src="Z:/picture/008/save_picture_731315.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ O&O ShutUp10 1.3.1357 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731314.jpg" />
+  <img src="Z:/picture/008/save_picture_731314.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ DAEMON Tools Lite 10.4.0.190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731309.jpg" />
+  <img src="Z:/picture/008/save_picture_731309.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Emsisoft Anti-Malware 11.7.0.6394 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731268.jpg" />
+  <img src="Z:/picture/008/save_picture_731268.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Change MAC Address 2.12.0 Build 112 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731267.jpg" />
+  <img src="Z:/picture/008/save_picture_731267.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Photo Supreme 4.3.3.1951 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731036.jpg" />
+  <img src="Z:/picture/008/save_picture_731036.jpg" />
 </div>
 
 

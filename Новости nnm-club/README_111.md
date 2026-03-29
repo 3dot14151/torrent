@@ -1,3 +1,162 @@
+###  Публикация: 935468   (680547) от 01.05.2018
+
+This War of Mine (2014) [Ru/En] (4.0.0 (u2)/dlc) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680547.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «This War of Mine» вы играете не за солдата элитных войск, а за группу мирных жителей, пытающихся выжить в осажденном городе, испытывая нехватку еды, лекарств и постоянную опасность со стороны снайперов и мародеров. Игра дает возможность прочувствовать войну с абсолютно новой перспективы.Тип издания: RepackРазработчик: 11 bit studiosЖанр: Strategy, 3D, LifestyleЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA584068333AFDE6BD25DE996C15897CCC4A5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507917   (680447) от 09.06.2012
+
+Anthropics Portrait Professional Studio 10.9.5 + Portable [MULTi + Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_680447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Portrait Professional Studio автономная программа и плагин к Photoshop для обработки фотопортретов от компании Anthropics Technology. В ней реализована уникальная технология, которая поволит вам быстро устранять основные недостатки лица на фотографии всего лишь за несколько кликов в полуавтоматическом режиме. Программа устраняет морщины и дефекты кожи, изменяет форму лица, превращая полные или тощие лица в более худенькие и наоборот, улучшает черты лица, делая их более правильными и привлекательными. Результаты работы в программе действительно впечатляют, особенно если учесть, что они получены за несколько минут.Название программы: Anthropics Portrait Professional StudioЯзык интерфейса: MULTi + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534902   (680104) от 09.03.2022
+
+8 марта!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_680104.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+ 
+Весна – сколько надежд, сколько мечтаний о новых чувствах, новых встречах и открытиях готовит нам это время года!
+Дорогие наши женщины, девушки и девочки! В этот светлый весенний праздник, хочется от всей души пожелать Вам самых важных и бесценных вещей: Здоровья, любви и простого человеческого счастья. Пусть дома всегда царит тепло и уют, пусть близкие и родные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290066   (679826) от 19.03.2019
+
+BELOFF 2019.3 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5A6ED511A404845D04D68DF593EDC97739524D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290234   (679825) от 19.03.2019
+
+Windows 7 SP1 х86-x64 by g0dl1ke 19.3.15 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по март 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA81843CE07750132238C071FCE8015000227FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267432   (679819) от 19.03.2019
+
+X4: Foundations (2018) [Ru/En] (2.20/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679819.jpg" />
+</div>
+
+
+###  Подробнее
+
+X4: Foundations - это космический симулятор, продолжающий знаменитую серию X3. Новая часть позволяет игрокам управлять не только космическими кораблями, но и целой империей, сражаясь, торгуя, и развивая свою территорию.Тип издания: RepackРазработчик: EgosoftЖанр: Action, Simulation, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F321D0A32FF7C5FD7F72FE3E9DA50264A900F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029635   (679756) от 27.06.2016
 
 Идеальные незнакомцы / Perfetti sconosciuti (2016) HDRip [VO]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679756.jpg" />
+  <img src="Z:/picture/008/save_picture_679756.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679731.jpg" />
+  <img src="Z:/picture/008/save_picture_679731.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ VA - Этот великолепный и незабываемый Японск�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679729.jpg" />
+  <img src="Z:/picture/008/save_picture_679729.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679035.jpg" />
+  <img src="Z:/picture/008/save_picture_679035.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678759.jpg" />
+  <img src="Z:/picture/008/save_picture_678759.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678753.jpg" />
+  <img src="Z:/picture/008/save_picture_678753.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678752.jpg" />
+  <img src="Z:/picture/008/save_picture_678752.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ Aldnoah.Zero / Aldnoah Zero / Алдноа.Зеро (ТВ-1) [2014, TV, 12 ep] B
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678743.jpg" />
+  <img src="Z:/picture/008/save_picture_678743.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ Project CARS (2015) [Ru/Multi] (1.0.1.3/u2/dlc) Repack R.G. Games
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678742.jpg" />
+  <img src="Z:/picture/008/save_picture_678742.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ Win10PE-x64-1803 xlx 01.05.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678697.jpg" />
+  <img src="Z:/picture/008/save_picture_678697.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678694.jpg" />
+  <img src="Z:/picture/008/save_picture_678694.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678685.jpg" />
+  <img src="Z:/picture/008/save_picture_678685.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ Alice: Madness Returns (RePack) [Ru] 2011 | a1chem1st
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678266.jpg" />
+  <img src="Z:/picture/005/save_picture_678266.jpg" />
 </div>
 
 
@@ -353,7 +512,7 @@ Waking Life / Пробуждение Жизни / Жизнь Наяву (2001) V
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678016.jpg" />
+  <img src="Z:/picture/005/save_picture_678016.jpg" />
 </div>
 
 
@@ -379,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677999.jpg" />
+  <img src="Z:/picture/005/save_picture_677999.jpg" />
 </div>
 
 
@@ -405,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677801.jpg" />
+  <img src="Z:/picture/005/save_picture_677801.jpg" />
 </div>
 
 
@@ -432,7 +591,7 @@ Cold Fear (2005) [Ru/Multi] (1.0.0.0) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677772.jpg" />
+  <img src="Z:/picture/008/save_picture_677772.jpg" />
 </div>
 
 
@@ -458,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677761.jpg" />
+  <img src="Z:/picture/008/save_picture_677761.jpg" />
 </div>
 
 
@@ -484,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677758.jpg" />
+  <img src="Z:/picture/008/save_picture_677758.jpg" />
 </div>
 
 
@@ -510,7 +669,7 @@ Udemy.com | IT Безопасность Для Начинающих 2.0 : Сер
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677756.jpg" />
+  <img src="Z:/picture/008/save_picture_677756.jpg" />
 </div>
 
 
@@ -523,163 +682,6 @@ Udemy.com | IT Безопасность Для Начинающих 2.0 : Сер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1BCCB06A0ED90AD4F351DEDB8EA5E57AB8A8EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631181   (677619) от 07.07.2013
-
-Злые птички / Angry Birds Toons (2013) SATRip (1 сезон, серий 16 из 52)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мульсериал студии Rovio о мегапопулярных Злых птичках. Почему эти существа настолько злые, а Свиней называют Королевскими? Ответим на все вопросы!)Жанр: Компьютерная анимация, комедия, приключенияРежиссер: Ким ХельминенПеревод: Без слов / НемойПродолжительность: 16 x ~ 00:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3416C7BB484EDE90FFA150637D3EED95C2AA1232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223211   (676870) от 03.05.2018
-
-Facebook начал ранжировать СМИ по рейтингу достоверности
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основатель Facebook Марк Цукерберг заявил, что социальная сеть начала ранжировать СМИ по рейтингу достоверности, пишет BuzzFeed.Цукерберг встретился с группой руководителей средств массовой информации после выступления на ежегодной конференции разработчиков F8. Во встрече приняли участие представители BuzzFeed News, New York Times, CNN, Wall Street Journal, NBC, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223268   (676742) от 03.05.2018
-
-Kaspersky Internet Security 2019 19.0.0.1088 (Technical Release) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Internet Security 2019 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB73C4969D0CA90C41E1571243DE24082483EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223046   (676737) от 03.05.2018
-
-Драка в блоке 99 / Brawl in Cell Block 99 (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший боксер и наркодилер Брэдли Томас пытался завязать с преступным прошлым, но оно затащило его обратно. Он с подельниками попался с поличным и отправился в тюрьму на 7 лет. И всё это так не вовремя, жена беременна долгожданной дочкой, а тут ещё на свиданку заявляется непонятный тип и, шантажируя нерожденным ребенком, велит Брэдли убить заключённого в блоке 99 (   Читать дальше...   )Производство: США / Assemble Media, Caliber Media Company, Cinestate, Realmbuilders Productio, XYZ FilmsЖанр: Боевик, триллер, криминалРежиссер: С. Крэйг ЗалерАктеры: Винс Вон, Дженнифер Карпентер, Том Гайри, Дон Джонсон, Марк Блукас, Удо Кир, Мустафа Жакир, Гено Седжерс, Роб Морган, Фред МеламедПеревод: Дублированный, авторский (Дохалов)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 02:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13665FFE6D0D368A3DADA0D064D0D542AF0C361D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849621   (676630) от 17.05.2015
-
-Посредник / The Middleman (2008) WEB-DLRip (сезон 1, серии 1-8 из 12) (ViruseProject) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художница и убеждённая пацифистка Венди Ватсон занимает важную должность в захватывающе интересном мире временных подработок - отвечает на звонки в научно-исследовательской лаборатории. Точнее, отвечала, пока на неё не напал результат вышедшего из-под контроля генетического эксперимента.
-Тут бы и сказочке конец, не разбирайся девушка в комиксах и видеоиграх, которые (   Читать дальше...   )Производство: СШАЖанр: фантастика, драма, комедия, пародияРежиссер: Джеримайя С. Чечик, Майкл Цинберг, Гай НорманАктеры: Мэтт Кислар, Грабь награбленное, Натали Моралес, Бритт Морган, Мэри Пэт Глисон, Джэйк Смоллетт, Брендан П. Хайнс, Дрю Тайлер Белл, Шон Дэвис, Элэйн Хендрикс, Марк Шеппард, Марк Дакаскос и др.Перевод: Многоголосый закадровый, профессиональный - ViruseProjectОзвучка: Елена Емельянова, Марина Видякина, Алексей Кизуб, Дмитрий Иванов, Алекс ВиккеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC7899188499A8E12FDEF5FED5E3E260402EE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898837   (676621) от 17.05.2015
-
-Autodesk AutoCAD Architecture 2016 7.8.44.0 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676621.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Architecture — это версия AutoCAD, созданная специально для проектирования строительных объектов. Инструменты архитектурного черчения позволяют более эффективно проектировать и создавать документацию в привычной программной среде AutoCAD. Рост производительности труда в AutoCAD Architecture по сравнению с традиционными САПР наблюдается уже с первой минуты, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CEC81C97C564FB0899D6C237BC3EFDC393BD5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

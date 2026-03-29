@@ -1,3 +1,136 @@
+###  Публикация: 1477901   (1010586) от 17.06.2021
+
+A Cloud Guru / LinuxAcademy | Red Hat Certified Specialist in Linux Diagnostics and Troubleshooting Exam Prep (RH342) (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс подготовит вас к экзамену Red Hat Certified Specialist in Linux Diagnostics and Troubleshooting (EX342). Вы научитесь устранять неполадки, диагностировать и разрешать (или предоставлять доказательства) проблемы, которые вызывают снижение производительности и потерю производительности. В дополнение к подготовке к экзамену этот курс подходит для тех, кто (   Читать дальше...   )Производство: A Cloud Guru / LinuxAcademyЖанр: Программирование, администрированиеЯзык озвучки: АнглийскийПродолжительность: 04:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B18D91AECDA297A897E2CC9DB11FEF3D011BD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478082   (1010553) от 17.06.2021
+
+Edston, Николай Петров | Создание чат-ботов в WhatsApp, Telegram, Viber для маркетинга и продаж (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чат-бот — это современный помощник для бизнеса, умеющий закрывать первичные этапы работы с клиентом, собирать и квалифицировать лиды, организовывать встречи, продавать, общаться с написавшим вам человеком по заранее продуманным скриптам.
+Умение настраивать чат-ботов в мессенджерах является знанием, с помощью которого можно начать свой путь во фриланс, так как практически (   Читать дальше...   )Производство: EdstonЖанр: ПрограммированиеПродолжительность: 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52651F8FBFC1399F27BDEF93E89A46A05AB77625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478317   (1010434) от 18.06.2021
+
+Udemy, Trevor Sawler | Deploying a Secure Virtual Private Server with Ubuntu 20.04 (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие разработчики обращаются к виртуальным частным серверам для размещения своих проектов, и по уважительной причине: в отличие от среды общего хостинга, вы не подвергаетесь риску того, что чей-то плохо написанный код приведет к снижению производительности или (что еще хуже) к тому, что ваш сайт станет некорректным. скомпрометирован из-за чужого небезопасного программирования. (   Читать дальше...   )Производство: UdemyЖанр: Программирование, администрированиеЯзык озвучки: АнглийскийПродолжительность: 04:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C072487B8D41D967026D4BC1FB6AAF111170D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478321   (1010428) от 18.06.2021
+
+A Cloud Guru / LinuxAcademy | LPIC-2: Linux Engineer Exam 201 [En] (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс разработан для того, чтобы охватить цели экзамена 1 уровня 2 Linux Professional Institute. По завершении этого курса и связанных с ним загружаемых материалов вы должны быть готовы успешно сдать первый экзамен по сертификации LPIC-2.
+
+По состоянию на август 2018 года этот курс был обновлен до версии 4.5 целей LPIC.Производство: A Cloud Guru / LinuxAcademyЖанр: Программирование, администрированиеЯзык озвучки: АнглийскийПродолжительность: 13:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9487D2E9B6FDE23ECE3911CE9C0749C9EECA586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478458   (1009928) от 21.06.2021
+
+Дегтярёв Александр | Crazy JavaScript Async (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это серия уроков, посвящена более глубокому изучению языка JavaScript. Где основной темой являются "асинхронное выполнение" и всё что с ними связано. Так же как и в прошлых сериях уроков, присутствует задание, которое не является обязательным для выполнения, и которое автор разбирает на последующем уроке.Жанр: Обучающее видеоПродолжительность: 02:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAB53CE3EF371F21D0A75EBC18C76D39ADB5D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479312   (1009604) от 23.06.2021
 
 Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 2] (2015-2021) PCRec
@@ -6,7 +139,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009604.jpg" />
 </div>
 
 
@@ -35,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009200.jpg" />
 </div>
 
 
@@ -64,7 +197,7 @@ RuFrame, Ленар Баширов | Командная строка Windows  (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008891.jpg" />
 </div>
 
 
@@ -93,7 +226,7 @@ Udemy, Исмаил Усеинов | jQuery для начинающих (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008795.jpg" />
 </div>
 
 
@@ -120,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008777.jpg" />
 </div>
 
 
@@ -149,7 +282,7 @@ fullstack.io, Rob Kendal | Real World React: Руководство для на�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008422.jpg" />
 </div>
 
 
@@ -176,7 +309,7 @@ JavaScript.Ninja | Мастер-класс: ﻿тестирование Vue-пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008394.jpg" />
 </div>
 
 
@@ -202,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008377.jpg" />
 </div>
 
 
@@ -231,7 +364,7 @@ Skillbox, Сергей Корниенко и др. | Веб-вёрстка (2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008371.jpg" />
 </div>
 
 
@@ -260,7 +393,7 @@ A Cloud Guru / LinuxAcademy | Introduction to LVM (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008278.jpg" />
 </div>
 
 
@@ -286,7 +419,7 @@ Academind Pro, Maximilian Schwarzmüller | Начало работы с Golang /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008215.jpg" />
 </div>
 
 
@@ -313,7 +446,7 @@ A Cloud Guru / LinuxAcademy | Kali Linux Deep Dive (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008212.jpg" />
 </div>
 
 
@@ -339,7 +472,7 @@ Udemy, Prateek Narang и др. | Graph Theory Algorithms for Competitive Program
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008129.jpg" />
 </div>
 
 
@@ -366,7 +499,7 @@ Udemy, Catalin Stefan | Complete Kotlin development masterclass (2021) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008094.jpg" />
 </div>
 
 
@@ -394,7 +527,7 @@ Udemy, Cristian Calinescu | Windows Server 2019 Hyper-V, Storage, Clustering and
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007826.jpg" />
 </div>
 
 
@@ -420,7 +553,7 @@ Udemy, Sergey Shmatovskiy | Laravel 8 (PHP). Выполнение реально
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007507.jpg" />
 </div>
 
 
@@ -446,7 +579,7 @@ Udemy, Josh Werner, Learn Tech Plus | Front End Web Development Ultimate Course 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007374.jpg" />
 </div>
 
 
@@ -475,7 +608,7 @@ Skillbox, Александр Кузнецов  и др. | JavaScript-фрейм�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007205.jpg" />
 </div>
 
 
@@ -504,7 +637,7 @@ Coding With Mitch, Mitch Tabian | Kotlin Multiplatform Mobile  (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006958.jpg" />
 </div>
 
 
@@ -533,7 +666,7 @@ Udemy, Trevor Sawler | Building Modern Web Applications with Go (Golang)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006814.jpg" />
 </div>
 
 
@@ -560,7 +693,7 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006723.jpg" />
 </div>
 
 
@@ -573,144 +706,6 @@ Udemy, Data Is Good Academy | Data Analysis Masterclass (4 courses in 1)  (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2DE7F370BA990CE23F4C7D0CA0CC98117913C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483515   (1006687) от 14.07.2021
-
-software-testing.ru, О. Назина | Автоматизация тестов для REST API при помощи Postman (2021) PCRec [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006687.jpg" />
-</div>
-
-
-###  Подробнее
-
-а курсе мы будем писать автотесты для API-методов в программе Postman. Мы пройдем полный цикл — от первого автотеста до настройки CI (Continuous Integration). От Math.random до циклов и условий. От простого include до регулярных выражений. Это курс вам подойдет, если:
-Вы не умеете автоматизировать — Postman дает отличный и простой старт.
-Вы тестируете API черным (   Читать дальше...   )Производство: software-testing.ruЖанр: ТестированиеПродолжительность: 38:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A9152A030EA2BE5B628C42CB5250639F78BE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483754   (1006593) от 15.07.2021
-
-Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Python  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не клон Netflix и даже не близко. Почему? Netflix - это сложная инженерная система, которую ни один класс никогда не сможет полностью охватить. Если бы я сказал вам, что вы можете создать клон Netflix менее чем за 40 часов, я бы солгал вам.
-Напротив, это основа того, чем может быть сервис, подобный Netflix. Этот фундамент имеет значение только потому, что он (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 09:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1E59BEEDC62554DE2810A2595281BC6CD4EE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483735   (1006561) от 15.07.2021
-
-Udemy, Артем Баданов| Изучение Java с нуля (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чему Вы научитесь на курсе?
-- Научитесь писать полноценные программы на языке Java
-- Освоите базовые конструкции языка Java
-- Научитесь комментировать свой код и писать его в хорошем стиле(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 05:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F6D156B0D98B6745AD8F6CE6E64595BB78F754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483882   (1006495) от 16.07.2021
-
-Udemy, Marek Gryszkiewicz | WebRTC 2021 Practical Course. Create Video Chat Application  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите WebRTC, создав проект на ванильном JavaScript. Требуются только базовые знания JavaScript. Мы рассмотрим все шаги по созданию приложения с прямыми вызовами, в котором вы можете установить соединение между двумя пользователями, передав его личный код, или вы можете просто связаться с незнакомцем, как в веб-приложениях omegle или talkwithstranger. Мы напишем (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D98811F012A14C3C931530A00AF80AFB7BB7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484439   (1006129) от 19.07.2021
-
-Udemy, Codestars by Rob Percival, Atil Samancioglu |The Complete Quantum Computing Course (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Codestars by Rob Percival, Atil Samancioglu
-Добро пожаловать на полный курс квантовых вычислений!
-Ожидается, что в ближайшие годы квантовые компьютеры радикально изменят нашу жизнь. Мы знаем, что можем решать конкретные задачи за считанные минуты на квантовых компьютерах, в то время как мы можем решать их за тысячи лет на классических компьютерах. Если вы хотите (   Читать дальше...   )Производство: UdemyЖанр: Квантовая механикаЯзык озвучки: АнглийскийПродолжительность: 15:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FB2E65973887499FF9CAEBF1AA42EB291E3DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

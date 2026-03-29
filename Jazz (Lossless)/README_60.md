@@ -1,3 +1,119 @@
+###  Публикация: 1116073   (825068) от 19.03.2017
+
+Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Barbados [04:06]
+ 02.All The Things You Are [07:28]
+ 03.The More I See You [04:07]
+ 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116083   (824875) от 19.03.2017
+
+The Louis Armstrong - Collection (1920-e - 1960-e) 4CD, 1991, Tring [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Mame [02:25]
+02.Stompin At The Savoy [01:51]
+03.I Got Rhythm [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Swing, DixielandПродолжительность: 03:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31129E4D890CBD3524D7A9230E74BC287755EADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116078   (824871) от 19.03.2017
+
+Oscar Peterson - 5 Original Albums (1955, 1959, 1962) 5CD, Remaster, Universal, 2016 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824871.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Oscar Peterson Plays Count Basie:
+01.Lester Leaps In [03:59]
+02.Easy Does It [06:29]
+03.9:20 Special [03:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F819CB66775E0F728A3ADCB51B21802A876FC81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381746   (824817) от 08.05.2020
+
+Mildred Bailey - In Love: 1930-e - 1940-e (1998) Simitar [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Like Being in Love [3:08]
+02. I'll Close My Eyes [3:07]
+03. At Sundown [3:24]
+04. Me and the Blues [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E91A0EB78E14B2A8D7B749D26CD2D2E721EC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381762   (824816) от 08.05.2020
 
 Michel Pastre Quartet - Free Swing (2006) Djaz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -6,7 +122,7 @@ Michel Pastre Quartet - Free Swing (2006) Djaz Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824816.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dakota Staton - Dynamic! 1958 (2006) Capitol Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824815.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nathalie Soles - Deeper (2007) Milan [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824813.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Richard Galliano - New Jazz Musette (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824779.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Elvin Jones - Coalition (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823647.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Milt Jackson - The Ballad Artistry of Milt Jackson (1959) Remaster, 2012, Warner
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823643.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Milt Jackson - Bags & Flutes (1957) Remaster, 2012, Warner[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823640.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Louis Armstrong - Louis Armstrong (1987) Series Compact Jazz, Compilation [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823562.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Les McCann & Eddie Harris - Swiss Movement (1969) 1990, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823166.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bill Evans - Blue In Green: The Best Of The Early Years (1955 - 1960) 10CD, 2020
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823163.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Von Freeman - The Improvisor (2002) Premonition Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823107.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dakota Staton - Dakota, Dakota Staton Sings Ballads And The Blues 1960 (2012) Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822779.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Mildred Bailey - Rockin' Chair: The Legendary V-Disc Sessions 1937 (1990) Vintag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822776.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Aging - Sentenced To Love (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822769.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Yojo - The Stepson (2020) [FLAC|Lossless|Web-DL|tracks] <Post Dark Jazz, Post Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822768.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - All That Jazz Is Back (1999) Original Jazz Classics [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822749.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Low Kick Collective - Exhale (Выдох) (2019) [FLAC|Lossless|Web-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822662.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Billy Harper - Trying to Make Heaven My Home (1979) 1991, MPS Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822561.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Billy Harper - The Awakening (1979) 2013, Marge [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822559.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Harold Ashby Quartet - What Am I Here For? (1990) 1992, Criss Cross Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822557.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822556.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Tru
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822543.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Tru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586144EE3BA03681B9634E15A1CF4B277EAF92FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166028   (822435) от 17.10.2021
-
-Acoustic Alchemy - Discography (1987 - 2007) 17CD [WavPack|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гитаристы Ник Вебб и Грег Кармайкл в 80-х и 90-х годах прошлого столетия под вывеской "Acoustic Alchemy" произвели на свет серию интересных альбомов, классифицируемых на Западе как "adult contemporary music". На самом деле в музыке "алхимиков" всегда присутствовала смесь различных стилей: джаз, фолк, поп, латино, нью-эйдж, соул и т. (   Читать дальше...   )Список альбомов:
-Red Dust & Spanish Lace (1987)
-Natural Elements (1988)
-Blue Chip (1989)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 14:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DA281661A152440309F1525A796890304C9C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196614   (822406) от 03.01.2018
-
-Brenda Layne - Torch (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kindred Spirits
-02. Breakthrough to the Temperate Zone
-03. Lucky Charm
-04. Solo Act(   Читать дальше...   )Жанр: JazzПродолжительность: 00:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D1A592F360026E0950CEE4BCB5E930F069079C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196810   (821758) от 30.04.2010
-
-VA - 100% Jazz Hits volume 1 (2001) [FLAC|tracks]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Prima & His Band - I Wanna Be Like You  (4:22)
-02. Louis Armstrong - Cabaret  (2:43)
-03. Ella Fitzgerald - Mack The Knife (Live)  (5:04)
-04. Nina Simone - My Baby Just Cares For Me  (3:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007522   (821694) от 15.04.2016
-
-The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Can't Get Started [05:40]
- 02.Cooking The Blues [07:02]
- 03.Stardust [06:09]
- 04.How About You [06:52](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF2798782F6243E0C4FBAA25FFF641498CADF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060040.jpg" />
+  <img src="Z:/picture/005/save_picture_1060040.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058980.jpg" />
+  <img src="Z:/picture/005/save_picture_1058980.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055677.jpg" />
+  <img src="Z:/picture/005/save_picture_1055677.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Sessio
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045374.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044946.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035730.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034891.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033392.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Los
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032492.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031331.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030276.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030211.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029523.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, No
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027705.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026576.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Loss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024572.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanov
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021783.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012498.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011359.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007872.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007170.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007159.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006504.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, P
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003860.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994701.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990691.jpg" />
 </div>
 
 

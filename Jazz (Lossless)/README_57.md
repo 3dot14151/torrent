@@ -1,3 +1,119 @@
+###  Публикация: 1379632   (837676) от 30.04.2020
+
+Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-Barcelona (2013) Swit Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exactly Like You [4:24]
+02. Meditacao [6:45]
+03. I Fall in Love Too Easily [6:36]
+04. Sun Showers [4:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F437112D6BEEA5CBE1D2C285218C39024C4A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004845   (836974) от 07.04.2016
+
+Bobby Hutcherson - Now! (1969) Remaster, 2004, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slow Change [07:18]
+ 02.Hello To The Wind [06:00]
+ 03.Now [02:47]
+ 04.The Creators [12:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EB952EC132FEE323B9B8B522F8E48C1E845E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004818   (836973) от 07.04.2016
+
+The Phil Woods Six - Live From The Showboat (1976) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836973.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.A Sleepin' Bee [07:39]
+02.Rain Danse [08:21]
+03.Bye Bye Baby [07:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF35BAFCA1EBF401A2CE65CDCF2ED2EA526FDA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004810   (836963) от 07.04.2016
+
+Peggy Lee with George Shearing - Beauty and the Beat! (1959) 2000, Capitol[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Do I Love You? [03:54]
+ 02.I Lost My Sugar In Salt Lake City [02:50]
+ 03.If Dreams Come True [02:52]
+ 04.All Too Soon [03:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F777BE6791C97E970D0477B4323598AC107C0A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113622   (836826) от 12.03.2017
 
 Chico Freeman - Tangents (1984) 2008, Wounded Bird [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -6,7 +122,7 @@ Chico Freeman - Tangents (1984) 2008, Wounded Bird [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836826.jpg" />
+  <img src="Z:/picture/008/save_picture_836826.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Benny Carter meet Marian McPartland (1990) 1999, Галактис [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836822.jpg" />
+  <img src="Z:/picture/008/save_picture_836822.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ David Sanchez - Carib (2019) Ropeadope [FLAC|Lossless|tracks + .cue] <Latin Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836686.jpg" />
+  <img src="Z:/picture/008/save_picture_836686.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Cedar Walton - Mobius (1975) 2017, Sony Music [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836679.jpg" />
+  <img src="Z:/picture/008/save_picture_836679.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charles Mingus - The Clown (1957) 2004, Atlantic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836676.jpg" />
+  <img src="Z:/picture/008/save_picture_836676.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Freddie Hubbard - Back To Birdland (1982) 1994, Drive Archive [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835345.jpg" />
+  <img src="Z:/picture/008/save_picture_835345.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Trisha O'Brien - Out Of A Dream (2010) Azica [FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835344.jpg" />
+  <img src="Z:/picture/008/save_picture_835344.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dayme Arocena - Cubafonia (2017) Beat Records [FLAC|Lossless|tracks + .cue] <Afr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835342.jpg" />
+  <img src="Z:/picture/008/save_picture_835342.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pete Johnson - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Boogie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835311.jpg" />
+  <img src="Z:/picture/008/save_picture_835311.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The John Wright Trio - South Side Soul (1960) 1990, Original Jazz Classics [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835309.jpg" />
+  <img src="Z:/picture/009/save_picture_835309.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Nat Adderley - Autobiography (1964-1965) Remaster, 2012, Warner[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834842.jpg" />
+  <img src="Z:/picture/008/save_picture_834842.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Joachim Kuhn New Trio - Beauty & Truth (2016) ACT[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834839.jpg" />
+  <img src="Z:/picture/008/save_picture_834839.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Stanley Turrentine - Always Something There (1968) Remaster, 2014, Universal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834833.jpg" />
+  <img src="Z:/picture/008/save_picture_834833.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Charlie Haden & Gonzalo Rubalcaba - Tokyo Adagio (2005) 2015, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834828.jpg" />
+  <img src="Z:/picture/008/save_picture_834828.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chucho Valdes - Tribute To Irakere (2015) Jazz Village: Live In Marciac[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834719.jpg" />
+  <img src="Z:/picture/008/save_picture_834719.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Omer Avital - Abutbul Music (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834718.jpg" />
+  <img src="Z:/picture/008/save_picture_834718.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tord Gustavsen - What Was Said (2016) [FLAC|Lossless|tracks + .cue] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834572.jpg" />
+  <img src="Z:/picture/008/save_picture_834572.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Claude Bolling - Jazzgang Amadeus Mozart (1965) 2007, Philips [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833606.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Lisa Ekdahl - Nar alla vagar leder hem (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833605.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833323.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - NOW Jazz Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833316.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832838.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC387E6AE7E11FCC52F24A9AF875566E7B5750F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005551   (832708) от 09.04.2016
-
-Paolo Fresu, Richard Galliano & Jan Lundgren - Mare Nostrum II (2016) ACT Music[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Apnea [05:04]
- 02.Blue Silence [05:10]
- 03.Aurore [03:58]
- 04.Kristallen Den Fina [03:52](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2300C78785A9480462B40F2345E88A184E871B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005596   (832561) от 09.04.2016
-
-Jane Monheit - The Songbook Sessions Ella Fitzgerald (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Too Soon
-02. Somebody Loves Me
-03. Chelsea Mood
-04. Something's Gotta Give(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D02614027612DFE82DFE4B987B4F0E52733E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005549   (832546) от 09.04.2016
-
-Rodney Jones & Tommy Flanagan Quartet - My Funny Valentine (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Giant Steps [04:31]
- 02.Oleo [03:36]
- 03.I'll Remember April [07:20]
- 04.Yesterday [01:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57B2273358E81DAA10EFF4E3C099C4478D290E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380678   (831459) от 04.05.2020
-
-Paul Hardcastle - 19 Below Zero (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rainman Reprise (4:27)
- 02. 1000 Miles from Nowhere (6:13)
- 03. Don't You Know (5:36)
- 04. Return Of The Rainman (8:52)(   Читать дальше...   )Жанр: Electronic, Lounge, Smooth JazzПродолжительность: 02:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537DC803B08ED4725843EBABFE89663C22791941
 ```
 
 https://mybot314.ru/tekegram_catalog/

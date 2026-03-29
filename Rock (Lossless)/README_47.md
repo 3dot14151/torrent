@@ -1,3 +1,148 @@
+###  Публикация: 1206061   (782920) от 12.02.2018
+
+VA - Rockabilly Girl (2001) [FLAC|Lossless|tracks] <Rockabilly, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jive Pipes - Glendorah (2:22)
+02. 15 Megatones - Hot Stuff (2:42)
+03. Diamond Rakes - Fantoman (1:41)
+04. Jailbreakers - Dixie (2:47)(   Читать дальше...   )Жанр: Rock, RockabillyПродолжительность: 01:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4B15E27FF733F6A6C6A39E9747EA33FC30FCD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206072   (782895) от 12.02.2018
+
+Pink Floyd - The Dark Side Of The Moon (1973) Unofficial Release, Remastered, 1994, EMI [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak To Me -  Breathe (3:57)
+02. On The Run (3:34)
+03. Time (7:06)
+04. The Great Gig In The Sky (4:47)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB8265DC8CD5D521C2CB3F5F02EF1409826790F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390687   (782728) от 16.06.2020
+
+Captain Beefheart & His Magic Band - Trout Mask Replica (1969) [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frownland (1:41)
+02. The Dust Blows Forward 'N The Dust Blows Back (1:53)
+03. Dachau Blues (2:22)
+04. Ella Guru (2:27)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, ExperimentalПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC710A2E44F0FBB66F5EBABAB6AFD1EACE37E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390691   (782696) от 16.06.2020
+
+Crosby, Stills & Nash - Crosby, Stills & Nash (1969) Limited Edition 2011 [FLAC|Lossless|tracks + .cue] <Classic Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suite: Judy Blue Eyes (7:25)
+02. Marrakesh Express (2:38)
+03. Guinnevere (4:39)
+04. You Don't Have To Cry (2:44)(   Читать дальше...   )Жанр: Classic Rock, Folk RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C2B8850AF879664766B18C254C2304EBB5F087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390867   (782265) от 17.06.2020
+
+Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
+02. When You Love (5:15)
+03. Where You Love (6:07)
+04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390840   (782249) от 17.06.2020
 
 David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .cue] <Rock>
@@ -6,7 +151,7 @@ David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782249.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Janis Joplin - Janis (1962-1970) 3CD Boxset, 1993, Compilation [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782239.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Pink Floyd - Animals (1977) Unofficial Release, Reissue, 1986, Harvest [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781671.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Neil Young - Homegrown (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Singer-S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781441.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Bob Dylan - Rough and Rowdy Ways (2020) [FLAC|Lossless|tracks] <Rock, Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781421.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Bob Dylan - Rough and Rowdy Ways (2020) 2CD [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781023.jpg" />
+  <img src="Z:/picture/008/save_picture_781023.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Straight Lines - Straight Lines (1980) Reissue, 2017, Epic [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780295.jpg" />
+  <img src="Z:/picture/008/save_picture_780295.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ VA - 100 Hits: The Best Rock and Power Ballads Album (2017) 5CD, Box Set [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779564.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Memories Of Machines - Warm Winter (2011) [FLAC|Lossless|tracks + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779005.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ CCS (Collective Consciousness Society) - Discography: 4 albums, 5 CD (1970-2013)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778515.jpg" />
 </div>
 
 
@@ -290,7 +435,7 @@ Mattias Ia Eklundh - Freak Guitar (1999) [APE|Lossless|image + .cue] <Rock, Guit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778368.jpg" />
 </div>
 
 
@@ -319,7 +464,7 @@ Dizzy Mizz Lizzy - Forward In Reverse (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777955.jpg" />
 </div>
 
 
@@ -348,7 +493,7 @@ Blackfield (Steven Wilson project) - 4 Studio+1 Live Albums (2004 - 2013) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777103.jpg" />
+  <img src="Z:/picture/008/save_picture_777103.jpg" />
 </div>
 
 
@@ -377,7 +522,7 @@ Detlev Schmidtchen (ex.Eloy) - Last Planet I-III (2013) 3CD Box Set [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776480.jpg" />
+  <img src="Z:/picture/008/save_picture_776480.jpg" />
 </div>
 
 
@@ -406,7 +551,7 @@ Jethro Tull - Heavy Horses (New Shoes Edition) (2018) 3CD/2DVD Box-Set, 40th Ann
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776417.jpg" />
+  <img src="Z:/picture/008/save_picture_776417.jpg" />
 </div>
 
 
@@ -432,7 +577,7 @@ King Crimson - Rehearsals & Blows (2016) (May-November 1983)[FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776413.jpg" />
+  <img src="Z:/picture/008/save_picture_776413.jpg" />
 </div>
 
 
@@ -461,7 +606,7 @@ Wet Willie - Wet Willie (1971) Remaster, 2015, Capricorn Records [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776174.jpg" />
+  <img src="Z:/picture/008/save_picture_776174.jpg" />
 </div>
 
 
@@ -490,7 +635,7 @@ Aunt Mary - NewDawn (2016) [FLAC|Lossless|tracks] <Rock, Classical Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776169.jpg" />
+  <img src="Z:/picture/008/save_picture_776169.jpg" />
 </div>
 
 
@@ -519,7 +664,7 @@ Riverside - Reality Dream Trilogy (2011) 6CD Box-Set [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775813.jpg" />
+  <img src="Z:/picture/008/save_picture_775813.jpg" />
 </div>
 
 
@@ -548,7 +693,7 @@ Kansas - The Classic Albums Collection 1974-1983 (11CD Box Set) (2011) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775642.jpg" />
+  <img src="Z:/picture/008/save_picture_775642.jpg" />
 </div>
 
 
@@ -577,7 +722,7 @@ Iron Butterfly - 10 альбомов (1968-1993) Различные издани
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775329.jpg" />
+  <img src="Z:/picture/008/save_picture_775329.jpg" />
 </div>
 
 
@@ -592,151 +737,6 @@ Iron Butterfly - 10 альбомов (1968-1993) Различные издани
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015024   (775069) от 10.05.2016
-
-Jоhn Illslеу - Теsting Тhе Wаtеr (2014) [FLAC|Lossless|tracks] <Rock, Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Railway Tracks    04:59
-02. Nothing To Do    04:24
-03. Testing The Water    05:10
-04. Sometimes    03:47(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80075FFEA4EE27BA2576B23980F4D0FFA1B189E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277711   (775000) от 22.01.2019
-
-Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эпоха Большой Нелюбви
-2. Я Рисую Тебя
-3. Она Идет По Жизни Смеясь
-4. Паузы(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF91F5CA1A73B33A19A424513DF59AA9C0E6631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015109   (774932) от 10.05.2016
-
-Joe Cocker - No Ordinary World (1999) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First We Take Manhattan
-02. Different Roads
-03. My Father’s Son
-04. While You See a Chance(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06996C3BA305FF7253FE8754A3F900A44F43DE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277543   (774304) от 23.01.2019
-
-The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Devils (3:53)
-02.Feel Berlin (4:10)
-03.Nothing On You (4:11)
-04.Sister Of Charity (5:05)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780A090C343289371BE43B98370B74FEE23444F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015622   (773937) от 11.05.2016
-
-Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Gold Collection [FLAC|Lossless|image + .cue]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk On The Water 04:28
-02. Susie Q (Part II) 03:48
-03. Born On The Bayou 05:10
-04. Good Golly Miss Molly 02:38(   Читать дальше...   )Жанр: Classic RockПродолжительность: 04:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E13511EA4012375EF5356658F99824D30EF8590
 ```
 
 https://mybot314.ru/tekegram_catalog/

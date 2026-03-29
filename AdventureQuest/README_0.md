@@ -1,3 +1,81 @@
+###  Публикация: 1857135   (1059336) от 04.03.2026
+
+Dofamine (2020) [Ru/Multi] (1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игроку предстоит пройти по лабиринту загадок, связанных с расследованием катастрофического события в научном комплексе, где ставились эксперименты по управлению «частицей Бога», бозоном Хиггса. Игры в научное познание сродни играм в детектива. Выявлять скрытые связи, неочевидные закономерности – всё равно что распутывать паутину смыслов, изучать причины и прогнозировать (   Читать дальше...   )Тип издания: LicenseРазработчик: Whale Rock GamesЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF23CC5153EE44205ED4EEF44500FDAA4A9C6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856578   (1059062) от 01.03.2026
+
+Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем.Тип издания: LicenseРазработчик: Rockstar NorthЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D56E699FB1CEA1927E89B04705F68B0AEB991B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854877   (1057698) от 20.02.2026
+
+Q.U.B.E. 2 (2018) [Ru/Multi] (2.0.38/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Q.U.B.E. 2 погружает вас в полуразрушенный инопланетный мир, и в роли археолога Амелии Кросс вам предстоит изменять окружающее пространство и работать сообща с другим выжившим, чтобы отыскать путь домой. По ходу решения головоломок, встречающихся на пути, вам предстоит узнать невероятную правду о своём истинном предназначении и об истоках мира, в котором вы очутились (   Читать дальше...   )Тип издания: RepackРазработчик: Toxic GamesЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6234142CE4509B49A9E10D32A298D4845D9815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854960   (1057611) от 20.02.2026
 
 Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2) Repack Let'sРlay
@@ -6,7 +84,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057611.jpg" />
+  <img src="Z:/picture/005/save_picture_1057611.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057531.jpg" />
+  <img src="Z:/picture/005/save_picture_1057531.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057464.jpg" />
+  <img src="Z:/picture/005/save_picture_1057464.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057011.jpg" />
+  <img src="Z:/picture/005/save_picture_1057011.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057001.jpg" />
+  <img src="Z:/picture/005/save_picture_1057001.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055421.jpg" />
+  <img src="Z:/picture/005/save_picture_1055421.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055275.jpg" />
+  <img src="Z:/picture/005/save_picture_1055275.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055232.jpg" />
+  <img src="Z:/picture/005/save_picture_1055232.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055142.jpg" />
+  <img src="Z:/picture/005/save_picture_1055142.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bye Sweet Carole (2025) [Multi] (1.0.11) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055102.jpg" />
+  <img src="Z:/picture/005/save_picture_1055102.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055012.jpg" />
+  <img src="Z:/picture/005/save_picture_1055012.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054853.jpg" />
+  <img src="Z:/picture/005/save_picture_1054853.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054500.jpg" />
+  <img src="Z:/picture/005/save_picture_1054500.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (Build 18042732/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054108.jpg" />
+  <img src="Z:/picture/005/save_picture_1054108.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Book of Outcasts (2025) [Ru/Multi] (Build 21576001/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054079.jpg" />
+  <img src="Z:/picture/005/save_picture_1054079.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053992.jpg" />
+  <img src="Z:/picture/005/save_picture_1053992.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053991.jpg" />
+  <img src="Z:/picture/005/save_picture_1053991.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Caravan SandWitch (2024) [Ru/Multi] (1.13.72.2/dlc) Repack Other s [Digital Coll
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053745.jpg" />
+  <img src="Z:/picture/005/save_picture_1053745.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053470.jpg" />
+  <img src="Z:/picture/005/save_picture_1053470.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053285.jpg" />
+  <img src="Z:/picture/005/save_picture_1053285.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Emerald Valley (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053188.jpg" />
+  <img src="Z:/picture/005/save_picture_1053188.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053187.jpg" />
+  <img src="Z:/picture/005/save_picture_1053187.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053067.jpg" />
+  <img src="Z:/picture/005/save_picture_1053067.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E5FFA585FB8E101815D05447852A5E6950D011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848500   (1052659) от 17.01.2026
-
-Письма войны / Letters of War (2025) [Ru/Multi] (1.3.5) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Письма войны - приключенческая драмa, вдохновлённая реальной историей и являющаяся духовной наследницей Valiant Hearts: The Great War. Помогите британскому плотнику не потерять связь с дочерью во время Второй мировой. Свяжите их судьбы с помощью писем.Тип издания: RepackРазработчик: Wood Cabin GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0779BBD2EA0B5551A1A9506992A838C1A57D8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847623   (1052280) от 13.01.2026
-
-Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1937-й. Антарктика. Нацисты, всегда стремившиеся отыскать доказательства своего высокого происхождения, находят что-то действительно пугающее. В нескольких ящиках на их секретной базе хранятся замороженные существа... Однако, норвежский антрополог Хемсон с помощью британской подлодки крадёт три загадочных ящика. Их атакует германский самолёт, и, прежде, чем его (   Читать дальше...   )Тип издания: LicenseРазработчик: Chaosium, InfogramesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847371   (1052072) от 11.01.2026
-
-Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Keeper от Ли Петти и Double Fine Productions - это красивое приключение за гранью реальности, рассказанное без слов. Где-то посреди затерянного моря стоит остров, на котором в тени далекой горы дремлет забытый маяк. Но когда увядающие лозы разрастаются и обретают форму, он пробуждается, чувствуя, что его что-то гонит вперед. Так начинается история о необычной (   Читать дальше...   )Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7F9750BC01BD6E4BCF39F2A48AC237F46E4FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

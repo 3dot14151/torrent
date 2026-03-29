@@ -1,3 +1,29 @@
+###  Публикация: 1625617   (196504) от 26.06.2023
+
+Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansion | Невеста герцога по расчёту [2023, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная девушка из Кореи Ынха Пак (Ринко в японской версии) умирает и обнаруживает себя в теле Раэлианы Макмиллан, старшей дочери барона-нувориша, а окружающий мир и происходящие вокруг события будто прямиком из книги, которую она когда-то читала. И Раэлиана тут далеко не главная героиня, она всего лишь сюжетный ход, с её убийства начинается основная история. Новоиспечённая (   Читать дальше...   )Производство: Студия Typhoon Graphics / 颱風グラフィックスЖанр: романтика, фэнтезиРежиссер: Ямамото ДзюнъитиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA1403F50BE5F6DBDB61F9CE24A76E5A62E01ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626304   (196406) от 30.06.2023
 
 Idolmaster: Cinderella Girls - U149 / Идолмастер: Золушки - U149 [2023, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Idolmaster: Cinderella Girls - U149 / Идолмастер: Золушки - U14
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196406.jpg" />
+  <img src="Z:/picture/004/save_picture_196406.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tengoku Daimakyou | Heavenly Delusion | Великая небесная стен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196293.jpg" />
+  <img src="Z:/picture/004/save_picture_196293.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы [2023, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196256.jpg" />
+  <img src="Z:/picture/004/save_picture_196256.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [2023, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196245.jpg" />
+  <img src="Z:/picture/004/save_picture_196245.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196231.jpg" />
+  <img src="Z:/picture/004/save_picture_196231.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Oshi no Ko | Звёздное дитя [2023, TV, 11 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196108.jpg" />
+  <img src="Z:/picture/004/save_picture_196108.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196054.jpg" />
+  <img src="Z:/picture/004/save_picture_196054.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Okashi na Tensei | Sweet Reincarnation | Сладкое перевоплощен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189926.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ayaka | Ayaka: A Story of Bonds and Wounds | Аяка [2023, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188165.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Liar Liar / Лжец Лжец [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188152.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Ryza no Atelier: Tokoyami no Joou to Himitsu no Kakurega / Ателье Райз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188136.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Genjitsu no Yohane: Sunshine in the Mirror / Yohane the Parhelion: Sunshine in t
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187850.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Mononogatari (2023) | Malevolent Spirits (2023) | Истории нечисти 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187592.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187591.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186937.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186508.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Sugar Apple Fairy Tale (2023) | Сказка о сахарном яблоке [�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186344.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186342.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | Великий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186337.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Tenpuru / Temple / Храм [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186326.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186167.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186165.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186163.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186159.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186155.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02AFC2D32D4D276AE3CAD95D30FFACE9EE5E03A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603704   (185603) от 25.09.2023
-
-Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мацури Кадзамаки, ниндзя-экзорцист, занимающийся изгнанием злых аякаси, и Сузу Канаде — друзья детства, поступающие в старшую школу. Сузу не подозревает, что является медиумом и из-за этого привлекает не только безобидных, но и злых аякаси. Мацури втайне защищает свою подругу и изгоняет злых аякаси. Но Сузу узнаёт о своей способности, когда на неё нападает король (   Читать дальше...   )Жанр: комедия, романтика, сверхъестественное, этти.Режиссер: Акитая НориакиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39DB1EE8B52865395C552AEB30A796FAD55E468
 ```
 
 https://mybot314.ru/tekegram_catalog/

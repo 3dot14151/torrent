@@ -1,3 +1,31 @@
+###  Публикация: 549714   (462024) от 20.09.2012
+
+[Программа](Android 2.3+) Sony Ericsson Home  - v.2.0.A.0.22 - мобильный лаунчер
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sony Ericsson Home  красивый и быстрый мобильный лаунчер, любезно предоставленный из нового Sony Ericsson Xperia active!
+
+Рабочий стол схож с тем, что был в предыдущих моделях, но все же есть некоторые отличия. На главном экране , по углам , помещаются полезные приложения для их быстрого запуска . В меню можно напрямую удалить приложение с помощью кнопки в правом нижнем углу. Простой, удобный и ничего лишнего.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568491   (461813) от 08.08.2022
 
 BimmerCode for BMW and MINI 4.8.1-10445 Mod by derrin [Multi]
@@ -6,7 +34,7 @@ BimmerCode for BMW and MINI 4.8.1-10445 Mod by derrin [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461813.jpg" />
+  <img src="Z:/picture/008/save_picture_461813.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ MyMovie - Видеоредактор 11.5.3 Mod by Apps Store [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461809.jpg" />
+  <img src="Z:/picture/008/save_picture_461809.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ App Backup & Restore 4.0.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461581.jpg" />
+  <img src="Z:/picture/008/save_picture_461581.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Root Explorer 3.3.6 [Rus/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461577.jpg" />
+  <img src="Z:/picture/008/save_picture_461577.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Morning Routine - Alarm Clock 3.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459709.jpg" />
+  <img src="Z:/picture/008/save_picture_459709.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459498.jpg" />
+  <img src="Z:/picture/008/save_picture_459498.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459489.jpg" />
+  <img src="Z:/picture/008/save_picture_459489.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459254.jpg" />
+  <img src="Z:/picture/008/save_picture_459254.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ Garmin: Дороги России Топо 6.28 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458692.jpg" />
+  <img src="Z:/picture/008/save_picture_458692.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457352.jpg" />
+  <img src="Z:/picture/008/save_picture_457352.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457164.jpg" />
+  <img src="Z:/picture/008/save_picture_457164.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456855.jpg" />
+  <img src="Z:/picture/008/save_picture_456855.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ Men Picture Frames  v5.2 Ad-Free + Mod [Ru/Multi] - Мужские рамки д
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456828.jpg" />
+  <img src="Z:/picture/008/save_picture_456828.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ MyFitnessPal: Счетчик калорий 22.15.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455683.jpg" />
+  <img src="Z:/picture/008/save_picture_455683.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ Flowx: Weather Map Forecast 3.376 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455558.jpg" />
+  <img src="Z:/picture/008/save_picture_455558.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455465.jpg" />
+  <img src="Z:/picture/008/save_picture_455465.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ Chick-Boom! v0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455424.jpg" />
+  <img src="Z:/picture/008/save_picture_455424.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454886.jpg" />
+  <img src="Z:/picture/008/save_picture_454886.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454884.jpg" />
+  <img src="Z:/picture/008/save_picture_454884.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454774.jpg" />
+  <img src="Z:/picture/008/save_picture_454774.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454664.jpg" />
+  <img src="Z:/picture/008/save_picture_454664.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454657.jpg" />
+  <img src="Z:/picture/008/save_picture_454657.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454329.jpg" />
+  <img src="Z:/picture/008/save_picture_454329.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ MyBible - Библия 5.4.2 Mod by Infiltrovat' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453341.jpg" />
+  <img src="Z:/picture/008/save_picture_453341.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_452800.jpg" />
+  <img src="Z:/picture/005/save_picture_452800.jpg" />
 </div>
 
 
@@ -654,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162714   (452270) от 04.09.2017
-
-Cheats v48.2 [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете чит-коды для вашей любимой игры? Вы нашли ответ! Oiynsoft Cheats — это огромнейшая база чит-кодов для игр различных платформ. На данный момент в программе содержатся чит-коды для более 7500 игр 13 платформ на русском и английском языках. Поддерживаются следующие платформы: мобильные (Android, iOS, Java), серии консолей Xbox и PlayStation, а также PC, N-Gage (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 09.06.2017Разработчик: OiynsoftПоддерживаемая ОС: Android 4.0.3 или более поздняяЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52EF7CC23AA03B907D94C297DD38984FFD203D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

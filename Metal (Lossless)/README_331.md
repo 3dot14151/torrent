@@ -1,3 +1,90 @@
+###  Публикация: 1709338   (112814) от 24.03.2024
+
+Mindwork - Eterea (2012) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Eterea
+02. Perceiving The Reality
+03. The Stream Of Causality
+04. Mind Renewal(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBFC5D9904FB813DFB40463C49E903176F29086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709336   (112813) от 24.03.2024
+
+Mindwork - Into The Swirl (2009) Reissue, 2013, Divebomb Records [FLAC|Lossless|image + .cue] <Progressive Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Swirl
+02. Unrecognized Entity
+03. Inner Consciousness
+04. Essence Of Existence(   Читать дальше...   )Жанр: Progressive Thrash, Death MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982DB0F265E177CE9D8BD85C700A7303A5E6B476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709411   (112812) от 24.03.2024
+
+Necrosanct - Incarnate (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritual Act
+02. Inevitable Demise
+03. Undeath Dead Dying
+04. Abhorrence(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432A3DB3BD41DD659E11DFBB1A9700E03382C469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709208   (112811) от 24.03.2024
 
 Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Doom Metal>
@@ -6,7 +93,7 @@ Clarion Void - Failure in Repetition (2024) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112811.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Necrosanct - Desolate (1993) Reissue, 2013, Abhorrent Productions [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112788.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Hellfueled - Memories in Black (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112787.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Night Crowned - Impius Viam (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112786.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Night Crowned - Hadanfard (2021) [FLAC|Lossless|image + .cue] <Melodic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112785.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Hellfueled - Born II Rock (2005) Reissue, 2006, Art Music Group [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112784.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Hellfueled - Emission of Sins (2009) [APE|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112783.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Hellfueled - Volume One (2004) Reissue, 2005, Art Music Group [APE|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112782.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Night Crowned - Tales (2023) [FLAC|Lossless|image + .cue] <Melodic Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112781.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Shadow Matter - All this Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112724.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112710.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Shadow Matter - Shadow Matter (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112703.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Skiltron - Beheading the Liars (2008) [APE|Lossless|image + .cue] <Celtic Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112644.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Skiltron - The Clans Have United (2006) [APE|Lossless|image + .cue] <Celtic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112625.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Skiltron - The Highland Way (2010) [FLAC|Lossless|image + .cue] <Celtic Folk, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112569.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Smorrah - Welcome to Your Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112568.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|image + .cue] <Celtic Folk, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112564.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112556.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Crystayler - Never Seen Again (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112490.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ ANA - The Art of Letting Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112487.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Ivory Tower - Heavy Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112468.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Tad Morose - Sender of Thoughts (1995) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112339.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112337.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE9700FF07EA71452129298A3BE988B5779213A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711760   (112335) от 31.03.2024
-
-Tad Morose - Leaving the Past Behind (1993) [FLAC|Lossless|image + .cue] <Progressive Metal, Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Lies
-02. Miracle
-03. Voices Are Calling
-04. Reach for the Sky(   Читать дальше...   )Жанр: Progressive Metal, Power, Heavy MetalПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A7079DA19D1BF1CB1BB8BE9AE0BEA6EB90D106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712086   (112277) от 01.04.2024
-
-Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ripped Into Exile 03:56
-02. Autopsied Atheism 04:35
-03. Burial 05:29
-04. Dreamt 05:19(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DAC4A5B37533C716F58A14BB99D16EA872A9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712054   (112267) от 01.04.2024
-
-Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressive Metal, Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sword of Retribution
-02. Matters of the Dark
-03. Ethereal Soul
-04. I Know Your Name(   Читать дальше...   )Жанр: Progressive Metal, Power, Heavy MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A118829623CB1F3565C61F1E5B3EFC600B01045
 ```
 
 https://mybot314.ru/tekegram_catalog/

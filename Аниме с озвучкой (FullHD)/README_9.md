@@ -1,3 +1,29 @@
+###  Публикация: 1379913   (835520) от 01.05.2020
+
+Арифурэта | Arifureta Shokugyou de Sekai Saikyou [2019, TV, 13 из 13] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетний Хадзиме Нагумо — типичный отаку. Его жизнь состоит из ночных посиделок за играми и мирного сна за партой во время школьных занятий. Но однажды всё меняется: Хадзиме вместе со всем своим классом попадает в параллельный фэнтезийный мир. Там их встречают как героев и немедленно выдают квест: спасти человечество от вымирания. Однако влажная мечта отаку (   Читать дальше...   )Производство: Япония, студия White FoxЖанр: приключения, фэнтези, исекайРежиссер: Ёсимото КиндзиЯзык озвучки: Русский дублированный (Wakanim.tv), Русский закадровый (AniLibria.tv), English дублированный (FUNimation)Субтитры: Русские надписи, Русский, English, FrançaisПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470E55041BE767B74E7BEF2FFF195D27EC076727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501613   (834965) от 10.10.2021
 
 Покемон-фильм: Секреты джунглей / Gekijouban Pocket Monsters: Koko / Pokemon the Movie 23: Secrets of the Jungle [2020, Movie] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834965.jpg" />
+  <img src="Z:/picture/008/save_picture_834965.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834801.jpg" />
+  <img src="Z:/picture/008/save_picture_834801.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834464.jpg" />
+  <img src="Z:/picture/008/save_picture_834464.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827350.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827349.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827348.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827347.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827346.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826312.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825620.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825619.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825618.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825617.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825616.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825615.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825614.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823833.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823832.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823831.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823830.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823828.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823809.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823123.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Altered Carbon: Resleeved | Видоизменённый углерод: Вос�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822088.jpg" />
+  <img src="Z:/picture/008/save_picture_822088.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820817.jpg" />
+  <img src="Z:/picture/008/save_picture_820817.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E601C7246FCC822ABC663B9B810A4EC769688A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357972   (820276) от 10.05.2020
-
-Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подобно миру взрослых, мир детей не терпит различий, выделяющих кого-то на фоне других, коих принято считать «нормальными». Этот мир жесток, поскольку его обитатели, в отличие от обитателей мира взрослых, еще не успели научиться скрывать мерзкие мысли за напускной улыбкой. Многие вещи им непонятны, более того — неведомы. Дети прямолинейны. И поэтому очень жестоки. (   Читать дальше...   )Производство: Kyoto Animation, ЯпонияЖанр: Повседневность, Драма, РомантикаРежиссер: Ямада НаокоОзвучка: Двухголосая, Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 02:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B961B219DDAE24F90D3FE33D55AE2226571FAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 345631   (646188) от 12.06.2017
+
+Петр Первый (1937) 2хDVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец XVII — начало XVIII столетия. Период становления Великой Российской Империи, время крупных реформ и тайных заговоров, великих воинских побед и дворцовых переворотов, безудержного веселья ассамблей и жестокого кровопролития казней.
+О жизни, государственной и военной деятельности Петра Первого — первого российского императора — рассказывает этот фильм.Производство: СССРЖанр: ИсторическийРежиссер: Владимир ПетровАктеры: Николай Симонов, Алла Тарасова, Виктор Добровольский, Ирина Зарубина, Владимир Гардин, Александр Лариков, Владимир Ершов, Николай Литвинов, Михаил Тарханов, Константин Гибшман, Федор Богданов, Михаил Жаров, Николай ЧеркасовПеревод: оригинальныйСубтитры: отсутствуютФормат: DVD VideoПродолжительность: 01:36:21 + 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C3B8F4E1CE84A615CC7943A0D0E07859258971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142521   (634758) от 18.06.2017
 
 Потерпевшие претензий не имеют (1986) DVD5 [Реставрация]
@@ -6,7 +33,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634758.jpg" />
+  <img src="Z:/picture/008/save_picture_634758.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632184.jpg" />
+  <img src="Z:/picture/008/save_picture_632184.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621963.jpg" />
+  <img src="Z:/picture/008/save_picture_621963.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_614709.jpg" />
+  <img src="Z:/picture/005/save_picture_614709.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611824.jpg" />
+  <img src="Z:/picture/008/save_picture_611824.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603736.jpg" />
+  <img src="Z:/picture/008/save_picture_603736.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600202.jpg" />
+  <img src="Z:/picture/008/save_picture_600202.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597169.jpg" />
+  <img src="Z:/picture/005/save_picture_597169.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595789.jpg" />
+  <img src="Z:/picture/008/save_picture_595789.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592552.jpg" />
+  <img src="Z:/picture/008/save_picture_592552.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591942.jpg" />
+  <img src="Z:/picture/008/save_picture_591942.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590524.jpg" />
+  <img src="Z:/picture/008/save_picture_590524.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583561.jpg" />
+  <img src="Z:/picture/008/save_picture_583561.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576975.jpg" />
+  <img src="Z:/picture/008/save_picture_576975.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566295.jpg" />
+  <img src="Z:/picture/008/save_picture_566295.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566200.jpg" />
+  <img src="Z:/picture/008/save_picture_566200.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548358.jpg" />
+  <img src="Z:/picture/008/save_picture_548358.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547910.jpg" />
+  <img src="Z:/picture/008/save_picture_547910.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547223.jpg" />
+  <img src="Z:/picture/008/save_picture_547223.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539897.jpg" />
+  <img src="Z:/picture/008/save_picture_539897.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532078.jpg" />
+  <img src="Z:/picture/008/save_picture_532078.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531329.jpg" />
+  <img src="Z:/picture/008/save_picture_531329.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522375.jpg" />
+  <img src="Z:/picture/008/save_picture_522375.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518567.jpg" />
+  <img src="Z:/picture/008/save_picture_518567.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_515902.jpg" />
+  <img src="Z:/picture/005/save_picture_515902.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Циркач, скачущий на коне и стреляющий в надувные шарики в руках своего друга и напарника, получает письмо о том, что его бабушка тяжело больна. Несмотря на то, что его, возможно, ждет смерть из-за старой кровной мести, он собирается ехать.
  Напарник, волнуясь за товарища, отправляется вместе с ним. Приключения начинаются после того, как Дуров попросил одного из джигитов (   Читать дальше...   )Производство: СССР / АзербайджанфильмЖанр: Боевик, Комедия, Приключения, МелодрамаРежиссер: Юлий ГусманАктеры: Мухтарбек Кантемиров, Полад Бюль-Бюль-оглы, Лев Дуров, Гамида Омарова, Гасан Турабов, Сергей Юрский, Мирза Бабаев, Александр Шаровский, Кязим Абдуллаев, Александр БелявскийСубтитры: нетПродолжительность: 02:27:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535764   (515469) от 17.08.2012
-
-Здравствуй и прощай (1972) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история любви молодой женщины, которую с тремя детьми бросил муж, а сам уехал в город искать «смысл жизни» и пропал в поисках лучший доли, и участкового милиционера, человека положительного во всех отношениях. Он сумел растопить сердце женщины и вернуть ей веру в любовь. Только появилась надежда на новую жизнь и семейное счастье, как в деревню возвращается (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Виталий МельниковАктеры: Людмила Зайцева, Олег Ефремов, Михаил Кононов, Александр Демьяненко, Наталья Гундарева, Виктор Павлов, Борислав Брондуков, Татьяна Доронина, Жанна Блинова, Саша ВедерниковСубтитры: отсутствуютПродолжительность: 01:30:19
 
 ## Скачать торент
 ```bash

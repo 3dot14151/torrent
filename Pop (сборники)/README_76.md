@@ -1,3 +1,195 @@
+###  Публикация: 1316798   (504226) от 28.07.2019
+
+VA - German Top 100 Single Charts 02.08.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_504226.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes & Camila Cabello - Señorita
+002. KC Rebell & RAF Camora - Neptun
+003. Samra x Capital Bra - Zombie
+004. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6914AC6700224E3E461E81E987C792977853D560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934023   (504084) от 03.09.2015
+
+VA - Сто Хитов Из Прошлого: Дискотека 80х (2015) [MP3|320 кб/с]<Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_504084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandra - Secret Land (Remix)
+02. Corona - Baby Baby
+03. Technotronic - Recall
+04. Double You - Because I'm Loving You(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56302A9C780F906C8BD5288BB2107CCF3831839E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540332   (503799) от 29.08.2012
+
+VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sola - По Ночному Городу (Original Mix)
+ 02. Полина Гриффис - Ain't Givin' Up
+ 03. T - Killah feat. Виктория Дайнеко - Mirror Mirror (DJ Marie Remix)
+ 04. Барби - Когда ты рядом
+ 05. Дискотека Авария и Кристина Орбакайте - Прогноз погоды
+ 06. Никита - Найди Меня
+ 07. Женя Вилль - Я Хочу Всегда (Natasha Beginner Remix)
+ 08. Анна Герцен - Very Good
+ 09. Inna - Crazy Sexy Wild (Acoustic Radio Version)
+ 10. Стас Шуринс - Будь Собой (Версия 2012)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541169   (502573) от 30.08.2012
+
+VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Достучаться до небес feat. Анна Плетнева (Винтаж) - Отпусти меня
+ 02. Серебро - Мальчик
+ 03. Женя Вилль - Прячь в позвоночник
+ 04. Елена Терлеева - Просто
+ 05. Марсель - Иди ко мне
+ 06. Milena & Murzin Denis - В эту ночь
+ 07. Настя Задорожная - До дна
+ 08. Dan Balan - Не любя
+ 09. USB (United Sexy Boyz) feat. Сергей Жуков - Скажи зачем
+ 10. Анжелика Агурбаш - Просто Так(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B091A15C2643239F2403D0297518BFFFB23BDCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540792   (502362) от 30.08.2012
+
+VA - Самые Лучшие Хиты радио DFM 50+50 (2012) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)
+02. DJ Sandro Escobar & Рэпер СЯВА - Хаваю (Extended)
+03. Martin Solveig - The Night Out (Madeon Remix)
+04. Пьер Нарцисс - Хрустальная Любовь (DJ Riga Remix)
+05. Ivan Gough, Feenixpawl feat. Georgi Kay - In My Mind (Axwell Mix)
+06. Градусы - Заметает (DJ Favorite Remixes)
+07. Pink Fluid feat. Mr. V - We Rock The World (Bastian Van Shield Remix)
+08. Пропаганда feat. DJ Generous - Я рисую мелом (D.J.G. Remix)
+09. Scooter - Fire (Stanislav Shik & Natasha Baccardi Remix)
+10. Тамерлан и Алена Омаргалиевa - Hey Yo (DJ Amor Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73275144C7214E42B0A323357D9FF3E450EA0EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933891   (502315) от 05.09.2015
+
+VA - Попсовая соточка MTV. Сборник 3 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502315.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mband - Дай Мне
+002. A-Trak Feat. Andrew Wyatt - Push
+003. Базиль - Ай-Яй-Я
+004. Baauer Feat. Alunageorge & Rae Sremmurd - One Touch(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F05723B95EFE72A48815F5694ED9117B3051946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932088   (502139) от 05.09.2015
 
 VA - Летние super новинки. Часть 7. 50/50 (2015) [MP3|256 кб/с]<Pop, Dance>
@@ -6,7 +198,7 @@ VA - Летние super новинки. Часть 7. 50/50 (2015) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502139.jpg" />
+  <img src="Z:/picture/008/save_picture_502139.jpg" />
 </div>
 
 
@@ -35,7 +227,7 @@ VA - 150 хитов в машине (2012) [MP3|128-192 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502111.jpg" />
+  <img src="Z:/picture/008/save_picture_502111.jpg" />
 </div>
 
 
@@ -70,7 +262,7 @@ VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501496.jpg" />
+  <img src="Z:/picture/008/save_picture_501496.jpg" />
 </div>
 
 
@@ -105,7 +297,7 @@ VA - Радио Новинки Проверенные Качеством 50/50 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501318.jpg" />
+  <img src="Z:/picture/008/save_picture_501318.jpg" />
 </div>
 
 
@@ -140,7 +332,7 @@ VA - Дискотека Бездна Русская Vol. 7 (2012) [MP3|128 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501306.jpg" />
+  <img src="Z:/picture/008/save_picture_501306.jpg" />
 </div>
 
 
@@ -175,7 +367,7 @@ Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500587.jpg" />
+  <img src="Z:/picture/008/save_picture_500587.jpg" />
 </div>
 
 
@@ -204,7 +396,7 @@ Jennifer Paige - Compilation (2022) [MP3|320 Kbps] <Pop, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500509.jpg" />
+  <img src="Z:/picture/008/save_picture_500509.jpg" />
 </div>
 
 
@@ -233,7 +425,7 @@ VA - 100 Canzonissime Italiane (2000) BoxSet 7CD [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500232.jpg" />
+  <img src="Z:/picture/008/save_picture_500232.jpg" />
 </div>
 
 
@@ -268,7 +460,7 @@ VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499506.jpg" />
+  <img src="Z:/picture/008/save_picture_499506.jpg" />
 </div>
 
 
@@ -303,7 +495,7 @@ VA - Подарок любимой женщине / Подарунок коха�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499000.jpg" />
+  <img src="Z:/picture/008/save_picture_499000.jpg" />
 </div>
 
 
@@ -338,7 +530,7 @@ VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498998.jpg" />
+  <img src="Z:/picture/008/save_picture_498998.jpg" />
 </div>
 
 
@@ -373,7 +565,7 @@ VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498573.jpg" />
+  <img src="Z:/picture/008/save_picture_498573.jpg" />
 </div>
 
 
@@ -402,7 +594,7 @@ Ten Sharp - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498520.jpg" />
+  <img src="Z:/picture/008/save_picture_498520.jpg" />
 </div>
 
 
@@ -431,7 +623,7 @@ VA - German TOP100 Single Charts (03-09-2012) [MP3|~186~299 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498106.jpg" />
+  <img src="Z:/picture/008/save_picture_498106.jpg" />
 </div>
 
 
@@ -466,7 +658,7 @@ VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497803.jpg" />
+  <img src="Z:/picture/008/save_picture_497803.jpg" />
 </div>
 
 
@@ -494,7 +686,7 @@ VA - Зарубежный Парад Музон В Кайф (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497484.jpg" />
+  <img src="Z:/picture/008/save_picture_497484.jpg" />
 </div>
 
 
@@ -529,7 +721,7 @@ VA - Осенний звездный Hit-парад (2015) [MP3|256-320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497328.jpg" />
+  <img src="Z:/picture/008/save_picture_497328.jpg" />
 </div>
 
 
@@ -558,7 +750,7 @@ VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497145.jpg" />
+  <img src="Z:/picture/005/save_picture_497145.jpg" />
 </div>
 
 
@@ -584,7 +776,7 @@ VA - Супер Хитовый Заряд Новинок Русский (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496336.jpg" />
+  <img src="Z:/picture/008/save_picture_496336.jpg" />
 </div>
 
 
@@ -619,7 +811,7 @@ VA - Попсовая соточка MTV. Сборник 4 (2015) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496160.jpg" />
+  <img src="Z:/picture/008/save_picture_496160.jpg" />
 </div>
 
 
@@ -633,186 +825,6 @@ VA - Попсовая соточка MTV. Сборник 4 (2015) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25112FD1A388C7DD6E794F60FDBD26B792FF9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242987   (496097) от 25.08.2018
-
-VA - German Top 100 Single Charts 24.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496097.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro & Gigi D'Agostino - In My Mind
-002. Capital Bra - Melodien (feat. Juju)
-003. Bonez MC & RAF Camora - 500 PS
-004. Rin - Dior 2001(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B8C308D71E2369DA38C41A51FB57473337DDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543396   (496087) от 05.09.2012
-
-VA - Dance Вечеринка Non-Stop. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496087.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jennifer Lopez - Bailar Nada Mas
-002. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)
-003. Michel Telo - Bara bara bere bere
-004. Steve Roberts - You Have One (Radio Edit)
-005. Romano e Sapienza - Tacata
-006. Marquiz & Juliette feat. Starchild - Turn me on
-007. Meiko - Stuck On You
-008. Tarkan feat. Ayhan Dogan - Gulusu Bir Baska
-009. Dash Berlin Feat. Jonathan Mendelsohn - World Falls Apart
-010. Fly Project - Back In My Life (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7370A8C8F39B6BF9E53ABF72477453E1A8ED11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053564   (495647) от 18.09.2016
-
-VA - Russian Dance (2016) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время И Стекло - Навернопотомучто (Dj Miracle Radio Remix) 2:38
-02. Валерий Сюткин - 7000 тысяч над землёй (Vitaly Klime Remix)(Radio Ver ) 3:01
-03. Artik & Asti - Я Твоя (Kolya Dark & Mickey Martini Radio Edit) 3:05
-04. Мари Краймбрери - Пьяную (Dj Alex Shik Remix) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B932D39A9C93370DBC90E581A69C2DF0842CD3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404201   (494707) от 24.08.2020
-
-Сборник - Вспоминая СССР. Любимые песни 4 (1980-1989) MP3 от DON Music, 2020 [MP3|320 Kbps] <Ретро>
-
->>След.
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Машина времени - Поворот (1980)
-002. Алла Пугачева - Звездное лето (1980)
-003. Тынис Мяги - Олимпиада-80 (1980)
-004. Верасы - Белый парус (1980)(   Читать дальше...   )Жанр: РетроПродолжительность: 56:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB3DED570B79D540F3B83C9233463C6CA7E69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243368   (494103) от 26.08.2018
-
-VA - Dance Club 2018.03 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Profesor - Bella Ciao (Hugel Remix) (2:45)
-02. Axwell /\ Ingrosso, ROMANS, Axel Hedfors, Sebastian Ingrosso - Dancing Alone (4:13)
-03. Jonas Blue, Jack & Jack - Rise (3:12)
-04. Kygo, Imagine Dragons - Born To Be Yours (3:13)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2773E574E016F92C797C15531693622D57F37600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158284   (493318) от 15.08.2017
-
-VA - 200 Хитов Солнечного Лета (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493318.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кассета - А Теперь Все
-002. Nika - Без Тебя
-003. Аркадиас - Белые Розы
-004. Александр Головин - Бессонные Ночи(   Читать дальше...   )Жанр: PopПродолжительность: 11:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A3C7C44DEC0AA5B4FE1A95289FE31F8B247587
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763197.jpg" />
+  <img src="Z:/picture/008/save_picture_763197.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sudden Strike 4 (2017) [Ru/En/Ger] (1.14.29902/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754713.jpg" />
+  <img src="Z:/picture/008/save_picture_754713.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jagged Alliance: Rage! (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745965.jpg" />
+  <img src="Z:/picture/008/save_picture_745965.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.1.5hf/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745064.jpg" />
+  <img src="Z:/picture/008/save_picture_745064.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744828.jpg" />
+  <img src="Z:/picture/008/save_picture_744828.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744507.jpg" />
+  <img src="Z:/picture/008/save_picture_744507.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Excubitor (2016) [En/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742916.jpg" />
+  <img src="Z:/picture/008/save_picture_742916.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Panzer Corps: U.S. Corps (2016) [Ru/Multi] (1.26/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742870.jpg" />
+  <img src="Z:/picture/008/save_picture_742870.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Worms W.M.D (2016) [Ru/Multi] (1.0.0.273а/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741871.jpg" />
+  <img src="Z:/picture/008/save_picture_741871.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741694.jpg" />
+  <img src="Z:/picture/008/save_picture_741694.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Valkyria Chronicles (2014) [Ru/En] (1.0.0.1/upd3/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741623.jpg" />
+  <img src="Z:/picture/008/save_picture_741623.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741621.jpg" />
+  <img src="Z:/picture/008/save_picture_741621.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ XCOM: Chimera Squad / XCOM: Отряд «Химера» (2020) [Ru/Multi] (15321
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736755.jpg" />
+  <img src="Z:/picture/008/save_picture_736755.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731466.jpg" />
+  <img src="Z:/picture/008/save_picture_731466.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Halo Wars (2017) [Ru/Multi] (1.2033.2.0) License CODEX [Definitive Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731354.jpg" />
+  <img src="Z:/picture/008/save_picture_731354.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Halo Wars (2017) [Ru/En] (1.2033.2.0) Repack xatab [Definitive Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731346.jpg" />
+  <img src="Z:/picture/008/save_picture_731346.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Tales from the Void (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731302.jpg" />
+  <img src="Z:/picture/008/save_picture_731302.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730347.jpg" />
+  <img src="Z:/picture/008/save_picture_730347.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ War Mongrels (2021) [Ru/Multi] (42052) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729432.jpg" />
+  <img src="Z:/picture/008/save_picture_729432.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Editi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729287.jpg" />
+  <img src="Z:/picture/008/save_picture_729287.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.21863/dlc) Repack xatab [Master Collec
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722834.jpg" />
+  <img src="Z:/picture/008/save_picture_722834.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Check Your 6! (2018) [En] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721036.jpg" />
+  <img src="Z:/picture/008/save_picture_721036.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (1.06) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720401.jpg" />
+  <img src="Z:/picture/008/save_picture_720401.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.15/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720383.jpg" />
+  <img src="Z:/picture/008/save_picture_720383.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Brink of Extinction (2017) [Ru/Multi] (1.0) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719108.jpg" />
+  <img src="Z:/picture/008/save_picture_719108.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Army General (2017) [En/Ge] (1.0.25) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718017.jpg" />
+  <img src="Z:/picture/008/save_picture_718017.jpg" />
 </div>
 
 

@@ -1,3 +1,161 @@
+###  Публикация: 1816834   (3667) от 09.09.2025
+
+Российский аналог Википедии ликвидируют за 303 млн рублей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство постановило выделить Минцифры России более 303 млн руб. на завершение ликвидации автономной некоммерческой организации «Большая российская энциклопедия». Соответствующее распоряжение правительства опубликовано на интернет-портале правовой информации.Средства будут направлены в виде субсидии автономной некоммерческой организации «Национальный научно-образовательный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764345   (3417) от 11.09.2025
+
+Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Decepticon [Premium Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982C3AAC52684768D8FA62FAFEBDE9667064E4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 25482   (3414) от 11.09.2025
+
+11-е сентября простым взглядом / 911 In Plain Site (2006) [DVDRip]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из первых попыток проанализировать документальные материалы и понять, что же действительно произошло в Вашингтоне и Нью-Йорке 11-го сентября 2001-го года. Многие документальные материалы, использованные в фильме, показывались только один раз, только в прямом эфире и никогда в записи по очень простой причине - они противоречат официальной версии и оставляют больше (   Читать дальше...   )Жанр: ДокументалистикаРежиссер: Вильям Льюис, Давид фон КляйстПеревод: Любительский
+
+ВНИМАНИЕ! 9-ГО СЕНТЯБРЯ ПРЕДЫДУЩИЙ РЕЛИЗ ЗАМЕНЕН РЕЛИЗОМ С КОДЕКОМ MP3 ВМЕСТО ADPCM, УЧИТЫВАЮЩИЙ ЗАМЕЧАНИЯ ЗРИТЕЛЕЙ (УМЕНЬШИЛСЯ ВЕС ФАЙЛА, УЛУЧШИЛАСЬ ПОРТИРУЕМОСТЬ).Продолжительность: 1:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C4A62BDB64A8CF850FB84025D814618522AD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817357   (3411) от 11.09.2025
+
+Орудия / Weapons (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все дети из одного школьного класса, за исключением одного ребёнка, одновременно бесследно исчезают. Местные жители и семьи пытаются понять, что или кто стал причиной их исчезновения.Производство: США / BoulderLight Pictures, New Line Cinema, Subconscious, Vertigo Entertainment, Warner Bros.Жанр: ужасы, детективРежиссер: Зак КреггерАктеры: Джош Бролин, Джулия Гарнер, Олден Эренрайк, Остин Абрамс, Кэри Кристофер, Бенедикт Вонг, Эми Мэдиган, Тоби Хасс, Сара Пэкстон, Джастин ЛонгПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH), Украинские, ИспанскиеПродолжительность: 02:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C71D4F93B76C6AADA4407E70ED67858ED80536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817610   (3266) от 12.09.2025
+
+В Госдуме оценили идею ввести сухой закон в России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идея запрета на продажу алкоголя в России является радикальной мерой, которой не было со времен сухого закона в СССР. При этом подобная мера бессмысленна, считает глава комитета Госдумы по здравоохранению Сергей Леонов.Он также пояснил, что полный запрет влечет за собой различные последствия. В качестве примера политик привел подпольную продажу алкоголя, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817024   (3095) от 13.09.2025
+
+WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.09.07 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806393   (3093) от 13.09.2025
 
 Основание / Foundation (2025) WEB-DLRip (сезон 3, серии 1-10 из 10) HDRezka
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3093.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3091.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.11.371/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3088.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3085.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Starlink обеспечит связь напрямую со смартфона�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3047.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2713.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2712.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ Cyberpunk 2077 (2020) [Ru/En] (2.31/dlc) Repack Other s [Ultimate Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2574.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2572.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ NASA представило самые веские доказательства
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2557.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ Tempest Rising (2025) [Ru/Multi] (1.4.0+50185/dlc) Repack Let'sРlay [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2424.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2275.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2252.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2130.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ Rutube объяснил: пиратский контент на хостинг �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2101.jpg" />
 </div>
 
 
@@ -397,7 +555,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1924.jpg" />
 </div>
 
 
@@ -423,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1721.jpg" />
 </div>
 
 
@@ -449,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1551.jpg" />
 </div>
 
 
@@ -475,7 +633,7 @@ Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1549.jpg" />
 </div>
 
 
@@ -501,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1256.jpg" />
 </div>
 
 
@@ -513,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777227   (1246) от 24.09.2025
-
-Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gold Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingdom Come: Deliverance II – это продолжение культовой реалистичной ролевой игры, действие которой разворачивается в начале XV века в исторической Богемии. Погрузитесь в суровую эпоху, где каждое принятое решение имеет далеко идущие последствия, а жизнь средневековых людей наполнена как будничными заботами, так и драматическими поворотами судьбы.Тип издания: RepackРазработчик: Warhorse StudiosЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819663   (1185) от 24.09.2025
-
-Первое достижение: 1000 релизов от mikos74
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1185.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от mikos74 Дорогие друзья и гости клуба...Закончились летние каникулы и отпуска, релизёры возвращаются к суровым трудовым будням. А что может скрасить тяжёлую рабочую неделю - так это создание пары-тройки классных релиза.Ну а сегодня, наш виновник торжества, впервые попадает в эту рубрику. Прошу любить и жаловать: специалист по классическому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819565   (1109) от 25.09.2025
-
-Фантастическая четвёрка: Первые шаги / The Fantastic Four: First Steps (2025) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рид Ричардс, Бен Гримм, Сью Сторм и её брат Джонни должны защитить Землю от космического бога Галактуса и его приспешника - Серебряного Сёрфера. И если план Галактуса поглотить всю планету и всех её жителей кажется недостаточно ужасающим, ситуация внезапно становится личной.Производство: Великобритания, США, Канада, Новая Зеландия / Marvel Studios, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Мэтт ШекманАктеры: Педро Паскаль, Ванесса Кирби, Эбон Мосс-Бакрак, Джозеф Куинн, Ральф Айнесон, Джулия Гарнер, Наташа Лионн, Пол Уолтер Хаузер, Сара Найлз, Марк ГэтиссПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Forced, Full, SDH), украинские (Forced, Full) и др.Продолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788747   (1107) от 25.09.2025
-
-Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРlay [Supporter Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1107.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Tainted Grail: The Fall of Avalon» - это серьезная ролевая игра от первого лица в открытом мире, созданном в стиле мрачного фэнтези по мотивам легенд о короле Артуре. Вас ждет сложноустроенная, разветвленная сюжетная линия, в которой ваши решения будут определять наследие короля Артура и результат напряженной 600-летней борьбы для всего мира.Тип издания: RepackРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0CBBB3AF824DCA906401072B7D0D52D184A3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816205   (931) от 26.09.2025
-
-Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cronos: The New Dawn - это новое слово в жанре survival horror. Выживайте в жестоких пустошах будущего, сражайтесь с кошмарными монстрами убивайте их до того, как они сольются в нечто худшее, путешествуйте в прошлое, чтобы собрать заблудшие души и раскрыть причину катастрофы, положившей конец человечеству. Приспособьтесь или умрите.Тип издания: RepackРазработчик: Bloober TeamЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820066   (866) от 26.09.2025
-
-Internet Download Manager 6.42 Build 47 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

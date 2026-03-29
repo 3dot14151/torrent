@@ -1,3 +1,83 @@
+###  Публикация: 720283   (376823) от 09.11.2013
+
+Наталья Солнцева | Собрание сочинений [61 книга] (2005-2013) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_376823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наталья Солнцева — писательница, автор мистических детективов.
+Биография Натальи Солнцевой давно обросла мифами и слухами. По одним из них, автор, якобы, мужчина, который удачно издается под женским псевдонимом, — писателю-мужчине пробиться труднее. По другим, она — это «они», штат писателей, историков, редакторов под одним именем. Много, якобы, современных и исторических (   Читать дальше...   )Жанр: Детектив, Мистический детектив, Исторический детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B91A86E90385C0E918B64CAF63938608A276AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950411   (369580) от 26.10.2015
+
+Алексей Гравицкий | Собрание сочинений [32 книги] (2001-2014) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Андреевич Гравицкий (род. 9 декабря 1978 года в Москве) — российский писатель-фантаст, сценарист. Автор фантастических романов, повестей и рассказов. Автор сценариев сериалов и документальных фильмов. Лауреат премии «Лучший дебют» фестиваля фантастики Серебряная стрела (2008 год).
+По образованию педагог, психолог. Дебютировал в 2001 году с рассказом «Карлсоны». (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700F933376212DCC2F7383D01D356500C117125C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978979   (369121) от 15.10.2020
+
+Михаил Юрьевич Лермонтов | Полное собрание сочинений в 10-ти томах [10 книг] (2000-2002) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном Полном собрании сочинений в 10-ти томах великого русского поэта напечатаны все тексты, входившие в издания произведений поэта, начиная с первого ПСС под редакцией П. А. Висковатова, по шеститомное собрание, осуществлённое ИРЛИ (Пушкинский Дом) АН СССР в 1954-1957 гг., оно является сводом всего известного творческого наследия поэта. В издание вошли рабочие (   Читать дальше...   )Жанр: Поэзия, Проза, ПисьмаИздательство: ВоскресеньеФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABC8580F4E43037621F12357873F72961A31FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951127   (365994) от 28.10.2015
 
 Юрий Пиляр | Избранное (1983) [PDF, DJVU]
@@ -6,7 +86,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365994.jpg" />
+  <img src="Z:/picture/008/save_picture_365994.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365134.jpg" />
+  <img src="Z:/picture/008/save_picture_365134.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360543.jpg" />
+  <img src="Z:/picture/008/save_picture_360543.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355347.jpg" />
+  <img src="Z:/picture/008/save_picture_355347.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354335.jpg" />
+  <img src="Z:/picture/008/save_picture_354335.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351121.jpg" />
+  <img src="Z:/picture/008/save_picture_351121.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348821.jpg" />
+  <img src="Z:/picture/008/save_picture_348821.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347807.jpg" />
+  <img src="Z:/picture/008/save_picture_347807.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346619.jpg" />
+  <img src="Z:/picture/008/save_picture_346619.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345946.jpg" />
+  <img src="Z:/picture/008/save_picture_345946.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343957.jpg" />
+  <img src="Z:/picture/008/save_picture_343957.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343352.jpg" />
+  <img src="Z:/picture/008/save_picture_343352.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341548.jpg" />
+  <img src="Z:/picture/008/save_picture_341548.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334454.jpg" />
+  <img src="Z:/picture/008/save_picture_334454.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324773.jpg" />
+  <img src="Z:/picture/008/save_picture_324773.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322551.jpg" />
+  <img src="Z:/picture/008/save_picture_322551.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321022.jpg" />
+  <img src="Z:/picture/008/save_picture_321022.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320900.jpg" />
+  <img src="Z:/picture/008/save_picture_320900.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315824.jpg" />
+  <img src="Z:/picture/008/save_picture_315824.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309204.jpg" />
+  <img src="Z:/picture/008/save_picture_309204.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307363.jpg" />
+  <img src="Z:/picture/008/save_picture_307363.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306970.jpg" />
+  <img src="Z:/picture/008/save_picture_306970.jpg" />
 </div>
 
 
@@ -594,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306732.jpg" />
+  <img src="Z:/picture/008/save_picture_306732.jpg" />
 </div>
 
 
@@ -606,86 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EAF46B53F59BFA40318DAB66909B92BFEADAB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357510   (301545) от 12.11.2020
-
-Арт Богданов | Собрание произведений [19 книг] (2015 - 2020) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пионеры Лиадиды:
-Лиадида — игровой мир с невероятной реалистичностью и уникальным сеттингом. Это прорыв в технологиях, обогнавший время. Это мир, в котором две фракции магов-антагонистов застыли в шатком равновесии после бесконечной войны и только игроки могут качнуть чашу весов в нужную сторону. Лиадида — это провал века и повод для анекдотов, споров и научных статей. (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ЛитРПГ, Постапокалипсис, Боевая фантастика, Попаданцы, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D468FA85E6BCE88DFF19380DE194C71D1BB686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853598   (300398) от 01.12.2015
-
-Георгий Зотов | Собрание сочинений [17 книг. Обновляемая] (2007-2015) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный автор и неизвестная личность. По данным газеты «Коммерсантъ», Г.А. Зотов - «сын полка» или группа безымянных литературных негров. По мнению «РИА-Новости», это скрывающий свое имя известный писатель. В Интернете всплывала версия, что автор - Пелевин или Лукьяненко, и даже одновременно тот и другой - «совместный авторский проект прозаика и фантаста». На одном (   Читать дальше...   )Жанр: Фэнтези, Фантастика, Мистика, ЮморФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD27EE9387899477052FC0FB92441EAC0703002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973041   (293086) от 04.12.2016
-
-Антон Демченко | Собрание сочинений [23 книги] (2009-2016) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антон Демченко родился 27 января 1982 года. Живет: Россия, Москва.
-Автор о себе: Родился, учился, работал, женился, работал, развелся, работал, работал, работал... достало. Теперь пишу и читаю.Жанр: Боевая фантастика, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336DC481B08340595F57CF2D9BC4A3FD6EAAB177
 ```
 
 https://mybot314.ru/tekegram_catalog/

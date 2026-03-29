@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295560.jpg" />
+  <img src="Z:/picture/008/save_picture_295560.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294773.jpg" />
+  <img src="Z:/picture/008/save_picture_294773.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294697.jpg" />
+  <img src="Z:/picture/008/save_picture_294697.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294614.jpg" />
+  <img src="Z:/picture/008/save_picture_294614.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293651.jpg" />
+  <img src="Z:/picture/008/save_picture_293651.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293154.jpg" />
+  <img src="Z:/picture/008/save_picture_293154.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Animal ДжаZ - Время любить (2019) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293032.jpg" />
+  <img src="Z:/picture/008/save_picture_293032.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ REKI - Безвремя (2015) [FLAC|Lossless|Tracks] <Instrumental, Rock, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291343.jpg" />
+  <img src="Z:/picture/008/save_picture_291343.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291205.jpg" />
+  <img src="Z:/picture/008/save_picture_291205.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291150.jpg" />
+  <img src="Z:/picture/008/save_picture_291150.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290868.jpg" />
+  <img src="Z:/picture/008/save_picture_290868.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Messer Fur Frau Muller (Нож для Фрау Мюллер) - Allo, Superman! (
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288283.jpg" />
+  <img src="Z:/picture/008/save_picture_288283.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288125.jpg" />
+  <img src="Z:/picture/008/save_picture_288125.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287400.jpg" />
+  <img src="Z:/picture/008/save_picture_287400.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287355.jpg" />
+  <img src="Z:/picture/008/save_picture_287355.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284439.jpg" />
+  <img src="Z:/picture/008/save_picture_284439.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284282.jpg" />
+  <img src="Z:/picture/008/save_picture_284282.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283742.jpg" />
+  <img src="Z:/picture/008/save_picture_283742.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282394.jpg" />
+  <img src="Z:/picture/008/save_picture_282394.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282125.jpg" />
+  <img src="Z:/picture/008/save_picture_282125.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281819.jpg" />
+  <img src="Z:/picture/008/save_picture_281819.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281080.jpg" />
+  <img src="Z:/picture/008/save_picture_281080.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278937.jpg" />
+  <img src="Z:/picture/008/save_picture_278937.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278694.jpg" />
+  <img src="Z:/picture/008/save_picture_278694.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Отечественные Рок Баллады (2010) [FLAC|Lossless]<Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278684.jpg" />
+  <img src="Z:/picture/008/save_picture_278684.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278570.jpg" />
+  <img src="Z:/picture/008/save_picture_278570.jpg" />
 </div>
 
 

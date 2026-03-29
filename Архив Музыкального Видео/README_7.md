@@ -6,7 +6,7 @@ The Kelly Family (clips)[H.264] Mp4 (1998-2011)
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363403.jpg" />
+  <img src="Z:/picture/008/save_picture_363403.jpg" />
 </div>
 
 
@@ -42,7 +42,7 @@ Lil Scrappy - Pornstar (Uncensored) (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363401.jpg" />
+  <img src="Z:/picture/008/save_picture_363401.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) [1080p] BDR
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362275.jpg" />
+  <img src="Z:/picture/005/save_picture_362275.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Ozzy Osbourne - DREAMER (2001) HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356945.jpg" />
+  <img src="Z:/picture/008/save_picture_356945.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Stranglers - Greatest Hits On CD&DVD (2012) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340797.jpg" />
+  <img src="Z:/picture/008/save_picture_340797.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Bon Jovi - When We Were Beautiful (2009) BDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337179.jpg" />
+  <img src="Z:/picture/008/save_picture_337179.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Bon Jovi & Surgarland - Crossroads (2005) HDTVRip [MPEG2/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335295.jpg" />
+  <img src="Z:/picture/008/save_picture_335295.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bon Jovi - Live From Tokyo Dome (14.01.2008) HDTVRip [MPEG-2/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335284.jpg" />
+  <img src="Z:/picture/008/save_picture_335284.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Bon Jovi - The Circle Tour (2010) HDTVRip [H.264/1080i-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327500.jpg" />
+  <img src="Z:/picture/008/save_picture_327500.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320389.jpg" />
+  <img src="Z:/picture/008/save_picture_320389.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315490.jpg" />
+  <img src="Z:/picture/008/save_picture_315490.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ G-Dragon - Crayon (2012) WEBRip [1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315484.jpg" />
+  <img src="Z:/picture/008/save_picture_315484.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_314738.jpg" />
+  <img src="Z:/picture/005/save_picture_314738.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Rihanna - Diamonds (Live at The X Factor Results 25.11.2012) (2012) HDTV 1080i
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_310034.jpg" />
+  <img src="Z:/picture/005/save_picture_310034.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Uncensored Music Videos Rock- Volume 1 (2003) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309886.jpg" />
+  <img src="Z:/picture/008/save_picture_309886.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305689.jpg" />
+  <img src="Z:/picture/008/save_picture_305689.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ KSENONA - Далеко-далеко (2012) [BDRip 720p]<POP>
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301318.jpg" />
+  <img src="Z:/picture/008/save_picture_301318.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Blur - Livepark (2012) DVD9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_301016.jpg" />
+  <img src="Z:/picture/005/save_picture_301016.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300780.jpg" />
+  <img src="Z:/picture/008/save_picture_300780.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278091.jpg" />
+  <img src="Z:/picture/008/save_picture_278091.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269614.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268463.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Chickenfoot - Live At Rocklahoma Festival (2012) HDTVRip 720p [H.264]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260437.jpg" />
+  <img src="Z:/picture/005/save_picture_260437.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260407.jpg" />
+  <img src="Z:/picture/005/save_picture_260407.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Larry Coryell Live From Bahia (1992) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259860.jpg" />
+  <img src="Z:/picture/005/save_picture_259860.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Legalize feat.Zhao LeBlanc - E periculoasa (2011) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259309.jpg" />
+  <img src="Z:/picture/005/save_picture_259309.jpg" />
 </div>
 
 

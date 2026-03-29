@@ -1,3 +1,82 @@
+###  Публикация: 97036   (952027) от 21.02.2020
+
+Семь Дней Семь Ночей / Moderato cantabile (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды в кафе молодая женщина знакомится с юношей, и ее однообразная жизнь обретает смысл. Хотя их отношения платонически чисты, молодой человек вынужден уехать из города, из-за того что окружающие осуждают их.Жанр: ДрамаРежиссер: Питер БрукАктеры: Жанна Моро, Жан-Поль Бельмондо, Паскаль де Буассон  Жан Дешам  Дидье Одепен  Колетт Режи  Valeric DobuzinskyПеревод: Двухголосый закадровыйПродолжительность: 1:29:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624508   (952015) от 28.02.2013
+
+Лаура / Laure (1976) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о прикючениях Лауры, дочери священика, которая присоединяется к экспедиции на Филипины для изучения ритуала возрождения племени Мара. Вместо этого она изучает анатомию мужского и женского тела…Производство: ФранцияЖанр: Драма, МелодрамаРежиссер: Роберто Д’Этторе Пьяццоли, Луи-Жак Ролле-АндрианАктеры: Анни Бель, Эмманюэль Арсан, Пьер Одебур, Эл Клайвер, Орсо Мария Гуэррини, Мишель Штарк, Гомер Адамс, Бернардо Бернардо, Сильвио Симонелли, Франко Кури, Эндрю Дуглас, Берто Каселли, Марселла Эгиди, Катрин Дзаго, Жерар Ландри, Женевьева Джеральд, Мария Виктория Абад Круз, Бобби Дженсен, Эдди Хоакин, Лоррэйн КригельПеревод: Одноголосый закадровыйПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785E05F3D4165CAC351695B11BBE8CEECE800C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280211   (951977) от 09.01.2011
+
+Пять дней в Милане / Le cinque giornate (1973) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в 19 веке (1848 год) во время борьбы патриотических сил Италии против австрийского владычества. Случайный снаряд пробивает стену тюрьмы, чем успевает воспользоваться вор и бандит Кайнаццо (Адриано Челентано). Пока он сидел в тюрьме, Италия превратилась в полигон для политических раздоров и баталий. Ничего не понимая в политике, на которую ему глубоко наплевать, Кайнаццо влипает в целую серию смешных, но часто страшных приключений вместе с пекарем Ромоло (Энцо Черузико) из Рима, чья пекарня была разрушена снарядом.
+Сатира, фарс, удачные находки, импонирующий цинизм и эксцентрика наполняют картину Ардженто. Очень забавны диалоги о роли народа при дележе власти между политиканами и вождями всех мастей, рвущихся управлять этим народом. "Нас надули", - вот последний крик Кайнаццо прямо в камеру.Жанр: Боевик, КомедияРежиссер: Дарио АрджентоАктеры: Адриано Челентано, Энцо Черузико, Карла Тато, Серджио Грациани, Мaрилу Толо, Глауко Онорато Луиза Де Сантис, Лоредана МартинезПеревод: Двухголосый закадровыйПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFD661C4161A223F3B0ABC22085B58BE1EC2867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749183   (951335) от 27.01.2014
 
 Рапсодия / Rhapsody (1954) DVDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951335.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951293.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950924.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950777.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950619.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950547.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949755.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949329.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949182.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948973.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948883.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948834.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947996.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947032.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946800.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945853.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945821.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945282.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944541.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944216.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944064.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943624.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942748.jpg" />
 </div>
 
 
@@ -596,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398A681D3AA3D5F6C84817CD55F22601D169D4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088000   (942732) от 09.01.2017
-
-Украли Джоконду / Il ladro della Gioconda (1965) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж, 1911 год. Известный и неуловимый вор «Ромео», однажды утром увидев в окне прекрасную незнакомку, похожую на творение Леонардо да Винчи, решает похитить из Лувра «Джоконду», в знак доказательства своей внезапно пришедшей любви. Глупая и бездарная полиция идет по пятам злодея…Производство: Франция, Италия / Les Films Marceau, Liber FilmЖанр: КомедияРежиссер: Мишель ДевильАктеры: Джордж Чакирис, Марина Влади, Маргарет Ли, Поль Франкёр, Жан Лефевр, Анри Вирложё, Альберто Бонуччи, Джесс Хан, Мино ДороПеревод: Авторский (Р. Янкелевич)Субтитры: ОтсутствуютПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511A0F4B7BF2FB2DB6D08BD49481D201918E76B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859749   (942704) от 15.01.2015
-
-Полицейская академия 6: Город в осаде / Police Academy 6: City Under Siege (1989) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вспышка криминальной активности под кодовым названием «Операция Хаос» может потребовать занавеса для ничего не подозревающего города. Лучшие полицейские специалисты из знаменитой Полицейской Академии взялись за дело.Производство: США | Warner Bros. PicturesЖанр: Комедия, КриминалРежиссер: Питер БонерзАктеры: Бубба Смит, Дэвид Граф, Майкл Уинслоу, Лесли Истербрук, Мэрион Рэмси, Лэнс Кинси, Мэтт МакКой, Брюс Малер, Дж. У. Бейли, Джордж Гейнс, Кеннет Марс, Геррит Грэм, Джордж Р. РобертсонПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8122F238B6D49C2108820771ABCE4189C8660850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859766   (942636) от 15.01.2015
-
-Полицейская академия 5: Место назначения - Майами Бич / Police Academy 5: Assignment: Miami Beach (1988) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солнце, веселье и красивые девушки. Где всему этому быть, как не в Майами Бич? На этом пятом празднике смеха наши герои летят в Майами на чествование любимого коменданта Лассарда. Но у преступников не бывает отпусков, когда отдыхают наши любимые полицейские. Лассард похищен. И даже соблазнительные пляжные вечеринки не смогут отвлечь наших неистовых бойцов от отчаянной (   Читать дальше...   )Производство: США | Warner Bros. PicturesЖанр: Комедия, КриминалРежиссер: Алан МайерсонАктеры: Бубба Смит, Дэвид Граф, Майкл Уинслоу, Лесли Истербрук, Мэрион Рэмси, Джанет Джонс, Лэнс Кинси, Мэтт МакКой, Дж. У. Бейли, Джордж Гейнс, Рене Обержонуа, Джордж Р. РобертсонПеревод: Профессиональный дублированный, профессиональный двухголосый, авторскийЯзык субтитров: АнглийскийПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6F0D891C19DF3F84E805FE4631CE34AA0958A
 ```
 
 https://mybot314.ru/tekegram_catalog/

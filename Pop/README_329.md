@@ -1,3 +1,408 @@
+###  Публикация: 1724076   (109345) от 18.05.2024
+
+Teisutis Makacinas (T. Makačinas) - Disko Muzika (1982) Reissue, 2018, Makačinas [FLAC|Lossless|WEB-DL|tracks] <Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Diena Einam (5:44)
+02. Ilgas Laukimas (4:48)
+03. Prie Atminimu Upes (7:49)
+04. Klausyk, Mieloji (8:52)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B970186E10B847F8466A7088BFA046D319B5EB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724067   (109327) от 18.05.2024
+
+Ant-People - Disco Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Night (5:13)
+02. Remember (3:07)
+03. In My Heart (3:27)
+04. Run Away (3:26)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855FF132179DE4E521435D46BD14D335EF25403C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724585   (109234) от 20.05.2024
+
+VA - Fulltime Production Disco Classic, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.B. and Band - Whistle Fantasy (Extended) (5:45)
+02. Selection - I'm So Glad (4:19)
+03. Rainbow Team - Let Your Body (4:00)
+04. Jimmy Ross - Chocolate Ice (5:52)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCFECCE7BF69225A481D2470382113920902E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724586   (109226) от 20.05.2024
+
+VA - Fulltime Production Disco Classic, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Ross - S.O.S of Love (6:39)
+02. Ago - It Will Never Be (5:31)
+03. Kano - I Need Love (6:06)
+04. Selection - On the Ground (4:33)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A0DA4480539935E93586055CE24E85511CBE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724960   (109142) от 22.05.2024
+
+VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo) (2023) 4CD, Limited Edition [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - The Best (Extended Mighty Mix) (6:35)
+02. John Waite - Missing You (Extended Mix) (7:02)
+03. Billy Idol - Eyes Without A Face (Full-Length Version) (4:59)
+04. Rick Springfield - Human Touch (Extended Mix) (7:20)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, EuropopПродолжительность: 05:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414EE83EFBCF5D8DA2492FFDAF6CDBA918C2652C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724872   (109062) от 23.05.2024
+
+FIZICA - Что, если…? – Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Святые нулевые - Edición de la Revolución [00:02:53]
+02. Катя – Cathedral Edition [00:02:50]
+03. Грешница - Edición de la Revolución [00:02:32]
+04. Пропала в караоке - Edición de la Revolución [00:03:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCD061E1A140BEBD442FF61F8D6DE50D2382BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725156   (109055) от 23.05.2024
+
+VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viktor Vos - Neuro (05:24)
+ 02. Cookie - Cookie 21 (Radio Edit) (02:40)
+ 03. Viktor Vos - Love The Way (04:14)
+ 04. Geo Da Silva, George Buldy - Doctor Beat (03:37)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2215D34988DEFB81842848A0686C09D95CFFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725269   (109022) от 24.05.2024
+
+VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Band of Jocks - Let's All Dance (Italian Version) (5:02)
+02. Marco Martina - Ticket To Shangay (Original English Mix) (6:43)
+03. Sex Band - I Have Got The Answer (Yes I Do) (Vocal) (6:28)
+04. Say When! - Save Me (Original Version) (8:05)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44ECB26E2EB57409B7F3E27716353A444C7C7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725417   (109017) от 24.05.2024
+
+Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. что такое любовь? (01:00)
+02. зависимость (02:51)
+03. яд (02:34)
+04. прайс (03:04)(   Читать дальше...   )Жанр: ПопПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7168E9A4C2DA27DAFDD8811E7CC88F3A1A1119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725267   (109009) от 24.05.2024
+
+VA - Fulltime Production Italo Disco, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurice Mc Gee - Gravity (5:18)
+02. Charlie - Spacer Woman (Vocal) (7:30)
+03. Jet Set - Love Dance (6:43)
+04. Orlando Johnson - With Just A Kiss (Vocal Version) (6:16)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 02:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD689B2A13214865CE0D359AE15BF99A1B048CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725268   (108996) от 24.05.2024
+
+VA - Fulltime Production Italo Disco, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Creatures - Maybe One Day (Dance Mix) (5:46)
+02. Evelyn Barry - Take It As Game (Vocal) (6:10)
+03. Michael Baker - Don't You Want My Lovin' (Vocal) (4:58)
+04. Patty & Orlando Johnson - One Night Pleaser (Dance Version) (6:03)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 02:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBD45F2FE5BF21DDC0A69D77ADC7E04F0FA5C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725734   (108951) от 25.05.2024
+
+О'скар (Оскар / Шамиль Малкандуев) - 3 Альбома (2000-2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шамиль Малкандуев выступал под творческим псевдонимом - Оскар. В конце 1990-х годов переехал в Москву, чтобы заниматься музыкой. На фестивале в Нальчике познакомился с основателем группы «Мёртвые дельфины» Артуром Ацаламовым, который впоследствии написал для него несколько песен, в том числе хиты «Бег по острию ножа», «Паноптикум» и «Мажь вазелином». В Москве Оскар (   Читать дальше...   )2000 - Бег По Острию Ножа
+2001 - II
+2001 - Последний АльбомЖанр: PopПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13101902DDBCC2B860284C81EB25D9652E925BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725588   (108941) от 25.05.2024
+
+Монеточка - Молитвы. Анекдоты. Тосты. (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это было в России
+2. Остановилось
+3. Заново
+4. Монополия(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA22310FABD50F17533C6921640F49618CA6EBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726236   (108836) от 27.05.2024
+
+VA - Fulltime, Vol. 3 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Disco, Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
+02. City Group's Band - Our Time (Young Pulse Remix) (5:33)
+03. Joy Salinas - The Mistery Of Love (Joey Negro Remix) (6:18)
+04. Orlando Johnson - Chocolate City (M.B. Edit Remix) (6:11)(   Читать дальше...   )Жанр: Nu-Disco, Italo-Disco, ElectroПродолжительность: 01:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BD78601CEDC7B0DC57C0DB013B1E950F7D58BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726247   (108835) от 27.05.2024
 
 VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
@@ -6,7 +411,7 @@ VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108835.jpg" />
 </div>
 
 
@@ -35,7 +440,7 @@ VA - Fulltime, Vol. 2 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108832.jpg" />
 </div>
 
 
@@ -64,7 +469,7 @@ VA - Fulltime, Vol. 4 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108831.jpg" />
 </div>
 
 
@@ -93,7 +498,7 @@ VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108825.jpg" />
 </div>
 
 
@@ -122,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108824.jpg" />
 </div>
 
 
@@ -151,7 +556,7 @@ VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108823.jpg" />
 </div>
 
 
@@ -180,7 +585,7 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108647.jpg" />
 </div>
 
 
@@ -209,7 +614,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108641.jpg" />
 </div>
 
 
@@ -238,7 +643,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108640.jpg" />
 </div>
 
 
@@ -267,7 +672,7 @@ VA - DJ Hits Volume 8 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108589.jpg" />
 </div>
 
 
@@ -296,7 +701,7 @@ VA - DJ Hits Techno Old (1997) [OGG Vorbis|480 Kbps] <Electronic, Techno, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108587.jpg" />
 </div>
 
 
@@ -325,7 +730,7 @@ VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108586.jpg" />
 </div>
 
 
@@ -339,412 +744,6 @@ VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A29BC323689B506E871E1A101E0A400CFB684CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727236   (108580) от 01.06.2024
-
-VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Circle - Games People Play (Radio Edit)
-02. Dr. Alban - Let The Beat Goes On (Short Version)
-03. Hit'n'Run - Jump '94 (Short Radio)
-04. Double Trouble - I Swear (Single Version)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792C2D36B95EE3B9831DAD1152C78553A50E9336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727182   (108564) от 01.06.2024
-
-VA - DJ Hits15 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Factory Feat. Max P. - I Think I Wanna Rock (Extended 12'' Version)
-02. Sonic Surfers - Everybody! (Radio Edit)
-03. M. C. Sar & The Real McCoy - Run Away (Club Attack Mix)
-04. Carl Linger - The Right Time (Club Mix)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4AFF9908D3B034F92F09AE6A071BE9E2D25FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727299   (108516) от 02.06.2024
-
-VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pato Banton - Baby Come Back
-02. DJ Bobo - Let The Dream Come True (Radio Mix)
-03. Cappella - Move It Up (Radio Edit)
-04. Adastra - Ionnama (Radio Version)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A1F6DFAF693F6F757DA49ECF389A2BEDC04D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727410   (108490) от 02.06.2024
-
-VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Nex - Cotton Eye Joe
-02. U 96 - Love Religion
-03. Whigfield - Another Day
-04. Baby D - Let Me Be Your Fantasy(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDC0A634ADA709E7614AD235D019484601936DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727752   (108457) от 03.06.2024
-
-VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jessica Jay - Casablanca (Jay In The Mix)
-02. On T.V. - Set Me Free
-03. Unity Loops - Part Of You
-04. K. Da Cruz - Love Is Lifting Me Higher(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D6DFC12DA486DBEB31D5CF4766F9315805C477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727539   (108443) от 03.06.2024
-
-Flamingosis - Better Will Come (2024) [FLAC|Lossless|WEB-DL|tracks] <disco, funk, electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After The Pain [00:04:08]
-02. Soulsearcher [00:04:08]
-03. Never A Coincidence [00:03:58]
-04. The Truth About It [00:03:33](   Читать дальше...   )Жанр: disco, funk, electronicПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4466EF3EEE90BBA497D063115A522DC531A91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727648   (108439) от 03.06.2024
-
-VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson & Janet Jackson - Scream (D.J. Version)
-02. Corona - Baby, Baby
-03. Sound Of RELS - Love Is the Powa!
-04. Scatman John - Scatman's World(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7325F31BBB000BD64C6EC510145BBF9C1491E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727540   (108409) от 03.06.2024
-
-VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rednex - Old Pop In an Oak
-02. E-Type - Set The World On Fire
-03. Mr. President - Up'n Away
-04. Deuce - Call It Love(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727644   (108408) от 03.06.2024
-
-VA - DJ Hits Vol. 26 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scatman John - Scatman (Ski-Ba-Bop-Ba-Dop-Bop)
-02. 20 Fingers feat. Roula - Lick It
-03. La Bouche - Be My Lover
-04. East 17 - Let It Rain(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0C6D4E2DAD00C5813403479B31A429317CA6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727847   (108386) от 04.06.2024
-
-VA - DJ Hits 29 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodie MC - Vibe
-02. Clock - Whoomp! (There It Is)
-03. La Bouche - Where Do You Go
-04. D-Ream - Shoot Me With Your Love(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D22F919B7E29E190C164F295640D9E4D02616B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728228   (108350) от 07.06.2024
-
-Amber - The Hits Remixed (2000) [FLAC|Lossless|tracks + .cue] <House, Euro House, Synth-pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taste The Tears (Thunderpuss Original Mix (3:47)
-02. Love One Another (Pathos Original Mix) (3:46)
-03. Sexual (Li Da Di) (Deep Dish Cheez Whiz Remix) (4:12)
-04. Above The Clouds (Eric Kupper Remix) (4:02)(   Читать дальше...   )Жанр: House, Euro House, Synth-popПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21237763C9754BC17689FC3118423DEBE5660E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728364   (108336) от 07.06.2024
-
-VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Ghetto Pussy - Everybody On The Floor (Pump It) (Pump It - Remix)
-02. One Love Feat. Marky Mark - That's The Way I Like It (Club Mix)
-03. Mr. President - Gonna Get Along (Without Ya Now) (Extended)
-04. Joe Samba Jr. feat. African Vibes - I Like Summer (Radio Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAACD6E1016C4747A9335A21C1F649C08AFA4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728352   (108332) от 07.06.2024
-
-VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olli's Club - It's Allright (Euro Radio Edit)
-02. Mata Hari - Spy In The Name Of Love (Spy Remix)
-03. Sultans of Dance - Move On Your Body (Radio Edit)
-04. Freak Brothers - Funky Feeling (Funky Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E60773A5B7C2F2CE0113069B8171AA2F346CE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728669   (108310) от 08.06.2024
-
-Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, Rocket [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Fantastic And The Brown Dirt Cowboy
-02. Tower Of Babel
-03. Bitter Fingers
-04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD184840D88B1735A9C7968DFD076E8A724E359
 ```
 
 https://mybot314.ru/tekegram_catalog/

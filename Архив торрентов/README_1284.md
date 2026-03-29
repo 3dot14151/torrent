@@ -6,7 +6,7 @@ StartIsBack++ 2.0.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766173.jpg" />
+  <img src="Z:/picture/008/save_picture_766173.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paint.NET 4.0.16 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766172.jpg" />
+  <img src="Z:/picture/008/save_picture_766172.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.7.1915 DC 17.04.2017 Stable RePack + Portable by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766166.jpg" />
+  <img src="Z:/picture/008/save_picture_766166.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766164.jpg" />
+  <img src="Z:/picture/008/save_picture_766164.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766163.jpg" />
+  <img src="Z:/picture/008/save_picture_766163.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Advanced Renamer 3.77 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766149.jpg" />
+  <img src="Z:/picture/008/save_picture_766149.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Topaz Gigapixel AI 5.0.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766140.jpg" />
+  <img src="Z:/picture/008/save_picture_766140.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766138.jpg" />
+  <img src="Z:/picture/008/save_picture_766138.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Microsoft Visual Studio 2019 Enterprise 16.6.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766133.jpg" />
+  <img src="Z:/picture/008/save_picture_766133.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Unity Asset - Obfuscator Pro 3.9.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766132.jpg" />
+  <img src="Z:/picture/008/save_picture_766132.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ iCollections 4.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766123.jpg" />
+  <img src="Z:/picture/008/save_picture_766123.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Calendar 366 II 2.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766119.jpg" />
+  <img src="Z:/picture/008/save_picture_766119.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Swallow the Sun - When A Shadow Is Forced Into The Light (2019) [FLAC|Lossless|i
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766114.jpg" />
+  <img src="Z:/picture/008/save_picture_766114.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ iFunia Video Converter Pro 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766110.jpg" />
+  <img src="Z:/picture/008/save_picture_766110.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ John Digweed - Transitions 635-644 (2016) [MP3|320 Kbps] <Progressive House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766098.jpg" />
+  <img src="Z:/picture/008/save_picture_766098.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766088.jpg" />
+  <img src="Z:/picture/008/save_picture_766088.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ ScreenToGif 2.35.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766083.jpg" />
+  <img src="Z:/picture/008/save_picture_766083.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766081.jpg" />
+  <img src="Z:/picture/008/save_picture_766081.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wise Care 365 Pro 4.61.439 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766078.jpg" />
+  <img src="Z:/picture/008/save_picture_766078.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Autorun Organizer 5.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766073.jpg" />
+  <img src="Z:/picture/008/save_picture_766073.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mac-Talla Nan Creag - The Sorrow Of Derdriu (2019) [MP3|320 Kbps] <Electronic, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766035.jpg" />
+  <img src="Z:/picture/008/save_picture_766035.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Wise Care 365 Pro 5.2.5.520 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766034.jpg" />
+  <img src="Z:/picture/008/save_picture_766034.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766031.jpg" />
+  <img src="Z:/picture/008/save_picture_766031.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ ON1 Photo RAW 2019.2 v13.2.0.6564 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766030.jpg" />
+  <img src="Z:/picture/008/save_picture_766030.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Volume Ace Pro (Lite-Mod) v3.6.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766024.jpg" />
+  <img src="Z:/picture/008/save_picture_766024.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Telegram Desktop 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766018.jpg" />
+  <img src="Z:/picture/008/save_picture_766018.jpg" />
 </div>
 
 

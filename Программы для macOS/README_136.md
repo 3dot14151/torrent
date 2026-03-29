@@ -1,3 +1,135 @@
+###  Публикация: 1652223   (206677) от 10.08.2023
+
+AlDente Pro fo Mac 1.2.22 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энтузиасты из Австрии создали небольшую, но полезную утилиту под названием AlDente. Она способствует более щадящему и эффективному использованию аккумуляторов любых MacBookТип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2023 AppHouseKitchenПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B921D90E2D72DAFF91664DF2FB7DCD83811FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652114   (206649) от 10.08.2023
+
+4K Video Downloader + 1.1.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDDF8EDCD6BA323668887C5CAE178C79A2DE2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652509   (206564) от 11.08.2023
+
+Sublime Merge 2.0 Build 2087 Dev for Mac [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © 2022 Sublime HQПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F4E37F69182B7AA916367A68CD69FF39B5754D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652692   (206489) от 12.08.2023
+
+Direct Mail 6.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Direct Mail - Лучшее приложение для управления и отправки писем для Mac OS.
+Direct Mail обладает интуитивно понятным интерфейсом и мощным почтовым движком, который позволит с легкостью поддерживать связь со своими контактами не заморачиваясь сложными настройками.Тип издания: macOS SoftwareРелиз состоялся: 05.08.2023Разработчик: © 2023 e3 SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7B51BD1599E63254FAFC4D564A2526315CB20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652554   (206446) от 12.08.2023
+
+Kyno 1.8.5 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предварительный просмотр, резервное копирование, ввод, регистрация метаданных, конвертирование, обрезка, переименование и организация материала с любых камер (DSLR, дроны, GoPro, RED, Blackmagic Design, Panasonic P2, MXF). Управляйте контентом на любом диске, SD-карте или в команде на общем хранилище.
+Достаточно простой в использовании для режиссеров и помощников (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: Signiant Inc.Поддерживаемая ОС: macOSX 10.10.5 и вышеЯзык интерфейса: Английский, Немеций, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34D7BEEB47C2B295347552A7B141A326842411E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653839   (206036) от 17.08.2023
 
 Airy 3.28 [Multi/Ru]
@@ -6,7 +138,7 @@ Airy 3.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206036.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ PCDJ DEX PRO 3.20.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205557.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ ExactScan Pro / Enterprise 23.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205555.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ UninstallPKG 1.2.1  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205541.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ AirRadar 7 v.7.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205510.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ CaptureGRID 4 v.4.27 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205394.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ BarLinks: Menu Bar Bookmarks 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205333.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ timeLAPSE for Mac 2.66 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205329.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ Aspect Ratio Calculator for Mac 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205327.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ Auditory - Rec lecture & notes 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205289.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ AYBO 1.22.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205277.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ The Clock - The Best World Clock 4.8 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205275.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ future.dj pro - mix everything 1.11.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205171.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ Duplicate File Doctor for Mac 1.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205124.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ Overlay 4.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205113.jpg" />
 </div>
 
 
@@ -403,7 +535,7 @@ FigrCollage Pro 3.3.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205112.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ Dropshare 5.35.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204614.jpg" />
 </div>
 
 
@@ -456,7 +588,7 @@ Wolfram Mathematica 13.3.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204580.jpg" />
 </div>
 
 
@@ -482,7 +614,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204547.jpg" />
+  <img src="Z:/picture/004/save_picture_204547.jpg" />
 </div>
 
 
@@ -509,7 +641,7 @@ iThoughtsX 9.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204390.jpg" />
 </div>
 
 
@@ -535,7 +667,7 @@ iFastZip - Extract RAR & ZIP & 7Z for Mac 8.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204337.jpg" />
 </div>
 
 
@@ -546,142 +678,6 @@ iFastZip - Extract RAR & ZIP & 7Z for Mac 8.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467F984BE42B118D04ECA0EBD3820F6CAFC913DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655491   (204270) от 26.08.2023
-
-Image Resizer – Resize Photos 2.4 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Resizer – Resize Photos  полезный и эффективный инструмент для изменения размера одного или нескольких изображений без ущерба для разрешения и качества изображения. Используя этот инструмент, вы можете выбрать фотографии из библиотеки фотографий или из любой папки на вашем компьютере.
-Получите это приложение, Image Resizer и будьте уверены, что у вас есть лучший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2022Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E337ACE72DA6A62F39B3FCC5FB405B1D71115D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655440   (204241) от 26.08.2023
-
-Lyn 2.3.4 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2023Разработчик: © 2023 Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BECA21C22FC8528DF31B80743B1BEDCCA35ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655484   (204215) от 26.08.2023
-
-Batch Photo Resizer 3.2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Batch Photo Resizer делает гораздо больше, чем следует из названия. Приложение позволяет выполнять бесшовное преобразование между несколькими форматами изображений, изменять размер изображений с максимально возможным качеством и переименовывать.
-ПО предлагает простой и удобный пользовательский интерфейс и обеспечивает чрезвычайно быструю работу. Этот инструмент поможет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2023Разработчик: © 2023 CluBees TechПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA273BDC70BF08EAE658A715A51C1A455A921301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655488   (204202) от 26.08.2023
-
-Ftp-Serv 8.3.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это простое программное обеспечение ftp-сервера для загрузки файлов на ваш Mac или обмена файлами с другими.
-Приложение выполняет три операции:
-1. Вы можете загружать файлы с машины, в которую встроен принтер-сканер, на ваш Mac, если ваш Mac находится в той же локальной сети, что и ваша машина, в которую встроен принтер-сканер
-2. Вы можете обмениваться файлами с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2022Разработчик: © 2021 Renjie. ZhangПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E11BCCB6AF21359A8BA5C79C223F0C8ABCF6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604217   (204134) от 12.01.2023
-
-Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
-Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © DxOПоддерживаемая ОС: macOS 10.15.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55DC41E19810EDC4E70CAC40477CE28232C2938
 ```
 
 https://mybot314.ru/tekegram_catalog/

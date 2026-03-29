@@ -6,7 +6,7 @@ John Digweed - Transitions 592-610 (2016) [MP3|320 кб/с] <Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773926.jpg" />
+  <img src="Z:/picture/008/save_picture_773926.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773919.jpg" />
+  <img src="Z:/picture/008/save_picture_773919.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Revo Uninstaller Pro 3.1.6 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773915.jpg" />
+  <img src="Z:/picture/008/save_picture_773915.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773898.jpg" />
+  <img src="Z:/picture/008/save_picture_773898.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TransOcean 2: Rivals (2016) [Ru/Multi] (1.02) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773884.jpg" />
+  <img src="Z:/picture/008/save_picture_773884.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ XMTV Multimedia Player v2.0.10.38 + Addon Plugins [Ru/Multi] - плеер, по�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773882.jpg" />
+  <img src="Z:/picture/008/save_picture_773882.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Beauty Retouch Panel v 3.0 and Pixel Juggler v2 for Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773876.jpg" />
+  <img src="Z:/picture/008/save_picture_773876.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ HD Wallpapers and Background 4.1.1 AdFree [Ru/Multi] - HD-обои, раздел
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773872.jpg" />
+  <img src="Z:/picture/008/save_picture_773872.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773867.jpg" />
+  <img src="Z:/picture/008/save_picture_773867.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773858.jpg" />
+  <img src="Z:/picture/008/save_picture_773858.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773844.jpg" />
+  <img src="Z:/picture/008/save_picture_773844.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773842.jpg" />
+  <img src="Z:/picture/008/save_picture_773842.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773840.jpg" />
+  <img src="Z:/picture/008/save_picture_773840.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773833.jpg" />
+  <img src="Z:/picture/008/save_picture_773833.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Witness (2016) [Ru/Multi] (1.02-1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773829.jpg" />
+  <img src="Z:/picture/008/save_picture_773829.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773794.jpg" />
+  <img src="Z:/picture/008/save_picture_773794.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773789.jpg" />
+  <img src="Z:/picture/008/save_picture_773789.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Soft Organizer 4.0 Final DC 06.04.2015 RePacK by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773689.jpg" />
+  <img src="Z:/picture/008/save_picture_773689.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Display Driver Uninstaller 14.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773682.jpg" />
+  <img src="Z:/picture/008/save_picture_773682.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773643.jpg" />
+  <img src="Z:/picture/008/save_picture_773643.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ The Opposer Divine - Barb Wire Around Your Neck (2015) [MP3|320 кб/с]<IDM, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773620.jpg" />
+  <img src="Z:/picture/008/save_picture_773620.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FastStone Capture 8.1 Final RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773615.jpg" />
+  <img src="Z:/picture/008/save_picture_773615.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773614.jpg" />
+  <img src="Z:/picture/008/save_picture_773614.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773613.jpg" />
+  <img src="Z:/picture/008/save_picture_773613.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773612.jpg" />
+  <img src="Z:/picture/008/save_picture_773612.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773611.jpg" />
+  <img src="Z:/picture/008/save_picture_773611.jpg" />
 </div>
 
 

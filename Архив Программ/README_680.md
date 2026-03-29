@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706746.jpg" />
+  <img src="Z:/picture/008/save_picture_706746.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent Pro 3.4.3 Build 40208 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706733.jpg" />
+  <img src="Z:/picture/008/save_picture_706733.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tipard Blu-ray Player 6.1.58 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706731.jpg" />
+  <img src="Z:/picture/008/save_picture_706731.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706724.jpg" />
+  <img src="Z:/picture/008/save_picture_706724.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SAP2000 Ultimate 19.1.0 build 1321 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706713.jpg" />
+  <img src="Z:/picture/008/save_picture_706713.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Any Video Converter Ultimate 6.1.3 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706712.jpg" />
+  <img src="Z:/picture/008/save_picture_706712.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706703.jpg" />
+  <img src="Z:/picture/008/save_picture_706703.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Windows Firewall Control 6.0.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706678.jpg" />
+  <img src="Z:/picture/008/save_picture_706678.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ PrintMyFonts 17.3.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706600.jpg" />
+  <img src="Z:/picture/008/save_picture_706600.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ RonyaSoft CD DVD Label Maker 3.2.12 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706504.jpg" />
+  <img src="Z:/picture/008/save_picture_706504.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ RonyaSoft Poster Designer 2.3.12 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706474.jpg" />
+  <img src="Z:/picture/008/save_picture_706474.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tixati 2.53 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706470.jpg" />
+  <img src="Z:/picture/008/save_picture_706470.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AIMP 4.13 Build 1895 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706395.jpg" />
+  <img src="Z:/picture/008/save_picture_706395.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Icecream Ebook Reader Pro 4.55 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706390.jpg" />
+  <img src="Z:/picture/008/save_picture_706390.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Rufus 2.15 (Build 1109) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706388.jpg" />
+  <img src="Z:/picture/008/save_picture_706388.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Skype 7.35.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706382.jpg" />
+  <img src="Z:/picture/008/save_picture_706382.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Unreal Commander 3.57 Build 1215 + GraphXPack + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706320.jpg" />
+  <img src="Z:/picture/008/save_picture_706320.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Firefox 53.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706315.jpg" />
+  <img src="Z:/picture/008/save_picture_706315.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AMD Radeon Software Crimson ReLive Edition 17.4.4 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706314.jpg" />
+  <img src="Z:/picture/008/save_picture_706314.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Far Manager 3.0 Build 4949 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706303.jpg" />
+  <img src="Z:/picture/008/save_picture_706303.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ HWMonitor 1.31 Portable by Loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706302.jpg" />
+  <img src="Z:/picture/008/save_picture_706302.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Clover 3.3.4.04141 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706241.jpg" />
+  <img src="Z:/picture/008/save_picture_706241.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Kaspersky Total Security 2017 17.0.0.611 (b) Final (without Secure Connection) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706228.jpg" />
+  <img src="Z:/picture/008/save_picture_706228.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ IObit Driver Booster Pro 4.4.0.512 Final RePack (& Portable) by D!akov [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706222.jpg" />
+  <img src="Z:/picture/008/save_picture_706222.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinRAR 5.50 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706219.jpg" />
+  <img src="Z:/picture/008/save_picture_706219.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ CoolUtils Total PDF Converter 6.1.0.143 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706191.jpg" />
+  <img src="Z:/picture/008/save_picture_706191.jpg" />
 </div>
 
 

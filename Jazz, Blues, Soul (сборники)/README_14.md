@@ -1,3 +1,32 @@
+###  Публикация: 1047423   (550102) от 29.08.2016
+
+VA - Vintage Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jive Ass Sleepers - French Kiss
+02. Leon Ayers Jr - A Touch of Rhodes
+03. Morris Lionel - Bad
+04. Mark Dorricott - Long Walk Home(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10B34461D160327D4F854FAFAF026112E4159B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048628   (546470) от 02.09.2016
 
 VA - Ladies of Jazz (2016) [MP3|320 Kbps] <Jazz>
@@ -6,7 +35,7 @@ VA - Ladies of Jazz (2016) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546470.jpg" />
+  <img src="Z:/picture/008/save_picture_546470.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Capitol Sings Collection (21CD) (1991-1995)  [MP3|320 кб/с]<Vocal Jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541949.jpg" />
+  <img src="Z:/picture/008/save_picture_541949.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ VA - My Jazz Cafe Vol.1: Chilling Nu-Jazz Beats (2016) [MP3|320 Kbps] <Jazz, Chi
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540371.jpg" />
+  <img src="Z:/picture/008/save_picture_540371.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ VA - Smooth Jazz Classics: Essential Lounge Tunes for Relaxing Ambience, Soft Ja
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538173.jpg" />
+  <img src="Z:/picture/008/save_picture_538173.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ VA - Wonder Woman 150 Rock Blues Songs (2016) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537877.jpg" />
+  <img src="Z:/picture/008/save_picture_537877.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ VA - Native American Blues (2015) [MP3|~206 кб/с (V0)]<Native american, Ethni
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537115.jpg" />
+  <img src="Z:/picture/008/save_picture_537115.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Peter Green - The Very Best (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528485.jpg" />
+  <img src="Z:/picture/008/save_picture_528485.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ VA - Velvet Jazz: Soul Emotions Mix (2016) [MP3|320 Kbps] <Jazz, Free Jazz, Lyri
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527854.jpg" />
+  <img src="Z:/picture/008/save_picture_527854.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ VA - Elegant Jazz Vol. 02 (2019) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523707.jpg" />
+  <img src="Z:/picture/008/save_picture_523707.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ VA - Elegant Jazz Vol. 03 (2019) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523651.jpg" />
+  <img src="Z:/picture/008/save_picture_523651.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ VA - Velvet Blues: 150 Works Of Gold Masters (2018) [MP3|320 Kbps] <Blues, Rock 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522756.jpg" />
+  <img src="Z:/picture/008/save_picture_522756.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ VA - Blues Forever, Vol.91 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512700.jpg" />
+  <img src="Z:/picture/008/save_picture_512700.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ VA - Blues Forever, Vol.90 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507746.jpg" />
+  <img src="Z:/picture/008/save_picture_507746.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ VA - Blues Forever, Vol.88 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507745.jpg" />
+  <img src="Z:/picture/008/save_picture_507745.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ VA - Dynamic Audiophile Jazz Vol.2 (2019) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507715.jpg" />
+  <img src="Z:/picture/008/save_picture_507715.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ VA - Blues Forever, Vol.87 (2018) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507713.jpg" />
+  <img src="Z:/picture/008/save_picture_507713.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Hugo Race - The best (1999-2019) Compilation Album [MP3|320 Kbps] <Blues rock, D
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496405.jpg" />
+  <img src="Z:/picture/008/save_picture_496405.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ VA - Music Of Wanderings: Country Music (2020) [MP3|320 Kbps] <Country, Folk Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495057.jpg" />
+  <img src="Z:/picture/008/save_picture_495057.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ VA - Smooth Lounge Jazz (2015) [MP3|320 кб/с]<Smooth Lounge, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494027.jpg" />
+  <img src="Z:/picture/008/save_picture_494027.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ VA - The Music Band: Oasis Jazz (2018) [MP3|206-320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490100.jpg" />
+  <img src="Z:/picture/008/save_picture_490100.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ VA - Golden Hour (2018) [MP3|320 Kbps] <Swing, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489978.jpg" />
+  <img src="Z:/picture/008/save_picture_489978.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ VA - Velvet Blues (2019) [MP3|320 Kbps] <Blues, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484709.jpg" />
+  <img src="Z:/picture/008/save_picture_484709.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ VA - Soul Deep 08: Smooth Jazz Review (2017) [MP3|320 Kbps] <Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481870.jpg" />
+  <img src="Z:/picture/008/save_picture_481870.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ VA - Jazz Chill: Romantic Female Vocals (2017) [MP3|320 Kbps] <Vocal Jazz, Smoot
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479828.jpg" />
+  <img src="Z:/picture/008/save_picture_479828.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ VA - Mellow Mods Instrumental Jazz Music (2017) [MP3|320 Kbps] <Jazz, Instrument
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478109.jpg" />
+  <img src="Z:/picture/008/save_picture_478109.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ VA - Mellow Mods Instrumental Jazz Music (2017) [MP3|320 Kbps] <Jazz, Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D48A85AFAF78B34ED1DD63228E9E27213D088D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058174   (470821) от 30.09.2016
-
-VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentration (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz for Study Music Academy - Soft Jazz: Best Background Music
-02. Easy Study Music Academy - Concentration and Brain Power
-03. Exam Study Piano Music Guys - Improve Human Memory
-04. Jazz Relax Academy - Positive Motivating Energy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 189962   (859599) от 07.04.2010
+
+Mephisto Walz - Discography (8 albums) (1986-2004) [MP3|192-320 kbps] <Gothic Rock, Deathrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_859599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Magic Bag (4:34)
+02. Our Flesh (4:04)
+03. Watching From The Darkest Places (3:49)
+04. Before These Crimes (4:54)
+05. One Less Day (4:39)
+06. I Want (4:42)
+07. Witches Gold (5:05)
+08. Memories Kill (3:42)
+09. Nightingale (7:09)
+10. Ombra Mai Fu (3:03)Жанр: Gothic Rock, DeathrockПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109437   (859153) от 27.02.2017
 
 Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphonic Rock>
@@ -6,7 +41,7 @@ Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphon
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859153.jpg" />
+  <img src="Z:/picture/008/save_picture_859153.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858558.jpg" />
+  <img src="Z:/picture/008/save_picture_858558.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857804.jpg" />
+  <img src="Z:/picture/008/save_picture_857804.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855471.jpg" />
+  <img src="Z:/picture/008/save_picture_855471.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853788.jpg" />
+  <img src="Z:/picture/008/save_picture_853788.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ Kyle English - 12:33 (2016) [MP3|320 кб/с] <Acoustic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852290.jpg" />
+  <img src="Z:/picture/008/save_picture_852290.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Farm - Farm (1971) Remastered, 2000, Shadoks Music [MP3|320 кб/с] <Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852195.jpg" />
+  <img src="Z:/picture/008/save_picture_852195.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852190.jpg" />
+  <img src="Z:/picture/008/save_picture_852190.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ Yurcash (Юркеш) - Каралі Карпаратівав (2019) [MP3|320 kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851884.jpg" />
+  <img src="Z:/picture/008/save_picture_851884.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ VA - Guitar Heroes (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851834.jpg" />
+  <img src="Z:/picture/008/save_picture_851834.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ Kozak System - Закохані злодії (2020) [MP3|320 kbps] <Ethno Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851822.jpg" />
+  <img src="Z:/picture/008/save_picture_851822.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851728.jpg" />
+  <img src="Z:/picture/008/save_picture_851728.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ John Fogerty - Solo Flight (Live) (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849734.jpg" />
+  <img src="Z:/picture/008/save_picture_849734.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ VA - Ultimate Guitar Legends (4CD) (2015) [MP3|320 кб/с] <Classic Rock, Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848682.jpg" />
+  <img src="Z:/picture/008/save_picture_848682.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ ZZ Top - Дискография (1971-2008) [MP3|320 kbps]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_847073.jpg" />
+  <img src="Z:/picture/009/save_picture_847073.jpg" />
 </div>
 
 
@@ -438,7 +473,7 @@ The Raven Age - Exile  (2021) [MP3|320 kbps] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846314.jpg" />
+  <img src="Z:/picture/008/save_picture_846314.jpg" />
 </div>
 
 
@@ -467,7 +502,7 @@ Kari Rueslatten - To The North (2015) [MP3|320 кб/с] <Rock, Folk, World>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843418.jpg" />
+  <img src="Z:/picture/008/save_picture_843418.jpg" />
 </div>
 
 
@@ -496,7 +531,7 @@ VA - Greatest Ever! 70s Rock (2016) [MP3|320 кб/с] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842929.jpg" />
+  <img src="Z:/picture/008/save_picture_842929.jpg" />
 </div>
 
 
@@ -525,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842611.jpg" />
+  <img src="Z:/picture/008/save_picture_842611.jpg" />
 </div>
 
 
@@ -554,7 +589,7 @@ Manfred Mann's Earth Band - Star Collection (4CD BOX) (2011) [MP3|320 kbps]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842303.jpg" />
+  <img src="Z:/picture/008/save_picture_842303.jpg" />
 </div>
 
 
@@ -580,7 +615,7 @@ David Gilmour - Live In Gdansk (2008) 3CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841199.jpg" />
+  <img src="Z:/picture/008/save_picture_841199.jpg" />
 </div>
 
 
@@ -609,7 +644,7 @@ VA - NOW Acoustic Classics (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840980.jpg" />
+  <img src="Z:/picture/008/save_picture_840980.jpg" />
 </div>
 
 
@@ -638,7 +673,7 @@ The Steepwater Band - Shake Your Faith (2016) [MP3|320 кб/с] <Southern Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840200.jpg" />
+  <img src="Z:/picture/008/save_picture_840200.jpg" />
 </div>
 
 
@@ -667,7 +702,7 @@ VA - Nuggets (Original Artyfacts From The First Psychedelic Era 1965-1968) (1998
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840013.jpg" />
+  <img src="Z:/picture/008/save_picture_840013.jpg" />
 </div>
 
 
@@ -696,7 +731,7 @@ Robert Palmer - Riptide (1985) Reissue, 2021, Universal Music Group [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839822.jpg" />
+  <img src="Z:/picture/008/save_picture_839822.jpg" />
 </div>
 
 
@@ -710,35 +745,6 @@ Robert Palmer - Riptide (1985) Reissue, 2021, Universal Music Group [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:383FEE62A4787A0B6EAAE4EFDF3822679F2F7011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113176   (839653) от 10.03.2017
-
-Rockin'1000 - That's Live - Live in Cesena 2016 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitter Sweet Symphony
-02. Come Together
-03. Gold on the Ceiling
-04. Born to Be Wild(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEEBF0E1A95F27FE3F059B9B1C31D7EE4297073F
 ```
 
 https://mybot314.ru/tekegram_catalog/

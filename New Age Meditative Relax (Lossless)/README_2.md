@@ -6,7 +6,7 @@ VA - Enigmatica vol. 1 (2001) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953699.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Enya - The Very Best of Enya (2009) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953564.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Enya - The Memory Of Trees (1995) Remastered, Limited Edition, 2015, Chinese Dra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952771.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948096.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945975.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943937.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943012.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942992.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Secret Garden - Live at Kilden: 20th Anniversary Concert (2016) [FLAC|Lossless|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942736.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941516.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940270.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939512.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937331.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936391.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935463.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933499.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932433.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932380.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932368.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932365.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932102.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929076.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Moder
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929006.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920882.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920863.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919204.jpg" />
 </div>
 
 

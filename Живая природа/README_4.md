@@ -1,3 +1,55 @@
+###  Публикация: 1483289   (1006886) от 13.07.2021
+
+Радужный мир природы Коста-Рики / The Wildlife of Costa Rica (2018) WEB-DL [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое государство, сравнимое по размерам со Швейцарией, Коста-Рика уделяет огромное внимание защите окружающей среды. Более того – четверть территории страны отведена под национальные парки и заповедники. Тропический климат и неоднородный ландшафт создают условия для уникального разнообразия флоры и фауны, характерной для Северной и Южной Америки. Животные прекрасно (   Читать дальше...   )Производство: Франция, Songes de MoaiЖанр: Документальный, природа, флора, фаунаРежиссер: Ронан Фурнье-КристолПеревод: Дублированный (СВ-Дубль)Субтитры: Русские, английскиеПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F0320073DF77BB4562421F39E4CF9AD65D83CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483800   (1006630) от 15.07.2021
+
+Дикая Португалия / Wild Portugal (2019) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006630.jpg" />
+</div>
+
+
+###  Подробнее
+
+У края европейского континента встречаются теплый средиземноморский климат и холодное течение. Длина береговой линии в этом раю - целых 800 километров, а обрывистые берега стали домом для невероятных диких животных и растений, как загадочных, так и знакомых. Вместе они раскрывают странный и многообразный мир дикой Португалии. Стаи волков здесь выслеживают стада диких (   Читать дальше...   )Производство: Германия, Light & Shadow GmbHЖанр: Документальный, флора, фаунаРежиссер: Кристиан БаумейстерПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B605F1D1C1F1993AB7B4B823B4282FDED7F8229D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483846   (1006494) от 16.07.2021
 
 Шамбор: четыре времени года / Chambord, quatre saisons (2019) HDTVRip [H.264] [FR / RU Sub]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006494.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004720.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002956.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002934.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002813.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002673.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ BBC. Водопой: Африканский Оазис для Животных /
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002030.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC. Звери в Миниатюре / Super Small Animals (2017) WEB-DL [H.264
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001749.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Tr
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001437.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ BBC. Мир Природы. Миниатюрные Чудеса / Nature's Minia
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001415.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001147.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999347.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ BBC: Мир природы. Последний Гризли Райской До�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998315.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991802.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987954.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985341.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983361.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982115.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980400.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978294.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977563.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976087.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975382.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974281.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3F3CD1A43506933B58366BF3C34160B179AF56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358563   (968575) от 08.02.2020
-
-Великий Тихий океан / Big Pacific (2017) BDRip [H.264/1080p] (серии 1-5 из 5) [EN / EN Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий океан занимает одну треть поверхности Земли: он больше, чем вся суша нашей планеты вместе взятая, он - это половина всей воды Земли, а еще он скрывает самое глубокое место нашего мира. Это то место, которое огромные и известные во всем мире, редкие и ослепительные существа называют своим домом, при этом многих из которых люди еще ни разу не видели.Производство: США, NHNZ, Public Broadcasting Service (PBS), CCTV-9, Zweites Deutsches Fernsehen (ZDF),  ZDF Enterprises, Discovery International, Channel 9: Australia, ARTEЖанр: Документальный, природа, флора, фаунаРежиссер: Кайл Мердок, Эндрю УотервортПеревод: отсутствуетСубтитры: Английские (отдельным файлом)Продолжительность: серии x ~00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71A5EFBB8E490379999F3D31787891F0CAF695F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359142   (966070) от 10.02.2020
-
-Времена года в дикой природе Америки / America's Wild Seasons (2019) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966070.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Американские дикие сезоны» - это знаковый документальный четырёхсерийный фильм, о американской дикой природе запечатленной в течение одного года. На земле, в воздухе и под водой, изменяющиеся условия создают особую повествовательную нить, как каждый дикий житель сталкивается с проблемами жизни и смерти.Производство: США, MBM TV & Tamarin ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Джефф МоралесПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE79A8EC880339D6C542F59821E8E9CB1FE156
 ```
 
 https://mybot314.ru/tekegram_catalog/

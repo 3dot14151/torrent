@@ -1,3 +1,134 @@
+###  Публикация: 1630557   (199004) от 01.05.2023
+
+Спецназ против самураев. Миссия 1549 / Sengoku jieitai 1549 / Samurai Commando Mission 1549 (2005) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199004.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате строго засекреченного эксперимента с электромагнитным полем группа солдат была случайно заброшена в прошлое, в 1549 год.
+Правительству удалось скрыть этот инцидент, но спустя годы, когда технические возможности позволили это сделать, в прошлое был послан военный отряд под кодовым названием «Ромео» чтобы спасти мир от разрушения и выручить своих пропавших (   Читать дальше...   )Производство: Япония / Kadokawa Eiga K.K., Japan Film Fund, Nippon Television Network (NTV)Жанр: фантастика, боевикРежиссер: Масааки ТэдзукаАктеры: Ёсукэ Эгути, Кёка Судзуки, Харука Аясэ, Масато Ибу, Кадзуки Китамура, Кодзи Матоба, Акиёси Накао, Кацухиса Намасэ, Томоя Нанами, Даисукэ СимаПеревод: Многоголосый профессиональный (Тайм Медиа Групп)Язык озвучки: Русский, ЯпонскийСубтитры: РусскиеПродолжительность: 01:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4BDF76FE6E9B94FEC48E945AF40311625BFF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631531   (198869) от 06.05.2023
+
+Вздох / Sum / Soom / Breath (2007) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раздавленная изменой мужа Ён вспоминает, как видела репортаж о заключённом, пытавшемся покончить с собой. Она добивается встречи с ним — так начинается их мучительный и страстный роман, который станет последним вдохом для одного и началом новой жизни для другой.Производство: Корея Южная / Cineclick Asia, Kim Ki-Duk Film, SpongeЖанр: драмаРежиссер: Ким Ки ДукАктеры: Пак Чи-а, Чан Чэнь, Кан Ин-хён, Ха Джон-у, Ким Ки Дук, Со Джэ-ик, Лим Хён-гукПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, КорейскийСубтитры: Русские (Forced, full)Продолжительность: 01:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE30E34A8BF82C31A84705F5F6BCC29A1F1034C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631732   (198751) от 07.05.2023
+
+Призрачный дом / Goegimaensyon / Ghost Mansion (2021) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198751.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках идей для новых произведений автор вебтунов решает обследовать заброшенный дом, о котором ходят страшные легенды. Там парень встречает смотрителя, и тот начинает рассказывать ему истории про проклятые квартиры и их невезучих жильцов.Производство: Корея Южная / Contents Panda, KT, MCMCЖанр: ужасыРежиссер: Чо Ба-рынАктеры: Сон Джун, Ким Хон-пха, Ким Бо-ра, Ли Чхан-хун, Пак Со-джин, Ли Дон-ха, Хён Бон-щик, Пак Сэ-хён, О Дэ-хван, Ким Джэ-хваПеревод: Многоголосый профессиональныйЯзык озвучки: русский, корейскийСубтитры: отсутствуютПродолжительность: 01:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B921AF66F5D1C2712C64D50D9E445D5035F749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632692   (198543) от 11.05.2023
+
+Дьявол внутри / Iblis Dalam Kandungan / Devil in the Womb (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198543.jpg" />
+</div>
+
+
+###  Подробнее
+
+После 15 лет брака и усыновления двух детей Амелия наконец забеременела. Чтобы позаботиться о своей жене, которая страдает от высокого давления, её муж Ферди переезжает из Джакарты к подножию горы Салак. Проблемы возникают, когда оказывается, что в доме, где они живут, обитает дух женщины, которая в прошлом потеряла своего ребенка из-за мистического события.Производство: Индонезия / Darihati FilmsЖанр: ужасыРежиссер: Adhe DharmastriyaАктеры: Нафа Урбач, Ali Syakieb, Denira Wiraguna, М. Адхият, Ианг Дармаван, Ingrid Widjanarko, Ананда Джордж, Anggia Chan, Ятие Сурачман, Ghea MichieoПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, индонезийскийСубтитры: русские, английскиеПродолжительность: 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46434D1EC60CE05AA5477109C959319017A32A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634812   (198080) от 22.05.2023
+
+Наёмный убийца / The Killer / Dip huet seung hung (1989) BDRip [H.265/1080p] [10-bit] [HKR Restored]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198080.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о двух мужчинах, которые становятся друзьями, потому что не желают продаваться, не желают вести жизнь, не отвечающую их чувствам и устремлениям. Джеффри - профессиональный убийца, который, выполняя задание, случайно лишает зрения певицу Дженни. Между слепой певицей и убийцей возникает взаимная привязанность, но самые близкие отношения у Джеффри завязываются (   Читать дальше...   )Производство: Гонконг / Film Workshop Ltd., Golden Princess Film Production Limited, Long Shong Pictures, Magnum Films, Media Asia Group Ltd.Жанр: боевик, криминал, драмаРежиссер: Джон ВуАктеры: Чоу Юнь-Фат, Дэнни Ли, Салли Е, Чу Кон, Кеннет Цан, Шин Фуй-Онь, Тедди Ип, Рики И, Бэрри Вон, Пакмен ВонгПеревод: многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, китайскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD8E64AEAB3E0B1E65963C50532B3B99F9F8A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634738   (198058) от 22.05.2023
 
 Полноводная красная река / Man jiang hong / Full River Red (2023) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +137,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_198058.jpg" />
+  <img src="Z:/picture/004/save_picture_198058.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197986.jpg" />
+  <img src="Z:/picture/004/save_picture_197986.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197676.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197587.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197557.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197535.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197382.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197374.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197304.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197071.jpg" />
+  <img src="Z:/picture/004/save_picture_197071.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196949.jpg" />
+  <img src="Z:/picture/004/save_picture_196949.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196945.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196913.jpg" />
+  <img src="Z:/picture/004/save_picture_196913.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196865.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196790.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196490.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196326.jpg" />
+  <img src="Z:/picture/004/save_picture_196326.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196260.jpg" />
+  <img src="Z:/picture/004/save_picture_196260.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195663.jpg" />
+  <img src="Z:/picture/004/save_picture_195663.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195610.jpg" />
+  <img src="Z:/picture/004/save_picture_195610.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195404.jpg" />
 </div>
 
 
@@ -540,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3773DCC04DEDFC0756E42E5F6A1C191192ABC893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648551   (195242) от 24.07.2023
-
-Самый холодный город / Ji han zhi cheng / The Coldest City (2023) WEBRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1944 году боевику Гу Нианю его близкий друг Фан Пин на смертном одре поручил доставить останки в Харбин. По прибытии в Харбин Гу Ниан узнал, что несколько лет назад семья Фан была жестоко уничтожена. Гу решил остаться в Харбине, чтобы расследовать убийство семьи Фан. В следующем году Гу замаскировался под «Фан Пин» и начал убивать всех подозреваемых злодеев одного (   Читать дальше...   )Производство: КитайЖанр: драма, триллерРежиссер: Ян ФэнАктеры: Ся Юй, Ли Личунь, Тань Кай, Чан Кочу, Чжан Йи Цун, Цзинь Шицзя, Ян Хаоюй, Ван Кэжу, Фэн Цзяи, На ЧжидунПеревод: Двуголосый любительский (DeadSno & den904)Язык озвучки: русскийСубтитры: китайские (hardsub)Продолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8D76EE679CA6E60837E1D27D677D6C75C15613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648949   (195230) от 26.07.2023
-
-Искажённый дом / Dwoteulrin jip / Contorted (2022) WEBRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычное семейство вынужденно меняет жилье и селится в отдаленном доме. В первую же ночь все члены семьи видят странные сны, а мать начинает слышать и подозрительные звуки. Хотя муж женщины не придает происходящему значения, ночные кошмары становятся все более пугающими, а вымысел — неотличимым от реальности.Производство: Корея Южная / Shudder, Takeone Studio, Storywiz, DHL StudioЖанр: УжасыРежиссер: Кан Дон-хонАктеры: Ким Мин-джэ, Ким Бо-мин, Чо Су-хян, Кан Гир-у, Со Ён-хи, О Джа-хун, Но Ха-ёнПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AFAB96DC3EE0B0547B74756DB6B6C94A3DA16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520172   (195038) от 30.07.2023
-
-Белая ночь / Baekyahaeng: Hayan eodoom sokeul geolda (2009) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В старом доме найден труп. Убит недавно вышедший из тюрьмы преступник. В ходе расследования выясняется, что он был одним из подозреваемых в деле 14-летней давности…Жанр: Мелодрама, Детектив, ТриллерРежиссер: Пак Син У / Park Shin WooАктеры: Гю Хан Сок / Kyu Han Suk (Хан Тон Су / Han Dong Su),   Чин Сон Е / Jin Son Ye (Ми Хо / Mi Ho),   Ко Су / Ko Su (Ё Хан / Yo Han),   Чон Ли Мин / Jung Lee Min (Си Ён / Shi Yeong)Язык субтитров: РусскиеПродолжительность: 02:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312272A91759F8A449A0C0D70A3559B1B2C6EEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649771   (195020) от 29.07.2023
-
-Король неба / Chang kong zhi wang / King of the Sky (2023) WEB-DL [H.264/1080p] [Локализованный видеоряд]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195020.jpg" />
-</div>
-
-
-###  Подробнее
-
-На высоте весь исход полета зависит от точно выверенных действий пилота. Чтобы не допустить роковых ошибок и получить важные данные, испытатели день за днем сражаются со смертью. Смогут ли они выполнить задание и вернуться живыми домой к своим родным?Производство: Китай / Alibaba Pictures, Aviation Industry Corporation of China,  Bona Film Group, China Film Co., Ltd.Жанр: боевик, драмаРежиссер: Лю СяошиАктеры: Ван Ибо, Ху Цзюнь, Чжоу Дунъюй, Юй Ши, Бу Юй, Чжай Юйцзя, Ван Цзычэнь, Лу Синь, Цюй Чжэмин, Тянь ЧжуанчжуанПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: Русские (hardsub)Продолжительность: 02:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF199F67EE5F155751F79F747BFBB5795B24B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650375   (194971) от 01.08.2023
-
-Великолепный / Boh lei chun / Gorgeous (1999) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несравненная Бу, девушка из маленькой деревни на берегу океана, приезжает в шумный Гонконг в поисках приключений. Здесь она знакомится с Ченом — знаменитым миллионером. Но романтическая Золушка не подозревает, что Чен окажется очень опасным кавалером.Производство: Гонконг, Тайвань / GH Pictures, Golden Harvest Company, Golden Harvest PicturesЖанр: боевик, мелодрама, комедияРежиссер: Винсент КокАктеры: Джеки Чан, Шу Ци, Тони Люн Чу Вай, Эмиль Чау, Ричи Жэнь, Кэн Ло, Чэнь Сунъюн, Элэйн Цзинь, Брэдли Джеймс Аллан, Тац ЛауПеревод: Многоголосый профессиональныйЯзык озвучки: русский, китайский, английскийСубтитры: Английские (PGS), китайские (PGS)Продолжительность: 01:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2C661958A0DA478ABF484AC1D998D115881BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

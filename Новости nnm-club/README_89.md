@@ -1,3 +1,112 @@
+###  Публикация: 1279365   (764034) от 31.01.2019
+
+ESET Endpoint Security 5.0.2272.7 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя версия из пятой линейки продуктов ESET на момент публикации релиза.
+Проактивная защита рабочих станций с многоуровневым обнаружением вредоносных программ.
+Благодаря встроенным модулям — Антивирус, Антишпион, Персональный брандмауэр и Веб-контроль — решение ESET Endpoint Security обеспечивает комплексную защиту от известных и ранее неизвестных видов угроз. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4915C38D031427CAD24DFB94F6FC9EB7E66458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121581   (764010) от 03.01.2022
+
+Prana Breath / Праническое дыхание (Пранаяма) v9.4.2_3 Guru [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необходимо собраться с мыслями? Быстро и безопасно снять стресс? Вечерний приступ аппетита? Вам поможет Prana Breath - бесплатное приложение для удобных занятий дыхательною гимнастикой! Подойдет для практикующих йогу, а также для тех, кто старается вести здоровый образ жизни.Тип издания: Пиратка (Guru)Релиз состоялся: 21.11.2021Разработчик: Oleksandr AlbulПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E7953714A4A0C8507CC38DBF48CF1E6D39BCC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521283   (764007) от 03.01.2022
+
+Гарри Поттер 20 лет спустя: Возвращение в Хогвартс / Harry Potter 20th Anniversary: Return to Hogwarts (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэниэл Рэдклифф, Руперт Гринт и Эмма Уотсон встретятся со своими коллегами и впервые за долгие годы окажутся в стенах Хогвартса.Производство: США, Великобритания / Casey Patterson Entertainment, Pulse, Pulse Films, Warner Bros. Television, Warner Horizon Television, Warner Horizon Uned TelevisionЖанр: документальный, семейныйРежиссер: Эрен Криви, Джо Перлман, Джорджо ТестиАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джейсон Айзекс, Рэйф Файнс, Хелена Бонем Картер, Гари Олдман, Альфред Энок, Бонни Райт, Эванна Линч, Робби Колтрейн, Том Фелтон, Крис Коламбус, Мэттью Льюис, Имелда СтонтонПеревод: Профессиональный, многоголосый (Amedia)Субтитры: АнглийскиеПродолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE9BD910DFEF1FBB2C1F252F04953FB4A5BD3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213996   (763852) от 22.03.2018
+
+Windows 10 Pro 1709 x86/x64 by kuloymin v12.4 (esd) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017.
+Удалены некоторые APPX, стандартные темы, отключено несколько компонентов, активирован протокол Samba.
+Очищена папка WinSxS\Backup.
+Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3561161044B974B962169E7338A2E41599C87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214627   (763845) от 22.03.2018
 
 Skype 7.41.32.101 RePack (& Portable) by elchupacabra  [Multi/Ru]
@@ -6,7 +115,7 @@ Skype 7.41.32.101 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763845.jpg" />
+  <img src="Z:/picture/008/save_picture_763845.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Time Boss v2.47 Eng/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763769.jpg" />
+  <img src="Z:/picture/008/save_picture_763769.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ Dungeon Siege 2 [Ru] (L) 2005
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763758.jpg" />
+  <img src="Z:/picture/008/save_picture_763758.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763556.jpg" />
+  <img src="Z:/picture/008/save_picture_763556.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_763508.jpg" />
+  <img src="Z:/picture/005/save_picture_763508.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763388.jpg" />
+  <img src="Z:/picture/008/save_picture_763388.jpg" />
 </div>
 
 
@@ -163,7 +272,7 @@ Cent Browser 3.8.5.69 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763311.jpg" />
+  <img src="Z:/picture/008/save_picture_763311.jpg" />
 </div>
 
 
@@ -189,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763193.jpg" />
+  <img src="Z:/picture/008/save_picture_763193.jpg" />
 </div>
 
 
@@ -217,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763186.jpg" />
+  <img src="Z:/picture/008/save_picture_763186.jpg" />
 </div>
 
 
@@ -243,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762751.jpg" />
+  <img src="Z:/picture/008/save_picture_762751.jpg" />
 </div>
 
 
@@ -270,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762735.jpg" />
+  <img src="Z:/picture/008/save_picture_762735.jpg" />
 </div>
 
 
@@ -296,7 +405,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3/MP) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762315.jpg" />
+  <img src="Z:/picture/008/save_picture_762315.jpg" />
 </div>
 
 
@@ -322,7 +431,7 @@ Age of Empires II (2013) [Ru/Multi] (3.9.2684.0/dlc) SteamRip Let'sРlay [HD Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762058.jpg" />
+  <img src="Z:/picture/008/save_picture_762058.jpg" />
 </div>
 
 
@@ -348,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761470.jpg" />
+  <img src="Z:/picture/008/save_picture_761470.jpg" />
 </div>
 
 
@@ -375,7 +484,7 @@ Techsmith Snagit 10.0.1 Build 58 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761238.jpg" />
+  <img src="Z:/picture/008/save_picture_761238.jpg" />
 </div>
 
 
@@ -401,7 +510,7 @@ BELOFF 2018.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761019.jpg" />
+  <img src="Z:/picture/008/save_picture_761019.jpg" />
 </div>
 
 
@@ -427,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761016.jpg" />
+  <img src="Z:/picture/008/save_picture_761016.jpg" />
 </div>
 
 
@@ -453,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760846.jpg" />
+  <img src="Z:/picture/008/save_picture_760846.jpg" />
 </div>
 
 
@@ -480,7 +589,7 @@ OS X El Capitan 10.11.5 (15F34) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760489.jpg" />
+  <img src="Z:/picture/008/save_picture_760489.jpg" />
 </div>
 
 
@@ -507,7 +616,7 @@ Call of Duty: World at War (2008) [Ru] (1.7.1263) [MP+SP] Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760484.jpg" />
+  <img src="Z:/picture/008/save_picture_760484.jpg" />
 </div>
 
 
@@ -533,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760483.jpg" />
+  <img src="Z:/picture/008/save_picture_760483.jpg" />
 </div>
 
 
@@ -559,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760143.jpg" />
+  <img src="Z:/picture/008/save_picture_760143.jpg" />
 </div>
 
 
@@ -570,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83452F263E2A7C2C5030E9D91814824822470EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660218   (759856) от 28.05.2013
-
-Call of Juarez: Gunslinger (2013) [Ru/En] (1.0/u1/DLC) RePack R.G. Origami
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st/3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D709D93EF0F3B524CAAFB66404FA033082BB701C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522162   (759629) от 06.01.2022
-
-Купе номер 6 (2021) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студентка из Финляндии садится в поезд Москва-Мурманск, пытаясь сбежать от своей таинственной московской любви. По воле случая ей приходится разделить долгую поездку и тесное купе с грубоватым русским шахтером. Нечаянное соседство помогает обоим пассажирам купе номер шесть осознать своё одиночество и тоску по человеческим отношениям.Производство: Финляндия, Эстония, Россия, Германия / 	Elokuvayhtiö Oy Aamu, Кинокомпания CTBЖанр: драма, мелодрамаРежиссер: Юхо КуосманенАктеры: Юра Борисов, Сейди Хаарла, Динара Друкарова, Дмитрий Беленихин, Юлия Ауг, Валентина Бодягина, Денис Пьянов, Василий Зинькевич, Галина ПетроваПеревод: Не требуется (язык озвучки - русский)Субтитры: ОтсутствуютПродолжительность: 01:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE501997849B6FCEBC2B0483F1D9250E64439DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340019   (759627) от 06.01.2022
-
-Побег из тюрьмы: Коллекция / Prison Break: Collection (2005 - 2009) BDRip 720p [Все сезоны + Финальный побег]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759627.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Final Break - это полнометражный фильм с независимым сюжетом. События повествуют о тех 3ех (6ти? 9ти?) месяцах, которые авторы сериала пропустили в конце финальной серии.Жанр: боевик, драмаРежиссер: Брэд Тернер /Brad Turner/В ролях: Вентворт Миллер /Wentworth Miller/, Доминик Пёрселл /Dominic Purcell/, Сара Уэйн Кэллиc /Sarah Wayne Callies/, Амори Ноласко /Amaury Nolasco/, Роберт Неппер /Robert Knepper/, Рокмонд Дамбер /Rockmond Dunbar/, Уэйд Уильямс /Wade Williams/, Маршалл Олмэн /Marshall Allman/, Пол Адельштейн /Paul Adelstein/, Питер Стормаре /Peter Stormare/, Робин Танни /Robin Tunney/Перевод: * профессиональный (многоголосый, закадровый) С.Р.И.
- * профессиональный (многоголосый, закадровый) NovaFilmСубтитры: русские, английскиеФормат: MKVПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451EB761C1EA4F9320862630137E749E0A720E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214946   (759460) от 25.03.2018
-
-Участники рынка блокчейна оценили потери российской экономики от ICO
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759460.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2018 году российская экономика может потерять $1–1,5 млрд, которые привлекут на ICO (Initial Coin Offering — форма привлечения инвестиций на базе криптовалют) проекты с российскими корнями, следует из проекта доклада (есть у “Ъ”), готовящегося РАКИБ (Российская ассоциация криптовалют и блокчейна). Чтобы сохранить деньги в экономике, РАКИБ предлагает ускорить легализацию (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 433816   (128803) от 10.12.2023
+
+Сказки народов мира | Посиделкино. Выпуск 4 (2010) [MP3, Надежда Рогожина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из фонда радио «Град Петров».
+«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
+Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 06:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325E236A619ABC7080541E9ECC6CA800C5A62095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431269   (128802) от 10.12.2023
+
+Сказки народов мира | Посиделкино. Выпуск 1 (2009) [MP3, Надежда Рогожина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из фонда радио «Град Петров».
+«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
+Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 03:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD50026B24D3E2A65CE9332C87CEF87BB4C5156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431350   (128778) от 10.12.2023
+
+Сказки народов мира | Посиделкино. Выпуск 2 (2009) [MP3, Надежда Рогожина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из фонда радио «Град Петров».
+«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
+Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 05:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E319363F71A41CE8D06689D16FFE37E110CF3B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824139   (128596) от 14.10.2025
 
 Михаил Михайлов | Арабские сказки. Дочь Визиря (2003) [MP3, Татьяна Родионова и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128596.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128326.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128315.jpg" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128314.jpg" />
 </div>
 
 
@@ -116,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128202.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128200.jpg" />
 </div>
 
 
@@ -170,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128184.jpg" />
 </div>
 
 
@@ -197,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128179.jpg" />
 </div>
 
 
@@ -224,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128150.jpg" />
 </div>
 
 
@@ -251,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128102.jpg" />
 </div>
 
 
@@ -278,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127775.jpg" />
 </div>
 
 
@@ -305,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127768.jpg" />
 </div>
 
 
@@ -334,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127638.jpg" />
 </div>
 
 
@@ -360,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127637.jpg" />
 </div>
 
 
@@ -386,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127633.jpg" />
 </div>
 
 
@@ -414,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127632.jpg" />
 </div>
 
 
@@ -442,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127631.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127628.jpg" />
 </div>
 
 
@@ -496,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127603.jpg" />
 </div>
 
 
@@ -522,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127573.jpg" />
 </div>
 
 
@@ -548,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127547.jpg" />
 </div>
 
 
@@ -574,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127512.jpg" />
 </div>
 
 
@@ -600,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127507.jpg" />
 </div>
 
 
@@ -613,87 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2368C46D30072ED98361C3DF6450D07EB73381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341778   (127504) от 17.12.2023
-
-Золотые сказки | Тысяча и одна ночь (2003) [MP3, Игорь Кашинцев, Жанна Рождественская и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотые сказки.
-«Книга тысячи и одной ночи» – бессмертный памятник средневековой арабской и персидской литературы, обширное собрание героических, авантюрных и плутовских сказок.
-Восток – дело тонкое, а восточные сказки удивляют своим волшебным изяществом. В нашей аудиокниге вас и ваших детей ждет встреча с такими знаменитостями, как Аладдин, Али-Баба, Синдбад-мореход (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: RMG РекордсПродолжительность: 08:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742E4C7451130AE1213ADF94B00CDC8AF938CFC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481423   (127496) от 17.12.2023
-
-Туве Янссон | В глубине ноября (2018) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето прошло, и зима не за горами. Снусмумрик, как обычно, отправляется в странствие. Но почему-то на этот раз у него не получается беспечно покинуть Муми-долину – ноги словно сами собой возвращают его обратно. И, кстати, ближе к зиме многие друзья и знакомые муми-троллей вдруг решают, что сейчас самое время нанести визит в Муми-дом. И вот на веранде вновь загорается (   Читать дальше...   )Жанр: Детские приключения, Зарубежные детские книги, СказкиПеревод: Марина Бородицкая, Евгения ТиновицкаяИздательство: Азбука-АттикусПродолжительность: 03:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AFC318E5127FEB3A65CC2E9369C5AB4D5B9A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346798   (127484) от 17.12.2023
-
-Лучшие сказки народов мира | Подарок домового (2002) [MP3, Александр Белявский, Клара Румянова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Лучшие сказки народов мира.
-Жанр сказки – особый жанр, это душа народа, ее создавшего. В занимательном сюжете, в удивительных образах, как в зеркале, отражаются характер народа, ценности, которые он превозносит, пороки, которые порицает. Нет ничего увлекательнее, чем познавать культуру другой страны именно через национальные сказки. Добрые и поучительные шведские (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаВ ролях: Александр Белявский, Клара Румянова, Владимир Романычев, Инна Алабина, Александра НазароваИздательство: Два жирафа, Мост-ВПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A649E1B762D2219CC07DCDBE4B00CC555EA660
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 1040092   (593573) от 03.08.2016
+
+LensFlare Studio 5.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593573.jpg" />
+</div>
+
+
+###  Подробнее
+
+LensFlare Studio послужит основным инструментом для фотографов.
+Добавить красивые вспышки и световые эффекты для ваших фотографий.
+С более чем 100 эффектами, вы можете выбрать из бликов, полос, свечение, боке и многое другое.
+LensFlare Studio - инструмент, который должен иметь любой фотограф или дизайнер.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 августа 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749CB1ADF08F5ACEE53EEECFAFDCAF6DC069A575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040168   (593537) от 03.08.2016
+
+SkyLab Studio 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593537.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вдохновленный своей собственной любовью к красивому небу".
+SkyLab Studio - изменит ваше представление о небе на фотографии.
+Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 августа 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0A01B4A5B8C0704731BCE9AB72B01915447C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233366   (593401) от 29.06.2018
+
+Tooth Fairy 2.4.5 (26) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tooth Fairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
+Tooth Fairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: июнь 2018Разработчик: Lu YibinПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8829C57C5C2EFC5D0A91F3B3DDB1310C2F31FDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233325   (593239) от 29.06.2018
+
+Павел, апостол Христа / Paul, Apostle of Christ (2018) BDRip [1080p] ATV (MVO)
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593239.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни и смерти апостола Павла, который прошёл путь от беспощадного гонителя христиан до одного из основателей христианской церкви. Его последнее миссионерское путешествие заканчивается в тюрьме, куда он был заточён по приказу римского императора Нерона. Пока плененный Павел ждёт казни и размышляет о своей посмертной участи, его последователь Лука пишет новое (   Читать дальше...   )Производство: США /  Affirm Films, ODB Films, Outside Da BoxЖанр: Драма, ИсторияРежиссер: Эндрю ХайаттАктеры: Джеймс Кэвизел, Джеймс Фолкнер, Оливье Мартинес, Джоанн Уолли, Джон Линч, Гиоргос Карамихос, Антония Кэмпбелл-Хьюз, Алессандро Спердути, Александра Вино, Мануэль КошиПеревод: Профессиональный (многоголосый, закадровый) (License)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1C7478C86822256D700EFD268351E75043BAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915576   (592293) от 05.07.2015
 
 iMazing 1.2 [Multi/Ru]
@@ -6,7 +117,7 @@ iMazing 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592293.jpg" />
+  <img src="Z:/picture/008/save_picture_592293.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Shimo 3.4 (3360) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591829.jpg" />
+  <img src="Z:/picture/008/save_picture_591829.jpg" />
 </div>
 
 
@@ -62,7 +173,7 @@ Tower 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591781.jpg" />
+  <img src="Z:/picture/008/save_picture_591781.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ Little Snitch 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591432.jpg" />
+  <img src="Z:/picture/008/save_picture_591432.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ Lingon X 2.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591323.jpg" />
+  <img src="Z:/picture/008/save_picture_591323.jpg" />
 </div>
 
 
@@ -142,7 +253,7 @@ Inboard 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590986.jpg" />
+  <img src="Z:/picture/008/save_picture_590986.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ Extensis Suitcase Fusion 6 v17.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590333.jpg" />
+  <img src="Z:/picture/008/save_picture_590333.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ Hands Off! 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589888.jpg" />
+  <img src="Z:/picture/008/save_picture_589888.jpg" />
 </div>
 
 
@@ -223,7 +334,7 @@ Affinity Photo 1.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589851.jpg" />
+  <img src="Z:/picture/008/save_picture_589851.jpg" />
 </div>
 
 
@@ -250,7 +361,7 @@ Radium 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589497.jpg" />
+  <img src="Z:/picture/008/save_picture_589497.jpg" />
 </div>
 
 
@@ -278,7 +389,7 @@ Permute 3 v3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589397.jpg" />
+  <img src="Z:/picture/008/save_picture_589397.jpg" />
 </div>
 
 
@@ -304,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589095.jpg" />
+  <img src="Z:/picture/008/save_picture_589095.jpg" />
 </div>
 
 
@@ -330,7 +441,7 @@ Bartender 1.2.41 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589070.jpg" />
+  <img src="Z:/picture/008/save_picture_589070.jpg" />
 </div>
 
 
@@ -357,7 +468,7 @@ Switch Pro 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589050.jpg" />
+  <img src="Z:/picture/008/save_picture_589050.jpg" />
 </div>
 
 
@@ -384,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589018.jpg" />
+  <img src="Z:/picture/008/save_picture_589018.jpg" />
 </div>
 
 
@@ -410,7 +521,7 @@ Pixellu SmartAlbums 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588989.jpg" />
+  <img src="Z:/picture/008/save_picture_588989.jpg" />
 </div>
 
 
@@ -439,7 +550,7 @@ Screenium 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587926.jpg" />
+  <img src="Z:/picture/008/save_picture_587926.jpg" />
 </div>
 
 
@@ -465,7 +576,7 @@ Call Recorder for Skype 2.5.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587763.jpg" />
+  <img src="Z:/picture/008/save_picture_587763.jpg" />
 </div>
 
 
@@ -494,7 +605,7 @@ PhotoSweeper X 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587518.jpg" />
+  <img src="Z:/picture/008/save_picture_587518.jpg" />
 </div>
 
 
@@ -521,7 +632,7 @@ Affinity Designer 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586607.jpg" />
+  <img src="Z:/picture/008/save_picture_586607.jpg" />
 </div>
 
 
@@ -550,7 +661,7 @@ Wirecast Pro 6.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586602.jpg" />
+  <img src="Z:/picture/008/save_picture_586602.jpg" />
 </div>
 
 
@@ -577,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586399.jpg" />
+  <img src="Z:/picture/008/save_picture_586399.jpg" />
 </div>
 
 
@@ -589,114 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FFEDDA6D4584063373425156EFAB8A92ADB0DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040618   (586150) от 05.08.2016
-
-CleanMyMac 3.4.1 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - лучшее приложение для очистки Мака.
-CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, лишний код и прочее. Все данные визуально (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 августа 2016Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74135B1509A1C9E53A321DBF5E5963A17B15D9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918651   (585685) от 16.07.2015
-
-MAMP & MAMP PRO 3.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2015Разработчик: Appsolute GmbH.Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BD965527640F69EEFADC57E2BD95487770A9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889972   (585679) от 16.07.2015
-
-HandsFree 2.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте любой телефон Bluetooth для звонков, текстовых сообщений, записи ….
-HandsFree 2 позволяет использовать Mac, для совершения телефонных звонков, отправлять / получать текстовые сообщения *, записывать разговоры, см списки вызовов и многое другое. Hands Free 2 работает в фоновом режиме (с всегда доступным значком в меню состояния), вам не придется беспокоиться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2015Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE358F151217277BF0B96DD65E7D37BFF9C388F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918740   (585677) от 16.07.2015
-
-PhoneClean Pro 3.7.0 (20150710) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585677.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneClean Pro – персональный уборщик мусора для устройств на базе операционной системы iOS. Программа поможет избавиться от различного ненужного хлама владельцам iPhone, iPod Touch и iPad. Довольно часто, пользователи этих устройств сталкиваются с тем, что места во встроенной памяти становится недостаточно и приходится искать приложения, которые можно было бы удалить, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 июля 2015Разработчик: iMobie Inc.Поддерживаемая ОС: Mac OS 10.7 +Язык интерфейса: Русский, Английский, Японский, Китайский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF7E8DC39D9557A8F0347E760B7E87AD42B9B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

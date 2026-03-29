@@ -1,3 +1,61 @@
+###  Публикация: 946173   (429467) от 12.10.2015
+
+VA - Galactic Lounge Exclusive Music Club Selection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koel - Think About You [04:15]
+02. Valefim Planet - Betelgeuse [05:10]
+03. Edo - Wind of the Change [04:01]
+04. Jayson House - Play of the Waves - Original Mix [05:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740C687250544DDDC782334EDAB82F24DB280779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946171   (429464) от 12.10.2015
+
+VA - Bar Lounge Relax Sexy Ambient Ultra Chillout Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hansel Steiner - Epiphany [05:24]
+02. Heaven del Mar - Misty Nights [06:51]
+03. Dj Nuky - Soul Ethno [06:10]
+04. Hetal - Sexy Ambient [03:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DF906BC22354C6ACAFC4D66A5528A67F2BD5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946217   (429420) от 12.10.2015
 
 VA - Music For Everyone - Chillout & Lounge Vol.4 (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
@@ -6,7 +64,7 @@ VA - Music For Everyone - Chillout & Lounge Vol.4 (2015) [MP3|320 кб/с]<Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429420.jpg" />
+  <img src="Z:/picture/008/save_picture_429420.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Techno Funk: 100 Sounds New Generation (2018) [MP3|320 Kbps] <Techno, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429247.jpg" />
+  <img src="Z:/picture/008/save_picture_429247.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Hendkandi: Vocal Trance (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429140.jpg" />
+  <img src="Z:/picture/008/save_picture_429140.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Sport Neo Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428513.jpg" />
+  <img src="Z:/picture/008/save_picture_428513.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best Chillout Vol.18 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428046.jpg" />
+  <img src="Z:/picture/008/save_picture_428046.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Relax to House Vol. 2 (2016) [MP3|320 Kbps] <House, Chillout, NuDisco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428041.jpg" />
+  <img src="Z:/picture/008/save_picture_428041.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Relax to House Vol. 3 (2016) [MP3|320 Kbps] <House, Chillout, NuDisco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427909.jpg" />
+  <img src="Z:/picture/008/save_picture_427909.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Vocal Dubstep Vol.2 (2017) [MP3|320 Kbps] <Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426661.jpg" />
+  <img src="Z:/picture/008/save_picture_426661.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep Mood, Chillhouse Selection (2016) [MP3|320 Kbps] <Deep House, Chill Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426394.jpg" />
+  <img src="Z:/picture/008/save_picture_426394.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sunny Refill Vol.1: Warm and Sunny Chill out Tunes (2016) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426388.jpg" />
+  <img src="Z:/picture/008/save_picture_426388.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Cayo Coco Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426385.jpg" />
+  <img src="Z:/picture/008/save_picture_426385.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Best 320 tracks of HML 2007-2015 (mixed by Cyno\Cone,Cizano) Compiled by Fi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426303.jpg" />
+  <img src="Z:/picture/008/save_picture_426303.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - 100 Feelings Party Dance Hits (2016) [MP3|320 Kbps] <Hip Hop, Reggae, R&B>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426118.jpg" />
+  <img src="Z:/picture/008/save_picture_426118.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - 60 Minutes. Old School Dance Music vol.10 (mixed by Dj V) (2022) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425495.jpg" />
+  <img src="Z:/picture/008/save_picture_425495.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Record Super Chart 603 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425371.jpg" />
+  <img src="Z:/picture/008/save_picture_425371.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Creative Music Box 26 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapste
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425056.jpg" />
+  <img src="Z:/picture/008/save_picture_425056.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Vocal Trance Essentials Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425039.jpg" />
+  <img src="Z:/picture/008/save_picture_425039.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Empire Records - Blue Line Trance (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424730.jpg" />
+  <img src="Z:/picture/008/save_picture_424730.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Empire Records – Hardcore (2017) [MP3|320 Kbps] <Hard Trance, Hardcore, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424590.jpg" />
+  <img src="Z:/picture/008/save_picture_424590.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Beatport Trance Pack  (21.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424406.jpg" />
+  <img src="Z:/picture/008/save_picture_424406.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Record Super Chart #458 (2016) [MP3|320 Kbps] <House, Electro House, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424226.jpg" />
+  <img src="Z:/picture/008/save_picture_424226.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - The Best - In Music We Trust Vol.8 (2016) [MP3|320 Kbps] <House, Electro Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424213.jpg" />
+  <img src="Z:/picture/008/save_picture_424213.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Record Super Chart #503 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424074.jpg" />
+  <img src="Z:/picture/008/save_picture_424074.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Oxigen Music: New Age Ambience (2016) [MP3|320 Kbps] <New Age, Ambient, Rel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424065.jpg" />
+  <img src="Z:/picture/008/save_picture_424065.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Oxigen Music: New Age Ambience (2016) [MP3|320 Kbps] <New Age, Ambient, Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:063B93BB2318ABB9BAF6F2B664A933E5A5A5A82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411792   (423080) от 27.09.2020
-
-VA - Night Guest: Clubbing Techno (2020) [MP3|320 Kbps] <Club, Dance, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423080.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrik Berg - Metroid
-002. Josement - Abstract To Concrete
-003. Fracking - Conflict
-004. Techsonik - Leader(   Читать дальше...   )Жанр: Club, Dance, TechnoПродолжительность: 11:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D833B8A50259BD8B3BC0FC9FBAE16CE48AD0DA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411783   (423069) от 27.09.2020
-
-VA - Record Super Chart 655 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash feat. Poët - БЕГИ (3:06)
-02. Bastard! - F..k That (3:38)
-03. DaBro - Юность (3:39)
-04. twocolors - Lovefool (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B39E9CC46D0BBB14BC7B8A04A257C9A8F3B64C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,83 @@
 https://t.me/izofen
+###  Публикация: 1861323   (1062569) от 
+
+Corona Renderer 14 Update 1 (Hotfix 1) for 3ds Max 2018-2026 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный рендер-движок для 3ds Max и Cinema 4D. Хорошая альтернатива V-ray.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2835A0A7534CB8B0499E41C4C67E0E0CB9FCAFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861416   (1062433) от 
+
+Autodesk 3ds Max 2027 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk 3ds Max предоставляет все необходимые инструменты для проектирования 3D-моделей, анимации и рендеринга. 3ds Max позволяет создавать реалистичные трехмерные сцены и яркие эффекты, естественных 3D-персонажей с правдоподобными движениями, выполнять визуализацию проектов изделий, архитектурных объектов и окружения.Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36C686F3EF187653E33D4F23377C9B3B6F6DF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861030   (1062200) от 
+
+AMS Ландшафтный Дизайн 3D 14.0 [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ландшафтный Дизайн 3D - простая программа для планирования приусадебных и дачных участков. С ее помощью можно нарисовать территорию любой формы и размера, разместить строения, растения и мебель, а затем просмотреть готовый проект в 3D.
+Программа легко управляется и не требует от пользователя специальных навыков. Проектирование здесь больше похоже на игру, чем на (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3349DBDC4371A1643704A24EA6A762E9E4D45EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859821   (1061438) от 
 
 Blender 5.1.0 + Portable [Multi/Ru]
@@ -7,7 +86,7 @@ Blender 5.1.0 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061438.jpg" />
+  <img src="Z:/picture/005/save_picture_1061438.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ Agisoft Metashape Pro 2.3.1 Build 22201 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061391.jpg" />
+  <img src="Z:/picture/005/save_picture_1061391.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ Pepakura Designer 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059222.jpg" />
+  <img src="Z:/picture/005/save_picture_1059222.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ Room Arranger 10.3.6.748 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057174.jpg" />
+  <img src="Z:/picture/005/save_picture_1057174.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ Room Arranger 10.3.6.748 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056793.jpg" />
+  <img src="Z:/picture/005/save_picture_1056793.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ AMS Ландшафтный Дизайн 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055658.jpg" />
+  <img src="Z:/picture/005/save_picture_1055658.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ Room Arranger 10.3.4.743 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055535.jpg" />
+  <img src="Z:/picture/005/save_picture_1055535.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ Room Arranger 10.3.3.741 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053426.jpg" />
+  <img src="Z:/picture/005/save_picture_1053426.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ Room Arranger 10.3.2.739 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051123.jpg" />
+  <img src="Z:/picture/005/save_picture_1051123.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ SketchUp Pro 2026 26.1.189 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050540.jpg" />
+  <img src="Z:/picture/005/save_picture_1050540.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ AMS Дизайн Интерьера 3D 14.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050243.jpg" />
+  <img src="Z:/picture/005/save_picture_1050243.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050177.jpg" />
+  <img src="Z:/picture/005/save_picture_1050177.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ Luxion KeyShot Enteprise 2025.3 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049590.jpg" />
+  <img src="Z:/picture/005/save_picture_1049590.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ SketchUp Pro 2026 26.1.185 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048144.jpg" />
+  <img src="Z:/picture/008/save_picture_1048144.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ Room Arranger 10.3.1.736 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047556.jpg" />
+  <img src="Z:/picture/008/save_picture_1047556.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ Autodesk FBX Review 1.5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045146.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ MeshBoolean v1.8 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041405.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Nitro4D NitroSolo v1.07 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040069.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040065.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040062.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Nitro4D NitroMoFracture v1.06 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040061.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ Nitro4D NitroDraw v1.25 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040059.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ Nitro4D NitroBoxTool v1.07 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040058.jpg" />
 </div>
 
 
@@ -596,85 +675,6 @@ Nitro4D NitroBoxTool v1.07 for Cinema 4D [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F815859D040C5F6DCBC9B01F85439F19F2621B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439325   (1040052) от 12.01.2021
-
-Nitro4D NitroBake3 v3.02  for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин Nitrobake3 предлагает мощный быстрый и интуитивно понятный способ без труда выпекать вашу сцену в ключевые слова и быть в состоянии экспортировать ее в другое программное обеспечение. Он может обрабатывать все объекты и генераторы Cinema 4D Standard и Thinking Particles и Xparticles, а также MoGraph Hair and Dynamics basic может испечь все внутри в Cinema (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C685A1BDA6AAD15F3805CD5FA5D676361FDB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439333   (1040050) от 12.01.2021
-
-Nitro4D NitroEdgeDeformerTool v1.05 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040050.jpg" />
-</div>
-
-
-###  Подробнее
-
-NitroEdgeDeformerTool - это плагин с которым вы можете легко изменить форму своей модели. Выбрав сторону модели, вы можете перемещать, увеличивать, вращать и т. д., А также настраивать и изменять свою собственную модель.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0A99C45C3D8B3870DE11A3F75B9BB3DC0A63E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439208   (1040040) от 12.01.2021
-
-C4DZone QuadCaps v1.0 For Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040040.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuadCaps - это плагин который помогает пользователю закрыть полигональное отверстие с помощью четырехугольной сетки без создания Ngons.
-Выберите контур края, который нужно закрыть, и вызовите инструмент QuadCaps, полигон будет закрыт четырехугольной сеткой.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09192345B5FA3D90CF64F1CEBBF1361C49E2BCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

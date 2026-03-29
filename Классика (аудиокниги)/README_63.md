@@ -1,3 +1,114 @@
+###  Публикация: 385495   (123472) от 11.01.2024
+
+Михаил Салтыков-Щедрин | История одного города (2005 [MP3, Семён Ярмолинец]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классическая литература.
+«История одного города» – одно из лучших произведений Михаила Евграфовича Салтыкова-Щедрина (1826–1889), мастера социальной сатиры и гротеска. Роман Салтыкова-Щедрина современники называли «пасквилем на историю государства Российского». Эта книга сохраняет актуальность и в наше время, являясь, по сути, не беспощадным приговором (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 10:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1A04E80189E710D13D92A91E4140FFC8D7149E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 428073   (123212) от 13.01.2024
+
+И.С. Шмелёв | Старый Валаам (2010) [MP3, Георгий Корольчук]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из фонда радио «Град Петров».
+Иван Сергеевич Шмелёв (1873–1950) – классик русской литературы, один из самых читаемых писателей русского зарубежья. И на родине, и эмиграции Иван Шмелёв, по его собственному признанию, писал «только о России, о русском человеке, о его душе и сердце».
+«Старый Валаам» (1937) – август 1895 года. Московский студент, далекий от религиозных (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: Град ПетровПродолжительность: 05:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C530C405412E2A5BEE230E612E4E506F1685F830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691637   (123109) от 13.01.2024
+
+И.С. Шмелёв | Лето Господне: Праздники. Радости. Скорби (2006) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель, чье имя долгое время было под запретом. Он писал удивительные тексты, в которых размышлял о судьбе страны, представитель консервативно-христианского направления русской словесности.
+Роман-трилогия «Лето Господне: Праздники. Радости. Скорби» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 07:18:14+08:28:15+04:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589476C457E181FB969DF4E3FF01EF58CA6297C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691699   (123068) от 13.01.2024
+
+И.С. Шмелёв | Человек из ресторана (2004) [MP3, Виктор Рудниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель.
+Замысел повести «Человек из ресторана» (1911), по словам автора – выявить слугу человеческого, который по своей специфической деятельности как бы в фокусе представляет всю массу слуг на разных путях жизни. Действующие лица повести образуют (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B291CFD9A765252270B0136D77391B240DF0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691696   (123065) от 13.01.2024
 
 И.С. Шмелёв | Москворецкий Златоуст. Лето Господне. Человек из ресторана (2012) [MP3, Протоиерей Константин Смирнов]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123065.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123063.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123058.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123004.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123000.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122994.jpg" />
 </div>
 
 
@@ -172,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122990.jpg" />
 </div>
 
 
@@ -198,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122988.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122986.jpg" />
 </div>
 
 
@@ -254,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122967.jpg" />
 </div>
 
 
@@ -282,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122965.jpg" />
 </div>
 
 
@@ -309,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122962.jpg" />
 </div>
 
 
@@ -335,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122939.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122658.jpg" />
 </div>
 
 
@@ -390,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122654.jpg" />
 </div>
 
 
@@ -418,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122647.jpg" />
 </div>
 
 
@@ -445,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122529.jpg" />
 </div>
 
 
@@ -473,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122514.jpg" />
 </div>
 
 
@@ -502,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122500.jpg" />
 </div>
 
 
@@ -530,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122467.jpg" />
 </div>
 
 
@@ -557,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122465.jpg" />
 </div>
 
 
@@ -586,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122445.jpg" />
 </div>
 
 
@@ -598,119 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:981BE118AFAC3EC5AD1FDED136E38BE8A72D2022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692623   (122388) от 17.01.2024
-
-Николай Гоголь | Вечера на хуторе близ Диканьки (2003) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Николай Васильевич Гоголь (1809–1852) – великий русский писатель, прозаик, драматург, поэт, критик, публицист.
-Сборник «Вечера на хуторе близ Диканьки» (1831-1832) насыщен украинским этнографическим материалом, веселостью, романтическими настроениями, лиризмом и юмором.
-(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 10:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA12E3FE5B6F5B6673135B36AF9E68E4D570105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457536   (122260) от 18.01.2024
-
-Николай Гоголь | Повести в исполнении мастеров художественного слова (2011) [MP3, Осип Абдулов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Театр у микрофона.
-Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
-Предлагаем вашему вниманию любимые всеми повести Н.В. Гоголя в исполнении мастеров художественного слова Осипа Абдулова, Игоря Ильинского, Веры Пашенной и Сергея Балашова.Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 02:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CE012193C7172B86AF919C32C9D99C3CBD9AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692832   (122174) от 18.01.2024
-
-Николай Гоголь | Ночь перед Рождеством. Вий (2011) [MP3, Александр Андриенко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
-«Ночь перед Рождеством» – одна из лучших повестей сборника «Вечера на хуторе близ Диканьки», до сих пор не утратившая свежести и обаяния рождественской сказки, насыщенная добрым юмором и лиризмом. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИД «Равновесие»Продолжительность: 03:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AB8AC3B4CBC4DB5F3EF0965387EC43F2165257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692847   (122173) от 18.01.2024
-
-Николай Гоголь | Петербургские повести (2010) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
-«Петербургские повести» это Петербург мелких чиновников, мещан, военных и ремесленников. Со знанием дела и большой долей юмора описывает он мир мещанских интересов, взяточничества и бюрократического (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 09:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24FAE78429C23CF2ED121C72416C3033BE8D265
 ```
 
 https://mybot314.ru/tekegram_catalog/

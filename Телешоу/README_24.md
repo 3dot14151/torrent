@@ -1,3 +1,29 @@
+###  Публикация: 909645   (626276) от 18.06.2015
+
+Вечерний Ургант. Сезон №7. Выпуск №79 (2015.06.17) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA76A2DEE4BD89F4C9465437AAF87F3257BB9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144857   (625927) от 23.06.2017
 
 Вечерний Ургант (2017.06.22) SATRip
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625927.jpg" />
+  <img src="Z:/picture/008/save_picture_625927.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625923.jpg" />
+  <img src="Z:/picture/008/save_picture_625923.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625766.jpg" />
+  <img src="Z:/picture/008/save_picture_625766.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625519.jpg" />
+  <img src="Z:/picture/008/save_picture_625519.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625037.jpg" />
+  <img src="Z:/picture/008/save_picture_625037.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620796.jpg" />
+  <img src="Z:/picture/008/save_picture_620796.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620671.jpg" />
+  <img src="Z:/picture/008/save_picture_620671.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620536.jpg" />
+  <img src="Z:/picture/008/save_picture_620536.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617399.jpg" />
+  <img src="Z:/picture/008/save_picture_617399.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610878.jpg" />
+  <img src="Z:/picture/008/save_picture_610878.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610874.jpg" />
+  <img src="Z:/picture/008/save_picture_610874.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610871.jpg" />
+  <img src="Z:/picture/008/save_picture_610871.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610768.jpg" />
+  <img src="Z:/picture/008/save_picture_610768.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601165.jpg" />
+  <img src="Z:/picture/008/save_picture_601165.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598628.jpg" />
+  <img src="Z:/picture/008/save_picture_598628.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596624.jpg" />
+  <img src="Z:/picture/008/save_picture_596624.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591402.jpg" />
+  <img src="Z:/picture/008/save_picture_591402.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591382.jpg" />
+  <img src="Z:/picture/008/save_picture_591382.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590935.jpg" />
+  <img src="Z:/picture/008/save_picture_590935.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590906.jpg" />
+  <img src="Z:/picture/008/save_picture_590906.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590403.jpg" />
+  <img src="Z:/picture/008/save_picture_590403.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589963.jpg" />
+  <img src="Z:/picture/008/save_picture_589963.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589093.jpg" />
+  <img src="Z:/picture/008/save_picture_589093.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588781.jpg" />
+  <img src="Z:/picture/008/save_picture_588781.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586826.jpg" />
+  <img src="Z:/picture/008/save_picture_586826.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956D122FAA74B2D89B7B60CC8BDC8A77B2F24A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041101   (584561) от 07.08.2016
-
-Фетисов. Обезглавленный футбол (07.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584561.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ток-шоу «Фетисов» - именитые гости, эксклюзивные интервью, сенсационные факты и громкие скандалы. Великие победы и острые проблемы российского спорта предстанут в новом свете. Фетисов разберется лично! Вячеслав Фетисов – человек, завоевавший все возможные титулы в мировом хоккее. Он знает о спорте все. Он - тот, с кем всё по-честному! Спортсмен, политик и теперь (   Читать дальше...   )В этом выпуске: Помимо олимпийских скандалов, никак не разрешится другая  спортивная интрига этого лета: кто станет главным тренером сборной России по футболу? После провала на Евро это - задача номер один. Среди наиболее реальных кандидатов сейчас звучат фамилии Бердыева, Бородюка, Семака и Черчесова. Кто поведет сборную России к так нужным всем нам победам? Под чьим руководством (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: Общественно-спортивное ток-шоуРежиссер: Михаил СмирновПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64030C8CD9828D1B81D92369E48D521449C5A3F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1223546   (673300) от 05.05.2018
+
+Bill Wyman's Rhythm Kings (Bill Wyman) - Stone Alone (1976) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. A Quarter To Three 2:55
+02. Gimme Just one Chance 2:51
+03. Soul Satisfying 2:43
+04. Apache Woman 3:35(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAB36B94F53DD7B11BBD65763CD475D58F09F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223947   (669774) от 07.05.2018
 
 Kathy Boye & The DTG Gang - I Feel Alive (2018) [MP3|320 Kbps] <Blues>
@@ -6,7 +35,7 @@ Kathy Boye & The DTG Gang - I Feel Alive (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669774.jpg" />
+  <img src="Z:/picture/008/save_picture_669774.jpg" />
 </div>
 
 
@@ -38,7 +67,7 @@ Selwyn Birchwood - Don't Call No Ambulance (2014) [MP3|320 Kbps] <Blues Rock, El
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669299.jpg" />
+  <img src="Z:/picture/008/save_picture_669299.jpg" />
 </div>
 
 
@@ -67,7 +96,7 @@ Beth McKee - Sugarcane Revival (2015) [MP3|320 кб/с]<New Orleans Blues, South
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665615.jpg" />
+  <img src="Z:/picture/008/save_picture_665615.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ Mike Zito - First Class Life (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662882.jpg" />
+  <img src="Z:/picture/008/save_picture_662882.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Oscar Wilson - One Room Blues (2017) [MP3|320 Kbps] <Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661308.jpg" />
+  <img src="Z:/picture/008/save_picture_661308.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Ry Cooder - The Prodigal Son (2018) [MP3|320 Kbps] <Blues Rock, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659744.jpg" />
+  <img src="Z:/picture/008/save_picture_659744.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Gina Sicilia - Tug Of War (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659288.jpg" />
+  <img src="Z:/picture/008/save_picture_659288.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Adi Barar Band - Hold On! (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659285.jpg" />
+  <img src="Z:/picture/008/save_picture_659285.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Tony Holiday & The Velvetones - No Need To Rush It (2015) [MP3|320 кб/с]<Harm
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658168.jpg" />
+  <img src="Z:/picture/008/save_picture_658168.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Steve Tallis And The Zombi Party - Zombi Party (1993) [MP3|320 кб/с]<Blues, F
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658085.jpg" />
+  <img src="Z:/picture/008/save_picture_658085.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Buddy Moss - The Essential (2002) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658082.jpg" />
+  <img src="Z:/picture/008/save_picture_658082.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Jay Stollman - Room For One More (2015) [MP3|320 кб/с]<East Coast Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658077.jpg" />
+  <img src="Z:/picture/008/save_picture_658077.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Lilly Martin - The Velvet Mission (2012) [MP3|320 кб/с]<Blues, Jazz, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657990.jpg" />
+  <img src="Z:/picture/008/save_picture_657990.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Blackburn - Brothers In This World (2015) [MP3|320 кб/с]<Modern Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656983.jpg" />
+  <img src="Z:/picture/008/save_picture_656983.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Jessy Martens & Band - Touch My Blues Away (2015) Live [MP3|320 кб/с]<Contemp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656892.jpg" />
+  <img src="Z:/picture/008/save_picture_656892.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ High Street - Salute to the 60's (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655892.jpg" />
+  <img src="Z:/picture/008/save_picture_655892.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Barbecue Bob - The Essential (2001) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655697.jpg" />
+  <img src="Z:/picture/008/save_picture_655697.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Charley Jordan - The Essential (2002) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655696.jpg" />
+  <img src="Z:/picture/008/save_picture_655696.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Justin Quinn Band - Lazy By Nature (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653870.jpg" />
+  <img src="Z:/picture/008/save_picture_653870.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Billy Craig - To Come To Us (2015) [MP3|320 кб/с]<Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653562.jpg" />
+  <img src="Z:/picture/008/save_picture_653562.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Charles Wilson - Sweet & Sour Blues (2015) [MP3|320 кб/с]<Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653551.jpg" />
+  <img src="Z:/picture/008/save_picture_653551.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653550.jpg" />
+  <img src="Z:/picture/008/save_picture_653550.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653545.jpg" />
+  <img src="Z:/picture/008/save_picture_653545.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653543.jpg" />
+  <img src="Z:/picture/008/save_picture_653543.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern El
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653542.jpg" />
+  <img src="Z:/picture/008/save_picture_653542.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF4A2C93ADC406AC78890BA20C655A2F5BE84E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904843   (653465) от 04.06.2015
-
-Barbara Blue - Memphis Blue: Sweet, Strong, & Tight (2015) [MP3|320 кб/с]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Off [04:22]
-02. No Time To Cry [03:18]
-03. Rudy's Blues [02:42]
-04. VooDoo Woman [03:53](   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B058FDD1F8B045BA6A3F54DBFB3F5FDA5B563A81
 ```
 
 https://mybot314.ru/tekegram_catalog/

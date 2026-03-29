@@ -1,3 +1,82 @@
+###  Публикация: 586751   (226401) от 09.12.2012
+
+Мони Нильсон-Брэнстрем | Цацики идет в школу [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная и поучительная история про мальчика Цацики, который пошел в школу, где встретил и первого друга, и первую любовь, и первого врага. Приключения в школе получают неожиданное продолжение у Цацики дома, ведь у него самая невероятная в мире мама, которая умеет ходить на руках, шевеля при этом пальцами ног, и может ворваться в кабинет директора школы, если ее очень разозлить.
+ Это детская и в то же время недетская книга о сочувствии, терпимости и взрослении детей и их родителей.Жанр: Рассказы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9EAD6233A0661625B7B5D8F2E08E4DCFE17A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268666   (226228) от 11.12.2018
+
+Лев Толстой и др. | Лучшие сказки русских писателей (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги серии «Вся детская классика», несомненно, отлично впишутся в домашнюю библиотеку вашего ребенка. Обязательные к прочтению произведения стихотворного жанра, а также прозы, иностранные и отечественные классики и современники – вот на чем строится наша серия. Благодаря блестящему писательскому составу «Вся детская классика» сформирует и разовьет у ребенка прекрасный (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 15:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49839B2903B55FC4214943A5D35FEFA9E803530C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424933   (225845) от 18.11.2020
+
+Клайв Стейплз Льюис | Хроники Нарнии (Книги 1-7) (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225845.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Хроники Нарнии" - удивительная и прекрасная история волшебной страны, в которой правят любовь и доброта, где животные и птицы говорят и мыслят подобно людям, а в лесах обитают гномы и великаны, фавны и кентавры. Наряду с "Властелином колец" Дж.Р.Р.Толкина, "Хроники Нарнии" стали мировой классикой фэнтези, одинаково любимой многими поколениями (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 35:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4280C084BB368ACB20F61FCE74F68B9C12F6D94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587015   (225794) от 09.12.2012
 
 Борис Заходер | Винни-Пух и все, все, все (2007) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225794.jpg" />
+  <img src="Z:/picture/005/save_picture_225794.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225727.jpg" />
+  <img src="Z:/picture/005/save_picture_225727.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225691.jpg" />
+  <img src="Z:/picture/005/save_picture_225691.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225647.jpg" />
+  <img src="Z:/picture/005/save_picture_225647.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225588.jpg" />
+  <img src="Z:/picture/005/save_picture_225588.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225579.jpg" />
+  <img src="Z:/picture/005/save_picture_225579.jpg" />
 </div>
 
 
@@ -171,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225409.jpg" />
+  <img src="Z:/picture/005/save_picture_225409.jpg" />
 </div>
 
 
@@ -199,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224440.jpg" />
+  <img src="Z:/picture/005/save_picture_224440.jpg" />
 </div>
 
 
@@ -228,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222844.jpg" />
+  <img src="Z:/picture/005/save_picture_222844.jpg" />
 </div>
 
 
@@ -255,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222761.jpg" />
+  <img src="Z:/picture/005/save_picture_222761.jpg" />
 </div>
 
 
@@ -284,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222741.jpg" />
+  <img src="Z:/picture/005/save_picture_222741.jpg" />
 </div>
 
 
@@ -312,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222538.jpg" />
+  <img src="Z:/picture/005/save_picture_222538.jpg" />
 </div>
 
 
@@ -343,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222508.jpg" />
+  <img src="Z:/picture/005/save_picture_222508.jpg" />
 </div>
 
 
@@ -369,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222414.jpg" />
+  <img src="Z:/picture/005/save_picture_222414.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222367.jpg" />
+  <img src="Z:/picture/005/save_picture_222367.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222346.jpg" />
+  <img src="Z:/picture/005/save_picture_222346.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221709.jpg" />
+  <img src="Z:/picture/005/save_picture_221709.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221617.jpg" />
+  <img src="Z:/picture/005/save_picture_221617.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221608.jpg" />
+  <img src="Z:/picture/005/save_picture_221608.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221563.jpg" />
+  <img src="Z:/picture/005/save_picture_221563.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220898.jpg" />
+  <img src="Z:/picture/005/save_picture_220898.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220653.jpg" />
+  <img src="Z:/picture/005/save_picture_220653.jpg" />
 </div>
 
 
@@ -606,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220502.jpg" />
+  <img src="Z:/picture/005/save_picture_220502.jpg" />
 </div>
 
 
@@ -617,89 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D53DAE48EA9E1D666FBC0DB8CD515DDDD07D3537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998759   (220394) от 21.11.2020
-
-Святослав Сахарнов | Морские сказки (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ах, сколько всего интересного происходит в море! Вы еще не знакомы с его обитателями? Любопытные наваги, хитрый рак, находчивый краб, неугомонный морской карась, жадная камбала… Хотите понаблюдать за их необычайными приключениями? Тогда скорее открывайте книжку и прислушивайтесь к плеску морских волн! Вдруг они поведают вам еще что-то, о чем пока никто не знает?Жанр: Сказки для дошкольного возрастаПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367A0A6DE5C787199713475F8A14F93951D11D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966359   (220303) от 17.12.2015
-
-В гостях у русской сказки | 5 томов  (1937-1986/2006-2012) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том 01 (2CD) (1937-1986/2006)
-Том 02 (2CD) (1952, 1965, 1961/2006)
-Том 03 (2CD) (1962-1984/2007)
-Том 04 (1982, 1985/2011)(   Читать дальше...   )Жанр: Сказка / АудиоспектакльПродолжительность: 06:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35301F5192BE594D3305965761FCD5EC7A1E6FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956827   (219935) от 21.11.2020
-
-Павел Бажов | Каменный цветок, Малахитовая шкатулка, Медной горы Хозяйка и другие сказы (2003) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказы Бажова впитали сюжетные мотивы народных уральских преданий и легенд и рассказы горных мастеров и старателей. Реально-бытовые элементы соседствуют в них с фантастическими фольклорными образами Хозяйки Медной горы, Великого Полоза, Огневушки-Поскакушки, козлика Серебряное копытце и других чудесных персонажей.
-
-По мотивам произведений Бажова созданы кинофильм (   Читать дальше...   )Жанр: СказкиПродолжительность: 06:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E169F6A06E0C96DD8ECA5180CBD611494A7216
 ```
 
 https://mybot314.ru/tekegram_catalog/

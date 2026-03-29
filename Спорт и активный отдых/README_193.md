@@ -1,3 +1,195 @@
+###  Публикация: 1800364   (15861) от 02.06.2025
+
+Формула 1. Сезон 2025. Этап 9. Гран-при Испании. Гонка (01.06.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 июня 2025 воскресенье 16:00 МСК. Этап 9 Барселона. Гран-при Испании. Арена: Автодром Барселона-Каталунья. Гонка (66 кругов)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE23A49467B72938B401D987A492D4C390AA546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800325   (15732) от 03.06.2025
+
+Волейбол. Женщины. Кубок Первого канала. Россия - Сербия (31.05.2025) IPTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый формат спортивных соревнований. Второй по счёту кубок при поддержке Первого канала. Встреча сильнейших волейболисток из Сербии и России.
+
+Тренеры: Константин Ушаков, Зоран Тэрзич
+Судьи: Станислава Симич, Михаил Бондаренко(   Читать дальше...   )Телекомпания: ПервыйЖанр: спорт, волейболЯзык озвучки: РусскийПродолжительность: 02:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28FD5A034F986AC42E0718C36C29C8053A5B978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800729   (15553) от 05.06.2025
+
+НХЛ. Кубок Стэнли 2025. Финал. 1-й матч. Флорида Пантерз - Эдмонтон Ойлерз (04.06.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15553.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 июня 2025 четверг. 03:00 МСК Финал. 1-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейЯзык озвучки: Русский, английскийПродолжительность: 03:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2619B6B2A03A5E5EA6323F2B068E2F36193289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800683   (15536) от 05.06.2025
+
+Футбол. FONBET Кубок России 2024/25. Ростов (Ростов-на-Дону) - ЦСКА (Москва). Супер-финал (01.06.2025) IPTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клубный сезон-2024/2025 подходит к концу. Золотые медали Российской Премьер-Лиги заслуженно забрали футболисты «Краснодара», а сейчас между аутсайдерами и участниками Первой лиги гремят стыковые матчи за право сыграть в РПЛ. Осталось разыграть ещё один ценный трофей — Кубок России. Времена, когда зарубы между «Ростовом» и ЦСКА получались результативными, остались (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702C1CEB171BCA4C6C7EB35812B2A5DEF3543B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800806   (15470) от 06.06.2025
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. 1/2 финала. Испания - Франция (05.06.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. 1/2 финала. Испания - Франция (05.06.2025)
+СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
+СТАДИОН «Штутгарт Арена» (Штутгарт)Телекомпания: ОккоЖанр: Спорт, футболЯзык озвучки: русскийПродолжительность: 01:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41ABD558533A9D6EB8E54F8726A8758A509DC781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800689   (15469) от 06.06.2025
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. 1/2 финала. Германия - Португалия (04.06.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. 1/2 финала. Германия - Португалия (04.06.2025)
+СУДЬЯ Винчич Славко (Марибор, Словения)
+СТАДИОН «Альянц Арена» (Мюнхен)Телекомпания: ОккоЖанр: Спорт, футболЯзык озвучки: русскийПродолжительность: 01:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A334F9B816F707A1695E20C6A77D0B0A28BD153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801240   (15167) от 09.06.2025
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. Финал. Португалия - Испания (08.06.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. Финал. Португалия - Испания (08.06.2025)
+СУДЬЯ Шерер Сандро (Швейцария)
+СТАДИОН «Альянц Арена» (Мюнхен)Телекомпания: ОккоЖанр: Спорт, футболЯзык озвучки: русскийПродолжительность: 04:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFA8B24E134C2A7CD646AADFD71BE93665BC68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800885   (15159) от 09.06.2025
 
 Волейбол. Мужчины. Кубок Первого канала. Россия - Сербия (01.06.2025) WEBRip [H.264/720p]
@@ -6,7 +198,7 @@
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15159.jpg" />
 </div>
 
 
@@ -35,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15135.jpg" />
 </div>
 
 
@@ -63,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15036.jpg" />
 </div>
 
 
@@ -92,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14723.jpg" />
 </div>
 
 
@@ -121,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14551.jpg" />
 </div>
 
 
@@ -147,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14426.jpg" />
 </div>
 
 
@@ -173,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12962.jpg" />
 </div>
 
 
@@ -199,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бокс
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12433.jpg" />
 </div>
 
 
@@ -225,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12231.jpg" />
 </div>
 
 
@@ -251,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12042.jpg" />
 </div>
 
 
@@ -277,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11504.jpg" />
 </div>
 
 
@@ -305,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бокс
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10824.jpg" />
 </div>
 
 
@@ -332,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9995.jpg" />
 </div>
 
 
@@ -358,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9305.jpg" />
 </div>
 
 
@@ -384,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7547.jpg" />
 </div>
 
 
@@ -410,7 +602,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7190.jpg" />
 </div>
 
 
@@ -436,7 +628,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7186.jpg" />
 </div>
 
 
@@ -462,7 +654,7 @@ MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7017.jpg" />
 </div>
 
 
@@ -488,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6457.jpg" />
 </div>
 
 
@@ -499,188 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:642A4C757615D71B73201B998DD7EF696DB3377B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814198   (6250) от 23.08.2025
-
-MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалификация (23.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6250.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 августа 2025 суббота 11:50 МСК этап 14 Балатонфэкаяр. Гран-при Венгрии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814244   (6249) от 23.08.2025
-
-MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6249.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 августа 2025 суббота 16:00 МСК этап 14 Балатонфэкаяр. Гран-при Венгрии. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905FD24395BD227D832F5D9E74EB34E4563215C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814463   (6074) от 24.08.2025
-
-MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6074.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 августа 2025 воскресенье 15:00 МСК этап 14 Балатонфэкаяр. Гран-при Венгрии. Гонка (26 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CE9108679D9CFDFF0A5C77C4C1C95E1FB13533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815675   (4941) от 31.08.2025
-
-Формула 1. Сезон 2025. Этап 15. Гран-при Нидерландов. Квалификация (30.08.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4941.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 августа 2025, суббота. 16:00 МСК. Этап 15, Зандворт. Гран-при Нидерландов. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B55980A615437BF4DB5B27E8811CF4019BD1CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815890   (4829) от 01.09.2025
-
-Формула 1. Сезон 2025. Этап 15. Гран-при Нидерландов. Гонка (31.08.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4829.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 августа 2025, суббота. 16:00 МСК. Этап 15. Арена: Кольцо Зандворт. Гран-при Нидерландов. Гонка (72 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5249C49EE1F0D0768ABD720146D66F69696237F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816668   (4100) от 06.09.2025
-
-Обратный отсчет: Канело против Кроуфорда / Countdown: Canelo vs. Crawford (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 2) 1win Studio [AD]
-
->>Спорт и активный отдых
->>Бокс
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джош Бролин, в качестве рассказчика, раскроет подробности подготовки и личной жизни Канело Альвареса и Теренса Кроуфорда перед их историческим поединком в суперсреднем весе.Производство: США / NetflixЖанр: документальный, спортРежиссер: Джеки Декер, Тим МуленУчастники: Канело Альварес, Теренс КроуфордПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: ~00:45:00 серияРеклама: присутствует пара вставок видеорекламы и статичный логотип
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DECDBBEC240AD9EF53EC00D38B19088B507AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816885   (3873) от 07.09.2025
-
-Формула 1. Сезон 2025. Этап 16. Гран-при Италии. Квалификация (06.09.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3873.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 сентября 2025 суббота 17:00 МСК этап 16 Монца. Гран-при Италии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06CAB46EF07214C307E3D3C29A93D3C6069EEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

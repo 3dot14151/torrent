@@ -1,3 +1,82 @@
+###  Публикация: 1348066   (879637) от 06.04.2020
+
+Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изо дня в день вы ведете однообразную одинокую жизнь в холодном, перенаселенном, стремительно разрастающемся городе. Вместе с безликой толпой вы каждый день отправляетесь на работу в гигантскую корпорацию и сидите в офисе до поздней ночи, а от работы вас отвлекают только бессмысленные сообщения на мобильном. Вы не понимаете, зачем все это. Но однажды — когда вы вновь (   Читать дальше...   )Тип издания: LicenseРазработчик: Krillbite StudioЖанр: Приключение, Головоломка, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B54ECC98E6863D41FBE4D9DE25EAEAA1DD3F1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104765   (879390) от 15.02.2017
+
+Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879390.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Необитаемый остров... Крушение... Книга умирающего исследователя".
+Dear Esther — это удивительный мир Внешних Гебридских островов. Голос читает письма: "Дорогая Эстер..." Dear Esther — это история любви, потерь, вины и воздаяния.Тип издания: LicenseРазработчик: The Chinese Room, Robert BriscoeЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E8CB3B244746577FDE8E94A77BBAF42894736B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104781   (879262) от 15.02.2017
+
+Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dear Esther: Landmark Edition - улучшенная версии популярного «симулятора ходьбы» от студии The Chinese Room. Эта версия может похвастаться обновлённым движком (вместо Source используется Unity 5), переработанным звуком и наличием комментариев создателей. Также в ней появились различные дополнительные настройки, такие как изменение размера субтитров и прицела, а (   Читать дальше...   )Тип издания: LicenseРазработчик: The Chinese Room, Robert BriscoeЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC20C9DF4DDB6EE9707829A533B8BACFADFFF706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105153   (877549) от 16.02.2017
 
 The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Almanac Edition]
@@ -6,7 +85,7 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877549.jpg" />
+  <img src="Z:/picture/005/save_picture_877549.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877535.jpg" />
+  <img src="Z:/picture/005/save_picture_877535.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876271.jpg" />
+  <img src="Z:/picture/005/save_picture_876271.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876213.jpg" />
+  <img src="Z:/picture/005/save_picture_876213.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ The Wardrobe (2017) [En/It] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875880.jpg" />
+  <img src="Z:/picture/005/save_picture_875880.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874211.jpg" />
+  <img src="Z:/picture/005/save_picture_874211.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874018.jpg" />
+  <img src="Z:/picture/008/save_picture_874018.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ White Night (2015) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873100.jpg" />
+  <img src="Z:/picture/008/save_picture_873100.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872961.jpg" />
+  <img src="Z:/picture/008/save_picture_872961.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872167.jpg" />
+  <img src="Z:/picture/008/save_picture_872167.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Wanderlust: Transsiberian (2020) [En] (1.1.13.2003271410) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870250.jpg" />
+  <img src="Z:/picture/008/save_picture_870250.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870227.jpg" />
+  <img src="Z:/picture/008/save_picture_870227.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867724.jpg" />
+  <img src="Z:/picture/008/save_picture_867724.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866214.jpg" />
+  <img src="Z:/picture/008/save_picture_866214.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866069.jpg" />
+  <img src="Z:/picture/008/save_picture_866069.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865720.jpg" />
+  <img src="Z:/picture/008/save_picture_865720.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865303.jpg" />
+  <img src="Z:/picture/008/save_picture_865303.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865168.jpg" />
+  <img src="Z:/picture/008/save_picture_865168.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863797.jpg" />
+  <img src="Z:/picture/008/save_picture_863797.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) License CODEX [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863724.jpg" />
+  <img src="Z:/picture/008/save_picture_863724.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Мех�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863665.jpg" />
+  <img src="Z:/picture/008/save_picture_863665.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) Repack bosenok [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862182.jpg" />
+  <img src="Z:/picture/008/save_picture_862182.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862180.jpg" />
+  <img src="Z:/picture/008/save_picture_862180.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ Nelly Cootalot: The Fowl Fleet - это приключенческий квес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8102C5BA574D3880611F9E62B891FF18A9F3F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999777   (862061) от 23.03.2016
-
-Day of the Tentacle Remastered (2016) [En/Multi] (1.1.6) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day of the Tentacle Remastered представляет собой ремейк классического квеста 1993 года, который является продолжением Maniac Mansion, квеста 1989. Если первая часть заложила основы квестов, взаимодействие пользователя с которыми происходило с помощью мышки, то вторая развила юмористическую сторону, ввела новых персонажей и добавила перемещения во времени. По сюжету (   Читать дальше...   )Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Французский, Испанский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6181B135248BC8D073BE31B7BB02072F17C25E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999925   (861974) от 23.03.2016
-
-Republique Remastered (2015) [Ru/En] (1.0) Repack xatab [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Republique Remastered – игра в жанре стелс от студии Camouflaj. Проект рассказывает о девушке которую зовут Хоуп, которая попала в очень сложную ситуацию, она совершенно не знает, что ей делать. Однако она не одна, ей помогает некий персонаж из телефона. Ее главной целью является побег от тоталитарного режима, который установило действующее правительство. Отметим, (   Читать дальше...   )Тип издания: RepackРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF66998CF948B44DE002985B2D528CF7E9D0E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108710   (861788) от 25.02.2017
-
-Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы проснулись посреди ночи от звуков своей куклы. Она начала говорить, как будто обладает собственным разумом. Кукла предупреждает вас о монстре, который пришел чтобы забрать тебя. Возьмите свой фонарик и найдите Бугимена, прежде чем он найдет вас!Тип издания: LicenseРазработчик: Barry McCabeЖанр: Action (Survival horror), Strategy, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAFD3F423AABA36A9CB9F4A62EE321D747F53E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1510534   (790863) от 17.11.2021
+
+David "Fathead" Newman - It's Mister Fathead (1958 - 1967) 2CD, 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790863.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Hard Times [4:44]
+02. Weird Beard [4:50]
+03. Willow Weep for Me [5:00](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 02:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13FF413943586AB200035B9560141C84DFBEA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387765   (790686) от 03.06.2020
+
+Dan Knight - Montreux (1998) After Hours [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squeeze Me [4:10]
+02. My Foolish Heart [3:48]
+03. Almost September [3:27]
+04. Almost Like Being in Love [2:27](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano jazzПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB7DE9CEB5763B55FB2EFA40863F9A4D45E125D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202215   (790561) от 28.01.2018
+
+Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mel's Drive In [07:54]
+02. Circle Dance [01:35]
+03. The Rising [09:17]
+04. Hearth [07:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610BF80441FA6C0C557EAD2B88EC20687F2DA47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202214   (790560) от 28.01.2018
+
+Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point of Departure [05:25]
+02. Kinch [05:47]
+03. I Can See You from Here [05:35]
+04. Jack in the Back [17:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202245   (790538) от 28.01.2018
 
 VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, Джаз>
@@ -6,7 +122,7 @@ VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, �
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790538.jpg" />
+  <img src="Z:/picture/008/save_picture_790538.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790532.jpg" />
+  <img src="Z:/picture/008/save_picture_790532.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
+  <img src="Z:/picture/008/save_picture_790524.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
+  <img src="Z:/picture/008/save_picture_790522.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
+  <img src="Z:/picture/008/save_picture_790521.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790518.jpg" />
+  <img src="Z:/picture/008/save_picture_790518.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790517.jpg" />
+  <img src="Z:/picture/008/save_picture_790517.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790513.jpg" />
+  <img src="Z:/picture/008/save_picture_790513.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dead Combo - Odeon Hotel (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Blues, Folk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790511.jpg" />
+  <img src="Z:/picture/008/save_picture_790511.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Delvon Lamarr Organ Trio - Close But No Cigar (2018) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790509.jpg" />
+  <img src="Z:/picture/008/save_picture_790509.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Patrick Cornelius - Acadia: Way of the Cairns (2020) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790448.jpg" />
+  <img src="Z:/picture/008/save_picture_790448.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dario Congedo Trio - Don't Quit (2020) [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790397.jpg" />
+  <img src="Z:/picture/008/save_picture_790397.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Herbie Hancock And Friends: Milestones Of Jazz Legends (1957 - 1962) 10CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790343.jpg" />
+  <img src="Z:/picture/008/save_picture_790343.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Adele - 30 (2021) [FLAC|Lossless|tracks + .cue] <Pop-Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790266.jpg" />
+  <img src="Z:/picture/008/save_picture_790266.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Ella Fitzgerald - Clap Hands, Here Comes Charlie! 1961 (2012) Analogue Productio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790134.jpg" />
+  <img src="Z:/picture/008/save_picture_790134.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Dizzy Gillespie - Soul Time (2002) Castle Pulse [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790133.jpg" />
+  <img src="Z:/picture/008/save_picture_790133.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Duende Libre - Drift (2018) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789937.jpg" />
+  <img src="Z:/picture/008/save_picture_789937.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dragon's Brew - Cold Brew (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789935.jpg" />
+  <img src="Z:/picture/008/save_picture_789935.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nat Adderley - "That's Nat" Adderley (1955) 1991, Savoy Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789921.jpg" />
+  <img src="Z:/picture/008/save_picture_789921.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789918.jpg" />
+  <img src="Z:/picture/008/save_picture_789918.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789916.jpg" />
+  <img src="Z:/picture/008/save_picture_789916.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789914.jpg" />
+  <img src="Z:/picture/008/save_picture_789914.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5212B29027C381A6F46ABB2BE3D1D9036924DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275530   (789905) от 12.01.2019
-
-Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dumbo StationMaurizio Giammarco. 4:55
-02. Big OneElvio Ghigliordini. 6:58
-03. Narvalo. 6:19
-04. Your PoisonDavide Shorty. 4:11(   Читать дальше...   )Жанр: Fusion, Jazz-Rock, Jazz-FunkПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8399553EB3D7401B22F9AF913C3F6CDB7B377C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510942   (789866) от 19.11.2021
-
-Franco Ambrosetti Band - Lost Within You (2021) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace [10:36]
-02. I'm Gonna Laugh You Right Outta My Life [7:13]
-03. Silli in the Sky [6:52]
-04. Love Like Ours [7:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5625D943B3CAC944DFCEE361642A263D6E00CFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510944   (789857) от 19.11.2021
-
-Stephanie Nakasian with The Harris Simon Trio - Show Me The Way To Get Out Of This World (2012) Capri Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Road [4:18]
-02. So in Love [4:40]
-03. Lucky So and So [4:24]
-04. Easy Street [3:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8292F26E54450B1FA5FCA6D8DA9E77B092BB45B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202839   (789504) от 30.01.2018
-
-Chaka Khan and Rufus - Street Player (1994) 1978, MCAD [FLAC|Lossless|tracks + .cue] <Funk, Soul, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Player [4:55]
-02. Stay [5:43]
-03. Turn [4:45]
-04. Best of your Heart [3:47](   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9917B2C2389B27150428C4170B5B69F95195B73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

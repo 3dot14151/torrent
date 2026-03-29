@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793179.jpg" />
+  <img src="Z:/picture/008/save_picture_793179.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793178.jpg" />
+  <img src="Z:/picture/008/save_picture_793178.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793174.jpg" />
+  <img src="Z:/picture/008/save_picture_793174.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793153.jpg" />
+  <img src="Z:/picture/008/save_picture_793153.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Directory Lister Pro 2.18.0.294 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793138.jpg" />
+  <img src="Z:/picture/008/save_picture_793138.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793132.jpg" />
+  <img src="Z:/picture/008/save_picture_793132.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Lunacy 0.95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793102.jpg" />
+  <img src="Z:/picture/008/save_picture_793102.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Rufus 2.13 (Build 1081) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793101.jpg" />
+  <img src="Z:/picture/008/save_picture_793101.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793096.jpg" />
+  <img src="Z:/picture/008/save_picture_793096.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793088.jpg" />
+  <img src="Z:/picture/008/save_picture_793088.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793083.jpg" />
+  <img src="Z:/picture/008/save_picture_793083.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Anti-Porn 24.1.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793079.jpg" />
+  <img src="Z:/picture/008/save_picture_793079.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Wondershare Video Converter Ultimate 9.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793077.jpg" />
+  <img src="Z:/picture/008/save_picture_793077.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793072.jpg" />
+  <img src="Z:/picture/008/save_picture_793072.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793066.jpg" />
+  <img src="Z:/picture/008/save_picture_793066.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Permute 3 v3.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793062.jpg" />
+  <img src="Z:/picture/008/save_picture_793062.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BusyContacts 1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793060.jpg" />
+  <img src="Z:/picture/008/save_picture_793060.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ zvλd (zvld) - Enantiodromia (2018) 141414 [FLAC|Lossless|WEB-DL|tracks] <IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793059.jpg" />
+  <img src="Z:/picture/008/save_picture_793059.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BusyCal 3 v3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793054.jpg" />
+  <img src="Z:/picture/008/save_picture_793054.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Clipboard Manager 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793046.jpg" />
+  <img src="Z:/picture/008/save_picture_793046.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Black Out 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793045.jpg" />
+  <img src="Z:/picture/008/save_picture_793045.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ FastScripts 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793043.jpg" />
+  <img src="Z:/picture/008/save_picture_793043.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ ToothFairy 2.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793042.jpg" />
+  <img src="Z:/picture/008/save_picture_793042.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Data Guardian 7 v7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793041.jpg" />
+  <img src="Z:/picture/008/save_picture_793041.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Color Wheel 6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793040.jpg" />
+  <img src="Z:/picture/008/save_picture_793040.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ EazyDraw 10.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793039.jpg" />
+  <img src="Z:/picture/008/save_picture_793039.jpg" />
 </div>
 
 

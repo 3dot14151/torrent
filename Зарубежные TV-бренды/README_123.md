@@ -1,3 +1,107 @@
+###  Публикация: 1228432   (61247) от 31.03.2024
+
+BBC: Истоки жизни (Первая жизнь с Дэвидом Аттенборо) / First Life (David Attenborough's First Life) (2010) BDRemux [VC-1/1080i] (Серии 1-2 из 2) [AVO]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61247.jpg" />
+</div>
+
+
+###  Подробнее
+
+От побережья Ньюфаундленда, окутанного туманом, до пустынь Северной Америки и тропических джунглей Квинсленда Дэвид Аттенборо в фильме "Первая жизнь" ищет доказательство в окаменелостях и животных невероятного периода истории Земли полмиллиарда лет назад, когда животные впервые появились в океанах. От первых глаз, которые видели, до первых хищников, которые (   Читать дальше...   )Производство: Великобритания, An Atlantic Production, BBC, Discovery Channel, Australian Broadcasting CorporationЖанр: Документальный, научно-познавательныйРежиссер: Мартин УильямсУчастники: Дэвид Аттенборо, Хэйзел Бартон, Бернард Деньян, Филип Донохью, Гай Нарбонне, Жан-Бернар Карон, Джастин МаршаллПеревод: Одноголосый закадровый, авторский (В.Курдов)Субтитры: Русские, АнглийскиеПродолжительность: 2 х ~ 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB857B08B9F7305C19B85308800C3B282DDC34A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116166   (61156) от 01.04.2024
+
+BBC: Реальная история научной фантастики / The Real History of Science Fiction (2014) HDTVRip [H.264/720p] (Серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный 4-х-серийный проект посвящен истории научной фантастики. Смотрите фильм, где каждая серия посвящена основным темам: роботам, инопланетянам, космосу и путешествиям во времени. Те, кто стоял у истоков жанра научной фантастики, расскажут зрителям, как создавался вымышленный мир, поражающий реалистичностью, логичностью и научной обоснованностью. Вместе с (   Читать дальше...   )Производство: Великобритания, США, Arts ProductionЖанр: Документальный, кинематографРежиссер: Бен Саутвелл, Энди Мозе, Роберт МёрфиУчастники: Джон Карпентер, Артур Кларк, Ричард Дрейфус, Рутгер Хауэр, Джон Лэндис, Эдвард Джеймс Олмос, Дэвид Теннант, Айзек Азимов, Скотт Бакула, Вероника Картрайт, Питер Койот, Джо Данте, Роланд Эмерих, Боб Гейл, Урсула Ле Гуин, Кристофер Ллойд, Николас Мейер, Хэйли Джоэл Осмент, Пол Верховен, Питер УэллерПеревод: Многоголосый закадровый 24 ДОКПродолжительность: эпизоды по ~00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010EF03A1C3D16B9D3690600FBF837E7E9E55120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133551   (61137) от 01.04.2024
+
+BBC: Мир природы. Очковые медведи: Лесные тени / Natural World. Spectacled Bears: Shadows of the Forest (2008) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61137.jpg" />
+</div>
+
+
+###  Подробнее
+
+До недавнего времени обитающий высоко в лесах Анд южноафриканский очковый медведь считался существом пугливым, к тому же строгим вегетарианцем. Однако местные фермеры свидетельствуют об их нападениях на скот. Мнения кардинально расходятся, многие уверены, что помимо насекомых этот медведь ничего мясного в пищу не употребляет. Мы отправляемся в Анды, чтобы раз и навсегда (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярныйРежиссер: Фергюс Били, Ангел Гарсия-РохоПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBD25AA908E28CC5A75EAA2C1B86FE299EE6B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315812   (61131) от 01.04.2024
+
+BBC: Революции: Идеи, изменившие мир / Revolutions: Ideas That Changed The World (2019) HDTVRip [H.264/1080p-LQ] (серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автомобиль. Самолет. Смартфон. Ракета. Робот. Телескоп. Мы принимаем эти устройства как данность, а ведь каждое из них — это наивысшее достижение человеческого гения, и история каждого из них берет начало в глубокой древности. На протяжении тысячелетий они развивались в результате случайностей, упорного труда, озарений и чудес. Все они возникли как попытка людей (   Читать дальше...   )Производство: Великобритания, Bigger Bang for PBS, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Шон СмитУчастники: Кен Берд, Белал Сабир, Патрик СтюартПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EC5A4A6A3A077E907E8AAF053E3B7AD8593B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134887   (61129) от 01.04.2024
 
 BBC: Скрытые убийцы в домах послевоенного времени / Hidden Killers of The Post War Home (2015) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61129.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ BBC: Секреты ухода за волосами / Hair Care Secrets (2017) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61124.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ BBC: Самое опасное место для работы / Toughest Place t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61118.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ BBC. Турки-османы. Мусульманские властители Е
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61009.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60930.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ BBC. Горы - жизнь над облаками / Mountain: Life at the Extre
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60924.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60797.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ BBC: После смерти. Загадочная наука разложени
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60740.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60694.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ BBC: Путеводитель по Марсу / Mars: A Traveller's Guide (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60604.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BBC: По странам и континентам. Индонезия / Wild In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60507.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC: Последние царственные воины Европы. 1066: Г
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60397.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC. Как устроены шикарные отели. Kulm Hotel, St Moritz 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60384.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ BBC: Силы природы / Wild Weather (2002) DVDRemux (серии 1-4 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60372.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60293.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ BBC: Тайны Китая / Secrets of China (2015) HDTVRip [H.264/1080p] (Се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60195.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60167.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ BBC: По странам и континентам. Южная Америка / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60163.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ BBC: Твое тело. 10 секретов сна / 10 Things You Need To Know 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60056.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ BBC: История Индии с Майклом Вудом / The Story of India
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59973.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ BBC: Мир природы. Водопад Виктория - Гремящий �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59028.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58956.jpg" />
 </div>
 
 
@@ -566,113 +670,6 @@ BBC: Вена. Империя, династия и мечта / Vienna: Empire, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:482C891817ED276D2739B45C6668280F40A3A7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224679   (58902) от 22.04.2024
-
-BBC: Морские гиганты / Ocean Giants (2011) BDRemux [VC-1/1080p] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58902.jpg" />
-</div>
-
-
-###  Подробнее
-
-В подводном мире киты и дельфины ведут необычный образ жизни. Их мир совершенно отличен от нашего, и мы можем лишь заглянуть туда. Синий кит - крупнейшее животное на планете. Более того, это крупнейшее животное из когда-либо живших на Земле. Миллионы лет эти гигантские киты и их сверхразумные братья - дельфины, царили в подводном мире.
-Наши отношения с ними не всегда (   Читать дальше...   )Производство: Великобритания, BBC Bristol, Thirteen / WNETЖанр: Документальный, природа, фаунаРежиссер: Ингрид Квале, Аннушка Скофилд, Эллен ХусейнУчастники: Стивен Фрай, Даг Аллен, Дидье Нуаре, Эндрю Армор, Вера Да Силва, Джим Дарлинг, Аша Де Воз и др.Перевод: Двуголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 3 х 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D861216A1BB38FD5F3EC21B27615BBB1BDE9D630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132236   (58822) от 23.04.2024
-
-BBC: История древней Британии / A History of Ancient Britain (2011-2012) HDTVRip  [H.264/720p] (сезоны 1-2, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ультрасовременное путешествие и открытие загадок - через мир доисторической Британии, от Ледниковой пустоши 12000 г. до н.э. до Каменного века. В фильме рассказано о последней научной работе детектива в экспериментальной археологии, популярного писателя и телеведущего Нила Оливера.
-Как наши предки вышли из последнего ледникового периода, как сельское хозяйство действительно (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, научно-познавательный, история, археология, палеонтологияРежиссер: Ариф Нурмухаммед, Саймон Уинчкомб, Дик ТейлорУчастники: Нил Оливер (ведущий)Перевод: Одноголосый закадровый, профессиональныйСубтитры: НетПродолжительность: 8x~ 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2206EB236563799D46119FFFDCCA16F4CA172CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294774   (58821) от 23.04.2024
-
-BBC: Поразительные чудеса мира / Weird Wonders of the World (2015) HDTV [H.264/1080p-LQ] (Сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский натуралист Крис Пэкхем, исследует самые странные природные явления:
-Как солнце изменило пейзаж классической музыки? Что общего у коз и пауков? Может ли шелк паука помочь нам создать пуленепробиваемую кожу? «Поразительные чудеса света» - это увлекательное путешествие, для поиска ответов на некоторые из самых странных вопросов на планете. С помощью ведущих (   Читать дальше...   )Производство: США, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Андреа БаффериУчастники: Крис ПэкхемПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB49386E79CE113E7802DF831B9C0BD3407EC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144169   (58814) от 23.04.2024
-
-BBC: Звуковые волны: симфония физики / Sound Waves: The Symphony Of Physics (2016) SATRip [H.264] (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - путешествие через мир тайных звуков Вселенной. Физика звука дает нам понимание того, как устроен мир. Мы воспринимаем его как само собой разумеющееся. Но звук может открыть нам массу секретов, от устройства вселенной до способов взаимодействия животных, находящихся в тысячах километров друг от другаПроизводство: Великобритания, BBC Studios The Open University PartnershipЖанр: Документальный, научно-популярныйРежиссер: Дэвид БриджгсУчастники: Д-р Хелен Кзерски (ведущая), Тревор Кокс , Мартин Кокрилл...Перевод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 2x~00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D284E5A183F6D5D5CEE8BACFBDBFD6C03BB7B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

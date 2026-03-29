@@ -1,3 +1,32 @@
+###  Публикация: 1625137   (237931) от 09.04.2023
+
+Jay Gruska - Which One of Us Is Me (1984) [MP3|320 Kbps] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desperate Eyes (04:35)
+02. Atlanta Calling (03:25)
+03. Tattoo (04:18)
+04. The Motion (04:27)(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5718F79DDC8A6C9342A6BAD3DFFB3A290B60CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625269   (237901) от 09.04.2023
 
 Random Earth Project - Airwaves (2023) [MP3|320 Kbps] <Progressive Rock>
@@ -6,7 +35,7 @@ Random Earth Project - Airwaves (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237901.jpg" />
+  <img src="Z:/picture/004/save_picture_237901.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237629.jpg" />
+  <img src="Z:/picture/004/save_picture_237629.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Immortals - No Turning Back (1986) UK 12" Single [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237409.jpg" />
+  <img src="Z:/picture/005/save_picture_237409.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Lindsey Buckingham - Go Insane (1984) Germany 12" Single [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237391.jpg" />
+  <img src="Z:/picture/005/save_picture_237391.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Gino Vannelli - In the Name of Money (1987) US 12" Single [MP3|320 Kbps] <Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237384.jpg" />
+  <img src="Z:/picture/005/save_picture_237384.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237179.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ VA - The Best of Luminol Records 2022 - Cantata (2022) [MP3|320 Kbps] <Alternati
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237059.jpg" />
+  <img src="Z:/picture/005/save_picture_237059.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ The Crystal City Rockers - After All These Years (2021) [MP3|320 Kbps] <Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236609.jpg" />
+  <img src="Z:/picture/005/save_picture_236609.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ DeWolff - Love, Death & In Between (2023) [MP3|320 Kbps] <Psych, Southern, Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236332.jpg" />
+  <img src="Z:/picture/005/save_picture_236332.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236328.jpg" />
+  <img src="Z:/picture/005/save_picture_236328.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Condenados - El Camino de la Serpiente (2023) [MP3|320 Kbps] <Heavy Rock, Doom, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236107.jpg" />
+  <img src="Z:/picture/005/save_picture_236107.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Leroy T. Brown - The Yellow King (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Slud
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236091.jpg" />
+  <img src="Z:/picture/005/save_picture_236091.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ VA - Rock'n'roll Party (2023) [MP3|320 Kbps] <Rock n Roll, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235954.jpg" />
+  <img src="Z:/picture/004/save_picture_235954.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Chords Of Chaos - For Those About to Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235867.jpg" />
+  <img src="Z:/picture/004/save_picture_235867.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Eric Baule - Reflecting Circles (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235803.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Haissem - Philosofiend (2021) [MP3|320 Kbps] <Melodic Black, Dark Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235760.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Black Spiders - Black Spiders (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235751.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Glen Winters - When I Feel Like This (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235713.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ The Rainbird - Queen Takes King (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235706.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Asnt - Bleed Like Us: Evolution of Sorrow (2021) [MP3|320 Kbps] <Hard Rock, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235678.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Revlin Project - Trascender (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235644.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Wet Wet Wet - Popped In Souled Out (1987-2017) Reissue, 2017, Virgin EMI Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234809.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Ray Temple - II (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Garage, Bluesy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234183.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ WyndRider - WyndRider (2023) [MP3|320 Kbps] <Psych Stoner Doom, Bluesy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234160.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Sideless - Choose the Way (2022) [MP3|320 Kbps] <Heavy Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234110.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Sideless - Choose the Way (2022) [MP3|320 Kbps] <Heavy Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F6F33D9F016E5D95820CF1E82945DEC906979D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623250   (233909) от 01.04.2023
-
-Maxus - Maxus (1981) [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Higher You Rise (03:50)
-02. Nobody's Business (03:21)
-03. What You Give (03:53)
-04. Keep a Light On (03:22)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5524F4F9234146C5B7F954DC1AACC562E797043
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Firefox Browser 96.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751424.jpg" />
+  <img src="Z:/picture/008/save_picture_751424.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Notepad++ 6.7.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751418.jpg" />
+  <img src="Z:/picture/008/save_picture_751418.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SolveigMM Video Splitter 5.0.1504.10 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751413.jpg" />
+  <img src="Z:/picture/008/save_picture_751413.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Actual Multiple Monitors 8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751411.jpg" />
+  <img src="Z:/picture/008/save_picture_751411.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AdminPE 3.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751388.jpg" />
+  <img src="Z:/picture/008/save_picture_751388.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751378.jpg" />
+  <img src="Z:/picture/008/save_picture_751378.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Comedy Баттл (2019.02.08) WEB-DLRip (сезон 9, выпуск 4)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751340.jpg" />
+  <img src="Z:/picture/008/save_picture_751340.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BookReader 5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751336.jpg" />
+  <img src="Z:/picture/008/save_picture_751336.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Acrobat Reader DC 2020.009.20074 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751307.jpg" />
+  <img src="Z:/picture/008/save_picture_751307.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wondershare Filmora 9.5.1.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751301.jpg" />
+  <img src="Z:/picture/008/save_picture_751301.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Blackmagic Design Fusion Studio 17.4.3 Build 14 (x64) Portable by rsloadNET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751283.jpg" />
+  <img src="Z:/picture/008/save_picture_751283.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Overloud TH-U Premium 1.4.7 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751278.jpg" />
+  <img src="Z:/picture/008/save_picture_751278.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Emsisoft Emergency Kit 2022.1.0.11328 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751272.jpg" />
+  <img src="Z:/picture/008/save_picture_751272.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Nik Complete Collection by DxO 1.2.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751217.jpg" />
+  <img src="Z:/picture/008/save_picture_751217.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751216.jpg" />
+  <img src="Z:/picture/008/save_picture_751216.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Windows Repair (All In One) 3.1.3 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751205.jpg" />
+  <img src="Z:/picture/008/save_picture_751205.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Actual Window Manager 8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751198.jpg" />
+  <img src="Z:/picture/008/save_picture_751198.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Novicorp WinToFlash 0.8.0122 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751185.jpg" />
+  <img src="Z:/picture/008/save_picture_751185.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751183.jpg" />
+  <img src="Z:/picture/008/save_picture_751183.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751172.jpg" />
+  <img src="Z:/picture/008/save_picture_751172.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751139.jpg" />
+  <img src="Z:/picture/008/save_picture_751139.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ PotPlayer 220106 (1.7.21590) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751129.jpg" />
+  <img src="Z:/picture/008/save_picture_751129.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ ABBYY FineReader PDF for Mac 15.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751125.jpg" />
+  <img src="Z:/picture/008/save_picture_751125.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VueScan Pro 9.7.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751124.jpg" />
+  <img src="Z:/picture/008/save_picture_751124.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751116.jpg" />
+  <img src="Z:/picture/008/save_picture_751116.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ HandBrake 1.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751113.jpg" />
+  <img src="Z:/picture/008/save_picture_751113.jpg" />
 </div>
 
 

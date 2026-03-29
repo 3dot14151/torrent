@@ -1,3 +1,29 @@
+###  Публикация: 1050919   (530572) от 12.09.2016
+
+Rocket Viper 2 2.41 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rocket Viper 2 - Вторая часть стала намного сложение и интересней. Кроме того, в игре очень много хороших нововведений, включая великолепную боевую систему (бесчисленное количество комбо и спец. ударов), новых персонажей, число которых увеличилось до 13, большое количество новых разнообразных врагов и три режима сложности на выбор. Так же стоит отметить небольшую, (   Читать дальше...   )Тип издания: НеофициальныйРелиз состоялся: 2013Разработчик: VolcanicПоддерживаемая ОС: Android 2.3 и вышеЖанр: Arcade, FightingЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D269D1752BFFA1F8255F1F98E2BC14D785DD1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696981   (529999) от 08.09.2013
 
 Dubstep Hero [Игра] (Android 2.1 и выше.)
@@ -6,7 +32,7 @@ Dubstep Hero [Игра] (Android 2.1 и выше.)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529999.jpg" />
+  <img src="Z:/picture/008/save_picture_529999.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529642.jpg" />
+  <img src="Z:/picture/008/save_picture_529642.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529068.jpg" />
+  <img src="Z:/picture/008/save_picture_529068.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ SuperPhoto 2.4.3 [Ru/Multi] - Создание  фотографий с множ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528329.jpg" />
+  <img src="Z:/picture/008/save_picture_528329.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527344.jpg" />
+  <img src="Z:/picture/008/save_picture_527344.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Xodo PDF Reader & Editor Pro 8.0.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527052.jpg" />
+  <img src="Z:/picture/008/save_picture_527052.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526482.jpg" />
+  <img src="Z:/picture/008/save_picture_526482.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Crossty v1.5.15 [Ru/Multi] - мобильное приложение для пр
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526478.jpg" />
+  <img src="Z:/picture/008/save_picture_526478.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524369.jpg" />
+  <img src="Z:/picture/008/save_picture_524369.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Photo Blender v1.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524357.jpg" />
+  <img src="Z:/picture/008/save_picture_524357.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523974.jpg" />
+  <img src="Z:/picture/008/save_picture_523974.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Llama Location Profiles 1.2014.11.20.2330 [Ru/Multi] - Автоматизаци�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523249.jpg" />
+  <img src="Z:/picture/008/save_picture_523249.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Toki Tori 1.0.3 HD [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523211.jpg" />
+  <img src="Z:/picture/008/save_picture_523211.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Space Marshals v1.2.3 Мод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522377.jpg" />
+  <img src="Z:/picture/008/save_picture_522377.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Root Checker Pro 3.97.0.69 [Ru] - Проверка на наличие Root пр
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522270.jpg" />
+  <img src="Z:/picture/008/save_picture_522270.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521524.jpg" />
+  <img src="Z:/picture/008/save_picture_521524.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521448.jpg" />
+  <img src="Z:/picture/008/save_picture_521448.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520975.jpg" />
+  <img src="Z:/picture/008/save_picture_520975.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Battery HD Pro 1.98.14 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519619.jpg" />
+  <img src="Z:/picture/008/save_picture_519619.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ MP4 640х360 Такси 3 / Taxi 3 (2003) DVDRip
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518797.jpg" />
+  <img src="Z:/picture/008/save_picture_518797.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Animal ID - Защита и Уход v2.0.12 Mod by sserratty [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517708.jpg" />
+  <img src="Z:/picture/008/save_picture_517708.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ AirDroid 1.1.0 - Управление с помощью Wi-Fi (15.08.2012) <Ru>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517481.jpg" />
+  <img src="Z:/picture/008/save_picture_517481.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ FilmoraGo - Видео редактор 6.6.9 Mod by Rajat, Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516598.jpg" />
+  <img src="Z:/picture/008/save_picture_516598.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ OfficeSuite + PDF & HD + Addons 13.0.42559 & 12.5.42057 Mod by GhostRider, Mihz,
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516584.jpg" />
+  <img src="Z:/picture/008/save_picture_516584.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515872.jpg" />
+  <img src="Z:/picture/008/save_picture_515872.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FBA955AC1A595BA6AD69902EA4228B75BD0AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561435   (515517) от 04.07.2022
-
-V Recorder - Запись видео с экрана 6.5.3 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515517.jpg" />
-</div>
-
-
-###  Подробнее
-
-V Recorder – качественный и простой экранный рекордер со звуком. Если вы постоянно сталкиваетесь с такой проблемой, когда вам необходимо записать видео с экрана и еще со звуком, то данное приложение вам в этом отлично поможет. В данном приложении представлено множество функций, которые направлены на то, чтобы облегчить вам жизнь. И теперь с его помощью запись видео (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 30.06.2022Разработчик: VIDEOSHOW Video Editor & Video Maker LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024938BD763B9971DDBE78C181B10B2A8289E25A
 ```
 
 https://mybot314.ru/tekegram_catalog/

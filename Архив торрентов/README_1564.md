@@ -6,7 +6,7 @@ Piriform CCleaner Professional 5.42.6495 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696614.jpg" />
+  <img src="Z:/picture/008/save_picture_696614.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Debian GNU/Linux 8.8 Jessie [amd64] 3xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696595.jpg" />
+  <img src="Z:/picture/008/save_picture_696595.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ransomware Defender Professional 3.5.8 RePack by D!akov [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696592.jpg" />
+  <img src="Z:/picture/008/save_picture_696592.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696547.jpg" />
+  <img src="Z:/picture/008/save_picture_696547.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696546.jpg" />
+  <img src="Z:/picture/008/save_picture_696546.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696545.jpg" />
+  <img src="Z:/picture/008/save_picture_696545.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696544.jpg" />
+  <img src="Z:/picture/008/save_picture_696544.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Synalyze It! Pro 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696538.jpg" />
+  <img src="Z:/picture/008/save_picture_696538.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696510.jpg" />
+  <img src="Z:/picture/005/save_picture_696510.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696506.jpg" />
+  <img src="Z:/picture/008/save_picture_696506.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Windows 10 Manager 2.2.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696497.jpg" />
+  <img src="Z:/picture/008/save_picture_696497.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696489.jpg" />
+  <img src="Z:/picture/008/save_picture_696489.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Google Chrome 58.0.3029.110 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696482.jpg" />
+  <img src="Z:/picture/008/save_picture_696482.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696464.jpg" />
+  <img src="Z:/picture/008/save_picture_696464.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Telegram Desktop 0.9.51 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696425.jpg" />
+  <img src="Z:/picture/008/save_picture_696425.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Spring In Jakarta (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, Funk, Soul
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696423.jpg" />
+  <img src="Z:/picture/008/save_picture_696423.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CDBurnerXP 4.5.7.6229 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696420.jpg" />
+  <img src="Z:/picture/008/save_picture_696420.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Flip PDF Professional 2.3.24.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696418.jpg" />
+  <img src="Z:/picture/008/save_picture_696418.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ MEGA Sync Client 2.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696417.jpg" />
+  <img src="Z:/picture/008/save_picture_696417.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696414.jpg" />
+  <img src="Z:/picture/008/save_picture_696414.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696387.jpg" />
+  <img src="Z:/picture/008/save_picture_696387.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696386.jpg" />
+  <img src="Z:/picture/005/save_picture_696386.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696369.jpg" />
+  <img src="Z:/picture/008/save_picture_696369.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696367.jpg" />
+  <img src="Z:/picture/008/save_picture_696367.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696341.jpg" />
+  <img src="Z:/picture/008/save_picture_696341.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Chillhop Essentials Spring (2016) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696297.jpg" />
+  <img src="Z:/picture/008/save_picture_696297.jpg" />
 </div>
 
 

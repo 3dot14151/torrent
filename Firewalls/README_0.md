@@ -1,3 +1,29 @@
+###  Публикация: 1821037   (8544) от 30.09.2025
+
+Minimal Firewall 2.2.6 Portable [En]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B65B6798798F1FF7FA37A74F852E02C67126F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817534   (3329) от 11.09.2025
 
 Fort Firewall 3.19.6 + Portable [Multi/Ru]
@@ -6,7 +32,7 @@ Fort Firewall 3.19.6 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3329.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Minimal Firewall 2.2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_325.jpg" />
 </div>
 
 

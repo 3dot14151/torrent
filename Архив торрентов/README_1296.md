@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763760.jpg" />
+  <img src="Z:/picture/008/save_picture_763760.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763746.jpg" />
+  <img src="Z:/picture/008/save_picture_763746.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763735.jpg" />
+  <img src="Z:/picture/008/save_picture_763735.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Advanced Installer 17.2 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763724.jpg" />
+  <img src="Z:/picture/008/save_picture_763724.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Script Debugger 7.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763704.jpg" />
+  <img src="Z:/picture/008/save_picture_763704.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ RapidWeaver 8 v8.1.3 (build 20613)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763695.jpg" />
+  <img src="Z:/picture/008/save_picture_763695.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ PatterNodes 2 v2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763690.jpg" />
+  <img src="Z:/picture/008/save_picture_763690.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ eM Client Pro 8.0.2820 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763685.jpg" />
+  <img src="Z:/picture/008/save_picture_763685.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763684.jpg" />
+  <img src="Z:/picture/008/save_picture_763684.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BELOFF [dp] 2020.06.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763674.jpg" />
+  <img src="Z:/picture/008/save_picture_763674.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763670.jpg" />
+  <img src="Z:/picture/008/save_picture_763670.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Telegram Desktop 1.5.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763655.jpg" />
+  <img src="Z:/picture/008/save_picture_763655.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Desktop Curtain 3.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763654.jpg" />
+  <img src="Z:/picture/008/save_picture_763654.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Privacy Eraser Free 4.47.0 Build 2768 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763651.jpg" />
+  <img src="Z:/picture/008/save_picture_763651.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Kontor Top Of The Clubs Vol.81 (2019) [MP3|320 Kbps] <Trance,House,Club, Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763647.jpg" />
+  <img src="Z:/picture/008/save_picture_763647.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Wondershare DVD Creator 5 v5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763643.jpg" />
+  <img src="Z:/picture/008/save_picture_763643.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ BestReminder v2019.02.01.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763641.jpg" />
+  <img src="Z:/picture/008/save_picture_763641.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Mozilla Thunderbird 60.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763640.jpg" />
+  <img src="Z:/picture/008/save_picture_763640.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ GridinSoft Anti-Malware 4.1.52.4980 RePack & Portable by 9649 (05.07.2020) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763637.jpg" />
+  <img src="Z:/picture/008/save_picture_763637.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763600.jpg" />
+  <img src="Z:/picture/008/save_picture_763600.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Vince Staples - Vince Staples (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763536.jpg" />
+  <img src="Z:/picture/008/save_picture_763536.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763534.jpg" />
+  <img src="Z:/picture/008/save_picture_763534.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763528.jpg" />
+  <img src="Z:/picture/008/save_picture_763528.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ WinASO Registry Optimizer 5.6.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763525.jpg" />
+  <img src="Z:/picture/008/save_picture_763525.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sunless Skies v.1.1.9.5 (2019) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763518.jpg" />
+  <img src="Z:/picture/008/save_picture_763518.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Calibre 3.39.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763515.jpg" />
+  <img src="Z:/picture/008/save_picture_763515.jpg" />
 </div>
 
 

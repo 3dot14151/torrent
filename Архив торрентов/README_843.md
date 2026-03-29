@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857410.jpg" />
+  <img src="Z:/picture/008/save_picture_857410.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SnapTube VIP 5.24.1 Вета Mod  [Ru/Multi] - просмотр и скачив�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857399.jpg" />
+  <img src="Z:/picture/008/save_picture_857399.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CloudTV 3.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857369.jpg" />
+  <img src="Z:/picture/008/save_picture_857369.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Twixl Publisher 5.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857355.jpg" />
+  <img src="Z:/picture/008/save_picture_857355.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857353.jpg" />
+  <img src="Z:/picture/008/save_picture_857353.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Mirillis Splash 2.0.2.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857352.jpg" />
+  <img src="Z:/picture/008/save_picture_857352.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857346.jpg" />
+  <img src="Z:/picture/008/save_picture_857346.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857345.jpg" />
+  <img src="Z:/picture/008/save_picture_857345.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ MKVToolNix 9.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857344.jpg" />
+  <img src="Z:/picture/008/save_picture_857344.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Alfred Powerpack 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857343.jpg" />
+  <img src="Z:/picture/008/save_picture_857343.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857342.jpg" />
+  <img src="Z:/picture/008/save_picture_857342.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Allavsoft Video Downloader Converter 3.13.9.6268 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857341.jpg" />
+  <img src="Z:/picture/008/save_picture_857341.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.21040) Repack xatab [Master Collection
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857340.jpg" />
+  <img src="Z:/picture/008/save_picture_857340.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ PicturesToExe Deluxe 9.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857339.jpg" />
+  <img src="Z:/picture/008/save_picture_857339.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857338.jpg" />
+  <img src="Z:/picture/008/save_picture_857338.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MAXIM — русское издание v3.0.3 Mod [Ru] - Статьи, фото
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857309.jpg" />
+  <img src="Z:/picture/008/save_picture_857309.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ YouTube Video Downloader PRO 5.3 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857297.jpg" />
+  <img src="Z:/picture/008/save_picture_857297.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857293.jpg" />
+  <img src="Z:/picture/008/save_picture_857293.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857292.jpg" />
+  <img src="Z:/picture/008/save_picture_857292.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857289.jpg" />
+  <img src="Z:/picture/008/save_picture_857289.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857285.jpg" />
+  <img src="Z:/picture/008/save_picture_857285.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Super PhotoCut Pro 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857283.jpg" />
+  <img src="Z:/picture/008/save_picture_857283.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ CalendarPro for Google 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857282.jpg" />
+  <img src="Z:/picture/008/save_picture_857282.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ AnyTrans 5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857281.jpg" />
+  <img src="Z:/picture/008/save_picture_857281.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857279.jpg" />
+  <img src="Z:/picture/008/save_picture_857279.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857274.jpg" />
+  <img src="Z:/picture/008/save_picture_857274.jpg" />
 </div>
 
 

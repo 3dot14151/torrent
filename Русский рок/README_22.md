@@ -1,3 +1,116 @@
+###  Публикация: 873986   (864793) от 02.03.2015
+
+Юрий Гаврилов (Тангейзер) - Экспрессия XXI (2010) Авторская раздача [MP3|320 кб/с]<Neo-Classic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Реквием
+02. Симфония №5 Л. Ван Бетховен
+03. Парафраз Ниаполи (памяти великого Enrico)
+04. Менуэт(   Читать дальше...   )Жанр: Neo-ClassicПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6345AC0F6FDC3AE4C0A8EEEF99CEAF70375EE69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999651   (864333) от 22.03.2016
+
+Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой друг лучше всех играет блюз
+02. Шанхай-блюз
+03. Дороги наши разошлись
+04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEA50D77A2A777CB9B543DBA7341C6D323C1DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108046   (864044) от 24.02.2017
+
+Чичерина - Рвать (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. РватьЖанр: RockПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A73C8085889261506058523A8F39438CDC121A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108826   (862815) от 25.02.2017
+
+Маша и Медведи - Мира война (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мира война
+02. Воскресенье
+03. Мира война (iThinkSo mix)
+04. Мира война (Abjective mix)Жанр: RockПродолжительность: 00:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4743B1A2E2BBEABEDD0F92D88ECDE4816F516F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999931   (862536) от 23.03.2016
 
 Ольга Арефьева и Ковчег - Джейн (2016) [MP3|320 кб/с] <Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862536.jpg" />
+  <img src="Z:/picture/008/save_picture_862536.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862261.jpg" />
+  <img src="Z:/picture/008/save_picture_862261.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862068.jpg" />
+  <img src="Z:/picture/008/save_picture_862068.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ Dёргать! - Нереально, но легально (2021) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861357.jpg" />
+  <img src="Z:/picture/008/save_picture_861357.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861253.jpg" />
+  <img src="Z:/picture/008/save_picture_861253.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861245.jpg" />
+  <img src="Z:/picture/008/save_picture_861245.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Мальчик как мальчик. Tribute to Oleg Garkusha (2021) [MP3|
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861243.jpg" />
+  <img src="Z:/picture/008/save_picture_861243.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861170.jpg" />
+  <img src="Z:/picture/008/save_picture_861170.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861090.jpg" />
+  <img src="Z:/picture/008/save_picture_861090.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860904.jpg" />
+  <img src="Z:/picture/008/save_picture_860904.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ Stigmata - 7 Albums + 9 Singles & EP + 2 Live (2004-2020) [MP3|320 kbps] <Altern
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860896.jpg" />
+  <img src="Z:/picture/008/save_picture_860896.jpg" />
 </div>
 
 
@@ -327,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860239.jpg" />
+  <img src="Z:/picture/008/save_picture_860239.jpg" />
 </div>
 
 
@@ -356,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860050.jpg" />
+  <img src="Z:/picture/008/save_picture_860050.jpg" />
 </div>
 
 
@@ -382,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859026.jpg" />
+  <img src="Z:/picture/008/save_picture_859026.jpg" />
 </div>
 
 
@@ -408,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858987.jpg" />
+  <img src="Z:/picture/008/save_picture_858987.jpg" />
 </div>
 
 
@@ -437,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857796.jpg" />
+  <img src="Z:/picture/008/save_picture_857796.jpg" />
 </div>
 
 
@@ -468,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857586.jpg" />
+  <img src="Z:/picture/008/save_picture_857586.jpg" />
 </div>
 
 
@@ -497,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857245.jpg" />
+  <img src="Z:/picture/008/save_picture_857245.jpg" />
 </div>
 
 
@@ -526,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856222.jpg" />
+  <img src="Z:/picture/008/save_picture_856222.jpg" />
 </div>
 
 
@@ -561,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856173.jpg" />
+  <img src="Z:/picture/008/save_picture_856173.jpg" />
 </div>
 
 
@@ -590,7 +703,7 @@ VA - Maxidrom (1995-2006) 10CD [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856046.jpg" />
+  <img src="Z:/picture/008/save_picture_856046.jpg" />
 </div>
 
 
@@ -620,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855916.jpg" />
+  <img src="Z:/picture/008/save_picture_855916.jpg" />
 </div>
 
 
@@ -634,134 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E17482E1E69B9DBBDA0168611DEE24BBECFE983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498735   (854543) от 28.09.2021
-
-Raizer - Resurrection (2021) [MP3|320 kbps] <Alternative Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resurrection (02:21)
-02. Phoenix (04:28)
-03. Invisible (03:42)
-04. Explode (04:26)(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D432E182F1CC2CD27406F86FC7777D1483982F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 161162   (854497) от 10.04.2010
-
-Рубль - Сдачи не надо (2009) [MP3|192-320 kbps]<Рок, панк-рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пи*дец
-02. Финский залив
-03. Олимпиада
-04. Терпи
-05. Доширак
-06. Любовь это пи*дец
-07. Любовь это пи*дец акустика
-08. Сандали
-09. Сдача
-10. Новости(   Читать дальше...   )Жанр: Рок, панк-рокПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190813   (854395) от 10.04.2010
-
-Пикник - Театр Абсурда (2010) [MP3|320 kbps]<Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Театр Абсурда
-02. Кукла С Человеческим Лицом
-03. Не В Опере Венской...
-04. Фетиш
-05. Карлик Нос
-06. Урим Туммим
-07. Русы Косы, Ноги Босы
-08. Уйду-Останусь
-09. Дикая Певица
-10. Начало Игры(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110475   (853726) от 02.03.2017
-
-Театр Теней - SAX (2017) EP [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сыграй
-2. Другой День
-3. Две Стороны
-4. РепризыЖанр: Heavy MetalПродолжительность: 00:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBF41D9D5BDF997C98D66E6517B522BFCB6115D
 ```
 
 https://mybot314.ru/tekegram_catalog/

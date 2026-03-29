@@ -1,3 +1,235 @@
+###  Публикация: 1159319   (479756) от 22.08.2017
+
+Мираж - Снова Вместе (катушка 2) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Млечный путь [4:28]
+02. Где я [4:40]
+03. Море грёз [4:33]
+04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1058C3984588CB492182A6CD51B6072CF00B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159174   (479753) от 22.08.2017
+
+Ласковый Май - 1 альбом "Оренбург" (AKAI) (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые розы (05:28)
+02. Я откровенен лишь с луной (03:46)
+03. Лето (03:40)
+04. Пусть будет ночь (05:41)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12799DA28FC820189063311F0B8381AFDD1EAB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244874   (477957) от 03.09.2018
+
+Supertramp - Even In The Quietest Moments... (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477957.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Give A Little Bit (4:08)
+A2. Lover Boy (6:51)
+A3. Even In The Quietest Moments (6:27)
+A4. Downstream (4:01)(   Читать дальше...   )Производство: A&M Records - 28 600 XOTЖанр: Progressive RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949B5744F6B1DA7280E69124992821AD7D5DD7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244958   (477742) от 03.09.2018
+
+Enigma - A Posteriori (Limited Edition, Remastered, Pink Translucent) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477742.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Eppur Si Muove
+A2 Feel Me Heaven
+A3 Dreaming Of Andromeda
+A4 Dancing With Mephisto(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB584EFF790C75FB825833C2AB40830F3825BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244921   (477738) от 03.09.2018
+
+Enigma - The Cross Of Changes (Limited Edition, Remastered, Yellow Translucent) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Downtempo, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477738.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Second Chapter
+A2 The Eyes Of Truth
+A3 Return To Innocence
+A4 I Love You… I'll Kill You(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C019A4EE24A4758DD9E084ADE9997383BD6A4850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244832   (477727) от 03.09.2018
+
+Enigma - MCMXC A.D. (2018) (Limited Edition, Remastered,Red Translucent) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip]  <Medieval, Ambient, Abstract, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477727.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Voice Of Enigma
+Principles Of Lust
+A2 A/ Sadeness
+A2 B/ Find Love(   Читать дальше...   )Жанр: Medieval, Ambient, Abstract, New AgeПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B4CC7EF5E3F424C401BA737C8ED6F77B1A0B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319904   (477194) от 15.08.2019
+
+Eva (Csepregi Éva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477194.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244967   (475535) от 04.09.2018
+
+Enigma - Seven Lives Many Faces (Limited Edition, Remastered, Light Blue) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_475535.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Encounters
+A2 Seven Lives
+A3 Touchness
+A4 The Same Parents(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C16F10D4881DA39F7E927111DE48A6126A9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160621   (473898) от 25.08.2017
 
 Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -6,7 +238,7 @@ Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473898.jpg" />
+  <img src="Z:/picture/008/save_picture_473898.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473389.jpg" />
+  <img src="Z:/picture/008/save_picture_473389.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473210.jpg" />
+  <img src="Z:/picture/008/save_picture_473210.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473093.jpg" />
+  <img src="Z:/picture/008/save_picture_473093.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Thunderstone - Studio Albums (2002 - 2016) hand made [restored, declipped] [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472248.jpg" />
+  <img src="Z:/picture/008/save_picture_472248.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470791.jpg" />
+  <img src="Z:/picture/008/save_picture_470791.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Larisa Stow - Moment By Moment (2001) [MLP 5.1 48Khz/24Bit, DTS 5.1, Dolby AC3 2
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470300.jpg" />
+  <img src="Z:/picture/008/save_picture_470300.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469994.jpg" />
+  <img src="Z:/picture/008/save_picture_469994.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468008.jpg" />
+  <img src="Z:/picture/008/save_picture_468008.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Jack Dorsey's Big Band Gold - 50 Years Of Swing (The Ronco Music Library) (1983)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467664.jpg" />
+  <img src="Z:/picture/008/save_picture_467664.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467442.jpg" />
+  <img src="Z:/picture/008/save_picture_467442.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467329.jpg" />
+  <img src="Z:/picture/008/save_picture_467329.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ David Gilmour - Rattle That Lock (2015) [DTS 5.1 44.1 /16 | .wav+.cue (BD-Audio)
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466270.jpg" />
+  <img src="Z:/picture/008/save_picture_466270.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464086.jpg" />
+  <img src="Z:/picture/008/save_picture_464086.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ Theatre Of Tragedy - Aegis(Upmix) (1998/2008) [DTS] <Gothic Rock>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463829.jpg" />
+  <img src="Z:/picture/008/save_picture_463829.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Ar
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462105.jpg" />
+  <img src="Z:/picture/008/save_picture_462105.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461945.jpg" />
+  <img src="Z:/picture/008/save_picture_461945.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461729.jpg" />
+  <img src="Z:/picture/008/save_picture_461729.jpg" />
 </div>
 
 
@@ -507,238 +739,6 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059501   (461549) от 04.10.2016
-
-Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hip-House, Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Russians
-02. В Багдаде всё спокойно
-03. Бомбей буги
-04. Coribian Girl(   Читать дальше...   )Жанр: Hip-House, EuropopПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059526   (461534) от 04.10.2016
-
-Savage - Tonight (1984) Ultimate Edition, Remastered, 2014, Мирумир [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Radio (6:01)
-A2. A Love Again (5:26)
-A3. Fugitive (5:00)
-A4. Tonight (3:40)(   Читать дальше...   )Производство: Мирумир - MIR 100715Жанр: Italo-DiscoПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162167   (461335) от 31.08.2017
-
-Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461335.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fantasy: Loving Is Easy (4:04)
-A2. Berlin (4:56)
-A3. Classics: A Tale Of Two Sixties (3:35)
-A4. Turning In Circles (3:32)(   Читать дальше...   )Производство: Polydor - POLD 5006Жанр: Progressive RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162027   (458746) от 01.09.2017
-
-Мираж - Звёзды нас ждут (1987) [DSD2.0 (DFF)|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звёзды нас ждут (06:18)
-02. Видео (04:29)
-03. Электричество (04:30)
-04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569146   (455565) от 11.08.2022
-
-Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shinedown — американская рок-группа, основанная в Джэксонвилле, штат Флорида в 2001 году Брентом Смитом (вокал), Бредом Стюартом (бас), Джасином Тоддом (гитара) и Барри Керчем (ударные).2004 - Leave A Whisper
-2005 - Us and Them
-2008 - The Sound Of Madness
-2012 - AmaryllisЖанр: Hard Rock, Post-grungeПродолжительность: 06:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568954   (455559) от 11.08.2022
-
-Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gamma Ray — немецкая метал-группа, созданная в 1989 году Каем Хансеном, бывшим гитаристом и вокалистом группы Helloween.1990 - Heading For Tomorrow
-1991 - Sigh No More
-1993 - Insanity And Genius
-1995 - Land Of The FreeЖанр: Heavy/Power/Speed MetalПродолжительность: 12:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060136   (454809) от 07.10.2016
-
-Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip]<Easy Listening, Instrumental, Piano>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade Pour Adeline (piano et orchestre)
-02. Secret Of My Life (one)
-03. L'Enfant Et La Mer
-04. Lys River(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163009   (454573) от 03.09.2017
-
-Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454573.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Electric Delight (5:10)
-A2. Astral World (4:26)
-A3. If You Drive (4:50)
-A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производство: Rockland Records - 900.500Жанр: Space RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

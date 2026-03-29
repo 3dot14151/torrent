@@ -1,3 +1,32 @@
+###  Публикация: 1315255   (513897) от 19.07.2019
+
+BELLATRIX - Cosmic Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacepop, Spacesynth, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulse (7:59)
+02. Cosmic Dust (6:59)
+03. Cyber Angel (7:18)
+04. Highway To The Unknown (6:31)(   Читать дальше...   )Жанр: Spacepop, Spacesynth, DiscoПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26536CF740474E75A6C4FC0F498EDE5C9DF29DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316291   (507760) от 24.07.2019
 
 Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, Minimal>
@@ -6,7 +35,7 @@ Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507760.jpg" />
+  <img src="Z:/picture/008/save_picture_507760.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Metric - Formentera (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, New Wave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507135.jpg" />
+  <img src="Z:/picture/008/save_picture_507135.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lovers Lake - Lovers Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502617.jpg" />
+  <img src="Z:/picture/008/save_picture_502617.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Depeche Mode - Playing the Angel (2005) [FLAC|Lossless]<Electronic / Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502026.jpg" />
+  <img src="Z:/picture/008/save_picture_502026.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Dieter Meier ‎(Yello) - Tango For Fame (2017) Unofficial Release [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497579.jpg" />
+  <img src="Z:/picture/008/save_picture_497579.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Space -Just Blue & Paris-France-Transit, Magic Fly & Deliverance  (2000) [WavPac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494979.jpg" />
+  <img src="Z:/picture/008/save_picture_494979.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ Depeche Mode - Spirit / Live in BBC 6 Music Festival (2017) 2CD [FLAC|Lossless|t
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493328.jpg" />
+  <img src="Z:/picture/008/save_picture_493328.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ Vanello - Planet Synth (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italod
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493121.jpg" />
+  <img src="Z:/picture/008/save_picture_493121.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ Berlin - Transcendance (2019) Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490773.jpg" />
+  <img src="Z:/picture/008/save_picture_490773.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ Model Kaos - Ghost Market (2012) [FLAC|Lossless]<synth gothic>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489147.jpg" />
+  <img src="Z:/picture/008/save_picture_489147.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ VA - Summer Heat (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487262.jpg" />
+  <img src="Z:/picture/008/save_picture_487262.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Pet Shop Boys - Elysium (2012) [FLAC (tracks+cue)|Lossless]<Synth Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484357.jpg" />
+  <img src="Z:/picture/008/save_picture_484357.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ VA -Jean-Michel Jarre - Remix EP [1] (2015) [FLAC|tracks]<Electronic, Industrial
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477424.jpg" />
+  <img src="Z:/picture/008/save_picture_477424.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463539.jpg" />
+  <img src="Z:/picture/008/save_picture_463539.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Runaway Droid - LIGHTYEARS (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462437.jpg" />
+  <img src="Z:/picture/008/save_picture_462437.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ VA - Midnight Man: Tribute to Songs and Sounds of Michael Cretu (2020) [FLAC|Los
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462431.jpg" />
+  <img src="Z:/picture/008/save_picture_462431.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Runaway Droid - Fragments (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460231.jpg" />
+  <img src="Z:/picture/008/save_picture_460231.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Runaway Droid - Giant Space Lasers (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460228.jpg" />
+  <img src="Z:/picture/008/save_picture_460228.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Level 42 - Running In The Family (1987) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459463.jpg" />
+  <img src="Z:/picture/008/save_picture_459463.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Alphaville - Prostitute (1994) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459375.jpg" />
+  <img src="Z:/picture/008/save_picture_459375.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453512.jpg" />
+  <img src="Z:/picture/008/save_picture_453512.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Erasure - Ne:EP (2021) Mini Album [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451654.jpg" />
+  <img src="Z:/picture/008/save_picture_451654.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451596.jpg" />
+  <img src="Z:/picture/008/save_picture_451596.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451459.jpg" />
+  <img src="Z:/picture/008/save_picture_451459.jpg" />
 </div>
 
 
@@ -725,7 +754,7 @@ SAINT PEPSI - Mannequin Challenge (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450808.jpg" />
+  <img src="Z:/picture/008/save_picture_450808.jpg" />
 </div>
 
 
@@ -739,41 +768,6 @@ SAINT PEPSI - Mannequin Challenge (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826D3EB9EBF87BF66829171CF7695473B08BC1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552018   (449860) от 25.09.2012
-
-Группа Технология - 4 Альбома (1991 - 1996) /2003, JAM Group/ [FLAC|Lossless]<Synth Pop, Techno Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Телефон небес
-02. Королева дорог
-03. Яд
-04. Скорая помощь
-05. Экран
-06. Не последний танец
-07. Это война
-08. Хранитель тишины
-09. Тайга
-10. Вспоминай(   Читать дальше...   )Жанр: Synth Pop, Techno PopПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

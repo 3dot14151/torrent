@@ -1,3 +1,119 @@
+###  Публикация: 994834   (888241) от 09.03.2016
+
+John Coltrane & Archie Shepp - New Thing At Newport (1965) 2009, Verve[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction (Father Norman O'Connor) [01:09]
+ 02.One Down, One Up [12:44]
+ 03.Rufus (Swung His Face At Last To The Wind, Then His Neck Snapped) [05:14]
+ 04.Le Matin Des Noire [07:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124FC9D301EEBBA284A637A1DEE16DA9E5BF3B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994901   (888237) от 09.03.2016
+
+Masabumi Kikuchi - End For The Beginning (1973) Remaster, 2015, Unversal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Drizzling Rain [14:32]
+ 02.Gin-Kai [11:44]
+ 03.Admire, But Detect <Mr. Out> [05:37]
+ 04.Bell [07:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E4ACE181B08158B686136432264336486453E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102834   (888001) от 11.02.2017
+
+Bob Brookmeyer - Back Again (1978) 1990, Gazell[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet And Lovely [08:31]
+ 02.Carib [04:08]
+ 03.Caravan [07:38]
+ 04.You'd Be So Nice To Come Home To [06:50](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B742647E6BAB8745F34F2DA257DFC3D7D75CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102841   (887998) от 11.02.2017
+
+Paul Quinichette - For Basie (1957) 2001, Silen[APE|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rock-A-Bye Basie [06:42]
+ 02.Texas Shuffle [07:09]
+ 03.Out The Window [07:39]
+ 04.Jive At Five [09:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018AB55D4350B7FC001D4AC353527D45088E666E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103270   (887995) от 11.02.2017
 
 Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, Jazz>
@@ -6,7 +122,7 @@ Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887995.jpg" />
+  <img src="Z:/picture/005/save_picture_887995.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887968.jpg" />
+  <img src="Z:/picture/005/save_picture_887968.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Mellow Motif - Mellow Motif (2010) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887961.jpg" />
+  <img src="Z:/picture/005/save_picture_887961.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Bugge Wesseltoft - Songs (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887958.jpg" />
+  <img src="Z:/picture/005/save_picture_887958.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Rhoda Scott Lady Quartet - We Free Queens (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887946.jpg" />
+  <img src="Z:/picture/005/save_picture_887946.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Daymé Arocena - Nueva Era (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Afro-Cub
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887921.jpg" />
+  <img src="Z:/picture/005/save_picture_887921.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - The Acid Jazz Test Part Three (1995) [FLAC|Lossless|image + .cue] <Acid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887891.jpg" />
+  <img src="Z:/picture/005/save_picture_887891.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Oscar Peterson Trio - Encore At The Blue Note (1993) 1998, Telarc[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887801.jpg" />
+  <img src="Z:/picture/005/save_picture_887801.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Billy Taylor Trio - At Town Hall (1954) Remaster, 2014, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886595.jpg" />
+  <img src="Z:/picture/005/save_picture_886595.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Dave Bailey Quintet - Two Feet In The Gutter (1961) Remaster, 2015, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886591.jpg" />
+  <img src="Z:/picture/005/save_picture_886591.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Art Blakey & The Jazz Messengers - Blue Night (1985) Remaster, 2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886589.jpg" />
+  <img src="Z:/picture/005/save_picture_886589.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Malia & Boris Blank - Convergence (2014) [FLAC|Lossless]<Electronic, Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886431.jpg" />
+  <img src="Z:/picture/005/save_picture_886431.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Nicki Parrott - The Look of Love (2013) [FLAC|Lossless|image + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886421.jpg" />
+  <img src="Z:/picture/005/save_picture_886421.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Wade Legge Trio (1953-1955) 2016, Fresh Sound Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886118.jpg" />
+  <img src="Z:/picture/005/save_picture_886118.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Marcus Johnson - Chocolate City Groovin' (1998) Encoded Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886106.jpg" />
+  <img src="Z:/picture/005/save_picture_886106.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Onaje Allan Gumbs - That Special Part Of Me (1998) MCA Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886097.jpg" />
+  <img src="Z:/picture/005/save_picture_886097.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886059.jpg" />
+  <img src="Z:/picture/005/save_picture_886059.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886050.jpg" />
+  <img src="Z:/picture/005/save_picture_886050.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886007.jpg" />
+  <img src="Z:/picture/005/save_picture_886007.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885623.jpg" />
+  <img src="Z:/picture/005/save_picture_885623.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884801.jpg" />
+  <img src="Z:/picture/005/save_picture_884801.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884786.jpg" />
+  <img src="Z:/picture/005/save_picture_884786.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582DA309CF7652CB18096DB9571525507CFDCEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995488   (884760) от 11.03.2016
-
-Dr. Lonnie Smith - Spiral (2010) Palmetto Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mellow Mood [05:13]
- 02.I've Never Been In Love Before [05:11]
- 03.Frame For The Blues [08:55]
- 04.I Didn't Know What Time It Was [07:49](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7217342862AAB189E72B417D8C791F376C2B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495074   (884537) от 10.09.2021
-
-Matthew Whitaker - Now Hear This (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overcoat (5:20)
-02. Tranquility (5:33)
-03. Underground (5:50)
-04. Bernie's Tune (3:48)(   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, Soul-JazzПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE8B975167C1D59132518A484E61235FE12A427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372761   (883998) от 04.04.2020
-
-The Oscar Peterson - Big 6 At Montreux 1975 (1997) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Au Private [11:29]
-02. Here's That Rainy Day [10:25]
-03. Poor Butterfly [15:56]
-04. Reunion Blues [13:36]Жанр: Mainstream JazzПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C0EC6EA0C5AB7A4C007C166D2CD7A25FEB3462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103263   (883737) от 13.02.2017
-
-Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funny Toy (4:37)
-02. The Blue Nine (3:39)
-03. Sugar Kane (Feat Magic Malik) (3:52)
-04. El Tigre (4:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20457E9ACF0DC1C7BC6C16ABCCAEA166F51B8D1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

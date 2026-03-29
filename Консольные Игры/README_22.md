@@ -6,7 +6,7 @@ Trine 2: Director's Cut (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725731.jpg" />
+  <img src="Z:/picture/008/save_picture_725731.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Trine: Enchanted Edition (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725724.jpg" />
+  <img src="Z:/picture/008/save_picture_725724.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SteamWorld Dig (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725615.jpg" />
+  <img src="Z:/picture/008/save_picture_725615.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DuckTales: Remastered (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725545.jpg" />
+  <img src="Z:/picture/008/save_picture_725545.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Hatsune Miku Project Diva X (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License / DLC]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724735.jpg" />
+  <img src="Z:/picture/008/save_picture_724735.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Child of Light (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1.0.1] [Ru/Mul
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723740.jpg" />
+  <img src="Z:/picture/008/save_picture_723740.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Legend of Kay: Anniversary (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [M
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723629.jpg" />
+  <img src="Z:/picture/008/save_picture_723629.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Disney Самолеты / Disney Planes (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723622.jpg" />
+  <img src="Z:/picture/008/save_picture_723622.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ FIFA 13 (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723620.jpg" />
+  <img src="Z:/picture/008/save_picture_723620.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Badland: Game of the Year Edition (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eSho
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723617.jpg" />
+  <img src="Z:/picture/008/save_picture_723617.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Disney Epic Mickey 2 The Power of Two (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723522.jpg" />
+  <img src="Z:/picture/008/save_picture_723522.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Bridge (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723513.jpg" />
+  <img src="Z:/picture/008/save_picture_723513.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Armageddon Riders (2011) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [Ru
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723439.jpg" />
+  <img src="Z:/picture/008/save_picture_723439.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Walking Dead: Michonne. Episodes 1-3 (2016) [PS3] [EUR] 4.21 [Repack / 1.05]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723360.jpg" />
+  <img src="Z:/picture/008/save_picture_723360.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ LEGO Jurassic World (2015) [PS3] [EUR] 4.82 [OFW / HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720903.jpg" />
+  <img src="Z:/picture/008/save_picture_720903.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Forza Motorsport 3 Ultimate collection (2009) [Xbox360] [Region Free] [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718969.jpg" />
+  <img src="Z:/picture/008/save_picture_718969.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ DreamWorks Super Star Kartz (2011) [PS3] [USA] 4.11 / Образ для Cobra OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714036.jpg" />
+  <img src="Z:/picture/008/save_picture_714036.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Dusk Diver (2019) [Switch] [USA] 9.2.0 [NSP] [Unofficial / 1.0.5] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712733.jpg" />
+  <img src="Z:/picture/008/save_picture_712733.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Valkyria Chronicles (2008) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711123.jpg" />
+  <img src="Z:/picture/008/save_picture_711123.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Smurfs - Mission Vileaf / Смурфики Операция «Злолист
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710418.jpg" />
+  <img src="Z:/picture/008/save_picture_710418.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ It Takes Two (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710307.jpg" />
+  <img src="Z:/picture/008/save_picture_710307.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Greed Corp (2010) [PS3] [USA] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710283.jpg" />
+  <img src="Z:/picture/008/save_picture_710283.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Shovel Knight: Treasure Trove (2015) [PS3] [USA] 4.21 [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710209.jpg" />
+  <img src="Z:/picture/008/save_picture_710209.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mario & Sonic at the Sochi 2014 Olympic Winter Games (2013) [WiiU] [EUR] 5.3.2 [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709311.jpg" />
+  <img src="Z:/picture/008/save_picture_709311.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Anarchy: Rush Hour (2010) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707342.jpg" />
+  <img src="Z:/picture/008/save_picture_707342.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ MultiMan Singstar-R Euro 2016 (2016) [PS3] [4.80] [Unofficial] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707225.jpg" />
+  <img src="Z:/picture/008/save_picture_707225.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Movavi Video Suite 20.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876206.jpg" />
+  <img src="Z:/picture/005/save_picture_876206.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Light Alloy 4.9.3 Build 2538 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876188.jpg" />
+  <img src="Z:/picture/008/save_picture_876188.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ USB Safely Remove 5.5.1.1250 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876121.jpg" />
+  <img src="Z:/picture/005/save_picture_876121.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaspersky Update Utility 3.1.0.25 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876067.jpg" />
+  <img src="Z:/picture/005/save_picture_876067.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Patch My PC 2.3.6.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876027.jpg" />
+  <img src="Z:/picture/005/save_picture_876027.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ IObit Smart Defrag Pro 5.5.0.1024 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876000.jpg" />
+  <img src="Z:/picture/005/save_picture_876000.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875996.jpg" />
+  <img src="Z:/picture/005/save_picture_875996.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Adguard Премиум 6.1.312.1629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875992.jpg" />
+  <img src="Z:/picture/005/save_picture_875992.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875991.jpg" />
+  <img src="Z:/picture/005/save_picture_875991.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ FireAlpaca 2.6.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875971.jpg" />
+  <img src="Z:/picture/005/save_picture_875971.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ LDPlayer 3.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875969.jpg" />
+  <img src="Z:/picture/005/save_picture_875969.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Vivaldi 4.2.2406.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875968.jpg" />
+  <img src="Z:/picture/005/save_picture_875968.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Java SE Development Kit 17.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875966.jpg" />
+  <img src="Z:/picture/005/save_picture_875966.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PDF24 Creator 10.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875963.jpg" />
+  <img src="Z:/picture/005/save_picture_875963.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ LDPlayer 4.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875962.jpg" />
+  <img src="Z:/picture/008/save_picture_875962.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ DLL-FiLes.com Fixer 3.3.91.3080 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875867.jpg" />
+  <img src="Z:/picture/005/save_picture_875867.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Opera 79.0.4143.22 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875851.jpg" />
+  <img src="Z:/picture/005/save_picture_875851.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FileZilla Server 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875837.jpg" />
+  <img src="Z:/picture/005/save_picture_875837.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ YT Downloader 7.7.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875835.jpg" />
+  <img src="Z:/picture/005/save_picture_875835.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875822.jpg" />
+  <img src="Z:/picture/005/save_picture_875822.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Q-Dir 6.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875719.jpg" />
+  <img src="Z:/picture/005/save_picture_875719.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Futuremark 3DMark 2.20.7256 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875714.jpg" />
+  <img src="Z:/picture/005/save_picture_875714.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Java SE Runtime Environment 8.0.3010.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875713.jpg" />
+  <img src="Z:/picture/005/save_picture_875713.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Microsoft .NET 5.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875707.jpg" />
+  <img src="Z:/picture/005/save_picture_875707.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ MEmu 7.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875702.jpg" />
+  <img src="Z:/picture/008/save_picture_875702.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Brave Browser 1.29.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875701.jpg" />
+  <img src="Z:/picture/005/save_picture_875701.jpg" />
 </div>
 
 

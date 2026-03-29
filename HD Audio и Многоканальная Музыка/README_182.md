@@ -1,3 +1,234 @@
+###  Публикация: 1780842   (70363) от 20.02.2025
+
+David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Add More Life (3:05)
+02.  Hand in Hand (1:59)
+03.  Open Meadows (3:10)
+04.  Barbara's Ballad (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B5F3F93EA8A4BCB3A47277930080310EA6D2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780844   (70362) от 20.02.2025
+
+LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mystery Flow (3:07)
+02.  Lucid Laments (2:49)
+03.  Chance of Romance (3:22)
+04.  Moonlit Whispers (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B388DECC858D4C228A90D0F35FD35BF09DAA5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780849   (70359) от 20.02.2025
+
+David Rose - In the Spotlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Silky Nights (3:36)
+02.  Funky Smooth Vibes (3:35)
+03.  Finally Connected (3:54)
+04.  Groovy Brass Delight (3:43)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8F676006D81D4D146B131059234F85FAA81E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780834   (70356) от 20.02.2025
+
+Cut The Kids In Half - What We Became (2025) [FLAC 24/48|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Storm Drain Girls (3:44)
+02.  A Good Man Died (4:34)
+03.  Run Kid (4:15)
+04.  Old Manhattan (5:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B21E67C4214A13BCB022C72822C79EC05FA639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780968   (70355) от 20.02.2025
+
+Electric Mojo - One for the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All That Glitter Is Not Gold (2:36)
+02.  See You in Hell (4:42)
+03.  Requiem for a Brother (4:25)
+04.  All the Lies Were True (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239511882093636B83D1324665DD9E4101AA722D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780940   (70344) от 20.02.2025
+
+Jolly Joker - Jolly Joker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  World Collapse (2:40)
+02.  Shotgun (3:12)
+03.  I Just Wanna (Kiss You)Жанр: Hard RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71518678B07855BC4C3771A7A466D1184C15E84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780847   (70343) от 20.02.2025
+
+Lilly Hiatt - Forever (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hidden Day (2:44)
+02.  Shouldn’t Be (3:13)
+03.  Ghost Ship (3:59)
+04.  Somewhere (3:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8B20BADF73257F13C3DEB4B5732A254C347B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780937   (70342) от 20.02.2025
+
+Little Freddie King - I Use To Be Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bywater Crawl (3:06)
+02.  Pocket Full of Money (3:04)
+03.  Going Up The Mountain (4:10)
+04.  Bad News (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168B9E3F179B40578A5B5ADCB65BAF27A6C8C3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780851   (70339) от 20.02.2025
 
 JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock, AOR>
@@ -6,7 +237,7 @@ JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70339.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Cymande - Renascence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70337.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Bleeding Through - NINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70334.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ The Last Sentinel - Testament of the Tiamat (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70329.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ King Gizzard & The Lizard Wizard - Live In Adelaide '19 (2023) (Live) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70317.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70307.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ Valempar - Taboo Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave / 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70255.jpg" />
 </div>
 
 
@@ -209,7 +440,7 @@ Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70250.jpg" />
 </div>
 
 
@@ -238,7 +469,7 @@ Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70235.jpg" />
 </div>
 
 
@@ -267,7 +498,7 @@ Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70214.jpg" />
 </div>
 
 
@@ -296,7 +527,7 @@ Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70212.jpg" />
 </div>
 
 
@@ -325,7 +556,7 @@ Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70190.jpg" />
 </div>
 
 
@@ -354,7 +585,7 @@ No Money Kids - Fireworks (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70115.jpg" />
 </div>
 
 
@@ -383,7 +614,7 @@ Mary Ann Hawkins - Helsinki Surf City (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70102.jpg" />
 </div>
 
 
@@ -412,7 +643,7 @@ Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70100.jpg" />
 </div>
 
 
@@ -441,7 +672,7 @@ Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70098.jpg" />
 </div>
 
 
@@ -470,7 +701,7 @@ Nemoy and the NPCs - Warzone Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70097.jpg" />
 </div>
 
 
@@ -499,7 +730,7 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70095.jpg" />
 </div>
 
 
@@ -513,237 +744,6 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B89A8448437017D6F2698E732965F3B3A9D9543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782075   (70093) от 26.02.2025
-
-Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  This Road Is Mine (4:56)
-02.  Letter From Silence (4:19)
-03.  Ocean (7:31)
-04.  Polyrhythmic Wave (5:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381FED0B9892C37C2043498B8AB5E50A32DBDE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782059   (70091) от 26.02.2025
-
-Perfect Plan - Heart Of A Lion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of A Lion (5:09)
-02. We Are Heroes (4:23)
-03. All Night (4:28)
-04. Turn Up Your Radio (4:55)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E15748DBF7DACA401D7B455701D138AC3401CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782063   (70088) от 26.02.2025
-
-Marko Hietala - Roses from the Deep (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frankenstein's Wife (5:25)
-02.  Tarja - Left on Mars (5:02)
-03.  Proud Whore (5:02)
-04.  Two Soldiers (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7E168C88C98191943D3589B34F8F14DF1E5450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782060   (70080) от 26.02.2025
-
-Greg Coulson - Greg Coulson: Live at Crescent Records Studio (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Someone To Be There (Live at Crescent Records Studio) (5:27)
-02.  Greg Coulson feat. Will Wilde - Introverted Blues (Live at Crescent Records Studio) (6:16)
-03.  Kid Charlemagne (Live at Crescent Records Studio) (5:23)
-04.  Greg Coulson feat. Will Wilde - Nick Of Time (Live at Crescent Records Studio) (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3429A10B74B246A77F1A0B28C1D1F8960ED2FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781989   (70079) от 26.02.2025
-
-Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightrage — музыкальная группа, играющая мелодичный дэт-метал. Была создана в 2000 году в Салониках греческими гитаристами Мариосом Илиопулосом и Гасом Джи.2003 - Sweet Vengeance
-2005 - Descent Into Chaos
-2007 - New Disease Is Born
-2009 - Wearing a Martyr's CrownЖанр: Melodic Death MetalПродолжительность: 08:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63355DB2D842FCCB4CEED27C14C56504962D683D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782033   (70077) от 26.02.2025
-
-Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saint Asonia (стилизация в оригинале SΔINT ΔSONIΔ) — канадская рок-группа, основанная Адамом Гонтье, бывшим вокалистом группы Three Days Grace и гитаристом Staind Майком Мьюшаком.2015 - Saint Asonia
-2019 - Flawed Design
-2022 - Introvert / ExtrovertЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 02:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1845FB9BDA6D0DC64134E27DA18CBDB1F1170EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782241   (70072) от 27.02.2025
-
-Architects - The Sky, The Earth & All Between (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegy (3:36)
-02. Whiplash (3:46)
-03. Blackhole (3:21)
-04. Everything Ends (3:40)(   Читать дальше...   )Жанр: Progressive Metalcore, Alternative MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBA1AC0F6ACBD00FCA4F9A96A06FABE7D535EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782157   (70060) от 27.02.2025
-
-Power Word Kill - Power Word Kill (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scattered Ashes (6:14)
-02.  Devil Woman (6:57)
-03.  Gelatinous Cube (6:12)
-04.  Eye of the Great Machine (0:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B28426C47796019107A6046B49F6AA7E58EC42B
 ```
 
 https://mybot314.ru/tekegram_catalog/

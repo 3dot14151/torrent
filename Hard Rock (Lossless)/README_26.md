@@ -1,3 +1,61 @@
+###  Публикация: 1512112   (787888) от 23.11.2021
+
+Remedy - The Villain in Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Villain in Me (03:53)
+02. Shadow of Death (04:59)
+03. Alone (04:52)
+04. Behold My Destiny (03:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F421A9B39EB21A8A62EBD0C1101A67CF46C161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511973   (787886) от 23.11.2021
+
+L.A. Guns - Checkered Past (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожители хард-рока L.A. Guns выпустили свой новый студийный альбом Checkered Past 12 ноября 2021 года. Написанный и записанный в то время, когда мир все еще находился в тисках пандемии коронавируса, новый студийный альбом представляет Tracii Guns, Phil Lewis, bassist Johnny Martin, guitarist Ace Von Johnson и drummer Scot Coogan, которые продолжают демонстрировать (   Читать дальше...   )01. Cannonball (3:28)
+02. Bad Luck Charm (4:00)
+03. Living Right Now (3:32)
+04. Get Along (5:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DA836A6C5CA0D46859B2E02BC0181BD582D5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276679   (787503) от 17.01.2019
 
 AC/DC - AC/DC (2006) 17CD Box Set - Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ AC/DC - AC/DC (2006) 17CD Box Set - Limited Edition [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787503.jpg" />
+  <img src="Z:/picture/008/save_picture_787503.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Piledriver - Brothers In Boogie (2015) [FLAC|Lossless|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785645.jpg" />
+  <img src="Z:/picture/008/save_picture_785645.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Helix - Rock It Science (2016) Compilation [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785015.jpg" />
+  <img src="Z:/picture/008/save_picture_785015.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ R.E.O. Speedwagon - The Early Years 1971-1977 (2018) 8 CD Box Set [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785003.jpg" />
+  <img src="Z:/picture/008/save_picture_785003.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Stone The Crows & Maggie Bell - 9 альбомов, 11 CD (1969-2009) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784861.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Deep Purple - Machine Head (1972) Warner-Pioneer 20P2-2605 [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784198.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Dynamite - Big Bang (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784084.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Greg Lake - 7 альбомов, 10 CD (1981-2015) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784045.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782950.jpg" />
+  <img src="Z:/picture/008/save_picture_782950.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Deep Purple - Purpendicular (1996) Remastered, 2018, KronStudioLab Int'l [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782913.jpg" />
+  <img src="Z:/picture/008/save_picture_782913.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ AC/DC - Flick Of The Switch (1983) Reissue, 1988, Atlantic [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781250.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780862.jpg" />
+  <img src="Z:/picture/008/save_picture_780862.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Jet - 3 альбома (2003 - 2009) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780401.jpg" />
+  <img src="Z:/picture/008/save_picture_780401.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Poodles - Devil In The Details (2015) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780283.jpg" />
+  <img src="Z:/picture/008/save_picture_780283.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Phil Campbell аnd The Bаstаrd Sоns (ex-Motоrhead) - The Аge Оf Аbsurdit�
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779976.jpg" />
+  <img src="Z:/picture/008/save_picture_779976.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Smile (pre-Queen) - 2 Albums: Ghost of a Smile / Gettin' Smile (1969-2018) [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779748.jpg" />
+  <img src="Z:/picture/008/save_picture_779748.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779139.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Ammunition - Ammunition (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778872.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Michael Schenker Fest - Resurrection (2018) [FLAC|Lossless|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778854.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Damn Yankees - Damn Yankees (1990), Don't Tread (1992) [FLAC|Lossless|tracks + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778681.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Andrew W.K. - You're Not Alone (2018) [FLAC|Lossless|tracks] <Hard Rock, Arena R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778524.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Arcade - 3 альбома (1993 - 2001) [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778500.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Greta Van Fleet - From The Fires (2017) mini-album [FLAC|Lossless|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778482.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Tony Carey - Stanislaus County Kid Vol.II (2010) [FLAC|Lossless|image + .cue]<Cl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777950.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Tony Carey - Stanislaus County Kid Vol.II (2010) [FLAC|Lossless|image + .cue]<Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A8288A9DC3133DFE47EFCBD0181186AA79235C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211071   (777786) от 06.03.2018
-
-Steamhammer / Armageddon - Discography: 5 albums, 7 CD (1969-2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив--------------------------
-
-01. Buzzard (8:21)
-02. Silver Tightrope (8:26)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Psychedelic Rock, Prog Rock |Продолжительность: 05:21:28 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD2DBA673963A181D9417B839F10B9CE07DE909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013566   (776948) от 06.05.2016
-
-Railway - Railway II (1985) Remastered, 1997, High Vaultage [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lick It,Stick It    03:15
-02. Go Down    03:19
-03. D.O.A.    03:31
-04. Lady Life    03:01(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7248A3AA97446D8B426E9852975C4F74258AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

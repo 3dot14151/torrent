@@ -1,3 +1,55 @@
+###  Публикация: 1816868   (3854) от 07.09.2025
+
+Смурфики / Les Schtroumpfs / The Smurfs (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-26 из 26) TrueDubbing Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3854.jpg" />
+</div>
+
+
+###  Подробнее
+
+В волшебной деревне в домиках-грибочках с разноцветными шляпками по-прежнему живут и процветают смурфы: обаятельные курносые синие гномы — вечный источник радости, знания и приключений. Они будут учиться Смурф-Фу, чтобы постоять за себя и принятию, чтобы полюбить то, за что стоишь. А как еще Неуклюжему перестать быть неуклюжим, а Ворчуну улыбнуться? Только осознав, (   Читать дальше...   )Производство: Бельгия, США, Франция, Германия / Dargaud Media, Dupuis Edition & Audiovisuel, KetnetЖанр: мультфильм, короткометражка, фэнтези, комедия, приключения, семейныйРежиссер: Уилльям РеноПеревод: дублированный (TrueDubbing Studio)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B812AA051CC7502D90C0B0397F9643669D48B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816870   (3851) от 07.09.2025
+
+Смурфики / Les Schtroumpfs / The Smurfs (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1-13 из 13) VSI Moscow / ARC TV
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3851.jpg" />
+</div>
+
+
+###  Подробнее
+
+В волшебной деревне в домиках-грибочках с разноцветными шляпками по-прежнему живут и процветают смурфы: обаятельные курносые синие гномы — вечный источник радости, знания и приключений. Они будут учиться Смурф-Фу, чтобы постоять за себя и принятию, чтобы полюбить то, за что стоишь. А как еще Неуклюжему перестать быть неуклюжим, а Ворчуну улыбнуться? Только осознав, (   Читать дальше...   )Производство: Бельгия, США, Франция, Германия / Dargaud Media, Dupuis Edition & Audiovisuel, KetnetЖанр: мультфильм, короткометражка, фэнтези, комедия, приключения, семейныйРежиссер: Уилльям РеноПеревод: дублированный (VSI Moscow / ARC TV, 1+1)Язык озвучки: русский, украинский, английскийСубтитры: английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F469A7BD9353628AA0AD338036553A3D987B295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816869   (3836) от 07.09.2025
 
 Смурфики / Les Schtroumpfs / The Smurfs (2022-2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-26 из 26) TrueDubbing Studio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3836.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3286.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2611.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2183.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_443.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_404.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_386.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_350.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33.jpg" />
 </div>
 
 

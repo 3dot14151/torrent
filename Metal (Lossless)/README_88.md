@@ -1,3 +1,90 @@
+###  Публикация: 1279565   (765464) от 30.01.2019
+
+Kuolemanlaakso - Uljas Uusi Maailma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minä elän (05:58)
+02. Kuun lapset (06:14)
+03. Nostos & Algos (07:08
+04. Roihusydän (01:43)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A044512A76172F3013072C39AD66065A68AD8329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279432   (765458) от 30.01.2019
+
+Manticora - Darkness Tales To Tell (2001) Reissue, 2003, CD-Maximum [APE|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ... From Far Beyond (0:40)
+02. The Chance Of Dying In A Dream (5:29)
+03. Dynasty Of Fear (4:45)
+04. Dragon's Mist (8:58)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFC4D44E208719DDCEF0305F71E32FD97BB0085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279513   (765455) от 30.01.2019
+
+DevilDriver - Outlaws 'til the End, Vol. 1 (2018) [FLAC|Lossless|tracks + .cue] <Groove Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Heroes (03:41)
+02. Whiskey River (03:40)
+03. Outlaw Man (03:31)
+04. Ghost Riders in the Sky (03:44)(   Читать дальше...   )Жанр: Groove Metal, Death MetalПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E1AD4591681C7654FC50470D71B0A5DF9EC41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214421   (764922) от 21.03.2018
 
 The Crown - Cobra Speed Venom (Japanese Edition) (2018) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
@@ -6,7 +93,7 @@ The Crown - Cobra Speed Venom (Japanese Edition) (2018) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764922.jpg" />
+  <img src="Z:/picture/008/save_picture_764922.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Kill The Romance - Logical Killing Project (2005) EP [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764654.jpg" />
+  <img src="Z:/picture/008/save_picture_764654.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Carmine Appice - Carmine Appice's Guitar Heroes (2010) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764645.jpg" />
+  <img src="Z:/picture/008/save_picture_764645.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Kelly Simonz's Blind Faith - Overture Of Destruction (2017) Japanese edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764606.jpg" />
+  <img src="Z:/picture/008/save_picture_764606.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Dio - Strange Highways (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764561.jpg" />
+  <img src="Z:/picture/008/save_picture_764561.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Clouds - Dor (2018) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom, Funeral Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764546.jpg" />
+  <img src="Z:/picture/008/save_picture_764546.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Clouds - Dor - Bonus Album (2018) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764540.jpg" />
+  <img src="Z:/picture/008/save_picture_764540.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764501.jpg" />
+  <img src="Z:/picture/008/save_picture_764501.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Night Legion - Night Legion (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764495.jpg" />
+  <img src="Z:/picture/008/save_picture_764495.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Millennium - Awakening (Japanese Edition) (2018) [FLAC|lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764001.jpg" />
+  <img src="Z:/picture/008/save_picture_764001.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Alestorm - Captain Morgan's Revenge: 10th Anniversary Edition (Japanese Edition)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763987.jpg" />
+  <img src="Z:/picture/008/save_picture_763987.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Menace - Impact Velocity (2014) Limited Edition [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763697.jpg" />
+  <img src="Z:/picture/008/save_picture_763697.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Clouds - Destin (2017) EP [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funera
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763687.jpg" />
+  <img src="Z:/picture/008/save_picture_763687.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Amenra - De Doorn (2021) Japan Edition [FLAC|Lossless|tracks + .cue] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763544.jpg" />
+  <img src="Z:/picture/008/save_picture_763544.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Within Temptation - Resist (2019) Extended Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763325.jpg" />
+  <img src="Z:/picture/008/save_picture_763325.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Kult Der Krahe - Schwarzer Engel (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763292.jpg" />
+  <img src="Z:/picture/008/save_picture_763292.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Metal Allegiance - Metal Allegiance (2015) Limited Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762229.jpg" />
+  <img src="Z:/picture/008/save_picture_762229.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Clouds - Doliu (2014) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762224.jpg" />
+  <img src="Z:/picture/008/save_picture_762224.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Clouds - Departe (2016) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762223.jpg" />
+  <img src="Z:/picture/008/save_picture_762223.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Metal Allegiance - Volume II: Power Drunk Majesty (2018) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762133.jpg" />
+  <img src="Z:/picture/008/save_picture_762133.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Metallica - ...And Justice For All (1988/2018) 11CD, Disc Box Set Blackened Reco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761728.jpg" />
+  <img src="Z:/picture/008/save_picture_761728.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Megatherium - GOD (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760613.jpg" />
+  <img src="Z:/picture/008/save_picture_760613.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Hounskull - Perceptual Present (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760441.jpg" />
+  <img src="Z:/picture/008/save_picture_760441.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Hounskull - Perceptual Present (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84CC841A3D3E0BB4CBA7D600AE4A8933C230B7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522348   (760362) от 06.01.2022
-
-Inhibidor - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renacer del Tiempo
-02. Una Puta Vez
-03. Sabor a LibertadLucas Bravo
-04. Reina Madre (feat. Joel Bedetti)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6F2ED6E199371F60B5A725D93D4F68C75878BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522301   (758794) от 07.01.2022
-
-Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Descent (01:10)
-02. Slum Devil (04:30)
-03. Livin Rock (03:32)
-04. Mark Of Vengeance (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC0568760633E1AD7E598586036EDD80A99DFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522294   (758793) от 07.01.2022
-
-Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The American Dream
-02. The Heat And The Fire
-03. Away Too Long
-04. Hold Out(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB5CD3EAB7C801BD6EA856E22EF69E0C06B2A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

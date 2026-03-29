@@ -1,3 +1,107 @@
+###  Публикация: 199430   (152773) от 22.12.2019
+
+NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простираясь на 11 часовых поясов и расположившись на территории двух континентов, от центра Европы до Тихого океана, эта огромная страна поражает своим размахом и нетронутыми природными богатствами, которые в их первозданной красоте таят необъятные Российские просторы, раскинувшиеся вдали от шумных и тесных мегаполисов - Москвы и Санкт-Петербурга. Получив уникальную (   Читать дальше...   )Телекомпания: A Studio Hamburg ProduktionЖанр: Документальный, ВидовойПеревод: ДублированныйПродолжительность: 6х ~00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2F25E39B865A58D6E3551F7408E5823CBDB31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086471   (152735) от 24.12.2016
+
+Последний рейс "Андреа Дориа" / Last Voyage of the Andrea Doria (1996) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152735.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1956 году лайнер «Андреа Дориа» в 101-ый раз пересекал Атлантику. По палубам прогуливалась богема того времени, а на капитанском мостике за правильным курсом следили лучшие моряки Италии. Однако июльским утром 1956 жители побережья Нантаки увидели страшную картину: огромный корабль лежал на боку и медленно погружался в воду. Как такое могло случиться с современным (   Читать дальше...   )Телекомпания: США / National GeographicЖанр: Документальный, ИсторияПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EAF2A607EFD1138282055DD0224C084324B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271261   (152218) от 22.12.2018
+
+NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти млекопитающие проявляют малоизвестные нам черты характера, становясь могущественными, хитрыми и беспощадными животными.Производство: Новая Зеландия, Natural History New Zeland, Ltd., National GeographicЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2024014A776B4CA20DED7FAD73940D97483B4FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347553   (151507) от 23.12.2019
+
+NG: Службы безопасности портов: Гамбург / Port Security: Hamburg (2019) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гамбургский порт является ключевым транспортным хабом Германии, через который осуществляются экспортно-импортные поставки различных товаров в интересах немецкого бизнеса. Контрабандисты со всего мира пытаются использовать его для своей нелегальной деятельности, включая провоз наркотиков, оружия и контрабанды. Мы увидим, как проводятся спецоперации по задержанию подозрительных (   Читать дальше...   )Производство: Германия, National GeographicЖанр: Документальный, контрабанда, полицияРежиссер: Юсиф Аль-ЧалабиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45480C307B95CA06F98B25D18FB677A520823D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347540   (151460) от 23.12.2019
 
 NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arctic Summer (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151460.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: История Эмиратов / History of the Emirates (2019) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151334.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG. Затерянная гробница царя Ирода / Herod's Lost Tom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149334.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149113.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148974.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148546.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148541.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Помпеи. Тайны мёртвых (Последние беженцы �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147015.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146899.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146383.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145663.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144016.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143841.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG: Служба безопасности аэропорта: Первый кл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142622.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ National Geographic. Подземный мир майя: настоящий ко
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133691.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130984.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126985.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126945.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126937.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125913.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125772.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125199.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503855   (116765) от 19.02.2024
-
-NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимается буря - это масштабный сериал, в одном сезоне которого собраны самые крупные мировые природные катаклизмы за целый год: от мартовского торнадо в США до декабрьских оползней в Центральной Америке. Вместе с охотником за ураганами Ридом Тиммером и его командой мы познаем силу ярости матушки-природы, изучая самые опасные погодные явления в мире и причины их (   Читать дальше...   )Производство: США, Lucky 8, National GeographicЖанр: Документальный, научно-популярный, метеорология, природа, катастрофыУчастники: Майк Тайсс, Рид ТиммерПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F886A6EB259FD6B4F80C760E554C66DE89F940D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822678   (101689) от 07.10.2025
-
-NG. В мире дельфинов с Берти Грегори / Dolphins Up Close with Bertie Gregory (2025) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берти Грегори отправляется на Азорские острова, португальскую островную цепь и морской заповедник, чтобы запечатлеть захватывающее охотничье поведение дельфинов и других хищников. Цель этого фильма - показать интеллект и слаженность действий дельфинов, а также превращение Азорских островов из района китобойного промысла в морской заповедник, где нарушенные ранее (   Читать дальше...   )Производство: Великобритания, Wildstar FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам БойлУчастники: Берти ГрегориПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82682029315FF12B7EB7F05FDAF281DFF902F33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822682   (101683) от 07.10.2025
-
-NG. В мире дельфинов с Берти Грегори / Dolphins Up Close with Bertie Gregory (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берти Грегори отправляется на Азорские острова, португальскую островную цепь и морской заповедник, чтобы запечатлеть захватывающее охотничье поведение дельфинов и других хищников. Цель этого фильма - показать интеллект и слаженность действий дельфинов, а также превращение Азорских островов из района китобойного промысла в морской заповедник, где нарушенные ранее (   Читать дальше...   )Производство: Великобритания, Wildstar FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам БойлУчастники: Берти ГрегориПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822179   (98561) от 05.10.2025
-
-NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98561.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смертельной авиакатастрофы, в результате которой четверо юных братьев и сестер оказываются запертыми в глубине колумбийских тропических лесов, разворачивается драматическая спасательная операция, объединяющая следопытов-аборигенов и военных в гонке со временем. Впервые создатели фильма предлагают нам эксклюзивный рассказ об этой невероятной реальной истории (   Читать дальше...   )Производство: США, Великобритания, Перу, Колумбия / Demolition Films, Lightbox, Little Monster Films, National Geographic Documentary Films, Lightbox, Pacha Films, Senal ColombiaЖанр: документальный, катастрофа, спасение, расследованиеРежиссер: Джимми Чин, Хуан Камило Крус, Элизабет Чай ВасархелиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

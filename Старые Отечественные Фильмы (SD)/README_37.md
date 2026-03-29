@@ -1,3 +1,55 @@
+###  Публикация: 688525   (575299) от 12.08.2013
+
+Ворота в небо (1983) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танковый корпус генерала Шубникова весной 1945 года был уже на подступах к Берлину. Отставшие тылы не обеспечивали регулярность подвоза горючего. Полковнику Лебеденко было поручено организовать базу горючесмазочных материалов в Химмельсфорте (в переводе - Ворота в небо), где небольшой группе советских бойцов пришлось вступить в неравный бой с остатками вражеского (   Читать дальше...   )Жанр: военный, драмаРежиссер: Дамир Вятич-БережныхАктеры: Георгий Жжёнов, Валерий Хромушкин, Анатолий Васильев, Эрнст Романов, Юрий Назаров, Татьяна Божок, Валерий Носик, Юрий Мартынов, Улдис Думпис, Улдис Лиелдидж, Янина Лисовская, Карлис Зушманис, Иван Косых, Нартай Бегалин, Анатолий Ведёнкин, Владимир Гуляев, Юозас Киселюс, Владимир Кузнецов (VI), Надежда Матушкина, Ирена Симонайтите, Александр Январёв и другиеПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B19CC2EB777A53127DCB3952D66B0DF6716685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361087   (574949) от 11.07.2011
+
+Боксеры (1941) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой боксер Кирилл Кочеванов в учебном бою отборочных соревнований с чемпионом Петром Дороховым проигрывает решающую встречу и, казалось бы, теперь не должен попасть в команду для поездки в Европу. Однако по решению комиссии, усмотревшей в спортсмене большие задатки, Кочеванов вместе с лучшими боксерами «Молнии» уезжает за границу. После нескольких выигранных встреч наши спортсмены получают вызов чемпиона Европы Анри Ланса. Хорошо изучив тактику и стратегию боя Дорохова Ланс обещает всем журналистам накаутировать соперника не позже четвертого раунда. Однако противником Ланса объявляется Кирилл Кочеванов. На четвертом раунде Кирилл переходит в наступление, атакует Ланса и выигрывает бой .Жанр: Драма, Комедия, CпортРежиссер: Владимир ГончуковАктеры: Виталий Доронин, Даниил Сагал, Николай Ивакин, Константин Градополов, Константин Михайлов, Константин Сорокин, Виктор Проклов, Ариадна Тур, Ефим Копелян, Роберт Росс, Иван Бобров, Эммануил Геллер, Николай Волков, Николай КомиссаровПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2815A3EF11A9D0D263BD29906CE53735ACB705A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812129   (574549) от 12.08.2014
 
 Потерпевшие претензий не имеют (1986) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574549.jpg" />
+  <img src="Z:/picture/008/save_picture_574549.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573919.jpg" />
+  <img src="Z:/picture/008/save_picture_573919.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573121.jpg" />
+  <img src="Z:/picture/008/save_picture_573121.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571651.jpg" />
+  <img src="Z:/picture/008/save_picture_571651.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571635.jpg" />
+  <img src="Z:/picture/008/save_picture_571635.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571587.jpg" />
+  <img src="Z:/picture/008/save_picture_571587.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571583.jpg" />
+  <img src="Z:/picture/008/save_picture_571583.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570872.jpg" />
+  <img src="Z:/picture/008/save_picture_570872.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570251.jpg" />
+  <img src="Z:/picture/008/save_picture_570251.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569811.jpg" />
+  <img src="Z:/picture/008/save_picture_569811.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569639.jpg" />
+  <img src="Z:/picture/008/save_picture_569639.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568637.jpg" />
+  <img src="Z:/picture/008/save_picture_568637.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568526.jpg" />
+  <img src="Z:/picture/008/save_picture_568526.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568522.jpg" />
+  <img src="Z:/picture/008/save_picture_568522.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_568420.jpg" />
+  <img src="Z:/picture/005/save_picture_568420.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568194.jpg" />
+  <img src="Z:/picture/008/save_picture_568194.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567356.jpg" />
+  <img src="Z:/picture/008/save_picture_567356.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567024.jpg" />
+  <img src="Z:/picture/008/save_picture_567024.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565165.jpg" />
+  <img src="Z:/picture/008/save_picture_565165.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564442.jpg" />
+  <img src="Z:/picture/008/save_picture_564442.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563361.jpg" />
+  <img src="Z:/picture/008/save_picture_563361.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563158.jpg" />
+  <img src="Z:/picture/008/save_picture_563158.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563115.jpg" />
+  <img src="Z:/picture/008/save_picture_563115.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563005.jpg" />
+  <img src="Z:/picture/008/save_picture_563005.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B596E3665E95699D4D6AB96955D9013E75B2CDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530311   (562672) от 02.08.2012
-
-Беспокойная весна (1956) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562672.jpg" />
-</div>
-
-
-###  Подробнее
-
-О формировании характера юноши, участника борьбы за хлеб на целине. Группа комсомольцев основала на целинных землях Казахстана совхоз "Май-Балык". Среди юношей и девушек, будущих хлеборобов, выделяется легкомысленный, франтоватый парень Женька Омега. В первые же дни пребывания на целине Женька совершил ряд "подвигов": променял резиновые сапоги на гитару, попытался увильнуть от работы, ушел с курсов трактористов. Руководство совхоза и товарищи понимают, что Омеге нельзя доверить трактор, и несмотря на возмущение паренька, его назначают водовозом. Идет время. Омега, ставший желанным гостем во всех бригадах, начинает проникаться уважением к своей профессии. Вскоре юноше приходится пройти через новое испытание: любимая им девушка Ольга отдает свое сердце молодому трактористу, казаху Идрису. Неудачная любовь не сломила Омегу. Наконец пришла к нему первая большая радость: став трактористом, он вспахал последнюю борозду на целине..Жанр: КомедияРежиссер: Александр МедведкинАктеры: Сергей Гурзо, Римма Шорохова, Идрис Ногайбаев, Нина Гребешкова, Владимир Борискин, Владимир Тягушев, Иван Лобызовский, Г. Федоровский, Павел Кайров, Шахан Мусин, Кененбай Кожабеков, Л. Ольшевский, Надежда Самсонова, Ольга Дуссан, Тамара Думная, Виктор Уральский, Мухтар БахтыгереевПродолжительность: 01:14:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 225840   (562222) от 10.08.2010
-
-Анна и командор (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматург Вадим Петрович решает написать сценарий об Александре. Естественно, первым делом, он знакомится с его женой. Анна, тяжело пережив смерть своего любимого, свято и верно хранит память о Командоре — именно так его называли близкие и друзья. Ее жизнь хранит воспоминания, которые живее и ярче, чем реалии повседневной жизни. Перед глазами драматурга проплывают (   Читать дальше...   )Производство: СССР. Киностудия им. А. ДовженкоЖанр: Драма, МелодрамаРежиссер: Евгений ХринюкАктеры: Алиса Фрейндлих, Василий Лановой, Иннокентий Смоктуновский, Виктор Полищук, Виктор Маляревич, Владимир Козел, Леон Кукулян, Неонила Гнеповская, Сергей Карнович-Валуа, Алексей ЧерновПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E36E05E6543D10931FFF375A852FC5A2EBC330
 ```
 
 https://mybot314.ru/tekegram_catalog/

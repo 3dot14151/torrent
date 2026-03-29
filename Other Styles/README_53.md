@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768349.jpg" />
+  <img src="Z:/picture/008/save_picture_768349.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767922.jpg" />
+  <img src="Z:/picture/008/save_picture_767922.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Michel Legrand & His Orchestra - Strings On Fire (1962) LP /Columbia/ [MP3|320 �
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767609.jpg" />
+  <img src="Z:/picture/008/save_picture_767609.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Intouchables (Неприкасаемые / 1+1 /) - OST (2011) [FLAC|Lossle
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767446.jpg" />
+  <img src="Z:/picture/008/save_picture_767446.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767036.jpg" />
+  <img src="Z:/picture/008/save_picture_767036.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ c h a p e l s - Repertoire (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, P
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766932.jpg" />
+  <img src="Z:/picture/008/save_picture_766932.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766813.jpg" />
+  <img src="Z:/picture/008/save_picture_766813.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766556.jpg" />
+  <img src="Z:/picture/008/save_picture_766556.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766545.jpg" />
+  <img src="Z:/picture/008/save_picture_766545.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766387.jpg" />
+  <img src="Z:/picture/008/save_picture_766387.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Евгенич (2021) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766079.jpg" />
+  <img src="Z:/picture/008/save_picture_766079.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765535.jpg" />
+  <img src="Z:/picture/008/save_picture_765535.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765533.jpg" />
+  <img src="Z:/picture/008/save_picture_765533.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765432.jpg" />
+  <img src="Z:/picture/008/save_picture_765432.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|t
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764544.jpg" />
+  <img src="Z:/picture/008/save_picture_764544.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764479.jpg" />
+  <img src="Z:/picture/008/save_picture_764479.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764330.jpg" />
+  <img src="Z:/picture/008/save_picture_764330.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763729.jpg" />
+  <img src="Z:/picture/008/save_picture_763729.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-D
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763716.jpg" />
+  <img src="Z:/picture/008/save_picture_763716.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Fu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763533.jpg" />
+  <img src="Z:/picture/008/save_picture_763533.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763488.jpg" />
+  <img src="Z:/picture/008/save_picture_763488.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Dark Country 1-5 (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763444.jpg" />
+  <img src="Z:/picture/008/save_picture_763444.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763173.jpg" />
+  <img src="Z:/picture/008/save_picture_763173.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763124.jpg" />
+  <img src="Z:/picture/008/save_picture_763124.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763074.jpg" />
+  <img src="Z:/picture/008/save_picture_763074.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762832.jpg" />
+  <img src="Z:/picture/008/save_picture_762832.jpg" />
 </div>
 
 

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1862079   (1063052) от 
+
+Новая Битва экстрасенсов (28.03.2026) HDTV [H.264/1080p] (сезон 25, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный, 25-й сезон мистического реалити-шоу ТНТ, в котором люди, заявляющие о сверхспособностях, проходят серию испытаний, чтобы доказать свой дар и побороться за звание сильнейшего экстрасенса страны. В новом сезоне проект выходит на международный уровень: на кастинг пришли заявки из Сирии, Франции, Швейцарии, Латвии, Грузии, Сербии и Италии. Претендентам предстоит (   Читать дальше...   )Телекомпания: ТНТ / FMP GROUP, ООО "ФМП Групп"Жанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B39581BD5C4B89CC8BDC1543EE255382431B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860588   (1061910) от 
+
+Новая Битва экстрасенсов (21.03.2026) HDTV [H.264/1080p] (сезон 25, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный, 25-й сезон мистического реалити-шоу ТНТ, в котором люди, заявляющие о сверхспособностях, проходят серию испытаний, чтобы доказать свой дар и побороться за звание сильнейшего экстрасенса страны. В новом сезоне проект выходит на международный уровень: на кастинг пришли заявки из Сирии, Франции, Швейцарии, Латвии, Грузии, Сербии и Италии. Претендентам предстоит (   Читать дальше...   )Телекомпания: ТНТ / FMP GROUP, ООО "ФМП Групп"Жанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8A75188A50C8A17DB97FF23F5A1FC11C645560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859141   (1060885) от 14.03.2026
 
 Новая Битва экстрасенсов (14.03.2026) HDTV [H.264/1080p] (сезон 25, выпуск 3)
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060885.jpg" />
+  <img src="Z:/picture/005/save_picture_1060885.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059764.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058781.jpg" />
+  <img src="Z:/picture/005/save_picture_1058781.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045553.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036226.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034597.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030220.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023675.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018399.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016232.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997945.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994803.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_991591.jpg" />
+  <img src="Z:/picture/009/save_picture_991591.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_989009.jpg" />
+  <img src="Z:/picture/009/save_picture_989009.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980714.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980711.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980709.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980708.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980705.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980701.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980279.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980218.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980170.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973356.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAFBD1B480B849B3C85263B2E5C4EF6055BA81A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975390   (973346) от 14.01.2016
-
-Земля. Территория загадок. Монстры из пробирки (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто проводил опыты по скрещиванию человека с обезьяной и что за Франкенштейна сотворили в Советском Союзе? Люди с давних времен пытались создать себе безропотных и выносливых помощников. Каких успехов добилась современная генетика и можно ли вернуть к жизни Ленина?Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44641CAE22CF07F243F0C58D44580AE288C9BA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975380   (973298) от 14.01.2016
-
-Земля. Территория загадок. Тайна Великого Сфинкса (2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какую тайну хранит Великий Сфинкс? В конце 20 века японские ученые проводили исследовательские работы у подножия египетского монумента. Радиометрическая аппаратура показала, что под лапой огромной скульптуры находится какой-то узкий тоннель. Все работы ученых были внезапно остановлены. Что же могли обнаружить исследователи?Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F091C2320421781E327C6A8948C227318A64EA0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

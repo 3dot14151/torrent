@@ -1,3 +1,82 @@
+###  Публикация: 1439325   (1040052) от 12.01.2021
+
+Nitro4D NitroBake3 v3.02  for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин Nitrobake3 предлагает мощный быстрый и интуитивно понятный способ без труда выпекать вашу сцену в ключевые слова и быть в состоянии экспортировать ее в другое программное обеспечение. Он может обрабатывать все объекты и генераторы Cinema 4D Standard и Thinking Particles и Xparticles, а также MoGraph Hair and Dynamics basic может испечь все внутри в Cinema (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C685A1BDA6AAD15F3805CD5FA5D676361FDB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439333   (1040050) от 12.01.2021
+
+Nitro4D NitroEdgeDeformerTool v1.05 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040050.jpg" />
+</div>
+
+
+###  Подробнее
+
+NitroEdgeDeformerTool - это плагин с которым вы можете легко изменить форму своей модели. Выбрав сторону модели, вы можете перемещать, увеличивать, вращать и т. д., А также настраивать и изменять свою собственную модель.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0A99C45C3D8B3870DE11A3F75B9BB3DC0A63E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439208   (1040040) от 12.01.2021
+
+C4DZone QuadCaps v1.0 For Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040040.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuadCaps - это плагин который помогает пользователю закрыть полигональное отверстие с помощью четырехугольной сетки без создания Ngons.
+Выберите контур края, который нужно закрыть, и вызовите инструмент QuadCaps, полигон будет закрыт четырехугольной сеткой.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09192345B5FA3D90CF64F1CEBBF1361C49E2BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439205   (1040037) от 12.01.2021
 
 Laubwerk SurfaceSPREAD v2.0.4 For Cinema 4D [En]
@@ -6,7 +85,7 @@ Laubwerk SurfaceSPREAD v2.0.4 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040037.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Sitni Sati FumeFX 5.0.4 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040003.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Ornatrix v2 2.0.10.26200 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039999.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ TurbulenceFD v1.0 build 1465 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039995.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Transform v1.231S for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038421.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Reallusion Cartoon Animator 4.41.2431.1 RePack by PooShock [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037046.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Realbook v3.1 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035650.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ HB MODELLINGBUNDLE v2.31 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034321.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ Solid Angle To Arnold 3.3.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033366.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ U-RENDER 2021.1.3 for Cinema 4D [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032843.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ Nitro4D QuickRender v1.02 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025052.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ Terraform4D v1.1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024825.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ MagicaVoxel 0.99.6.3 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022383.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ PolyDesign3D - PolySnow Plus 1.01 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018354.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ PolyDesign3D - PolyCloth 2.02 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018347.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Aspire 10.514 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018324.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ Multiscatter 1.618 for 3ds Max 2014-2021 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017989.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ ArchvizTools - Kitchen Cabinet Generator 4.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013142.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010883.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010722.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ ArchvizTools - Picture Frame Generator 1.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008943.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ ArchvizTools - Sliding & Stacking Door Generator 2.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008927.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ RayFire 1.84 for 3ds max 2020 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001517.jpg" />
 </div>
 
 
@@ -596,86 +675,6 @@ RayFire 1.84 for 3ds max 2020 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB11F1DE6491661D1BCFC3309417ABAC81EF350A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972119   (982631) от 05.01.2016
-
-MakeHuman 1.0.2 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982631.jpg" />
-</div>
-
-
-###  Подробнее
-
-MakeHuman (МэйкХуман) — программный пакет с открытым исходным кодом, предназначен для прототипирования фотореалистичных гуманоидных персонажей, которые в дальнейшем используются в 3D графике. Название MakeHuman — это производное от двух слов «Make» и «Human», в переводе с английского Make — делать, Human — человек, получаем дословно «Make Human» — «Делать Людей».Язык интерфейса: Русский, Английский и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9321D78A484C12834111DD2A2484A736EB56AEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359516   (963948) от 12.02.2020
-
-Aviz Studio ATiles Pro 2.62 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963948.jpg" />
-</div>
-
-
-###  Подробнее
-
-ATiles - это скрипт для создания кровли крыши, плитки пола, кирпичных стен, заборов и многое другое. В комплекте со скриптом идут некоторые модели покрытия, но так же имеется возможность использовать для "размножения" и собственную модель (к примеру черепицы...).Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70185AB8E4BF1616562474E1CDF8A4099373A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979657   (958098) от 27.01.2016
-
-Planetside Terragen 3.3.03.0 Pro Plus Animation [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terragen — программа ландшафтного моделирования и анимации, позволяющая создавать фотореалистичные пейзажи. Существуют как бесплатная, так и коммерческая версии программы. Бесплатная версия имеет некоторые ограничения по сравнению с коммерческой.
-
-Программа позволяет генерировать и модифицировать ландшафт как двухмерную карту высот. Ввиду того, что карта высот генерируется (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A535F31CF65E4E829794B0526E1023AF4A6CB36
 ```
 
 https://mybot314.ru/tekegram_catalog/

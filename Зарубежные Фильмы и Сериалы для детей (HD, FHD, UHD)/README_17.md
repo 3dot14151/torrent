@@ -1,3 +1,29 @@
+###  Публикация: 1581524   (326194) от 06.10.2022
+
+Фокус-покус 2 / Hocus Pocus 2 (2022) UHD WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три девушки объединяются, чтобы остановить сестёр Сандерсон, которые вернулись в современный Салем 29 лет спустя.Производство: США / Walt Disney Pictures, David Kirschner ProductionsЖанр: фэнтези, мелодрама, комедия, семейныйРежиссер: Энн ФлетчерАктеры: Бетт Мидлер, Сара Джессика Паркер, Кэти Нэджими, Даг Джонс, Уитни Пик, Лилия Бакинхем, Белисса Эскобедо, Ханна Уэддингхэм, Тони Хейл, Сэм РичардсонПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0C0F4D496BB0D88A96E2290207CEB6D504CCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581525   (326181) от 06.10.2022
 
 Фокус-покус 2 / Hocus Pocus 2 (2022) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326181.jpg" />
+  <img src="Z:/picture/008/save_picture_326181.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323415.jpg" />
+  <img src="Z:/picture/008/save_picture_323415.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323170.jpg" />
+  <img src="Z:/picture/008/save_picture_323170.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318109.jpg" />
+  <img src="Z:/picture/008/save_picture_318109.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315301.jpg" />
+  <img src="Z:/picture/008/save_picture_315301.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315299.jpg" />
+  <img src="Z:/picture/008/save_picture_315299.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315298.jpg" />
+  <img src="Z:/picture/008/save_picture_315298.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313061.jpg" />
+  <img src="Z:/picture/008/save_picture_313061.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312270.jpg" />
+  <img src="Z:/picture/008/save_picture_312270.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310610.jpg" />
+  <img src="Z:/picture/008/save_picture_310610.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306720.jpg" />
+  <img src="Z:/picture/008/save_picture_306720.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306308.jpg" />
+  <img src="Z:/picture/008/save_picture_306308.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301228.jpg" />
+  <img src="Z:/picture/008/save_picture_301228.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300762.jpg" />
+  <img src="Z:/picture/008/save_picture_300762.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298804.jpg" />
+  <img src="Z:/picture/008/save_picture_298804.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298465.jpg" />
+  <img src="Z:/picture/008/save_picture_298465.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296460.jpg" />
+  <img src="Z:/picture/008/save_picture_296460.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295001.jpg" />
+  <img src="Z:/picture/008/save_picture_295001.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287786.jpg" />
+  <img src="Z:/picture/008/save_picture_287786.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283853.jpg" />
+  <img src="Z:/picture/008/save_picture_283853.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282377.jpg" />
+  <img src="Z:/picture/008/save_picture_282377.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279145.jpg" />
+  <img src="Z:/picture/008/save_picture_279145.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278905.jpg" />
+  <img src="Z:/picture/008/save_picture_278905.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277272.jpg" />
+  <img src="Z:/picture/008/save_picture_277272.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276356.jpg" />
+  <img src="Z:/picture/008/save_picture_276356.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C38559063E8B1D57E43FAEBB89662C08D1D768D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265347   (275149) от 27.11.2018
-
-Джим Пуговка и машинист Лукас / Jim Knopf und Lukas der Lokomotivfuhrer (2018) BDRip [H.264/1080p] [PR]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная страна Медландия расположена на острове. Сюда почтальон доставляет посылку c маленьким мальчиком. Он вырастает в храброго искателя приключений. На поезде-вездеходе Джим отправляется через океан и пустыню в город Драконов, чтобы спасти принцессу.Производство: Германия / Rat Pack Filmproduktion, Malao Film, Studio BabelsbergЖанр: Фэнтези, приключения, семейныйРежиссер: Дэннис ГанзельАктеры: Хеннинг Баум, Као Ченмин, Энди Чунг, Тадаси Эндо, Лейганн Эсперанцате, Аннета Фрир, Томас Фритш, Соломон Гордон, Эден Гоф, Михаэль ХербигПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDF21C9931A4BE199757AA0BE41FD4A46478D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

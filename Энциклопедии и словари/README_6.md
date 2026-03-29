@@ -1,3 +1,29 @@
+###  Публикация: 1300359   (593500) от 05.05.2019
+
+Вадим Чернобров | Энциклопедия уфологии (2007) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое уфология? Что такое НЛО и кто такие пришельцы? Существуют ли они в действительности и, зачем прилетают на Землю и прилетают ли вообще? Эти вопросы и наше время могут задавать и маленькие дети, и взрослые, но ответы на них не знают даже люди, посвятившие изучению этой теме всю жизнь. Уфологии как науке более 60 лет, но вряд ли ее основные тайны стали менее (   Читать дальше...   )Жанр: Энциклопедия, Научно-популярная литература, УфологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6F6D06908AA7C980F88924F76F2C36A66A136E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300204   (593492) от 05.05.2019
 
 Г. А. Козлов, С. П. Первушин (ред.) | Краткий экономический словарь (1958) [PDF]
@@ -6,7 +32,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593492.jpg" />
+  <img src="Z:/picture/008/save_picture_593492.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590835.jpg" />
+  <img src="Z:/picture/008/save_picture_590835.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585709.jpg" />
+  <img src="Z:/picture/008/save_picture_585709.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583074.jpg" />
+  <img src="Z:/picture/008/save_picture_583074.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579852.jpg" />
+  <img src="Z:/picture/008/save_picture_579852.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575308.jpg" />
+  <img src="Z:/picture/008/save_picture_575308.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570111.jpg" />
+  <img src="Z:/picture/008/save_picture_570111.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568755.jpg" />
+  <img src="Z:/picture/008/save_picture_568755.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568676.jpg" />
+  <img src="Z:/picture/008/save_picture_568676.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Peter Frances (ред) | История мира в 1000 объектах / Hist
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559115.jpg" />
+  <img src="Z:/picture/008/save_picture_559115.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558982.jpg" />
+  <img src="Z:/picture/008/save_picture_558982.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553794.jpg" />
+  <img src="Z:/picture/008/save_picture_553794.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552230.jpg" />
+  <img src="Z:/picture/008/save_picture_552230.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551835.jpg" />
+  <img src="Z:/picture/008/save_picture_551835.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551774.jpg" />
+  <img src="Z:/picture/008/save_picture_551774.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548642.jpg" />
+  <img src="Z:/picture/008/save_picture_548642.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547883.jpg" />
+  <img src="Z:/picture/008/save_picture_547883.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538872.jpg" />
+  <img src="Z:/picture/008/save_picture_538872.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535783.jpg" />
+  <img src="Z:/picture/008/save_picture_535783.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531739.jpg" />
+  <img src="Z:/picture/008/save_picture_531739.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527212.jpg" />
+  <img src="Z:/picture/008/save_picture_527212.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525895.jpg" />
+  <img src="Z:/picture/008/save_picture_525895.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525887.jpg" />
+  <img src="Z:/picture/008/save_picture_525887.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523515.jpg" />
+  <img src="Z:/picture/008/save_picture_523515.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520154.jpg" />
+  <img src="Z:/picture/008/save_picture_520154.jpg" />
 </div>
 
 
@@ -658,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535431   (517633) от 15.08.2012
-
-Словарь Академии Российской (6 книг) (Раритетное издание) [1789-1794] [DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый словарь Российской Академии, являющийся первым толковым словарем русского языка. Словарь содержит свыше 43000 слов в 6 частях. Работа над словарем началась в 1783 году и заняла 11 лет. 6 частей словаря были изданы в период с 1789-1794 гг.
-
- Словарь содержит элементы этимологического словаря: слова располагаются по общему корню, образуя разветвлённые смысловые гнезда. По нему можно определить, откуда произошло слово, кроме того, он включает множество новых слов в русском языке, введённых, в частности, Ломоносовым в науку.Жанр: Раритеты / Словари / ЯзыкознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE034CFB0D09D8826D717F5F509A0A40745D1F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

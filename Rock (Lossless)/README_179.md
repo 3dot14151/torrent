@@ -1,3 +1,148 @@
+###  Публикация: 1759647   (103267) от 09.11.2024
+
+Davy Knowles - The Invisible Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good to Know Ya (6:44)
+02. Tell Me What You Want Me to Be (4:33)
+03. The Invisible Man (6:07)
+04. Around Here (4:53)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6236163F53A75D0FEF66077DA471975D6426D0C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759736   (103238) от 10.11.2024
+
+The Score - Last Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions [00:03:13]
+02. Fighting For [00:02:29]
+03. Down With The Wolves [00:03:11]
+04. Power [00:02:22](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974DD1C5813BB4E3B52845F3EE23CD1AF5BCF97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759749   (103224) от 10.11.2024
+
+Counterline - Two (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Of Rock N' Roll (4:46)
+02. Away (4:20)
+03. Fantasy (4:05)
+04. Those Shadows (4:29)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6A91A479F7DDCC404AF91701F0BEBEB3FE9B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759740   (103221) от 10.11.2024
+
+Nationwide - Echoes (2024) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fade Away (5:18)
+02. Dreams (4:53)
+03. Can’t Get Over You (4:19)
+04. Without You (5:25)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E473E97B7DAB1E27687FEC853240FBCE0151F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759735   (103220) от 10.11.2024
+
+The Waterboys - Dream Harder (1993) Directors Cut, 2024, Geffen [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss The Wind [00:02:28]
+02. The New Life [00:06:41]
+03. Glastonbury Song [00:03:44]
+04. Preparing To Fly [00:04:33](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821D6F5307203FEE6C4FFB70D81B66F303947AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759760   (103217) от 10.11.2024
 
 Pinnacle Point - Symphony Of Mind (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, AOR>
@@ -6,7 +151,7 @@ Pinnacle Point - Symphony Of Mind (2020) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103217.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Dane Donohue - L.A. Rainbow (2024) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103216.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Timothy Drury - Timothy Drury (1996) [FLAC|Lossless|image + .cue] <West Coast, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103205.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103052.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103041.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103039.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103013.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103004.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102966.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Paradigm - Mainstream Epidemic (2005) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102947.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ The Pursuit Of Happiness - Love Junk (1988) CD, Album, Club Edition, CRC [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102944.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102943.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102933.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ The Minus 5 - Down With Wilco: A Tragedy In Three Halfs (2003) [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102917.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102875.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Tony Carey - Steeltown (2013) 2024 Remixed & Remastered [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102828.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Wes
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102776.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102772.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102765.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Creedence Clearwater Revival - Bad Moon Rising: Shadows on the Bayou (2025) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101729.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Hot Rod Frankie - Stitched together (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101711.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Hot Rod Frankie - Stitched together (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15FF7D0256CB91E8D6787A3F975232884F724F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764685   (101495) от 08.12.2024
-
-Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Believe (4:48)
-02. I Don't Want (4:43)
-03. Music Is The One (4:30)
-04. Into Me Forever (3:34)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764777   (101489) от 08.12.2024
-
-Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Make My) Country Rock (feat. Sully Erna of Godsmack, Travis Tritt, and Mick Mars)
-02. Guilty (feat. DL of Bad Wolves)
-03. Whiskey For Sale
-04. Sorry For Nothing(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057DC426656B990512D904536099BFA1A8086673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764695   (101487) от 08.12.2024
-
-Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destination Unknown (0:51)
-02. Neon Rider (5:04)
-03. Feel The Magic (5:22)
-04. Unleash The Fire (4:32)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8040530D5F9D15EE86256BD926403749D6011E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764796   (101468) от 09.12.2024
-
-Pat Benatar - Gravity’s Rainbow (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures of a Gone World (0:33)
-02. Everybody Lay Down (4:20)
-03. Somebody's Baby (4:26)
-04. Ties That Bind (3:38)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCF053CB205BCD7348F51535AC0EE3EC1A2676D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765066   (101459) от 11.12.2024
-
-Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of the Hike [00:04:52]
-02. Among the MacKays [00:05:54]
-03. Folk of Cold [00:07:56]
-04. Poem of an Iceberg [00:06:34](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD476E642DF005FDFB5DE7F49633240289291D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

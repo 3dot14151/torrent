@@ -1,3 +1,32 @@
+###  Публикация: 1548968   (594007) от 06.05.2022
+
+VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Broken Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Chambers - Caramel
+02. Max Mozart - Goals
+03. Eden Santonio - Medication
+04. Amadeus Mozart - Beach Opera(   Читать дальше...   )Жанр: Chillhop, Lo-Fi, Broken BeatПродолжительность: 00:52:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233000   (593991) от 28.06.2018
 
 VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
@@ -6,7 +35,7 @@ VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593991.jpg" />
+  <img src="Z:/picture/008/save_picture_593991.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Mastermix Jet Boot Jack Remixes 2: Edits (2022) [MP3|320 Kbps] <Dance, New 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593964.jpg" />
+  <img src="Z:/picture/008/save_picture_593964.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Mastermix Jet Boot Jack Remixes 2: Extended (2022) [MP3|320 Kbps] <Dance, N
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593958.jpg" />
+  <img src="Z:/picture/008/save_picture_593958.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593943.jpg" />
+  <img src="Z:/picture/008/save_picture_593943.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Bravo Hits Lato 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592997.jpg" />
+  <img src="Z:/picture/008/save_picture_592997.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Energy Hits 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592757.jpg" />
+  <img src="Z:/picture/008/save_picture_592757.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - DMC - Million Sellers - The Divas (Classic Mixes) (Vol.1) (2022) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592519.jpg" />
+  <img src="Z:/picture/008/save_picture_592519.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Timecop1983 - Synthetic Romance (2014) EP [MP3|320 кб/с]<80's Retrowave, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592356.jpg" />
+  <img src="Z:/picture/008/save_picture_592356.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Timecop1983 - Waves (2014) EP [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamw
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592306.jpg" />
+  <img src="Z:/picture/008/save_picture_592306.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Timecop1983 - Reflections (2015) Limited Edition [MP3|320 кб/с]<80's Retrowav
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592272.jpg" />
+  <img src="Z:/picture/008/save_picture_592272.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Gianni Safred - Futuribile (The Life to Come) (1978) Reissue LP, 2019, Four Flie
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592161.jpg" />
+  <img src="Z:/picture/008/save_picture_592161.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ G Romano - Enjoy Freedom (2015) [MP3|320 кб/с]<Electropop, Dubstep, R&B, Trap
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591910.jpg" />
+  <img src="Z:/picture/008/save_picture_591910.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tash Lorayne - Light That Lives (2015) [MP3|320 кб/с]<Pop, Jazz, Blues, Soul,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591385.jpg" />
+  <img src="Z:/picture/008/save_picture_591385.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sky Ferreira - Night Time, My Time (2014) Limited Edition 2CD [OGG|458-572 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590399.jpg" />
+  <img src="Z:/picture/008/save_picture_590399.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Tango & Beatles (2012) [MP3|320 кб/с]<Argentina Tango, Covers>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590381.jpg" />
+  <img src="Z:/picture/008/save_picture_590381.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Years & Years - Communion (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Electroni
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590380.jpg" />
+  <img src="Z:/picture/008/save_picture_590380.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Little Boots - Working Girl (2015) [MP3|320 кб/с]<Synthpop, Indie Pop, Nu-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589948.jpg" />
+  <img src="Z:/picture/008/save_picture_589948.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Bird and The Bee - Recreational Love (2015) [MP3|320 кб/с]<Indie Pop, Ele
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589942.jpg" />
+  <img src="Z:/picture/008/save_picture_589942.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Disco. The Long Versions (2015) 3CD [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589885.jpg" />
+  <img src="Z:/picture/008/save_picture_589885.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Dara Sedaka - I'm Your Girl Friend (1982)/2005/ [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589576.jpg" />
+  <img src="Z:/picture/008/save_picture_589576.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - A Trip to Greece. Best of Ancient. Greek Music (2015) [MP3|320 кб/с]<Ins
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589553.jpg" />
+  <img src="Z:/picture/008/save_picture_589553.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Betty Who - Take Me When You Go (2015) Deluxe Version [MP3|320 кб/с]<Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589086.jpg" />
+  <img src="Z:/picture/008/save_picture_589086.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588992.jpg" />
+  <img src="Z:/picture/008/save_picture_588992.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - DMC Dancing Divas (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588915.jpg" />
+  <img src="Z:/picture/008/save_picture_588915.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - DMC Back To The 80s (Classic Mixes) (Volume 1) (2021) [MP3|320 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588909.jpg" />
+  <img src="Z:/picture/008/save_picture_588909.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - DMC Back To The 80s (Classic Mixes) (Volume 1) (2021) [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F15FF61CF507D628D495BCAE050B76B83A183A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917897   (588672) от 13.07.2015
-
-R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night
-02. Wild Hearts
-03. Dark Side
-04. Let's Not Be Alone Tonight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D190D278A0407F0D75397BEDEC9812E0F88F84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

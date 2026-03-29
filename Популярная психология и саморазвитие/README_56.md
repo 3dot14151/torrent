@@ -1,3 +1,85 @@
+###  Публикация: 1041354   (582397) от 09.08.2016
+
+А. А. Горбовский | Человек человеку (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не об этикете. И не книга хороших манер. Вы не узнаете из нее, в какой руке следует держать вилку или как есть рыбу. Вы не найдете в ней также и многих других, несомненно, важных и полезных сведений из этой области.
+
+Книг о том, как держаться в обществе, написано достаточно много. Не потому ли автор решил написать книгу, которая отвечала бы на другой вопрос, (   Читать дальше...   )Жанр: История, этика, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254C6326A459F5B412CA4881BF504882AD794D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920385   (579849) от 22.07.2015
+
+Стюарт Браун, Кристофер Воган | Игра (2015) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — глубокое исследование природы игр и их влияния на нашу жизнь и счастье, написанное ключевым экспертом в этой области.
+Автор исследовал более шести тысяч историй самых разных людей — от серийных убийц до нобелевских лауреатов — и доказал, что игры нужны для нашего социального развития, интеллекта, креативности и способности решать проблемы. Игры встроены (   Читать дальше...   )Жанр: саморазвитиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1DB542D0B46CE336C14797539340059A4C6CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042343   (579299) от 12.08.2016
+
+Элвин Бродерик | Секс, игра и шоколад. Удовольствия и пристрастия (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярная книга английского специалиста по поведенческой биологии посвящена исследованию удовольствий. Автор рассказывает о появлении удовольствий в процессе эволюции человека, объясняет, как они вместе с их alter ego – болью – помогли выжить нашим предкам; исследует биологические механизмы желания, счастья, скуки.
+Книга об удовольствиях не может умолчать (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC0CA1E406A764562ED03FBD33BBD7E139BDBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302752   (579137) от 17.05.2019
 
 Егор Горд | Взрыв мышления (2019) [PDF]
@@ -6,7 +88,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579137.jpg" />
+  <img src="Z:/picture/008/save_picture_579137.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579063.jpg" />
+  <img src="Z:/picture/008/save_picture_579063.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578050.jpg" />
+  <img src="Z:/picture/008/save_picture_578050.jpg" />
 </div>
 
 
@@ -89,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577986.jpg" />
+  <img src="Z:/picture/008/save_picture_577986.jpg" />
 </div>
 
 
@@ -115,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577856.jpg" />
+  <img src="Z:/picture/008/save_picture_577856.jpg" />
 </div>
 
 
@@ -141,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577707.jpg" />
+  <img src="Z:/picture/008/save_picture_577707.jpg" />
 </div>
 
 
@@ -167,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576136.jpg" />
+  <img src="Z:/picture/008/save_picture_576136.jpg" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575702.jpg" />
+  <img src="Z:/picture/008/save_picture_575702.jpg" />
 </div>
 
 
@@ -219,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574412.jpg" />
+  <img src="Z:/picture/008/save_picture_574412.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574087.jpg" />
+  <img src="Z:/picture/008/save_picture_574087.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573365.jpg" />
+  <img src="Z:/picture/008/save_picture_573365.jpg" />
 </div>
 
 
@@ -300,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573360.jpg" />
+  <img src="Z:/picture/008/save_picture_573360.jpg" />
 </div>
 
 
@@ -329,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573259.jpg" />
+  <img src="Z:/picture/008/save_picture_573259.jpg" />
 </div>
 
 
@@ -355,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570502.jpg" />
+  <img src="Z:/picture/008/save_picture_570502.jpg" />
 </div>
 
 
@@ -381,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570230.jpg" />
+  <img src="Z:/picture/008/save_picture_570230.jpg" />
 </div>
 
 
@@ -407,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570194.jpg" />
+  <img src="Z:/picture/008/save_picture_570194.jpg" />
 </div>
 
 
@@ -433,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570191.jpg" />
+  <img src="Z:/picture/008/save_picture_570191.jpg" />
 </div>
 
 
@@ -459,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569684.jpg" />
+  <img src="Z:/picture/008/save_picture_569684.jpg" />
 </div>
 
 
@@ -486,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569607.jpg" />
+  <img src="Z:/picture/008/save_picture_569607.jpg" />
 </div>
 
 
@@ -512,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569086.jpg" />
+  <img src="Z:/picture/008/save_picture_569086.jpg" />
 </div>
 
 
@@ -538,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568673.jpg" />
+  <img src="Z:/picture/008/save_picture_568673.jpg" />
 </div>
 
 
@@ -564,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566304.jpg" />
+  <img src="Z:/picture/008/save_picture_566304.jpg" />
 </div>
 
 
@@ -592,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566184.jpg" />
+  <img src="Z:/picture/008/save_picture_566184.jpg" />
 </div>
 
 
@@ -604,87 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92BFB747BAFF99A57DB7BFF6EBD68356436C1747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922913   (566070) от 30.07.2015
-
-Джули Дирксен | Искусство обучать. Как сделать любое обучение нескучным и эффективным (2013) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о том, как сделать любое обучение нескучным и эффективным.
-
-Технологии и методы работы сегодня меняются очень быстро, и всем нам приходится постоянно учиться. Многие из нас обучают других, даже когда это напрямую не связано с профессией. Но если вы хоть раз засыпали над скучным учебником или перематывали утомительное упражнение в электронном курсе, вы понимаете, (   Читать дальше...   )Жанр: ПсихологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C3743EBF1392CF32A1C459B2960170D76891E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234910   (565716) от 08.07.2018
-
-Зигмунд Фрейд | Толкование сновидений. Полное издание (2018) [PDF, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрейд считал, что книга «Толкование сновидений» была рубежом в его творчестве. Главными особенностями «Толкования сновидений» являются последовательность и обстоятельность изложения, насыщенность конкретными примерами. Книгу следует читать внимательно, «от корки до корки». Подробное, детализированное изложение как бы воспроизводит процесс психоаналитического исследования. (   Читать дальше...   )Жанр: Зарубежная психология, Классики психологии, ПсихоанализФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE6F99D950F93ADF646C6B528BBD997C0446952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152663   (565178) от 23.07.2017
-
-Денис Байгужин | Как найти, покорить и удержать достойного мужчину (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина – самое прекрасное создание на земле. И это знают все мужчины. Но об этом совершенно не знают сами женщины. Они работают за троих, держат на себе порой весь дом, забывают о внешности, живут в страхах, сомнениях, а некоторые и вовсе в полном одиночестве.
-Денис Байгужин, психолог, коуч, женский тренер, скандально известный консультант по вопросам отношений (   Читать дальше...   )Жанр: ПсихологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59F11AD8945877D0334A257B69E28E246EE4418
 ```
 
 https://mybot314.ru/tekegram_catalog/

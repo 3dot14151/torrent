@@ -6,7 +6,7 @@ Zodiac - Disco Alliance (2013) [AAC|~350 Kbps] <Electronic, Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214399.jpg" />
+  <img src="Z:/picture/005/save_picture_214399.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Arkay Koo - Terra Server (2021) [AAC|~328 Kbps] <Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213946.jpg" />
+  <img src="Z:/picture/005/save_picture_213946.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - In Love with Lounge, Vol. 4 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213937.jpg" />
+  <img src="Z:/picture/005/save_picture_213937.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213922.jpg" />
+  <img src="Z:/picture/005/save_picture_213922.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Bedtime Stories, Vol. 1 (A One Night Lounge Affair) (2021) [AAC|~310 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213873.jpg" />
+  <img src="Z:/picture/005/save_picture_213873.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Bossa & Latin Flavours (2021) [AAC|~339 Kbps] <Nu Jazz, Bossa Nova, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213864.jpg" />
+  <img src="Z:/picture/005/save_picture_213864.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Lounge Erotique (Seductive Night in a Loungy Mood) (2015) [AAC|~326 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213850.jpg" />
+  <img src="Z:/picture/005/save_picture_213850.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213834.jpg" />
+  <img src="Z:/picture/005/save_picture_213834.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Seduction (Chill out Dreams), Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213820.jpg" />
+  <img src="Z:/picture/005/save_picture_213820.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Bossa Lounge Covers (2021) [AAC|~339 Kbps] <Lounge, Downtempo, Bossa Nova, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213817.jpg" />
+  <img src="Z:/picture/005/save_picture_213817.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Dune 1 (2018) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213749.jpg" />
+  <img src="Z:/picture/005/save_picture_213749.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Andrea Scala - Coming Back, Leaving Again (2020) [AAC|~336 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213733.jpg" />
+  <img src="Z:/picture/005/save_picture_213733.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Giovanni Cigui - Rock (2020) [AAC|~360 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213723.jpg" />
+  <img src="Z:/picture/005/save_picture_213723.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Giovanni Cigui - Cheewi Beats (2020) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213719.jpg" />
+  <img src="Z:/picture/005/save_picture_213719.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Dune 2 (2019) [AAC|~326 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213709.jpg" />
+  <img src="Z:/picture/005/save_picture_213709.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Dune 3 (2021) [AAC|~338 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213703.jpg" />
+  <img src="Z:/picture/005/save_picture_213703.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Elton John - Jewel Box (2020) [AAC|~289 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213599.jpg" />
+  <img src="Z:/picture/005/save_picture_213599.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Pink Floyd - The Best of Pink Floyd: A Foot In the Door (2011) Remastered [AAC|W
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210865.jpg" />
+  <img src="Z:/picture/005/save_picture_210865.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210178.jpg" />
+  <img src="Z:/picture/005/save_picture_210178.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209993.jpg" />
+  <img src="Z:/picture/005/save_picture_209993.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209774.jpg" />
+  <img src="Z:/picture/005/save_picture_209774.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206674.jpg" />
+  <img src="Z:/picture/005/save_picture_206674.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206239.jpg" />
+  <img src="Z:/picture/005/save_picture_206239.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204779.jpg" />
+  <img src="Z:/picture/004/save_picture_204779.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202596.jpg" />
+  <img src="Z:/picture/004/save_picture_202596.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199522.jpg" />
+  <img src="Z:/picture/005/save_picture_199522.jpg" />
 </div>
 
 

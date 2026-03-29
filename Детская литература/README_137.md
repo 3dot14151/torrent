@@ -1,3 +1,30 @@
+###  Публикация: 1327717   (371862) от 26.09.2019
+
+Майк Барфилд | Испытай эту книгу… во имя науки. Потрясающие эксперименты и увлекательные проекты (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, созданная специально для юных исследователей. Ее можно и даже нужно рвать, резать, мять и разрисовывать! И все это – во имя науки!
+Ты сможешь создать своего Альберта Эйнштейна или Марию Кюри, объяснить оптическую иллюзию и сделать музыкальный инструмент, экспериментировать с громобойной хлопушкой и бумерангом, а также многое, многое другое!Жанр: Детская познавательная и развивающая литература, Зарубежные детские книгиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055896549EFD91F92D9399FD61914EC916DEF41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176299   (371644) от 21.10.2017
 
 Николай Носов | Большая книга рассказов (2016) [PDF]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371644.jpg" />
+  <img src="Z:/picture/008/save_picture_371644.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371406.jpg" />
+  <img src="Z:/picture/008/save_picture_371406.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371149.jpg" />
+  <img src="Z:/picture/008/save_picture_371149.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370975.jpg" />
+  <img src="Z:/picture/008/save_picture_370975.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370963.jpg" />
+  <img src="Z:/picture/008/save_picture_370963.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370944.jpg" />
+  <img src="Z:/picture/008/save_picture_370944.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370839.jpg" />
+  <img src="Z:/picture/008/save_picture_370839.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370189.jpg" />
+  <img src="Z:/picture/008/save_picture_370189.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370077.jpg" />
+  <img src="Z:/picture/008/save_picture_370077.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369744.jpg" />
+  <img src="Z:/picture/008/save_picture_369744.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369510.jpg" />
+  <img src="Z:/picture/008/save_picture_369510.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369378.jpg" />
+  <img src="Z:/picture/008/save_picture_369378.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369146.jpg" />
+  <img src="Z:/picture/008/save_picture_369146.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369012.jpg" />
+  <img src="Z:/picture/008/save_picture_369012.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368614.jpg" />
+  <img src="Z:/picture/008/save_picture_368614.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368292.jpg" />
+  <img src="Z:/picture/008/save_picture_368292.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368019.jpg" />
+  <img src="Z:/picture/008/save_picture_368019.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366258.jpg" />
+  <img src="Z:/picture/008/save_picture_366258.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366254.jpg" />
+  <img src="Z:/picture/008/save_picture_366254.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366253.jpg" />
+  <img src="Z:/picture/008/save_picture_366253.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366244.jpg" />
+  <img src="Z:/picture/008/save_picture_366244.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366056.jpg" />
+  <img src="Z:/picture/008/save_picture_366056.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365992.jpg" />
+  <img src="Z:/picture/008/save_picture_365992.jpg" />
 </div>
 
 
@@ -626,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364364.jpg" />
+  <img src="Z:/picture/008/save_picture_364364.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364314.jpg" />
+  <img src="Z:/picture/008/save_picture_364314.jpg" />
 </div>
 
 
@@ -665,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F81BCD0B8E2DE5128504CE03D4F64993DD8C939B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576809   (364113) от 15.09.2022
-
-Братья Гримм | Сказки (1939) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок Братьев Гримм для детей дошкольного возраста.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA685ED2EA3EB98115996BE0A8313918CF3F40A
 ```
 
 https://mybot314.ru/tekegram_catalog/

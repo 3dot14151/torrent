@@ -1,3 +1,174 @@
+###  Публикация: 1045917   (556974) от 25.08.2016
+
+Футбол. Лига Чемпионов 2016-2017. Раунд плей-офф. 2-й матч. Ростов (Россия) - Аякс (Голландия) (24.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556974.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 августа 2016, среда. 21:45 МСК
+Раунд плей-офф. 2-й матч
+
+Стадион: Олимп-2 (Ростов-на-Дону, Россия) , 15 320 зрителей (97 % при вместимости 15 840)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Михаил Поленов)Продолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB1919AA652E0DD86B9E56B50F0D75326B710B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045638   (556970) от 25.08.2016
+
+Verizon IndyCar Series. ABС Supply 500. Pocono raceway (2016.08.22) HDTVRip [H.264] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556970.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 августа 2016 года, понедельник. 19:00 МСК
+Этап 14, Лонг-Понд (Пенсильвания), США
+Поконо-500
+Арена: Автодром Поконо (Лонг-Понд, США)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 03:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB92E1415F3FC23229D63D591C39E98DC8B4831D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235982   (556568) от 14.07.2018
+
+Футбол. Чемпионат Мира 2018. Матч за 3-е место. Бельгия – Англия (14.07.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556568.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июля 2018 года, суббота. 17:00 МСК
+21-й Чемпионат Мира по футболу 2018 года. Плей-офф.
+Матч за 3-е место. Бельгия – Англия
+Стадион: Санкт-Петербург (Санкт-Петербург, Россия), 64406 зрителей (95 % при вместимости 68134)(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E64E86320C0C4E8E3F8A12799F91FE3906EF249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235911   (556558) от 14.07.2018
+
+Смешанные единоборства. Bellator 202: Main Card. Budd vs. Nogueira (14.07.18) WEB-DLRip [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной кард турнира Bellator 202, главным событием которого стал поединок в полулегком весе между  Джулией Бадд и Талитой Ногейра.Телекомпания: Paramount NetworkЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE04E8F8CE18BC41EEB6CA15B64243D6FEB4F254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305569   (556442) от 31.05.2019
+
+Хоккей. НХЛ. Кубок Стэнли 2019. Финал. 1-й матч. Бостон Брюинз — Сент-Луис Блюз (2019) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556442.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 мая 2019, вторник. 03:00 МСК
+Финал Кубка Стэнли - решающая серия розыгрыша Кубка Стэнли в сезоне НХЛ 2018-2019 годов.
+1-й матч.
+Бостон Брюинз — Сент-Луис Блюз(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196ECA6D16F4CEAF4E6970EB54DD69AE3AFC1569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305486   (556418) от 31.05.2019
+
+NASCAR-2019. 13-й Этап. Шарлотт. Гонка / Monster Energy NASCAR Cup Series 2019. Coca-Cola 600. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556418.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASCAR Cup Series 2019 - Сезон 2019 года
+Воскресенье, 26 мая 2019 года. Конкорд (штат Северная Каролина, США).
+13-й Этап. Coca-Cola 600
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C34C0E52EA9D339EBF914D10D3387CDB505859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235978   (556251) от 15.07.2018
 
 Футбол. Чемпионат Мира 2018. Матч за 3-е место. Бельгия - Англия (14.07.2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +177,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556251.jpg" />
+  <img src="Z:/picture/008/save_picture_556251.jpg" />
 </div>
 
 
@@ -34,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556184.jpg" />
+  <img src="Z:/picture/008/save_picture_556184.jpg" />
 </div>
 
 
@@ -63,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556183.jpg" />
+  <img src="Z:/picture/008/save_picture_556183.jpg" />
 </div>
 
 
@@ -92,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556181.jpg" />
+  <img src="Z:/picture/008/save_picture_556181.jpg" />
 </div>
 
 
@@ -121,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556178.jpg" />
+  <img src="Z:/picture/008/save_picture_556178.jpg" />
 </div>
 
 
@@ -150,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556175.jpg" />
+  <img src="Z:/picture/008/save_picture_556175.jpg" />
 </div>
 
 
@@ -179,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555932.jpg" />
+  <img src="Z:/picture/008/save_picture_555932.jpg" />
 </div>
 
 
@@ -208,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555906.jpg" />
+  <img src="Z:/picture/008/save_picture_555906.jpg" />
 </div>
 
 
@@ -234,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555830.jpg" />
+  <img src="Z:/picture/008/save_picture_555830.jpg" />
 </div>
 
 
@@ -263,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555821.jpg" />
+  <img src="Z:/picture/008/save_picture_555821.jpg" />
 </div>
 
 
@@ -292,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555567.jpg" />
+  <img src="Z:/picture/008/save_picture_555567.jpg" />
 </div>
 
 
@@ -321,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555565.jpg" />
+  <img src="Z:/picture/008/save_picture_555565.jpg" />
 </div>
 
 
@@ -350,7 +521,7 @@ NASCAR-2019. 14-й Этап. Поконо. Гонка / Monster Energy NASCAR Cu
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555562.jpg" />
+  <img src="Z:/picture/008/save_picture_555562.jpg" />
 </div>
 
 
@@ -379,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555491.jpg" />
+  <img src="Z:/picture/008/save_picture_555491.jpg" />
 </div>
 
 
@@ -405,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555481.jpg" />
+  <img src="Z:/picture/008/save_picture_555481.jpg" />
 </div>
 
 
@@ -434,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555461.jpg" />
+  <img src="Z:/picture/008/save_picture_555461.jpg" />
 </div>
 
 
@@ -462,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555368.jpg" />
+  <img src="Z:/picture/008/save_picture_555368.jpg" />
 </div>
 
 
@@ -491,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555365.jpg" />
+  <img src="Z:/picture/008/save_picture_555365.jpg" />
 </div>
 
 
@@ -520,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555364.jpg" />
+  <img src="Z:/picture/008/save_picture_555364.jpg" />
 </div>
 
 
@@ -549,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555246.jpg" />
+  <img src="Z:/picture/008/save_picture_555246.jpg" />
 </div>
 
 
@@ -563,178 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3187898ECEB1132B225DEB1E59CBEC39B291D4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307247   (555241) от 08.06.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. Превью к 3 - 4 туру (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отборочный турнир ЕВРО-2020 — это футбольный турнир, который проводиться с марта 2019 года по март 2020 года, чтобы определить 24 мужских сборных УЕФА, которые выйдут в финальный турнир Чемпионат Европы по футболу 2020.
-Превью к 3 - 4 туруТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DA265FBC16987E7581EDA6A428A11F5687CDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307128   (555240) от 08.06.2019
-
-Футбол. Лига Наций УЕФА 2018-2019. Финал 4-х. 1/2 Финала. Нидерланды — Англия (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555240.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 июня 2019, четверг. 21:45 МСК
-Лига Наций УЕФА 2018-2019. Финал 4-х.
-1/2 Финала.
-Нидерланды  — Англия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9337C07BE92367E45B0A73265CC9581A867F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307158   (555231) от 08.06.2019
-
-Формула 1. Сезон 2019. 7-й Этап. Гран-при Канады. Свободная практика 2 (07.06.2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555231.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 июня 2019 года, пятница. 21:00 МСК
-70-й сезон Формулы-1 2019 года
-7-й Этап. Гран-при Канады. Монреаль (Канада)
-Свободная практика 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16425FC15DBE66A33152D73F34684A1D86FE0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307303   (555219) от 08.06.2019
-
-Формула 1. Сезон 2019. 7-й Этап. Гран-при Канады. Свободная практика 3 (08.06.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555219.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 июня 2019 года, суббота. 18:00 МСК
-70-й сезон Формулы-1 2019 года
-7-й Этап. Гран-при Канады. Монреаль (Канада)
-Свободная практика 3(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D86AD86E7E987017AD8A128481BED03A2DD77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307131   (555215) от 08.06.2019
-
-Хоккей. НХЛ. Кубок Стэнли 2019. Финал. 5-й Матч. Бостон Брюинз — Сент-Луис Блюз (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555215.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 июня 2019, пятница. 03:00 МСК
-Финал Кубка Стэнли 2019 — решающая серия розыгрыша Кубка Стэнли НХЛ 2018–2019 годов.
-5-й Матч.
-Бостон Брюинз — Сент-Луис Блюз(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB42BF21E107C19CE923480099A246E40D542B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307291   (555080) от 09.06.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 3-й тур. Группа A. Чехия — Болгария (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555080.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 июня 2019, пятница. 21:45 МСК
-Чемпионат Европы по футболу 2020 года. Отборочный турнир.
-3-й тур. Группа A:
-Чехия — Болгария(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB332619BE1A6CB7EA83B6211A5145D77085D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

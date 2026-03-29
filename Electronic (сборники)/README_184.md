@@ -1,3 +1,61 @@
+###  Публикация: 1192999   (262428) от 19.12.2017
+
+VA - Deep House Collection vol.149 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix) 5:48
+02. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover) 4:17
+03. Abity - Blood Project (Original Mix) 7:33
+04. Ace - Need to Feel Loved (Original Mix) 8:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 14:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7056BB128BD5CF63D270F7EA7798BB8C982E741A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341461   (262351) от 28.11.2019
+
+VA - Green Rave Bass (2019) [MP3|320 Kbps] <Drum And Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devastate - Trust Issues
+02. Didier Lomba - Opening
+03. Prolix - Snake
+04. E Lisa Ft Iffy Palmer - Let Go(   Читать дальше...   )Жанр: Drum And Bass, JungleПродолжительность: 05:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B0E78BB27A814F90A626252C12B871B886F477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341553   (262349) от 28.11.2019
 
 VA - The Taste Of Gold (2019) [MP3|320 Kbps] <Techno, Tech House>
@@ -6,7 +64,7 @@ VA - The Taste Of Gold (2019) [MP3|320 Kbps] <Techno, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262349.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Shallow Sleep: Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262347.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart #517 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261790.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - No name compilation Deep Chill Vocal House part 16 (2025) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261490.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Trance. Vocal Fascination 22 (2012) [MP3|320 кб/с]<Uplifting Trance, Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261453.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Dubstep Winter-Spring 2012 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261427.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ VA - Trance We Love vol.3 (May) (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260743.jpg" />
 </div>
 
 
@@ -227,7 +285,7 @@ VA - No name compilation Deep Chill Vocal House part 13 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260620.jpg" />
 </div>
 
 
@@ -256,7 +314,7 @@ Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260614.jpg" />
 </div>
 
 
@@ -285,7 +343,7 @@ VA - Sexy Trance #36 (31.05.2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259931.jpg" />
+  <img src="Z:/picture/005/save_picture_259931.jpg" />
 </div>
 
 
@@ -318,7 +376,7 @@ VA - Music my life (2011-2012) [MP3|320 кб/с]<Electro house, dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258490.jpg" />
+  <img src="Z:/picture/005/save_picture_258490.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Vocal Passion Vol.28 (2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258476.jpg" />
+  <img src="Z:/picture/005/save_picture_258476.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258240.jpg" />
+  <img src="Z:/picture/005/save_picture_258240.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ VA - No name compilation part 9 Electronic, Other (2025) [MP3|320 Kbps] <Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257958.jpg" />
+  <img src="Z:/picture/005/save_picture_257958.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ VA - No name compilation Deep Chill Vocal House part 11 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257869.jpg" />
+  <img src="Z:/picture/005/save_picture_257869.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257592.jpg" />
+  <img src="Z:/picture/005/save_picture_257592.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256847.jpg" />
+  <img src="Z:/picture/005/save_picture_256847.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ VA - No name compilation part 5 Electronic, Other, AI (2025) [MP3|320 Kbps] <Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256846.jpg" />
+  <img src="Z:/picture/005/save_picture_256846.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ VA - 60 minutes. Old School Dance Music vol.31 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256845.jpg" />
+  <img src="Z:/picture/005/save_picture_256845.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ VA - Sexy Trance #35 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256336.jpg" />
+  <img src="Z:/picture/005/save_picture_256336.jpg" />
 </div>
 
 
@@ -630,7 +688,7 @@ VA - Trancern 35.1 - Official Compilation (May 2012) [MP3|320 кб/с]<Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256011.jpg" />
+  <img src="Z:/picture/005/save_picture_256011.jpg" />
 </div>
 
 
@@ -665,7 +723,7 @@ Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255698.jpg" />
+  <img src="Z:/picture/005/save_picture_255698.jpg" />
 </div>
 
 
@@ -694,7 +752,7 @@ VA - Vocal Melodic House For U (2023) [MP3|320 Kbps] <Progressive House, Techno 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254945.jpg" />
+  <img src="Z:/picture/005/save_picture_254945.jpg" />
 </div>
 
 
@@ -723,7 +781,7 @@ VA - Energy Super Dance Vol.7 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254330.jpg" />
+  <img src="Z:/picture/005/save_picture_254330.jpg" />
 </div>
 
 
@@ -743,64 +801,6 @@ VA - Energy Super Dance Vol.7 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A24E748E5EF7F3B33345BB971E5E96F139298C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836635   (254255) от 12.11.2025
-
-VA - No name compilation electronic vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Xezzo - You and the Rain
-02 - Dova Music - Hold Me Tight
-03 - Isskoy - Heavy Weight
-04 - Riltim - Raindrops(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4204D453BE54E51B3254B33B9391F6E42457BD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836633   (254254) от 12.11.2025
-
-Jumanov - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Life is Fast
- 02 - Define Happiness
- 03 - Testosterone
- 04 - We Exist Today(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6717AA3B6EAE289CD977A0A0E38C23B3592644CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

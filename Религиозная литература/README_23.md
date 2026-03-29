@@ -1,3 +1,83 @@
+###  Публикация: 1002039   (850393) от 30.03.2016
+
+Сергей Алексеев | Миф о насильственном крещении Руси (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из расхожих штампов что у атеистов, что у неоязычников — обвинения христиан в насильственном крещении Руси, при котором, якобы, истреблялись миллионы людей и текли реки крови. Московский историк С.В. Алексеев на фактическом материале показывает несостоятельность этого мифа.Жанр: АпологетикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD3BD4384D69A3D21D49EB0A9769FCE95E09261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002067   (850271) от 30.03.2016
+
+Валентина Николаевна Кузнецова | Евангелие от Матфея. Комментарий (2002) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валентина Николаевна Кузнецова (род. 10 марта 1948) — российский переводчик, филолог-классик и библеист. Закончила отделение классической филологии филологического факультета Московского университета. Духовная дочь о. Александра Меня. По его благословению и с непосредственным участием в середине 1980-х гг. начала работу над переводом Нового Завета. С 1991 г. В.Н. (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3564EBCD110427E61017DA5521A5570526542498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377960   (849890) от 23.04.2020
+
+Владимир Зоберн (сост.) | Коронавирус. Молитвы в помощь болящим и для тех, кто в зоне риска (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849890.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу включены молитвы, рекомендованные Церковью для чтения во время вредоносных поветрий.
+И в добром здравии и, конечно, во время болезни верующий человек обращается с молитвой к Господу Богу, Его Пречистой Матери, ангелам и святым. «Молитва веры исцелит болящего, и восставит его Господь» (Иак. 5, 15).
+Церковная история знает множество примеров исцелений и облегчений (   Читать дальше...   )Жанр: Духовная литература, ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD728CDA204F2643B4CCB1A61D22440101E5480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002189   (848890) от 31.03.2016
 
 Т. К. Кичко | Иудаизм без украшений (1963) [DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848890.jpg" />
+  <img src="Z:/picture/008/save_picture_848890.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848852.jpg" />
+  <img src="Z:/picture/008/save_picture_848852.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848658.jpg" />
+  <img src="Z:/picture/008/save_picture_848658.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848586.jpg" />
+  <img src="Z:/picture/008/save_picture_848586.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848427.jpg" />
+  <img src="Z:/picture/008/save_picture_848427.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845041.jpg" />
+  <img src="Z:/picture/008/save_picture_845041.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844545.jpg" />
+  <img src="Z:/picture/008/save_picture_844545.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844536.jpg" />
+  <img src="Z:/picture/008/save_picture_844536.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843499.jpg" />
+  <img src="Z:/picture/008/save_picture_843499.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843417.jpg" />
+  <img src="Z:/picture/008/save_picture_843417.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843388.jpg" />
+  <img src="Z:/picture/008/save_picture_843388.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843201.jpg" />
+  <img src="Z:/picture/008/save_picture_843201.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843125.jpg" />
+  <img src="Z:/picture/008/save_picture_843125.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843044.jpg" />
+  <img src="Z:/picture/008/save_picture_843044.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842613.jpg" />
+  <img src="Z:/picture/008/save_picture_842613.jpg" />
 </div>
 
 
@@ -408,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842162.jpg" />
+  <img src="Z:/picture/008/save_picture_842162.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841630.jpg" />
+  <img src="Z:/picture/008/save_picture_841630.jpg" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841100.jpg" />
+  <img src="Z:/picture/008/save_picture_841100.jpg" />
 </div>
 
 
@@ -489,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841096.jpg" />
+  <img src="Z:/picture/008/save_picture_841096.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840105.jpg" />
+  <img src="Z:/picture/008/save_picture_840105.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839938.jpg" />
+  <img src="Z:/picture/008/save_picture_839938.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839882.jpg" />
+  <img src="Z:/picture/008/save_picture_839882.jpg" />
 </div>
 
 
@@ -595,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838633.jpg" />
+  <img src="Z:/picture/008/save_picture_838633.jpg" />
 </div>
 
 
@@ -606,84 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657404F020E4A2315F8166C5865B9B1157F88564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113383   (838629) от 11.03.2017
-
-Архимандрит Феофан | Неблаженные блаженные святые. Рассказы о необыкновенных подвижниках (2017) [PDF, FB2, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838629.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны поразительные жизнеописания юродивых, прославленных в лике святых, а также не прославленных подвижников, живших в разные века в разных частях света. Важно не место, где они начали свой земной путь… Египет, Сирия, Рим, Пруссия, Россия… Куда важнее то, что они услышали и сердцем восприняли слова Спасителя: «Царство Мое не от мира сего» (Ин.18, (   Читать дальше...   )Жанр: Жития святыхФормат: PDF, FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9013EC831633173F6E4E4C9069915490107E27C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113399   (836809) от 12.03.2017
-
-Св. Игнатий Лойола | Рассказ паломника о своей жизни (2002) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836809.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлен перевод автобиографии св. Игнатия Лойолы, основателя Общества Иисуса (ордена иезуитов)Жанр: АвтобиографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884384BF5CFDD559B594DEEEE9F2B2D8CD7CABDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113750   (836712) от 12.03.2017
-
-Священник Андрей Лоргус | Книга о счастье (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор «Книги о счастье» Андрей Лоргус — православный священник и одновременно — практикующий психолог, ректор Института христианской психологии. Уже только поэтому интересно прочитать то, что он пишет. В этой книге отец Андрей взялся за рискованную тему, в которой каждый может считать себя специалистом. Однако счастливы далеко не все. В чем же проблема? В книге автор (   Читать дальше...   )Жанр: Духовное богословие, психологияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F5999AC14E17D58C5150575AE35B0FC995BAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

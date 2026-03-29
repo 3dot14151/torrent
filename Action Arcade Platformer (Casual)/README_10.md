@@ -1,3 +1,55 @@
+###  Публикация: 1053010   (526507) от 16.09.2016
+
+Toki Tori Dilogy (2010-2013) [Ru/Multi] (1.0.7526.8583/1.0.15191.9550) Repack Let'sPlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toki Tori 2 – веселая игрушка от студии Two Tribes, где на игроков ожидает ещё больше приключений и опасностей. Игра является продолжением популярного пазл-платформера, в котором главную роль отыгрывает цыпленок Toki Tori. В данной части вам предстоит исследовать остров покрытый буйной лесной растительностью, где обитают странные создания. Чтоб повлиять на их поведение, (   Читать дальше...   )Тип издания: RepackРазработчик: Two TribesЖанр: Platformer, Indie, Logic (Puzzle)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF901C9B608C553A5888D58F872EB8F4EE1FF4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157276   (525795) от 10.08.2017
+
+From Shadows (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525795.jpg" />
+</div>
+
+
+###  Подробнее
+
+From Shadows - это приключенческий экшен-платформер, в котором игроки выбирают одного из двух персонажей - вампира Хредерика или оборотня Георга - и отправляются в свой личный крестовый поход, уничтожая всех, кто встает у них на пути. Основной особенностью игры является смена дня и ночи, которая существенно влияет на персонажей и их противников. Игроки вольны проходить (   Читать дальше...   )Тип издания: RepackРазработчик: Revolt and RebelЖанр: Action (Platform), ArcadeЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD21610BA28AB6E951ABF9AE0787322AE0CDAF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314243   (519926) от 13.07.2019
 
 Blazing Chrome (2019) [Ru/Multi] (0.0.6) License GOG
@@ -6,7 +58,7 @@ Blazing Chrome (2019) [Ru/Multi] (0.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519926.jpg" />
+  <img src="Z:/picture/008/save_picture_519926.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Eets Munchies (2014) [En] (1.0) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519352.jpg" />
+  <img src="Z:/picture/008/save_picture_519352.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | SEYTER
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517574.jpg" />
+  <img src="Z:/picture/008/save_picture_517574.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Symphony [Ru/En] (RePack/1.0) 2012 | VANSIK
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517524.jpg" />
+  <img src="Z:/picture/008/save_picture_517524.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Rollcage: Dilogy / Rollcage: Дилогия (1999-2000) [En] (1.3.8/1.1.8) Repac
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514822.jpg" />
+  <img src="Z:/picture/008/save_picture_514822.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Double Dragon Trilogy (2013) [Ru/Multi] (1.0/upd3) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513568.jpg" />
+  <img src="Z:/picture/008/save_picture_513568.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Bit Trip Presents Runner 2: Future Legend of Rhythm Alien (2013) [En] (1.0/dlc) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512640.jpg" />
+  <img src="Z:/picture/008/save_picture_512640.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Angry Birds: Anthology / Angry Birds: Антология (2011-2013) [En] (4.0 /
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512489.jpg" />
+  <img src="Z:/picture/008/save_picture_512489.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Snowy: Treasure Hunter 3 / Снежок. Охотник за сокровища�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510237.jpg" />
+  <img src="Z:/picture/008/save_picture_510237.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ PixelJunk Nom Nom Galaxy (2014) [En/Multi] (1.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509855.jpg" />
+  <img src="Z:/picture/008/save_picture_509855.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509831.jpg" />
+  <img src="Z:/picture/008/save_picture_509831.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509822.jpg" />
+  <img src="Z:/picture/008/save_picture_509822.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Calvino Noir (2015) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509816.jpg" />
+  <img src="Z:/picture/008/save_picture_509816.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Mega Man Legacy Collection (2015) [Ru/Multi] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507767.jpg" />
+  <img src="Z:/picture/008/save_picture_507767.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Cast of the Seven Godsends (2015) [Ru/Multi] (1.0/upd10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506840.jpg" />
+  <img src="Z:/picture/008/save_picture_506840.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Guacamelee (2014) [Ru/Multi] (1.0) Repack R.G. Механики [Super Turbo Cha
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504101.jpg" />
+  <img src="Z:/picture/008/save_picture_504101.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Azure Striker Gunvolt (2015) [Ru/Multi] (1.0.760608) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504092.jpg" />
+  <img src="Z:/picture/008/save_picture_504092.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Valdis Story: Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503090.jpg" />
+  <img src="Z:/picture/008/save_picture_503090.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ BGE Mario 2011 [En] (P) 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502984.jpg" />
+  <img src="Z:/picture/008/save_picture_502984.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Awesomenauts [En/Multi6) (L/Steam-Rip/1.3) 2012 | R.G. Игроманы
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501955.jpg" />
+  <img src="Z:/picture/008/save_picture_501955.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500196.jpg" />
+  <img src="Z:/picture/008/save_picture_500196.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Red Goddess Inner World (2015) [En/Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499013.jpg" />
+  <img src="Z:/picture/008/save_picture_499013.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499010.jpg" />
+  <img src="Z:/picture/008/save_picture_499010.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498962.jpg" />
+  <img src="Z:/picture/008/save_picture_498962.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ Exile's End (2015) [En] (1.0) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2CDB65354E8AEEDFA5771555AEC42B23F1C124E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935318   (498961) от 08.09.2015
-
-Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра в стиле beat'em up с элементами двухмерного сайд-скроллинга, расскажет о вымышленных событиях времен феодализма в Японии. Вам предстоит вжиться в шкуру мужественного бойца, который неустанно сражается с силами мертвецов, норовящих попасть в людской мир.Тип издания: ЛицензияРазработчик: Digital Furnace GamesЖанр: Arcade (Platform)Язык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDCBACF5C9EF0350D96DE7632D8CFF87A1A4FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935595   (498124) от 09.09.2015
-
-Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leo’s Fortune - это платформенная приключенческая игра, в которой вы выслеживаете загадочного и коварного вора, укравшего ваше золото. Прекрасно прорисованные уровни делают приключение Лео по-настоящему реалистичным. "Я вернулся домой и увидел, что мое золото украдено! С какой-то странной целью вор рассыпал мои монеты в лесу, как крошки хлеба. Несмотря на то, (   Читать дальше...   )Тип издания: ЛицензияРазработчик: 1337 & Senri ABЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французcкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французcкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76E5B35B81ED86B59A5016753E1615C3183BEA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

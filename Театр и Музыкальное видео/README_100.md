@@ -1,3 +1,179 @@
+###  Публикация: 955806   (328404) от 16.11.2015
+
+Europakonzert 2004 from Athens BDRip [H.264/1080i-LQ] <сlassical>
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия концерта, состоявшегося 1 мая 2004 года в театре Herodes Atticus в Афинах.
+Знаменателен первым совместным выступлением Дэниела Баренбойма в качестве пианиста и сэра Саймона Рэттла в качестве дирижера. Да, и Рэттл в этом концерте дирижировал Берлинским филармоническим также впервые.
+Надо сказать, что античное окружение вносит в музыку свой особенный колорит.За (   Читать дальше...   )- Piano Concerto No. 1 in D Minor, Op. 15
+- Piano Quartet No. 1 in G Minor, Op. 25
+orch. A. SchoenbergЖанр: Classical, концерт Большого симфонического оркестраПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FD1821D8D7F5DA2E5C5A05ED7AB5AA3DB261F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956832   (327604) от 17.11.2015
+
+Clan Of Xymox "Visible" (2008) 2хDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Clips
+1.1	Heroes (Slow Version)	4:08
+1.2	Dark Mood	3:55
+1.3	Stranger	8:10(   Читать дальше...   )Жанр: Darkwawe, Gothic, ElektronicРежиссер: Ronny MooringsПеревод: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93216CFB38C5E29B7F04C89C2628F8E81ADD565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957306   (327548) от 17.11.2015
+
+Bon Jovi - Super Rock (1984) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Bon Jovi на фестивале Japan Super Rock,
+Seibu Stadium, Tokyo, Japan, 11-08-198401. She don't know me
+02. Breakout
+03. Get ready
+04. RunawayЖанр: RockПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967E014D1639B960ABBC83230C543389A4B6BFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956696   (327495) от 17.11.2015
+
+Дима Билан - 33 (2014) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телевизионную версию новой концертной программы Димы Билана "33". Победитель "Евровидения" и ветеран "Голоса" отметил свое 33-летие масштабным, технологичным шоу, которое не оставит равнодушными телезрителей. Помимо признанных хитов прозвучат и новые песни ("Не молчи", "Телепорт", "Ты (   Читать дальше...   )1. Против правил.
+2. Ты должна рядом быть.
+3. Часы (дуэт с Андреем Цветковым, Голос-2).
+4. Телепорт.(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EBCE10A39B1F31DE047D68A0B67D6F7C25B211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674853   (327350) от 19.11.2014
+
+The London Rock and Roll Show (1972/2005) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена запись рок-н-ролльного буйства 5 августа 1972 г. на лондонском стадионе Уэмбли. Несмотря на не самое лучшее качество видеосъемки, концерт НЕПЕРЕДАВАЕМО ХОРОШ! Потрясающий драйв, излучаемый такими гигантами рок-н-ролла как Little Richard, Chuck Berry, Jerry Lee Lewis не оставит равнодушным ни одного фаната рок-н-ролла!. Увидев этот концерт, немного начинаешь (   Читать дальше...   )01. Houseshakers- Be-Bop-A-Lula
+02. Bo Diddley - Road Runne
+03. Bo Diddley - Bring It to Jerome
+04. Bo Diddley - Mona(   Читать дальше...   )Жанр: Концерт, Rock'n'rollПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9353F08053E576DF224943B304A3B6469BD92C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957713   (326651) от 18.11.2015
+
+Wayra - Dreams of the Wind (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326651.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом DVD , Wayra играет на индейской флейте с естественным ритмом, полный эмоций и чувствительности .... трансцендентного за пределами слов. Его музыка предлагает очаровательные звуки родных музыкальных инструментов с одиночеством земли, неба и дарами природы, наполняя сердца миролюбием, которые могут длиться всю жизнь. Музыкальные и видео клипы на этой записи (   Читать дальше...   )01. Dreams of the Wind
+02. Ghost Dance
+03. The white Feather
+04. Voices of the Wind(   Читать дальше...   )Жанр: Native American, PanfluteПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DABDA655E3453777C00EAB719D7C8A27E81B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957456   (326391) от 18.11.2015
 
 VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
@@ -6,7 +182,7 @@ VA - Осенний марафон № 205 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326391.jpg" />
+  <img src="Z:/picture/008/save_picture_326391.jpg" />
 </div>
 
 
@@ -35,7 +211,7 @@ Bon Jovi - Tokyo Road Live In Japan (1985) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325745.jpg" />
+  <img src="Z:/picture/008/save_picture_325745.jpg" />
 </div>
 
 
@@ -64,7 +240,7 @@ Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324870.jpg" />
+  <img src="Z:/picture/008/save_picture_324870.jpg" />
 </div>
 
 
@@ -93,7 +269,7 @@ Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324836.jpg" />
+  <img src="Z:/picture/008/save_picture_324836.jpg" />
 </div>
 
 
@@ -122,7 +298,7 @@ The Beatles Anthology [Episode 1-4, русская озвучка М.Жолоб�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323605.jpg" />
+  <img src="Z:/picture/008/save_picture_323605.jpg" />
 </div>
 
 
@@ -148,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323359.jpg" />
+  <img src="Z:/picture/008/save_picture_323359.jpg" />
 </div>
 
 
@@ -175,7 +351,7 @@ Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322590.jpg" />
+  <img src="Z:/picture/008/save_picture_322590.jpg" />
 </div>
 
 
@@ -201,7 +377,7 @@ Metallica - Concerts and Video Compilation (1987-2004) TVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322432.jpg" />
+  <img src="Z:/picture/008/save_picture_322432.jpg" />
 </div>
 
 
@@ -231,7 +407,7 @@ The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322306.jpg" />
+  <img src="Z:/picture/008/save_picture_322306.jpg" />
 </div>
 
 
@@ -257,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322297.jpg" />
+  <img src="Z:/picture/008/save_picture_322297.jpg" />
 </div>
 
 
@@ -283,7 +459,7 @@ Pain - We Come In Peace (2012) Blu-Ray [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_322174.jpg" />
+  <img src="Z:/picture/005/save_picture_322174.jpg" />
 </div>
 
 
@@ -309,7 +485,7 @@ Katy Perry - Live At Glastonbury (2017) HDTVRip [H.265/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322100.jpg" />
+  <img src="Z:/picture/008/save_picture_322100.jpg" />
 </div>
 
 
@@ -338,7 +514,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321941.jpg" />
+  <img src="Z:/picture/008/save_picture_321941.jpg" />
 </div>
 
 
@@ -367,7 +543,7 @@ Bon Jovi - Yokohama Stadium Japan Live (1996) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321751.jpg" />
+  <img src="Z:/picture/008/save_picture_321751.jpg" />
 </div>
 
 
@@ -396,7 +572,7 @@ Sodom - Live Depravity (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321704.jpg" />
+  <img src="Z:/picture/008/save_picture_321704.jpg" />
 </div>
 
 
@@ -425,7 +601,7 @@ Venom - Live In London 1985 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321588.jpg" />
+  <img src="Z:/picture/008/save_picture_321588.jpg" />
 </div>
 
 
@@ -454,7 +630,7 @@ Overkill - Wrecking Everything (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321581.jpg" />
+  <img src="Z:/picture/008/save_picture_321581.jpg" />
 </div>
 
 
@@ -483,7 +659,7 @@ VA - Осенний марафон № 206: Дискотека с размахо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321245.jpg" />
+  <img src="Z:/picture/008/save_picture_321245.jpg" />
 </div>
 
 
@@ -512,7 +688,7 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321147.jpg" />
+  <img src="Z:/picture/008/save_picture_321147.jpg" />
 </div>
 
 
@@ -538,7 +714,7 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321142.jpg" />
+  <img src="Z:/picture/008/save_picture_321142.jpg" />
 </div>
 
 
@@ -549,165 +725,6 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD3F54C8F5368010E907D81C695820FF3F54006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958218   (321104) от 22.11.2015
-
-Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет собой уникальный сплав реставрированных концертных съемок, документальной хроники, анимационных фрагментов и самых передовых технологий визуального изображения и спец-эффектов, Роджер Уотерс также включил кадры из своей автобиографии.01. In the Flesh?
-02. The Thin Ice
-03. Another Brick in the Wall Part 1
-04. The Happiest Days of Our Lives(   Читать дальше...   )Производство: ВеликобританияЖанр: Mузыка, концерт, документальныйРежиссер: Шон Эванс, Роджер УотерсАктеры: Роджер Уотерс, Дэйв Килминстер, Сноуи Уайт, Г.И. Смит, Джон Кэрин, Гарри Уотерс, Грэхэм Броад, Робби Выкофф, Джон Джойс, Пэт ЛеннонПеревод: ОтсутствуетЯзык субтитров: Английский, Японский, Французский, Испанский, Португальский, Итальянский, Немецкий, Голландский, Болгарский, Китайский, Чешский, Датский, Финский, Греческий, Венгерский, Корейский, Норвежский, Польский, Русский, Шведский, ТурецкийПродолжительность: 02:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23CDBEF96BA4AEE478BC7F73AFE54F97AEC8917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582080   (320966) от 29.11.2012
-
-Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582075   (320949) от 29.11.2012
-
-Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582084   (320760) от 29.11.2012
-
-Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A3D105C6AA69C363A8B4918CF9D95BDCCFC2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582054   (320737) от 29.11.2012
-
-Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582072   (320526) от 29.11.2012
-
-The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
 ```
 
 https://mybot314.ru/tekegram_catalog/

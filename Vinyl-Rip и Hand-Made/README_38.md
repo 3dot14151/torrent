@@ -1,3 +1,235 @@
+###  Публикация: 1080374   (290157) от 06.12.2016
+
+Barclay James Harvest - Everyone Is Everybody Else (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290157.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Child of the Universe (5:07)
+A2. Negative Earth (5:34)
+A3. Paper Wings (4:20)
+A4. The Great 1974 Mining Disaster (4:38)(   Читать дальше...   )Производство: Polydor - 2383 286Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0AA08A7A344B5A54BBF4625937C76445773682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263131   (289767) от 18.11.2018
+
+Lehotka Gabor - J. S. Bach. Organ Music (1966) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 C-Dur Preludium Es Fuga BWV 545
+A2 F-Moll Preludium Es Fuga BWV 534
+   Esz-Dur Trioszonata BWV 525
+A3a I. Allegro Moderato(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043DB6865AC7A3DA3B7E74CC914180D2B0C857A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269645   (289373) от 13.12.2010
+
+Pink Floyd - The Dark Side of the Moon (1973) (Vinyl Rip 24/192) [FLAC|Lossless] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me (Поговори со мной) 01:00
+2. Breathe (Дыши) 02:50
+3. On The Run (Бегство) 03:53
+4. Time (Время) 06:45(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963156   (288950) от 07.12.2015
+
+Meat Loaf - Blind Before I Stop (1986) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. День казни · Execution Day  6:30
+2. Торговцы рок-н-роллом · Rock'n'Roll Mercenaries  5:00
+3. Убить и сбежать · Getting Away With Murder  3:50(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECDF6AE8E440EE3DAE6772249E5711FD0E8A699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963050   (288850) от 07.12.2015
+
+Paul McCartney - Flowers In The Dirt (1989) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. My Brave Face  3:18
+2. Rough Ride  4:44
+3. You Want Her Too  3:12(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FD3AA19720C2FDDF4DABE0ADFF89CBD138FA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080441   (288143) от 07.12.2016
+
+Давид Ойстрах - И. С. Бах - Сюита №2 си минор, Г.Ф. Гендель - Музыка на воде (1989) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+И. С. Бах. Сюита №2 си минор
+1. Ouverture  9:14
+2. Rondeau  1:34(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8076FFDAE30B7FA6A3E05687DE6B210D79A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839120   (287217) от 27.11.2025
+
+The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Big Country (From The Film Of The Same Name)
+A2 Moon River (From The Film ''Breakfast At Tiffany's'')
+A3 Lara's Theme ''Somewhere My Love'' (From The Film ''Dr. Zhivago'')
+A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше...   )Жанр: Soundtrack, ThemeПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963892   (285195) от 09.12.2015
+
+Sandra - The Long Play (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Electronic, Pop>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. В ночной духоте · In The Heat Of The Night  5:18
+2. На блюдечке... (Семь Лет) · On The Tray (Seven Years)  3:44
+3. Малышка · Little Girl  3:10(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963735   (285125) от 09.12.2015
 
 Кипелов - Отражение (2013) [WavPack 2.0 32/192 | image+.cue (Vinyl-Rip) | Lossless]<Heavy Metal>
@@ -6,7 +238,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285125.jpg" />
+  <img src="Z:/picture/008/save_picture_285125.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Peter Gabriel - So (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283640.jpg" />
+  <img src="Z:/picture/008/save_picture_283640.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282679.jpg" />
+  <img src="Z:/picture/008/save_picture_282679.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Ita
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280157.jpg" />
+  <img src="Z:/picture/008/save_picture_280157.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<El
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278409.jpg" />
+  <img src="Z:/picture/008/save_picture_278409.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Led Zeppelin - IV (1971) [FLAC 2.0 24/96 | tracks (Reel-to-Reel Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275658.jpg" />
+  <img src="Z:/picture/008/save_picture_275658.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274502.jpg" />
+  <img src="Z:/picture/008/save_picture_274502.jpg" />
 </div>
 
 
@@ -212,7 +444,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) 1984, Stiff Records [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273474.jpg" />
+  <img src="Z:/picture/008/save_picture_273474.jpg" />
 </div>
 
 
@@ -241,7 +473,7 @@ VA - На теплоходе музыка играет. Песни В. Добр�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273346.jpg" />
+  <img src="Z:/picture/008/save_picture_273346.jpg" />
 </div>
 
 
@@ -270,7 +502,7 @@ VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273235.jpg" />
+  <img src="Z:/picture/008/save_picture_273235.jpg" />
 </div>
 
 
@@ -299,7 +531,7 @@ Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267389.jpg" />
+  <img src="Z:/picture/008/save_picture_267389.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Electric Light Orchestra - A New World Record (1976) [FLAC 2.0|192/24|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263708.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263373.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261627.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261510.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260910.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ VA - Original Rocking Hits. From The Soundtrack Of «Side By Side» (1977) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260648.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Eric Clapton - Complete Clapton - Boxset 4 vinyl LP (2007) [FLAC 2.0 24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258384.jpg" />
+  <img src="Z:/picture/005/save_picture_258384.jpg" />
 </div>
 
 
@@ -517,239 +749,6 @@ D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжите
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500216   (258112) от 24.05.2012
-
-Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258112.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Metal Heart [5:18]
-2 - Screaming for a Love Bite [4:19]
-3 - Up to the Limit [5:00]
-4 - Head Over Heals [5:55]
-5 - Love Child [4:40]
-6 - Living for Tonite [3:51]Жанр: Heavy MetalПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837847   (257818) от 20.11.2025
-
-Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Light Music>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quicksteps
-A La Panse; Tua; Banjo Boy; J'attendrai; Swedish Rhapsody; Ciao, Ciao Bambina; Lazarella; Que reste-t-il de nos amours; Ooh la-la
-Waltzes
-A2 Pigalle; Tulips From Amsterdam; One Two Drink Up; At Last, At Last(   Читать дальше...   )Жанр: Pop, Light MusicПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112EFA19BD9CCDE38AEFD1C81AC6090B61C77F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838016   (257817) от 20.11.2025
-
-Al Caiola - Spanish Guitars (1962) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257817.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Besame Mucho
-A2 Mambo Jambo
-A3 My Shawl
-A4 Piel Canela(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1A6A6CBBB93638BCE07F09C627F588EA69E7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838027   (257750) от 20.11.2025
-
-Memoriam - Studio Albums (6 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memoriam - британская дэт-метал группа из Бирмингема, Англия.2017 - For the Fallen
-2018 - The Silent Vigil
-2019 - Requiem for Mankind
-2021 - To the EndЖанр: Death MetalПродолжительность: 04:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B02044490AFA86614B16BDBD7FC5C60FA03A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837526   (257520) от 17.11.2025
-
-Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haddah - метал-группа из Италии, образованная в 2001 году.2014 - Through the Gates of Evangelia
-2015 - Path to Nefrath
-2025 - AetereaЖанр: Melodic Death MetalПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64B0287768743605BF6D22EE26E25D8FDAA2CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177019   (255537) от 04.04.2023
-
-The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/96kHz]<Jazz>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255537.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Swanee River 5:55
-2. The Lonesome Road 7:41
-3. Georgia On My Mind 6:40
-4. Camptown Races 2:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBD0323C9BB70D0AFB59316635BEB0D7BE2990C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624356   (255518) от 05.04.2023
-
-Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255518.jpg" />
-</div>
-
-
-###  Подробнее
-
-What Fun –	The Right Side Won
-Vanessa –	Obsession
-Pure Energy –	Love Game
-Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624832   (255435) от 07.04.2023
-
-Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Inner Voices 4:24
-A2 I'll Be Around 4:29
-A3 Building An Empire 4:13
-A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
 ```
 
 https://mybot314.ru/tekegram_catalog/

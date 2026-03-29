@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742734.jpg" />
+  <img src="Z:/picture/008/save_picture_742734.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742727.jpg" />
+  <img src="Z:/picture/008/save_picture_742727.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ROSA Desktop Fresh R1 [i586, x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742718.jpg" />
+  <img src="Z:/picture/008/save_picture_742718.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ digiKam 7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742601.jpg" />
+  <img src="Z:/picture/008/save_picture_742601.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ashampoo WinOptimizer 18.00.16 DC 14.07.2020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742593.jpg" />
+  <img src="Z:/picture/008/save_picture_742593.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BELOFF [dp] 2020.07.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742562.jpg" />
+  <img src="Z:/picture/008/save_picture_742562.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ O&O Defrag Professional 23.5 Build 5022 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742551.jpg" />
+  <img src="Z:/picture/008/save_picture_742551.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ You Tell Me - You Tell Me (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742547.jpg" />
+  <img src="Z:/picture/008/save_picture_742547.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Deaf Wish - Lithium Zion (2018) [FLAC|Lossless|tracks + .cue] <Noise Rock, Punk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742546.jpg" />
+  <img src="Z:/picture/008/save_picture_742546.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Tullycraft - The Railway Prince Hotel (2019) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742545.jpg" />
+  <img src="Z:/picture/008/save_picture_742545.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Yukon Blonde - Tiger Talk (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742543.jpg" />
+  <img src="Z:/picture/008/save_picture_742543.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Default Genders - main pop girl (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742540.jpg" />
+  <img src="Z:/picture/008/save_picture_742540.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Money Pro 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742537.jpg" />
+  <img src="Z:/picture/008/save_picture_742537.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Wise Program Uninstaller 2.3.4.138 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742536.jpg" />
+  <img src="Z:/picture/008/save_picture_742536.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Vivaldi 2.3.1440.45 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742534.jpg" />
+  <img src="Z:/picture/008/save_picture_742534.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742529.jpg" />
+  <img src="Z:/picture/008/save_picture_742529.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742527.jpg" />
+  <img src="Z:/picture/008/save_picture_742527.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742525.jpg" />
+  <img src="Z:/picture/008/save_picture_742525.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742523.jpg" />
+  <img src="Z:/picture/008/save_picture_742523.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742521.jpg" />
+  <img src="Z:/picture/008/save_picture_742521.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742519.jpg" />
+  <img src="Z:/picture/008/save_picture_742519.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742517.jpg" />
+  <img src="Z:/picture/008/save_picture_742517.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ CleanMyMac X 4.6.9 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742491.jpg" />
+  <img src="Z:/picture/008/save_picture_742491.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742471.jpg" />
+  <img src="Z:/picture/008/save_picture_742471.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ CoolUtils Total Audio Converter 5.3.0.196 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742465.jpg" />
+  <img src="Z:/picture/008/save_picture_742465.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Opera 58.0.3135.65 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742462.jpg" />
+  <img src="Z:/picture/008/save_picture_742462.jpg" />
 </div>
 
 

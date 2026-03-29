@@ -1,3 +1,29 @@
+###  Публикация: 1698721   (118364) от 10.02.2024
+
+Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцать великолепных столов для игры в пинбол и совместимая с Steam Deck со скоростью 60 кадров в секунду. Новые столы имеют более крупные игровые поля, лучшую физику, лучшую графику, лучшие спецэффекты, лучшие ракурсы камеры, более длинные саундтреки, полную поддержку контроллеров, онлайн-таблицы лидеров и больше снимков на игровых автоматах!Тип издания: SceneРазработчик: Pinblend StudiosЖанр: Казуальные игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09DB0F8CF662DCE9950A6F2462428489EAB58FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698920   (118203) от 11.02.2024
 
 My Recycling Center (2024) [Multi] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ My Recycling Center (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118203.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Exotica: Petshop Simulator (2024) [Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118191.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117858.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116955.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116110.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Firefrost (2024) [En] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115928.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Bus World (2022) [Ru/Multi] (2.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115094.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114967.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114908.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Homeseek (2023) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114773.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Brew Barons (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114585.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114426.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112424.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106145.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105653.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104004.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101379.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88918.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87675.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Agrar Simulator 2012 Deluxe (L) [Ge/En] 2011
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86271.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84193.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81742.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70313.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ The Magical Mixture Mill (2024) [Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68254.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66739.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:383D930444D3E4B53B5C49104ADA8E6AC30D1565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799729   (66449) от 29.05.2025
-
-Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Firefighting Simulator вам предстоит примерить на себя роль настоящего работника пожарной команды крупного американского города. Игроков ждут захватывающие задания, разворачивающиеся на 23 квадратных милях (почти 60 кв. км) городской застройки, и более 40 разнообразных мест, созданных под впечатлением от пейзажей западного побережья США.Тип издания: RepackРазработчик: Chronos UnterhaltungssoftwareЖанр: Экшены, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B018821940AD26C0BD1D0645B87492806022BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ventoy 1.0.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854001.jpg" />
+  <img src="Z:/picture/008/save_picture_854001.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854000.jpg" />
+  <img src="Z:/picture/008/save_picture_854000.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Total Commander 10.00 LitePack & PowerPack + Portable 2021.9 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853999.jpg" />
+  <img src="Z:/picture/008/save_picture_853999.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853992.jpg" />
+  <img src="Z:/picture/008/save_picture_853992.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Total Commander 10.0 Final Titan v.26 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853990.jpg" />
+  <img src="Z:/picture/008/save_picture_853990.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853940.jpg" />
+  <img src="Z:/picture/008/save_picture_853940.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ aAirial - Samudra (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853929.jpg" />
+  <img src="Z:/picture/008/save_picture_853929.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853927.jpg" />
+  <img src="Z:/picture/008/save_picture_853927.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Jerome Chassagnard (Jérôme Chassagnard ) - (F)light (2008) Hymen Records [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853925.jpg" />
+  <img src="Z:/picture/008/save_picture_853925.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Paul Oakenfold - DJ Box March (2016) [MP3|320 кб/с] <Trance, Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853920.jpg" />
+  <img src="Z:/picture/008/save_picture_853920.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Icon Slate 4.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853917.jpg" />
+  <img src="Z:/picture/008/save_picture_853917.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ LaunchBar 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853909.jpg" />
+  <img src="Z:/picture/008/save_picture_853909.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ RightFont 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853899.jpg" />
+  <img src="Z:/picture/008/save_picture_853899.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ iMazing 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853887.jpg" />
+  <img src="Z:/picture/008/save_picture_853887.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853879.jpg" />
+  <img src="Z:/picture/008/save_picture_853879.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853873.jpg" />
+  <img src="Z:/picture/008/save_picture_853873.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Vitamin-R 2 v2.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853872.jpg" />
+  <img src="Z:/picture/008/save_picture_853872.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VOX 2.7.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853863.jpg" />
+  <img src="Z:/picture/008/save_picture_853863.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Maxthon Cloud Browser 4.9.2.500 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853862.jpg" />
+  <img src="Z:/picture/008/save_picture_853862.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Tipard Blu-ray Converter 7.3.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853856.jpg" />
+  <img src="Z:/picture/008/save_picture_853856.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Registry Life 3.25 DC 28.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853853.jpg" />
+  <img src="Z:/picture/008/save_picture_853853.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Black Hole Recordings presents: Best Of Vocal Trance Vol 1 (2016) [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853852.jpg" />
+  <img src="Z:/picture/008/save_picture_853852.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853849.jpg" />
+  <img src="Z:/picture/008/save_picture_853849.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853848.jpg" />
+  <img src="Z:/picture/008/save_picture_853848.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Yahel - Dawn Rises (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853844.jpg" />
+  <img src="Z:/picture/008/save_picture_853844.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ UninstallPKG 1.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853818.jpg" />
+  <img src="Z:/picture/008/save_picture_853818.jpg" />
 </div>
 
 

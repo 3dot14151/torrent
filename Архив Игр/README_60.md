@@ -6,7 +6,7 @@ AMY [PS3] [ENG] [PAL] [PSN] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369950.jpg" />
+  <img src="Z:/picture/008/save_picture_369950.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dead or Alive 5 [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369922.jpg" />
+  <img src="Z:/picture/008/save_picture_369922.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ F1 Race Stars [En/Multi7] (P) 2012 l FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369911.jpg" />
+  <img src="Z:/picture/008/save_picture_369911.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Call of Duty Black Ops 2 [Ru] (Rip) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369709.jpg" />
+  <img src="Z:/picture/008/save_picture_369709.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_367737.jpg" />
+  <img src="Z:/picture/005/save_picture_367737.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Call of Duty: Black Ops 2 [PS3] [ENG] [PAL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367363.jpg" />
+  <img src="Z:/picture/008/save_picture_367363.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Call of Duty: Advanced Warfare [2014] [Region Free] [ENG] (L) [iXtreme LT+3,0] [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365797.jpg" />
+  <img src="Z:/picture/008/save_picture_365797.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Minecraft [Ru/En/Multi56] (L/1.4.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364995.jpg" />
+  <img src="Z:/picture/008/save_picture_364995.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Rage [Xbox360] [FullRus] [PAL] [XGD3] [LT+ 3.0] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364977.jpg" />
+  <img src="Z:/picture/005/save_picture_364977.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318) SteamRip InsaneRamZes [Premium Editio
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364523.jpg" />
+  <img src="Z:/picture/008/save_picture_364523.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363960.jpg" />
+  <img src="Z:/picture/008/save_picture_363960.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.11807) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363648.jpg" />
+  <img src="Z:/picture/008/save_picture_363648.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Dead Age (2016) [Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363442.jpg" />
+  <img src="Z:/picture/008/save_picture_363442.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.11807) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363427.jpg" />
+  <img src="Z:/picture/008/save_picture_363427.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Hybrid Wars (2016) [Ru/Multi] (4.89.11186/dlc) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363237.jpg" />
+  <img src="Z:/picture/008/save_picture_363237.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.5.2-f3/dlc) Repack xatab [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360692.jpg" />
+  <img src="Z:/picture/008/save_picture_360692.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Dawn of Man (2019) [Multi] (1.3.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360665.jpg" />
+  <img src="Z:/picture/008/save_picture_360665.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Record of Agarest War (Agarest: Generations of War) (2007) [Xbox360] [RegionFree
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360394.jpg" />
+  <img src="Z:/picture/008/save_picture_360394.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Baldur's Gate II/2: Enhanced Edition (2013) [En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359591.jpg" />
+  <img src="Z:/picture/008/save_picture_359591.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sword of the Stars II: Lords of Winter [En] (Steam-Rip/1.1.23976.3/4 DLC) 2011 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_359455.jpg" />
+  <img src="Z:/picture/005/save_picture_359455.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Counter-Strike: Source [Ru] (RePack/v34/4044) 2012 | kami sama и _Данил_
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359452.jpg" />
+  <img src="Z:/picture/008/save_picture_359452.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Baldur's Gate (2012) [En] (1.2.0) SteamRip R.G. GameWorks [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359445.jpg" />
+  <img src="Z:/picture/008/save_picture_359445.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Medieval II: Total War Gold Edition [Ru] (RePack) 2008 | R.G.R3PacK {Medieval II
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359003.jpg" />
+  <img src="Z:/picture/008/save_picture_359003.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Amnesia: A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358228.jpg" />
+  <img src="Z:/picture/008/save_picture_358228.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Deadly Premonition (2013) [Ru/Multi] (1.1b) Repack R.G. Catalyst [The Director's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358021.jpg" />
+  <img src="Z:/picture/008/save_picture_358021.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Pro Evolution Soccer 2012 [Wii] [Multi3] [PAL] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357752.jpg" />
+  <img src="Z:/picture/008/save_picture_357752.jpg" />
 </div>
 
 

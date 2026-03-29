@@ -1,3 +1,111 @@
+###  Публикация: 1259114   (323243) от 02.11.2018
+
+Luminar 2018 v1.3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar первый в мире редактор фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет вас сделать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FC6E17BC42F0035744187954EFA27D30BC5ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181585   (323192) от 07.11.2017
+
+Path Finder 7.6.2 (1729) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов, управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2017Разработчик: CocoatechПоддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4818BE97B2C46600A6F4C9EC01EADD9CC2B29918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421073   (322319) от 03.11.2020
+
+Grid 1.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и простой способ упорядочить окна на вашем Mac. Grid позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: MacgridПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B098A513D9364B1A9EFC9C795CAF951F51B17252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421091   (322314) от 03.11.2020
+
+Slidepad 1.0.38 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322314.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BA4C814854C033878507A8F58E42DE68861645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421079   (322304) от 03.11.2020
 
 iThoughtsX 5.23 [Multi/Ru]
@@ -6,7 +114,7 @@ iThoughtsX 5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322304.jpg" />
+  <img src="Z:/picture/008/save_picture_322304.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Mirror for Panasonic TV 3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322300.jpg" />
+  <img src="Z:/picture/008/save_picture_322300.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ Color Wheel 4.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322292.jpg" />
+  <img src="Z:/picture/008/save_picture_322292.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Money Pro - Personal Finance 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322223.jpg" />
+  <img src="Z:/picture/008/save_picture_322223.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.1.44 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322221.jpg" />
+  <img src="Z:/picture/008/save_picture_322221.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ Movist 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322217.jpg" />
+  <img src="Z:/picture/008/save_picture_322217.jpg" />
 </div>
 
 
@@ -171,7 +279,7 @@ ON1 Photo RAW 2020.5 v15.0.0.9735 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322207.jpg" />
+  <img src="Z:/picture/008/save_picture_322207.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Axure RP 9 v9.0.0.3721 Pro / Team / Enterprise Edition macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322114.jpg" />
+  <img src="Z:/picture/008/save_picture_322114.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ Flume Pro 2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322031.jpg" />
+  <img src="Z:/picture/008/save_picture_322031.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ Audirvana 3.5.42 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321998.jpg" />
+  <img src="Z:/picture/008/save_picture_321998.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Tweetbot for Twitter 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321972.jpg" />
+  <img src="Z:/picture/008/save_picture_321972.jpg" />
 </div>
 
 
@@ -305,7 +413,7 @@ Flume Pro 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321926.jpg" />
+  <img src="Z:/picture/008/save_picture_321926.jpg" />
 </div>
 
 
@@ -332,7 +440,7 @@ PDF Squeezer 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321922.jpg" />
+  <img src="Z:/picture/008/save_picture_321922.jpg" />
 </div>
 
 
@@ -359,7 +467,7 @@ Quiver 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321747.jpg" />
+  <img src="Z:/picture/008/save_picture_321747.jpg" />
 </div>
 
 
@@ -388,7 +496,7 @@ Vox 2.6.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321621.jpg" />
+  <img src="Z:/picture/008/save_picture_321621.jpg" />
 </div>
 
 
@@ -414,7 +522,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321407.jpg" />
+  <img src="Z:/picture/008/save_picture_321407.jpg" />
 </div>
 
 
@@ -443,7 +551,7 @@ Elmedia Player Pro 6.1 (788) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321370.jpg" />
+  <img src="Z:/picture/008/save_picture_321370.jpg" />
 </div>
 
 
@@ -471,7 +579,7 @@ Wirecast Pro 11.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321269.jpg" />
+  <img src="Z:/picture/008/save_picture_321269.jpg" />
 </div>
 
 
@@ -497,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321190.jpg" />
+  <img src="Z:/picture/008/save_picture_321190.jpg" />
 </div>
 
 
@@ -524,7 +632,7 @@ Guitar Hero [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321015.jpg" />
+  <img src="Z:/picture/008/save_picture_321015.jpg" />
 </div>
 
 
@@ -551,7 +659,7 @@ iMazing 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321000.jpg" />
+  <img src="Z:/picture/008/save_picture_321000.jpg" />
 </div>
 
 
@@ -578,7 +686,7 @@ Name Mangler 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320801.jpg" />
+  <img src="Z:/picture/008/save_picture_320801.jpg" />
 </div>
 
 
@@ -590,117 +698,6 @@ Name Mangler — переименовываем файлы пачками
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64564A6E9CCCF060A56CEB1A9E84F1315835205C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075521   (320595) от 22.11.2016
-
-Algoriddim djay Pro 1.4.2 (Complete FX Pack) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Algoriddim djay Pro – это программа для управления и микширования музыкальной коллекции.
-Ее особенностью является наличие двух реалистичных виртуальных интерактивных вертушек, а также возможность записывать и передавать музыку через сеть Bonjour на подключенные к сети компьютеры с установленной программой. Программа поддерживает все основные форматы файлов, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9AD7AC01086EF90CCAFDBD424427315FCFBDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075449   (320102) от 22.11.2016
-
-iStat Menus 5.31 (705) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320102.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 5 — лучшее приложение для контроля работы Mac
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
-
-Первым хочется пожелать и дальше наслаждаться работой, а вот вторым стоит обратить внимание на крупное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: BjangoПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский?!, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B29ED6F40F08D18A434293273E38BD4958ED366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421344   (319961) от 04.11.2020
-
-EagleFiler 1.9 [Multi/Ri]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319961.jpg" />
-</div>
-
-
-###  Подробнее
-
-EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
-
-EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2020Разработчик: C-Command Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC930F599F0D3460C3AB2A46128300BE09BEF81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421372   (319960) от 04.11.2020
-
-Find Any File (FAF) 2.1.2b7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C751F0A2BBD1CFFFD4316AE7125A0FD09587B404
 ```
 
 https://mybot314.ru/tekegram_catalog/

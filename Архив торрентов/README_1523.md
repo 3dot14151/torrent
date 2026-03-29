@@ -6,7 +6,7 @@ Achillea - 2 albums (2005, 2007) [MP3|320 кб/с]<New Age, Ambient, Enigmatic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705940.jpg" />
+  <img src="Z:/picture/008/save_picture_705940.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705933.jpg" />
+  <img src="Z:/picture/008/save_picture_705933.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ WSUS Offline Update 11.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705897.jpg" />
+  <img src="Z:/picture/008/save_picture_705897.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Capture One Pro 11 v11.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705891.jpg" />
+  <img src="Z:/picture/008/save_picture_705891.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Microsoft Windows and Office ISO Download Tool 6.02 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705888.jpg" />
+  <img src="Z:/picture/008/save_picture_705888.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Ultravox - The Island Years (4CD) (2016) Box-Set [FLAC|Lossless|tracks + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705878.jpg" />
+  <img src="Z:/picture/008/save_picture_705878.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Aiseesoft Video Converter Ultimate 9.0.20 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705877.jpg" />
+  <img src="Z:/picture/008/save_picture_705877.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ RightFont 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705869.jpg" />
+  <img src="Z:/picture/008/save_picture_705869.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Glary Utilities Pro 5.53.0.74 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705865.jpg" />
+  <img src="Z:/picture/008/save_picture_705865.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_705809.jpg" />
+  <img src="Z:/picture/005/save_picture_705809.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ TurnTable 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705795.jpg" />
+  <img src="Z:/picture/008/save_picture_705795.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705782.jpg" />
+  <img src="Z:/picture/008/save_picture_705782.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705779.jpg" />
+  <img src="Z:/picture/008/save_picture_705779.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ IObit Smart Defrag Pro 5.1.0.788 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705778.jpg" />
+  <img src="Z:/picture/008/save_picture_705778.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ oCam Screen Recorder 280.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705776.jpg" />
+  <img src="Z:/picture/008/save_picture_705776.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Audirvana Plus 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705772.jpg" />
+  <img src="Z:/picture/008/save_picture_705772.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Ad-Aware Free Antivirus+ 11.11.898.9090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705766.jpg" />
+  <img src="Z:/picture/008/save_picture_705766.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Morning.Coffee. - Progressive Breaks Project (2008-2010) [MP3|192-320 kbps]<Brea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705727.jpg" />
+  <img src="Z:/picture/008/save_picture_705727.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ MediaInfo 20.08 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705701.jpg" />
+  <img src="Z:/picture/008/save_picture_705701.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ A Better Finder Attributes 7 v7.00b02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705699.jpg" />
+  <img src="Z:/picture/008/save_picture_705699.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Coherence X 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705698.jpg" />
+  <img src="Z:/picture/008/save_picture_705698.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Blocs 3.5.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705697.jpg" />
+  <img src="Z:/picture/008/save_picture_705697.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Best Of Trance Vol. 8 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705691.jpg" />
+  <img src="Z:/picture/008/save_picture_705691.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Autorun Organizer 4.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705686.jpg" />
+  <img src="Z:/picture/008/save_picture_705686.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705680.jpg" />
+  <img src="Z:/picture/008/save_picture_705680.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Opera 38.0.2220.31 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705677.jpg" />
+  <img src="Z:/picture/008/save_picture_705677.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 565967   (399135) от 27.10.2012
+
+Bloodshot Dawn - Bloodshot Dawn (2012) [FLAC|Lossless]<Thrash Metal / Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_399135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beckoning Oblivion (06:27)
+02. Dedication To A Dead Cause (03:55)
+03. Forlorn World (05:01)
+04. Godless (05:35)
+05. Vision (05:04)
+06. Sentient Disease (04:08)
+07. The Quantum Apocalypse (05:03)
+08. Sickening Dogma (05:01)
+09. Illusion Aesthetic (04:52)
+10. Prototype (01:29)(   Читать дальше...   )Жанр: Thrash Metal / Melodic DeathПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566171   (398963) от 27.10.2012
+
+Lamb Of God - Resolution (2012) [FLAC|Lossless]<Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight from the Sun (2:10)
+02. Desolation (3:55)
+03. Ghost Walking (4:27)
+04. Guilty (3:25)
+05. The Undertow (4:47)
+06. The Number Six (5:23)
+07. Barbarosa (1:37)
+08. Invictus (4:15)
+09. Cheated (2:34)
+10. Insurrection (4:50)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566019   (398917) от 27.10.2012
+
+Stone Sour - House of Gold & Bones Part 1 (Japanese Edition) (2012) [FLAC|Lossless]<Alternative / Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone Sovereign (4:03)
+02. Absolute Zero (3:50)
+03. A Rumor Of Skin (4:11)
+04. The Travelers, Pt.1 (2:27)
+05. Tired (4:12)
+06. RU486 (4:22)
+07. My Name Is Allen (4:18)
+08. Taciturn (5:26)
+09. Influence Of A Drowsy God (4:29)
+10. The Travelers, Pt.2 (3:02)(   Читать дальше...   )Жанр: Alternative / Nu-MetalПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170335   (398744) от 02.10.2017
 
 The Lurking Fear - Out of the Voiceless Grave (2017) Japan [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +111,7 @@ The Lurking Fear - Out of the Voiceless Grave (2017) Japan [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398744.jpg" />
+  <img src="Z:/picture/008/save_picture_398744.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ Broken Hope - Mutilated And Assimilated (2017) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397765.jpg" />
+  <img src="Z:/picture/008/save_picture_397765.jpg" />
 </div>
 
 
@@ -64,7 +169,7 @@ Evil Invaders - Feed Me Violence (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397700.jpg" />
+  <img src="Z:/picture/008/save_picture_397700.jpg" />
 </div>
 
 
@@ -93,7 +198,7 @@ Mercenary - Recollections - The Century Media Years (Compilation) (2012) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396019.jpg" />
+  <img src="Z:/picture/005/save_picture_396019.jpg" />
 </div>
 
 
@@ -119,7 +224,7 @@ Brendon Small - Brendon Small’s Galaktikon (2012) [web] [FLAC|Lossless]<Space 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_394918.jpg" />
+  <img src="Z:/picture/005/save_picture_394918.jpg" />
 </div>
 
 
@@ -145,7 +250,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) 2CD, Japanese Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394789.jpg" />
+  <img src="Z:/picture/008/save_picture_394789.jpg" />
 </div>
 
 
@@ -174,7 +279,7 @@ Nefarium - Ad Discipulum (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393273.jpg" />
+  <img src="Z:/picture/008/save_picture_393273.jpg" />
 </div>
 
 
@@ -203,7 +308,7 @@ Orcrist - Black Blood Raised (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393272.jpg" />
+  <img src="Z:/picture/008/save_picture_393272.jpg" />
 </div>
 
 
@@ -232,7 +337,7 @@ Carrion Wraith - Carrion Wraith (2008) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393251.jpg" />
+  <img src="Z:/picture/008/save_picture_393251.jpg" />
 </div>
 
 
@@ -261,7 +366,7 @@ Orcrist - Fallen (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393250.jpg" />
+  <img src="Z:/picture/008/save_picture_393250.jpg" />
 </div>
 
 
@@ -290,7 +395,7 @@ Helker - Legado Secreto (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393248.jpg" />
+  <img src="Z:/picture/008/save_picture_393248.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ Orcrist - From the Forgotten Forest (2005) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393246.jpg" />
+  <img src="Z:/picture/008/save_picture_393246.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ Helker - Resistir (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393240.jpg" />
+  <img src="Z:/picture/008/save_picture_393240.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ Helker - A.D.N. (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393233.jpg" />
+  <img src="Z:/picture/008/save_picture_393233.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393227.jpg" />
+  <img src="Z:/picture/008/save_picture_393227.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ Air Raid - Across the Line (2017) Japan [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391370.jpg" />
+  <img src="Z:/picture/008/save_picture_391370.jpg" />
 </div>
 
 
@@ -464,7 +569,7 @@ Devastation Inc. - No Way For Salvation (2016) [FLAC|Lossless|WEB-DL|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391155.jpg" />
+  <img src="Z:/picture/008/save_picture_391155.jpg" />
 </div>
 
 
@@ -493,7 +598,7 @@ Suicidal Angels - Bloodbath (Japan Edition) (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390839.jpg" />
+  <img src="Z:/picture/005/save_picture_390839.jpg" />
 </div>
 
 
@@ -521,7 +626,7 @@ Dethklok - Dethalbum III (2012) [web] [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389165.jpg" />
+  <img src="Z:/picture/005/save_picture_389165.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ Sentient Horror - Ungodly Forms (2016) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389057.jpg" />
+  <img src="Z:/picture/008/save_picture_389057.jpg" />
 </div>
 
 
@@ -585,7 +690,7 @@ Samael - Hegemony (2017) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388881.jpg" />
+  <img src="Z:/picture/008/save_picture_388881.jpg" />
 </div>
 
 
@@ -614,7 +719,7 @@ Dynazty - Final Advent (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388049.jpg" />
+  <img src="Z:/picture/008/save_picture_388049.jpg" />
 </div>
 
 
@@ -643,7 +748,7 @@ Machine Head - Of Kingdom and Crown (2022) [FLAC|Lossless|image + .cue] <Groove,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388038.jpg" />
+  <img src="Z:/picture/008/save_picture_388038.jpg" />
 </div>
 
 
@@ -657,93 +762,6 @@ Machine Head - Of Kingdom and Crown (2022) [FLAC|Lossless|image + .cue] <Groove,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A0B391A32A5E2218C0D6A76E48B216F4312AC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574261   (388037) от 04.09.2022
-
-Venus 5 - Venus 5 (2022) [FLAC|Lossless|image + .cue] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lioness (3:22)
-02. The Simulation (3:20)
-03. Nothing But A Heartache (3:09)
-04. Bride With Blackend Eyes (4:36)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BBD8B05B2E4631EE42AAD2C47127AC6DD41C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574331   (388036) от 04.09.2022
-
-Epica - Live At Paradiso (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hunab K'u (Live At Paradiso) [00:01:58]
-02 - Dance Of Fate (Live At Paradiso) [00:05:47]
-03 - Sensorium (Live At Paradiso) [00:04:58]
-04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1749CBC5218B86CAA4C9C302C2A12BA8C97B346B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252872   (388029) от 07.10.2018
-
-Dim Mak - Knives Of Ice (2006) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knives of Ice
-02. Seeing Crows in Silver
-03. Great Worm of Hell
-04. Devil Finding Mirror(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C2FB88ECC65CDAEA7F27A09F8DC3E9B55DFC9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

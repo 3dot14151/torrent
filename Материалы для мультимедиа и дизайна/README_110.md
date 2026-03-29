@@ -1,3 +1,402 @@
+###  Публикация: 1212068   (776385) от 10.03.2018
+
+3D модели - Daz 3D - Structures [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник старинные здания и интерьеры для DAZ 3D из категории Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9F12993A13DC02D5DB2A5A734AF0B3FC3D4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212017   (776384) от 10.03.2018
+
+Растровый клипарт - Creative Market - Flower Petal Overlays (Real) - 2295773 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, фотографы! Добавьте цветочные лепестки к своим изображениям для движения, цвета и драмы! Легко и интересно использоватьФормат: PNGРазрешение файлов: 331x785-2653x491
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB5CE3D887EBAEBA28DF58A1F5291D4914C32EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212006   (776381) от 10.03.2018
+
+3D модели - Berries. Pomegranate CGI [Max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776381.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D художник из Египта представляет эту коллекцию бесплатных фруктовых моделей, в которую входят различные виды ягод, таких как гранаты, черника, клубника, малина, ежевика и миндаль. Текстуры в комплект не входят.Формат: Max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00E2D9F2972EC477150556E9984C9F30AF3B647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212127   (776378) от 10.03.2018
+
+Экшены - GraphicRiver - Drawing Design Photoshop Action - 20986902 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Drawing Design - этот экшен фотошоп, поможет вам создать реалистичный рисованный эскиз из ваших фотографий. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0B24564323A0CFD74EE954BFAACCD6548D983B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212143   (776348) от 10.03.2018
+
+3D модели - Daz 3D - Everyday #2 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор одежды от повседневной до вечерних платьев для DAZ 3D из категории People.
+Для Genesis 3 и Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B99C3975B8CFB6F04F25B48A023BC128B45B7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212144   (776338) от 10.03.2018
+
+Шаблоны - GraphicRiver - Art Perfectum - 21094994 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Perfectum - простой в использовании шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2000×3000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE2E087586BE2BE7F54076BCA580DCDDDB9C024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014537   (776320) от 07.05.2016
+
+Экшены - GraphicRiver - MultiArt Photoshop Action - 10815669 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3056FB11BF90838FB92A552C8DE36367D5A55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212009   (776312) от 10.03.2018
+
+3D модели - 3ddd - juice fruits [V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из фруктов персик, яблоки, клубника, мята, смородинаФормат: V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B06C724AC5D2E4AEDC1CEF816EA535FBC01BDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014368   (776242) от 07.05.2016
+
+3D модели - Dikart - Decorative Gypsum [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию "очищенный" сборник продукции из гипса, схожий по своему назначение с известным сборником Gaudi Decor.
+В сборник вошли модели из таких групп как: карнизы, кронштейны, молдинги, розетки и многие другие.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DBF2A3AD1C4F243A29FAFACE2439A9870458F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014738   (776059) от 08.05.2016
+
+Рамки - 2 рамки для фото - этот День Победы! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776059.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 рамки к Дню Победы!
+Автор рамокФормат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513632A015541B0B105DAA98D5C4BC4565A8CE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212298   (776039) от 11.03.2018
+
+Векторный клипарт - Cute cartoon pig vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Симпатичные мультяшные свинки
+12 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9135B85A23A267954DDEEAFABBBB0735980CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212299   (776014) от 11.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #55 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+7 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F54946D1D0B3DD948891C3E93E87DA88AA61BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212295   (776010) от 11.03.2018
+
+Векторный клипарт - Certificate and vector diploma design template #54 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Шаблоны оформления сертификатов
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD94A7EC14514BABDE5C517185D7D214B2EA2935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212350   (776004) от 11.03.2018
+
+3D модели - Daz 3D - Props  [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор реквизита для DAZ 3D из категории Props.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3A38211168F396EDB753C49EE836754198D555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014728   (775993) от 08.05.2016
+
+Рамки - Открытка рамка - День Победы [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамка открытка к Дню Победы!Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D85C9F0BFAE48FEED05F81769FC51E69A446297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014754   (775987) от 08.05.2016
 
 Экшены - GraphicRiver - Vanquish Photoshop Action - 11021639 [ATN]
@@ -6,7 +405,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775987.jpg" />
+  <img src="Z:/picture/008/save_picture_775987.jpg" />
 </div>
 
 
@@ -32,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775973.jpg" />
+  <img src="Z:/picture/008/save_picture_775973.jpg" />
 </div>
 
 
@@ -58,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775969.jpg" />
+  <img src="Z:/picture/008/save_picture_775969.jpg" />
 </div>
 
 
@@ -84,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775894.jpg" />
+  <img src="Z:/picture/008/save_picture_775894.jpg" />
 </div>
 
 
@@ -110,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775884.jpg" />
+  <img src="Z:/picture/008/save_picture_775884.jpg" />
 </div>
 
 
@@ -136,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775883.jpg" />
+  <img src="Z:/picture/008/save_picture_775883.jpg" />
 </div>
 
 
@@ -163,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775784.jpg" />
+  <img src="Z:/picture/008/save_picture_775784.jpg" />
 </div>
 
 
@@ -191,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775653.jpg" />
+  <img src="Z:/picture/008/save_picture_775653.jpg" />
 </div>
 
 
@@ -217,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775645.jpg" />
+  <img src="Z:/picture/008/save_picture_775645.jpg" />
 </div>
 
 
@@ -243,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775638.jpg" />
+  <img src="Z:/picture/008/save_picture_775638.jpg" />
 </div>
 
 
@@ -269,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775634.jpg" />
+  <img src="Z:/picture/008/save_picture_775634.jpg" />
 </div>
 
 
@@ -280,407 +679,6 @@ Realistic falling snow overlays - Коллекция реалистичного 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA04FEBD2B3F8695FE09F8701A1A468FE96710E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014923   (775599) от 09.05.2016
-
-Экшены - GraphicRiver - MoonStone Photoshop Action - 9960557 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775599.jpg" />
-</div>
-
-
-###  Подробнее
-
-MoonStone - погрузитесь в природу лунного камня в Вашем творчестве. Оцените таинственную красоту и оригинальность.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702A2855676D5E19D2BA3A56AF8170D28421929E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014909   (775523) от 09.05.2016
-
-Экшены - GraphicRiver - Uniqum - Sketch Painting PS Multi Action - 15455539 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4670B9FFB636097A993A39D79125A2E8B7BB4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014948   (775514) от 09.05.2016
-
-Экшены - GraphicRiver - Art Reveal Photoshop Action - 10523778 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_775514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Reveal - погрузитесь в мир изобразительного искусства. Оцените настоящую красоту и оригинальность.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795DAB63995AD6358F14AEB7858D337730C4F5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014940   (775507) от 09.05.2016
-
-Экшены - GraphicRiver - Realistic Painting Effect V2 - Painting Action - 9896793 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Realistic Painting Effect V2 - Painting Action - сделайте реалистичный рисунок из вашей фотографии. Оцените таинственную красоту и оригинальность.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88785A436EBAE040ED52FDF6AC294B49D3327E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015152   (775459) от 09.05.2016
-
-Экшены - GraphicRiver - MixArt - Sketch Painting Photoshop Action - 10854667 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08BD9A529C9EFA72F88FB4EE76C573BDFC53A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212654   (775111) от 13.03.2018
-
-Векторный клипарт - Certificate and vector diploma design template #43 [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Шаблоны оформления сертификатов
-14 EPS, AI + previewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E3AFBD92718EBF7FD7CE969BD425E6F0AE2B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277775   (774862) от 22.01.2019
-
-Фоны и наложения - Creative Market - Fog overlays - 2441109 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fog overlays - Коллекция реалистичных наложений тумана.Формат: PNGРазрешение файлов: 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8038D72B56C5FE7F707E7D615E9E437517B3984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212855   (774292) от 14.03.2018
-
-Векторный клипарт - Fotolia - Collection of multicolored rainbow flyer background is colors vector image [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Цветной брызги букет из красок
-25 EPS, AI + previewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1921AA6BDE6ABAD0556286C720E8833699419D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212860   (774213) от 14.03.2018
-
-Растровый клипарт - Dreamstime - Rainforest fruit flower animal butterfly relict tree liana [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тропический лес с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3464x2309-5184x3456
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B3D02D6AEB18DB11A4DEFB7128320F4F0C00ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212926   (774205) от 14.03.2018
-
-3D модели - Daz 3D - Genevieve 7 Pro Bundle - 35189 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Genevieve 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F9E90C0BDB43C7DD2C1ADD139E72617AF9A2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212844   (774135) от 14.03.2018
-
-3D модели - Daz 3D - Aiko 8 Pro Bundle - 49973 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiko 8 Pro Bundle - это последняя коллекция, которая сделает ее героиней научной фантастики или фантазии! для DAZ 3D
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3586D2BA1954117CE6B5452E98CC30A4755250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212865   (774127) от 14.03.2018
-
-Векторный клипарт - Shutterstock - Abstract vector elements [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Абстрактные векторные элементы
-20 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EAC3001C8D30B723A2CFE2962D083357E44921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212867   (774122) от 14.03.2018
-
-Векторный клипарт - Shutterstock - Certificate Templates 34 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Шаблоны сертификатов
-15 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA930E2DF3458D17072A27136F3D7F5551E6C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015761   (774101) от 11.05.2016
-
-Экшены - GraphicRiver - Amplify Photoshop Action - 8513813 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9375886B9E9E92FD1ABB623640D8C4083B470CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278067   (774097) от 23.01.2019
-
-Растровый клипарт - Deeezy - 20 Free Traveler Photos – Patagonia [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фото Патагонии с высоким разрешением. Бесплатно.
-Материал раздается с официальной документацией.Формат: JPGРазрешение файлов: 6016 x 4016
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7EE0F533341C5A5A97E99791F32E0292FC7CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

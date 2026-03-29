@@ -1,3 +1,119 @@
+###  Публикация: 1733700   (107234) от 30.06.2024
+
+VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - 7 X 7 (4:13)
+02. Love Suggestions - It’s Our Time (5:46)
+03. Kool&Klean - The Way You Look Tonight (5:06)
+04. Chillaxing Jazz Kollektion - Evening Sun (5:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733672   (107231) от 30.06.2024
+
+VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Funky, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lainz - Sfrombolus (6:20)
+02. Vito Lalinga (Vi Mode Inc. Project) - Afrolume (3:57)
+03. Jestofunk - For Your Precious Love (5:38)
+04. Man Sueto - Argentina (4:31)(   Читать дальше...   )Жанр: Jazz & Funky, DanceПродолжительность: 02:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733642   (107227) от 30.06.2024
+
+Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissonance [2:40]
+02. Through These Portals [2:19]
+03. Speculation (Ear, Eyes) [2:27]
+04. New Sound [2:19](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637625CA2E89644102A4AACEA9DAC6EF8D022A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733644   (107223) от 30.06.2024
+
+Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Mama Blues (Rusty Dusty Blues) [3:05]
+02. Knock Me a Kiss [2:48]
+03. The Green Grass Grows All Around [2:53]
+04. Mister Lovingood [2:47](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35187B843C4226331385972204AFCCE87D820A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733951   (107190) от 01.07.2024
 
 Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -6,7 +122,7 @@ Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107190.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lennie Tristano, Lee Konitz & Warne Marsh - The Complete Atlantic Recordings (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107172.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107116.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Howard McGhee & Illinois Jacquet - Here Comes Freddy (1976) 1990, Sonet Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107059.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107044.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charles Persip - And The Jazz Statesmen (1960) 1994, Bethlehem [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107037.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Johnny Griffin - Sextet (1958) 1994, Original Jazz Classics [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106990.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Count Basie - Live At The Chatterbox, Pittsburg, Pennsylvania (2001) [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106989.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Royce Campbell - 6 x 6 (1994) King Record [FLAC|Lossless|tracks + .cue] <Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106906.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Simone Kopmajer - Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106868.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106846.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Enterta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106762.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Leo Parker - Rollin' With Leo (1961) 2009, Blue Note [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106720.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Funky Italian  Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106710.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - The Afro Lounge Bar Vol.2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106708.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Vincent Ingala - Escape With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106704.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Jazz House Grooves Volume 2 (The Finest Jazzy Soulful Chill House Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106694.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Funky Summer (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106693.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Miles Davis - Miles In Tokyo (1964) 2005, Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106692.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Lounge Playlist for a Picturesque Retreat to Rejuvenate Your Body and Soul 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106685.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Playlist for a Picturesque Retreat That Will Rejuvenate Your Mind, Body, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106683.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ernestine Anderson - Hello Like Before (1977) 1989, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106639.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ernestine Anderson - Hello Like Before (1977) 1989, Concord Jazz [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E272AE80F67FD4868887BB16F013361A232AF964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736839   (106582) от 14.07.2024
-
-Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Theme [6:43]
-02. Lady Bird [8:59]
-03. Get Out of Town [5:33]
-04. Is It True What They Say About Dixie? [5:33](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A782A8D10774044E1B2B3D006FD2EF535699E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736837   (106579) от 14.07.2024
-
-Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four [7:37]
-02. Suddenly It's Spring [7:00]
-03. Night in Tunisia [6:13]
-04. Summertime [6:08](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 02:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F708FADF20988632A8312C9888E7456A9680FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737028   (106569) от 16.07.2024
-
-Renato Sellani Trio - Grand Piano: The Music Of Michel Legrand (2010) Philology [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. His Eyes Her Eyes [3:02]
-02. How Do You Keep the Music Going [4:33]
-03. I'll Wait For You [4:10]
-04. Once Upon a Summertime [4:42](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2C797A4B65C4A759CC52ACB2B4C3D14A5DF86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737171   (106556) от 16.07.2024
-
-Milt Jackson - To Bags... With Love: Memorial Album (1954 - 1983) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Basie [5:55]
-02. Ralph's New Blues [7:10]
-03. Blues for Edith [4:55]
-04. Recado Bossa Nova [6:42](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62013B4255E23E237316B0BCBD6D7B07C4BBCF4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

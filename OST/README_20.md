@@ -6,7 +6,7 @@ Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо н�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311869.jpg" />
+  <img src="Z:/picture/008/save_picture_311869.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308948.jpg" />
+  <img src="Z:/picture/008/save_picture_308948.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307650.jpg" />
+  <img src="Z:/picture/008/save_picture_307650.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305469.jpg" />
+  <img src="Z:/picture/008/save_picture_305469.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305269.jpg" />
+  <img src="Z:/picture/008/save_picture_305269.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304459.jpg" />
+  <img src="Z:/picture/008/save_picture_304459.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302656.jpg" />
+  <img src="Z:/picture/008/save_picture_302656.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301447.jpg" />
+  <img src="Z:/picture/008/save_picture_301447.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301349.jpg" />
+  <img src="Z:/picture/008/save_picture_301349.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298137.jpg" />
+  <img src="Z:/picture/008/save_picture_298137.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ NBA 2K9 Soundtrack (2008) [MP3|240-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297106.jpg" />
+  <img src="Z:/picture/008/save_picture_297106.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297105.jpg" />
+  <img src="Z:/picture/008/save_picture_297105.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ NBA 2K10 Soundtrack (2009) [MP3|256-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297104.jpg" />
+  <img src="Z:/picture/008/save_picture_297104.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ NBA 2K11 Soundtrack (2010) [MP3|128-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297100.jpg" />
+  <img src="Z:/picture/008/save_picture_297100.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296246.jpg" />
+  <img src="Z:/picture/008/save_picture_296246.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Max Richter - Morgan / Морган (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296127.jpg" />
+  <img src="Z:/picture/008/save_picture_296127.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NBA 2K12 Soundtrack  (2011) [MP3|317-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295215.jpg" />
+  <img src="Z:/picture/008/save_picture_295215.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295061.jpg" />
+  <img src="Z:/picture/008/save_picture_295061.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295059.jpg" />
+  <img src="Z:/picture/008/save_picture_295059.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ NBA 2K16 Soundtrack  (2015) [MP3|128-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294821.jpg" />
+  <img src="Z:/picture/008/save_picture_294821.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294007.jpg" />
+  <img src="Z:/picture/008/save_picture_294007.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector'
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293759.jpg" />
+  <img src="Z:/picture/008/save_picture_293759.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293390.jpg" />
+  <img src="Z:/picture/008/save_picture_293390.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291572.jpg" />
+  <img src="Z:/picture/008/save_picture_291572.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291534.jpg" />
+  <img src="Z:/picture/008/save_picture_291534.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289579.jpg" />
+  <img src="Z:/picture/008/save_picture_289579.jpg" />
 </div>
 
 

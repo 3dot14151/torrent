@@ -1,3 +1,162 @@
+###  Публикация: 948721   (409814) от 21.10.2015
+
+Обзор. Чемпионат Англии 2015-16. 9 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор Чемпионата Англии 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C3CD16F12AB3230BB0EE4BA29F133316FA9CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948857   (409806) от 21.10.2015
+
+Футбол. Лига Чемпионов 2015-16. Группа G. 3 тур. Динамо Киев (Украина) - Челси (Англия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Групповой этап Лиги Чемпионов Группа G. 3 тур. Динамо Киев (Украина) - Челси (Англия).Телекомпания: НТВ+, Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:00:37 + 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6649671B464B0DC1E706A5E5AC8823101189C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946954   (409796) от 21.10.2015
+
+Хоккей. НХЛ Сезон 2015-16. Монреаль Канадиенс - Питтсбург Пингвинз(13.10.2015) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Матч регулярного чемпионата NHL сезон 2015-16 (Montreal Canadiens vs. Pittsburgh Penguins) (эфир от 13.10.2015)Телекомпания: ROOT SportsЖанр: СпортПеревод: Двухголосный любительский (А. Жидков, А. Еремиев)Продолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CFE078E2910A14F1576588D872671220DA69E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413249   (409663) от 03.10.2020
+
+Футбол. Английская Премьер-лига. Чемпионат Англии 2020-2021. 2-й тур. Челси — Ливерпуль (2020) IPTV [H.264/1080p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская Премьер-лига. Чемпионат Англии 2020-2021
+20 сентября 2020, воскресенье. 18:30 МСК
+2-й тур
+Челси — Ливерпуль(   Читать дальше...   )Телекомпания: Okko СпортЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 03:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2A5B84BA6A4F68EBB6B885251704072E1EFD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948846   (409655) от 21.10.2015
+
+Футбол. Лига Чемпионов 2015-16. Группа E. 3 тур. БАТЭ (Беларусь) - Барселона (Испания) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Групповой этап Лиги Чемпионов Группа E. 3 тур. БАТЭ (Беларусь) - Барселона (Испания).Телекомпания: НТВ+, Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46ECC6369CDC2CB085A8915C1B8672342008D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948843   (409653) от 21.10.2015
+
+Футбол. Лига Чемпионов 2015-16. Группа F. 3 тур. Арсенал (Англия) - Бавария (Германия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Групповой этап Лиги Чемпионов Группа F. 3 тур. Арсенал (Англия) - Бавария (Германия).Телекомпания: НТВ+, Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:54:14 + 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7B23A00CE66B88FD64E845556D8AFCBAFCC399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948140   (409646) от 21.10.2015
 
 Футбол. Чемпионат Англии 2015-16. EPL. 9 тур. Манчестер Сити – Борнмут (2015) HDTVRip [H.264/720p-LQ]
@@ -6,7 +165,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409646.jpg" />
+  <img src="Z:/picture/008/save_picture_409646.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409643.jpg" />
+  <img src="Z:/picture/008/save_picture_409643.jpg" />
 </div>
 
 
@@ -60,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409641.jpg" />
+  <img src="Z:/picture/008/save_picture_409641.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409550.jpg" />
+  <img src="Z:/picture/008/save_picture_409550.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ MotoGP. Этап 16/18. Гран-При Австралии. Гонка (2015) HD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409442.jpg" />
+  <img src="Z:/picture/008/save_picture_409442.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409193.jpg" />
+  <img src="Z:/picture/008/save_picture_409193.jpg" />
 </div>
 
 
@@ -167,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409185.jpg" />
+  <img src="Z:/picture/008/save_picture_409185.jpg" />
 </div>
 
 
@@ -196,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408946.jpg" />
+  <img src="Z:/picture/008/save_picture_408946.jpg" />
 </div>
 
 
@@ -225,7 +384,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Wilson Security Sandow
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408876.jpg" />
+  <img src="Z:/picture/008/save_picture_408876.jpg" />
 </div>
 
 
@@ -251,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408566.jpg" />
+  <img src="Z:/picture/008/save_picture_408566.jpg" />
 </div>
 
 
@@ -279,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408537.jpg" />
+  <img src="Z:/picture/008/save_picture_408537.jpg" />
 </div>
 
 
@@ -308,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408536.jpg" />
+  <img src="Z:/picture/008/save_picture_408536.jpg" />
 </div>
 
 
@@ -337,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408482.jpg" />
+  <img src="Z:/picture/008/save_picture_408482.jpg" />
 </div>
 
 
@@ -363,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408402.jpg" />
+  <img src="Z:/picture/008/save_picture_408402.jpg" />
 </div>
 
 
@@ -389,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408400.jpg" />
+  <img src="Z:/picture/008/save_picture_408400.jpg" />
 </div>
 
 
@@ -415,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408270.jpg" />
+  <img src="Z:/picture/008/save_picture_408270.jpg" />
 </div>
 
 
@@ -442,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408216.jpg" />
+  <img src="Z:/picture/008/save_picture_408216.jpg" />
 </div>
 
 
@@ -468,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408166.jpg" />
+  <img src="Z:/picture/008/save_picture_408166.jpg" />
 </div>
 
 
@@ -497,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408165.jpg" />
+  <img src="Z:/picture/008/save_picture_408165.jpg" />
 </div>
 
 
@@ -526,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408163.jpg" />
+  <img src="Z:/picture/008/save_picture_408163.jpg" />
 </div>
 
 
@@ -540,180 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43220A865F99B98017997EC463AB4966A8F07D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252671   (408162) от 06.10.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа E. 2-й тур. Карабах (Азербайджан) — Арсенал (Англия) (04.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408162.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 октября 2018 года, четверг. 19:55 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа E. 2-й тур.
-Карабах (Агдам, Азербайджан) — Арсенал (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40084AD5C6FE64B578D2E1BE726A6EA992042CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252801   (408161) от 06.10.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа C. 2-й тур. Бордо (Франция) — Копенгаген (Дания) (04.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408161.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 октября 2018 года, четверг. 19:55 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа C. 2-й тур.
-Бордо (Бордо, Франция) — Копенгаген (Копенгаген, Дания)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C11782EF93D8E9F5DB287561E27FB2A1AFE870D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252830   (408160) от 06.10.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа L. 2-й тур. БАТЭ (Беларусь) — ПАОК (Греция) (04.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408160.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 октября 2018 года, четверг. 22:00 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа L. 2-й тур.
-БАТЭ (Борисов, Беларусь) — ПАОК (Салоники, Греция)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C618318610F10160F7CCD22B9D199C9B1B37185D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252632   (408077) от 06.10.2018
-
-Формула 1. Сезон 2018. 17-й Этап. Гран-при Японии. Свободная практика 1 (05.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408077.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 октября 2018 года, пятница. 04:00 МСК
-Формула 1. 17-й Этап сезона 2018 года. Гран-при Японии. Сузука (Япония).
-Свободная практика 1
-Арена: Автодром Сузука (Сузука, Япония)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEC31C6BD9667B6B06006900E7F046B2EAC111E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252636   (408076) от 06.10.2018
-
-Формула 1. Сезон 2018. 17-й Этап. Гран-при Японии. Свободная практика 2 (05.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408076.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 октября 2018 года, пятница. 08:00 МСК
-Формула 1. 17-й Этап сезона 2018 года. Гран-при Японии. Сузука (Япония).
-Свободная практика 2
-Арена: Автодром Сузука (Сузука, Япония)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83601212583DC4269B8EDC3314FB330586D65C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252792   (408075) от 06.10.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Группа K. 2-й тур. Астана (Казахстан) — Ренн (Франция) (04.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408075.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 октября 2018 года, четверг. 17:50 МСК
-Лига Европы УЕФА 2018 - 2019
-Группа K. 2-й тур.
-Астана (Астана, Казахстан) — Ренн (Ренн, Франция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744D5385C422ACBF2B937EE23C65D1FBFC1456F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

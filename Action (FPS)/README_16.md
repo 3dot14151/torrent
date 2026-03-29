@@ -1,3 +1,81 @@
+###  Публикация: 1222121   (688939) от 27.04.2018
+
+Containment Initiative (2018) [En] (1.45) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Containment Initiative - это локальный кооперативный виртуальный шутер для HTC Vive. Игра состоит из трех различных миссий, в которых вы должны сдерживать полчища зараженных мутантов. Играйте самостоятельно или попросите друга помочь вам в борьбе с зомби при помощи ПК.Тип издания: LicenseРазработчик: Gwyn GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A00627EF99A5763A27F9AFE67AC6B00314B28FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134420   (688662) от 15.05.2017
+
+Prey (2017) [Ru/Multi] (1.0.2/dlc) SteamRip Let'sPlay
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Prey происходит в 2032 году. Вы обнаруживаете себя на лунной орбите, на борту космической станции «Талос-1». Эксперимент, в котором вы участвовали, должен был навсегда изменить человеческую расу, но привел к катастрофическим последствиям. Станцию захватили враждебные пришельцы, которые теперь ведут на вас охоту.Тип издания: SteamRipРазработчик: Arkane StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A231247C3062629DBDFC45DAEBEF6D02811BBC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134621   (686777) от 16.05.2017
+
+STRAFE (2017) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686777.jpg" />
+</div>
+
+
+###  Подробнее
+
+STRAFE - это аркадный shoot'em'all шутер от первого лица с поддержкой виртуальной реальности, отсылающий игроков к культуре 90-х годов. Особенностями проекта является упрощенная графика и автоматическая генерация уровней.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Action (Shooter), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29368A68692B8332112FA2EF35E871DB36DD9AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222279   (686615) от 28.04.2018
 
 Reframed (2018) [En] (1.0) License PLAZA
@@ -6,7 +84,7 @@ Reframed (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686615.jpg" />
+  <img src="Z:/picture/008/save_picture_686615.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Apocryph: an old-school shooter (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686605.jpg" />
+  <img src="Z:/picture/008/save_picture_686605.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ DESOLATE (2019) [Ru/Multi] (1.2.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685554.jpg" />
+  <img src="Z:/picture/008/save_picture_685554.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ CRIMSON METAL (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684357.jpg" />
+  <img src="Z:/picture/008/save_picture_684357.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683500.jpg" />
+  <img src="Z:/picture/008/save_picture_683500.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682262.jpg" />
+  <img src="Z:/picture/008/save_picture_682262.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681791.jpg" />
+  <img src="Z:/picture/008/save_picture_681791.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Inner Chains (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680406.jpg" />
+  <img src="Z:/picture/008/save_picture_680406.jpg" />
 </div>
 
 
@@ -206,6 +284,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213035   (678861) от 28.06.2010
+
+Prey [Ru] (L) 2006
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_678861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идя сквозь вереницу веков, индейское племя Чероки хранило в тайне мрачное пророчество. Древнее предсказание ждало своего часа - ждало даже тогда, когда дети вождей забыли заветы предков и поселились среди белых людей, взяв их ничего не значащие имена и переняв их пустые обычаи. Так было прежде. Но времена меняются...
+
+Томми - простой механик, забывший и отринувший данную предками мудрость, живущий жизнью бледнолицего и не жаждущий ничего особенного. И вот однажды Томми приходит в себя внутри огромного космического корабля, предвестника неумолимого вторжения и конца человеческой расы. Соплеменники молодого индейца захвачены вместе с ним и единственное, что способно спасти юношу, его любимую и весь людской род - это дремлющая сила, забытая, принятая когда-то за миф, сила, которой очень боятся незваные гости… Час пробил.Жанр: Action (Shooter) / 3D / 1st PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839155   (676072) от 27.11.2025
 
 I Am Alive (2012) [Ru/Multi] (1.01) License GOG
@@ -214,7 +320,7 @@ I Am Alive (2012) [Ru/Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_676072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_676072.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ illWill (2023) [Ru/Multi] (1.11) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_676066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_676066.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673878.jpg" />
+  <img src="Z:/picture/008/save_picture_673878.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ Borderlands: Trilogy (2009-2014) [Ru/En] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G. R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673724.jpg" />
+  <img src="Z:/picture/008/save_picture_673724.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ Solarix (2015) [En/Tu] (1.6) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673524.jpg" />
+  <img src="Z:/picture/008/save_picture_673524.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ The Fidelio Incident (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672308.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ Agent 9 (2019) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671930.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ RICO (2019) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671928.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ eXoDOS Collection v3.11 - Volume 5 Action (2018) [En] (3.11) Repack eXo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670022.jpg" />
+  <img src="Z:/picture/008/save_picture_670022.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669385.jpg" />
+  <img src="Z:/picture/008/save_picture_669385.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2.0/upd2/dlc) Repack Other s [Definitive Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668692.jpg" />
+  <img src="Z:/picture/008/save_picture_668692.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ Lazaretto (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667566.jpg" />
+  <img src="Z:/picture/008/save_picture_667566.jpg" />
 </div>
 
 
@@ -526,7 +632,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0/upd2) Repack Other s [Definitive
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667360.jpg" />
+  <img src="Z:/picture/008/save_picture_667360.jpg" />
 </div>
 
 
@@ -552,7 +658,7 @@ Singularity (2010) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666934.jpg" />
+  <img src="Z:/picture/008/save_picture_666934.jpg" />
 </div>
 
 
@@ -563,110 +669,6 @@ Singularity (2010) [Multi] (1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C00090E7897FE478CC100BDB3EC68751E4959C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511573   (666901) от 16.06.2012
-
-Doom [En] (L) 1993
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doom — культовая компьютерная игра, выпущенная компанией id Software 10 декабря 1993 года, один из наиболее известных и популярных продуктов в жанре «шутер от первого лица». По некоторым оценкам, эту игру купило не менее 150—160 миллионов человек. Она во многом оказала определяющее идейное влияние на дальнейшее развитие жанра.Тип издания: ЛицензияРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD543CA19AB05398C56A00510FB9E17EC7BEF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138639   (662940) от 30.05.2017
-
-TimeShift (2007) [Ru/Multi] (1.02) SteamRip Let'sPlay
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, полковник в отставке Майкл Свифт, выступает в роли испытателя двух величайших изобретений века — Квантового Костюма и Квантового Транспортера. Но тщательно подготовленный эксперимент летит в тартарары, когда за мгновение до его начала в лабораторию врывается вооруженный человек.Тип издания: SteamRipРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC58B0098A4A0495783CDA24063376F06D7F321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138765   (662934) от 30.05.2017
-
-Perception (2017) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perception – это сюжетный приключенческий хоррор от первого лица, рассказывающий историю слепой девушки по имени Кэсси, которая, полагаясь на свой исключительный слух и острый ум, пытается разгадать тайны заброшенного поместья из ее навязчивых снов. Потратив долгие месяцы на поиски, она, наконец, находит заброшенную миссию в Глостере, штат Массачусетс. В реальности (   Читать дальше...   )Тип издания: LicenseРазработчик: The Deep End GamesЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BACFEB66D18849DE7E2CBD8A44B36EE286B6A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138507   (662931) от 30.05.2017
-
-Putrefaction 2: Void Walker (2017) [Ru/En] (1.0а) License PLAZA
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Putrefaction 2: Void Walker это сиквел к шутеру Putrefaction, выпущенному мной в 2015, с гораздо более улучшенный и динамичным геймплеем и более приключенческой темой. Сюжет: после уничтожения древнего зла в первой части вы были перенесены в другую галактику и стали Ходящим в Пустоте - древним воином, ищущим зло по всей вселенной.Тип издания: LicenseРазработчик: Kazakov OlegЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEBC4A770B5CF353487494CC72F1661F7C96D56
 ```
 
 https://mybot314.ru/tekegram_catalog/

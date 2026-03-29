@@ -6,7 +6,7 @@ Geoffroy Thoorens [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451095.jpg" />
+  <img src="Z:/picture/008/save_picture_451095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Artworks by Digital Artists (23.09.12) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450738.jpg" />
+  <img src="Z:/picture/008/save_picture_450738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450689.jpg" />
+  <img src="Z:/picture/008/save_picture_450689.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Digital Art (26.09.2012) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448160.jpg" />
+  <img src="Z:/picture/008/save_picture_448160.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447818.jpg" />
+  <img src="Z:/picture/008/save_picture_447818.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444244.jpg" />
+  <img src="Z:/picture/008/save_picture_444244.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442181.jpg" />
+  <img src="Z:/picture/008/save_picture_442181.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439739.jpg" />
+  <img src="Z:/picture/008/save_picture_439739.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439557.jpg" />
+  <img src="Z:/picture/008/save_picture_439557.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438387.jpg" />
+  <img src="Z:/picture/008/save_picture_438387.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436307.jpg" />
+  <img src="Z:/picture/008/save_picture_436307.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436142.jpg" />
+  <img src="Z:/picture/008/save_picture_436142.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435691.jpg" />
+  <img src="Z:/picture/008/save_picture_435691.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430923.jpg" />
+  <img src="Z:/picture/008/save_picture_430923.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416454.jpg" />
+  <img src="Z:/picture/008/save_picture_416454.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Digital Art (10.10.12) [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414255.jpg" />
+  <img src="Z:/picture/008/save_picture_414255.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406324.jpg" />
+  <img src="Z:/picture/008/save_picture_406324.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Erika Craig [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406154.jpg" />
+  <img src="Z:/picture/008/save_picture_406154.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405865.jpg" />
+  <img src="Z:/picture/008/save_picture_405865.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Frans Mensink [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405706.jpg" />
+  <img src="Z:/picture/008/save_picture_405706.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405225.jpg" />
+  <img src="Z:/picture/008/save_picture_405225.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Pixiv Artist - Mii~ina [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404914.jpg" />
+  <img src="Z:/picture/008/save_picture_404914.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404766.jpg" />
+  <img src="Z:/picture/008/save_picture_404766.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Herika Noronha [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404753.jpg" />
+  <img src="Z:/picture/008/save_picture_404753.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402857.jpg" />
+  <img src="Z:/picture/008/save_picture_402857.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401007.jpg" />
+  <img src="Z:/picture/008/save_picture_401007.jpg" />
 </div>
 
 

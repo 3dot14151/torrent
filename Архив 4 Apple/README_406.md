@@ -1,3 +1,114 @@
+###  Публикация: 1326576   (383383) от 21.09.2019
+
+Live Home 3D Pro Edition 3.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2019Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB458688E22B51FD8BA5FF617614C37D96D77872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068337   (383356) от 31.10.2016
+
+Privatus 5.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus  - автоматизированная защита конфиденциальности
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 октября 2016Разработчик: SweetP Productions.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F28F6360BA315F583AB8517C91A9160562E963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174728   (383260) от 16.10.2017
+
+KCNcrew Pack 10.15.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383260.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на сентябрь 2017 года.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2017Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BE1037D6494AB803E9E8DFC1B2952182A1BE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326601   (383224) от 21.09.2019
+
+DaisyDisk 4.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_383224.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaisyDisk - утилита которая весьма необычным образом подскажет какие громоздкие файлы и папки присутствуют на вашем Mac, если сказать точнее, то это визуализатор дискового пространства, который помогает быстро выявить проблемные зоны на накопителе и в два щелчка мыши, удалить все лишнее.
+
+Нерегулярно, но иногда бывает так, что вчера у вас на диске свободно было еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: Software Ambience Corp.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2943ADEA7474C7C4DD0FB21B1B534E92D9F0E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174904   (383126) от 16.10.2017
 
 Postbox 5.0.20 [Multi/Ru]
@@ -6,7 +117,7 @@ Postbox 5.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383126.jpg" />
+  <img src="Z:/picture/008/save_picture_383126.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Block Advertising on Internet 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383123.jpg" />
+  <img src="Z:/picture/008/save_picture_383123.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ Ableton Live Suite 10 v10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383107.jpg" />
+  <img src="Z:/picture/008/save_picture_383107.jpg" />
 </div>
 
 
@@ -86,7 +197,7 @@ Postbox 7 v7.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383099.jpg" />
+  <img src="Z:/picture/008/save_picture_383099.jpg" />
 </div>
 
 
@@ -112,7 +223,7 @@ Luminar 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382845.jpg" />
+  <img src="Z:/picture/008/save_picture_382845.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ Alien Skin Exposure X3 Bundle 3.0.3.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382832.jpg" />
+  <img src="Z:/picture/008/save_picture_382832.jpg" />
 </div>
 
 
@@ -166,7 +277,7 @@ GraphicConverter 10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382823.jpg" />
+  <img src="Z:/picture/008/save_picture_382823.jpg" />
 </div>
 
 
@@ -195,7 +306,7 @@ iThoughtsX 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382816.jpg" />
+  <img src="Z:/picture/008/save_picture_382816.jpg" />
 </div>
 
 
@@ -221,7 +332,7 @@ Aurora HDR 2018 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382690.jpg" />
+  <img src="Z:/picture/008/save_picture_382690.jpg" />
 </div>
 
 
@@ -247,7 +358,7 @@ VMware Fusion Pro 11 v11.5.0 (14634996) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382498.jpg" />
+  <img src="Z:/picture/008/save_picture_382498.jpg" />
 </div>
 
 
@@ -274,7 +385,7 @@ DaisyDisk 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382217.jpg" />
+  <img src="Z:/picture/008/save_picture_382217.jpg" />
 </div>
 
 
@@ -301,7 +412,7 @@ MarsEdit 4 v4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381872.jpg" />
+  <img src="Z:/picture/008/save_picture_381872.jpg" />
 </div>
 
 
@@ -327,7 +438,7 @@ WonderPen 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381871.jpg" />
+  <img src="Z:/picture/008/save_picture_381871.jpg" />
 </div>
 
 
@@ -355,7 +466,7 @@ Librarian Pro 4 v4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381869.jpg" />
+  <img src="Z:/picture/008/save_picture_381869.jpg" />
 </div>
 
 
@@ -381,7 +492,7 @@ Amadeus Pro 2.5.0 (2047) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381777.jpg" />
+  <img src="Z:/picture/008/save_picture_381777.jpg" />
 </div>
 
 
@@ -407,7 +518,7 @@ SuperDuper! 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381774.jpg" />
+  <img src="Z:/picture/008/save_picture_381774.jpg" />
 </div>
 
 
@@ -433,7 +544,7 @@ iShowU Instant 1.2.9 (Advanced) 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381773.jpg" />
+  <img src="Z:/picture/008/save_picture_381773.jpg" />
 </div>
 
 
@@ -461,7 +572,7 @@ SILKYPIX Developer Studio Pro 9E 9.0.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381771.jpg" />
+  <img src="Z:/picture/008/save_picture_381771.jpg" />
 </div>
 
 
@@ -489,7 +600,7 @@ Wondershare Filmora 8.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381701.jpg" />
+  <img src="Z:/picture/008/save_picture_381701.jpg" />
 </div>
 
 
@@ -515,7 +626,7 @@ CADintosh X 8.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381694.jpg" />
+  <img src="Z:/picture/008/save_picture_381694.jpg" />
 </div>
 
 
@@ -541,7 +652,7 @@ Find Any File (FAF) 2.1.2b4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381602.jpg" />
+  <img src="Z:/picture/008/save_picture_381602.jpg" />
 </div>
 
 
@@ -568,7 +679,7 @@ Lattice 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381597.jpg" />
+  <img src="Z:/picture/008/save_picture_381597.jpg" />
 </div>
 
 
@@ -582,116 +693,6 @@ Lattice поддерживает множество популярных фор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59A056A0C1710BD9E1A4F179BC1C0EDF2CB0D842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414721   (381595) от 10.10.2020
-
-Downie 4.1.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C3A335326B6DCADEFBBBFD4D0D324548BB5763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415031   (381592) от 10.10.2020
-
-File Juicer 4.88 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381592.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
-
-File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F3A54B1823A47BD3F06A74EA4B2A040B9B734C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415019   (381443) от 10.10.2020
-
-DxO PhotoLab 3 ELITE Edition 3.3.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90666CFEFCCDF717A9D8626634171BD2CE460095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415103   (381289) от 10.10.2020
-
-MediaInfo 20.09 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381289.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2020Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8874DD772AD9D356D64046FF3D55D4D45D1666
 ```
 
 https://mybot314.ru/tekegram_catalog/

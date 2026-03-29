@@ -1,3 +1,32 @@
+###  Публикация: 1774248   (30005) от 23.01.2025
+
+Bloodhound Gang - Hooray For Boobies (1999) Expanded Edition, 2024, Geffen [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hope You Die [00:03:39]
+02. The Inevitable Return Of The Great White Dope [00:04:02]
+03. Mama's Boy [00:00:34]
+04. Three Point One Four [00:03:55](   Читать дальше...   )Жанр: Alternative, Punk-RockПродолжительность: 01:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02BC0B0CD465A5CA83D73D3B8E288B1D9AB8C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775061   (29901) от 24.01.2025
 
 Mogwai - The Bad Fire (2025) [FLAC|Lossless|Web-DL|tracks] <Post-Rock, Shoegaze, Instrumental Rock>
@@ -6,7 +35,7 @@ Mogwai - The Bad Fire (2025) [FLAC|Lossless|Web-DL|tracks] <Post-Rock, Shoegaze,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29901.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Offspring - Anti-Valentine’s Day with The Offspring (2025) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28375.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28119.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Smashing Pumpkins - 13 Studio Albums, 1 Live, 4 Compilation, 5 EP, 1 Box Set
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25808.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Venamoris, Dave Lombardo - To Cross or To Burn (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25730.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Manic Street Preachers - 20 альбомов (1992 - 2025) 39 CD [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21814.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ The Birthday Massacre - Pathways (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21765.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20259.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Stereophonics - Make ‘em Laugh, Make ‘em Cry, Make ‘em Wait (2025) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19026.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17529.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ The Rasmus - Weirdo (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15580.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14724.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Placebo - Sleeping With Ghosts (2003) Japanese Edition [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14656.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14416.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13262.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Main-De-Gloire - Ravecore (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12122.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11276.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Architects - Сollection (2006 - 2025) 13CD [FLAC|Lossless|tracks + .cue] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8471.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Asking Alexandria - Collection (2009 - 2023) 9CD [FLAC|Lossless|image + .cue|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7200.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Linkin Park - Papercuts (Singles Collection 2000-2023) (2024) Brazil, 0936248460
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7071.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Linkin Park - A Thousand Suns + (2010) Brazil, 9362495889, AB0002000 Pressing, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7048.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Linkin Park - Living Things + (2012) E.U., 9362-49450-0, 2013 [FLAC|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7046.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Linkin Park - From Zero (2024) U.S., 093624838807, Amazon Alternate Cover [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6908.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5441.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5339.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C69C905FD97390E7C24E1B28B68987035FA56374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815829   (4773) от 01.09.2025
-
-Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up From The Bottom * (3:03)
-02. Unshatter * (3:16)
-03. Let You Fade * (3:29)
-04. The Emptiness Machine (Live) * (3:18)(   Читать дальше...   )Тип издания: Digisleeve, Deluxe EditionЖанр: Alternative / Nu-Metal; Alternative RockПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

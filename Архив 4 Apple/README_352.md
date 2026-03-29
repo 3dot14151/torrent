@@ -1,3 +1,109 @@
+###  Публикация: 1564351   (500661) от 18.07.2022
+
+djay - DJ App & AI Mixer 4.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500661.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D682CCF91409D73E142D2A57501749ADF761375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564441   (500595) от 18.07.2022
+
+Teorex Inpaint 9.2.1 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teorex Inpaint – удалить человека или объект с фото.
+Inpaint - приложение, которое позволяет умно удалять нежелательные элементы на цифровой фотографии, такие как ненужные объекты, текст, случайно попавшие элементы, а также пыль, рекламу, мусор, царапины и грязь. Весь процесс в программе максимально автоматизирован, вам всего-то нужно пометить нежелательный объект, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 20011-2021 Maxim GapchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC6CE5B8054FB2BC2B80011438AFF1D691974BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564369   (500591) от 18.07.2022
+
+RAR Extractor Max-Unzip Winrar 9.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500591.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
+Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2020 by Elimisoft.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9200C7280DC58BD3768F790B848B34AADECECC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317036   (500490) от 01.08.2019
+
+4K YouTube to MP3 v3.7.1.2862 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500490.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: OpenMedia LLC.Поддерживаемая ОС: 10.11+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17839A4272C1E5A4852D23F4DD3367D6F5DF0EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317030   (500359) от 01.08.2019
 
 4K Stogram 2.7.2.1795 [Multi/Ru]
@@ -6,7 +112,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500359.jpg" />
+  <img src="Z:/picture/008/save_picture_500359.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500356.jpg" />
+  <img src="Z:/picture/008/save_picture_500356.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499754.jpg" />
+  <img src="Z:/picture/008/save_picture_499754.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Dropzone 4 Pro v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499753.jpg" />
+  <img src="Z:/picture/008/save_picture_499753.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ OmniPlayer Pro - Media Player 2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499749.jpg" />
+  <img src="Z:/picture/008/save_picture_499749.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ Music Tag Editor Pro 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499747.jpg" />
+  <img src="Z:/picture/008/save_picture_499747.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ DVD-Cloner 2022 v9.30.730 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499746.jpg" />
+  <img src="Z:/picture/008/save_picture_499746.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ SILKYPIX Developer Studio Pro 11 11.0.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499743.jpg" />
+  <img src="Z:/picture/008/save_picture_499743.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ Things 3 v3.15.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499718.jpg" />
+  <img src="Z:/picture/008/save_picture_499718.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ Web Dumper for Mac 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499717.jpg" />
+  <img src="Z:/picture/008/save_picture_499717.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ Task Office 7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499714.jpg" />
+  <img src="Z:/picture/008/save_picture_499714.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ zGallery – Image Viewer 4.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499704.jpg" />
+  <img src="Z:/picture/008/save_picture_499704.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ Adobe Substance 3D Designer 12.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499507.jpg" />
+  <img src="Z:/picture/008/save_picture_499507.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ PopClip 1.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499345.jpg" />
+  <img src="Z:/picture/008/save_picture_499345.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ iMazing 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499234.jpg" />
+  <img src="Z:/picture/008/save_picture_499234.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ Capture One Pro 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499074.jpg" />
+  <img src="Z:/picture/008/save_picture_499074.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ TextMan 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498635.jpg" />
+  <img src="Z:/picture/008/save_picture_498635.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ EdgeView 3 v3.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498634.jpg" />
+  <img src="Z:/picture/008/save_picture_498634.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ Keep It 2.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498632.jpg" />
+  <img src="Z:/picture/008/save_picture_498632.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498631.jpg" />
+  <img src="Z:/picture/008/save_picture_498631.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ ApolloOne - Photo Video Viewer 3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498592.jpg" />
+  <img src="Z:/picture/008/save_picture_498592.jpg" />
 </div>
 
 
@@ -566,7 +672,7 @@ Dropzone 4 Pro v4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498591.jpg" />
+  <img src="Z:/picture/008/save_picture_498591.jpg" />
 </div>
 
 
@@ -578,113 +684,6 @@ Dropzone - удобная утилита для автоматизация ру�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3EA697D9F5763A5F50C89843FE1E11D08C0E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564693   (498589) от 20.07.2022
-
-SyncTime 4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498589.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncTime - самое простое решение для синхронизации ваших файлов. Вы когда-нибудь думали, чтобы вы могли легко обновлять все свои резервные копии, распределенные по многим устройствам? SyncTime просто сделает это. SyncTime способен на очень много вещей, но так прост в использовании. От ручной, плановой или полностью автоматической синхронизации до фоновой синхронизации, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2021 DESAIREMПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD256A9EF126B4169A49A5E0E4DECD293DC8F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564733   (498588) от 20.07.2022
-
-Nevercenter CameraBag Photo 2022.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498588.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2021 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA86865CF2E80F561166FF6ADD297F5E82B431F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564823   (498587) от 20.07.2022
-
-Grids for Instagram 8.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids переносит лучшее из Instagram на ваш Mac. Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2017 ThinkTime CreationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CA31A0F17926FFDC0BCCB1C619AAD3E071C314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564689   (498585) от 20.07.2022
-
-Retrobatch Pro 1.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
-Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
-Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2018 Flying Meat Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE668433A6DDCAC272E2FDF0E5186BF9A4C41C33
 ```
 
 https://mybot314.ru/tekegram_catalog/

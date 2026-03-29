@@ -1,3 +1,107 @@
+###  Публикация: 1244093   (485951) от 30.08.2018
+
+History Channel: Человек-калькулятор / The Human Calculator (2015) HDTVRip [H.264/720p-LQ] (4 серии из 4)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет встреча со Скоттом Флансбергом, которого называют человеком-калькулятором. Он обладает уникальной способностью за считанные секунды производить в уме сложнейшие математические вычисления. Благодаря этой способности Флансберг видит числа и закономерности буквально во всем, что его окружает. Мир состоит из скрытых, взаимосвязанных чисел: от размеров зданий (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательное шоуПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 4 x ~ 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADD34C8802504E13D1AF98CBEE8440B25FC7116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244092   (485860) от 30.08.2018
+
+History Channel: Человек-калькулятор / The Human Calculator (2015) HDTVRip (4 серии из 4)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_485860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет встреча со Скоттом Флансбергом, которого называют человеком-калькулятором. Он обладает уникальной способностью за считанные секунды производить в уме сложнейшие математические вычисления. Благодаря этой способности Флансберг видит числа и закономерности буквально во всем, что его окружает. Мир состоит из скрытых, взаимосвязанных чисел: от размеров зданий (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательное шоуПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 4 x ~ 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2A156FE5CBB6D889D4D4CF26119B1A6AFAA68C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405185   (484830) от 29.08.2020
+
+DV: Магия Гудини / Alan Davies: The Magic of Houdini (2014) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский комик Алан Дейвис рассказывает об удивительной судьбе и наследии великого иллюзиониста и актёра Гарри Гудини.Производство: What Larks! ProductionsЖанр: ДокументальныйРежиссер: Louise HooperПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883C4F8B82C9ADFE0E4CA30F57BB7E6069AF5BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313383   (484463) от 11.08.2019
+
+Discovery. Затерянные викинги Америки / America's Lost Vikings (2019) HDTVRip (серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно ли, что викинги открыли Америку за сотни лет до Христофора Колумба или прибытия «Мейфлауэра»? Появляется всё больше подтверждений, что они не просто достигли Америки, но обосновались на континенте и успешно на нем проживали. Чтобы подтвердить эту теорию, команда «охотников за викингами» отправляется в Америку на поиски доказательств. Они также пытаются проверить, (   Читать дальше...   )Производство: США, Arrow Media, Science ChannelЖанр: Документальный, расследование, историяРежиссер: Стюард СтриксонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E35B365F7F69EA20B0A7195EBC51D5016445C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054242   (483997) от 24.09.2016
 
 Discovery: Раскрытие загадки могилы короля Тута / Новые загадки могилы Тутанхамона / King Tut's Mystery Tomb Opened (2006) SATRip
@@ -6,7 +110,7 @@ Discovery: Раскрытие загадки могилы короля Тута 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483997.jpg" />
+  <img src="Z:/picture/008/save_picture_483997.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Осушить океан: Корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483965.jpg" />
+  <img src="Z:/picture/008/save_picture_483965.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTVRip (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483875.jpg" />
+  <img src="Z:/picture/008/save_picture_483875.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Нюрнбергский процесс. Нацистские престу�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483770.jpg" />
+  <img src="Z:/picture/008/save_picture_483770.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ History Channel: Полководцы / Война вождей / Warlords (2005
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483434.jpg" />
+  <img src="Z:/picture/008/save_picture_483434.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482047.jpg" />
+  <img src="Z:/picture/008/save_picture_482047.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ National Geographic. Зона риска. Фестиваль байкеров в
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481878.jpg" />
+  <img src="Z:/picture/008/save_picture_481878.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Лесное царство / Kingdom of the Forest (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481876.jpg" />
+  <img src="Z:/picture/008/save_picture_481876.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Animal Planet: Суперзмея-людоед / Man-Eating Super Snake (2014) H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481861.jpg" />
+  <img src="Z:/picture/008/save_picture_481861.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481764.jpg" />
+  <img src="Z:/picture/008/save_picture_481764.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG: История города пиратов / История города п�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481763.jpg" />
+  <img src="Z:/picture/008/save_picture_481763.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Discovery: Трой / Troy (2014) HDTVRip (1 сезон, 1-5 серия из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481581.jpg" />
+  <img src="Z:/picture/008/save_picture_481581.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Discovery: Трой / Troy (2015) HDTVRip (2 сезон, 1-4 серия из 4)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481399.jpg" />
+  <img src="Z:/picture/008/save_picture_481399.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BBC. Секс по интернету. Безопасно? / Websex: What's the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481276.jpg" />
+  <img src="Z:/picture/008/save_picture_481276.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ DV: Ада Лавлейс: первая леди программировани�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480780.jpg" />
+  <img src="Z:/picture/008/save_picture_480780.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480771.jpg" />
+  <img src="Z:/picture/008/save_picture_480771.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NG: Фараоны, которые построили Египет [2 серии
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480458.jpg" />
+  <img src="Z:/picture/008/save_picture_480458.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480392.jpg" />
+  <img src="Z:/picture/008/save_picture_480392.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480322.jpg" />
+  <img src="Z:/picture/008/save_picture_480322.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NGW: Царство больших акул / Big Sharks Rule (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480039.jpg" />
+  <img src="Z:/picture/008/save_picture_480039.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ NGW: Секретный кубинский риф / Cuba's Secret Reef (2015) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480035.jpg" />
+  <img src="Z:/picture/008/save_picture_480035.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NGW: Дикая Франция с Рэем Мирсом / Wild France with Ray M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479822.jpg" />
+  <img src="Z:/picture/008/save_picture_479822.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ NGW: Дикая Франция с Рэем Мирсом / Wild France with Ray M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEAF184E7A93D648828939D82B2E2CF02AEF4605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056824   (479308) от 26.09.2016
-
-NG: Осушение океана: Вторая мировая война / Drain the Ocean WWII (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что лежит на дне океанов и морей? Вторая мировая война оставила большое количество кораблей и подводных лодок, которые покоятся на морском дне. Если бы океаны были осушены, какие тайны раскрыло бы каждое судно? С помощью новых 3D реконструкций мы увидим: линкор «Аризона» затонувший в Перл-Харборе; гибель которого потрясла Америку; нацистский суперлинкор «Бисмарк» (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, флот, война, историяРежиссер: Майк СлиПеревод: ДублированныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7FE4EE66A7A4D93C540F465B0A9E95E8AD93F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056832   (479185) от 26.09.2016
-
-NG: Осушение океана: Вторая мировая война / Drain the Ocean WWII (2016) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что лежит на дне океанов и морей? Вторая мировая война оставила большое количество кораблей и подводных лодок, которые покоятся на морском дне. Если бы океаны были осушены, какие тайны раскрыло бы каждое судно? С помощью новых 3D реконструкций мы увидим: линкор «Аризона» затонувший в Перл-Харборе; гибель которого потрясла Америку; нацистский суперлинкор «Бисмарк» (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, флот, война, историяРежиссер: Майк СлиПеревод: ДублированныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D19D0662183DE4FC8B24DA8EB93E3944F43F787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701087   (478586) от 17.09.2013
-
-BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вкус — самое приятное и терпимое из наших чувств. Причины, по которым нам нравится та или иная еда намного удивительнее, чем мы думали. Экспериментатор из Флориды пытается вырастить томаты, которые сочнее, вкуснее и слаще тех, что можно купить в магазине. Он нашел способ сделать овощи слаще без добавления сахара. Причем благодаря тому, что происходит в нашей голове. (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярныйРежиссер: Никола СтоклиПеревод: Профессиональный многоголосый закадровый (ст. "Марафон")Субтитры: Английские (отключаемые)Продолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00ED7C3F3590FE4A88E87C9B50137F073004EDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244728   (477730) от 03.09.2018
-
-History Channel: Великая Марсианская война 1913-1917 / The Great Martian War 1913 - 1917 (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псевдодокументальный фильм от History Channel рассказывает воображаемую историю о катастрофических событиях и немыслимых ужасах 1913-17 гг., когда человечество противостояло инопланетному вторжению…Телекомпания: History ChannelЖанр: документальный, фантастика, драма, военныйРежиссер: Майк СлиПеревод: голос рассказчика - дубляж, интервью - многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3DDB7EA0F7EDC76CE4BEE730F04B9B1A732872
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Comedy Баттл (2019.01.18) WEB-DL [H.264/720p-LQ] (сезон 9, выпус�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786968.jpg" />
+  <img src="Z:/picture/008/save_picture_786968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786928.jpg" />
+  <img src="Z:/picture/008/save_picture_786928.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786923.jpg" />
+  <img src="Z:/picture/008/save_picture_786923.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alien Skin Exposure X4 Bundle v4.0.1.26 49029 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786922.jpg" />
+  <img src="Z:/picture/008/save_picture_786922.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Final Cut Pro X 10.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786911.jpg" />
+  <img src="Z:/picture/008/save_picture_786911.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Artstudio Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786908.jpg" />
+  <img src="Z:/picture/008/save_picture_786908.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Visual Studio 2019 Professional 16.5.5 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786869.jpg" />
+  <img src="Z:/picture/008/save_picture_786869.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Visual Studio 2019 Community 16.5.5 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786866.jpg" />
+  <img src="Z:/picture/008/save_picture_786866.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.5 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786864.jpg" />
+  <img src="Z:/picture/008/save_picture_786864.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Calibre 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786846.jpg" />
+  <img src="Z:/picture/008/save_picture_786846.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Comedy Баттл. Новый сезон (05.06.2020) WEB-DLRip [H.264/1080p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786819.jpg" />
+  <img src="Z:/picture/008/save_picture_786819.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ WinUtilities Pro 15.74 (comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786816.jpg" />
+  <img src="Z:/picture/008/save_picture_786816.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786781.jpg" />
+  <img src="Z:/picture/008/save_picture_786781.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ K-Lite Codec Pack Update 15.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786747.jpg" />
+  <img src="Z:/picture/008/save_picture_786747.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Edge 84.0.522.11 Beta (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786725.jpg" />
+  <img src="Z:/picture/008/save_picture_786725.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MediBang Paint Pro 25.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786712.jpg" />
+  <img src="Z:/picture/008/save_picture_786712.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Unity Pro 2018.4.23f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786711.jpg" />
+  <img src="Z:/picture/008/save_picture_786711.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Chuunibyou demo Koi ga Shitai! Ren | Чудачество Любви не Пом
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786708.jpg" />
+  <img src="Z:/picture/008/save_picture_786708.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Unity Pro 2019.3.15f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786704.jpg" />
+  <img src="Z:/picture/008/save_picture_786704.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ UnHackMe 11.70.0.970 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786682.jpg" />
+  <img src="Z:/picture/008/save_picture_786682.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ ABViewer Enterprise 14.1.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786681.jpg" />
+  <img src="Z:/picture/008/save_picture_786681.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786679.jpg" />
+  <img src="Z:/picture/008/save_picture_786679.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ESET Online Scanner 3.3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786675.jpg" />
+  <img src="Z:/picture/008/save_picture_786675.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ simplewall 3.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786671.jpg" />
+  <img src="Z:/picture/008/save_picture_786671.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wallpaper Engine 1.2.41 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786668.jpg" />
+  <img src="Z:/picture/008/save_picture_786668.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VirtualBox 6.1.10 Build 138449 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786658.jpg" />
+  <img src="Z:/picture/008/save_picture_786658.jpg" />
 </div>
 
 

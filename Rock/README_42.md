@@ -1,3 +1,32 @@
+###  Публикация: 1550584   (592107) от 11.05.2022
+
+Brian Harold May - 2 Albums (2021-2022) Deluxe Version, Remastered, Expanded and Reissued [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Talks - A Tribute To Cozy Powell [00:01:14]
+02. The Business (Rock On Cozy Mix) [00:04:40]
+03. Hot Patootie [00:03:21]
+04. F.B.I. (Original Ruff Mix With Real Bass And Drums) [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 4 CD, 03:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999A2FE0E8C3C27C39AA9FDA2FCA29605AB23464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916107   (591434) от 07.07.2015
 
 Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
@@ -6,7 +35,7 @@ Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591434.jpg" />
+  <img src="Z:/picture/008/save_picture_591434.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Raccoonies - Raccoonies (2015) [MP3|320 кб/с]<Folk Rock, Blues, Country, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590983.jpg" />
+  <img src="Z:/picture/008/save_picture_590983.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590449.jpg" />
+  <img src="Z:/picture/008/save_picture_590449.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589591.jpg" />
+  <img src="Z:/picture/008/save_picture_589591.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589122.jpg" />
+  <img src="Z:/picture/008/save_picture_589122.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589102.jpg" />
+  <img src="Z:/picture/008/save_picture_589102.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ The Shadows - The Absolutely Essential 3CD Collection (2014) [MP3|320 кб/с]<I
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588636.jpg" />
+  <img src="Z:/picture/008/save_picture_588636.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587989.jpg" />
+  <img src="Z:/picture/008/save_picture_587989.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587523.jpg" />
+  <img src="Z:/picture/008/save_picture_587523.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ The Plott Hounds - Living Free (2014) [MP3|320 кб/с]<Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586034.jpg" />
+  <img src="Z:/picture/008/save_picture_586034.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Arbiter - 4 Releases (2021-2022) [MP3|320 Kbps] <Heavy Psych Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585874.jpg" />
+  <img src="Z:/picture/008/save_picture_585874.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ David Coverdale & Whitesnake - Best Ballads (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585101.jpg" />
+  <img src="Z:/picture/008/save_picture_585101.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Yellow Matter Custard - One More Night in New York City (Live) (2011) [MP3|320 k
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585087.jpg" />
+  <img src="Z:/picture/008/save_picture_585087.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ VA - Super Rock. Power Hour (2011) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585014.jpg" />
+  <img src="Z:/picture/008/save_picture_585014.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ Falter - Further from Nowhere (2013) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584939.jpg" />
+  <img src="Z:/picture/008/save_picture_584939.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584474.jpg" />
+  <img src="Z:/picture/008/save_picture_584474.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583450.jpg" />
+  <img src="Z:/picture/008/save_picture_583450.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583378.jpg" />
+  <img src="Z:/picture/008/save_picture_583378.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583017.jpg" />
+  <img src="Z:/picture/008/save_picture_583017.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ Starlight Brigade - 4 Albums (2013-2022) [MP3|320 Kbps] <Crossover Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582959.jpg" />
+  <img src="Z:/picture/008/save_picture_582959.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ Van Morrison - Les Genies du Rock - Brown Eyed Girl (1995) [MP3|320 кб/с]<Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582945.jpg" />
+  <img src="Z:/picture/008/save_picture_582945.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Fletwood Mac - Les Genies du Rock - Black Magic Woman (1995) [MP3|320 кб/с]<R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582940.jpg" />
+  <img src="Z:/picture/008/save_picture_582940.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582934.jpg" />
+  <img src="Z:/picture/008/save_picture_582934.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ Status Quo - Les Genies du Rock - Pictures of Matchstick Men (1995) [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582932.jpg" />
+  <img src="Z:/picture/008/save_picture_582932.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582800.jpg" />
+  <img src="Z:/picture/008/save_picture_582800.jpg" />
 </div>
 
 
@@ -705,35 +734,6 @@ Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A68CC8756C9DF775635AB1F8394E69D553791E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041468   (582431) от 09.08.2016
-
-Iron Butterfly - Light And Heavy (The Best Of) (1993) [MP3|320 Kbps] <Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Butterfly Theme
-02. Possession
-03. Unconscious Power
-04. You Can't Win(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD8980A43530F0B635209CEB830AD13510B2D89
 ```
 
 https://mybot314.ru/tekegram_catalog/

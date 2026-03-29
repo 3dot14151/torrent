@@ -1,3 +1,55 @@
+###  Публикация: 1350029   (991253) от 18.01.2020
+
+Отважные птенцы / Top Wing (2017) WEBRip [H.264/1080p-LQ] (сезон 1, эпизоды 26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважные птенцы – это приключенческий мультсериал для дошкольнишков, рассказывающий о команде юных пернатых смельчаков, проходящих обучение в академии Высший пилотаж.Производство: Канада / Industrial Brothers и 9 Story Media GroupЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Мэтью ФернандесПеревод: ДублированныйСубтитры: нетПродолжительность: ~00:21:01 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E49CA3E355BBDBD14E288404322F64683EF48C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432397   (990466) от 06.01.2012
+
+Кот по имени Ик / Eek! The cat! (1994) TVRip (сезонов 5, серий 52)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мультфильм о коте по имени Ик, который постоянно попадает в комические ситуации. У него добрые намерения, но ему постоянно не везет. Не смотря на то, что его постоянно раздавливают, вытягивают и бьют, он не унывает. Его доброе сердце берет вверх над разумом. Он влюблен в Анабель, которая больше его в 4 раза, носит розовую пачку и ходит на высоких каблуках. Шарки (   Читать дальше...   )Производство: США, Канада / Nelvana Limited, Fox Children's Productions, Savage Studios.Жанр: Рисованная анимация, КомедияРежиссер: Стив Саваж Холанд, Билл Копп.Перевод: дублированный (РЕН-ТВ)Продолжительность: 52 серии по ~00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FD6146DF9B8A448E9EAFD0AF6C12EA0B9C56C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609539   (989836) от 29.01.2013
 
 Приключения Тедди Ракспина (65 серий) / The Adventures of Teddy Ruxpin (1987) DVDRip [EN]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989836.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987783.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987642.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986399.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986190.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985719.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985214.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984217.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982323.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980389.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979456.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978876.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_977244.jpg" />
+  <img src="Z:/picture/009/save_picture_977244.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976433.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976421.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975595.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975041.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974227.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974140.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974125.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972944.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972859.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971120.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970355.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A231F425B13404257D887D83357CAB381AC16E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358377   (969485) от 07.02.2020
-
-Трое снизу: Истории Аркадии / 3Below: Tales of Arcadia (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) HDRezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетные подростки, члены королевской семьи, спасаясь от захватившего их родную планету диктатора, терпят крушение в Аркадии. Вместе с верным телохранителем они вынуждены скрываться от межгалактических охотников за головами и выживать под видом простых школьников.Производство: США / Netflix, DreamWorks Animation, Double Dare You (DDY)Жанр: Фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Йохана Матте, Илэйн Боган, Эндрю Л. ШмидтАктеры: Татьяна Маслани, Диего Луна, Ник Офферман, Фрэнк Уэлкер, Стив Альтерман, Митч Картер, Гленн Клоуз, Коул Сэнд, Джули Фоллс, Алон АбутбулПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DB0260453E11E9DB5FABDFC55FCCD38CF95847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976087   (969244) от 17.01.2016
-
-Звездные войны: Войны клонов / Star Wars: The Clone Wars (2012) (Сезон 5, 20 серий из 20) BDRip [H.264/1080p-LQ] (Невафильм)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарт Мол и Саваж Опресс сеют смерть и разрушение, занимаясь разбоем на Внешнем Кольце. Избавив брата от отчаяния и забвения, Саваж со своим братом убивают и мародёрствуют всюду. Снедаемый бешенством и местью, они прибывают в поиске смысла в их новом альянсе; тогда как слухи о их жестоких набегах распространяется по галактике. Дарт Мол явно не горит желанием примкнуть (   Читать дальше...   )Производство: США, Lucasfilm Animation Singapore, Lucasfilm Ltd., CGCGЖанр: Компьютерная анимация, Детский, Приключения, ФантастикаРежиссер: Dave Filoni / Дэйв Филони, Steward Lee / Стюарт Ли, Kyle Dunlevy /
-Кайл Данливи и др.Роли озвучивают: Tom Kane / Том Кэйн, Dee Bradley Baker / Ди Брэдли Бейкер, Matt Lanter / Мэтт Лантер, James Arnold Taylor / Джеймс Арнольд Тейлор, Corey Burton / Кори Бертон, Matthew Wood / Мэттью Вуд, Ashley Eckstein / Эшли Экштейн, Terrence «T.C.» Carson / Терренс «Т.К.» Карсон, Catherine Taber / Катрин Табер, Ian Abercrombie / Йен Эберкромби, Anthony Daniels / Энтони Дэниелс (   Читать дальше...   )Перевод: ДублированныйПродолжительность: Серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEA8AB368198EAB5D0955FCB4B894F224FA9CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

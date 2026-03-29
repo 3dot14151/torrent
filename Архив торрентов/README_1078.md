@@ -6,7 +6,7 @@ System - Plus (2018) Morr Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experime
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800704.jpg" />
+  <img src="Z:/picture/008/save_picture_800704.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Shazam Encore Paid 10.30.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800686.jpg" />
+  <img src="Z:/picture/008/save_picture_800686.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ VA - Trance Essential Series Vol.2 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800657.jpg" />
+  <img src="Z:/picture/008/save_picture_800657.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - AVA Seasons Selected By Mike Saint Jules - Spring (2017) [MP3|320 Kbps] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800655.jpg" />
+  <img src="Z:/picture/008/save_picture_800655.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ K90 - Futureproof (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800653.jpg" />
+  <img src="Z:/picture/008/save_picture_800653.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Default Folder X 5.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800645.jpg" />
+  <img src="Z:/picture/008/save_picture_800645.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800639.jpg" />
+  <img src="Z:/picture/008/save_picture_800639.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800634.jpg" />
+  <img src="Z:/picture/008/save_picture_800634.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800632.jpg" />
+  <img src="Z:/picture/008/save_picture_800632.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800631.jpg" />
+  <img src="Z:/picture/008/save_picture_800631.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800614.jpg" />
+  <img src="Z:/picture/008/save_picture_800614.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Vocal Trance Classics 009 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800609.jpg" />
+  <img src="Z:/picture/008/save_picture_800609.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Saxon - Let Me Feel Your Power (2016) Live, 2 CD [FLAC|Lossless|image + .cue] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800607.jpg" />
+  <img src="Z:/picture/008/save_picture_800607.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ SimBooster Premiun 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800606.jpg" />
+  <img src="Z:/picture/008/save_picture_800606.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Icecream Screen Recorder PRO 5.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800590.jpg" />
+  <img src="Z:/picture/008/save_picture_800590.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800582.jpg" />
+  <img src="Z:/picture/008/save_picture_800582.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Macrium Reflect v 7.2.3957 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800579.jpg" />
+  <img src="Z:/picture/008/save_picture_800579.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800576.jpg" />
+  <img src="Z:/picture/008/save_picture_800576.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800574.jpg" />
+  <img src="Z:/picture/008/save_picture_800574.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800570.jpg" />
+  <img src="Z:/picture/008/save_picture_800570.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800548.jpg" />
+  <img src="Z:/picture/008/save_picture_800548.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Calibre - The Deep (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800546.jpg" />
+  <img src="Z:/picture/008/save_picture_800546.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ MacPilot 9.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800516.jpg" />
+  <img src="Z:/picture/008/save_picture_800516.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800505.jpg" />
+  <img src="Z:/picture/008/save_picture_800505.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ AIMP 4.13 Build 1890 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800495.jpg" />
+  <img src="Z:/picture/008/save_picture_800495.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ GPU Caps Viewer 1.34.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800485.jpg" />
+  <img src="Z:/picture/008/save_picture_800485.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 1512524   (245402) от 25.11.2021
+
+Studies 1.8.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
+Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 The Mental FacultyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F21536E029F6B57F9ECF7179C1C768A1CC59B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512676   (245395) от 25.11.2021
+
+ImageRanger Pro Edition 1.8.6.1819 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245395.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 03.09.2021Разработчик: © 2021 XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FD92F6F08058949EA54FADAE93E1E3CDD750D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608904   (245377) от 01.02.2023
+
+Dynamic Wallpaper 13.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Wallpaper Engine позволяет использовать живые обои на рабочем столе/экранной заставке. Он предоставляет тысячи живых обоев в Мастерской, потребляя при этом как можно меньше системных ресурсов. Это движок обоев для Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2023Разработчик: © 2020 WHBALZAC IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194F4B0F6035256C5D0F6B33F513406EC5F6D729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449465   (245359) от 21.02.2021
+
+RAR Extractor – The Unarchiver Pro 6.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245359.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR Extractor, распаковать и открыть любой файл. RAR Extractor - Unarchiver - это специализированная прикладная утилита, предназначенная для Rar, Zip, Tar, 7-zip, Gzip, Bzip2, XZ, Tar.gz, bz2, iso, pkg, swf, exe, jar, xip, dms… и десятки других сжатых файлов, вы можете использовать ее для удобного извлечения архивных файлов. Дважды щелкните, чтобы распаковать, быстро (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.02.2021Разработчик: qing qing yuПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9B9FEA6BC55A71972316444A61C72D209C920E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512608   (245356) от 25.11.2021
 
 Movie Thumbnails Maker 4.1.0 [En]
@@ -6,7 +111,7 @@ Movie Thumbnails Maker 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245356.jpg" />
+  <img src="Z:/picture/004/save_picture_245356.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Tayasui Sketches Pro 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245351.jpg" />
+  <img src="Z:/picture/004/save_picture_245351.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Pastebot 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245348.jpg" />
+  <img src="Z:/picture/004/save_picture_245348.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ DxO ViewPoint 3 v3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245343.jpg" />
+  <img src="Z:/picture/004/save_picture_245343.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ BetterZip 5 v5.2 b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245338.jpg" />
+  <img src="Z:/picture/004/save_picture_245338.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ WiFiSpoof 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245334.jpg" />
+  <img src="Z:/picture/004/save_picture_245334.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ MailTags 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245305.jpg" />
+  <img src="Z:/picture/004/save_picture_245305.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ ImageRanger Pro Edition 1.9.3.1858 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245297.jpg" />
+  <img src="Z:/picture/004/save_picture_245297.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ NCH WavePad Audio Editor Pro 17.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245290.jpg" />
+  <img src="Z:/picture/004/save_picture_245290.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245289.jpg" />
+  <img src="Z:/picture/004/save_picture_245289.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Geekbench 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245284.jpg" />
+  <img src="Z:/picture/004/save_picture_245284.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Yate 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245275.jpg" />
+  <img src="Z:/picture/004/save_picture_245275.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ WiFiSpoof 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245270.jpg" />
+  <img src="Z:/picture/004/save_picture_245270.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Xojo 2022 Release 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245269.jpg" />
+  <img src="Z:/picture/004/save_picture_245269.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245260.jpg" />
+  <img src="Z:/picture/004/save_picture_245260.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Swift Publisher 5 v5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245258.jpg" />
+  <img src="Z:/picture/004/save_picture_245258.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Xliff Editor 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245251.jpg" />
+  <img src="Z:/picture/004/save_picture_245251.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ Dash 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245241.jpg" />
+  <img src="Z:/picture/004/save_picture_245241.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ ColorWell 7.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245236.jpg" />
+  <img src="Z:/picture/004/save_picture_245236.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ TaskPaper 3.8.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245234.jpg" />
+  <img src="Z:/picture/004/save_picture_245234.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ Nova 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245228.jpg" />
+  <img src="Z:/picture/004/save_picture_245228.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Debookee v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245222.jpg" />
+  <img src="Z:/picture/004/save_picture_245222.jpg" />
 </div>
 
 
@@ -576,117 +681,6 @@ Debookee - анализатор сетевого трафика, с возмож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16BA0CE495AA60AC9FD95D08950E201252E56DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450636   (245214) от 27.02.2021
-
-Downie 4 v4.1.19 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 24.02.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9B4A229735F8777E2770BCDF4F231049638115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609130   (245213) от 02.02.2023
-
-Clipboard Manager 2.3.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Менеджер истории буфера обмена для Mac.
-Сохраняет все, что вы копируете для последующего использования.
-Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2023Разработчик: © 2016-2023 Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114281BBEB4A02171AD461FF1CE8CAB13C8348A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624400   (245208) от 05.04.2023
-
-Reader for Mac 4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
-Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 2023 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5B4F2DE72ACE275362D362A7968360C45D9DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450713   (245207) от 27.02.2021
-
-Piezo 1.7.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8219B63550A2595D58600E88AC337E1A6613B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

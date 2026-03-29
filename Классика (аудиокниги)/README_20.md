@@ -1,3 +1,108 @@
+###  Публикация: 515153   (656508) от 25.06.2012
+
+Генрик Сенкевич | Камо грядеши [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656508.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жанр: Исторический романПродолжительность: 28:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75200D01CAD8D2758B74B4926E74DB8B7A342FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903687   (656385) от 01.06.2015
+
+Николай Васильевич Гоголь | Вечера на хуторе близ Диканьки (2014) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656385.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вечера на хуторе близ Диканьки" — первое крупное произведение Николая Васильевича Гоголя, которое сразу же принесло ему известность и признание собратьев по перу. Веселая история про то, как в рождественскую ночь в украинском селе всех попутал бес и как могучему кузнецу Вакуле удалось одолеть нечистую силу и добыть для своей невесты царские черевички.Жанр: КлассикаИздательство: Нигде не купишьПродолжительность: 11:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E448D5B8BCFCBA0BE392B7ADC920A367C24DB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140333   (655722) от 06.06.2017
+
+Стефан Цвейг | Шахматная новелла (1981) [MP3, Юрий Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой "Шахматной новеллы", некий доктор Б., в результате двенадцатимесячного заточения в гестаповском плену, борясь с одиночеством и изоляцией, оказался вынужден штудировать сборник лучших шахматных партий гроссмейстеров мира и поневоле "отравился" самой интеллектуальной из спортивных игр. Оказавшись на свободе на океанском пароходе, он вступает (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: ГостелерадиофондПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C1F7B052C9AED6A5A58AB1F315FEC08E5523C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344269   (654191) от 31.05.2011
+
+Александр Солженицын | Красное колесо. Узел 1. Август четырнадцатого. (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654191.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Август Четырнадцатого» – первый узел исторической эпопеи «Красное Колесо». В нём не только произведен показ и анализ Самсоновской катастрофы, но дан художественный обзор царствования последнего императора Николая Второго вплоть до Первой мировой войны и ярко представлена фигура премьер-министра П. А. Столыпина, его труды, реформы и трагическая смерть.
+"Задуманный (   Читать дальше...   )Жанр: РоманПродолжительность: 48:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196268884E1F730C325137776E738F12F2A9AB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798894   (651684) от 23.06.2014
 
 Виктор Гюго | Отверженные (2010) [MP3, Евгений Терновский]
@@ -6,7 +111,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651684.jpg" />
+  <img src="Z:/picture/008/save_picture_651684.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650092.jpg" />
+  <img src="Z:/picture/008/save_picture_650092.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649869.jpg" />
+  <img src="Z:/picture/008/save_picture_649869.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649671.jpg" />
+  <img src="Z:/picture/008/save_picture_649671.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649493.jpg" />
+  <img src="Z:/picture/008/save_picture_649493.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649379.jpg" />
+  <img src="Z:/picture/008/save_picture_649379.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648698.jpg" />
+  <img src="Z:/picture/008/save_picture_648698.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648502.jpg" />
+  <img src="Z:/picture/008/save_picture_648502.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648461.jpg" />
+  <img src="Z:/picture/008/save_picture_648461.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648250.jpg" />
+  <img src="Z:/picture/008/save_picture_648250.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647477.jpg" />
+  <img src="Z:/picture/008/save_picture_647477.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646883.jpg" />
+  <img src="Z:/picture/008/save_picture_646883.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646763.jpg" />
+  <img src="Z:/picture/008/save_picture_646763.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645953.jpg" />
+  <img src="Z:/picture/008/save_picture_645953.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645738.jpg" />
+  <img src="Z:/picture/008/save_picture_645738.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644215.jpg" />
+  <img src="Z:/picture/008/save_picture_644215.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644106.jpg" />
+  <img src="Z:/picture/008/save_picture_644106.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644004.jpg" />
+  <img src="Z:/picture/008/save_picture_644004.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642572.jpg" />
+  <img src="Z:/picture/008/save_picture_642572.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642097.jpg" />
+  <img src="Z:/picture/008/save_picture_642097.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642015.jpg" />
+  <img src="Z:/picture/008/save_picture_642015.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636868.jpg" />
+  <img src="Z:/picture/008/save_picture_636868.jpg" />
 </div>
 
 
@@ -573,113 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CEB1806A51FA438C017E90A261CAFD1059ECC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033660   (636272) от 12.07.2016
-
-Жан Кокто | Карманный театр (1988) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жан Кокто - "изумительной души человек",- по словам Эдит Пиаф. Он был драматургом, поэтом, писателем, художником и актером, один из самых своеобразных представителей французской культуры хх века. Он любил актеров и написал для них одноактные пьессы-монологи. Вы услышите монологи, посвященные Эдит Пиаф, Жану Марэ, Анни Маньяни. Когд-то эти великие актеры (   Читать дальше...   )Жанр: КлассикаПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858C33AD98843BC53740ED2AD02A8C25015E47E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543183   (633560) от 09.04.2022
-
-Владимир Набоков | Приглашение на казнь (2022) [MP3, Владимир Солдатов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний берлинский роман Набокова и грозное предупреждение не только современникам, но и потомкам.
-
-Главному герою романа Цинциннату Ц. объявляют смертный приговор. Его обвиняют в страшнейшем из преступлений, настолько редком и ужасном, что даже сам он не может его назвать, предпочитая иносказательное «непрозрачность». Цинциннат отправляется в свою камеру в огромную (   Читать дальше...   )Жанр: Литература 20 века, Русская классикаПродолжительность: 06:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B81CC7BC8918833A9F52F3A004B02A1539E7E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143747   (633016) от 19.06.2017
-
-Иван Гончаров | Обломов (2017) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633016.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пока останется хоть один русский – до тех пор будут помнить Обломова» И.С. Тургенев
-Когда в 1859 году вышел в свет роман И. А. Гончарова «Обломов», читатели вряд ли догадывались, что держат в руках одну из «краеугольных» русских книг. Гончаров не только показал удивительный, парадоксальный тип русского человека, но и сделал его имя нарицательным, определив такой (   Читать дальше...   )Жанр: Русская классическая литератураИздательство: ВИМБОПродолжительность: 24:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE51E9598A3C48EA7E97A002C735B717FCA32C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219002   (630871) от 15.07.2010
-
-Иван Бунин | Повести и рассказы [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит повести и рассказы великого русского писателя, первого русского лауреата Нобелевской премии по литературе,Жанр: Повесть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023A6CEFF2A786B54ED477E25AD8FDDD707887C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1254084   (377265) от 12.10.2018
+
+София Прекрасная / Sofia the First (2017) WEB-DL [H.264/720p-LQ] (Сезон 4, серий 26 из 26) [UKR, EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая девочка, которая скоро станет принцессой, снова приглашает в гости своих лучших друзей! Тебя ждут музыка, веселье и волшебство!
+Какая девочка не мечтает однажды проснуться принцессой! И прежде чем София сможет занять законное место на троне, вас ждут удивительные приключения: представление в зачарованном цирке, знакомство с ручным дракончиком и полет на (   Читать дальше...   )Производство: СШАЖанр: мультфильм, мюзикл, фэнтези, семейныйРежиссер: Джэми Митчелл, Сэм Ригел, Ларри ЛэйчлитерПеревод: ОтсутствуетОзвучка / Автор перевода: ПлюсПлюсЯзык озвучки: украинский, английскийСубтитры: отсутствуютПродолжительность: 23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EAD907CE492CF20D28E08E2204DE9A23542F8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415016   (375759) от 12.10.2020
+
+Новые приключения Бэтмена / The New Batman Adventures (1997-1999) BDRip [H.264] (сезон 1-2, серии 01-24 из 24)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_375759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сериала "Бэтмен" 1992 года. Сюжет сериала больше фокусируется на помощниках Бэтмена — Робине, Найтвинге и Бэтгёрл. Помимо основных персонажей в мультфильме появляются и «приглашённые звёзды»: Супергёрл, Электра, демон Этриган и Крипер, персонажи, позже получившие полноценное развитие в Лиге Справедливости (Justice League Animated) и Безграничной (   Читать дальше...   )Производство: США / Warner Bros. AnimationЖанр: Рисованная анимация, ПриключенияРежиссер: Дэн Риба, Курт Геда, Батч ЛукичПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 24 серий по ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9259CBD009C9DFF87A8B977C33E40CD6292C5631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404303   (375618) от 12.10.2020
 
 Звездный путь: Нижние палубы / Star Trek: Lower Decks (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) LostFilm (обновляемая)
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375618.jpg" />
+  <img src="Z:/picture/008/save_picture_375618.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374763.jpg" />
+  <img src="Z:/picture/008/save_picture_374763.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373655.jpg" />
+  <img src="Z:/picture/008/save_picture_373655.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372353.jpg" />
+  <img src="Z:/picture/008/save_picture_372353.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371961.jpg" />
+  <img src="Z:/picture/008/save_picture_371961.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369664.jpg" />
+  <img src="Z:/picture/008/save_picture_369664.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369654.jpg" />
+  <img src="Z:/picture/008/save_picture_369654.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369529.jpg" />
+  <img src="Z:/picture/008/save_picture_369529.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369436.jpg" />
+  <img src="Z:/picture/008/save_picture_369436.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367393.jpg" />
+  <img src="Z:/picture/008/save_picture_367393.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367380.jpg" />
+  <img src="Z:/picture/008/save_picture_367380.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367379.jpg" />
+  <img src="Z:/picture/008/save_picture_367379.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367251.jpg" />
+  <img src="Z:/picture/008/save_picture_367251.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365906.jpg" />
+  <img src="Z:/picture/008/save_picture_365906.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365404.jpg" />
+  <img src="Z:/picture/008/save_picture_365404.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364741.jpg" />
+  <img src="Z:/picture/008/save_picture_364741.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362371.jpg" />
+  <img src="Z:/picture/008/save_picture_362371.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362163.jpg" />
+  <img src="Z:/picture/008/save_picture_362163.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361010.jpg" />
+  <img src="Z:/picture/008/save_picture_361010.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359798.jpg" />
+  <img src="Z:/picture/008/save_picture_359798.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359127.jpg" />
+  <img src="Z:/picture/008/save_picture_359127.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358565.jpg" />
+  <img src="Z:/picture/008/save_picture_358565.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358386.jpg" />
+  <img src="Z:/picture/008/save_picture_358386.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358182.jpg" />
+  <img src="Z:/picture/008/save_picture_358182.jpg" />
 </div>
 
 
@@ -621,61 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D50568F3A990A4D78A40CEF259DD261D6ACCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755239   (355585) от 03.11.2014
-
-Арчер / Спецагент Арчер / Archer (2014) WEB-DLRip (Сезон-5 / Серии 1-13 из 13) NewStudio
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном шпионском агенстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Жанр: Мультфильм, боевик, комедия, для взрослыхРежиссер: Адам Рид, Брайан ФордниАктеры: Х. Джон Бенжамин, Джуди Грир, Эмбер Нэш, Крис Парнелл, Аиша Тайлер, Джессика Уолтер, Адам Рид и др.Перевод: Многоголосый закадровый, профессиональный - Кубик в кубе & Бяко РекордсОзвучка: Руслан Габидуллин, Константин Погодаев, Ольга Кравцова, Анна ТухФормат: AVIПродолжительность: ~00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC194870BA774BA2505D05444D95FB3449562F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577465   (354342) от 20.11.2012
-
-Звёздные Войны: Войны Клонов / Star Wars: The Clone Wars (2008-2011) WEB-DLRip (Сезоны 1-4, серий 87 из 87)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354342.jpg" />
-</div>
-
-
-###  Подробнее
-
-На передовых позициях межгалактической войны Добра и Зла — снова любимые герои: Анакин Скайуокер, Оби-Ван Кеноби и Падме Амидала, а также присоединившийся к ним падаван Анакина, Асока.
-Противостоящие им злодеи — Палпатин, граф Дуку и генерал Гривус — вынашивают план захвата Галактики. Начинается последняя схватка, и судьбы Вселенной вверены рыцарям-джедаям. Их подвиги станут самыми яркими эпизодами масштабных битв и подарят множество удивительных открытий.
-
-Все сезоны разбиты по папкам, так что вы можете не качать все сезоны по-отдельности. Не пугайтесь такого большого веса.Жанр: Компьютерная анимация, Приключения, ДетскийРежиссер: Дэйв Филони, Джастин РиджВ ролях: Ди Брэдли Бэйкер, Йен Эберкромби, Грег Эллис, Катрин Табер, Энтони Дэниелс, Ника Футтерман, Том Кэйн, Кристофер Ли, Мэттью Вуд, Эшли ДрейнПерсонажи: Все персонажи вселенной Star WarsПеревод: Многоголосый закадровыйПродолжительность: 00:23:00  каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3F7F771583695663F56BD409A4E7260B9D4B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1782510   (26081) от 01.03.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (28.02.2025) WEBRip [H.264/1080p] (сезон 21, выпуск 01)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу, которое более чем за 15 лет своего существования изменило представление о юморе! Более 700 выпусков, тысячи номеров, миллионы шуток и зрителей по всему миру. Comedy Club — это всегда актуальные темы, эксперименты с юмором и топовые гости. Смотрите и смейтесь вместе с любимыми резидентами!
+В этом выпуске Comedy Club: Андрей Аверин, Зураб Матуа, Дмитрий Сорокин (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Гарик Харламов, Женя Синяков, Тимур Батрутдинов, Иван Половинкин, Демис Карибидис, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BCF1A3B0324CFE54FCCF59BD5077C9B6C1C584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782402   (25812) от 04.03.2025
+
+Уральские пельмени. Обыкновенное чадо (2025.02.28) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42B9058FDFE50738B449EA0D3E8A4DAA03D346D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783759   (25442) от 07.03.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2025.03.07) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1468956D3881B720307EDD040CABA5E81E8264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783782   (25390) от 08.03.2025
 
 Наша Russia. 8 марта (2025) SATRip
@@ -6,7 +85,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25390.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25292.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25256.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25249.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24742.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24738.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24621.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24002.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23878.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23269.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23119.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22526.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22353.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21794.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21698.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21647.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21439.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21066.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20960.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20915.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20798.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20331.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20203.jpg" />
 </div>
 
 
@@ -598,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B781FC87FCE614F47B379E1EE869384F09AFBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794456   (19940) от 29.04.2025
-
-Уральские пельмени. Лор уполномочен заявить (07.03.2025) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средний возраст зрителей 36,6. Зрачки от смеха расширены. Дыхание от хохота неровное. На руках покраснения от аплодисментов.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF3419D2ED5DB6CF863F6C31DFC74E6DD44F431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794458   (19939) от 29.04.2025
-
-Уральские пельмени. В рагу не пожелаешь (14.03.2025) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сытые и смешные артисты... Для голодных до юмора зрителей... Приготовили кое-что вкусненькое в новой программе «В РАГУ НЕ ПОЖЕЛАЕШЬ» от Шоу «Уральские Пельмени»!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779F246F765C978DCEE82A4359577F8F5D182404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794460   (19938) от 29.04.2025
-
-Уральские пельмени. Лежачий патруль (11.04.2025) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продавленный диван - это  уют. Сланцы с носками - это стиль. А вытянутые коленки на трико - это стабильность.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0493CE012B3E2D30D1A236257DA5AD5562B133D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

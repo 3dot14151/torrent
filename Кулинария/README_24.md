@@ -1,3 +1,31 @@
+###  Публикация: 1280265   (761863) от 02.02.2019
+
+Пол Аллам, Дэвид МакГиннесс | Все сладкое. Превосходные рецепты из легендарной кондитерской (2019) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761863.jpg" />
+</div>
+
+
+###  Подробнее
+
+От самых простейших кексов до изысканных пирожных, паев, маслянистых и рассыпчатых круассанов и датской выпечки: книга "Все сладкое" от легендарной австралийской пекарни Bourke Street Bakery представляет вам результаты многих лет проб, экспериментов, совершенствования и улучшения секретных рецептов.
+
+"Все сладкое" - сборник идеальных рецептов (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3614B541F3BD424DA6E728E34D096A3AC8FAA404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522061   (761644) от 05.01.2022
 
 Джереми Торз, Стивен Макатония | Настоящий свежий кофе. Как выбрать, обжарить, смолоть и приготовить идеальную чашку (2021) [PDF]
@@ -6,7 +34,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761644.jpg" />
+  <img src="Z:/picture/008/save_picture_761644.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761379.jpg" />
+  <img src="Z:/picture/008/save_picture_761379.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761367.jpg" />
+  <img src="Z:/picture/008/save_picture_761367.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760719.jpg" />
+  <img src="Z:/picture/008/save_picture_760719.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759711.jpg" />
+  <img src="Z:/picture/008/save_picture_759711.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759035.jpg" />
+  <img src="Z:/picture/008/save_picture_759035.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757402.jpg" />
+  <img src="Z:/picture/008/save_picture_757402.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757347.jpg" />
+  <img src="Z:/picture/008/save_picture_757347.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757343.jpg" />
+  <img src="Z:/picture/008/save_picture_757343.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757338.jpg" />
+  <img src="Z:/picture/008/save_picture_757338.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756921.jpg" />
+  <img src="Z:/picture/008/save_picture_756921.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756101.jpg" />
+  <img src="Z:/picture/008/save_picture_756101.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755666.jpg" />
+  <img src="Z:/picture/008/save_picture_755666.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754961.jpg" />
+  <img src="Z:/picture/008/save_picture_754961.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754596.jpg" />
+  <img src="Z:/picture/008/save_picture_754596.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754477.jpg" />
+  <img src="Z:/picture/008/save_picture_754477.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754471.jpg" />
+  <img src="Z:/picture/008/save_picture_754471.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754376.jpg" />
+  <img src="Z:/picture/008/save_picture_754376.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753661.jpg" />
+  <img src="Z:/picture/008/save_picture_753661.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ Tefal | Книга рецептов для йогуртницы Tefal (2016) [PD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753631.jpg" />
+  <img src="Z:/picture/008/save_picture_753631.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753586.jpg" />
+  <img src="Z:/picture/008/save_picture_753586.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753582.jpg" />
+  <img src="Z:/picture/008/save_picture_753582.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753580.jpg" />
+  <img src="Z:/picture/008/save_picture_753580.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751523.jpg" />
+  <img src="Z:/picture/008/save_picture_751523.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750207.jpg" />
+  <img src="Z:/picture/008/save_picture_750207.jpg" />
 </div>
 
 
@@ -648,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7B5FF1F68C1A114E6F12EC839574B8BC41A542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281712   (749701) от 09.02.2019
-
-Владимир Давыдов и др. | Лучшие американские пиццы (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все любят пиццу! И любят о ней говорить, ведь пицца – это самое продаваемое в мире блюдо. В книге "Лучшие пиццы Америки" Владимир Давыдов с соавторами описали тесто и пиццы в регионах Америки – от Детройта до Чикаго, от Нью-Йорка до Калифорнии, со всеми возможными вариантами соусов, сыров, ингредиентов и топпингов. Из 5 млрд. пицц 3 млрд. в год выпекаются (   Читать дальше...   )Жанр: Кулинария, Малый бизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875B8E80F3E17E18A34DC358A8A4C17E2BCCDE9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

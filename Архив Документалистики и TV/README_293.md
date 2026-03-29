@@ -1,3 +1,164 @@
+###  Публикация: 1188383   (275009) от 02.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 1-й Этап. Эстерсунд (Швеция). Женщины. Спринт (01.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 декабря 2017 года, пятница. 19:45 МСК
+1-й этап Кубка Мира по биатлону 2017-2018. Эстерсунд (Швеция)
+Женщины. Спринт 7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7AC1894C08CC784A1CF4A4F7E5984085822EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337443   (274871) от 10.11.2019
+
+Хоккей. НХЛ 2019-2020. Чикаго Блэкхокс - Питтсбург Пингвинз (09.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274871.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2019 года, воскресенье 03:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 653 зрителя (100 % при вместимости 18 673)
+Главный судья: Грэм Скиллитер (Канада); Главный судья: Кевин Поллок (Кинкардин, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A099836FB33EF2864CFD67E22F2C28968A34F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188480   (274870) от 02.12.2017
+
+Футбол. Чемпионат Мира 2018. Финальный турнир. Жеребьевка (01.12.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 декабря 2017 года, пятница. 18:00 МСК
+Чемпионат мира по футболу 2018 — 21-й чемпионат мира по футболу ФИФА, финальная часть которого пройдёт в России с 14 июня по 15 июля 2018 года. Россия в первый раз в своей истории станет страной-хозяйкой мирового чемпионата по футболу, кроме того, он впервые будет проведён в Восточной Европе. Проведение чемпионата запланировано (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: Церемония, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2C77A596F2CEDDD9173F9295E745D29821FA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337386   (274857) от 10.11.2019
+
+NASCAR Xfinity Series 2019. Этап 32. Desert Diamond West Valley Casino 200. Гонка (09.11.2019) IPTV [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274857.jpg" />
+</div>
+
+
+###  Подробнее
+
+32 этап NASCAR Xfinity Series 2019 на трассе ISM Raceway.Телекомпания: NBC SportsЖанр: АвтоспортПеревод: отсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B459400E145726CBC29B8AC50C1F377525571CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337381   (274809) от 10.11.2019
+
+European Rally Championship (ERC) 2019. Rally Hungary / Этап 8. Венгрия. День 1 (09.11.19) IPTV [H.264/1080i-LQ] [RU, EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274809.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 этап European Rally Championship (ERC) Rally Hungary в Венгрии. День 1.Телекомпания: Eurosport 2 HDЖанр: Автоспорт, РаллиЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADD74D12B569DE8B008A184111496567DD5AC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273684   (274808) от 22.12.2010
+
+Нальчикский капкан (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274808.jpg" />
+</div>
+
+
+###  Подробнее
+
+3-14 октября 2005 года в Нальчике группа боевиков численностью в несколько сотен человек попыталась захватить основные объекты силовых ведомств и государственной власти Кабардино-Балкарии. Благодаря слаженным действиям личного состава МВД, ФСБ и УФСИН нападение удалось успешно отбить.Жанр: ТелепередачаПеревод: ОригинальныйПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2323584626802E8C84F7E80E1069F4A09B179F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337376   (274539) от 10.11.2019
 
 Смешанные единоборства. UFC Fight Night 163: Full Event. Zabit vs. Kattar (09.11.2019) WEB-DLRip [H.264/720p-LQ] [hand made 50fps] [EN]
@@ -6,7 +167,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274539.jpg" />
+  <img src="Z:/picture/008/save_picture_274539.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274302.jpg" />
+  <img src="Z:/picture/008/save_picture_274302.jpg" />
 </div>
 
 
@@ -60,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274133.jpg" />
+  <img src="Z:/picture/008/save_picture_274133.jpg" />
 </div>
 
 
@@ -89,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274132.jpg" />
+  <img src="Z:/picture/008/save_picture_274132.jpg" />
 </div>
 
 
@@ -118,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273849.jpg" />
+  <img src="Z:/picture/008/save_picture_273849.jpg" />
 </div>
 
 
@@ -144,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273819.jpg" />
+  <img src="Z:/picture/008/save_picture_273819.jpg" />
 </div>
 
 
@@ -170,7 +331,7 @@ NG: Неуловимая росомаха / Phantom wolverine (2010) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273805.jpg" />
+  <img src="Z:/picture/008/save_picture_273805.jpg" />
 </div>
 
 
@@ -196,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273760.jpg" />
+  <img src="Z:/picture/008/save_picture_273760.jpg" />
 </div>
 
 
@@ -224,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273759.jpg" />
+  <img src="Z:/picture/008/save_picture_273759.jpg" />
 </div>
 
 
@@ -252,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273758.jpg" />
+  <img src="Z:/picture/008/save_picture_273758.jpg" />
 </div>
 
 
@@ -281,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273757.jpg" />
+  <img src="Z:/picture/008/save_picture_273757.jpg" />
 </div>
 
 
@@ -309,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273756.jpg" />
+  <img src="Z:/picture/008/save_picture_273756.jpg" />
 </div>
 
 
@@ -337,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273755.jpg" />
+  <img src="Z:/picture/008/save_picture_273755.jpg" />
 </div>
 
 
@@ -365,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273753.jpg" />
+  <img src="Z:/picture/008/save_picture_273753.jpg" />
 </div>
 
 
@@ -394,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273751.jpg" />
+  <img src="Z:/picture/008/save_picture_273751.jpg" />
 </div>
 
 
@@ -422,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273750.jpg" />
+  <img src="Z:/picture/008/save_picture_273750.jpg" />
 </div>
 
 
@@ -451,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273749.jpg" />
+  <img src="Z:/picture/008/save_picture_273749.jpg" />
 </div>
 
 
@@ -480,7 +641,7 @@ European Rally Championship (ERC) 2019. Rally Hungary / Этап 8. Венгри
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273703.jpg" />
+  <img src="Z:/picture/008/save_picture_273703.jpg" />
 </div>
 
 
@@ -506,7 +667,7 @@ NASCAR-2019. 35-й Этап. Финикс, Аризона. Гонка / Monster 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273619.jpg" />
+  <img src="Z:/picture/008/save_picture_273619.jpg" />
 </div>
 
 
@@ -532,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273602.jpg" />
+  <img src="Z:/picture/008/save_picture_273602.jpg" />
 </div>
 
 
@@ -546,178 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC4A63464339B2365AE55F7F618FFDB6E614C4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265496   (273103) от 29.11.2018
-
-Санный спорт. Кубок мира 2018-2019. Инсбрук (Австрия). 1-й Этап. Женщины (24.11.2018) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273103.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2018 года
-Кубок мира по санному спорту 2018-2019. 1-й Этап. Инсбрук (Австрия)
-Женщины
-Tрек: Олимпийский санно-бобслейный центр Инсбрук (Иглс, Австрия)Телекомпания: FIL TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF64FCAF6ABD543386960980B64E6617F4E3446C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083968   (272652) от 17.12.2016
-
-Хоккей. Еврохоккейтур 2016-2017. Кубок Первого канала. 1-й тур. Швеция — Россия (15.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272652.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 декабря 2016, четверг. 19:00 МСК
-Еврохоккейтур 2016-2017. Кубок Первого канала
-1-й тур
-(   Читать дальше...   )Телекомпания: 1 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396B7B65F93FF6E297F1FCDA1FE3864F3D88F349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337845   (272639) от 12.11.2019
-
-Хоккей. НХЛ 2019-2020. Аризона Койотис - Вашингтон Кэпиталз (11.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272639.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 ноября 2019 года, вторник 03:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100 % при вместимости 18 506)
-Главный судья: Джейк Бренк (США); Главный судья: Фредерик Л'Экюйе (Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E87C19099B0194D27BAFF2BC8C46E765BB74442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188897   (272541) от 04.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Лейк-Луиз (Канада). Женщины. Скоростной спуск (02.12.2017) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272541.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 декабря 2017 года, суббота. 23:45 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Лейк-Луиз (Канада).
-Женщины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1648D8708E36AE1436955C9FB976951D074FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266056   (272076) от 30.11.2018
-
-Лыжные гонки. Кубок мира 2018-2019. 1-й Этап. Рука (Финляндия). Женщины. Индивидуальная гонка 10 км. Классический стиль (25.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272076.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 ноября 2018 года, воскресенье. 12:45 МСК
-1-й Этап Кубока Мира по лыжным гонкам 2018-2019. Рука (Финляндия).
-Женщины. Индивидуальная гонка 10 км. Классический стильТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A9EFC045934AD99A3C78EC4E485828D6169D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266046   (272072) от 30.11.2018
-
-Лыжные гонки. Кубок мира 2018-2019. 1-й Этап. Рука (Финляндия). Женщины, Мужчины. Спринт. Классический стиль. Финалы (24.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272072.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2018 года, суббота. 14:30 МСК
-1-й Этап Кубока Мира по лыжным гонкам 2018-2019. Рука (Финляндия).
-Женщины, Мужчины.
-Спринт. Классический стиль. ФиналыТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A2E7D361C0BC1DCC86402600156894FE54E91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

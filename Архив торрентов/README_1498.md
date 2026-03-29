@@ -6,7 +6,7 @@ IsMyHdOK 3.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712537.jpg" />
+  <img src="Z:/picture/008/save_picture_712537.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LensFlare Studio 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712536.jpg" />
+  <img src="Z:/picture/008/save_picture_712536.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712530.jpg" />
+  <img src="Z:/picture/008/save_picture_712530.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_712512.jpg" />
+  <img src="Z:/picture/005/save_picture_712512.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Dawn of Man (2019) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712500.jpg" />
+  <img src="Z:/picture/008/save_picture_712500.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712497.jpg" />
+  <img src="Z:/picture/008/save_picture_712497.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Windows 10 (v1809) x64 HSL/PRO by KulHanter v19 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712484.jpg" />
+  <img src="Z:/picture/008/save_picture_712484.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ USDownloader 1.3.5.9 Portable (02.05.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712472.jpg" />
+  <img src="Z:/picture/008/save_picture_712472.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Leap 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712461.jpg" />
+  <img src="Z:/picture/008/save_picture_712461.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v4 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712447.jpg" />
+  <img src="Z:/picture/008/save_picture_712447.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ BusyCal 3.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712441.jpg" />
+  <img src="Z:/picture/008/save_picture_712441.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Slimjet 14.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712440.jpg" />
+  <img src="Z:/picture/008/save_picture_712440.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712409.jpg" />
+  <img src="Z:/picture/008/save_picture_712409.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ OmniGraffle Pro 7.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712403.jpg" />
+  <img src="Z:/picture/008/save_picture_712403.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ WinRAR 5.70 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712392.jpg" />
+  <img src="Z:/picture/008/save_picture_712392.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712361.jpg" />
+  <img src="Z:/picture/008/save_picture_712361.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712356.jpg" />
+  <img src="Z:/picture/008/save_picture_712356.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ OmniFocus Pro 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712350.jpg" />
+  <img src="Z:/picture/008/save_picture_712350.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712315.jpg" />
+  <img src="Z:/picture/008/save_picture_712315.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712313.jpg" />
+  <img src="Z:/picture/008/save_picture_712313.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712311.jpg" />
+  <img src="Z:/picture/008/save_picture_712311.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712309.jpg" />
+  <img src="Z:/picture/008/save_picture_712309.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712307.jpg" />
+  <img src="Z:/picture/008/save_picture_712307.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712305.jpg" />
+  <img src="Z:/picture/008/save_picture_712305.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712303.jpg" />
+  <img src="Z:/picture/008/save_picture_712303.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Unknown Reality - Water EP (2014) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712299.jpg" />
+  <img src="Z:/picture/008/save_picture_712299.jpg" />
 </div>
 
 

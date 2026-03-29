@@ -1,3 +1,83 @@
+###  Публикация: 129292   (852743) от 21.04.2020
+
+Чингисхан / Cheng Ji Si Han / Genghis Khan (2004) DVDRip (сезон 1, серии 1-30 из 30)
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852743.jpg" />
+</div>
+
+
+###  Подробнее
+
+800 лет назад монгольская степь была заселена множеством племен, самыми крупными из которых были кераиты, меркиты, татары, найманы, монголы. Эти 5 племен были независимыми и не подчинялись друг другу. Династия Цзинь в отношении них вела политику 'разделяй и властвуй', проводила разбойные набеги, сокращая их население. Bражда привела к длительным войнам как на территории (   Читать дальше...   )Производство: Китай, МонголияЖанр: БоевикРежиссер: Чжу ВэньцзеАктеры: Ба Лин, Сажэнь Гаова, Чжао ХэнсюаньПеревод: Многоголосый закадровыйПродолжительность: 30 серий по 40 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6327A2C4C122EF233272053B1813D8634FCAF3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863478   (823947) от 25.03.2015
+
+Хищник / Mozu (2014) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) (ViruseProject)
+
+>>След.
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эхо сирен разносится по Токио холодным зимним вечером. Пыль и обломки оседают на залитый кровью бетон, а газеты и телеэкраны по всей стране начинают пестрить заголовками о террористическом акте, затронувшем сердца и жизни многих людей.
+Кураки, суровый и упрямый инспектор из первого отдела Управления Общественной Безопасности, встает на путь бесконечно запутанной (   Читать дальше...   )Производство: ЯпонияЖанр: триллер, драмаРежиссер: Эйитиро ХасумиАктеры: Хидэтоси Нисидзима, Теруюки Кагава, Йоко Маки, Масахиро Тода, Кацухиса Намасе, Юсукэ Хираяма, Синго Цуруми, Ацуси Ито и др.Перевод: Многоголосый закадровый, профессиональный - ViruseProjectОзвучка: Татьяна Романовская, Валерий Смекалов, Дмитрий Кравченко, Алексей КизубПродолжительность: (1) 01:31:05 + (9) 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F8AFE0964A096B98E12F3DA2014B0F91DBB098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881567   (822326) от 26.03.2015
+
+Хищник / Mozu / Shrike (2014) HDTVRip (сезон 1, серии 1-10 из 10) (ViruseProject)
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эхо сирен разносится по Токио холодным зимним вечером. Пыль и обломки оседают на залитый кровью бетон, а газеты и телеэкраны по всей стране начинают пестрить заголовками о террористическом акте, затронувшем сердца и жизни многих людей.
+Кураки, суровый и упрямый инспектор из первого отдела Управления Общественной Безопасности, встает на путь бесконечно запутанной (   Читать дальше...   )Производство: Япония, WOWOW, TBSЖанр: триллер, драма, детективРежиссер: Эйчиро ХасумиАктеры: Хидэтоси Нисидзима, Теруюки Кагава, Йоко Маки, Масахиро Тода, Кацухиса Намасе, Юсукэ Хираяма, Синго Цуруми, Ацуси Ито и др.Перевод: Многоголосый закадровый, профессиональный - ViruseProjectОзвучка: Татьяна Романовская, Валерий Смекалов, Дмитрий Кравченко, Алексей КизубПродолжительность: 01:31:05 + 9 x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5424A7AB390225D6FDF9FCAF663AA884B6948C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503753   (817213) от 20.10.2021
 
 Игра в кальмара / Ojingeo geim / Squid Game (2021) WEB-DL [H.265/1080p-LQ] [HDR, 10-bit]  (сезон 1, серии 1-9 из 9) HDrezka
@@ -6,7 +86,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817213.jpg" />
+  <img src="Z:/picture/008/save_picture_817213.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817206.jpg" />
+  <img src="Z:/picture/008/save_picture_817206.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805462.jpg" />
+  <img src="Z:/picture/008/save_picture_805462.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799352.jpg" />
+  <img src="Z:/picture/008/save_picture_799352.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798944.jpg" />
+  <img src="Z:/picture/008/save_picture_798944.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788499.jpg" />
+  <img src="Z:/picture/008/save_picture_788499.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771007.jpg" />
+  <img src="Z:/picture/008/save_picture_771007.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763624.jpg" />
+  <img src="Z:/picture/008/save_picture_763624.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754818.jpg" />
+  <img src="Z:/picture/008/save_picture_754818.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753011.jpg" />
+  <img src="Z:/picture/008/save_picture_753011.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735273.jpg" />
+  <img src="Z:/picture/008/save_picture_735273.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734823.jpg" />
+  <img src="Z:/picture/008/save_picture_734823.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722485.jpg" />
+  <img src="Z:/picture/008/save_picture_722485.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720534.jpg" />
+  <img src="Z:/picture/008/save_picture_720534.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703072.jpg" />
+  <img src="Z:/picture/008/save_picture_703072.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631358.jpg" />
+  <img src="Z:/picture/008/save_picture_631358.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631225.jpg" />
+  <img src="Z:/picture/008/save_picture_631225.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617991.jpg" />
+  <img src="Z:/picture/008/save_picture_617991.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616254.jpg" />
+  <img src="Z:/picture/008/save_picture_616254.jpg" />
 </div>
 
 
@@ -500,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614579.jpg" />
+  <img src="Z:/picture/008/save_picture_614579.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613033.jpg" />
+  <img src="Z:/picture/008/save_picture_613033.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612781.jpg" />
+  <img src="Z:/picture/008/save_picture_612781.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611125.jpg" />
+  <img src="Z:/picture/008/save_picture_611125.jpg" />
 </div>
 
 
@@ -594,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1306740761B4238DA5BDF92B9E5663D4B5737F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545756   (609371) от 22.04.2022
-
-Даль-ли и камджатхан / Далли и дерзкий принц / Dalriwa Gamjatang / Dali and the Cocky Prince (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16) SOFTBOX
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка из хорошей семьи Ким Даль-ли работает в художественной галерее приглашённым экспертом. Она говорит на семи языках, но готовка и уборка — совсем не её занятия. Семья Чин Му-хака владеет сетью ресторанов, их бизнес начался с картофельно-свиного супа камджатхан. Хотя парень не имеет достойного образования, зато обладает предпринимательской жилкой. Молодые люди (   Читать дальше...   )Производство: Южная Корея, Copus Korea, KBS Drama Production, Monster UnionЖанр: мелодрама, комедияРежиссер: Ли Джон-сопАктеры: Пак Кю-ён, Ким Мин-джэ, Квон Юль, Ёну, Со Джон-ён, Хван Хи, У Хи-джин, Ан Гиль-ган, Хван Бо-ра, Ан Сэ-хаПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A95CDB9DB69448A7802ED301F1CBCD0A4E19B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546671   (604242) от 25.04.2022
-
-Плохой и сумасшедший / Baedeu Aen Keureiji / Bad and Crazy (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) SOFTBOX
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспринципный полицейский Су-ёль достаточно быстро движется по карьерной лестнице, пока не встречает безумца по имени К, обладающего обострённым чувством справедливости — по любому поводу парень пускает в ход кулаки.Производство: Южная Корея, Studio DragonЖанр: боевик, комедия, криминалРежиссер: Ю Сон-донАктеры: Ли Дон-ук, Ви Ха-джун, Хан Джи-ын, Чха Хаг-ён, Сон Джи-ру, Ким Дэ-гон, Лим Ги-хон, Кан Э-щим, Ли Хва-рён, Чха Щи-вонПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F793002B489896D1A461EA4CAFFB8A262C8FE0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546669   (604197) от 25.04.2022
-
-Мы все мертвы / Jigeum Uri Hakgyoneun / All of Us Are Dead (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) LostFilm, Alexfilm
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604197.jpg" />
-</div>
-
-
-###  Подробнее
-
-В старшей школе города Хёсан творятся нехорошие вещи. Некоторые учащиеся, в том числе сын учителя Ли, стабильно подвергаются буллингу, а руководство школы закрывает на это глаза. Когда одну ученицу кусает лабораторный хомячок, Ли изолирует её и попадает под подозрение в похищении — пострадавшую отвозят в больницу, а учителя, несмотря на его протесты и просьбы объявить (   Читать дальше...   )Производство: Южная Корея, Film Monster Co., Kimjonghak Production Co.Жанр: ужасы, боевик, драмаРежиссер: Ли Джэ-гю, Ким Нам-суАктеры: Пак Чи-ху, Юн Чхан-ён, Чо И-хён, Пак Соломон, Ю Ин-су, Ли Ю-ми, Ким Бён-чхоль, Ли Гю-хён, Чон Бэ-су, Ли Ын-сэмПеревод: Многоголосый профессиональный (LostFilm, Alexfilm)Язык озвучки: Русский, корейский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF665D5DFF2A83920DADF7EBDA3497FDB6BD5A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

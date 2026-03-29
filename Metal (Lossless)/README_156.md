@@ -1,3 +1,89 @@
+###  Публикация: 1052929   (444249) от 12.10.2016
+
+Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [FLAC|tracks]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абсолютно новый альбом одного из самых важных представителей немецкого металкора, коллектива Heaven Shall Burn. Предыдущий альбом группы - "VETO" (2013), занял вторую сточку в германском альбомном чарте. Продюсерами нового альбома выступили гитаристы Alexander Dietz и Maik Weichert. Смикшировал альбом популярный датский продюсер и звукоинженер Tue Madsen, (   Читать дальше...   )CD1 - Original Album
+CD2 - Too Good To Steal From
+CD3 - Dark Purity MixЖанр: MetalcoreПродолжительность: 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DFC90471ECA617FC6C1AFF019943195362AA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409637   (443278) от 18.09.2020
+
+Panzerballett - Planet Z (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Metal, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prime Time (5:23)
+02. Who The Jack Is Migger (6:37)
+03. Mind Your Head (3:34)
+04. No One Is Flying The Plane (7:08)(   Читать дальше...   )Жанр: Jazz Rock, Metal, FusionПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DF1B669877EC89AA4C5A3E8BA7DBE90F9A1112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409758   (443263) от 18.09.2020
+
+Zakk Sabbath - Vertigo (2020) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath (6:18)
+02. The Wizard (4:22)
+03. Wasp/Behind The Wall Of Sleep/Bassically/NIB (10:35)
+04. Wicked World (5:12)(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CFF23AEB7689A932289DBE7F844126A5FD5F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409630   (443146) от 18.09.2020
 
 Black Moon Mother - Illusions Under the Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psychedelic Rock>
@@ -6,7 +92,7 @@ Black Moon Mother - Illusions Under the Sun (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443146.jpg" />
+  <img src="Z:/picture/008/save_picture_443146.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443027.jpg" />
+  <img src="Z:/picture/008/save_picture_443027.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ Manticora - The Black Circus Part 2 - Disclosure (2007) [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442676.jpg" />
+  <img src="Z:/picture/008/save_picture_442676.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ Manticora - The Black Circus Part 1 - Letters (2006) [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442671.jpg" />
+  <img src="Z:/picture/008/save_picture_442671.jpg" />
 </div>
 
 
@@ -122,7 +208,7 @@ Manticora - Safe (2010) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442670.jpg" />
+  <img src="Z:/picture/008/save_picture_442670.jpg" />
 </div>
 
 
@@ -151,7 +237,7 @@ After All - Cult Of Sin (2009) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442469.jpg" />
+  <img src="Z:/picture/008/save_picture_442469.jpg" />
 </div>
 
 
@@ -180,7 +266,7 @@ Obscenity - The 3rd Chapter (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442023.jpg" />
+  <img src="Z:/picture/008/save_picture_442023.jpg" />
 </div>
 
 
@@ -209,7 +295,7 @@ Obscenity - Where Sinners Bleed (2006) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442022.jpg" />
+  <img src="Z:/picture/008/save_picture_442022.jpg" />
 </div>
 
 
@@ -238,7 +324,7 @@ Entrails - World Inferno (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442013.jpg" />
+  <img src="Z:/picture/008/save_picture_442013.jpg" />
 </div>
 
 
@@ -267,7 +353,7 @@ Paradise Lost - Medusa (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441513.jpg" />
+  <img src="Z:/picture/008/save_picture_441513.jpg" />
 </div>
 
 
@@ -296,7 +382,7 @@ Voyage In Solitude - Through the Mist with Courage and Sorrow (2020) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441029.jpg" />
+  <img src="Z:/picture/008/save_picture_441029.jpg" />
 </div>
 
 
@@ -325,7 +411,7 @@ Face Off - 1 Album, 1 EP (Massive, Machines) (2017-2020) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441026.jpg" />
+  <img src="Z:/picture/008/save_picture_441026.jpg" />
 </div>
 
 
@@ -354,7 +440,7 @@ Wolfredt - Tides (2020) Instrumental [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440965.jpg" />
+  <img src="Z:/picture/008/save_picture_440965.jpg" />
 </div>
 
 
@@ -383,7 +469,7 @@ Aleynmord - The Blinding Light (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440962.jpg" />
+  <img src="Z:/picture/008/save_picture_440962.jpg" />
 </div>
 
 
@@ -412,7 +498,7 @@ Melted Bodies - Enjoy Yourself (2020) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440956.jpg" />
+  <img src="Z:/picture/008/save_picture_440956.jpg" />
 </div>
 
 
@@ -441,7 +527,7 @@ Leize - Leize (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440803.jpg" />
+  <img src="Z:/picture/008/save_picture_440803.jpg" />
 </div>
 
 
@@ -470,7 +556,7 @@ Nervosa - Agony (2016) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440801.jpg" />
+  <img src="Z:/picture/008/save_picture_440801.jpg" />
 </div>
 
 
@@ -499,7 +585,7 @@ Nervosa - Downfall of Mankind (2018) Limited edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440797.jpg" />
+  <img src="Z:/picture/008/save_picture_440797.jpg" />
 </div>
 
 
@@ -528,7 +614,7 @@ Mithotyn - Carved in Stone - The Discography (2013) 3CD [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440494.jpg" />
+  <img src="Z:/picture/008/save_picture_440494.jpg" />
 </div>
 
 
@@ -556,7 +642,7 @@ The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440445.jpg" />
+  <img src="Z:/picture/008/save_picture_440445.jpg" />
 </div>
 
 
@@ -585,7 +671,7 @@ Machine Head - 9 Albums, 2 Lives (1994 - 2018) 24 CD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439638.jpg" />
+  <img src="Z:/picture/008/save_picture_439638.jpg" />
 </div>
 
 
@@ -614,7 +700,7 @@ Ereb Altor - Gastrike (2012) [WavPack|Lossless]<Viking Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438900.jpg" />
+  <img src="Z:/picture/005/save_picture_438900.jpg" />
 </div>
 
 
@@ -646,7 +732,7 @@ Scorched Oak - Withering Earth (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavyrock, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438641.jpg" />
+  <img src="Z:/picture/008/save_picture_438641.jpg" />
 </div>
 
 
@@ -660,93 +746,6 @@ Scorched Oak - Withering Earth (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavyrock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99CFE4085D26B0A49679F4E2B773C54890768AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410265   (438632) от 20.09.2020
-
-Anatomy Of - Splinters (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Web [00:06:27]
-02. Futile [00:05:11]
-03. Lungs [00:02:47]
-04. Collapsing [00:05:25](   Читать дальше...   )Жанр: Industrial Metal, Sludge, Doom MetalПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C90EF88D66ADA7EBAAA3E3A8A9B3600FC676CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410196   (438630) от 20.09.2020
-
-Chaosbay - 2 Albums / 1 EP (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy The Rise [00:03:58]
-02. Amen [00:05:29]
-03. Mediterranean [00:04:18]
-04. D.O A. [00:03:43](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 3 CD, 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E90B9F256909B1384624CD3F3E57647C5BAC4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410159   (438629) от 20.09.2020
-
-Rage - Strings To A Web (2010) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Edge of Darkness (4:33)
-02. Hunter and Prey (4:33)
-03. Into the Light (4:24)
-04. The Beggar's Last Dime (5:43)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEEB7008250A2AF4999D34493B8BB2091428B80
 ```
 
 https://mybot314.ru/tekegram_catalog/

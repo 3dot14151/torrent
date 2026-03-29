@@ -1,3 +1,29 @@
+###  Публикация: 1760250   (37428) от 13.11.2024
+
+Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра «Симулятор фермы 25» приглашает в приятную сельскую жизнь. Станете ли вы обустраивать всё в одиночку или с товарищами в совместной игре, ферма получится такой, как вам хочется. Стройте ферму у петляющих рек и исторических зерновых элеваторов в Северной Америке; в окружении прудов в Центральной Европе; или близ неонового порта, среди пышной восточноазиатской (   Читать дальше...   )Тип издания: RepackРазработчик: Giants SoftwareЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E77B0D6FCE31334C6CE3DB2886F243B3B2FB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652176   (37340) от 14.11.2024
 
 Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.0.9) Scene Tenoke
@@ -6,7 +32,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37340.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Aquarist (2024) [Ru/Multi] (20241113/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37107.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36788.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ VIDEOVERSE (2023) [En] (1.2.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36705.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.1.3) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36694.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36654.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36519.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36475.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36133.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36070.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35957.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35895.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35768.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.1.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35761.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Half Billion: Love Choice (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35661.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35596.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35544.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ DON'T SCREAM (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35376.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.25849S/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35263.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35257.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35199.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35039.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34851.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34826.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34817.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1F8F42B8B09267ABAF0E17E3817EE9E53C1285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652704   (34758) от 09.12.2024
-
-Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sun Haven – увлекательный проект, разработанный в жанре приключенческого РПГ-симулятора, который успешно включает в себя элементы песочницы и огромный выбор возможностей для игрока. События отправляют нас на просторы небольшого городка, где мы и займёмся строительством и развитием собственной фермы. Отправляйся в исследование множественных локаций, займись изучением (   Читать дальше...   )Тип издания: SceneРазработчик: Pixel Sprout StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ADF56753DEF3F444A55802DC43E41B000A1F60
 ```
 
 https://mybot314.ru/tekegram_catalog/

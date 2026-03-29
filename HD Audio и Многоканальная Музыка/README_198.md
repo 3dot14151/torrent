@@ -1,3 +1,234 @@
+###  Публикация: 1792600   (67655) от 19.04.2025
+
+Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Knows What You’ll Find? (Spriitzz Remix) [00:04:16]
+02. I Can’t Lose You (Airwolf Paradise Remix) [00:03:10]
+03. Control (Paige Tomlinson Remix) [00:05:31]
+04. So What (Prozak Remix) [00:04:01](   Читать дальше...   )Жанр: DanceПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8764281EB7BCD45DEA34AFCD08A30D969FE308AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792148   (67625) от 20.04.2025
+
+Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67625.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fighting The World
+A2. Blow Your Speakers
+A3. Carry On
+A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792775   (67621) от 20.04.2025
+
+Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67621.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-742617000027
+A2-(Sic)
+A3-Eyeless
+A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792753   (67615) от 20.04.2025
+
+Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A storm is coming (3:33)
+02. Mind reconstruction (3:32)
+03. Steps in to the future (3:47)
+04. Tempest of my soul (3:34)(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD000803331D56291D7F60995DD8773EAF4AA47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792807   (67612) от 20.04.2025
+
+Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uber das Meer (Remastered) [00:04:23]
+02. Was soll ich dir sagen (Remastered) [00:04:23]
+03. Warten auf Wunder (Remastered) [00:04:15]
+04. Bitte geh mir aus dem Weg (Remastered) [00:04:05](   Читать дальше...   )Жанр: Pop Rock, IndustrialПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B314756C624C6E78BDA27C0A938D8AA0E51CCCFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792636   (67608) от 20.04.2025
+
+Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance [00:02:33]
+02. Starburster [00:03:41]
+03. Here's The Thing [00:02:43]
+04. Desire [00:03:39](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DB2D597AF6E54FE6207A38872AC17411266833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792375   (67607) от 20.04.2025
+
+Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Through Stars [00:05:14]
+02. Damned [00:03:59]
+03. To the Dark [00:03:54]
+04. All for Sale [00:03:31](   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B3EFD5844707F9464E1E391E37DA69259004C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792754   (67600) от 20.04.2025
+
+Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visionatica - симфо-метал-группа из Франконии, Германия. Образована в 2016 году.2016 - Force Of Luna
+2019 - Enigma Fire
+2025 - Harrowing InsightЖанр: Symphonic MetalПродолжительность: 01:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1C729837506B00DA89B1728316D74ED3E3F1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792136   (67592) от 20.04.2025
 
 Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
@@ -6,7 +237,7 @@ Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67592.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67591.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Rwake - The Return Of Magik (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67590.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67589.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67588.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67586.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67585.jpg" />
 </div>
 
 
@@ -208,7 +439,7 @@ Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67584.jpg" />
 </div>
 
 
@@ -237,7 +468,7 @@ Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67583.jpg" />
 </div>
 
 
@@ -266,7 +497,7 @@ Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67581.jpg" />
 </div>
 
 
@@ -295,7 +526,7 @@ Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67578.jpg" />
 </div>
 
 
@@ -324,7 +555,7 @@ Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really lik
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67577.jpg" />
 </div>
 
 
@@ -353,7 +584,7 @@ George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67576.jpg" />
 </div>
 
 
@@ -382,7 +613,7 @@ Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67571.jpg" />
 </div>
 
 
@@ -411,7 +642,7 @@ Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67570.jpg" />
 </div>
 
 
@@ -440,7 +671,7 @@ Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67565.jpg" />
 </div>
 
 
@@ -469,7 +700,7 @@ Robin Trower - Come And Find Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67556.jpg" />
 </div>
 
 
@@ -498,7 +729,7 @@ Blue Foundation - Close To The Knife (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67547.jpg" />
 </div>
 
 
@@ -512,238 +743,6 @@ Blue Foundation - Close To The Knife (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6C77E9D4532C43CF23A120C32FFE76A036474B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792908   (67535) от 24.04.2025
-
-Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67535.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hiroshima
-A2 Dirty Fingers
-A3 Bad News
-A4 Don't Let Me Be Misunderstood(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E97D38314C79AC42D79FDA1BB4A3E1DCEE9DE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792866   (67532) от 24.04.2025
-
-Bob Roy Orchestra - Disco-Flash (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67532.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Disco-Flash (Blyskoteka)
-A2 Sarisari
-A3 Drums 16
-A4 Erebus(   Читать дальше...   )Жанр: Easy Listening, DiscoПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CC1B01DC27FBCC5FD0F191D1BA1F4C4BE8CBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793516   (67530) от 24.04.2025
-
-H.e.a.t. - Welcome To The Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disaster (3:46)
-02. Bad Time for Love (3:01)
-03. Running to You (3:04)
-04. Call My Name (4:16)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7ED2BCEA5B92BB995D5FE9D737C32BD89BC596D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793512   (67529) от 24.04.2025
-
-Art Nation - The Ascendance (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Me Free (3:32)
-02. Thunderball (4:09)
-03. Halo (4:16)
-04. Runaways (4:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51A54536E3C46D0E4D35E49EEBD61F5B9862A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793521   (67524) от 24.04.2025
-
-Machine Head - Unatøned (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LANDSCAPE ØF THØRNS (0:31)
-02. ATØMIC REVELATIØNS (3:42)
-03. UNBØUND (3:57)
-04. ØUTSIDER (3:57)(   Читать дальше...   )Жанр: Groove Metal, Thrash Metal, Alternative MetalПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28220CA46E7828440212BAA2FF0DED1DC47813B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793305   (67517) от 24.04.2025
-
-Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Inside (4:11)
-02. Retrace (3:54)
-03. Timeline (3:06)
-04. Afterglow (4:22)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00DD9CD93779C2E330E97DE35EC9DA68814BFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793051   (67516) от 24.04.2025
-
-Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Akrea - немецкая метал-группа из Эрдинга, Бавария, образована в 2004 году как "Inner Aggression". В 2008 сменила название на "Akrea". Расформирована в 2014 году.2007 - Beginning Of An Inner War (as Inner Aggression)
-2009 - Lebenslinie
-2010 - Lugenkabinett
-2013 - Stadt Der Toten TraumeЖанр: Melodic Death MetalПродолжительность: 03:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793478   (67515) от 24.04.2025
-
-Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip]<Melodic Doom, Death Metal, Gothic, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67515.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Inception
-A2 - Murder
-A3 - Fortress
-A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, Death Metal, Gothic, Doom MetalПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

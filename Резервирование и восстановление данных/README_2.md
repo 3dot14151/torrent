@@ -1,3 +1,81 @@
+###  Публикация: 1196447   (823732) от 02.01.2018
+
+Tenorshare Android Data Recovery 5.1.0.0 RePack by вовава [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tenorshare Android Data Recovery - мировой лидер по восстановлению данных из ОС Android. Программа была специально создана для восстановления контактов, сообщений, истории звонков, фотографий и видео из любых устройств Android, смартфонов или планшетов: Samsung, HTC One, Nexus 10 и др., в случае удаления, сбрасывания до заводских настроек, сброса памяти только-для-чтения, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2E6CA2DEB1D8BB09CBEAE66BA085F7BBA6446B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008641   (814817) от 18.04.2016
+
+Acronis True Image 2016 19.0.6559 + Universal Restore [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B76D39D35F7B7C57FD81EABF04E6B07BA35F212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119337   (808667) от 27.03.2017
+
+Stellar Phoenix Photo Recovery 7.0.0.0 RePack by 78Sergey [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_808667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellar Phoenix Photo Recovery - это надежный продукт для восстановления фотографий и изображений, музыки и видеофайлов, потерянных после случайного удаления или форматирования с различных устройств хранения данных, цифровых камер, карт памяти и т. Д. Возможность поиска удалённых, недоступных или отсутствующих данных в файловой системе FAT, ExFAT, и NTFS. Это компетентное (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533B618275FD8B2E468214228D0B7653238C56AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273806   (799323) от 03.01.2019
 
 7-Data Recovery Suite 4.3.0 Enterprise RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +84,7 @@
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799323.jpg" />
+  <img src="Z:/picture/008/save_picture_799323.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ iCare Format Recovery Pro 6.1.7.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794788.jpg" />
+  <img src="Z:/picture/008/save_picture_794788.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Shining Android Data Recovery 6.6.6 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794655.jpg" />
+  <img src="Z:/picture/008/save_picture_794655.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Active@ File Recovery 18.0.8 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790189.jpg" />
+  <img src="Z:/picture/008/save_picture_790189.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ FonePaw Android Data Recovery 2.6.0 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789701.jpg" />
+  <img src="Z:/picture/008/save_picture_789701.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Tenorshare Any Data Recovery Pro 5.8.0.0 RePack by tolyan76 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785724.jpg" />
+  <img src="Z:/picture/008/save_picture_785724.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ iBeesoft Data Recovery 3.4 (Repack & Portable) by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785281.jpg" />
+  <img src="Z:/picture/008/save_picture_785281.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Erelive Data Recovery 5.2.0 RePack by вовава [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780745.jpg" />
+  <img src="Z:/picture/008/save_picture_780745.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ TestDisk & PhotoRec 7.1 Beta Portable [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776599.jpg" />
+  <img src="Z:/picture/008/save_picture_776599.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776380.jpg" />
+  <img src="Z:/picture/008/save_picture_776380.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Disk Drill 1.0.0.187 Pro [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773210.jpg" />
+  <img src="Z:/picture/008/save_picture_773210.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Hetman Software Pack 16.04.2015 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750910.jpg" />
+  <img src="Z:/picture/008/save_picture_750910.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Starus Recovery Collection 19.02.13 [8in1] RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743286.jpg" />
+  <img src="Z:/picture/008/save_picture_743286.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ FonePaw Android Data Recovery 3.7.0 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742392.jpg" />
+  <img src="Z:/picture/008/save_picture_742392.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ AOMEI WinfrGUI 1.0.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734401.jpg" />
+  <img src="Z:/picture/008/save_picture_734401.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Acronis True Image 19.0.6571 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721490.jpg" />
+  <img src="Z:/picture/008/save_picture_721490.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Recuva 1.53.1087 Free [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717239.jpg" />
+  <img src="Z:/picture/008/save_picture_717239.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Raid Reconstructor 4.40 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709636.jpg" />
+  <img src="Z:/picture/008/save_picture_709636.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ RS Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702996.jpg" />
+  <img src="Z:/picture/008/save_picture_702996.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Starus Partition Recovery 3.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701170.jpg" />
+  <img src="Z:/picture/008/save_picture_701170.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Aiseesoft Data Recovery 1.0.12 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700438.jpg" />
+  <img src="Z:/picture/008/save_picture_700438.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Magic Photo Recovery 4.7 (Commercial Edition) RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700316.jpg" />
+  <img src="Z:/picture/008/save_picture_700316.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ DAEMON iTools 1.0.0.36 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696847.jpg" />
+  <img src="Z:/picture/008/save_picture_696847.jpg" />
 </div>
 
 
@@ -598,86 +676,6 @@ DAEMON iTools - отличный инструмент для синхрониз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA649E0D9D32EBD922076CA130DE84501AC9B618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221235   (696639) от 23.04.2018
-
-Amazing Any Data Recovery 8.8.8.9 RePack by вовава [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amazing Any Data Recovery гарантирует безопасное, быстрое и полное восстановление данных без потерь. Это надежное программное обеспечение для восстановления данных станет вашим лучшим помощником.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C2F5596CA0ED12C2357E00F96D89813EEABED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221807   (691049) от 26.04.2018
-
-iCare Data Recovery Pro 8.1.4 RePack by вовава [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691049.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCare Data Recovery Pro - программа для восстановления удаленных и отформатированных файлов. Утилита идеально работает с RAID-массивами и жесткими дисками, USB-носителями данных, SD-картами, картами памяти и т.д. Программа предоставляет комплексное восстановление данных для пользователей компьютеров.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEF1EC5C333EE92BFFE9D9FA0313440DC2EB316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403542   (690326) от 20.08.2020
-
-Magic Photo Recovery 4.9 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление цифровых изображений и RAW-файлов со всех типов носителей информации. Отформатировали карту памяти фотоаппарата или удалили цифровые изображения с жесткого диска? Magic Photo Recovery поможет быстро и легко восстановить любые удаленные фотографии всего несколькими нажатиями.
-Магическое восстановление изображений
-Новое программное обеспечение для восстановления (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282F8CBF8BE4492831BA0BAC629F23CE5E06D2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

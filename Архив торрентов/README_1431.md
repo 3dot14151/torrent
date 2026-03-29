@@ -6,7 +6,7 @@ Readiris Corporate 17.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728876.jpg" />
+  <img src="Z:/picture/008/save_picture_728876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hedge 19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728874.jpg" />
+  <img src="Z:/picture/008/save_picture_728874.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Balearic Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728870.jpg" />
+  <img src="Z:/picture/008/save_picture_728870.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Muz - ХитS from AGR (2011) [MP3|320 kbps]<Pop/Club >
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728840.jpg" />
+  <img src="Z:/picture/008/save_picture_728840.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Privacy Eraser Free 4.13.0 Build 2002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728829.jpg" />
+  <img src="Z:/picture/008/save_picture_728829.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ James Blake - The Colour In Anything (2016) [MP3|320 кб/с] <Experimental, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728821.jpg" />
+  <img src="Z:/picture/008/save_picture_728821.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728819.jpg" />
+  <img src="Z:/picture/008/save_picture_728819.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ CoolUtils Total Audio Converter 6.1.0.259 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728816.jpg" />
+  <img src="Z:/picture/008/save_picture_728816.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Wise Care 365 Pro 6.1.8.605 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728813.jpg" />
+  <img src="Z:/picture/008/save_picture_728813.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Wireshark 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728812.jpg" />
+  <img src="Z:/picture/008/save_picture_728812.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Perfectly Clear WorkBench 4.0.1.2233 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728809.jpg" />
+  <img src="Z:/picture/008/save_picture_728809.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adobe Character Animator 2022 22.2.0.62 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728799.jpg" />
+  <img src="Z:/picture/008/save_picture_728799.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - ROXO 01 (2015) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728796.jpg" />
+  <img src="Z:/picture/008/save_picture_728796.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Flux 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728795.jpg" />
+  <img src="Z:/picture/008/save_picture_728795.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - ROXO 03 (2016) Monster Jinx [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Fu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728793.jpg" />
+  <img src="Z:/picture/008/save_picture_728793.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728786.jpg" />
+  <img src="Z:/picture/008/save_picture_728786.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Iboga Records - Set:27 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728782.jpg" />
+  <img src="Z:/picture/008/save_picture_728782.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Electrozombies - Undead And Open-Minded - Volume 2 (2017) (2017) [MP3|320 K
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728779.jpg" />
+  <img src="Z:/picture/008/save_picture_728779.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ K-Lite Codec Pack Update 13.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728778.jpg" />
+  <img src="Z:/picture/008/save_picture_728778.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Electrozombies - Undead And Open-Minded - Volume 1 (2016) [MP3|320 Kbps] <S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728777.jpg" />
+  <img src="Z:/picture/008/save_picture_728777.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VueScan Pro 9.6.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728769.jpg" />
+  <img src="Z:/picture/008/save_picture_728769.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ XYplorer 19.70.0000 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728761.jpg" />
+  <img src="Z:/picture/008/save_picture_728761.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Cosmic Drum and Bass (2019) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728760.jpg" />
+  <img src="Z:/picture/008/save_picture_728760.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ HyperDock 1.8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728759.jpg" />
+  <img src="Z:/picture/008/save_picture_728759.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Macrium Reflect v7.2 .4063 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728758.jpg" />
+  <img src="Z:/picture/008/save_picture_728758.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728740.jpg" />
+  <img src="Z:/picture/008/save_picture_728740.jpg" />
 </div>
 
 

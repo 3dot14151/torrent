@@ -1,3 +1,29 @@
+###  Публикация: 944723   (437882) от 08.10.2015
+
+Ксения Меньшикова | Карма – закон причины и следствия. Как переписать свою судьбу (2015) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена работе с таким сложным и неоднозначным разделом человеческого сознания, как Сверхсознание. Это неисследованная область разума, контакт с которой долгое время был исключительно в ведении религии. Но те, кто ищет иных знаний, кого не удовлетворяют догмы и заповеди, никогда не согласятся с тем, что они не имеют права что-то знать и понимать. Эта книга (   Читать дальше...   )Жанр: Эзотерика, парапсихология, тайныФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C634B4B7007E1B764AF4FB676EB7DBFC2DE13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944742   (437703) от 08.10.2015
 
 Роберт Тэллон, Марио Сикора | Осознанность в действии. Эннеаграмма, коучинг и развитие эмоционального интеллекта (2015) [FB2]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437703.jpg" />
+  <img src="Z:/picture/008/save_picture_437703.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435971.jpg" />
+  <img src="Z:/picture/008/save_picture_435971.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435832.jpg" />
+  <img src="Z:/picture/008/save_picture_435832.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434270.jpg" />
+  <img src="Z:/picture/008/save_picture_434270.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433699.jpg" />
+  <img src="Z:/picture/008/save_picture_433699.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433435.jpg" />
+  <img src="Z:/picture/008/save_picture_433435.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431277.jpg" />
+  <img src="Z:/picture/008/save_picture_431277.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431121.jpg" />
+  <img src="Z:/picture/008/save_picture_431121.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429530.jpg" />
+  <img src="Z:/picture/008/save_picture_429530.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427330.jpg" />
+  <img src="Z:/picture/008/save_picture_427330.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427248.jpg" />
+  <img src="Z:/picture/008/save_picture_427248.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426939.jpg" />
+  <img src="Z:/picture/008/save_picture_426939.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426635.jpg" />
+  <img src="Z:/picture/008/save_picture_426635.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425380.jpg" />
+  <img src="Z:/picture/008/save_picture_425380.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423762.jpg" />
+  <img src="Z:/picture/008/save_picture_423762.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423748.jpg" />
+  <img src="Z:/picture/008/save_picture_423748.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422662.jpg" />
+  <img src="Z:/picture/008/save_picture_422662.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422474.jpg" />
+  <img src="Z:/picture/008/save_picture_422474.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422090.jpg" />
+  <img src="Z:/picture/008/save_picture_422090.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421948.jpg" />
+  <img src="Z:/picture/008/save_picture_421948.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421728.jpg" />
+  <img src="Z:/picture/008/save_picture_421728.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421415.jpg" />
+  <img src="Z:/picture/008/save_picture_421415.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420823.jpg" />
+  <img src="Z:/picture/008/save_picture_420823.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420185.jpg" />
+  <img src="Z:/picture/008/save_picture_420185.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419471.jpg" />
+  <img src="Z:/picture/008/save_picture_419471.jpg" />
 </div>
 
 
@@ -659,35 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:103A8BE8DA11BE7EB9352F27950670452D174C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166729   (419252) от 19.09.2017
-
-Александр Круковский | Просветление. Взгляд изнутри (2017) [DOCX]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой современный взгляд на основы просветления.
-Автор старается развеять распространённые домыслы и заблуждения.
-Просветление доступно Всем. Здесь и сейчас. Абсолютно бесплатно.
-Довольно серьёзное заявление, по предмету который превратился в серьёзный бизнес, как для религиозных общин, так и для разного рода Гуру.(   Читать дальше...   )Жанр: Дзен, Буддизм, ПросветлениеФормат: DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE04445EFAD3AA1A974870B4057D5F081A29BACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

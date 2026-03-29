@@ -1,3 +1,90 @@
+###  Публикация: 987865   (924599) от 18.02.2016
+
+Prong - X - No Absolutes (2016) [FLAC|Lossless|tracks + .cue] <Groove, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultimate Authority
+02. Sense Of Ease
+03. Without Words
+04. Cut And Dry(   Читать дальше...   )Жанр: Groove, Thrash MetalПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D845BD309A789578B2138695778191BA80825AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987756   (924235) от 18.02.2016
+
+Therion - Les Epaves (2016) EP [FLAC|Lossless|image + .cue] <Symphonic, Operatic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. L'amour est bleu (heavy version) (Vicky Leandros cover) 3:34
+2. Nous ne sommes pas des anges (France Gall cover) 2:49
+3. La fermeture éclair (Delphine cover) 2:36
+4. Ah-Hem-Ho-Hu-Err (Christine Pilzer cover) 2:41(   Читать дальше...   )Жанр: Symphonic, Operatic MetalПродолжительность: 00:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93365657BB8106BC6BF9B923BBA2468D230EC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366251   (924001) от 11.03.2020
+
+Suicide Silence - Become the Hunter (2020) [FLAC|Lossless|tracks + .cue] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meltdown (02:12)
+02. Two Steps (03:22)
+03. Feel Alive (03:29)
+04. Love Me To Death (04:15)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FE316AA2FD39285BC7EC2E47D58C35D0C4E7FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988073   (922895) от 19.02.2016
 
 Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
@@ -6,7 +93,7 @@ Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922895.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922873.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Soulline - We Curse, We Trust (2012) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922547.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Soulline - Welcome My Sun (2015) [FLAC|Lossless|image + .cue] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922534.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Prestige - Reveal The Ravage (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922527.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Primal Fear - Devil's Ground (2004) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922451.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Yngwie Malmsteen - War To End All Wars (2000) [FLAC|Lossless|image + .cue] <Neoc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922244.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Malefactor - Death Falls Silent (2002) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921117.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Beyond The Black - Lost in Forever (2016) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920923.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ My Haven - Until (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920876.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Dee Snider - Leave A Scar (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920874.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Phantom Divine - The Cosmic Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920785.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Mysticum - Planet Satan (2014) CD Jevel box, 2019 Reissue, licensed from Peacevi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920587.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Body Count - Carnivore (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920581.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Burzum - Thulêan Mysteries (Thulean Mysteries) (2020) [FLAC|Lossless|Web-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920580.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Iconoclast - Hallucination (2016) [FLAC|tracks|WEB-DL]<Progressive Deathcore, Dj
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919264.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Municipal Waste - The Last Rager (2019) EP [FLAC|Lossless|image + .cue] <Crossov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919116.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Stormwind - Taken By Storm & Warbringer (1984) Reissue, 2020,  Rockport Records 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919115.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Book Of Numbers - Magick (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919110.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Tridente - Apocalipsis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919038.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ WarKings - Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919034.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Legions Of The Night - Sorrow Is The Cure (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919019.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Slaughter to Prevail - Kostolom (2021) [FLAC|Lossless|image + .cue] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919004.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Slaughter to Prevail - Kostolom (2021) [FLAC|Lossless|image + .cue] <Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D08D7A76BE70DF3A3029548564A9F7A00491D17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988753   (918986) от 21.02.2016
-
-Judas Priest  - Collections (2008) Compilation [FLAC|Lossless|image + .cue] <Speed Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Breaking The Law 	02:36
-02. 	Living After Midnight 	03:31
-03. 	Out In The Cold 	06:28
-04. 	Love Bites 	04:49(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41342ACADC2BF1DBE17C8C1623466B4018F1086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490552   (917680) от 21.08.2021
-
-Morning Dwell - The Power Will Go On (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chosen Champion
-02. Wandering Man
-03. Behind the Gate
-04. Twlilight Side(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30312B2C1A8048C115B47AAD3B1251D9D6691FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096763   (917625) от 25.01.2017
-
-Tygers Of Pan Tang - Tygers Of Pan Tang (2016) [FLAC|Lossless|image + .cue] <NWOBHM, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Only the Brave  (05:03) 
-02|  Dust  (04:28) 
-03|  Glad Rags  (04:09) 
-04|  Never Give In  (03:58) (   Читать дальше...   )Жанр: NWOBHM, Hard RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B433B91F5E48EC339BA0C4046D08563BD3C309D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

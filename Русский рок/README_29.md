@@ -1,3 +1,119 @@
+###  Публикация: 1011138   (797634) от 26.04.2016
+
+Площадь Восстания - Estrada (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797634.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ESTRADA» – это честная рок-н-рольная лирика. Девять предельно откровенных историй, в которых так легко увидеть себя...1. Буду там
+2. Прости. Спасибо. Люблю
+3. Только пой (Брату)
+4. Декабрь(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAEE0586F4125766BB52250628B89277B098DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199834   (797500) от 18.01.2018
+
+Метанойя - Гомункул (2012) [MP3|320 Kbps] <Art Rock, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: ещё есть
+02. Водолазы облаков
+03. Офелия
+04. Харон(   Читать дальше...   )Жанр: Art Rock, Art PunkПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47712ACE54D586C2BA0649C819F56C786C9AD94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199959   (797485) от 18.01.2018
+
+Аркона - Храм (2018) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мантра (Intro)
+2. Шторм
+3. Целуя жизнь
+4. Ребенок без имени(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 1:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF46BBCAD6A74BF9822AAFB3430AA7BB27A091E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508543   (797400) от 08.11.2021
+
+Стас Намин и группа «Цветы» - Летать (2021) [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797400.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Другой мир
+2. Любовь
+3. Время на моей стороне
+4. Шар голубой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D17DAED0CA7955A935C923068CA469F1E8E8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011416   (797032) от 27.04.2016
 
 Skyforest - Unity (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Post-Black Metal>
@@ -6,7 +122,7 @@ Skyforest - Unity (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Post-Black 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797032.jpg" />
+  <img src="Z:/picture/008/save_picture_797032.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ para bellvm - Сердцебиение (2017) [MP3|320 Kbps] <Dark Rock, Gothic 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796974.jpg" />
+  <img src="Z:/picture/008/save_picture_796974.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796888.jpg" />
+  <img src="Z:/picture/008/save_picture_796888.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796784.jpg" />
+  <img src="Z:/picture/008/save_picture_796784.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ ZAVIDUYUSHIY VSEM - Меня не ждут (2016) [MP3|320 кб/с] <Electronic,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795574.jpg" />
+  <img src="Z:/picture/008/save_picture_795574.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795413.jpg" />
+  <img src="Z:/picture/008/save_picture_795413.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794990.jpg" />
+  <img src="Z:/picture/008/save_picture_794990.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794956.jpg" />
+  <img src="Z:/picture/008/save_picture_794956.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ LASCALA - ECUADOR (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794891.jpg" />
+  <img src="Z:/picture/008/save_picture_794891.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794768.jpg" />
+  <img src="Z:/picture/008/save_picture_794768.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794332.jpg" />
+  <img src="Z:/picture/008/save_picture_794332.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Kreolis - Театр Вампиров (2018) [MP3|320 Kbps] <Metal Opera>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794021.jpg" />
+  <img src="Z:/picture/008/save_picture_794021.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ AVRELA - Скоро рассвет (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794015.jpg" />
+  <img src="Z:/picture/008/save_picture_794015.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793395.jpg" />
+  <img src="Z:/picture/008/save_picture_793395.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793304.jpg" />
+  <img src="Z:/picture/008/save_picture_793304.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792990.jpg" />
+  <img src="Z:/picture/008/save_picture_792990.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792341.jpg" />
+  <img src="Z:/picture/008/save_picture_792341.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792332.jpg" />
+  <img src="Z:/picture/008/save_picture_792332.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792249.jpg" />
+  <img src="Z:/picture/008/save_picture_792249.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Coal (Надя Гордиенко) - Фиванский алфавит (2018) [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792174.jpg" />
+  <img src="Z:/picture/008/save_picture_792174.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791700.jpg" />
+  <img src="Z:/picture/008/save_picture_791700.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791566.jpg" />
+  <img src="Z:/picture/008/save_picture_791566.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F8DFD0B9A14A9E68D658E30EB5F2063DD0FDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510322   (791519) от 16.11.2021
-
-Рабфак 2.0 - Лайк репост (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ни шагу с плаца
-2. На серьёзных щах
-3. Чей Крым
-4. Силовик(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F4555CA613E330960EAA34F960B3817F8DFD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201896   (791514) от 26.01.2018
-
-Найк Борзов - Кислотный бог (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кислотный бог
-2. Кислотный бог (Geonis Remix)
-3. Кислотный бог (Владимир Комаров Hudson Arps Version)
-4. Кислотный бог (Oligarkh Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB4EA68C2072B626DAFC10A731EB30000E179E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275073   (791119) от 10.01.2019
-
-Калевала - Дорога птицы (2018) 2CD, Live [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791119.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Интро
-2. Брошусь птицей
-3. Метель(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37609E12F233AFD3F35B150D2D32A202F6265AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275225   (791076) от 10.01.2019
-
-Йорш - #Нетпутиназад (2019) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. Реалити-шоу
-03. Против тебя
-04. Боже, царя хорони(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A45B04359F0A80A5348DAE3707C57D08EF508C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

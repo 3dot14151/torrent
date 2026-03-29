@@ -1,3 +1,29 @@
+###  Публикация: 1506599   (799827) от 31.10.2021
+
+Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd Series | King From Now On! 3rd Series | Отныне Мао, король демонов! 3 [2008, TV, 39 из 39] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799827.jpg" />
+</div>
+
+
+###  Подробнее
+
+После церемонии совершеннолетия Юри постепенно понимает, как много всего произошло за время его отсутствия. Совет десяти благородных семей выбрал Вольфрама новым Мао, и теперь Юри придётся доказать, что он — самая достойная кандидатура на роль Мао главе совета — дяде Вольфрама. Нарастающая угроза миру мадзоку и людей, исходящая от древнего тайного сообщества. Борьба (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: приключения, комедия, фэнтезиРежиссер: Нисимура ДзюндзиПеревод: Neutral Unit, Lina, Fedra87, Morween, surfernsk, Sakura89Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 39 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF66BAC45377B22276C838D246BC2B017578DF94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506594   (799826) от 31.10.2021
 
 Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | Отныне Мао, король демонов! [2004, TV, 78 из 78] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | От
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799826.jpg" />
+  <img src="Z:/picture/008/save_picture_799826.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797677.jpg" />
+  <img src="Z:/picture/008/save_picture_797677.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797262.jpg" />
+  <img src="Z:/picture/008/save_picture_797262.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797167.jpg" />
+  <img src="Z:/picture/008/save_picture_797167.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797061.jpg" />
+  <img src="Z:/picture/008/save_picture_797061.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796472.jpg" />
+  <img src="Z:/picture/008/save_picture_796472.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792708.jpg" />
+  <img src="Z:/picture/008/save_picture_792708.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792280.jpg" />
+  <img src="Z:/picture/008/save_picture_792280.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Jashin-chan Dropkick [TV-1] | Dropkick on My Devil! | Пинок с наскок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791994.jpg" />
+  <img src="Z:/picture/008/save_picture_791994.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791729.jpg" />
+  <img src="Z:/picture/008/save_picture_791729.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Fragtime | Осколки Времени [2019, Movie] BDRip 1080p 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791727.jpg" />
+  <img src="Z:/picture/008/save_picture_791727.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Tenki no Ko | Дитя Погоды [2019, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791100.jpg" />
+  <img src="Z:/picture/008/save_picture_791100.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790571.jpg" />
+  <img src="Z:/picture/008/save_picture_790571.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Эта глупая с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790570.jpg" />
+  <img src="Z:/picture/008/save_picture_790570.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789963.jpg" />
+  <img src="Z:/picture/008/save_picture_789963.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789960.jpg" />
+  <img src="Z:/picture/008/save_picture_789960.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789613.jpg" />
+  <img src="Z:/picture/008/save_picture_789613.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786862.jpg" />
+  <img src="Z:/picture/008/save_picture_786862.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786854.jpg" />
+  <img src="Z:/picture/008/save_picture_786854.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786617.jpg" />
+  <img src="Z:/picture/008/save_picture_786617.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786615.jpg" />
+  <img src="Z:/picture/008/save_picture_786615.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786614.jpg" />
+  <img src="Z:/picture/008/save_picture_786614.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786613.jpg" />
+  <img src="Z:/picture/008/save_picture_786613.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786612.jpg" />
+  <img src="Z:/picture/008/save_picture_786612.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786611.jpg" />
+  <img src="Z:/picture/008/save_picture_786611.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2D32458CD06A059D3A0548FD1A34445F86732CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388689   (786492) от 07.06.2020
-
-Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Грани Битвы [2018, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прибыв на Землю спустя 20 000 лет, Харуо вместе с остатками человечества обнаруживают, что планета стала совершенно другой. Флора и фауна здесь олицетворяют Годзиллу, а сама Земля спустя тысячелетия превратилась в планету-монстра, управляемую гигантской Годзиллой высотой 300 метров. Человечество оказывается на грани исчезновения и вынуждено бороться за своё выживание. (   Читать дальше...   )Производство: Polygon Pictures, ЯпонияЖанр: Приключения, ФантастикаРежиссер: Сидзуно КобунОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18E73368505FFC406C399AD00CA5D78F7FAC42B
 ```
 
 https://mybot314.ru/tekegram_catalog/

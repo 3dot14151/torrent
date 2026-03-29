@@ -1,3 +1,87 @@
+###  Публикация: 1461947   (1021580) от 11.04.2021
+
+Евгений Шварц | Рассеянный волшебник. Сказки. (1980-е)  [Сборник] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021580.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли радиопостановки разных театров и разных лет, хранящиеся в Гостелерадиофонде.Жанр: Детская литература. Сказка. РадиоспектаклиПродолжительность: 05:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F957D4A93D10E83B8E91EB4DC3884B6E85AE672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 45575   (1021492) от 11.04.2021
+
+Корней Чуковский, Лев Толстой и др. | Сказки для детей. Часть 3 [Сборник К-Л] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021492.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник входит самые известные и проверенные временем сказки для детей. Здесь размещены русские народные сказки, песни, стихи, которые точно стоит послушать ребенку.
+
+Знакомые многим поколениям детей герои этого сборника - как это обычно и бывает в сказках, побеждают зло, преодолевают многочисленные препятствия, учат трудолюбию и добру.
+(   Читать дальше...   )Жанр: Сказки, стихи и песни для детейПродолжительность: 03:01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B6C976DB325EDA852BC9F4C05CD64B96B597EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 45630   (1021246) от 13.04.2021
+
+Александр Пушкин, Шарль Перро и др. | Сказки для детей. Часть 6 [Сборник С] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021246.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник входит самые известные и проверенные временем сказки для детей. Здесь размещены русские народные сказки, сказки народов мира, стихи, которые точно стоит послушать ребенку.
+
+Знакомые многим поколениям детей герои этого сборника - как это обычно и бывает в сказках, побеждают зло, преодолевают многочисленные препятствия, учат трудолюбию и добру.
+(   Читать дальше...   )Жанр: Сказки и стихиПродолжительность: 03:07:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8529FE089E8FD0D00ADF8A6C77B0507D5AB18EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462480   (1021222) от 14.04.2021
 
 Корней Чуковский | Весь доктор Айболит (2020) [MP3, Алла Човжик, Сергей Данилевич]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021222.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021077.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020556.jpg" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020525.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020329.jpg" />
 </div>
 
 
@@ -139,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020169.jpg" />
 </div>
 
 
@@ -167,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020165.jpg" />
 </div>
 
 
@@ -193,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020156.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019669.jpg" />
 </div>
 
 
@@ -245,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019503.jpg" />
 </div>
 
 
@@ -273,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019501.jpg" />
 </div>
 
 
@@ -301,7 +385,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of ABBA (2011) [MP3|192 Kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019474.jpg" />
 </div>
 
 
@@ -330,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019410.jpg" />
 </div>
 
 
@@ -357,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019402.jpg" />
 </div>
 
 
@@ -386,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019350.jpg" />
 </div>
 
 
@@ -414,7 +498,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of ADELE (2011) [MP3|192 Kbp
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019306.jpg" />
 </div>
 
 
@@ -443,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019156.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019152.jpg" />
 </div>
 
 
@@ -498,7 +582,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Queen (2012) [MP3|192 Kbp
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018420.jpg" />
 </div>
 
 
@@ -527,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018124.jpg" />
 </div>
 
 
@@ -555,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018117.jpg" />
 </div>
 
 
@@ -582,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018115.jpg" />
 </div>
 
 
@@ -608,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018113.jpg" />
 </div>
 
 
@@ -621,84 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:349C5A17416162D9AF4927639E12EE138635A8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467035   (1018070) от 02.05.2021
-
-Александр Великанов | Формула дружбы (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жили были мальчишки Петька, Валька и девчонка Вера. Они ходили в одну школу и учились в одном классе. Ну а дружба у них сложилась сама собой. А сложилась потому, что они умели всё- ездить верхом на неосёдланной лошади, охотиться на болотного луня, перемещать в пространстве предметы и животных, расщепляя предварительно их на молекулы и собирая в конечной точке. Умели (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE84DC28B061241D55A48EE27EBDFCDCC588FA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467401   (1017941) от 03.05.2021
-
-Тамара Михеева | Семь прях. Мия. Книга 1 (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017941.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Мии три старших брата, три младшие сестры и куча обязанностей. И две радости: море и старая книга на чердаке. Она еще не знает, что мир намного больше, чем ей рассказывали. Что есть такие места, где море под запретом, потому что море – это свобода, а люди, мечтающие о свободе, неугодны ни Империи, ни самому благополучному в мире городу. Что книга, доставшаяся в (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 11:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2288864887E72096C6EECFB7F4A2EDA544B661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467564   (1017772) от 04.05.2021
-
-Астрид Линдгрен | Расмус-Бродяга (2004) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017772.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о девятилетнем шведском мальчике, которого зовут Расмус. Он круглый сирота и живет в приюте, где маленькие дети, лишенные любви и ласки, вынуждены сами зарабатывать себе на хлеб. А начальница приюта фрекен Хёг, (что по-шведски означает "ястреб"), даже не догадывается о том, что игры и развлечения так же необходимы приютским детям, как и всем другим! (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 04:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB75FCEDDFE10383044BD7761DB9732E4C701B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

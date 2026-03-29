@@ -1,3 +1,168 @@
+###  Публикация: 677239   (651227) от 12.07.2013
+
+Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapРежиссер: Guf и др.Актеры: Guf и др.Продолжительность: общая  02:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B6C42339D5316DC8CF84BF535FE1735CCBA86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903050   (651205) от 05.06.2015
+
+The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом Certifiable записан во время двух концертов на стадионе River Plate Stadium в Буэнос-Айресе в декабре 2007 г., которые состоялись в рамках триумфального тура воссоединенных The Police, посвященного 30-летию группы. Тур проходил по всем континентам кроме Африки с мая 2007 по август 2008. Финальное шоу состоялось 7 августа на знаменитой площадке Madison Square (   Читать дальше...   )Производство: США, A&MЖанр: RockПродолжительность: 01:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CDF9B0C68BF0B7343106FACCBCFE1E96A6A5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031258   (651129) от 04.07.2016
+
+Легенды Ретро FM полная версия (2015) HDTV [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная версия международного музыкального фестиваля "Легенды Ретро FM-2015"! Зрители увидят потрясающее шоу, собравшее аншлаг в "Олимпийском".01. Наталья Гулькина - Дискотека
+02. Наталья Гулькина - Айвенго
+03. Лайма Вайкуле - Я вышла на Пикадилли
+04. Лайма Вайкуле - Листья Желтые(   Читать дальше...   )Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Наталья Гулькина, Ricchi e Poveri, Лайма Вайкуле, Boney M, Виктор Салтыков, C.C.Catch, Евгений Осин и др.Продолжительность: 03:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14457C1DEBAFE155E162E39A9CAF0ABB6B2ACC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031248   (651128) от 04.07.2016
+
+Легенды Ретро FM полная версия (2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная версия международного музыкального фестиваля "Легенды Ретро FM-2015"! Зрители увидят потрясающее шоу, собравшее аншлаг в "Олимпийском".01. Наталья Гулькина - Дискотека
+02. Наталья Гулькина - Айвенго
+03. Лайма Вайкуле - Я вышла на Пикадилли
+04. Лайма Вайкуле - Листья Желтые(   Читать дальше...   )Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Наталья Гулькина, Ricchi e Poveri, Лайма Вайкуле, Boney M, Виктор Салтыков, C.C.Catch, Евгений Осин и др.Перевод: не требуетсяПродолжительность: 03:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92EF0C382DE10A13D679A83A33AE2A94E05D8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903332   (651102) от 05.06.2015
+
+Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись выступления на музыкальном фестивале BBC Radio 1 в Норвиче 23 мая 2015 г.Производство: Earlham Park, Norwich, EnglandЖанр: Alternative RockПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1370C927F391C027F51795458DB951DC3A6C4B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031224   (650914) от 04.07.2016
+
+David Gilmour - Live in Wroclaw (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись телетрансляции выступления Дэвида Гилмора в польском Вроцлаве 25.06.2016гSet 1:
+01. 5 A.M. (with orchestra)
+02. Rattle That Lock (with orchestra)
+03. Faces of Stone (with orchestra)(   Читать дальше...   )Производство: TVP2Жанр: Progressive Rock / Psychedelic Rock / Art RockРежиссер: TVP2Актеры: David GilmourПеревод: ОтсутствуетПродолжительность: 02:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3945EE37D1E772227911F46F6CB73DB215001B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031665   (649416) от 05.07.2016
 
 BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
@@ -6,7 +171,7 @@ BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649416.jpg" />
+  <img src="Z:/picture/008/save_picture_649416.jpg" />
 </div>
 
 
@@ -36,7 +201,7 @@ Metallica - Orion Music Festival - The Black Album (2012) HDTVRip 720 [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648930.jpg" />
+  <img src="Z:/picture/005/save_picture_648930.jpg" />
 </div>
 
 
@@ -65,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648863.jpg" />
+  <img src="Z:/picture/008/save_picture_648863.jpg" />
 </div>
 
 
@@ -93,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647137.jpg" />
+  <img src="Z:/picture/008/save_picture_647137.jpg" />
 </div>
 
 
@@ -119,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647047.jpg" />
+  <img src="Z:/picture/008/save_picture_647047.jpg" />
 </div>
 
 
@@ -148,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647017.jpg" />
+  <img src="Z:/picture/008/save_picture_647017.jpg" />
 </div>
 
 
@@ -177,7 +342,7 @@ The Flying Dutchman / Andre Rieu -  The Flying Dutchman (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646969.jpg" />
+  <img src="Z:/picture/005/save_picture_646969.jpg" />
 </div>
 
 
@@ -215,7 +380,7 @@ AC/DC - Backtracks [Deluxe Edition] "Live At The Circus Krone" (2003/2009) DVDRi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646967.jpg" />
+  <img src="Z:/picture/005/save_picture_646967.jpg" />
 </div>
 
 
@@ -244,7 +409,7 @@ W.A.S.P. - Live At The Lyceum, London (1984) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646380.jpg" />
+  <img src="Z:/picture/008/save_picture_646380.jpg" />
 </div>
 
 
@@ -273,7 +438,7 @@ The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645459.jpg" />
+  <img src="Z:/picture/008/save_picture_645459.jpg" />
 </div>
 
 
@@ -302,7 +467,7 @@ Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645449.jpg" />
+  <img src="Z:/picture/008/save_picture_645449.jpg" />
 </div>
 
 
@@ -331,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645032.jpg" />
+  <img src="Z:/picture/008/save_picture_645032.jpg" />
 </div>
 
 
@@ -360,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644799.jpg" />
+  <img src="Z:/picture/008/save_picture_644799.jpg" />
 </div>
 
 
@@ -389,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644561.jpg" />
+  <img src="Z:/picture/008/save_picture_644561.jpg" />
 </div>
 
 
@@ -418,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643732.jpg" />
+  <img src="Z:/picture/008/save_picture_643732.jpg" />
 </div>
 
 
@@ -450,7 +615,7 @@ The Realm Of Napalm Records Vol. III (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643617.jpg" />
+  <img src="Z:/picture/005/save_picture_643617.jpg" />
 </div>
 
 
@@ -485,7 +650,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642821.jpg" />
+  <img src="Z:/picture/008/save_picture_642821.jpg" />
 </div>
 
 
@@ -515,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641810.jpg" />
+  <img src="Z:/picture/005/save_picture_641810.jpg" />
 </div>
 
 
@@ -544,7 +709,7 @@ The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641658.jpg" />
+  <img src="Z:/picture/008/save_picture_641658.jpg" />
 </div>
 
 
@@ -573,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639619.jpg" />
+  <img src="Z:/picture/005/save_picture_639619.jpg" />
 </div>
 
 
@@ -587,181 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517976   (638774) от 05.07.2012
-
-Призрак оперы / The Phantom of the Opera (2004) HDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638774.jpg" />
-</div>
-
-
-###  Подробнее
-
-е:
- Его голос взывает к ней из темных глубин здания оперного театра, который стал вторым домом для невинной хористки Кристины. Только руководительница балетной труппы мадам Жири знает, что таинственный "ангел музыки" Кристины — на самом деле Призрак, уродливый музыкальный гений, обитающий в катакомбах театра и наводящий ужас на артистов, которые там живут и работают.
- Когда темпераментная дива Карлотта уходит из театра в разгар генеральной репетиции нового спектакля, жаждущим славы управляющим не остается ничего иного, как вытолкнуть под огни рампы Кристину. Ее выступление на премьере завораживает и зрителей, и Призрака, который отныне посвящает себя тому, чтобы сделать из нее звезду сцены. Но он — не единственный, перед которым благоговеет юная сопрано, — в скором времени за Кристиной начинает ухаживать богатый покровитель театра виконт Рауль де Шаньи.
- Хотя Призрак подчинил Кристину своей власти, ее неодолимо влечет к эффектному Раулю, что приводит в ярость "гения музыки". Высокие страсти, свирепая (   Читать дальше...   )Жанр: мюзикл, триллер, драма, мелодрамаРежиссер: Джоэл ШумахерПродюсер: Джефф Абберли, Остин Шоу, Джулия БлэкманАктеры: Джерард Батлер, Эмми Россум, Патрик Уилсон, Миранда Ричардсон, Минни Драйвер, Сайэрэн Хайндз, Саймон Кэллоу, Виктор МакГуайр, Дженнифер Эллисон, Мюррей Мелвин, Кевин МакНолли, Джеймс Флит, Имоджен БэйнПеревод: ДублированныйПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36E1E59848BC285BAC7565E2E69BD0F1B5C3680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681295   (638022) от 19.07.2013
-
-Judas Priest - Epitaph (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_638022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Judas Priest — британская метал-группа, которая наряду с такими коллективами, как Black Sabbath, Deep Purple, Led Zeppelin и Uriah Heep определила звучание метала 1970-х годов, а также оказала огромное влияние на дальнейшее развитие этого стиля в целом. За 40 лет своей карьеры музыканты продали 30 миллионов копий альбомов по всему миру..Жанр: Heavy metal, speed metal, hard rockПродолжительность: 02:22:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907656   (637747) от 12.06.2015
-
-Праздничный концерт День России в Крыму (12.06.2015) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637747.jpg" />
-</div>
-
-
-###  Подробнее
-
-День независимости России – один из самых "молодых" и главных государственных праздников. С прошлого года в праздновании принимают участие и жители Крыма.Жанр: КонцертПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7411635E50EAE2DF61BC00448EF1D3688F8357E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770600   (637650) от 11.07.2016
-
-Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Out
-02 - God Save The Queen (2000)
-03 - Get Back In Line (2010)
-04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
-Некоторые видео пришлось вытягивать или восстанавливать...
-Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519218   (636690) от 06.07.2012
-
-Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это запись концерта группы01. Burn
-02. Bad Boys
-03. Love Ain"t No Stranger
-04. Is This Love
-05. Give Me All Your Love
-06. Ain"t No Love in the Heart of the City
-07. Don"t Break My Heart Again
-08. Here I Go Again
-09. Still of the NightЖанр: RockАктеры: David Coverdale, Doug Aldrich, Reb Beach,  Timothy Drury,  Tommy Aldridge,  Marco MendozaПеревод: Не требуетсяПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800246   (636310) от 01.07.2014
-
-Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636310.jpg" />
-</div>
-
-
-###  Подробнее
-
-First Part
-* Orchestra — Carmen Overture
-* Mike — Concert For Violin & Oboe (Bach)
-* Tarja — Blute Nur (Bach)(   Читать дальше...   )Жанр: Neoclassical, ClassicalПродолжительность: 02:03:02+00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670ECCC46B3C42EDA5EF6313A60270D3940FB5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

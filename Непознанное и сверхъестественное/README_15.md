@@ -1,3 +1,60 @@
+###  Публикация: 521670   (626984) от 11.07.2012
+
+Властители. Дьявольские игры Ивана Грозного (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его приближенных называли слугами дьявола. Он отдавал приказы о казнях, а потом проводил ночи в покаянной молитве. Носил монашеское облачение и сменил семь жен. Из-за пророчества немецкого колдуна на целый год отрекся от престола, а день его смерти предсказали лапландские ведьмы. Иван Грозный часто получал тайные знаки, но всю жизнь пытался перехитрить неотвратимый рок, и иногда ему это удавалось.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48978A57726E87524841F970611ED2AFF5893484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521771   (626761) от 11.07.2012
+
+Мистические истории. Выпуск №30. Подарок ведьмы / Я пришла тебя простить  (2012.07.11) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626761.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мистические истории» это цикл из 50 документальных фильмов, каждый из которых расскажет о странной и страшной цепи событий. Это рассказы о необычных историях любви и родовых проклятиях, о странных снах, которые предсказывают будущее, и также о том, как самые, казалось бы, незначительные события могут повлиять на ход всей жизни человека... Каждая «Мистическая история» - невыдуманная. Авторы передачи по крупицам собирали таинственные сведения, тщательно восстанавливали ход событий, опрашивали свидетелей историй. Герои программы становятся участниками поистине загадочных явлений, происходящих в их жизни. Проклятия соседей, ворожба на крови, смертельные опыты... Каждый сюжет комментируют опытные специалисты: доктора наук, ученые, экстрасенсы и даже священники... С их помощью мы сможем узнать, как обезопасить себя от неблагоприятных событий и как можно сгладить негативное влияние тех или иных факторов.
+Все истории нам расскажет ведущий передачи – знаменитый актер Виктор Вержбицкий. Это не случайный выбор, ведь в карьере (   Читать дальше...   )В выпуске: Подарок ведьмы
+Молодая и перспективная тележурналистка Виктория отправляется в деревню снимать сюжет о настоящей гадалке. Гадалка должна передать кому-то свои силы прежде, чем умереть. Виктория вызывается стать преемником, совершенно не задумываясь о последствиях.
+
+Я пришла тебя простить
+Людмиле стало очень одиноко после того, как ее бросил муж. В канун нового года женщина по воле случая оказывается возле храма и видит, что там отпевают ее мужа. Женщина понимает, что душа бывшего мужа призвала ее к храму, чтобы получить прощение.Жанр: ТелепередачаПродолжительность: ~ 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322A418D9C0F921C4CB31D82EC6057F0281B619C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521769   (624838) от 12.07.2012
 
 Мистические истории. Выпуск №29. Дом на костях / До-минор  (2012.07.10) SATRip
@@ -6,7 +63,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624838.jpg" />
+  <img src="Z:/picture/008/save_picture_624838.jpg" />
 </div>
 
 
@@ -37,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624762.jpg" />
+  <img src="Z:/picture/008/save_picture_624762.jpg" />
 </div>
 
 
@@ -68,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624571.jpg" />
+  <img src="Z:/picture/008/save_picture_624571.jpg" />
 </div>
 
 
@@ -94,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624334.jpg" />
+  <img src="Z:/picture/008/save_picture_624334.jpg" />
 </div>
 
 
@@ -120,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623516.jpg" />
+  <img src="Z:/picture/008/save_picture_623516.jpg" />
 </div>
 
 
@@ -146,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620782.jpg" />
+  <img src="Z:/picture/008/save_picture_620782.jpg" />
 </div>
 
 
@@ -173,7 +230,7 @@ Discovery: Темные материи. Запутанные, но правди�
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616495.jpg" />
+  <img src="Z:/picture/008/save_picture_616495.jpg" />
 </div>
 
 
@@ -199,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615383.jpg" />
+  <img src="Z:/picture/008/save_picture_615383.jpg" />
 </div>
 
 
@@ -225,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615162.jpg" />
+  <img src="Z:/picture/008/save_picture_615162.jpg" />
 </div>
 
 
@@ -252,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614546.jpg" />
+  <img src="Z:/picture/008/save_picture_614546.jpg" />
 </div>
 
 
@@ -278,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614082.jpg" />
+  <img src="Z:/picture/008/save_picture_614082.jpg" />
 </div>
 
 
@@ -305,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613870.jpg" />
+  <img src="Z:/picture/008/save_picture_613870.jpg" />
 </div>
 
 
@@ -331,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613671.jpg" />
+  <img src="Z:/picture/008/save_picture_613671.jpg" />
 </div>
 
 
@@ -357,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611215.jpg" />
+  <img src="Z:/picture/008/save_picture_611215.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ Discovery: Темные материи. Запутанные, но правди�
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608945.jpg" />
+  <img src="Z:/picture/008/save_picture_608945.jpg" />
 </div>
 
 
@@ -409,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608786.jpg" />
+  <img src="Z:/picture/008/save_picture_608786.jpg" />
 </div>
 
 
@@ -435,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603439.jpg" />
+  <img src="Z:/picture/008/save_picture_603439.jpg" />
 </div>
 
 
@@ -461,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602930.jpg" />
+  <img src="Z:/picture/008/save_picture_602930.jpg" />
 </div>
 
 
@@ -487,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602490.jpg" />
+  <img src="Z:/picture/008/save_picture_602490.jpg" />
 </div>
 
 
@@ -513,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602017.jpg" />
+  <img src="Z:/picture/008/save_picture_602017.jpg" />
 </div>
 
 
@@ -539,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602006.jpg" />
+  <img src="Z:/picture/008/save_picture_602006.jpg" />
 </div>
 
 
@@ -565,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601104.jpg" />
+  <img src="Z:/picture/008/save_picture_601104.jpg" />
 </div>
 
 
@@ -591,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599409.jpg" />
+  <img src="Z:/picture/008/save_picture_599409.jpg" />
 </div>
 
 
@@ -617,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597494.jpg" />
+  <img src="Z:/picture/008/save_picture_597494.jpg" />
 </div>
 
 
@@ -628,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E7149A999AA669678E564A24EC47E237BC20A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915012   (594926) от 04.07.2015
-
-Территория заблуждений с Игорем Прокопенко (2015.07.03) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 01:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956D6BF4CC62AE0289013C332AC1B90264D1A895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549324   (593746) от 06.05.2022
-
-Между смертью и жизнью (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьник ради эксперимента решает узнать о своих прошлых жизнях. Фильм по книге гипнотерапевта Долорес Кэннон.
-Для участия в научной конференции ученик кадетской школы решает углубиться в недетскую тему. Юноша начинает глубокое изучение таких явлений как околосмертный опыт (ОСО) и регрессивный гипноз. Не на шутку увлёкшись темой, Саша при поддержке своей подруги (   Читать дальше...   )Производство: Россия | BOB FamilyЖанр: ДокументальныйРежиссер: Алекс ПлатПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F282BE004994908AD7D9063C476D6D41A5C7135A
 ```
 
 https://mybot314.ru/tekegram_catalog/

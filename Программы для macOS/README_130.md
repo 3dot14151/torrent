@@ -1,3 +1,137 @@
+###  Публикация: 1648633   (230722) от 24.07.2023
+
+OS Cleaner Pro - Disk Cleaner 10.2.60 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230722.jpg" />
+</div>
+
+
+###  Подробнее
+
+OS Cleaner Pro сканирует каждый дюйм вашей системы, удаляет гигабайты мусора всего за два клика и помогает поддерживать работоспособность вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2023Разработчик: © 2010 - 2026 Opproa Technology StudioПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857556F1D2EC0C7CCC08A27C7E2BD95FA28B8E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648828   (230624) от 24.07.2023
+
+4K Wallpaper – HD Wallpapers 2.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230624.jpg" />
+</div>
+
+
+###  Подробнее
+
+4k Wallpaper - красивое и простое в использовании приложение.  Подбирает большое количество красивых обоев 4k и HD (600+) и адаптируется к полноэкранному режиму.Тип издания: macOS SoftwareРелиз состоялся: 17.07.2023Разработчик: © 2022 ElimisoftПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3995B9851F9A141CA6B7B5AB67E576CBD9AD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341580   (230020) от 28.11.2019
+
+Murus Pro Suite 1.4.22 (include Vallum 3.3.2) [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vallum это маленький инструмент , который поможет вам в мониторинге соединений приложений. Он способен перехватывать соединения приложения и держать их , пока вы не решите, следует ли передавать или блокировать их.
+
+Интерфейс Vallum очень прост и основан на иконах. Его конфигурация по умолчанию не является навязчивой , он не требует какого-либо взаимодействия или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: murus.itПоддерживаемая ОС: macOS 10.9.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE06F300CD47A705B48FFBD4B3985D4A046BF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649445   (229992) от 27.07.2023
+
+FoneDog iOS Unlocker 1.0.22 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229992.jpg" />
+</div>
+
+
+###  Подробнее
+
+FoneDog iOS Unlocker — это мощный инструмент, который помогает разблокировать iPhone/iPad/iPod, стирая пароль. Он также предоставляет функции удаления Apple ID или пароля и пароля Screen Time.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2016–2022 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90565034FD8588A666F846D39FCEAF32C9297821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341594   (229936) от 28.11.2019
+
+Mirror for Smart TV apps by AirBeamTV 20191127 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_229936.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приложениями Mirror for Smart TV вы можете смотреть ваши любимые шоу вместе на большом экране. Загрузите и установите приложение Mac для Samsung, Sony, Panasonic, Philips и LG Smart TV сегодня, чтобы начать! У нас также есть приложения для Roku, Amazon Fire TV, Chromecast и Android TV!
+
+При использовании приложения, будет возникать задержка в несколько секунд (обычно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2019Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B409CF0D569FC2E3EE5077CFB36B9213289F9597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424290   (229865) от 16.11.2020
 
 Export Calendars Pro 1.10 [En]
@@ -6,7 +140,7 @@ Export Calendars Pro 1.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229865.jpg" />
+  <img src="Z:/picture/005/save_picture_229865.jpg" />
 </div>
 
 
@@ -34,7 +168,7 @@ Exporter for Contacts 1.13 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229814.jpg" />
+  <img src="Z:/picture/004/save_picture_229814.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ Banktivity 7 v7.5.3 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229337.jpg" />
+  <img src="Z:/picture/004/save_picture_229337.jpg" />
 </div>
 
 
@@ -88,7 +222,7 @@ Scudo 1.0 beta 10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229274.jpg" />
+  <img src="Z:/picture/004/save_picture_229274.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ QuartzCode 1.67.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229267.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ Pastebot 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229258.jpg" />
+  <img src="Z:/picture/004/save_picture_229258.jpg" />
 </div>
 
 
@@ -167,7 +301,7 @@ RAR Extractor - The Unarchiver 8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229168.jpg" />
 </div>
 
 
@@ -193,7 +327,7 @@ Family Tree Maker 2019 v24.0.1.252 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228970.jpg" />
+  <img src="Z:/picture/004/save_picture_228970.jpg" />
 </div>
 
 
@@ -219,7 +353,7 @@ DjVu To PDF Converter 2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228964.jpg" />
+  <img src="Z:/picture/004/save_picture_228964.jpg" />
 </div>
 
 
@@ -247,7 +381,7 @@ Aquarium 4K – Live Wallpaper 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228946.jpg" />
+  <img src="Z:/picture/004/save_picture_228946.jpg" />
 </div>
 
 
@@ -273,7 +407,7 @@ Password Vault Manager Enterprise 6.1.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228416.jpg" />
+  <img src="Z:/picture/005/save_picture_228416.jpg" />
 </div>
 
 
@@ -299,7 +433,7 @@ Jaksta Screen Recorder 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228193.jpg" />
+  <img src="Z:/picture/005/save_picture_228193.jpg" />
 </div>
 
 
@@ -328,7 +462,7 @@ Jaksta Music Recorder (Miner) 1.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228133.jpg" />
+  <img src="Z:/picture/005/save_picture_228133.jpg" />
 </div>
 
 
@@ -357,7 +491,7 @@ Photoflow - for Instagram 1.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227947.jpg" />
+  <img src="Z:/picture/005/save_picture_227947.jpg" />
 </div>
 
 
@@ -384,7 +518,7 @@ Jaksta Video Converter 2.0.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227906.jpg" />
+  <img src="Z:/picture/005/save_picture_227906.jpg" />
 </div>
 
 
@@ -413,7 +547,7 @@ Omni Remover 4.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227854.jpg" />
 </div>
 
 
@@ -439,7 +573,7 @@ Omni Downloader 1.4.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227840.jpg" />
 </div>
 
 
@@ -465,7 +599,7 @@ Jaksta Media Recorder 1.4.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227776.jpg" />
+  <img src="Z:/picture/005/save_picture_227776.jpg" />
 </div>
 
 
@@ -492,7 +626,7 @@ Radio Silence 3.0 beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227487.jpg" />
+  <img src="Z:/picture/005/save_picture_227487.jpg" />
 </div>
 
 
@@ -519,7 +653,7 @@ Scapple 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227456.jpg" />
+  <img src="Z:/picture/005/save_picture_227456.jpg" />
 </div>
 
 
@@ -545,7 +679,7 @@ Screens 4 v.4.12.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226481.jpg" />
 </div>
 
 
@@ -556,143 +690,6 @@ Screens 4 v.4.12.11 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF43B4DA158D6D33BB44A0CDA4B1E4CAA9A2F614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424846   (226162) от 18.11.2020
-
-Records 1.6.13 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Records - Личная база данных и визуальный органайзер
-Records восхитительный и простой в использовании органайзер для создания личной базы данных. Это идеальный компаньон для всего, что вы хотите, чтобы собрать и систематизировать в жизни, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2020Разработчик: Records TeamПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD95A6414878509D2919A08933CB01F88626163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424990   (226153) от 18.11.2020
-
-Redacted 1.2.4 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Redacted позволяет быстро и легко редактировать части изображения. Перетащите изображение, чтобы начать работать, а когда Вы закончите , сможете поделиться в Facebook или Twitter или просто сохранить отредактированное изображение на компьютере.
-
-Вы можете редактировать изображения тремя различными способами :
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: Nothing Magical Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6BA8487C3100631D303ECB3C5A1A5C0A12CC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268346   (226064) от 11.12.2018
-
-Jump Desktop (RDP & VNC) 8.1.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
-Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2018Разработчик: Phase Five SystemsПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3029C036228D3710A1FAC9D0A380503ACA8EC8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424829   (226032) от 18.11.2020
-
-Memory Clean 3 v1.0.20 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Clean - приложение для оптимизации памяти вашего Mac и лучше всего использовать утилиту после того как вы закончили интенсивное использование памяти (RAM) в приложении или игре.
-
-У каждого пользователя найдутся «тяжелые» приложения для работы которых не помешает небольшая уборка оперативной памяти. Даже работа с браузером порой может отнять приличное количество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C869786F1BEF2A5C983134D956C32AB1D896C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650532   (226011) от 02.08.2023
-
-2Do for Mac 2.8.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226011.jpg" />
-</div>
-
-
-###  Подробнее
-
-2Do делает реальным совершенно иной подход к управлению задачами. Благодаря чрезвычайно простому интерфейсу, и универсальному и гибкому набору мощных функций, программа позволяет сосредоточиться на том, что наиболее важно для вас: вашей жизни. 2Do невозможно использовать неправильным образом и, в отличие от других программ, он не заставляет вас придерживаться определенной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2023Разработчик: © 2009 - 2023 Beehive InnovationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D50F9D475A2F66201FD4685BB6E74AF6CBA275
 ```
 
 https://mybot314.ru/tekegram_catalog/

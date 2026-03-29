@@ -1,3 +1,57 @@
+###  Публикация: 1077271   (306582) от 28.11.2016
+
+За все в ответе (1973) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои фильма спустя 30 лет после окончания школы собираются на традиционную встречу. Фильм о тех, кто закончил школу в трагическом 1941 году. Действие фильма происходит в Москве.Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Георгий НатансонАктеры: Вера Васильева, Олег Видов, Евгений Герасимов, Алексей Грибов, Олег Ефремов, Александр Лазарев, Никита Подгорный, Ольга Яковлева, Михаил Яншин, Юрий Мажуга, Инна Кондратьева, Александр Воеводин, Людмила Чиншевая, Герман ЖуравлевПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB84C00C57D9A2EE8F5A9B946084A659673A7D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611671   (306480) от 03.12.2013
+
+Каталажка (1990) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306480.jpg" />
+</div>
+
+
+###  Подробнее
+
+В обычной городской тюрьме происходит невероятное: обрушилась стена дома.
+
+Руководство города и тюрьмы вынуждено срочно подыскивать новые квартиры своим подопечным, и оно с честью выходит из этой сложной ситуации весьма оригинальным способом — уголовников подселяют к злостным неплательщикам за квартиру…Жанр: КомедияРежиссер: Георгий КеворковАктеры: Евгений Стеблов, Александр Демьяненко, Виктор Ильичёв, Марина Левтова, Игорь Богодух,Ирина Токарчук, Янислав Левинзон, Павел Степанов, Владимир Татосов, Александр Пятков, Николай Ерофеев, Виктор Уральский, Юрий Соловьёв, Игорь Ефимов, Леонард Саркисов, Нина Антонова, Николай ШутькоПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1463CDCFC601932674D37BC97FB9605B8D52720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077036   (306322) от 28.11.2016
 
 Ларец Марии Медичи (1980) HDTVRip [H.264]
@@ -6,7 +60,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306322.jpg" />
+  <img src="Z:/picture/008/save_picture_306322.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306320.jpg" />
+  <img src="Z:/picture/008/save_picture_306320.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_306208.jpg" />
+  <img src="Z:/picture/005/save_picture_306208.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_305958.jpg" />
+  <img src="Z:/picture/005/save_picture_305958.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305942.jpg" />
+  <img src="Z:/picture/008/save_picture_305942.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305910.jpg" />
+  <img src="Z:/picture/008/save_picture_305910.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305898.jpg" />
+  <img src="Z:/picture/008/save_picture_305898.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305444.jpg" />
+  <img src="Z:/picture/008/save_picture_305444.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305198.jpg" />
+  <img src="Z:/picture/008/save_picture_305198.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305165.jpg" />
+  <img src="Z:/picture/008/save_picture_305165.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305015.jpg" />
+  <img src="Z:/picture/008/save_picture_305015.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304496.jpg" />
+  <img src="Z:/picture/008/save_picture_304496.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304024.jpg" />
+  <img src="Z:/picture/008/save_picture_304024.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_303737.jpg" />
+  <img src="Z:/picture/005/save_picture_303737.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303345.jpg" />
+  <img src="Z:/picture/008/save_picture_303345.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301910.jpg" />
+  <img src="Z:/picture/008/save_picture_301910.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301324.jpg" />
+  <img src="Z:/picture/008/save_picture_301324.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301227.jpg" />
+  <img src="Z:/picture/008/save_picture_301227.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301139.jpg" />
+  <img src="Z:/picture/008/save_picture_301139.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299664.jpg" />
+  <img src="Z:/picture/008/save_picture_299664.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297687.jpg" />
+  <img src="Z:/picture/008/save_picture_297687.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297052.jpg" />
+  <img src="Z:/picture/008/save_picture_297052.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296770.jpg" />
+  <img src="Z:/picture/008/save_picture_296770.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296058.jpg" />
+  <img src="Z:/picture/008/save_picture_296058.jpg" />
 </div>
 
 
@@ -620,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654A4EA4D65074744A32E0828863BB97721561B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424183   (295787) от 15.11.2020
-
-Духовой оркестр (1983) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый машинист Николай Егорович уходит на пенсию и решает возродить существовавший в пору его молодости железнодорожный духовой оркестр. Он пытается уговорить его бывших участников вернуться в оркестр, но не все с пониманием относятся к его идее.Производство: СССР / МосфильмЖанр: Короткометражный, драмаРежиссер: Виктор МамаевАктеры: Георгий Юматов, Андрей Смоляков, Людмила Антонюк, Татьяна Муха, Дмитрий Орловский, Валерий Афанасьев, Сергей Реусенко, Валерий Хлевинский, Юрий Медведев, Николай Парфёнов, Александр Январёв, Ольга Науменко, Галина ЧурилинаСубтитры: ОтсутствуютПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A455129B1E9304476F9A167A1803B27BBE2AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842169   (295719) от 05.12.2014
-
-Женские радости и печали (1982) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295719.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Константина Басенко.
-Марьяна Чернец попала в школу матросов-связистов. Юная миловидная девушка привлекла внимание Володи Лагоды, командира группы. Молодые люди полюбили друг друга. Но война разлучила их. И снова встретятся их пути, они поженятся, но у войны свои законы...Производство: СССР / Одесская киностудияЖанр: драма, военный, экранизацияРежиссер: Юрий ЧерныйАктеры: Оксана Слободенюк, Владимир Вихров, Валерий Юрченко, Нина Колчина-Бунь, Николай Олейник, Анатолий Рудаков, Вера Харыбина, Сергей Пожогин, Богдан Бенюк, Анна ГуляренкоСубтитры: ОтсутствуютПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5BF1D919C5B857DA66DB5CFE061682E6572C1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

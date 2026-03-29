@@ -1,3 +1,61 @@
+###  Публикация: 1192003   (262446) от 19.12.2017
+
+Daughter - Music From Before The Storm (2017) [MP3|320 Kbps] <Alternative, Indie>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass [4:16]
+02. Burn it Down [3:12]
+03. Flaws [2:53]
+04. Hope [4:23](   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D827DF7F37F43DF70188066EB3E0257C9DA4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663513   (262392) от 19.12.2017
+
+Юрий Никулин - Песня про зайцев (1999) [FLAC|Lossless]<Soundtrack, Retro>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ю.Никулин, Г.Вицин, Е.Моргунов - Постой, паровоз! (2:32)
+02 - Ю.Никулин - Если б я был султан... (2:39)
+03 - Ю.Никулин, А.Миронов - Жрица любви (0:36)
+04 - Ю.Никулин, А.Миронов - Поскользнулся, упал... Очнулся - гипс! (0:35)(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5B3B88F5906FAC17639A7E90DDF0C2F6202F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341533   (262285) от 28.11.2019
 
 White String Orchestra - Aktuelle Hits im modernen Streichersound (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
@@ -6,7 +64,7 @@ White String Orchestra - Aktuelle Hits im modernen Streichersound (1996) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262285.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Valefim Planet - Contradiction (2019) [MP3|320 Kbps] <Electronic, New age, Enigm
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262283.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Nrj Latino Hits Only ! 2CD (2017) [MP3|320 Kbps] <Reggaeton, Cumbia, Other>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262220.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Mu
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262117.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261786.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLA
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260875.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260727.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260580.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260148.jpg" />
+  <img src="Z:/picture/005/save_picture_260148.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Pa
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259841.jpg" />
+  <img src="Z:/picture/005/save_picture_259841.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259626.jpg" />
+  <img src="Z:/picture/005/save_picture_259626.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259588.jpg" />
+  <img src="Z:/picture/005/save_picture_259588.jpg" />
 </div>
 
 
@@ -385,7 +443,7 @@ Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259315.jpg" />
+  <img src="Z:/picture/005/save_picture_259315.jpg" />
 </div>
 
 
@@ -420,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258503.jpg" />
+  <img src="Z:/picture/005/save_picture_258503.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ VA - Celtic Spirit (2001) [MP3|320 кб/с]<New Age, Celtic Music, Ambient, Loun
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258491.jpg" />
+  <img src="Z:/picture/005/save_picture_258491.jpg" />
 </div>
 
 
@@ -481,7 +539,7 @@ Willie Nelson - The Very Best Of Willie Nelson (2008) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258342.jpg" />
+  <img src="Z:/picture/005/save_picture_258342.jpg" />
 </div>
 
 
@@ -516,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258083.jpg" />
+  <img src="Z:/picture/005/save_picture_258083.jpg" />
 </div>
 
 
@@ -542,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258074.jpg" />
+  <img src="Z:/picture/005/save_picture_258074.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ Liam Bradbury - Piano Covers Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257978.jpg" />
+  <img src="Z:/picture/005/save_picture_257978.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ Liam Bradbury - This Blue Planet (2017) [FLAC|Lossless|WEB-DL|tracks] <Easy List
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257977.jpg" />
+  <img src="Z:/picture/005/save_picture_257977.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257940.jpg" />
+  <img src="Z:/picture/005/save_picture_257940.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257939.jpg" />
+  <img src="Z:/picture/005/save_picture_257939.jpg" />
 </div>
 
 
@@ -693,7 +751,7 @@ VA - Masters of Acoustic Guitar (1997) [MP3|320 кб/с]<Acoustic Guitar / Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257470.jpg" />
+  <img src="Z:/picture/005/save_picture_257470.jpg" />
 </div>
 
 
@@ -728,7 +786,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257453.jpg" />
+  <img src="Z:/picture/005/save_picture_257453.jpg" />
 </div>
 
 
@@ -748,73 +806,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997D4D58511514CBBD8613771CA8E0E2F1A5B5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500394   (257395) от 24.05.2012
-
-Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Rock, Dark Acoustic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subaudition – это молодой финский дуэт, ранее исполнявший progressive metal в рамках малоизвестной команды Manifold Object. Необычный материал содержит не только стандартные и очевидные звуки, но также множество призрачных аллегорий, создающих атмосферу таинственности и загадочности. Полное ощущение сумрака, создаваемое богатым инструментальным рядом, спокойным вокалом и супер-эмоциональностью. Эта финская команда предпочитает создавать в своих произведениях безысходную атмосферу при помощи минимума нот, слов и звуков.01. Alms of the Sun (05:26)
-02. Sнnne (06:05)
-03. Now that we've spent all the Light (05:30)
-04. Feathers Fall (06:05)
-05. The Soul unto Aether (04:00)
-06. Human Abstract (06:12)
-07. Wall of Water (07:49)2006-2009Жанр: Neofolk, Atmospheric Rock, Dark AcousticПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500447   (257258) от 23.05.2012
-
-Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Metal>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Franconian Woods in Winter's Silence (08:34)
-02. A Gentle Grieving Farewell Kiss (01:59)
-03. The Blue Mists of Night (06:26)
-04. Mourners (09:18)
-05. Where at Night the Wood Grouse Plays (05:29)
-06. Dying Brokenhearted (05:34)
-07. The Shepherd and the Maiden Ghost (03:27)
-08. Heimwärts (06:41)
-09. Waldpoesie (13:31)
-10. Die Schwäne im Schilf (05:51)(   Читать дальше...   )1995-2006Жанр: Neofolk, Doom/Folk/Symphonic MetalПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

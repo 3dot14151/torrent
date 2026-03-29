@@ -1,3 +1,162 @@
+###  Публикация: 284409   (312503) от 07.11.2020
+
+To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебства [2008, 24 эпизодов] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие развивается в параллельном мире, где наука сплавлена с магией, и сверхъестественные способности давно никого не удивляют. Их носители делятся на две категории: эсперов, которые в результате направленной мутации получили один, пусть и мощный дар, и магов, которые могут быть слабее, но диапазон возможностей у них куда шире. Юных эсперов со всей Японии собирают (   Читать дальше...   )Жанр: иключения, комедия, мистикаРежиссер: Нисикиори Хироси / Nishikiori Hiroshi / 錦織博Субтитры: Русские ass от  Sora_P3_Heaven & Stan WarHammerПродолжительность: 24 эпизодов по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E820AE085D9162BFEC9B8BBF7871532D0836F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332781   (311666) от 21.10.2019
+
+Versailles no Bara | The Rose of Versailles | Lady Oscar | Роза Версаля [1979, TV, 40 из 40] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие «Розы Версаля» разворачивается во второй половине XVIII, в предреволюционной Франции.
+Генерал де Жарже не имеет наследника. Желание растить сына, который продолжит отцовскую военную карьеру, оказывается настолько сильно, что генерал называет свою последнюю дочь Оскаром-Франсуа и воспитывает, как мальчика.
+Когда Оскар исполняется 14 лет, отец представляет (   Читать дальше...   )Производство: TMS / トムス・エンタテインメントЖанр: драма, история, романтикаРежиссер: Нагахама ТадаоПеревод: Music Cat + KasandraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 40 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DBB4BB6C43515558AFA76083312D8EC13C9FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422287   (310710) от 08.11.2020
+
+Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth / Небесный Фафнир: Мёртвый агрессор - Небо и Земля [2010, Movie] BDRip 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310710.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента последней крупной схватки с Фестумами минуло два года. Жители острова Тацумия постепенно возвращаются к своей прежней размеренной жизни.
+Казуки Макабэ, ослепший с тех пор, с каждым днём всё больше теряет веру в обещание, данное ему Соши прямо перед своим исчезновением, что он вернётся, и всё вновь станет по-прежнему. Но всё меняется однажды ночью с появлением (   Читать дальше...   )Производство: XebecЖанр: приключения, фантастика, мехаРежиссер: Судзуки ТосимасаСубтитры: РусскиеПродолжительность: 95 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1266EB3280F2910912327037D8F2F21D06C80A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183336   (310078) от 13.11.2017
+
+Haruchika: Haruta to Chika wa Seishun Suru | Haruchika: Haruta & Chika | Хару-Чика: расцвет Харуты и Чики [2016, TV, 12] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чика Хомура и Харута Камиджо — друзья детства, которых объединяет не только крепкая дружба, но и большая любовь к музыке. Ведомые одинаковой страстью, ребята упорно тренируются игре в стенах комнаты, принадлежащей школьному клубу духовых инструментов. Но два человека — это слишком мало, чтобы клуб мог держаться на плаву. И вот перед юными музыкантами встает непростая (   Читать дальше...   )Производство: P.A. WorksЖанр: повседневность, романтика, школа, музыкальныйРежиссер: Хасимото МасакадзуПеревод: Seiya LovelessЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C07DDDE2593A62A918BFABF0B99F3ED4A3F0F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422734   (308437) от 09.11.2020
+
+Kyou kara Ore wa!! | Today, It's My Turn!! | Сегодня и начну! [1993, OVA, 10 из 10] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_308437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скука, одинаковость будней, желание как можно лучше социализироваться, заставляют двух самых обычных на вид старшеклассников за день до перехода в новую школу: одного – вызывающе по тем временам обесцветиться, второго – заказать себе в парикмахерской невероятный взрыв на макаронной фабрике в качестве прически. Первый прорыв серости будней завершен, и об «обычном», (   Читать дальше...   )Производство: Studio Pierrot / studioぴえろЖанр: приключения, комедияРежиссер: Мори ТакэсиПеревод: Maria & Zero (эп. 01-06), Ethnica (эп. 07, 08), Nicolai8 (эп. 09, 10)Язык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 10 эп. по 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455A07A205815D0E350B47E8F6474BEACDBEDC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626309   (308031) от 09.11.2020
+
+Kidou Senshi Gundam: SEED | Mobile Suit Gundam: SEED | Мобильный доспех Гандам: ПОКОЛЕНИЕ [2002 | 2011 (HD Remaster), TV, 48 эп. + 1 SP] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_308031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество нашло способ усовершенствования организма на генном уровне, позволяющий сделать людей намного быстрее, сильнее и умнее. Такие люди никогда не болеют, они очень выносливы, их способности и обучаемость поражают воображение — они стали почти совершенством, и получили название «Координаторы». Но далеко не всем в обществе пришлись по нраву подобные нововведения: (   Читать дальше...   )Производство: Япония, студия SunriseЖанр: приключения, фантастика, меха, драмаРежиссер: Фукуда МицуоОзвучка: ЯпонскаяСубтитры: РусскиеПродолжительность: 48 эп. по 24 мин. + 5 мин. эпилог
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3F518E5CD94A4A1B07A8C0E8D6062D4744E04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584574   (307836) от 04.12.2012
 
 Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Проект Зеораймер [1988, OVA, 4 ep] BDrip 1080p Hi10P raw
@@ -6,7 +165,7 @@ Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Про
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307836.jpg" />
+  <img src="Z:/picture/008/save_picture_307836.jpg" />
 </div>
 
 
@@ -34,7 +193,7 @@ ISUCA | Иска [2015, TV, 10 эп. + 1 OAD] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307053.jpg" />
+  <img src="Z:/picture/008/save_picture_307053.jpg" />
 </div>
 
 
@@ -60,7 +219,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305419.jpg" />
+  <img src="Z:/picture/008/save_picture_305419.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305300.jpg" />
+  <img src="Z:/picture/008/save_picture_305300.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Лов
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304218.jpg" />
+  <img src="Z:/picture/008/save_picture_304218.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ Clione no Akari | Lights of the Clione | Свет морского ангела 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303276.jpg" />
+  <img src="Z:/picture/008/save_picture_303276.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303207.jpg" />
+  <img src="Z:/picture/008/save_picture_303207.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303104.jpg" />
+  <img src="Z:/picture/008/save_picture_303104.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ Eiga Chuunibyou demo Koi ga Shitai! Take on Me | Чудачество любви
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303099.jpg" />
+  <img src="Z:/picture/008/save_picture_303099.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299586.jpg" />
+  <img src="Z:/picture/008/save_picture_299586.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299039.jpg" />
+  <img src="Z:/picture/008/save_picture_299039.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298776.jpg" />
+  <img src="Z:/picture/008/save_picture_298776.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298733.jpg" />
+  <img src="Z:/picture/008/save_picture_298733.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296649.jpg" />
+  <img src="Z:/picture/008/save_picture_296649.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295581.jpg" />
+  <img src="Z:/picture/008/save_picture_295581.jpg" />
 </div>
 
 
@@ -399,7 +558,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295573.jpg" />
+  <img src="Z:/picture/008/save_picture_295573.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295437.jpg" />
+  <img src="Z:/picture/008/save_picture_295437.jpg" />
 </div>
 
 
@@ -451,7 +610,7 @@ Kono Subarashii Sekai ni Shukufuku o! | Konosuba: God's Blessing on This Wonderf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295167.jpg" />
+  <img src="Z:/picture/008/save_picture_295167.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294919.jpg" />
+  <img src="Z:/picture/008/save_picture_294919.jpg" />
 </div>
 
 
@@ -503,7 +662,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293106.jpg" />
+  <img src="Z:/picture/008/save_picture_293106.jpg" />
 </div>
 
 
@@ -514,169 +673,6 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637B80D2323CA206B1D24C42F0F039AE47402BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184785   (291583) от 22.11.2017
-
-Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая первая ассоциация у вас возникает с именем Алиса? Конечно же, большинство ответит, что это произведение Льюиса Кэрролла "Алиса в стране чудес”. Но чудеса - это понятие весьма субъективное. Для каждого они свои. Кто-то чудесами называет волшебство, кто-то - рождение новых существ, а для других чудом кажутся и обыкновенные явления природы.
-
-Для нашей героини (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, мистикаРежиссер: Сакураби КацусиПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. (первая серия - 45 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36C9B748066602E4DD92DC64E136F9DE07200E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332511   (290536) от 31.10.2019
-
-Psycho-Pass: Sinners of the System| Психопаспорт: Грешники системы [2019, Movie, 3 эп.] BDRip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия полнометражных фильмов, рассказывающая истории пяти персонажей сериала:
-
-Дело №1: Преступление и наказание (Мика и Гино)
-Зимой 2117 года в офис Бюро Общественной Безопасности врезается угнанный автомобиль. Водитель опознан как Ясака Идзуми, психологический консультант Убежища, учреждения по изоляции латентных преступников префектуры Аомори. Но, перед ее (   Читать дальше...   )Производство: студия Production I.GЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: YouNet TranslateЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 фильма по 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F705001E8EFF9A755B31B8270908A76569A3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 269901   (289566) от 13.12.2010
-
-Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010, TV,  12 серий + 6 спэшлов] BD-rip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ichiban Ushiro no Daimaou Год выпуска: 2010
-Жанр: приключения, комедия
-Тип: TV-сериал(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EA0512A42BB2F65E3C5EE283691A71E9C5F5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335484   (287551) от 02.11.2019
-
-Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ] [1991, TV, 39] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Нанако Мисато поступает в престижную школу для девочек «Сэйран». Она очень горда своей первой житейской победой и от души рада тому, что вместе с ней будет учиться ее ближайшая подруга Томоко Арикура. Обо всех новостях своей жизни Нанако исправно пишет названному брату – учителю начальной школы, аккуратно адресуя хронику своих удач и поражений «Уважаемому старшему (   Читать дальше...   )Производство: TMSЖанр: повседневность, драмаРежиссер: Дэдзаки ОсамуПеревод: KoKoRo FansubsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 39 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4782B88DB12F3DAF7F34E6E725B1FB5FBC4CE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335684   (286016) от 03.11.2019
-
-DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная Япония. Момонари Дзюнта - необычный парень. У него аллергия на девушек - при малейшем намеке на эротическую сцену его начинает выворачивать наизнанку. Однако после случайно сделанной ему инъекции изменителя ДНК он начинает на время превращаться в Мега-Плейбоя - свою абсолютную противоположность, "идеального мужчину" и кумира всех девушек мира. (   Читать дальше...   )Жанр: фантастика, комедия, романтика, эттиРежиссер: Саката ДзюнъитиПеревод: Сергей 'Nomad' РыгинЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 3 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAC9B493A07E19DD0ADF30077974BCCAE69691E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186856   (284055) от 26.11.2017
-
-Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Love: Confess Your Love Committee | Я все жду, когда полюбишь меня [2016, Movie] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284055.jpg" />
-</div>
-
-
-###  Подробнее
-
-После репетиций Нацуки Эномото с Юу Сетогучи, их младшие братья и сестры Котару и Хина борются за признание своей собственной любви. Несмотря на катастрофическую первую встречу в средней школе с ее старшим классом Койуки Аясэ, сердце Хины захватывает его теплая улыбка. Вначале смущенная этими новообретенными чувствами, Хина скоро понимает, что она влюбилась в первый (   Читать дальше...   )Производство: Qualia AnimationЖанр: повседневность, романтика, школа, комедияРежиссер: Янагисава ТэцуяПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 65 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FD565DD65DEB2D274450E9CCABF529CB18E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

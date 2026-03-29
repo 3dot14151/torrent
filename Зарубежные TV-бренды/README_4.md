@@ -1,3 +1,107 @@
+###  Публикация: 1483479   (1006852) от 13.07.2021
+
+NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 2018 года НАСА запустило первую в истории миссию полета на звезду. Это поистине исторический квест, посвященный исследованию самого крупного объекта нашей солнечной системы - Солнца. Для его реализации был создан самый быстрый из когда-либо созданных на Земле летательных аппаратов, который будет лететь со скоростью 450000 миль в час. Его невероятная по своей (   Читать дальше...   )Производство: Великобритания, Thoroughly Modern Media, National GeographicЖанр: Документальный, научно-популярный, космосРежиссер: Даниэль М. СмитПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081E1A293CE3247B2AB5ADFF8BD7383D38277ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483632   (1006717) от 14.07.2021
+
+NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апрель 2019 года: страшный пожар охватил Собор Парижской Богоматери, угрожая разрушить его до основания. Задолго до того, как был потушен последний уголёк, французы поклялись восстановить свой любимый собор, который был олицетворением сердца французской культуры в течение почти 900 лет. Задача, стоящая перед реставраторами, поистине огромна, и те, кому поручена ее (   Читать дальше...   )Производство: Франция, Китай, США, Австралия, GEDEON Programmes, China Media Group CCTV9, INRAP, National GeographicЖанр: Документальный, культураРежиссер: Квентин Домар, Шарлин Гравель, Мишель ХолландерУчастники: Стефан Берн, Патрик Шове, Дидье КюизеПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EEFF1F396D99DD3D00A5A7EF489D3A135FCD03F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483993   (1006465) от 16.07.2021
+
+NG. В погоне за равноденствием / Chasing the Equinox (2019) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние скрывали секреты своего невероятного знания астрономии в своих храмах и дворцах, построенных так, что они встречали солнце одновременно, в один и тот же день по всей планете. Это своеобразная архитектурная магия в масштабах всей земли доказывает то значение, которое придавали солнцу люди на протяжении тысячелетий и на всех континентах.Производство: Великобритания, Pioneer Productions, National GeographicЖанр: Документальный, научно-познавательный, историяРежиссер: Кенни СкоттПеревод: Одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9829A8A2DED8B7961CC49B68F1BBB49E55C0787E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484142   (1006345) от 17.07.2021
+
+BBC. Тайные правила современной жизни: Алгоритмы / The Secret Rules of Modern Living: Algorithms (2015) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алгоритмы знают, когда наполнять полки супермаркетов, предсказывать погоду, направлять руку хирурга, создавать произведение искусства и даже зажигать искру любви. Они повсюду, но большинство и не подозревают об их влиянии. Каковы тайные правила современной жизни?Производство: Великобритания, BBC Scotland, The Open UniversityЖанр: Документальный, научно-познавательный, информатикаРежиссер: Дэвид БриггсПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F499E843C025DFF2CC92F64238521BFAFA4C2B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483729   (1006342) от 17.07.2021
 
 Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.264/1080p] (Сезон 11, эпизоды 1-11 из 11 (Выпуски 197-207))
@@ -6,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006342.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006244.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006100.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006086.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC. Королева Виктория и её девять детей / Queen V
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006059.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005986.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005577.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005567.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005405.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005167.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005067.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004518.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004511.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004277.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004006.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003935.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC: Глобальное потепление: факты / Climate Change: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003931.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003742.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery. Битва самогонщиков / Master Distiller (2020) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003013.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG. На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002502.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002384.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002139.jpg" />
 </div>
 
 
@@ -564,112 +668,6 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3331448B92C1448084FAF3E094C0B773CB90040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351410   (1002133) от 10.01.2020
-
-BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ошеломляющий и поражающий своей красотой, новыми открытиями и впечатлениями уникальный сериал о живой природе нашей планеты. Более 3000 съемочных дней, проведенных на каждом из земных континентов, беспрецедентная техника съемки, 130 невероятных и захватывающих дух историй из страниц животного мира, — все это и есть «Жизнь» — история животного мира, какой Вы её еще (   Читать дальше...   )Производство: Великобритания, США, Греция, Италия, Германия, British Broadcasting Corporation (BBC), Discovery Channel, SKAI, Reti Televisive Italiane (RTI), ARTE, The Open UniversityЖанр: Документальный, природа, флора, фаунаРежиссер: Марта Холмс, Саймон Блэкни, Стефен ЛайлПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские (Союз-Видео), русские (В.Курдов), английские, португальскиеПродолжительность: серии x ~00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18729D4421A0AE1E5985937FA2BAED27CC227A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600379   (998883) от 08.01.2013
-
-BBC: История Шотландии с Нейлом Оливером. Последние из свободных людей / A History of Scotland. The Last of the Free (2008) BDRip [Сезон 1: 1 из 5]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что первым приходит на ум, когда речь заходит об истории Шотландии? Конечно это легенды и романтические рассказы об отважных горцах, смело глядящих опасности в лицо. Искренне сожалею, но придется вас разочаровать. История Шотландии вовсе не так обворожительна, как представляется большинству. Она, как и прочие истории, полна коварства, насилия и обмана вперемешку с честью, храбростью и лучшими примерами человеческой добродетели. «История Шотландии» - это, в первую очередь, попытка докопаться до настоящей истории, рассказать о тех фактах, которые не были придуманы монахами, летописцами и придворными историками в угоду времени и взглядам современников. Объективность и доказательства – вот два столпа, на которых зиждется этот документальный фильм.
-Сериал «История Шотландии», в противовес популярным сегодня жанрам «актер читает текст» или «журналист ведет расследование», дал слово профессионалу. Ведущим выступает Нейл Оливер, шотландец по национальности, имеющий за плечами 20-летний опыт работы археологом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B256826056265B7C38E5D6353931FBC657C0FD7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599526   (998877) от 08.01.2013
-
-Думают ли птицы / Bird Brain (2011) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало кто считает птиц интеллектуалами. Но ученые уверены, что птицы умнее, чем мы думаем. В процессе решения огромного числа задач птицы показали, что они способны к разумным формам поведения, иногда превосходя в этом млекопитающих. Птицы способны дружить, играть и действовать сообща...Жанр: ДокументальныйРежиссер: Victoria CoulesПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4756D7464012FC72A817AB56239930C296B30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600402   (998507) от 09.01.2013
-
-BBC: История Шотландии с Нейлом Оливером. Молоты шотландцев / A History of Scotland. Hammers of the Scots (Александр II и Уильям Уоллас) (2008) BDRip [Сезон 1: 2 из 5]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что первым приходит на ум, когда речь заходит об истории Шотландии? Конечно это легенды и романтические рассказы об отважных горцах, смело глядящих опасности в лицо. Искренне сожалею, но придется вас разочаровать. История Шотландии вовсе не так обворожительна, как представляется большинству. Она, как и прочие истории, полна коварства, насилия и обмана вперемешку с честью, храбростью и лучшими примерами человеческой добродетели. «История Шотландии» - это, в первую очередь, попытка докопаться до настоящей истории, рассказать о тех фактах, которые не были придуманы монахами, летописцами и придворными историками в угоду времени и взглядам современников. Объективность и доказательства – вот два столпа, на которых зиждется этот документальный фильм.
-Сериал «История Шотландии», в противовес популярным сегодня жанрам «актер читает текст» или «журналист ведет расследование», дал слово профессионалу. Ведущим выступает Нейл Оливер, шотландец по национальности, имеющий за плечами 20-летний опыт работы археологом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF03F264FAD594671F61D21C20780EF390CDA25
 ```
 
 https://mybot314.ru/tekegram_catalog/

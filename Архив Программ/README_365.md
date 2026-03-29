@@ -6,7 +6,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.16 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862874.jpg" />
+  <img src="Z:/picture/008/save_picture_862874.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ oCam 370.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862820.jpg" />
+  <img src="Z:/picture/008/save_picture_862820.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DevID Agent 4.37 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862812.jpg" />
+  <img src="Z:/picture/008/save_picture_862812.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF24 Creator 8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862809.jpg" />
+  <img src="Z:/picture/008/save_picture_862809.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Extreme Picture Finder 3.33.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862804.jpg" />
+  <img src="Z:/picture/008/save_picture_862804.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Comodo Dragon 48.12.18.249 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862777.jpg" />
+  <img src="Z:/picture/008/save_picture_862777.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ReGen - KeyCode 1.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862772.jpg" />
+  <img src="Z:/picture/008/save_picture_862772.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FileZilla 3.16.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862770.jpg" />
+  <img src="Z:/picture/008/save_picture_862770.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Password Safe 3.38.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862768.jpg" />
+  <img src="Z:/picture/008/save_picture_862768.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Windows and Office ISO Download Tool 4.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862718.jpg" />
+  <img src="Z:/picture/008/save_picture_862718.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ USDownloader 1.3.5.9 Portable (23.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862675.jpg" />
+  <img src="Z:/picture/008/save_picture_862675.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Autorun Organizer 2.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862665.jpg" />
+  <img src="Z:/picture/008/save_picture_862665.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ UltraUXThemePatcher 3.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862593.jpg" />
+  <img src="Z:/picture/008/save_picture_862593.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Internet Download Accelerator Pro 6.12.1.1545 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862586.jpg" />
+  <img src="Z:/picture/008/save_picture_862586.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FlipBuilder Flip PDF 4.3.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862544.jpg" />
+  <img src="Z:/picture/008/save_picture_862544.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daum PotPlayer 1.6.59347 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862532.jpg" />
+  <img src="Z:/picture/008/save_picture_862532.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ MediaInfo 0.7.62 Final RePack by nikollo2013 [Русский/Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862521.jpg" />
+  <img src="Z:/picture/008/save_picture_862521.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Process Lasso Pro 8.9.7.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862517.jpg" />
+  <img src="Z:/picture/008/save_picture_862517.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ MAGIX Vegas DVD Architect 7.0.0 Build 54 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862453.jpg" />
+  <img src="Z:/picture/008/save_picture_862453.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ASoft .NET Version Detector 16 R3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862451.jpg" />
+  <img src="Z:/picture/008/save_picture_862451.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ SynWrite 6.20.2210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862427.jpg" />
+  <img src="Z:/picture/008/save_picture_862427.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Foxit Reader 7.3.4.311 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862415.jpg" />
+  <img src="Z:/picture/008/save_picture_862415.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862412.jpg" />
+  <img src="Z:/picture/008/save_picture_862412.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Adobe Flash Player 21.0.0.197 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862410.jpg" />
+  <img src="Z:/picture/008/save_picture_862410.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Pepakura Designer 4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862341.jpg" />
+  <img src="Z:/picture/008/save_picture_862341.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Daum PotPlayer 1.6.59347 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862312.jpg" />
+  <img src="Z:/picture/008/save_picture_862312.jpg" />
 </div>
 
 

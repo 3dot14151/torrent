@@ -1,3 +1,29 @@
+###  Публикация: 1247830   (450324) от 16.09.2018
+
+Особые игрушки / Sick for Toys (2018) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рой хороший парень, последнее слово всегда за ним. Недовольный нынешней ситуацией, он принимает приглашение на Рождественский ужин с прекрасной, манящей Эмилией. За ужином Рой понимает, что Эмилия и её странный брат Эдвард не те, кем кажутся.Производство: США / Delco-Cut Productions, Nine Ten FilmsЖанр: УжасыРежиссер: Дэвид Дель РиоАктеры: Камилла Монтгомери, Джон Пол Буркхарт, Джастин Ксавьер Смит, Дэвид Ганнинг, Мелани Томпсон, Моргана Шоу, Кэти Уоллес, Пол Т. Тейлор, Лаура Вельта, Йена МагеррамовПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:28:36Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C438B2BA3FC88B057D23901A271C1B85B642B84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247851   (450321) от 16.09.2018
 
 Побег хулиганов / Hooligan Escape (2018) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450321.jpg" />
+  <img src="Z:/picture/008/save_picture_450321.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450319.jpg" />
+  <img src="Z:/picture/008/save_picture_450319.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450314.jpg" />
+  <img src="Z:/picture/008/save_picture_450314.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450208.jpg" />
+  <img src="Z:/picture/008/save_picture_450208.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450196.jpg" />
+  <img src="Z:/picture/008/save_picture_450196.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450194.jpg" />
+  <img src="Z:/picture/008/save_picture_450194.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450177.jpg" />
+  <img src="Z:/picture/008/save_picture_450177.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450144.jpg" />
+  <img src="Z:/picture/008/save_picture_450144.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450064.jpg" />
+  <img src="Z:/picture/008/save_picture_450064.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450060.jpg" />
+  <img src="Z:/picture/008/save_picture_450060.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450059.jpg" />
+  <img src="Z:/picture/008/save_picture_450059.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449910.jpg" />
+  <img src="Z:/picture/008/save_picture_449910.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447710.jpg" />
+  <img src="Z:/picture/008/save_picture_447710.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446531.jpg" />
+  <img src="Z:/picture/008/save_picture_446531.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444128.jpg" />
+  <img src="Z:/picture/008/save_picture_444128.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443802.jpg" />
+  <img src="Z:/picture/008/save_picture_443802.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443801.jpg" />
+  <img src="Z:/picture/008/save_picture_443801.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443800.jpg" />
+  <img src="Z:/picture/008/save_picture_443800.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443698.jpg" />
+  <img src="Z:/picture/008/save_picture_443698.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443690.jpg" />
+  <img src="Z:/picture/008/save_picture_443690.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443658.jpg" />
+  <img src="Z:/picture/008/save_picture_443658.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443481.jpg" />
+  <img src="Z:/picture/008/save_picture_443481.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443399.jpg" />
+  <img src="Z:/picture/008/save_picture_443399.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441620.jpg" />
+  <img src="Z:/picture/008/save_picture_441620.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438671.jpg" />
+  <img src="Z:/picture/008/save_picture_438671.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DD3757BC5D5E1A762EFB54B38AA73EAFBF1541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249300   (434939) от 23.09.2018
-
-Его полное помешательство / His Perfect Obsession (2018) HDTVRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эллисон и ее слепая дочь, Эбигейл, возвращаются в родной городок после смерти любимой тети, и в их жизни появляется старый школьный друг героини, все эти годы испытывавший к ней ненормальную и опасную страсть. Эбигейл, которой сначала так полюбился маленький и тихий городок, начинает понимать, что на самом деле всё не так, как кажется.Производство: Канада / NB Thrilling Films 2Жанр: ТриллерРежиссер: Александр КарьерАктеры: Эрианн Цукер, Алиса Сковбай, Микаэль Конде, Дебора Гровер, Томас Чованец, Сэмми Барбер, Хизер Тод Митчелл, Майк Стечисон, Шонн Галлахер, Скотт ГибсонПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:24:05Реклама: Присутствуют вставки голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289F4BCA80B02804C31D62F826B3EAF6CD5D4396
 ```
 
 https://mybot314.ru/tekegram_catalog/

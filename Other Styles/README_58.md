@@ -6,7 +6,7 @@
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730358.jpg" />
+  <img src="Z:/picture/008/save_picture_730358.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730045.jpg" />
+  <img src="Z:/picture/008/save_picture_730045.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730039.jpg" />
+  <img src="Z:/picture/008/save_picture_730039.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Не грози Южному Централу, попивая сок у с�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730015.jpg" />
+  <img src="Z:/picture/008/save_picture_730015.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730012.jpg" />
+  <img src="Z:/picture/008/save_picture_730012.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, W
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729976.jpg" />
+  <img src="Z:/picture/008/save_picture_729976.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729940.jpg" />
+  <img src="Z:/picture/008/save_picture_729940.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729934.jpg" />
+  <img src="Z:/picture/008/save_picture_729934.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729929.jpg" />
+  <img src="Z:/picture/008/save_picture_729929.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729925.jpg" />
+  <img src="Z:/picture/008/save_picture_729925.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Viol
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729765.jpg" />
+  <img src="Z:/picture/008/save_picture_729765.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del p
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729742.jpg" />
+  <img src="Z:/picture/008/save_picture_729742.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728905.jpg" />
+  <img src="Z:/picture/008/save_picture_728905.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lalo Schifrin - Magnum Force: The Original Score (1973) Remaster, 2005, Aleph Re
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728895.jpg" />
+  <img src="Z:/picture/008/save_picture_728895.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Los clasicos argentinos - Tango - Vol.16 - Osvaldo Fresedo: El aristocrata 
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728673.jpg" />
+  <img src="Z:/picture/008/save_picture_728673.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Enigmatic (2006) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728671.jpg" />
+  <img src="Z:/picture/008/save_picture_728671.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728655.jpg" />
+  <img src="Z:/picture/008/save_picture_728655.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728585.jpg" />
+  <img src="Z:/picture/008/save_picture_728585.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_728137.jpg" />
+  <img src="Z:/picture/005/save_picture_728137.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727747.jpg" />
+  <img src="Z:/picture/008/save_picture_727747.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727585.jpg" />
+  <img src="Z:/picture/008/save_picture_727585.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727550.jpg" />
+  <img src="Z:/picture/008/save_picture_727550.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727435.jpg" />
+  <img src="Z:/picture/008/save_picture_727435.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727426.jpg" />
+  <img src="Z:/picture/008/save_picture_727426.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Kelsea Ballerini - The First Time (2015) [FLAC|Lossless|image + .cue] <Country, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727363.jpg" />
+  <img src="Z:/picture/008/save_picture_727363.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727232.jpg" />
+  <img src="Z:/picture/008/save_picture_727232.jpg" />
 </div>
 
 

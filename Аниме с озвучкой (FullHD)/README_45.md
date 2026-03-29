@@ -1,3 +1,29 @@
+###  Публикация: 1804283   (4839) от 01.09.2025
+
+Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcist in Another World | Перерождение сильнейшего экзорциста [2023, TV, 13 из 13 эп.] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харуёси — сильнейший онмёдзи (предсказатель) в своём мире. Его предали друзья, и, находясь на грани смерти, он хочет быть счастливым в следующей жизни. Затем он пытается применить секретное заклинание реинкарнации. Заклинание срабатывает, и он перевоплощается , но каким-то образом оказывается в другом мире. Он перерождается в выдающейся семье волшебников, но считается, (   Читать дальше...   )Производство: Studio Blanc.Жанр: приключения, фэнтезиРежиссер: Нагаяма НобуёсиПеревод: CrunchyRollОзвучка: Original (Commentary) (ep. 01, 02)Язык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 13 эп по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E35FC3D7A90EFAABC5B047F4D9376356D75C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524142   (4754) от 02.09.2025
 
 One Piece | Ван-Пис [1999, TV, 207-1122 эп.] WEBRip 1080p raw+rus
@@ -6,7 +32,7 @@ One Piece | Ван-Пис [1999, TV, 207-1122 эп.] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4754.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3808.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2456.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1815.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1814.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1299.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1649143   (230404) от 26.07.2023
+
+М.Я. Выгодский | Основы высшей математики (1963 - 1965) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее руководство составлено применительно к действующей программе по основному курсу высшей математики механико-машиностроительных технических учебных заведений и специально предназначено для студентов, обучающихся заочно. Поэтому уделено особое внимание примерам, поясняющим теоретические выводы, а зачастую и предваряющие последние.Жанр: МатематикаИздательство: ФизматгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FBF46C2553DC9BB99B5B66FC14F2D6FEDF98A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649153   (230392) от 26.07.2023
+
+Ю.Н. Дементьев и др. | Электротехника и электроника. Электрический привод (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230392.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены основы теории электропривода. Рассматриваются принципы действия разомкнутых и замкнутых систем электроприводов постоянного и переменного тока. Представлена методика и примеры расчета параметров двигателей, статических и динамических характеристик электроприводов.
+Пособие предназначено для студентов, обучающихся по специальностям укрупненной группы (   Читать дальше...   )Жанр: Электротехника, электроникаИздательство: ПрофобразованиеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86908C64E1C2EF334EF40BC3689CBAA04E649629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556847   (230251) от 11.06.2022
 
 Сергей Криволапов, Марина Хрипунова | Математика на Python (2022) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230251.jpg" />
+  <img src="Z:/picture/005/save_picture_230251.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229982.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229906.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229868.jpg" />
+  <img src="Z:/picture/005/save_picture_229868.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229675.jpg" />
+  <img src="Z:/picture/004/save_picture_229675.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229421.jpg" />
+  <img src="Z:/picture/004/save_picture_229421.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229372.jpg" />
+  <img src="Z:/picture/004/save_picture_229372.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229224.jpg" />
+  <img src="Z:/picture/004/save_picture_229224.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229133.jpg" />
+  <img src="Z:/picture/004/save_picture_229133.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228792.jpg" />
+  <img src="Z:/picture/005/save_picture_228792.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228559.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227284.jpg" />
+  <img src="Z:/picture/005/save_picture_227284.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227259.jpg" />
+  <img src="Z:/picture/005/save_picture_227259.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227107.jpg" />
+  <img src="Z:/picture/005/save_picture_227107.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226743.jpg" />
+  <img src="Z:/picture/005/save_picture_226743.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225553.jpg" />
+  <img src="Z:/picture/005/save_picture_225553.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225080.jpg" />
+  <img src="Z:/picture/005/save_picture_225080.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224995.jpg" />
+  <img src="Z:/picture/005/save_picture_224995.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224973.jpg" />
+  <img src="Z:/picture/005/save_picture_224973.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224600.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224509.jpg" />
+  <img src="Z:/picture/005/save_picture_224509.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224484.jpg" />
+  <img src="Z:/picture/005/save_picture_224484.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224428.jpg" />
+  <img src="Z:/picture/005/save_picture_224428.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224342.jpg" />
+  <img src="Z:/picture/005/save_picture_224342.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEDC0BEF967ACF5A87687203E0F5C59A8429AFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584885   (224184) от 19.10.2022
-
-А. Колмогоров, С. Фомин | Элементы теории функций и функционального анализа (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено строгое систематизированное изложение основ функционального анализа и тонких вопросов теории функций действительного переменного. Основой явился курс функционального анализа, читавшийся А.Н. Колмогоровым в течение ряда лет на механико-математическом факультете МГУ им. М.В. Ломоносова. Академик А.Н. Колмогоров разработал программу новой дисциплины (названной (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B066B9861D2486C030A958A330B1D04B518FEA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425068   (224097) от 19.11.2020
-
-Александр Мещеряков, Максим Грачев | История древней Японии [Учебное пособие для вузов] (2010) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Император и его аристократическое окружение, институты власти и заговоры, внешняя политика и стиль жизни, восприятие пространства и времени, мифы и религия… Почему Япония называется Японией? Отчего японцы отказались пить молоко? Почему японцы уважают ученых? Обо всем этом и о многом другом — в самом подробном изложении, какое только существует на европейских языках.Жанр: История, Учебники и пособия для ВУЗовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAE78A9031E9C0DD9899921DF8AC9119810D3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

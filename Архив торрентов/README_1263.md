@@ -6,7 +6,7 @@ AdwCleaner 5.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769502.jpg" />
+  <img src="Z:/picture/008/save_picture_769502.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769498.jpg" />
+  <img src="Z:/picture/008/save_picture_769498.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ZD Soft Screen Recorder 9.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769495.jpg" />
+  <img src="Z:/picture/008/save_picture_769495.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769494.jpg" />
+  <img src="Z:/picture/008/save_picture_769494.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Freemake Video Converter 4.1.9.10 DC 11.05.2016 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769488.jpg" />
+  <img src="Z:/picture/008/save_picture_769488.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769484.jpg" />
+  <img src="Z:/picture/008/save_picture_769484.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769472.jpg" />
+  <img src="Z:/picture/008/save_picture_769472.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769469.jpg" />
+  <img src="Z:/picture/008/save_picture_769469.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769463.jpg" />
+  <img src="Z:/picture/008/save_picture_769463.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769462.jpg" />
+  <img src="Z:/picture/008/save_picture_769462.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe components: Flash Player 21.0.0.242 | AIR 21.0.0.215 | Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769459.jpg" />
+  <img src="Z:/picture/008/save_picture_769459.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769457.jpg" />
+  <img src="Z:/picture/008/save_picture_769457.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769454.jpg" />
+  <img src="Z:/picture/008/save_picture_769454.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769450.jpg" />
+  <img src="Z:/picture/008/save_picture_769450.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.05) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769437.jpg" />
+  <img src="Z:/picture/008/save_picture_769437.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.05) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769430.jpg" />
+  <img src="Z:/picture/008/save_picture_769430.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769427.jpg" />
+  <img src="Z:/picture/008/save_picture_769427.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769414.jpg" />
+  <img src="Z:/picture/008/save_picture_769414.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BusyCal 3 v3.10.1 (build 401021) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769405.jpg" />
+  <img src="Z:/picture/008/save_picture_769405.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Antivirus Zap Pro 3.9.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769404.jpg" />
+  <img src="Z:/picture/008/save_picture_769404.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ URL Manager Pro 5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769402.jpg" />
+  <img src="Z:/picture/008/save_picture_769402.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Metadatics 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769397.jpg" />
+  <img src="Z:/picture/008/save_picture_769397.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ MacBooster 8 Pro 8.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769389.jpg" />
+  <img src="Z:/picture/008/save_picture_769389.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Exposure Software Blow Up 3 v3.1.4.323 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769388.jpg" />
+  <img src="Z:/picture/008/save_picture_769388.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769379.jpg" />
+  <img src="Z:/picture/008/save_picture_769379.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769377.jpg" />
+  <img src="Z:/picture/008/save_picture_769377.jpg" />
 </div>
 
 

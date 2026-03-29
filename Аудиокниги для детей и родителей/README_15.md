@@ -1,3 +1,88 @@
+###  Публикация: 1372615   (884763) от 03.04.2020
+
+Русские народные сказки. Сборник (1962-1983) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки, которые нам читали родители в детстве; мы читаем своим детям, а они уже своим чадам. Эти прекрасные сказки не уходят в забвение, передаваясь из поколения в попоколение.Жанр: Детская литератураПродолжительность: 23:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BA8B4B8990CBE89C1A0FFC6E80057BC730ED6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103828   (883431) от 13.02.2017
+
+Пётр Ершов | Конёк-Горбунок (2008) [WavPack, Олег Табаков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883431.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Конёк-Горбунок» — сказка в стихах Петра Ершова, написанная в 1830-х годах. Главные персонажи — крестьянский сын Иванушка-дурачок и волшебный конёк-горбунок.
+Это классическое произведение русской детской литературы написано четырёхстопным хореем с па́рной рифмовкой. Лёгкость стиха, множество метких выражений, элементы едкой социальной сатиры определили популярность (   Читать дальше...   )Жанр: АудиоспектакльИздательство: Мелодия, MEL CD 50 01377, Double CDПродолжительность: 00:29:51
+
+01 | Конёк-Горбунок. Часть 7 | 05:21
+02 | Конёк-Горбунок. Часть 8 | 09:18(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C8C263CEDA5DBFFC8910602B5CF8DF13D6C6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104424   (881797) от 14.02.2017
+
+Владимир Зотов и др. | Сказки для маленьких (2012) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои сказок Владимира Зотова – Чиж, Ящерица, Заяц, Рак-отшельник, Медуза, Собака, Котёнок. Со всеми ними происходят невероятные приключения. Сейчас вы услышите рассказ о том, почему пассажиров, у которых нет билета, называют «зайцами», познакомитесь с умным чижом по имени Чик, который перехитрил хвастливую и заносчивую Сосульку, а также с Собакой, которая научила (   Читать дальше...   )01. Хитрый Чик (05:01)
+02. Как рак-отшельник друга нашёл (07:27)
+03. Мудрый совет (04:06)
+04. До чего жадность доводит (06:48)(   Читать дальше...   )Жанр: АудиоспектакльПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F70B840734EFA33C7E71418F90E8A64F5648C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104455   (881606) от 14.02.2017
 
 Мелодия | Курочка Ряба и другие сказки для маленьких (2013) [WavPack]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881606.jpg" />
+  <img src="Z:/picture/005/save_picture_881606.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881282.jpg" />
+  <img src="Z:/picture/005/save_picture_881282.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881279.jpg" />
+  <img src="Z:/picture/005/save_picture_881279.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880822.jpg" />
+  <img src="Z:/picture/005/save_picture_880822.jpg" />
 </div>
 
 
@@ -113,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880183.jpg" />
+  <img src="Z:/picture/005/save_picture_880183.jpg" />
 </div>
 
 
@@ -142,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879451.jpg" />
+  <img src="Z:/picture/005/save_picture_879451.jpg" />
 </div>
 
 
@@ -169,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879003.jpg" />
+  <img src="Z:/picture/005/save_picture_879003.jpg" />
 </div>
 
 
@@ -197,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878026.jpg" />
+  <img src="Z:/picture/005/save_picture_878026.jpg" />
 </div>
 
 
@@ -223,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877555.jpg" />
+  <img src="Z:/picture/005/save_picture_877555.jpg" />
 </div>
 
 
@@ -251,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873559.jpg" />
+  <img src="Z:/picture/008/save_picture_873559.jpg" />
 </div>
 
 
@@ -277,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871271.jpg" />
+  <img src="Z:/picture/008/save_picture_871271.jpg" />
 </div>
 
 
@@ -304,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869965.jpg" />
+  <img src="Z:/picture/008/save_picture_869965.jpg" />
 </div>
 
 
@@ -330,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868578.jpg" />
+  <img src="Z:/picture/008/save_picture_868578.jpg" />
 </div>
 
 
@@ -356,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866390.jpg" />
+  <img src="Z:/picture/008/save_picture_866390.jpg" />
 </div>
 
 
@@ -382,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862917.jpg" />
+  <img src="Z:/picture/008/save_picture_862917.jpg" />
 </div>
 
 
@@ -408,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862686.jpg" />
+  <img src="Z:/picture/008/save_picture_862686.jpg" />
 </div>
 
 
@@ -434,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860927.jpg" />
+  <img src="Z:/picture/008/save_picture_860927.jpg" />
 </div>
 
 
@@ -460,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859281.jpg" />
+  <img src="Z:/picture/008/save_picture_859281.jpg" />
 </div>
 
 
@@ -487,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859275.jpg" />
+  <img src="Z:/picture/008/save_picture_859275.jpg" />
 </div>
 
 
@@ -513,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_858851.jpg" />
+  <img src="Z:/picture/005/save_picture_858851.jpg" />
 </div>
 
 
@@ -539,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858178.jpg" />
+  <img src="Z:/picture/008/save_picture_858178.jpg" />
 </div>
 
 
@@ -566,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858146.jpg" />
+  <img src="Z:/picture/008/save_picture_858146.jpg" />
 </div>
 
 
@@ -594,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858072.jpg" />
+  <img src="Z:/picture/008/save_picture_858072.jpg" />
 </div>
 
 
@@ -605,85 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBBC578728745044412A0A41CBC16BD865643ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498381   (858066) от 26.09.2021
-
-Джон Бриджес, Брайан Кертис | Этикет для юного джентльмена (2020) [MP3, Юрий Белик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858066.jpg" />
-</div>
-
-
-###  Подробнее
-
-ХОРОШИЕ МАНЕРЫ – признак здравого смысла и вежливости, поэтому юноша должен начинать осваивать их как можно раньше. Получит ли какую-то награду молодой человек, усвоивший правила этикета? Конечно, да. Можно с уверенностью сказать, что его станут чаще приглашать на вечеринки, он сможет претендовать на хорошую летнюю работу, будет нравиться девушкам и, что не менее (   Читать дальше...   )Жанр: Зарубежные детские книги/ЭтикетПродолжительность: 02:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72C5F0938300EC28B70C26B517622F0ECBDA7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190308   (857696) от 08.04.2010
-
-Борис Акунин | Жанры (Книга 1). Детская книга (2010) [MP3, Ирина Ерисанова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857696.jpg" />
-</div>
-
-
-###  Подробнее
-
-О невероятных приключениях правнука знаменитого сыщика Эраста Петровича Фандорина, - шестиклассника Эрастика Фандорина, - обыкновенного, на первый взгляд, мальчика, проживающего в Российской Федерации, городе Москве, на улице Солянке…
-Вот так выйдешь самым обыденным утречком, 29-го сентября 2006-го года из дома, торопишься, как всегда, в школу, - опаздываешь, как (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 11:48:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305518   (856276) от 07.03.2011
-
-Мелодия | Александр Дитрих, Е. Благинина | Как игрушки пошли учиться. Научусь-ка я читать (2010) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слышал ли ты когда-нибудь о человеке, от которого ушло его время? И не только ушло, но – в довершение беды – ушло служить тем, кого этот человек посчитал своими врагами. Так вот, жил-был на свете маленький мальчик, и с ним-то как раз и произошла эта печальная история. Звали мальчика Петей Кляксиным, и он только-только собирался пойти в школу, в первый класс. А для (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19D720AB855BE9968C85E4D95928BDF124513AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

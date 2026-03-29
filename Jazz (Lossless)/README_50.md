@@ -1,3 +1,119 @@
+###  Публикация: 1108188   (864843) от 24.02.2017
+
+Eddie "Lockjaw" Davis - Quartet (1985) 2000, Storyville Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just Friends [06:55]
+ 02.Out of Nowhere [08:47]
+ 03.Take the 'A' Train [07:30]
+ 04.S 'Wonderful [06:12](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FFC3BF5B474E6E665A91F64AE0A0538F856606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108125   (864841) от 24.02.2017
+
+John Hicks - Something To Live For: A Billy Strayhorn Songbook (1998) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Something to Live For [05:47]
+ 02.Daydream [06:45]
+ 03.Medley: Lotus, Blossom [04:12]
+ 04.Blood Count [07:05](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F84EEB8837B0345E235A6C0F6A6B14FB5074827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108231   (864840) от 24.02.2017
+
+Michael Dease - All These Hands (2017) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creole Country
+02. Delta City Crossroads
+03. Good & Terrible
+04. Territory Blues(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:65:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F165ED67FDAE4E81FF486E9435A0E0C637FD4EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108122   (864839) от 24.02.2017
+
+John Hicks - Nightwind: An Erroll Garner Songbook (1999) HighNote [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tribute To EG [03:00]
+ 02.Misty [06:24]
+ 03.Paris Cries [04:25]
+ 04.Paris Lover [05:26](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1919B988BB3FD39CB7A47E71DBD0B07B0FD1412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108240   (864837) от 24.02.2017
 
 Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Post-Bop>
@@ -6,7 +122,7 @@ Omer Klein - Sleepwalkers (2017) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864837.jpg" />
+  <img src="Z:/picture/008/save_picture_864837.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Nils Petter Molvaer - Baboon Moon (2011) Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864835.jpg" />
+  <img src="Z:/picture/008/save_picture_864835.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jean Goldkette And His Orchestra - Victor Recordings (1924-1928) 2001, Trans Atl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864832.jpg" />
+  <img src="Z:/picture/008/save_picture_864832.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ben Webster & Tete Montoliu Trio - Gentle Ben (1972) 2015, Discmedi [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864747.jpg" />
+  <img src="Z:/picture/008/save_picture_864747.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Nicole Herzog - That's Life (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864733.jpg" />
+  <img src="Z:/picture/008/save_picture_864733.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dave Brubeck - 80th Birthday Celebration (2000) 2CD [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864731.jpg" />
+  <img src="Z:/picture/008/save_picture_864731.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Freddie Hubbard - Anthology: The Soul-Jazz And Fusion Years (1966-1982) 2CD, 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864647.jpg" />
+  <img src="Z:/picture/008/save_picture_864647.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ V.A. - Best Of Audiophile Sax 2 (2008) [FLAC|Lossless]<Jazz, Instrumental>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864607.jpg" />
+  <img src="Z:/picture/008/save_picture_864607.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Perry Como - The Real... Perry Como (2011) 3 CD [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864402.jpg" />
+  <img src="Z:/picture/008/save_picture_864402.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Harry Allen - When I Grow Too Old To Dream (2000) BMG [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864105.jpg" />
+  <img src="Z:/picture/008/save_picture_864105.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Harry Allen with Hank Jones Trio - Isn't This A Lovely Day (2004) BMG [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864004.jpg" />
+  <img src="Z:/picture/008/save_picture_864004.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Diana Krall - Live In Paris (2002) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863985.jpg" />
+  <img src="Z:/picture/008/save_picture_863985.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ D'Sound - Smooth Escapes: The Very Best Of (2004) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863748.jpg" />
+  <img src="Z:/picture/008/save_picture_863748.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Partikel - String Theory (2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863264.jpg" />
+  <img src="Z:/picture/008/save_picture_863264.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Horace Parlan - Headin' South (1960) Remaster, 1993, Toshiba [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863208.jpg" />
+  <img src="Z:/picture/008/save_picture_863208.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Pasajero Luminoso - Afuerino (2015) [FLAC|Lossless|WEB-DL|tracks] <World Fusion,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863207.jpg" />
+  <img src="Z:/picture/008/save_picture_863207.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tony Williams - Tokyo Live (1993) 2CD, Blue Note [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863205.jpg" />
+  <img src="Z:/picture/008/save_picture_863205.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sue Raney - Breathless! (1961) 1997, Studio West [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863204.jpg" />
+  <img src="Z:/picture/008/save_picture_863204.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Julian Lage & Chris Eldridge - Mount Royal (2017) [FLAC|Lossless|WEB-DL|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863201.jpg" />
+  <img src="Z:/picture/008/save_picture_863201.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Gerry Mulligan & Stan Getz - Getz Meets Mulligan In Hi-Fi (1957) 1999, Verve [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863194.jpg" />
+  <img src="Z:/picture/008/save_picture_863194.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863162.jpg" />
+  <img src="Z:/picture/008/save_picture_863162.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863147.jpg" />
+  <img src="Z:/picture/008/save_picture_863147.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7ADCA8BB0395EAF447E99212F0B1F2531259DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999501   (863145) от 23.03.2016
-
-Grant Green - Talkin' About (1964) 1999, Blue Note Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Talkin' About J.C. [11:45]
- 02.People [07:29]
- 03.Luny Tune [07:44]
- 04.You Don't Know What Love Is [07:39](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5EA1C882C71F3E6CE9EAC8F48995C2D817C0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999508   (863051) от 23.03.2016
-
-Coleman Hawkins - At the Golden Circle, Stockholm 1963 (2001) Dragon Records[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [00:40]
- 02.Oh Lady Be Good [08:38]
- 03.If I Had You [10:38]
- 04.Bean and the Boys [09:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5699F5BAB3BB9544E13BAA67701FF49A0B074AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375975   (862364) от 16.04.2020
-
-Olaf Polziehn Trio featuring Harry Allen - American Songbook, Vol. 2 (2003) Satin Doll Productions [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Or Leave Me [6:01]
-02. Ballad Of The Sad Young Men [6:05]
-03. Jubilee [4:31]
-04. Call Me Darling, Call Me Sweetheart, Call Me Dear [7:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F0B075DB2D738713010C529882472BD1C9093E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109186   (861098) от 26.02.2017
-
-Doug Webb - Bright Side (2016) Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Society Al [06:02]
- 02.Silver Lining [05:50]
- 03.The Drive [03:27]
- 04.Bahia [05:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC79CBFDCE132AAF1F6FA2270041F1EBE6F0092
 ```
 
 https://mybot314.ru/tekegram_catalog/

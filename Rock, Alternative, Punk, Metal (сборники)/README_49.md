@@ -1,3 +1,148 @@
+###  Публикация: 1805687   (12160) от 08.07.2025
+
+Ian Gillan - Voice Of Rock - Compilation (1966-2020) [MP3|320 Kbps] <Hard rock, Jazz fusion, Progressive rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12160.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gut Reaction (Naked Thunder | 1990)
+002. Gassed Up (Toolbox | 1991)
+003. When A Blind Man Cries (& Jeff Healey & Tommy Z & Jon Lord) (Gillan's Inn | 2006)
+004. Holy Water (& Tony Iommi) (WhoCares | 2012)(   Читать дальше...   )Жанр: Hard rock, Jazz fusion, Progressive rockПродолжительность: 07:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E20B8624791AA85DADA6B3097B12CF6621B824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806782   (11412) от 15.07.2025
+
+Blackmore's Night - Compilation (1997-2025) [MP3|320 Kbps] <Folk rock, Medieval rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Temple Of The King (& Rainbow) (Dancer & The Moon | 2013)
+02. Wish You Were Here (& Rednex) (Shadow Of The Moon | 1997)
+03. Home Again (Fires At Midnight | 2001)
+04. Moonlight Shadow (& Mike Oldfield) (All Our Yesterdays | 2015)(   Читать дальше...   )Жанр: Folk rock, Medieval rockПродолжительность: 06:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA11AA0131A89F43B3B879796BE5B6DCA07D2D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807948   (10822) от 21.07.2025
+
+VA - Top 100 Legend Rock Hits vol.2 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10822.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Red Hot Chili Peppers - Can't Stop(04:29)
+002 Black Sabbath - Paranoid(02:48)
+003 RYDERS - Whole Lotta Love (Live)(03:51)
+004 The Goo Goo Dolls - Iris(04:50)(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 06:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC07D12F26A0625852502C3BA58A9508EFF9508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808102   (10701) от 22.07.2025
+
+VA - Top 100 Mega Hits Rock 2025 (2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Rise Against - Savior(04:02)
+002 Sum 41 - Fat Lip(02:58)
+003 Jimmy Eat World - The Middle(02:46)
+004 blink-182 - First Date(02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45AF66C7609386E3AC7D3BF02F1683B439109C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787665   (10536) от 24.07.2025
+
+Ozzy Osbourne - Compilation (1980-2025) [MP3|320 Kbps] <Heavy metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Train (Blizzard Of Ozz 1980)
+02. Perry Mason (Ozzmosis 1995)
+03. Zombie Stomp (No More Tears 1991)
+04. Secret Loser (The Ultimate Sin 1986)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 10:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8096581BB60C75562CA3288EC679FC41771BB2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809125   (9986) от 29.07.2025
 
 David Coverdale - Voice Of Rock - Compilation (1974-2015) [MP3|320 Kbps] <Hard rock, Blues rock, Blue eyed soul>
@@ -6,7 +151,7 @@ David Coverdale - Voice Of Rock - Compilation (1974-2015) [MP3|320 Kbps] <Hard r
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9986.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Greatest Rock Ballads (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9461.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Top 100 Legend Rock Hits vol.3 (2025) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9046.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Paul Rodgers - Voice Of Rock - Compilation (1969-2024) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8516.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Prophetic Writings (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7855.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7825.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7710.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7103.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [O
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6939.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6925.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6785.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5103.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4665.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4606.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3617.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2666.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1270.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1190.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1139.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_986.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock &
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128.jpg" />
 </div>
 
 
@@ -600,35 +745,6 @@ AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56CABD328E99C9D70AAACBFAFD00CC887641CA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760875   (108) от 29.09.2025
-
-3 Doors Down - Compilation (2000-2016) [MP3|320 Kbps] <Hard rock, Alternative, Post grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away From The Sun {Away From The Sun} 2002
-02. Back To Me {Time Of My Life} 2011
-03. Be Like That {The Better Life} 2000
-04. Be Somebody {Seventeen Days} 2005(   Читать дальше...   )Жанр: Hard rock, Alternative, Post grungeПродолжительность: 02:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75AE6C264886297A5A5B4F8E2689F80949FA68A
 ```
 
 https://mybot314.ru/tekegram_catalog/

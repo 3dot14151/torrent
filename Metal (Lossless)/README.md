@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1861554   (1062719) от 
+
+Pain - Collection (1996 - 2024) 22CD [FLAC|Lossless|image + .cue|tracks + .cue] <Industrial Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pain —  (с англ. «боль») — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.Список альбомов:
+1996 - Pain
+1999 - Rebirth
+2002 - Nothing Remains The Same(   Читать дальше...   )Жанр: Industrial Metal, Heavy MetalПродолжительность: 15:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F56F12C09FBB07A96157FA03A54DFB80024FBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860865   (1062330) от 
+
+Seventh Day Slumber - Thy Kingdom Come (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A God [00:03:39]
+02. Good Good Father [00:03:53]
+03. Praise [00:03:38]
+04. You Say [00:04:14](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0EB9479727D270FCE9CDCC7F90BFD2F81C187D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860595   (1062089) от 
+
+Paradise Lost - Collection (1990 - 2025) 51CD [FLAC|Lossless|image + .cue|tracks + .cue] <Death Doom Metal, Gothic Metal, Gothic Rock, Synth-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paradise Lost —  (с англ. — «Потерянный рай») британская метал-группа из Halifax (West Yorkshire), основанная в 1988 году. Их называют одними из пионеров death-doom. За десятилетия карьеры коллектив не раз резко менял звучание — от вязкого дум-дэта и мрачной готики до холодной электроники и синти-попа — но оставался узнаваемым благодаря особому чувству мелодии, настроению (   Читать дальше...   )Список альбомов:
+1990 - Lost Paradise
+1991 - Gothic
+1992 - Shades of God(   Читать дальше...   )Жанр: Death Doom Metal, Gothic Metal, Gothic Rock, Synth-PopПродолжительность: 43:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E3B0CECF25E9F7A3C7653215880E3104991E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860395   (1061844) от 
 
 Assignment - With the End Comes Silence (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
@@ -7,7 +94,7 @@ Assignment - With the End Comes Silence (2026) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061844.jpg" />
+  <img src="Z:/picture/005/save_picture_1061844.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ Stainless - Lady of Lust & Steel (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061841.jpg" />
+  <img src="Z:/picture/005/save_picture_1061841.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ Desolation Angels - Hounds Of Hell (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061606.jpg" />
+  <img src="Z:/picture/005/save_picture_1061606.jpg" />
 </div>
 
 
@@ -94,7 +181,7 @@ Scar Symmetry - Symmetric in Design (2005) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061538.jpg" />
+  <img src="Z:/picture/005/save_picture_1061538.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ Fabienne Erni - Starveil (2026) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061518.jpg" />
+  <img src="Z:/picture/005/save_picture_1061518.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ Messticator - Total Mastery (2026) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061385.jpg" />
+  <img src="Z:/picture/005/save_picture_1061385.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Nine Orders - Ex Imperium (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061283.jpg" />
+  <img src="Z:/picture/005/save_picture_1061283.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Against I - Anti Life (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061273.jpg" />
+  <img src="Z:/picture/005/save_picture_1061273.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Born Of Osiris - Tomorrow We Die Alive (2013) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061232.jpg" />
+  <img src="Z:/picture/005/save_picture_1061232.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Angus McSix - Angus McSix and the All-Seeing Astral Eye (2026) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061220.jpg" />
+  <img src="Z:/picture/005/save_picture_1061220.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Adept - Collection (2009 - 2025) 5CD [FLAC|Lossless|tracks + .cue] <Post-Hardcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061203.jpg" />
+  <img src="Z:/picture/005/save_picture_1061203.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Lamb Of God - Into Oblivion (2026) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061043.jpg" />
+  <img src="Z:/picture/005/save_picture_1061043.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ More - Destructor (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061031.jpg" />
+  <img src="Z:/picture/005/save_picture_1061031.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Horseman - No Surrender in Dark Days (2026) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061026.jpg" />
+  <img src="Z:/picture/005/save_picture_1061026.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Lamb of God - Into Oblivion (2026) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060843.jpg" />
+  <img src="Z:/picture/005/save_picture_1060843.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Unheilig - Liebe Glaube Monster (2026) [FLAC|Lossless|WEB-DL|tracks] <Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060664.jpg" />
+  <img src="Z:/picture/005/save_picture_1060664.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Dispyria - Redemption Part 1: Twisted World (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060647.jpg" />
+  <img src="Z:/picture/005/save_picture_1060647.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Boy Hits Car - Waves of Sound Across Oceans of Time (2026) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060594.jpg" />
+  <img src="Z:/picture/005/save_picture_1060594.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Soulbound - sYn (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060410.jpg" />
+  <img src="Z:/picture/009/save_picture_1060410.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Shatterheart - Infernal Symphony (2026) [FLAC|Lossless|WEB-DL|tracks] <Sympho Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060386.jpg" />
+  <img src="Z:/picture/009/save_picture_1060386.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Announce the Apocalypse - Void (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060377.jpg" />
+  <img src="Z:/picture/009/save_picture_1060377.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Vreid - The Skies Turn Black (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060334.jpg" />
+  <img src="Z:/picture/009/save_picture_1060334.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Zeromind - Resurrection (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060310.jpg" />
+  <img src="Z:/picture/009/save_picture_1060310.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Zeromind - Resurrection (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB3AA7DB2A50EA184F415DC33D51679E7C8FFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858354   (1060271) от 10.03.2026
-
-John West - Earth Maker (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060271.jpg" />
-</div>
-
-
-###  Подробнее
-
-John Michael West (29.10.1964) американский вокалист, наиболее известный как ведущий вокалист группы Artension и бывший ведущий вокалист группы Royal Hunt. West выпустил шесть сольных альбома под своим именем, в создании которых принимали участие самые разные музыканты. Первые два выдержаны в стиле неоклассического метала с множеством продолжительных инструментальных (   Читать дальше...   )01. Soul Of The Beast (6:38)
-02. When Worlds Collide (5:03)
-03. Sleep Of The Dead (3:31)
-04. Stand, Sentinel (7:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A18E5D0AA2E2EEFE2AE0FE49FB6DC38212A29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858392   (1060234) от 10.03.2026
-
-Axe Dragger - Axe Dragger (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axe Dragger (3:27)
- 02. Give You The Rope (3:21)
- 03. Fight Another Day (3:53)
- 04. Iron Rider (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D97FFF6C2CA1766ABACD87FBEF412767C0C7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858138   (1060167) от 08.03.2026
-
-Karelian Warcry - Veripellot (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mielen rutto
-02. Joukkohauta
-03. Veripellot
-04. Horisontit(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22483187EFB096B10DF827A61402EB0D26054F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

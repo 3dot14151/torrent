@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752423.jpg" />
+  <img src="Z:/picture/008/save_picture_752423.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752419.jpg" />
+  <img src="Z:/picture/008/save_picture_752419.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752414.jpg" />
+  <img src="Z:/picture/008/save_picture_752414.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752412.jpg" />
+  <img src="Z:/picture/008/save_picture_752412.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752394.jpg" />
+  <img src="Z:/picture/005/save_picture_752394.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ MS Office 2011 f. MAC (BETA-3 V14.0.0 BUILD 100519) (WTF)[Английский] 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752365.jpg" />
+  <img src="Z:/picture/005/save_picture_752365.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752344.jpg" />
+  <img src="Z:/picture/008/save_picture_752344.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752340.jpg" />
+  <img src="Z:/picture/008/save_picture_752340.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Lingon X 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752334.jpg" />
+  <img src="Z:/picture/008/save_picture_752334.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ BBC: Гений Чарльза Дарвина [3 серии] / The Genius of Cha
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752291.jpg" />
+  <img src="Z:/picture/008/save_picture_752291.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752281.jpg" />
+  <img src="Z:/picture/008/save_picture_752281.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ TagScanner 6.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752260.jpg" />
+  <img src="Z:/picture/008/save_picture_752260.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Slimjet 27.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752204.jpg" />
+  <img src="Z:/picture/005/save_picture_752204.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752200.jpg" />
+  <img src="Z:/picture/008/save_picture_752200.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752189.jpg" />
+  <img src="Z:/picture/008/save_picture_752189.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752180.jpg" />
+  <img src="Z:/picture/008/save_picture_752180.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752160.jpg" />
+  <img src="Z:/picture/008/save_picture_752160.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BBC. Великие природные явления / BBC. Nature's Great Even
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752140.jpg" />
+  <img src="Z:/picture/005/save_picture_752140.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ ICQ 10.0 build 12061 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752108.jpg" />
+  <img src="Z:/picture/008/save_picture_752108.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Classic Shell 4.2.6 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752106.jpg" />
+  <img src="Z:/picture/008/save_picture_752106.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752098.jpg" />
+  <img src="Z:/picture/008/save_picture_752098.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752091.jpg" />
+  <img src="Z:/picture/008/save_picture_752091.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Curly Castro - TOSH (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752090.jpg" />
+  <img src="Z:/picture/008/save_picture_752090.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Eligh - Last House On The Block (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752088.jpg" />
+  <img src="Z:/picture/008/save_picture_752088.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Morph Age 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752087.jpg" />
+  <img src="Z:/picture/008/save_picture_752087.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ PDF24 Creator 8.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752086.jpg" />
+  <img src="Z:/picture/008/save_picture_752086.jpg" />
 </div>
 
 

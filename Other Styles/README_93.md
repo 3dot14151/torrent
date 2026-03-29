@@ -1,3 +1,58 @@
+###  Публикация: 1556667   (556475) от 12.06.2022
+
+Satyricon - Satyricon & Munch (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Ambient, Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satyricon & Munch (56:08)Жанр: Dark Ambient, InstrumentalПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FBBA90F9B78B7C5BB3E4A4C5378A8FF049D81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236056   (556268) от 15.07.2018
+
+Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Studying Song 02:25
+02. Focus 01:47
+03. Thinking Music 01:53
+04. Moonlight Piano 02:05(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946453C9449BFE77D8F890CF7BFFA1F8D7E0E2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236151   (556262) от 15.07.2018
 
 Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -6,7 +61,7 @@ Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556262.jpg" />
+  <img src="Z:/picture/008/save_picture_556262.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011)
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556144.jpg" />
+  <img src="Z:/picture/008/save_picture_556144.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556142.jpg" />
+  <img src="Z:/picture/008/save_picture_556142.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556132.jpg" />
+  <img src="Z:/picture/008/save_picture_556132.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556087.jpg" />
+  <img src="Z:/picture/008/save_picture_556087.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ VA - Latina Fever (2019) 4CD [MP3|320 Kbps] <Latin>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555904.jpg" />
+  <img src="Z:/picture/008/save_picture_555904.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ VA - Инструментальные хиты кино (2004) [FLAC|Lossless|im
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555896.jpg" />
+  <img src="Z:/picture/008/save_picture_555896.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555681.jpg" />
+  <img src="Z:/picture/008/save_picture_555681.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Hildur Guðnadóttir (Hildur Gudnadottir) - Chernobyl (Music From The Original T
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555502.jpg" />
+  <img src="Z:/picture/008/save_picture_555502.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555476.jpg" />
+  <img src="Z:/picture/008/save_picture_555476.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555337.jpg" />
+  <img src="Z:/picture/008/save_picture_555337.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, I
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555220.jpg" />
+  <img src="Z:/picture/008/save_picture_555220.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555173.jpg" />
+  <img src="Z:/picture/008/save_picture_555173.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Armik - Alchemy (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555013.jpg" />
+  <img src="Z:/picture/008/save_picture_555013.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ Unto Ashes - Burials Foretold (2012) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554900.jpg" />
+  <img src="Z:/picture/008/save_picture_554900.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Unto Ashes - Pretty Haunted Things (2019) [FLAC|Lossless|WEB-DL|tracks] <Neofolk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554885.jpg" />
+  <img src="Z:/picture/008/save_picture_554885.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ Lewellynl - Reiki Gold 2 (2018) [MP3|320 Kbps] <New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554451.jpg" />
+  <img src="Z:/picture/008/save_picture_554451.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Piano Peace - Piano Sleep Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554444.jpg" />
+  <img src="Z:/picture/008/save_picture_554444.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554182.jpg" />
+  <img src="Z:/picture/008/save_picture_554182.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554176.jpg" />
+  <img src="Z:/picture/008/save_picture_554176.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Piano Peace - Sleep Piano Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554027.jpg" />
+  <img src="Z:/picture/008/save_picture_554027.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ Calexico & Iron & Wine - Years to Burn (2019) [FLAC|Lossless|WEB-DL|tracks] <Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553723.jpg" />
+  <img src="Z:/picture/008/save_picture_553723.jpg" />
 </div>
 
 
@@ -644,7 +699,7 @@ Jeff Scroggins & Colorado - Over the Line (2019) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553528.jpg" />
+  <img src="Z:/picture/008/save_picture_553528.jpg" />
 </div>
 
 
@@ -673,7 +728,7 @@ Valley - Original Soundtrack (2016) [FLAC|Lossless|tracks] <Score,  Orchestral>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552964.jpg" />
+  <img src="Z:/picture/008/save_picture_552964.jpg" />
 </div>
 
 
@@ -687,64 +742,6 @@ Valley - Original Soundtrack (2016) [FLAC|Lossless|tracks] <Score,  Orchestral>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92488F0061A35C6DDF0CFCFB2B06B59A12F21334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046013   (552905) от 26.08.2016
-
-Gloria Estefan - Mi Tierra (1993) [FLAC|Lossless|image + .cue] <Latin, Folk, World>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Con los anos que me quedan (4:37)
-02. Mi tierra (4:39)
-03. Ayer (5:18)
-04. Mi buen amor (3:50)(   Читать дальше...   )Жанр: Latin, Folk, WorldПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B45CE4FCC945C807424619D1E91B50684C058A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045886   (552750) от 26.08.2016
-
-Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesse Harlin - New Bordeaux (02:46)
-02. Jim Bonney - 11th Hour Blues (03:49)
-03. Jesse Harlin - From the Darkness, A Voice (04:28)
-04. Jim Bonney - Going Down Slow (04:23)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9FC7EFE2F757FBA42365B42085A8B7D3FD5D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

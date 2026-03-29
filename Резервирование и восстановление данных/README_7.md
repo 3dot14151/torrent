@@ -1,3 +1,82 @@
+###  Публикация: 1634471   (252132) от 20.05.2023
+
+Acronis True Image WD Edition 27.0.1.39676 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_252132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image WD Edition - бесплатная версия программы Acronis True Image для компьютеров, использующих жесткие диски Western Digital. Решение позволяет выполнять резервное копирование отдельных дисков, разделов и системы в целом. Acronis True Image WD Edition представляет собой интегрированный программный пакет, которые обеспечивает безопасность данных на вашем (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154707699E2B706770D5EA5CCAAFBF043B76DDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833068   (246146) от 31.10.2025
+
+O&O DiskImage Professional 21.2.200 RePack by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246146.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O DiskImage Professional позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время - даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов - даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DFF053CE9834CDB8A9D201BECA313CE1AC4294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540370   (245347) от 29.03.2022
+
+R.saver 9.5 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245347.jpg" />
+</div>
+
+
+###  Подробнее
+
+R.saver — инструмент для восстановления удаленных файлов, а также поддерживает восстановление данных даже после форматирования. Программе под силу восстановление поврежденных файлов с файловых систем FAT и NTFS.
+При использовании программы, пользователю надо всего лишь, определить диск или образ, на котором он собирается произвести сканирование и программа автоматически (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B0A759002B2342BE406280BCC0029B56409968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832970   (230332) от 31.10.2025
 
 Tenorshare 4DDiG 10.6.3.7 [Multi/Ru]
@@ -6,7 +85,7 @@ Tenorshare 4DDiG 10.6.3.7 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230332.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ Acronis Universal Restore 2016 11.5 Build 40010 [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229127.jpg" />
+  <img src="Z:/picture/004/save_picture_229127.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ R-Studio Technician 8.17 Build 180955  RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228668.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ Aiseesoft FoneLab iOS 10.1.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228492.jpg" />
+  <img src="Z:/picture/005/save_picture_228492.jpg" />
 </div>
 
 
@@ -115,7 +194,7 @@ Active@ Boot Disk 14.0.0.4 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228484.jpg" />
+  <img src="Z:/picture/005/save_picture_228484.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ Echosync 7.0.1.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227263.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ Auslogics File Recovery 11.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209076.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.8 RePack (& Port
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208745.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.8 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208647.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ AOMEI WinfrGUI 1.0.2 Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208205.jpg" />
+  <img src="Z:/picture/005/save_picture_208205.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ ASCOMP BackUp Maker 8.202 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208151.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ PureSync 7.2.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207627.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.9 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203193.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202725.jpg" />
+  <img src="Z:/picture/004/save_picture_202725.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Hetman Partition Recovery 4.6 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202508.jpg" />
+  <img src="Z:/picture/004/save_picture_202508.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ R-Drive Image Technician 7.3 Build 7312 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201758.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ Wise Data Recovery Pro 6.1.3.495 Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201101.jpg" />
+  <img src="Z:/picture/005/save_picture_201101.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Wise Data Recovery Pro 6.1.3.495 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201053.jpg" />
+  <img src="Z:/picture/005/save_picture_201053.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Cobian Backup 11.2.0.582 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200194.jpg" />
+  <img src="Z:/picture/005/save_picture_200194.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Hetman Partition Recovery Home / Office / Unlimited Edition 4.8 RePack (& Portab
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195637.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Hetman Uneraser Unlimited Edition 6.9 RePack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193620.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ Magic Recovery Software 2023.08 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193534.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ Magic Partition Recovery Home / Office / Unlimited Edition 4.9 RePack (& Portabl
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193450.jpg" />
 </div>
 
 
@@ -597,85 +676,6 @@ Magic Partition Recovery от East Imperial Soft предназначен для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:143B279AA41526C51094F5FB6B4F9A86AFEE272F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827699   (193379) от 22.10.2025
-
-KLS Backup 2025 Professional 14.0.2.7 [Multi]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193379.jpg" />
-</div>
-
-
-###  Подробнее
-
-KLS Backup 2025 — это мощная программа для резервного копирования и синхронизации, позволяющая создавать резервные копии и синхронизировать данные на локальных дисках, сетевых дисках или в облачных хранилищах. Резервные копии могут храниться как в несжатом виде, так и в сжатом виде в стандартном формате ZIP или 7z. KLS Backup 2025 может создавать резервные копии (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77E84F303B0A732D31F7F7E48D43423CE316ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592652   (182911) от 23.11.2022
-
-MiniTool Power Data Recovery Standard / Deluxe / Enterprise / Technician 11.3 RePack by wadimus [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182911.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764019BCDEA5D404B6A225883E95E36FBD5AA49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594777   (177058) от 02.12.2022
-
-Hasleo Backup Suite 3.0.1 Portable by AlexYar [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hasleo Backup Suite — это бесплатное программное обеспечение для Windows, которое выполняет резервное копирование файлов операционной системы или выбранного диска/логического раздела. Конечно же копированием дело не ограничивается и программа может восстановить файлы из резервной копии, а так же упростит переезд с одного диска на другой.
-В случае проблем с системой (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD00276FA80EAAA5B21C64AE05ED0F7499033778
 ```
 
 https://mybot314.ru/tekegram_catalog/

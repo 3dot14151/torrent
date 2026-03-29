@@ -6,7 +6,7 @@ Day One 2 Journal + Notes 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881893.jpg" />
+  <img src="Z:/picture/005/save_picture_881893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jump Desktop (Remote Desktop) - RDP/VNC 7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881889.jpg" />
+  <img src="Z:/picture/005/save_picture_881889.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MediaInfo 20.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881884.jpg" />
+  <img src="Z:/picture/005/save_picture_881884.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FileBot 4.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881876.jpg" />
+  <img src="Z:/picture/005/save_picture_881876.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hilltop Hoods - Walking Under Stars (2014) [MP3|320 Kbps] <Aussie Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881825.jpg" />
+  <img src="Z:/picture/005/save_picture_881825.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Tower 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881824.jpg" />
+  <img src="Z:/picture/005/save_picture_881824.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ MacBooster 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881823.jpg" />
+  <img src="Z:/picture/005/save_picture_881823.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Rainlendar Lite 2.15.4 Build 166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881820.jpg" />
+  <img src="Z:/picture/005/save_picture_881820.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881817.jpg" />
+  <img src="Z:/picture/005/save_picture_881817.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Trance - Best Of 2007-2017 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881805.jpg" />
+  <img src="Z:/picture/005/save_picture_881805.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Tor Browser Bundle 9.0.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881804.jpg" />
+  <img src="Z:/picture/005/save_picture_881804.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881803.jpg" />
+  <img src="Z:/picture/005/save_picture_881803.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Light Alloy 4.9.2 Build 2516 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881799.jpg" />
+  <img src="Z:/picture/005/save_picture_881799.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Victoria 5.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881794.jpg" />
+  <img src="Z:/picture/005/save_picture_881794.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881748.jpg" />
+  <img src="Z:/picture/005/save_picture_881748.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cinch 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881747.jpg" />
+  <img src="Z:/picture/008/save_picture_881747.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Ableton Live 10 Suite v10.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881733.jpg" />
+  <img src="Z:/picture/005/save_picture_881733.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881732.jpg" />
+  <img src="Z:/picture/005/save_picture_881732.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adobe Shockwave Player 12.2.5.196 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881727.jpg" />
+  <img src="Z:/picture/005/save_picture_881727.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881704.jpg" />
+  <img src="Z:/picture/005/save_picture_881704.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881698.jpg" />
+  <img src="Z:/picture/005/save_picture_881698.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ARP Backstage Pass | АДР. Закулисье [2020, TV, 10+1 эп. ] WEBRip 7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881696.jpg" />
+  <img src="Z:/picture/005/save_picture_881696.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Light Alloy 4.9.2 Build 2516 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881679.jpg" />
+  <img src="Z:/picture/005/save_picture_881679.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881610.jpg" />
+  <img src="Z:/picture/005/save_picture_881610.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ BELOFF [dp] 2020.04 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881607.jpg" />
+  <img src="Z:/picture/005/save_picture_881607.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881597.jpg" />
+  <img src="Z:/picture/005/save_picture_881597.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1160198   (477686) от 23.08.2017
+
+The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая тюремная песочница! Рискните всем, чтобы сбежать из самых строгих тюрем мира. Исследуйте самые большие многоэтажные тюрьмы с крышами, вентиляцией и подземными туннелями. Вам придется жить по законам тюрьмы, появляться на перекличках, работать и соблюдать строгий распорядок, и в то же время вы будете претворять свои мечты о свободе в жизнь!Тип издания: LicenseРазработчик: Team17 Digital, Mouldy Toof StudiosЖанр: Arcade, Action, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B00D4A056DC7541A9004042ADAD104BF6026122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160262   (477583) от 23.08.2017
 
 Distrust (2017) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +32,7 @@ Distrust (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477583.jpg" />
+  <img src="Z:/picture/008/save_picture_477583.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Distrust (2017) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477574.jpg" />
+  <img src="Z:/picture/008/save_picture_477574.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Office Freakout (2016) [En] (0.9.0 Release) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476650.jpg" />
+  <img src="Z:/picture/008/save_picture_476650.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Goo Saga - HD Edition (2016) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476645.jpg" />
+  <img src="Z:/picture/008/save_picture_476645.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ The Masterplan (2015) [En/De] (1.1.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474917.jpg" />
+  <img src="Z:/picture/008/save_picture_474917.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Insanely Twisted Shadow Planet (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474915.jpg" />
+  <img src="Z:/picture/008/save_picture_474915.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ LASTFIGHT (2016) [Ru/Multi] (1.02) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474493.jpg" />
+  <img src="Z:/picture/008/save_picture_474493.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Zombotron (2019) [Ru/En] (1.2.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472861.jpg" />
+  <img src="Z:/picture/008/save_picture_472861.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Cannon Brawl (2014) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470532.jpg" />
+  <img src="Z:/picture/008/save_picture_470532.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Assault Android Cactus (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463791.jpg" />
+  <img src="Z:/picture/008/save_picture_463791.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Unravel Two (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458821.jpg" />
+  <img src="Z:/picture/008/save_picture_458821.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Unravel Two (2018) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458698.jpg" />
+  <img src="Z:/picture/008/save_picture_458698.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ NARUTO Ultimate Ninja STORM Dilogy (2017) [En] (1.0/1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458609.jpg" />
+  <img src="Z:/picture/008/save_picture_458609.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Death Point (2017) [Ru/En] (1.0) Repack Covfefe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458461.jpg" />
+  <img src="Z:/picture/008/save_picture_458461.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457027.jpg" />
+  <img src="Z:/picture/008/save_picture_457027.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456862.jpg" />
+  <img src="Z:/picture/008/save_picture_456862.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Mines of Mars (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456402.jpg" />
+  <img src="Z:/picture/008/save_picture_456402.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456388.jpg" />
+  <img src="Z:/picture/008/save_picture_456388.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Death Point (2017) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456254.jpg" />
+  <img src="Z:/picture/008/save_picture_456254.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Brave: The Video Game / Храбрая сердцем [Ru] (RePack/1.0) 2012 | A
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454395.jpg" />
+  <img src="Z:/picture/008/save_picture_454395.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Epica (2016) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452252.jpg" />
+  <img src="Z:/picture/008/save_picture_452252.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452063.jpg" />
+  <img src="Z:/picture/008/save_picture_452063.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Teslagrad (2013) [Ru/Multi] (1.4.1) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450662.jpg" />
+  <img src="Z:/picture/008/save_picture_450662.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Brave: The Video Game [Ru/En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449935.jpg" />
+  <img src="Z:/picture/008/save_picture_449935.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ A.I. Invasion (2015) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448820.jpg" />
+  <img src="Z:/picture/008/save_picture_448820.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ A.I. Invasion - футуристический аркадный top-down шут�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37B272935BA118ACF5D68010B26014F8BC8C7944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248038   (448057) от 17.09.2018
-
-Super Lucky's Tale (2018) [Ru/En] (2827966/dlc) Repack xatab
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Lucky’s Tale — весёлая и увлекательная платформенная аркада для игроков всех возрастов. Её герой Лаки, неутомимый оптимист и добряк, отправляется в путешествие, чтобы стать смелее и помочь своей сестре спасти Книгу веков от Джинкса, таинственного злодея…Тип издания: RepackРазработчик: PlayfulЖанр: Adventure, Arcade, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982780B9CA52EBE9D29AB51962E18B5A58DF9AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

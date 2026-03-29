@@ -1,3 +1,29 @@
+###  Публикация: 1033344   (639686) от 10.07.2016
+
+Уильям Дитрих | Зеркало тьмы (2016) [FB2]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало XIX века, Франция. Знаменитый искатель приключений Итан Гейдж приехал в Париж вовсе не затем, чтобы затеять еще одну авантюру – напротив, горячий американец мечтал об отдыхе. Но такая уж у него судьба – постоянно притягивать к себе как магнитом самые невероятные происшествия. В результате цепи злоключений Итан попал во дворец… к самому Наполеону Бонапарту, (   Читать дальше...   )Жанр: Ужасы и Мистика, Исторические приключения, Зарубежное фэнтези, Зарубежные приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6E145BFD13DF5621FB10B55061C163DB9C6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907208   (639643) от 11.06.2015
 
 Фрэнсис Гарт | Гэбриэль Конрой [сборник] (1994) [DJVU]
@@ -6,7 +32,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639643.jpg" />
+  <img src="Z:/picture/008/save_picture_639643.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629646.jpg" />
+  <img src="Z:/picture/008/save_picture_629646.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628499.jpg" />
+  <img src="Z:/picture/008/save_picture_628499.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625564.jpg" />
+  <img src="Z:/picture/008/save_picture_625564.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617683.jpg" />
+  <img src="Z:/picture/008/save_picture_617683.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614885.jpg" />
+  <img src="Z:/picture/008/save_picture_614885.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607947.jpg" />
+  <img src="Z:/picture/008/save_picture_607947.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602232.jpg" />
+  <img src="Z:/picture/008/save_picture_602232.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602221.jpg" />
+  <img src="Z:/picture/008/save_picture_602221.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596069.jpg" />
+  <img src="Z:/picture/008/save_picture_596069.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592906.jpg" />
+  <img src="Z:/picture/008/save_picture_592906.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589526.jpg" />
+  <img src="Z:/picture/008/save_picture_589526.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585684.jpg" />
+  <img src="Z:/picture/008/save_picture_585684.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582740.jpg" />
+  <img src="Z:/picture/008/save_picture_582740.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578304.jpg" />
+  <img src="Z:/picture/008/save_picture_578304.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577865.jpg" />
+  <img src="Z:/picture/008/save_picture_577865.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575872.jpg" />
+  <img src="Z:/picture/008/save_picture_575872.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575848.jpg" />
+  <img src="Z:/picture/008/save_picture_575848.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562977.jpg" />
+  <img src="Z:/picture/008/save_picture_562977.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554118.jpg" />
+  <img src="Z:/picture/008/save_picture_554118.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548069.jpg" />
+  <img src="Z:/picture/008/save_picture_548069.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548035.jpg" />
+  <img src="Z:/picture/008/save_picture_548035.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546139.jpg" />
+  <img src="Z:/picture/008/save_picture_546139.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540990.jpg" />
+  <img src="Z:/picture/008/save_picture_540990.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535162.jpg" />
+  <img src="Z:/picture/008/save_picture_535162.jpg" />
 </div>
 
 
@@ -665,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:052F65163E371B52B80386CCAA2BE07C8B764017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155359   (533220) от 03.08.2017
-
-Михаил Зуев-Ордынец | Желтый тайфун (1928) [PDF, DJVU]
-
->>Художественная литература
->>Приключенческая проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Ефимович Зуев-Ордынец — один из зачинателей советской приключенческой литературы. Много путешествовал по стране, что нашло отражение в его книгах. Его перу принадлежат многие приключенческие и исторические книги о Средней Азии, о русских колониях в Северной Америке, о пугачевщине на Урале, и др.
-Основное произведение М. Зуева-Ордынца — фантастико-приключенческий (   Читать дальше...   )Жанр: Приключения, беллетристикаФормат: PDF - скан + OCR с ошибками, Djvu - отсканированные страницы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AF55F1C143919A037631ACFC148B5158F7294B
 ```
 
 https://mybot314.ru/tekegram_catalog/

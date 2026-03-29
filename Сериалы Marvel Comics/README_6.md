@@ -1,3 +1,191 @@
+###  Публикация: 1301896   (114769) от 02.03.2024
+
+Агенты «Щ.И.Т.» / Agents of S.H.I.E.L.D. (2019) WEB-DLRip (сезон 6, серии 1-13 из 13) LostFilm
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агенты Щ.И.Т. — шпионы со сверхъестественными способностями, которые занимаются поиском преступников и поддержанием баланса сил в мире супергероев.Производство: США / ABC Studios, Disney-ABC Domestic Television, Marvel StudiosЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Кевин Танчароэн, Билл Джирхарт, Винс МисианоАктеры: Кларк Грегг, Минг-На, Бретт Далтон, Хлоя Беннет, Йен де Кестекер, Элизабет Хенстридж, Ник Блад, Эдрианн Палики, Генри Симмонс, Наталия Кордова-Бакли и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2549D9C5C77303D99F9BE9ED8B548935A1F5A393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690495   (54519) от 03.06.2024
+
+Локи / Loki (2021) BDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-6 из 6) HDRezka Studio, Iron Voice, Flarrow Films, LostFilm, AlexFilm, TVShows
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Локи попадает в таинственную организацию «Управление временными изменениями» после того, как он украл Тессеракт, и путешествует во времени, меняя историю.Производство: США / Marvel Studios Inc.Жанр: фантастика, фэнтези, боевик, приключенияРежиссер: Кейт Херрон, Джастин Бенсон, Аарон МурхедАктеры: Том Хиддлстон, Гугу Эмбата-Ро, Вунми Мосаку, Юджин Кордеро, Тара Стронг, Оуэн Уилсон, Софи Ди Мартино, Саша Лэйн, Деобиа Опарей, Ричард Э. ГрантПеревод: дублированный, многоголосый профессиональныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (forced), английскиеПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E5F929A0D17D033EB9976973A1DDC5372373A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456018   (52520) от 22.06.2024
+
+Каратель / The Punisher (2017) WEBRip [H.264/1080p] (сезон 1, серии 1-13 из 13) LostFilm, NewStudio, AlexFilm, Кубик в кубе
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52520.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как семья Фрэнка Касла была убита во время перестрелки нескольких банд Нью-Йорка, он решает отомстить и начинает охоту на преступников города. В преступном мире он становится известен как Каратель.Производство: США / ABC Signature, Marvel Television, NetflixЖанр: боевик, триллер, драма, криминалРежиссер: Джим О’Хенлон, Джереми Уэбб, Джет УилкинсонАктеры: Джон Бернтал, Эмбер Роуз Рева, Бен Барнс, Джейсон Р. Мур, Эбон Мосс-Бакрак, Флориана Лима, Джош Стюарт, Джорджиа Уигэм, Джейми Рэй Ньюман, Коби ФрумерПеревод: Многоголосый профессиональный (LostFilm, NewStudio, AlexFilm); Двуголосый профессиональный (Кубик в кубе)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH), испанские, французские, китайские (упрощённый и традиционный)Продолжительность: ~00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9834BA9CFE61C80478C0DCC41607A0CFE4D9E553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732395   (52287) от 24.06.2024
+
+Сокол и Зимний Солдат / The Falcon and the Winter Soldier (2021) BDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-6 из 6) Flarrow Films, AlexFilm, LostFilm, NewStudio, TVShows
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм Уилсон примерит костюм нового Капитана Америка и попытается справиться с миссией, возложенной на него Стивом Роджерсом. Баки, в свою очередь, готов вновь стать частью общества и поближе познакомиться со всем, что предлагает современный мир.Производство: США / Marvel Studios Inc.Жанр: фантастика, боевик, драма, приключенияРежиссер: Кари СкогландАктеры: Энтони Маки, Себастиан Стэн, Уайатт Рассел, Эрин Келлиман, Даниэль Брюль, Эмили ВанКэмп, Дэнни Рамирес, Эдеперо Одуйе, Флоренс Касумба, Дон ЧидлПеревод: дублированный, многоголосый профессиональныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (forced), английские (SDH)Продолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981C258225997F609A5EA5A83FD3B2FB2C401315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750314   (38155) от 06.11.2024
+
+Это всё Агата / Agatha All Along (2024) WEB-DL [H.265/2160p] [4K, HDR10, DV P8, 10-bit] (сезон 1, серии 1-9 из 9) HDRezka, NewComers, LostFilm, TVShows, 1WinStudio, LE-Production
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф сериала Ванда/Вижн.
+Сериал рассказывает об Агате Харкнесс − любопытной соседке Ванды и Вижна, оказавшейся на деле могущественной ведьмой.
+Околдованная Агата Харкнесс вновь обретает свободу благодаря помощи подростка. Заинтригованная его мольбой, она отправляется на «Дорожные испытания ведьм», чтобы вернуть себе силы и выяснить мотивы своего освободителя.Производство: США / 20th Television, Disney+, Lightnin' Production Rentals, Marvel Studios Inc., Marvel Television, Walt Disney Company, TheЖанр: фантастика, фэнтези, боевик, драма, комедия, приключенияРежиссер: Ганджа Монтейру, Жаклин Шеффер, Рэйчел ГолдбергАктеры: Кэтрин Хан, Пэтти ЛюПон, Обри Плаза, Пол Адельштейн, Джо Лок, Сашир Замата, Али Ан, Оквуи Окпоквасили, Майлз Гутьеррез-Райли, Эмма КолфилдПеревод: Многоголосый (HDRezka, NewComers, LostFilm, TVShows, 1WinStudio, LE-Production)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (full, SDH)Продолжительность: ~00:39:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38006B042650AAB8D0608E3A442AEC49F3CB9D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750313   (38152) от 06.11.2024
+
+Это всё Агата / Agatha All Along (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) Lostfilm, HDRezka, TVShows, 1WinStudio, LE-Production
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф сериала Ванда/Вижн.
+Сериал рассказывает об Агате Харкнесс − любопытной соседке Ванды и Вижна, оказавшейся на деле могущественной ведьмой.
+Околдованная Агата Харкнесс вновь обретает свободу благодаря помощи подростка. Заинтригованная его мольбой, она отправляется на «Дорожные испытания ведьм», чтобы вернуть себе силы и выяснить мотивы своего освободителя.Производство: США / 20th Television, Disney+, Lightnin' Production Rentals, Marvel Studios Inc., Marvel Television, Walt Disney Company, TheЖанр: фантастика, фэнтези, боевик, драма, комедия, приключенияРежиссер: Ганджа Монтейру, Жаклин Шеффер, Рэйчел ГолдбергАктеры: Кэтрин Хан, Пэтти ЛюПон, Обри Плаза, Пол Адельштейн, Джо Лок, Сашир Замата, Али Ан, Оквуи Окпоквасили, Майлз Гутьеррез-Райли, Эмма КолфилдПеревод: Многоголосый (Lostfilm, HDRezka, TVShows, 1WinStudio, LE-Production)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (full, SDH)Продолжительность: ~00:39:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D80D86FA9901610F507E90D2B19EE4755E20B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758883   (38100) от 06.11.2024
+
+Это всё Агата / Agatha All Along (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-9 из 9) HDRezka, NewComers, LostFilm, TVShows, 1WinStudio, LE-Production
+
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф сериала Ванда/Вижн.
+Сериал рассказывает об Агате Харкнесс − любопытной соседке Ванды и Вижна, оказавшейся на деле могущественной ведьмой.
+Околдованная Агата Харкнесс вновь обретает свободу благодаря помощи подростка. Заинтригованная его мольбой, она отправляется на «Дорожные испытания ведьм», чтобы вернуть себе силы и выяснить мотивы своего освободителя.Производство: США / 20th Television, Disney+, Lightnin' Production Rentals, Marvel Studios Inc., Marvel Television, Walt Disney Company, TheЖанр: фантастика, фэнтези, боевик, драма, комедия, приключенияРежиссер: Ганджа Монтейру, Жаклин Шеффер, Рэйчел ГолдбергАктеры: Кэтрин Хан, Пэтти ЛюПон, Обри Плаза, Пол Адельштейн, Джо Лок, Сашир Замата, Али Ан, Оквуи Окпоквасили, Майлз Гутьеррез-Райли, Эмма КолфилдПеревод: Многоголосый (HDRezka, NewComers, LostFilm, TVShows, 1WinStudio, LE-Production)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (full, SDH)Продолжительность: ~00:39:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7710DD121E3D67D7A5AE6B6371CDD389585FA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472524   (31312) от 11.01.2025
 
 Джессика Джонс / Jessica Jones (2015) BDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-13 из 13) Кириллица, LostFilm, NewStudio, TVShows
@@ -6,7 +194,7 @@
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31312.jpg" />
 </div>
 
 
@@ -32,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28296.jpg" />
 </div>
 
 
@@ -59,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26078.jpg" />
 </div>
 
 
@@ -85,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24327.jpg" />
 </div>
 
 
@@ -111,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20360.jpg" />
 </div>
 
 
@@ -137,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20355.jpg" />
 </div>
 
 
@@ -163,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20242.jpg" />
 </div>
 
 
@@ -189,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20042.jpg" />
 </div>
 
 
@@ -215,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16634.jpg" />
 </div>
 
 
@@ -241,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16633.jpg" />
 </div>
 
 
@@ -267,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12717.jpg" />
 </div>
 
 
@@ -293,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12301.jpg" />
 </div>
 
 
@@ -319,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12052.jpg" />
 </div>
 
 
@@ -345,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11947.jpg" />
 </div>
 
 

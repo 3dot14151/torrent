@@ -1,3 +1,61 @@
+###  Публикация: 1275848   (789433) от 13.01.2019
+
+VA - Space Jump (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Plug - Inception
+002. Helix ft. Romy Wave - Divine (Extended Mix)
+003. Methodub - Oscillate (Original Mix)
+004. Titan - Still I Rise(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650F33CD549D4B1517F700450BDB507CB6BD3FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511093   (789424) от 20.11.2021
+
+VA - Beatport Hardstyle: Sound Pack #369 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subraver - Can Feel It
+002. Rikoj & Dh - Carry You Home
+003. DJ Pulse & Nova Scotia - The Ultimate Buzz
+004. Retrospect - Never Break(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 09:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428F48C6B37795EDCD642BD6342BD20ED2AC99B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511095   (789422) от 20.11.2021
 
 VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Trance>
@@ -6,7 +64,7 @@ VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789422.jpg" />
+  <img src="Z:/picture/008/save_picture_789422.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Music for Car 11 (2019) [MP3|320 Kbps] <Electronic, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789388.jpg" />
+  <img src="Z:/picture/008/save_picture_789388.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Options Remake Of Tracks January -A- (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789384.jpg" />
+  <img src="Z:/picture/008/save_picture_789384.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Liquid Blue: Relax Space Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789312.jpg" />
+  <img src="Z:/picture/008/save_picture_789312.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Synthwave Dream Collection (Vol.02) (2021) [MP3|320 Kbps] <Synthwave, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789307.jpg" />
+  <img src="Z:/picture/008/save_picture_789307.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Soft Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Relax Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789248.jpg" />
+  <img src="Z:/picture/008/save_picture_789248.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789109.jpg" />
+  <img src="Z:/picture/008/save_picture_789109.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Sacrifice: Techno Folk Party (2019) [MP3|320 Kbps] <Techno, Minimal, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789072.jpg" />
+  <img src="Z:/picture/008/save_picture_789072.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789071.jpg" />
+  <img src="Z:/picture/008/save_picture_789071.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789063.jpg" />
+  <img src="Z:/picture/008/save_picture_789063.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deep House Collection vol.155 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789056.jpg" />
+  <img src="Z:/picture/008/save_picture_789056.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Empire Records - Trance Apocalypsis 2 (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788673.jpg" />
+  <img src="Z:/picture/008/save_picture_788673.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - 120 Progressive Trance Selections (2018) [MP3|320 Kbps] <Trance, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788662.jpg" />
+  <img src="Z:/picture/008/save_picture_788662.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Empire Records - Classic Disco 4 (2018) [MP3|320 Kbps] <Nu Disco, Deep Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788658.jpg" />
+  <img src="Z:/picture/008/save_picture_788658.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788398.jpg" />
+  <img src="Z:/picture/008/save_picture_788398.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Progressive Psychodelic Trance Vol.2 (Exlusive Tracks) (2018) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788238.jpg" />
+  <img src="Z:/picture/008/save_picture_788238.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Elite Driving Trance Anthem (2018) [MP3|320 Kbps] <Uplifting, Vocal, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788200.jpg" />
+  <img src="Z:/picture/008/save_picture_788200.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Nu Disco Vol.6 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788171.jpg" />
+  <img src="Z:/picture/008/save_picture_788171.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Impulse №9 - Super Music for Super Car (2018) [MP3|320 Kbps] <Club, House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788120.jpg" />
+  <img src="Z:/picture/008/save_picture_788120.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - SVS Collection vol. 6 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787811.jpg" />
+  <img src="Z:/picture/008/save_picture_787811.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Empire Records - Classic House 3 (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787730.jpg" />
+  <img src="Z:/picture/008/save_picture_787730.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Empire Records - Night Walk 2 (2018) [MP3|320 Kbps] <Progressive House, Dee
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787726.jpg" />
+  <img src="Z:/picture/008/save_picture_787726.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Empire Records - House Clinic 3 (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787722.jpg" />
+  <img src="Z:/picture/008/save_picture_787722.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Record Super Chart #522 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787704.jpg" />
+  <img src="Z:/picture/008/save_picture_787704.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Record Super Chart #522 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C84AA00957C5AF82E771754C3F9028892CBC6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203224   (787676) от 03.02.2018
-
-VA - LUXEmusic proжект: Russian Deep House (2018) [MP3|320 Kbps] <House, Deep House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Смысловые Галлюцинации feat. DJ Nejtrino  -  Зачем топтать мою любовь  5:31
-02.  Джиган  -  Дни и ночи (Amice Remix)  4:14
-03.  Алёна Высоцкая  -  А я ждала (Deep Mix)  3:47
-04.  Бьянка  -  Вылечусь (Amice Remix)  3:42(   Читать дальше...   )Жанр: House, Deep House, DanceПродолжительность: 06:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC46690E24438F608D8DB19957BD197FEFB7E32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512295   (787471) от 24.11.2021
-
-VA - Beatport Electro House: Sound Pack #370 (2021) [MP3|320 Kbps] <Electro, House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Detroit Experiment - Think Twice
-002. Yves Murasca & Rosario - Time
-003. Marcelo Pm - Strangers
-004. Gerardo Moro - District(   Читать дальше...   )Жанр: Electro, House, ClubПродолжительность: 10:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B307CD60892564395280CF1863029F2AE1C35FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

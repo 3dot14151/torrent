@@ -1,3 +1,114 @@
+###  Публикация: 1176233   (372295) от 21.10.2017
+
+A Better Finder Attributes 6 v6.06 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372295.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2017Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D3EC88DA2E9407BC427DA5C7F151442F038079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176218   (372292) от 21.10.2017
+
+PullTube 0.10.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио
+Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.
+
+PullTube предлагает Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2017Разработчик: MyMixAppsПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BBED77D78780E9A5803B26485F829CB89CCF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176323   (372175) от 21.10.2017
+
+MediaHuman YouTube Downloader 3.9.8.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372175.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+Закачка нескольких файлов одновременно
+Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 сентября 2017Разработчик: MediaHumanПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Итальянский, и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63E304574454E4EB4E1BF10B264A61B2C13FD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415964   (372139) от 14.10.2020
+
+AudioFinder 6.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372139.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioFinder — программа для управления вашей фонотекой.
+С ее помошью можно организовать каталог ваших медиа-файлов и мгновенно находить нужный вам звук, именно тогда, когда он вам необходим, сэкономит вам кучу времени. Используйте AudioFinder для создания пользовательских наборов для всех категорий и конкретных проектов, при быстром просмотре файла и прослушивании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2020Разработчик: Iced AudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B489AA5723C708ED16746EA5F094B66BC601D6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176423   (372034) от 21.10.2017
 
 Iridient Developer 3.2 [En]
@@ -6,7 +117,7 @@ Iridient Developer 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372034.jpg" />
+  <img src="Z:/picture/008/save_picture_372034.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ MP3 Gain 4 v4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372004.jpg" />
+  <img src="Z:/picture/008/save_picture_372004.jpg" />
 </div>
 
 
@@ -59,7 +170,7 @@ Blocs 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372003.jpg" />
+  <img src="Z:/picture/008/save_picture_372003.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Airy 3.19.305 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372002.jpg" />
+  <img src="Z:/picture/008/save_picture_372002.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ Adobe Audition CC 2019 v12.1.4[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371983.jpg" />
+  <img src="Z:/picture/008/save_picture_371983.jpg" />
 </div>
 
 
@@ -142,7 +253,7 @@ iStat Menus 5.11 (636) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371979.jpg" />
+  <img src="Z:/picture/008/save_picture_371979.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ SwitchGlass 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371933.jpg" />
+  <img src="Z:/picture/008/save_picture_371933.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ MovieMator Video Editor Pro 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371925.jpg" />
+  <img src="Z:/picture/008/save_picture_371925.jpg" />
 </div>
 
 
@@ -223,7 +334,7 @@ Notability 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371920.jpg" />
+  <img src="Z:/picture/008/save_picture_371920.jpg" />
 </div>
 
 
@@ -251,7 +362,7 @@ JixiPix Premium Pack 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371913.jpg" />
+  <img src="Z:/picture/008/save_picture_371913.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ Disk Doctor: System Cleaner 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371766.jpg" />
+  <img src="Z:/picture/008/save_picture_371766.jpg" />
 </div>
 
 
@@ -303,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371620.jpg" />
+  <img src="Z:/picture/008/save_picture_371620.jpg" />
 </div>
 
 
@@ -329,7 +440,7 @@ LilyView 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371536.jpg" />
+  <img src="Z:/picture/008/save_picture_371536.jpg" />
 </div>
 
 
@@ -356,7 +467,7 @@ Divvy 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371396.jpg" />
+  <img src="Z:/picture/008/save_picture_371396.jpg" />
 </div>
 
 
@@ -384,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371356.jpg" />
+  <img src="Z:/picture/008/save_picture_371356.jpg" />
 </div>
 
 
@@ -410,7 +521,7 @@ Parallels Desktop for Mac Business Edition 13.1.1 (43120) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371352.jpg" />
+  <img src="Z:/picture/008/save_picture_371352.jpg" />
 </div>
 
 
@@ -438,7 +549,7 @@ This Is the Police v.1.1.3.0 (2016) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371238.jpg" />
+  <img src="Z:/picture/008/save_picture_371238.jpg" />
 </div>
 
 
@@ -464,7 +575,7 @@ Adobe Photoshop Lightroom Classic CC v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371234.jpg" />
+  <img src="Z:/picture/008/save_picture_371234.jpg" />
 </div>
 
 
@@ -490,7 +601,7 @@ Red Giant Magic Bullet Suite 13.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371232.jpg" />
+  <img src="Z:/picture/008/save_picture_371232.jpg" />
 </div>
 
 
@@ -516,7 +627,7 @@ Tab Launcher 2.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371163.jpg" />
+  <img src="Z:/picture/008/save_picture_371163.jpg" />
 </div>
 
 
@@ -544,7 +655,7 @@ Movist 2 v2.0.0 b21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370976.jpg" />
+  <img src="Z:/picture/008/save_picture_370976.jpg" />
 </div>
 
 
@@ -572,7 +683,7 @@ PDFelement Express 0.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370974.jpg" />
+  <img src="Z:/picture/008/save_picture_370974.jpg" />
 </div>
 
 
@@ -583,117 +694,6 @@ PDFelement Express 0.6.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2D8A4E1235E3BCFF0986592915DEBC25C62E4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254881   (370972) от 15.10.2018
-
-BetterZip 4.2 (1434) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
-
-Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2018Разработчик: MacItBetterПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FBCE2A2C5C3041A4B25BBE0BBE51705D25D286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254812   (370970) от 15.10.2018
-
-SQLPro Studio 1.0.309 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370970.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CB881562B523E7229721968EBC8FBBED3D37EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254890   (370960) от 15.10.2018
-
-iTubeDownloader 6 v6.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370960.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTubeDownloader 6 теперь имеет очередь загрузки. Очередь загрузки позволит вам добавить несколько видео. Программа заботиться о выполнении их в определенном порядке. Кроме того, вы можете выполнить загрузку одновременно.
-
-С iTubeDownloader 6 мы добавили новые функции, чтобы сделать просмотр YouTube проще. iTubeDownloader 6 делает загрузку видео с YouTube еще более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EA4B90B9232125DA1216DD56C9E38FC2BD5E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254745   (370956) от 15.10.2018
-
-MediaHuman YouTube Downloader 3.9.9.7 (1310) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370956.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-Закачка нескольких файлов одновременно
-Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7F2ADCB72DCA7D4AD1840A47127DC8370B3AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

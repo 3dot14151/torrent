@@ -1,3 +1,291 @@
+###  Публикация: 920810   (578840) от 23.07.2015
+
+Maxthon Cloud Browser 4.4.7.600 Beta + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Помимо основных возможностей браузера, Maxthon предлагает богатый набор функций для улучшения вашего Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C3AB9919D0981D9E1C223F0E35CFD5CF9E755A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920851   (578831) от 23.07.2015
+
+VueScan Pro 9.5.21 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578831.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE44401662C10AC944D398229FF4155C81440FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920574   (578828) от 23.07.2015
+
+Daum PotPlayer 1.6.55390 Stable RePack by 7sh3 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EF0B07EBDF81617B3BFB5D2E7371B445DEB99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554334   (578800) от 29.05.2022
+
+Windows 10 Manager 3.6.5 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B56217597B7EC6197B7E82BF8F16E1F71D5EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920726   (578784) от 23.07.2015
+
+Waterfox 39.0 x64 Final RePack (& Portable) by D!akov [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2CA6F456B741C79470EDF3E6D25AAE9A9549A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920845   (578778) от 23.07.2015
+
+Windows System Control Center 2.5.0.2 Portable by Alecs962 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows System Control Center - оболочка, объединяющая программы двух авторитетных и плодовитых производителей, удобная и красивая замена пакетам Sysinternals Suite и NirLauncher. Представленный набор служит для самых разнообразных целей и не раз пригодится, тем более, что в силу компактности его легко носить с собой на USB или скачать заново. В зависимости от назначения, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F095B50DE395F9F3D9610F789CF1D64252BEEE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920586   (578769) от 23.07.2015
+
+Punto Switcher 4.1.0 Build 432 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Punto Switcher — автоматический переключатель раскладки клавиатуры. Иногда Вы забываете переключить раскладку с русской на английскую и получаете, например, «Цштвщцы» вместо «Windows» и, наоборот, не переключив раскладку клавиатуры с английского на русский, Вы получаете «Hjccbz» вместо «Россия». Теперь о переключателе клавиатуры можно просто забыть, переключение (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6469F9998D882129446294BAB6156FCFA52ED70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360959   (578754) от 09.07.2011
+
+Radiocent 2.1.2 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiocent - Бесплатная программа для прослушивания радиостанций
+ Все возможные музыкальные жанры и стили, talk-радиостанции, радиостанции интернет-сообществ и просто изветных и не очень диджеев, музыкантов и просто ценителей хорошей музыки.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920736   (578744) от 23.07.2015
+
+Opera Developer 32.0.1926.0 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera developer обновляется несколько раз в неделю и позволяет узнать, какие особенности и функции появятся в новых продуктах.
+Будьте осторожны! Ранние версии предназначены для разработчиков, создателей расширений и пользователей, которые хотят как можно скорее оценить новый продукт.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F369B0C4E622D7638A6922441013FFCF1D6B479E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920906   (578741) от 23.07.2015
+
+Skype 7.7.0.102 RePack AIO (Silent & Portable) by SPecialiST [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0122B2E9AB8A9EFF1C9D73C54538FC4D7849FAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920847   (578728) от 23.07.2015
+
+CCleaner 5.08.5308 Business | Professional | Technician Edition RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578728.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CF7D8BFF0EFF1512B4FCA5A861E4688428E67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554262   (578707) от 29.05.2022
 
 Open Shell (Classic Shell) 4.4.170 [Ru/En]
@@ -6,7 +294,7 @@ Open Shell (Classic Shell) 4.4.170 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578707.jpg" />
+  <img src="Z:/picture/008/save_picture_578707.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6721.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578678.jpg" />
+  <img src="Z:/picture/008/save_picture_578678.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ SUMo PRO 4.0.2.270 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578677.jpg" />
+  <img src="Z:/picture/008/save_picture_578677.jpg" />
 </div>
 
 
@@ -84,7 +372,7 @@ CCleaner 5.08.5308 Professional [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578675.jpg" />
+  <img src="Z:/picture/008/save_picture_578675.jpg" />
 </div>
 
 
@@ -110,7 +398,7 @@ Hotspot Shield Elite 4.20.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578673.jpg" />
+  <img src="Z:/picture/008/save_picture_578673.jpg" />
 </div>
 
 
@@ -136,7 +424,7 @@ Smart Driver Updater 4.0 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578671.jpg" />
+  <img src="Z:/picture/008/save_picture_578671.jpg" />
 </div>
 
 
@@ -162,7 +450,7 @@ Daum PotPlayer 1.6.55390 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578670.jpg" />
+  <img src="Z:/picture/008/save_picture_578670.jpg" />
 </div>
 
 
@@ -188,7 +476,7 @@ Cборник свежих ключей для продуктов Касперс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578651.jpg" />
+  <img src="Z:/picture/008/save_picture_578651.jpg" />
 </div>
 
 
@@ -223,7 +511,7 @@ Microsoft Forefront Endpoint Protection 2012 4.8.204.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578646.jpg" />
+  <img src="Z:/picture/008/save_picture_578646.jpg" />
 </div>
 
 
@@ -249,7 +537,7 @@ EZ CD Audio Converter 3.1.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578644.jpg" />
+  <img src="Z:/picture/008/save_picture_578644.jpg" />
 </div>
 
 
@@ -275,7 +563,7 @@ The Foundry MODO 901 SP1 Build 88298 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578632.jpg" />
+  <img src="Z:/picture/008/save_picture_578632.jpg" />
 </div>
 
 
@@ -301,7 +589,7 @@ DriverPack Solution Online 16.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578626.jpg" />
+  <img src="Z:/picture/008/save_picture_578626.jpg" />
 </div>
 
 
@@ -327,7 +615,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578607.jpg" />
+  <img src="Z:/picture/008/save_picture_578607.jpg" />
 </div>
 
 
@@ -353,7 +641,7 @@ Reallusion iClone 6.1.1728.1 PRO Repack by Buhta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578606.jpg" />
+  <img src="Z:/picture/008/save_picture_578606.jpg" />
 </div>
 
 
@@ -379,7 +667,7 @@ Microsoft Office 2007 Standard SP3 12.0.6721.5000 RePack by KpoJIuK (20.07.2015)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578605.jpg" />
+  <img src="Z:/picture/008/save_picture_578605.jpg" />
 </div>
 
 
@@ -390,294 +678,6 @@ Microsoft Office 2007 предоставляет удобные и просты�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:777A7C8B13EE93BCD3C592C41391205C6EEA8C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920643   (578597) от 23.07.2015
-
-Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7153.5000 SP2 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456CF92806BABF332BA399EF676EEE90ED63271E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920869   (578588) от 23.07.2015
-
-KMSAuto Net 2015 TEST Portable (23/07/2015) [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578588.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Net - автоматический KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013. Дополнительно программа активирует: Windows 8.1 Single Language; Windows 8.1 Core; Windows 8.1 Core N; Windows 8.1 Pro WMC; Windows Embedded 8.1 Industry Pro; Windows Server 2012 R2 Standard; Windows (   Читать дальше...   )Язык интерфейса: Русский / Украинский / Английский / Французский / Испанский / Вьетнамский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C5D2EB0F72ABC36649BE8A94C4FFA2F388CA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360974   (578587) от 09.07.2011
-
-Avant Browser 2011 build 27 11.9.0.27 [Многоязычный (Русский)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый браузер -Язык интерфейса: Многоязычный (Русский)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920890   (578586) от 23.07.2015
-
-Microsoft Windows 10 Language Pack + Lip 10.0.10240 RTM (x86-x64) WZT [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальные языковые пакеты для Windows 10 RTM (build 10240).
-В данном архиве вы найдете такие языковые пакеты и Lip'ы:
-Arabic, Belarusian, Bulgarian, Chinese-Hong Kong SAR, Chinese-Simplified, Croatian, Czech, Danish, Dutch, English, Estonian, Finnish, French, German, Greek, Hebrew, Hungarian, Italian, Japanese, Kazakh, Korean, Latvian, Lithuanian, Norwegian, Polish, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие (LangPack39 + Lip72)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C129AA821B399408A1DC6D8FCF23417904E96240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360879   (578577) от 09.07.2011
-
-Total Commander 7.56a Vi7Pack 1.82 Final [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка использует популярный файловый менеджер Total Commander, включает в себя лучшие плагины и дополнительные программы для простой и удобной работы, имея при этом малый размер.Язык интерфейса: Ru/En
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920645   (578567) от 23.07.2015
-
-Microsoft Office 2010 Standard 7153.5000 SP2 (x86) RePack by KpoJIuK [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301DD97F03130593CCAF688489A8F81692039AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920926   (578566) от 23.07.2015
-
-CCleaner 5.08.5308 Free | Professional | Business | Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578566.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE8EADF3823CEA0A93A67F082199961463E2D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920618   (578553) от 23.07.2015
-
-UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578553.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2635108DC6B186E6A0448BB3C8C747576F21832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920274   (578546) от 23.07.2015
-
-Microsoft Visual Studio 2015 (14.0.23107.0) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual Studio — линейка продуктов компании Microsoft, включающих интегрированную среду разработки программного обеспечения и ряд других инструментальных средств. Данные продукты позволяют разрабатывать как консольные приложения, так и приложения с графическим интерфейсом, в том числе с поддержкой технологии Windows Forms, а также веб-сайты, веб-приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A2C2ADF60761741855D3926640683CF0DF38EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361058   (578540) от 09.07.2011
-
-UXTheme Multi-Patcher 8.0[En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578540.jpg" />
-</div>
-
-
-###  Подробнее
-
-UXTheme Multi-Patcher модифицирует системный файл uxtheme.dll, включая тем самым поддержку различных тем оформления. Как известно, в стандартном виде Windows XP поставляется с тремя цветовыми вариантами одной и той же темы Luna, а Windows Server 2003 вовсе не предусматривает их использование как таковых. С помощью UXTheme Multi-Patcher это можно исправить.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360886   (578535) от 09.07.2011
-
-Mirillis Splash PRO 1.9.0 Portable [2011,ML\RUS,x86\x64]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mirillis Splash PRO - оптимизированный для проигрывания видео в высоком разрешении (High Definition AVC/H.264) и просмотра цифровых телевизионных каналов (DVB-T). Splash Player имеет встроенный кодек Mirillis AVC/H.264, который является собственной разработкой компании, и способен обеспечить высококачественное четкое и гладкое изображение в высоком разрешении. Плеер отличается стильным, удобным интерфейсом.Язык интерфейса: Мультиязычный
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

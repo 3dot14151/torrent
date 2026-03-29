@@ -1,3 +1,61 @@
+###  Публикация: 1624766   (241840) от 07.04.2023
+
+VA - Привал романтиков 2 (2004) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Иващенко и Г. Васильев - Одуванчиков дым
+02. А. Колмыков, В.Мищук, Н. Дудкина - Мы с тобой...( Мы с тобой давно уже не  те )
+03. А. Иващенко - Пора, мой друг, пора
+04. О. Митяев - Западная сибирь(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E252E26C82F869EB7D1EAF53576CAC58A6449EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378098   (241525) от 25.04.2020
+
+Владимир Базыкин - Когда освобожусь (2004) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кореша
+02. Когда освобожусь
+03. Долюшка
+04. Друг(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2DF872A6A9EC0CDD603DDB62AE0EC8EE68D1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378230   (241475) от 25.04.2020
 
 Мафик - Пацанский стиль (2013) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
@@ -6,7 +64,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241475.jpg" />
+  <img src="Z:/picture/004/save_picture_241475.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA – Русский шансон часть 2 (1996) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240806.jpg" />
+  <img src="Z:/picture/004/save_picture_240806.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240249.jpg" />
+  <img src="Z:/picture/004/save_picture_240249.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239536.jpg" />
+  <img src="Z:/picture/004/save_picture_239536.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239521.jpg" />
+  <img src="Z:/picture/004/save_picture_239521.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Русский шансон часть 5 (1998) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238986.jpg" />
+  <img src="Z:/picture/005/save_picture_238986.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238880.jpg" />
+  <img src="Z:/picture/005/save_picture_238880.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237711.jpg" />
+  <img src="Z:/picture/004/save_picture_237711.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237662.jpg" />
+  <img src="Z:/picture/004/save_picture_237662.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237466.jpg" />
+  <img src="Z:/picture/005/save_picture_237466.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Русский шансон часть 8 (2000) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237460.jpg" />
+  <img src="Z:/picture/005/save_picture_237460.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236932.jpg" />
+  <img src="Z:/picture/005/save_picture_236932.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Песни фронтовых лет <<В память о Великой П
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236085.jpg" />
+  <img src="Z:/picture/005/save_picture_236085.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Песни фронтовых лет <<В память о Великой П
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236079.jpg" />
+  <img src="Z:/picture/005/save_picture_236079.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Русский шансон часть 3 (1997) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235798.jpg" />
+  <img src="Z:/picture/004/save_picture_235798.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235756.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234483.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Шоферской 6 (2001) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234446.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234135.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Шоферской 17 (2005) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233962.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233453.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233181.jpg" />
+  <img src="Z:/picture/004/save_picture_233181.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Марш ВДВ. Часть 1 (2007) [FLAC|Lossless|tracks + .cue] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232903.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232734.jpg" />
 </div>
 
 
@@ -687,65 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88005077326C3F5EEC07BCB452F2EB53E8810008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646699   (232186) от 15.07.2023
-
-Виктор Березинский - Я уезжаю (1994) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дуня Комарова
-02. Чемодан
-03. Клавка
-04. 10 "Б"(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DCA112CE0FB7D66DDF6364C726809EF16D0EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635894   (231706) от 30.05.2023
-
-Владимир Болотин - Любимая История (2001) [FLAC|Lossless|image + .cue] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я сегодня
-02. Положила спать
-03. Рыжий
-04. И больше ни слова(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:57:08
-Сканы: да
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24F4A2BF2AA7724106BADC5166FCDDD4FCAEF23
 ```
 
 https://mybot314.ru/tekegram_catalog/

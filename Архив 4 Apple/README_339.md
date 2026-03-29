@@ -1,3 +1,109 @@
+###  Публикация: 1050882   (536096) от 09.09.2016
+
+Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) WEB-DL [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536096.jpg" />
+</div>
+
+
+###  Подробнее
+
+События «Дней Минувшего Будущего» оказали колоссальное влияние на мир, где мутанты и люди борются за свое место под Солнцем. В это нелегкое время Людям Икс предстоит столкнуться со своим самым опасным противником — древним мутантом Апокалипсисом, существом, схватка с которым может стать последней не только для мутантов, но и в принципе для всего человечества. В поисках (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, приключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Николас Холт, Оскар Айзек, Роуз Бирн, Эван Питерс, Джош Хелман, Софи Тернер, Тай ШериданПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Русские, АнглийскиеПродолжительность: 02:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8C2D6A6FEB23588F86D33FA360296A047BED46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050541   (536077) от 09.09.2016
+
+Отмель / The Shallows (2016) WEB-DLRip [480p] iPod
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бескрайний океан, безлюдный пляж и идеальная погода для серфингистов в поисках хорошей волны. Казалось бы, ничто не предвещает беды для очаровательной любительницы серфинга в одиночку. Разве что свидание тет-а-тет с гигантской акулой, которая загонит спортсменку на песчаную отмель и не отступит до тех пор, пока не получит своё.Производство: СШАЖанр: Ужасы, триллер, драмаРежиссер: Хауме Кольет-СерраАктеры: Блейк Лайвли, Оскар Хаэнада, Бретт Каллен, Седона Ледже, Пабло Кальва, Диего Эспехель, Джанелл Бэйли, Ава Дин, Челси Муди, Салли СигаллПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Русские, АнглийскиеПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94C06A446F64270340EF55A134BAB5F7236A701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051106   (535025) от 10.09.2016
+
+iSoftPhone Pro 4.1203 (4.1.2) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_535025.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSoftPhone - удобный клиент для IP-телефонии
+iSoftPhone - программа представляет весьма оригинальный VoIP-клиент для Mac OS X. Интерфейс программы выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 сентября 2016Разработчик: Xnet CommunicationsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7892EF3E5581DFC7660BAC50381843CC2E09A627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051108   (534447) от 10.09.2016
+
+MacX Video Converter Pro 5.9.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_534447.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
+MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным гаджетам, включая даже смартфоны и планшеты не самой первой «свежести». (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 сентября 2016Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DFB70DECE4CDCBCE3D0A8536F1B52A2FC17DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558293   (533907) от 19.06.2022
 
 Dropzone 4 Pro v4.3.7 [En]
@@ -6,7 +112,7 @@ Dropzone 4 Pro v4.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533907.jpg" />
+  <img src="Z:/picture/008/save_picture_533907.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Viper FTP 6.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533773.jpg" />
+  <img src="Z:/picture/008/save_picture_533773.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Navicat Premium 16.0.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533763.jpg" />
+  <img src="Z:/picture/008/save_picture_533763.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Sketch 89 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533760.jpg" />
+  <img src="Z:/picture/008/save_picture_533760.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ MacFamilyTree 10 v10.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533554.jpg" />
+  <img src="Z:/picture/008/save_picture_533554.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ DxO PureRAW for Mac 2.0.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533548.jpg" />
+  <img src="Z:/picture/008/save_picture_533548.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ File Juicer 4.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533527.jpg" />
+  <img src="Z:/picture/008/save_picture_533527.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ PeakHour 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533516.jpg" />
+  <img src="Z:/picture/008/save_picture_533516.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ Boinx mimoLive 2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533342.jpg" />
+  <img src="Z:/picture/008/save_picture_533342.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ BetterZip 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533331.jpg" />
+  <img src="Z:/picture/008/save_picture_533331.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533031.jpg" />
+  <img src="Z:/picture/008/save_picture_533031.jpg" />
 </div>
 
 
@@ -306,7 +412,7 @@ iStat Menus 5.20 (684) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532566.jpg" />
+  <img src="Z:/picture/008/save_picture_532566.jpg" />
 </div>
 
 
@@ -335,7 +441,7 @@ Bartender 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532449.jpg" />
+  <img src="Z:/picture/008/save_picture_532449.jpg" />
 </div>
 
 
@@ -362,7 +468,7 @@ Magic Retouch Pro 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532344.jpg" />
+  <img src="Z:/picture/008/save_picture_532344.jpg" />
 </div>
 
 
@@ -390,7 +496,7 @@ Cisdem ContactsMate 6 v6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532162.jpg" />
+  <img src="Z:/picture/008/save_picture_532162.jpg" />
 </div>
 
 
@@ -416,7 +522,7 @@ PDF Search 12.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532160.jpg" />
+  <img src="Z:/picture/008/save_picture_532160.jpg" />
 </div>
 
 
@@ -442,7 +548,7 @@ Dato 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532159.jpg" />
+  <img src="Z:/picture/008/save_picture_532159.jpg" />
 </div>
 
 
@@ -469,7 +575,7 @@ WidsMob HDR 3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532158.jpg" />
+  <img src="Z:/picture/008/save_picture_532158.jpg" />
 </div>
 
 
@@ -495,7 +601,7 @@ Default Folder X 5.7d3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532157.jpg" />
+  <img src="Z:/picture/008/save_picture_532157.jpg" />
 </div>
 
 
@@ -521,7 +627,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532156.jpg" />
+  <img src="Z:/picture/008/save_picture_532156.jpg" />
 </div>
 
 
@@ -548,7 +654,7 @@ Boxy SVG 3  v3.86.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532153.jpg" />
+  <img src="Z:/picture/008/save_picture_532153.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ OmniPlayer Pro - Media Player 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532152.jpg" />
+  <img src="Z:/picture/008/save_picture_532152.jpg" />
 </div>
 
 
@@ -585,112 +691,6 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0495CA46DDF5183D85643ED1667FDC576E8C35EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558400   (532151) от 20.06.2022
-
-Infuse PRO 7 v7.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C722061F43D51269FB5E84778EA5141A62B91B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558367   (532046) от 20.06.2022
-
-Glyphs 3 v3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glyphs - это профессиональный редактор шрифтов для Mac OS X.
-Грамотно подобранный шрифт очень сильно может сказаться на восприятии приложения или печатного издания. Слишком резкие переходы в глифах не нравятся глазу при чтении, зато легко подойдут к смелому дизайнерскому решению. Плавные линии подчиняются похожей концепции. Восприятие информации через текст очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2022Разработчик: © 2022 Georg SeifertПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865E330795F912E0657962143BB2DCB680DD1E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558361   (532044) от 20.06.2022
-
-Tower Pro 8 v8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2022Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A58D1281353E5A6FF92C9BBD32BC551D569204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558532   (532042) от 20.06.2022
-
-Task Office 7.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 20.06.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9A79FCA709BA2CF8EC386E908B2475491F985B
 ```
 
 https://mybot314.ru/tekegram_catalog/

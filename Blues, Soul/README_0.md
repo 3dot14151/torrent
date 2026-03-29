@@ -1,3 +1,32 @@
+###  Публикация: 1442793   (1035676) от 28.01.2021
+
+VA - Ladies Sing & Play The Blues Vol. 3 (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Wilde - Where Blue Begins - [4:31]
+ 02. Karen Lovely - Low Road - [3:28]
+ 03. Kathie Boye & The DTG Gang - Crazy 16 Blues - [6:23]
+ 04. Sena Ehrhardt - Chilled to the Bone - [4:00](   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611979042428BD2EF1A6DD689C894D48083BE7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442819   (1035669) от 28.01.2021
 
 VA - Burning Blues - New Collection of Smoking Blues & Ballads  Vol. 01-05 (2018) 5CD [MP3|320 Kbps] <Blues ;Blues Rock>
@@ -6,7 +35,7 @@ VA - Burning Blues - New Collection of Smoking Blues & Ballads  Vol. 01-05 (2018
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035669.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kevin Galway - Canadiana Blues (2021) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034178.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Oernes Blues Band - I Need You Tonight (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034159.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Ladies Sing & Play The Blues Vol. 4 (2020)  [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033018.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Blues & Rock (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031563.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Ladies Sing & Play The Blues Vol. 5 (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031127.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Harvey Mandel (Snake) - Best of the Janus Years (2020) [MP3|320 Kbps] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027043.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Black Banjo - Out Of The Skies (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026892.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ivy Gold - Six Dusty Winds (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026357.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Blues Cousins - Poison (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025748.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Antonio Gambacorta - Norah (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024759.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Laurent Lombard - Sexy Blues (2011) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024542.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Fleetwood Mac - Crazy About the Blues (2010) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023417.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Indian Shadows - Tam Tam Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock, Native 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019063.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Mick Fleetwood and Friends - Celebrate the Music of Peter Green and the Early Ye
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018776.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gary Moore - How Blue Can You Get (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018714.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ James Brown - James Brown's Singles Anthology Vol. 1-2 (2021) All Tracks Remaste
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018402.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Stormy Monday Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015590.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Late Night Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015586.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ BluesBiz - Whiskey Blues Best of Slow Blues-Rock (2021) [MP3|320 Kbps] <Blues, B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014630.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Blind Pilots - All Kinds Of Crazy (2021) [MP3|320 Kbps] <Blues Rock, Heavy R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014320.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Eric Johanson - Covered Tracks: Vol. 1, Vol.2 (2021) 2xCD [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012225.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Roberta Flack - Quiet Fire (1970) 50th Anniversary Edition, 2021 Remaster [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009116.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gary Eisenbraun - Throwing Stones (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008940.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Burning Blues - New Collection of Smoking Blues & Ballads Vol. 06-10 (2019)
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008923.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Burning Blues - New Collection of Smoking Blues & Ballads Vol. 06-10 (2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D2E65A848A6AF68F59E22496AAE0363083E06A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480600   (1008821) от 29.06.2021
-
-Ekoostik Hookah - 31 West (2021) [MP3|320 Kbps] <Blues Rock, Country Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You'll Never Find (08:44)
- 02 - What She Needs (10:23)
- 03 - Caribou (04:58)
- 04 - Gray Sky Blue (11:38)(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 01:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35338B57BC82A935A0A40BC5541C8D907422B138
 ```
 
 https://mybot314.ru/tekegram_catalog/

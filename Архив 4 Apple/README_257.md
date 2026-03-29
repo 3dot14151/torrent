@@ -6,7 +6,7 @@ GraphicConverter 11 v11.2.2 (build 4491) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721411.jpg" />
+  <img src="Z:/picture/008/save_picture_721411.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TablePlus 3.7.1 (build 332) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721408.jpg" />
+  <img src="Z:/picture/008/save_picture_721408.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721395.jpg" />
+  <img src="Z:/picture/008/save_picture_721395.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ NeoOffice 2017.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721298.jpg" />
+  <img src="Z:/picture/008/save_picture_721298.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ DCommander 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721266.jpg" />
+  <img src="Z:/picture/008/save_picture_721266.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ PDF Expert 2.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721173.jpg" />
+  <img src="Z:/picture/008/save_picture_721173.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ TechSmith Snagit 2020.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721169.jpg" />
+  <img src="Z:/picture/008/save_picture_721169.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Alfred Powerpack 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721167.jpg" />
+  <img src="Z:/picture/008/save_picture_721167.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Wondershare Video Converter Ultimate 10.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721163.jpg" />
+  <img src="Z:/picture/008/save_picture_721163.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ RapidWeaver 8 v8.1.6 (20662) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721087.jpg" />
+  <img src="Z:/picture/008/save_picture_721087.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Keep It 1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721084.jpg" />
+  <img src="Z:/picture/008/save_picture_721084.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Money Pro 2.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721080.jpg" />
+  <img src="Z:/picture/008/save_picture_721080.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Aiseesoft HD Converter 9.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721078.jpg" />
+  <img src="Z:/picture/008/save_picture_721078.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Alien Skin Exposure X4 Bundle 4.0.6.170 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721070.jpg" />
+  <img src="Z:/picture/008/save_picture_721070.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Blackmagic Design Fusion Studio 16.2 (build 22) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721053.jpg" />
+  <img src="Z:/picture/008/save_picture_721053.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Adguard 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721046.jpg" />
+  <img src="Z:/picture/008/save_picture_721046.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Compressor 4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721043.jpg" />
+  <img src="Z:/picture/008/save_picture_721043.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Scapple 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720949.jpg" />
+  <img src="Z:/picture/008/save_picture_720949.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Charles Web Debugging Proxy 4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720938.jpg" />
+  <img src="Z:/picture/008/save_picture_720938.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Final Cut Pro X 10.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720911.jpg" />
+  <img src="Z:/picture/008/save_picture_720911.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Paste 2.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720867.jpg" />
+  <img src="Z:/picture/008/save_picture_720867.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Movavi Screen Recorder 10.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720866.jpg" />
+  <img src="Z:/picture/008/save_picture_720866.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Valentina Studio Pro 12.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720838.jpg" />
+  <img src="Z:/picture/008/save_picture_720838.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ GraphicConverter 11 v11.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720837.jpg" />
+  <img src="Z:/picture/008/save_picture_720837.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Artstudio Pro 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720836.jpg" />
+  <img src="Z:/picture/008/save_picture_720836.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ KCNcrew Pack 02-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720768.jpg" />
+  <img src="Z:/picture/008/save_picture_720768.jpg" />
 </div>
 
 

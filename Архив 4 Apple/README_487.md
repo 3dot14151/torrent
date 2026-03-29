@@ -1,3 +1,110 @@
+###  Публикация: 1341023   (262901) от 26.11.2019
+
+Movavi Screen Recorder 11.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая и функциональная программа для записи всего, что происходит на экране вашего Mac. Захватывайте и сохраняйте на жесткий диск видео и музыку из интернета, записывайте разговоры в Skype и игровой процесс, создавайте собственные видеоуроки. Программа крайне проста в освоении и не требует никаких специальных навыков. Установите настройки записи, снимите видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2019Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AFBCF1AEC7A60DA8D72DB35351B91779471485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341028   (262894) от 26.11.2019
+
+TechSmith Camtasia Studio 2019.0.6 (build 109577)[En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD72F4A32ACFE404E3E24FD0A6ADBF77A28730EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192646   (262752) от 18.12.2017
+
+Hands Off! 3.2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523AF11A97CB41536CC4CE334C95EE1CB6459069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192825   (262745) от 18.12.2017
+
+1Password 6.8.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
+
+Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 декабря 2017Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB66974FEA41063029FB4D4212A88B745E06640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341236   (262637) от 27.11.2019
 
 EtreCheck Pro 6.1.5 [En]
@@ -6,7 +113,7 @@ EtreCheck Pro 6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262637.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ SuperDuper! 3.3 (v120) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262634.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Lyn 1.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262497.jpg" />
 </div>
 
 
@@ -89,7 +196,7 @@ Grids for Instagram 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262452.jpg" />
 </div>
 
 
@@ -118,7 +225,7 @@ Live Home 3D St 3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262437.jpg" />
 </div>
 
 
@@ -146,7 +253,7 @@ Scrutiny 9 v9.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262357.jpg" />
 </div>
 
 
@@ -173,7 +280,7 @@ Downie 3 v3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262355.jpg" />
 </div>
 
 
@@ -201,7 +308,7 @@ Deckset 2.0.13 (build 2551) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262354.jpg" />
 </div>
 
 
@@ -229,7 +336,7 @@ Notability 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262343.jpg" />
 </div>
 
 
@@ -257,7 +364,7 @@ ScreenFlow 9 v9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262335.jpg" />
 </div>
 
 
@@ -286,7 +393,7 @@ Wondershare Filmora 9 v9.2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262330.jpg" />
 </div>
 
 
@@ -312,7 +419,7 @@ ON1 Effects 2019.7 (build 13.7.0.8098) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262320.jpg" />
 </div>
 
 
@@ -338,7 +445,7 @@ Folx Pro 5.13 (build 13908) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262295.jpg" />
 </div>
 
 
@@ -367,7 +474,7 @@ Downie 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262265.jpg" />
 </div>
 
 
@@ -396,7 +503,7 @@ Translatium - translator 7.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262261.jpg" />
 </div>
 
 
@@ -422,7 +529,7 @@ Audirvana Plus 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262259.jpg" />
 </div>
 
 
@@ -448,7 +555,7 @@ MacFamilyTree 8.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262239.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ Logoist 3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262214.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ Jump Desktop (RDP, VNC, Fluid) 7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262205.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ CleanMyMac 3.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262162.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ File Cabinet Pro 5.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262124.jpg" />
 </div>
 
 
@@ -590,7 +697,7 @@ PDF Squeezer 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262119.jpg" />
 </div>
 
 
@@ -602,119 +709,6 @@ PDF-компрессор предназначен для сокращения р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC32E339B119A66B1A1160728485F0DEAF1395EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193475   (262116) от 21.12.2017
-
-Fenetre 0.5.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Держите окно открытым, всегда поверх всего остального.
-Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15 декабря 2017Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14545CD2F9F4681A3D8B1A702695C83653A8BCF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193467   (262106) от 21.12.2017
-
-Viscosity 1.7.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viscosity является OpenVPN клиентом для Mac, с простым и понятным интерфейсом пользователя для создания, редактирования и управления VPN соединениями. Приложение обеспечивает полную поддержку решения OpenVPN для macOS и не требует никакого дополнительного программного обеспечения.
-
-Viscosity может подключаться к любому серверу OpenVPN серверу и позволяет полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB184F72DE5FF34356A38E58D18E2347893F851B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193446   (262076) от 21.12.2017
-
-Mate – Dictionary, Translator (мгновенный переводчик) 4.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекращайте изучать языки и заниматься переводом старыми неэффективными способами. Загружайте переводчик Mate Translate для Mac уже сегодня! Mate Translate – это исчерпывающие словари 103 языков мира, разговорники, синхронизация переводов и фраз между всеми вашими устройствами и прямой доступ через вашу панель меню Mac.
-
-Mate Translate обладает невероятно полной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: Twopeople Software LLCПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE98B33C73271F330A665EB17B8A58A4A2482DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193408   (262068) от 21.12.2017
-
-Luminar 2018 v1.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C0420E3645E2DFD79CE5CF27BF918C4AE581A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

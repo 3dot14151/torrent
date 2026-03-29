@@ -1,3 +1,161 @@
+###  Публикация: 158045   (7169) от 18.08.2025
+
+Сын Годзиллы / Son of Godzilla (1967)  [BDRip / 1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа исследователей, проводя на тропическом острове эксперименты, связанные с контролем над погодой, натыкается на выводок огромных богомолов. Несмотря на это, учёные решают продолжить свою работу, в результате чего богомолы становятся ещё больше и агрессивнее. На том же острове оказался и маленький сын Годзиллы, защитить которого от мутантов теперь сможет только (   Читать дальше...   )Жанр: ФантастикаРежиссер: Юн Фукуда / Jun FukudaВ ролях: Тадао Такасима, Акира Кубо, Бибари Маэда, Акихико Хирата, Йошио Цучия, Кенджи Сахара, Кэнитиро Маруяма, Ясухико Сайдзё, Сусуму Куробе, Харуо НакадзимаПеревод: Профессиональный (двухголосый закадровый)Субтитры: русские (на непереведённые места), английскиеПродолжительность: 01:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B9BFDE32CD3CA7DD409817746EA237F72EB9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735387   (7013) от 19.08.2025
+
+Спасите Конкорд / Concorde Affaire '79 (1979) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конкуренты готовы на все, чтобы не допустить «Конкорд» на мировой рынок. Во время первого испытательного полета белоснежный лайнер по неизвестным причинам падает в воды Карибского моря. Чудом выжившую стюардессу спасают рыбаки.
+Как только весть доходит до скандально-известного журналиста Мозеса Броди, он вылетает на Антильские острова, чтобы расследовать трагедию. (   Читать дальше...   )Производство: Италия / Dania Film, National CinematograficaЖанр: боевик, триллер, криминалРежиссер: Руджеро ДеодатоАктеры: Джеймс Франсискус, Мимзи Фармер, Венантино Венантини, Фьямма Мальоне, Эдмунд Пурдом, Франсиско Шарль, Франческо Карнелутти, Оттавиано Дэлль’Акква, Альдо Барберито, Роберто СантиПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D705CEE75D0A344D88C7FB8ABB61F5CB7CBF87ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649507   (6995) от 19.08.2025
+
+Под нажимом / Uptight (1968) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через несколько дней после убийства Мартина Лютера Кинга-младшего безработный чернокожий сталевар участвует в разработке плана кражи оружия для своего друга-боевика и его организации. Когда он отказывается от сделки и сдает их всех местным властям, они объявляют его предателем и преследуют. Американский драматический фильм 1968 года режиссера Жюля Дассена. Он задумывался (   Читать дальше...   )Производство: США / MarlukinЖанр: триллер, драмаРежиссер: Жюль ДассенАктеры: Рэймонд Сейнт-Жак, Руби Ди, Фрэнк Сильвера, Роско Ли Браун, Джулиан Мэйфилд, Джанет МакЛахлан, Макс Жюльен, Хуанита Мур, Дик Энтони Уильямс, Michael BaseleonПеревод: Одноголосый любительский (sephirot)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF5527F2B44689E0937D4A46A58712CBB5DD878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118402   (6575) от 22.08.2025
+
+Козерог один / Capricorn One (1977) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полёт американских астронавтов на Марс может сорваться в связи с проблемами систем жизнеобеспечения корабля. Но, стремясь сохранить политический имидж Америки, руководство не хочет отказываться от проекта. Мир должен думать, что полёт состоялся, и ради этого замышляется грандиозный обман. Корабль «Козерог один» стартует без экипажа, а астронавты на земле инсценируют (   Читать дальше...   )Производство: США, Великобритания / Associated General Films, Incorporated Television Company (ITC)Жанр: Боевик, Триллер, ФантастикаРежиссер: Питер ХайамсАктеры: Эллиотт Гулд, Джеймс Бролин, Бренда Ваккаро, Сэм Уотерстон, О. Дж. Симпсон, Хэл Холбрук, Карен Блэк, Телли Савалас, Дэвид Хаддлстон, Дэвид ДойлПеревод: Дублированный, Многоголосый х2, Двухголосый х3Субтитры: Русские, АнглийскиеПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFEC06BA8173F4716DD695EEFD343A5D50E5867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298364   (6549) от 22.08.2025
+
+И стал свет / Et la lumiere fut (1989) BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизненный уклад африканского племени мутирует под натиском новых технологий. Племя с равной смекалкой приспосабливает для своих нужд и дары цивилизации, и ее отбросы. Но со временем вещи меняют отношения между людьми...Жанр: этнографический, трагикомедия, притчаРежиссер: Отар Иоселиани / Otar IosselianiВ ролях: Сигалон Санья, Сали Баджи, Бинта Сиссе, Мари-Кристин Даяме, Фату СайдиПеревод: Отсутствует (не требуется)Субтитры: русские (на интертитры), английские, японскиеПродолжительность: 1:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE21E0063C5348044EE9B8A16C7A0A6CA510264B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203555   (6530) от 22.08.2025
+
+Империя Солнца / Empire of the Sun (1987) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6530.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941 год, Вторая мировая война. Юный англичанин Джим Грэхем живёт в богатой семье в Китае. Японцы вторглись в Шанхай, Джим теряется в толпе и остаётся без родителей в захваченном городе. Во время скитаний находит друга Бэйзи, с которым попадает в лагерь заключенных.
+Среди болезни и нехватки пищи Джим борется за выживание, вынося предательства и оскорбления… Нити, (   Читать дальше...   )Производство: США / Amblin Entertainment, Warner Bros. Pictures Co.Жанр: Драма, Военный, ИсторияРежиссер: Стивен СпилбергАктеры: Кристиан Бэйл, Джон Малкович, Миранда Ричардсон, Найджел Хэверс, Джо Пантольяно, Лесли Филлипс, Роберт Стивенс, Пол МакГанн, Дэвид Найдорф, Ральф Сеймур, Бен СтиллерПеревод: Дублированный, Профессиональный (многоголосый закадровый), Авторский (одноголосый закадровый)Субтитры: Русские (форс., полные), английскиеПродолжительность: 02:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0536922857A041B8AF7B2981E9AF49939447B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 49733   (6387) от 23.08.2025
 
 Ганди / Gandhi (1982) BDRip [H.264/1080p]
@@ -6,7 +164,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6387.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6034.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5926.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4859.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4567.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4489.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4097.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3831.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3822.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2526.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2395.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2384.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2208.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2206.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2057.jpg" />
 </div>
 
 
@@ -398,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1171.jpg" />
 </div>
 
 
@@ -424,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1134.jpg" />
 </div>
 
 
@@ -450,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_897.jpg" />
 </div>
 
 
@@ -476,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_291.jpg" />
 </div>
 
 
@@ -502,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133.jpg" />
 </div>
 
 
@@ -514,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2BB4FF23BF6C23DAC82B9733A0BD0F59DDA9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820851   (100) от 29.09.2025
-
-Отель «Гранд Будапешт» / The Grand Budapest Hotel (2014) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об увлекательных приключениях легендарного консьержа Густава и его юного друга, портье Зеро Мустафы. Сотрудники гостиницы становятся свидетелями кражи и поисков бесценных картин эпохи Возрождения, борьбы за огромное состояние богатой семьи и… драматических изменений в Европе между двумя кровопролитными войнами XX века.Производство: США, Германия / Fox Searchlight Pictures, Indian PaintbrushЖанр: комедия, приключения, детектив, криминалРежиссер: Уэс АндерсонАктеры: Рэйф Файнс, Тони Револори, Сирша Ронан, Эдриан Броуди, Уиллем Дефо, Ф. Мюррэй Абрахам, Джуд Лоу, Эдвард Нортон, Джефф Голдблюм, Харви Кейтель, Том Уилкинсон, Матье Амальрик, Тильда СуинтонПеревод: Дублированный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full), английскиеПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109F4939AE1C37A59C9431D6848478CE7E9CEFBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1052799   (527093) от 15.09.2016
+
+Outbreak: Pandemic Evolution (2016) [En] (Patch 8) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outbreak — выживание на красивой открытой карте с видом от первого лица, где вам предстоит собирать припасы днём, а ночь переживать в вашей высокотехнологичной базе расположенной в горах. Собирайте всё, что сможете найти, чтобы потом усовершенствовать турели, боеприпасы, ловушки, оружие, пищу и гаджеты. Другие враждебные представители мира попытаются убить вас при (   Читать дальше...   )Тип издания: RepackРазработчик: TurnTec Studios LLC, Octagon Interactive Ltd.Жанр: Action (Survival horror), Adventure, 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06457FE8C9C7B01DB418D193B2438488F5B510CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927894   (522284) от 16.08.2015
+
+Turmoil (2015) [En] (0.0.0.185) License  [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turmoil - экономическая стратегия с генерируемыми уровнями, в которой вашей главной задачей станет добыча нефти. Хорошая игра с красивой графикой и приятным саундтреком. События игры разворачиваются в 1899 году, смысл довольно прост: Вы первые люди, которые добывают нефть на американской земле.Тип издания: ЛицензияРазработчик: GamiousЖанр: Инди, СимуляторЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477FE985C5ED0CF947C84C7A71AB8BA87E07312A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938301   (481307) от 18.09.2015
+
+Mighty No. 9 (2015) [En] (Beta 1.0) Repack Let'sРlay
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_481307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mighty No. 9 - духовный наследник легендарной серии Mega Man. Игрок возьмет под контроль Бека (Beck), девятую модель в линейке мощных роботов, которых не поразил компьютерный вирус. Вам предстоит найти источник опасного вируса и ликвидировать его, попутно сражаясь с врагами и преодолевая различные препятствия.Тип издания: RepackРазработчик: Comcept / Inti CreatesЖанр: Arcade (Platform) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D4E5B40EF54DD2ACB02ACA4811C8E9D7CDC2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382676   (478512) от 01.09.2020
+
+ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обновляемая)
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимание: ввиду того, что Трудоград продолжает события Atom RPG мы советуем пройти оригинал прежде чем играть в продолжение. Трудоград - пошаговая ролевая игра, действия которой разворачиваются в постапокалиптическом СССР. Игра вдохновлена классическими компьютерными ролевыми играми, такими как Fallout 1-2, Wasteland 1 и Baldur’s Gate. 22 года назад СССР и страны (   Читать дальше...   )Тип издания: RepackРазработчик: AtomTeamЖанр: Ролевые игры, Ранний доступЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057194   (476788) от 27.09.2016
+
+Void Destroyer 2 (2016) [En] (0.1) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_476788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Void Destroyer — гибрид космического симулятора и RTS. Игрок волен взять под контроль любой из кораблей своего флота, будь то истребитель или огромный флагман. Вы станете одним из немногих жителей космического пространства. Учитывая, что футуристический мир уже настал, космические корабли стали обыденным делом, и теперь каждый может без проблем приобрести себе крейсер (   Читать дальше...   )Тип издания: RepackРазработчик: Iteration 11Жанр: Adventure, Strategy (RTS), Simulator (Space), 3D, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699A93CE729B5259201675A31F285957B1FBFCBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939431   (475046) от 21.09.2015
 
 Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
@@ -6,7 +136,7 @@ Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475046.jpg" />
+  <img src="Z:/picture/008/save_picture_475046.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Catacomb Kids (2015) [En] (Early Access 0.0.11b) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472788.jpg" />
+  <img src="Z:/picture/008/save_picture_472788.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ DRAG (2020) [Multi] (0.1.7.0) Steam-Rip Goldberg [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465853.jpg" />
+  <img src="Z:/picture/008/save_picture_465853.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Metel - Horror Escape (2020) [Ru/En] (0.279) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461613.jpg" />
+  <img src="Z:/picture/008/save_picture_461613.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Breathedge (2018) [Ru/En] (0.9.1.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447942.jpg" />
+  <img src="Z:/picture/008/save_picture_447942.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Chernobylite (2019) [Ru/Multi] (31663) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444470.jpg" />
+  <img src="Z:/picture/008/save_picture_444470.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Dead Age 2 (2020) [Ru/Multi] (1.26) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439958.jpg" />
+  <img src="Z:/picture/008/save_picture_439958.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Blockscape (2014) [En] (322714) Repack Hazestalker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439399.jpg" />
+  <img src="Z:/picture/008/save_picture_439399.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.3.0 Hotfix) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422808.jpg" />
+  <img src="Z:/picture/008/save_picture_422808.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410914.jpg" />
+  <img src="Z:/picture/008/save_picture_410914.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Man O' War: Corsair (2016) [En] (0.6.3) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410902.jpg" />
+  <img src="Z:/picture/008/save_picture_410902.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/Multi4] (Demo/v
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405367.jpg" />
+  <img src="Z:/picture/005/save_picture_405367.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ Mashinky (2017) [Ru/Multi] (05102017) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391645.jpg" />
+  <img src="Z:/picture/008/save_picture_391645.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387041.jpg" />
+  <img src="Z:/picture/008/save_picture_387041.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377555.jpg" />
+  <img src="Z:/picture/005/save_picture_377555.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375719.jpg" />
+  <img src="Z:/picture/008/save_picture_375719.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ Stranded Deep (2015) [Ru/Multi] (0.74.00) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373517.jpg" />
+  <img src="Z:/picture/008/save_picture_373517.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ hack_me (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368120.jpg" />
+  <img src="Z:/picture/008/save_picture_368120.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352272.jpg" />
+  <img src="Z:/picture/008/save_picture_352272.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ Vagante (2014) [En] (Alpha 28b) Unofficial CheatBraker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348426.jpg" />
+  <img src="Z:/picture/008/save_picture_348426.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347290.jpg" />
+  <img src="Z:/picture/008/save_picture_347290.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BECDAD023F6F8732807759DADB971678B5E81A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954837   (336557) от 09.11.2015
-
-REVERSE SIDE / ОБРАТНАЯ СТОРОНА (2015) [Ru/En] (1.0.2.6.F) SteamRip Let'sРlay
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336557.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1972 г. в ходе последнего пилотируемого полёта на луну был обнаружен, потерпевший крушение космический корабль, инопланетного происхождения и все сведения об этой миссии были засекречены. Однако, в 1976 г. разведка СССР получает эти данные и правительство организовывает экспедицию на луну, с целью изучения обломков космического корабля. Спустя два года, на луне (   Читать дальше...   )Тип издания: SteamRipРазработчик: ReewGamesЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F200DF65EEBC495ADAE4FB30FDEAEE3496843A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816371   (336548) от 09.11.2015
-
-Salt (2015) [En] (1.6) Repack Hazestalker [Early Acsess]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Salt - это приключенческая survival-песочница про выживание человека на далеком архипелаге, со случайно генерируемым миром, в котором игрок будет исследовать огромный океанический архипелаг путешествуя между островами. Сражайтесь с пиратами, добывайте пищу, ищите торговцев, чтобы купить редкие и ценные товары, создавайте новые предметы, занимайтесь поиском пиратских (   Читать дальше...   )Тип издания: RepackРазработчик: Lavaboots StudiosЖанр: Survival-песочницаЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420442   (332196) от 01.11.2020
-
-In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для фанатов хоррор-выживания мы подготовили In Silence по сети или интернету онлайн. Здесь лишь один игрок сможет играть роль монстра со сверхъестественными способностями. Монстр ослеп, но отлично ориентируется по звуку. Остальная часть игроков будут играть роль выживших, их главная цель выжить и параллельно ликвидировать преследующего их монстра.Тип издания: RepackРазработчик: Ravenhood GamesЖанр: Экшн, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483B4D805C8D31D5A2ED469FF8629B5E68E213DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581258   (326967) от 05.10.2022
-
-Bus World (2022) [Ru/Multi] (Build 9649353) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bus World - игра о пассажирских перевозках, от простых будней водителя автобуса до спасения людей в условиях различных катастроф. Окунитесь в сюжеты десятков разнообразных сценариев или играйте в свободный режим, где вы вольны сами строить маршруты и перемещаться по игровым картам, как захотите! Место и время действия максимально разнообразны! На каждой карте своя (   Читать дальше...   )Тип издания: RepackРазработчик: KishMish GamesЖанр: Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9130FF4A0FAF02063FC87B25C85698CA9ACE2C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260227   (313620) от 06.11.2018
-
-Stranded Deep (2015) [En] (0.50.01) SteamRip R.G. Игроманы
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stranded Deep — это квест с видом от первого лица с элементами экшена от студии Beam Team Games. Издателем игры выступает Beam Team Games. Сюжет игры прост - терпя авиакрушение ваш герой оказывается посреди Тихого океана. Сооружаем все что попадется под руку, едим все что движется..Тип издания: SteamRipРазработчик: Beam Team GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6828104E90CB42CB6492605AF2B8FEFE8E883B
 ```
 
 https://mybot314.ru/tekegram_catalog/

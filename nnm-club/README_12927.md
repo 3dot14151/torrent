@@ -1,25 +1,23 @@
-###  Публикация: 928241   (522206) от 16.08.2015
+###  Публикация: 1559408   (524134) от 25.06.2022
 
-OS X 10.10.5 Installer USB for Win (14F27)
+Великий уравнитель / The Equalizer (2014 / 2018) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [Дилогия]
 
->>3
->>13
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522206.jpg" />
+  <img src="Z:/picture/005/save_picture_524134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Раздача предназначена для создания установочной флешки OS X 10.10.5 с использованием ресурсов ОС Windows.
-Для создания образа установщика применена программа инсталлятора Install OS X Yosemite.app из AppStore.
-В качестве бутлоадера использована UniBeast 5.2.0
-Программа MultiBeast 7.4.1 для установки драйверов и загрузчика в комплекте раздачи.(   Читать дальше...   )Язык интерфейса: Русский/Multi
+Боевики продюсера Антуана Фукуа по сценарию Ричарда Уэнка, основанные на одноимённом телесериале.
+Роберт МакКолл, отставной морской пехотинец (Дензел Вашингтон) и оперативник Разведуправления Министерства обороны. Все, кто страдает от криминальных авторитетов, коррумпированных чиновников и не может найти помощи у государства, находят помощь в лице Маккола. Он поможет. (   Читать дальше...   )Производство: США / Columbia Pictures, Escape Artists, Lonetree Entertainment, ZHIV ProductionsЖанр: боевик, триллер, криминалРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Билл Пуллман, Мартон Чокаш, Хлоя Грейс Морец, Педро Паскаль, Эштон Сандерс, Орсон БинПеревод: Дублированный, Многоголосый профессиональный, АвторскийСубтитры: русские (форсированные, полные), английские (форсированные, полные, для слабослышащих)Продолжительность: 02:12:03 | 02:00:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60780B8E1AE80A791285374D78EF583922197B4C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 928441   (522205) от 16.08.2015
+###  Публикация: 1558435   (524133) от 25.06.2022
 
-Сборка iGO Primo 9.6.29.483387 [Ru/Multi] - программа автонавигации
+Как приготовить таракана, фаршированного лунным грунтом
 
->>3
->>4
+>>След.
+>>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522205.jpg" />
+  <img src="Z:/picture/005/save_picture_524133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iGo Primo - программа спутниковой GPS-навигации, которая создаётся компанией NNG (ранее — Nav’N'Go) из Венгрии. На рынке доступны версии под Windows CE, Windows Mobile, Apple iOS и, с недавнего времени, под Android. В программе используется картография HERE, Navteq, TomTom, а также локальных разработчиков. iGO предлагает высококачественные (offline) карты для удобной (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 31.01.2015Разработчик: NNGПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
+Когда дело доходит до приготовления «научных блюд», фантазия исследователей не знает границ. Однажды учёные запекли кусочки метеоритов в высокотемпературной печи при 1 200 градусах Цельсия, чтобы понять, могут ли выделяющиеся газы привести к появлению атмосферы на молодой планете. А ещё биологи делали тараканов (и не только) с начинкой из лунного грунта. Теперь выпотрошенные (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:979638C65B9378EAA1279D6EF9A77AADF51B9CEB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241117   (522204) от 15.08.2018
+###  Публикация: 1559539   (524132) от 25.06.2022
 
-VA - 2 Years Suanda Base (2018) [MP3|320 Kbps] <Trance>
+Дора и Затерянный город / Dora and the Lost City of Gold (2019) BDRip [H.264/1080p-LQ]
 
->>Electronic
->>Trance
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522204.jpg" />
+  <img src="Z:/picture/008/save_picture_524132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dirkie Coetzee - Aurora (Extended Mix)
-02. Ahmed Helmy - Quasar (Extended Mix)
-03. Mantra - Take Me Higher (Extended Club Mix)
-04. HamzeH - Orbit (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:01
+Практически все детство Дора провела в джунглях, где работали ее родители-исследователи. Но никакие прежние приключения не могли подготовить девушку к опасностям старшей школы — непониманию, соперничеству, зависти. Вдобавок таинственным образом исчезают родители Доры. Но она не была бы собой, если бы опустила руки. Первая любовь, а также старые и новые друзья вдохновляют (   Читать дальше...   )Производство: США, Мексика, Австралия / Paramount Players, Walden Media, Screen QueenslandЖанр: Приключения, семейный, комедияРежиссер: Джеймс БобинАктеры: Изабела Монер, Эухенио Дербес, Майкл Пенья, Ева Лонгория, Джеффри Уолберг, Николас Кумбе, Мадлен Мэдден, Темуэра Моррисон, Бенисио Дель Торо, Дэнни Трехо, Мэдлин МирандаПеревод: ДублированныйСубтитры: Русские (forced, full), английские (forced, full)Продолжительность: 01:42:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:622618FB6B38DF537453E58212088AEA4F2A3675
+magnet:?xt=urn:btih:3636C5F5ED8677F3AB2ADB5BCA737C2E72595BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241039   (522203) от 15.08.2018
+###  Публикация: 1559310   (524131) от 25.06.2022
 
-Firkin - Whup (2010) [FLAC|Lossless|tracks + .cue] <Folk-Rock>
+Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 12) LakeFilms (обновляемая) [AD]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522203.jpg" />
+  <img src="Z:/picture/008/save_picture_524131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Whup Jamboree (00:02:30)
-02 - Sailing Away (00:03:24)
-03 - Beggarman (00:03:16)
-04 - Crazy Man Michael (00:03:43)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:41:20
+Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон и берёт в команду недовольных текущей ситуацией подельников. Идеальный план летит коту под хвост, когда грабителям приходится взять заложников.Производство: Южная Корея, BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: Криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~01:18:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:173E97B3E521DC2C3DFC6A48843AA90A93EA7622
+magnet:?xt=urn:btih:7E39F8A6A5E72D17300B08FF084828235CF9B598
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241094   (522202) от 15.08.2018
+###  Публикация: 927739   (524130) от 14.08.2015
 
-Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, Trumpet Jazz>
+The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522202.jpg" />
+  <img src="Z:/picture/008/save_picture_524130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Schroon [5:14]
-02. Metro [10:36]
-03. Parc La Fontaine Blues and Greens [9:38]
-04. Aylmer [8:19](   Читать дальше...   )Жанр: Post-Bop, Trumpet JazzПродолжительность: 01:00:37
+01. Miss Nancy [13:18]
+02. Elaborations [04:24]
+03. Midnite Train [03:44]
+04. Freedom Swing Song [04:46](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C2714366E1BB3656A93025976D2B6EB051B9716
+magnet:?xt=urn:btih:E6E3E1E7BF9CA113885EF4B965888B6BD4246736
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240928   (522201) от 15.08.2018
+###  Публикация: 927829   (524129) от 14.08.2015
 
-Refuge - Solitary Men (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1960) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Swing>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522201.jpg" />
+  <img src="Z:/picture/008/save_picture_524129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Summer's Winter
-02. The Man in the Ivory Tower
-03. Bleeding from Inside
-04. From the Ashes(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:00:01
+01. That's A Plenty [07:12]
+02. I Ain't Got Nobody [07:25]
+03. September In The Rain [04:05]
+04. Undecided [07:49](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:18:38
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A83806BF94F8F5C6108E04862ACF64A8EC633485
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +161,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241110   (522200) от 15.08.2018
+###  Публикация: 927731   (524128) от 14.08.2015
 
-VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
+Gene Ammons - Brasswind (1974) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Soul Jazz, Jazz-Funk>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522200.jpg" />
+  <img src="Z:/picture/008/save_picture_524128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Acoustic Loops - No Wounds (Original Mix)
-02. Lorenzo al Dino - So Nice (Erich Von Kollar Extended Remix)
-03. LVNT feat. Inga Maria - Temporary (Original Mix)
-04. Fonzerelli - My Digital Heartbeat (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:15
+01. Cantaro [04:05]
+02. Brasswind [05:09]
+03. Solitario [05:54]
+04. Cariba [05:01](   Читать дальше...   )Жанр: Jazz, Soul Jazz, Jazz-FunkПродолжительность: 00:39:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:550501FAD05F8A08F6273E2D6B0BEA473B977B8B
+magnet:?xt=urn:btih:A1324BC155307E7513080A41614601F561297F82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241116   (522199) от 15.08.2018
+###  Публикация: 927606   (524126) от 14.08.2015
 
-VA - Vocal Anthems Ibiza (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+Eisregen - 2 EP, 1 альбом (2014 - 2015) [MP3|320 кб/с]<Dark Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522199.jpg" />
+  <img src="Z:/picture/008/save_picture_524126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)
-02. Alexander Spark & Lucid Blue - Nothing Like The Sun (Extended Mix)
-03. Attila Syah vs. J.Puchler & Xpectra feat. Joanna Angelina - Forever (Extended Mix)
-04. Michael Milov & Claire Willis - Anywhere With You (Extended Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:53:54
+Список альбомов:
+2014 - Flötenfreunde (EP)
+2015 - Brummbar (EP)
+2015 - MarschmusikЖанр: Dark MetalПродолжительность: 01:33:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F22F0ACC8DE244D6044912F5AE33B9122E658BCD
+magnet:?xt=urn:btih:7D8CAC6339EDB06B1DA30CA12C99F6AA90FEF750
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,26 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240705   (522198) от 15.08.2018
+###  Публикация: 927700   (524125) от 14.08.2015
 
-Кристоф Вечерский | Мы Крылья (2018) [MP3]
+Мария Соловьева | Неспокойное семейство (1958) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522198.jpg" />
+  <img src="Z:/picture/008/save_picture_524125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодой, амбициозный художник, переживающий на пике своей зрелости творческий и личностный кризис, отправляется в Москву на поиски выхода из затянувшейся депрессии, который, как ему кажется, кроется в примерке на себе писательского амплуа!
-Волей счастливой случайности, с именем старого друга и по совместительству бывшего начальника Константина, молодому человеку (   Читать дальше...   )Жанр: современная прозаПродолжительность: 07:55:31
+Я пошла на инкубаторную станцию, где цыплята из яиц выводятся. Смотрю — цыплят дают. Их брали кто во что — в шляпы, кастрюли, в банки из-под консервов. Один мальчишка даже сел разуваться, ботинок снял.
+— Ты это что? Не так уж жарко.
+— Я не принёс ничего, а мне цыплят брать. В ботинок возьму.
+— Может, и мне взять? Хоть штук пять.(   Читать дальше...   )Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:124CBAFCCC800E629136DDA765CCAA9F2482A0B0
+magnet:?xt=urn:btih:C168CD4D528DAAB5E0725F962A4E159549245F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +248,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241074   (522197) от 15.08.2018
+###  Публикация: 927791   (524124) от 14.08.2015
 
-Эрик-Эмманюэль Шмитт | Оскар и Розовая Дама (2014) [MP3]
+The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб/с]<Goth Rock, Punk>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522197.jpg" />
+  <img src="Z:/picture/008/save_picture_524124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дорогой Бог!
-Так начиналось каждое из писем мальчика по имени Оскар к Господу Богу.
-Оскару честно и сразу признается, что не большой мастер писать, поэтому письма выходят немного сумбурными, но очень искренними. Он пишет из больницы и сетует на то, что родители и врачи неискренне с ним - словно со сказкой о Деде Морозе.
-Дело в том, что Оскар болен лейкемией, и последняя (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 01:27:40
+01.  Generals (3:26)
+02.  Dozen girls (4:36)
+03.  Disguise (3:30)
+04.  Take that (2:51)(   Читать дальше...   )Жанр: Goth Rock, PunkПродолжительность: 01:10:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C43993E6A969D5C3DC369833092BFDD83EEE00EA
+magnet:?xt=urn:btih:EE12859D05E0841DE2D29E45B833D79A58D84183
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,27 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241122   (522196) от 15.08.2018
+###  Публикация: 927560   (524123) от 14.08.2015
 
-Православное братство святого апостола Иоанна Богослова (изд.) | Слово Оптинских старцев (2012) [PDF, DJVU]
+Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб/с]<Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522196.jpg" />
+  <img src="Z:/picture/008/save_picture_524123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Преподобные Оптинские старцы - люди совсем разные по социальному происхождению, воспитанию и образованию; по-разному говорят они с нами, но слово каждого из них, в силу их святости, способно помочь нам, ищущим истину.
-
-Издание составлено по творениям преподобных Оптинских старцев Амвросия, Варсонофия, Иосифа и Никона.Жанр: ПравославиеФормат: PDF, DJVU
+01.  It's Cold Outside (2:54)
+02.  Make Up Your Mind (2:20)
+03.  Ready Anytime (3:00)
+04.  I'll Be Alright (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F26EC69B4776DF9BA785D461409BFC2E1C6AB038
+magnet:?xt=urn:btih:7FF1858995F25883EDC5270704FC04C80C4A5C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,111 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241023   (522195) от 15.08.2018
+###  Публикация: 927843   (524122) от 14.08.2015
 
-Грегуар Делакур | То, что бросается в глаза (2018) [MP3]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман французского прозаика Грегуара Делакура мало похож на первый («Шкатулка желаний»), но он столь же талантлив и самобытен. К тому же с ним связан громкий скандал – актриса Скарлетт Йоханссон подала на Делакура в суд за то, что он использовал ее имя в своем романе. По счастью, конфликт был улажен, и читатели всего мира могут наслаждаться изысканной и тонкой (   Читать дальше...   )Жанр: Современная прозаПеревод: Продолжительность: 04:48:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241069   (522194) от 15.08.2018
-
-VA - Techno Closed Box (2018) [MP3|320 Kbps] <Techno, Electronic>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522194.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mortes - Tonight
-002. Criminal Mayhem - The Crucible
-003. Da Tweekaz - Jagermeister (Extended Mix)
-004. Digital Mindz - D1GITAL (Extended Mix)(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:15:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241036   (522193) от 15.08.2018
-
-Яков Пинясов | Было не было (2017) [MP3]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яков Максимович Пинясов (мокш. Яку Пинясов) (29 декабря 1913, с. Мордовская Поляна Зубово-Полянского района, Республика Мордовия — 22 мая 1984, г. Саранск, Мордовия) — мокшанский писатель, журналист, переводчик, актёр театра и кино. Народный писатель Мордовской ССР.
-Биография
-В 1929 г. учился в Беднодемьяновской школе 2-й ступени. Автор более 60 книг для детей, вышедших (   Читать дальше...   )Жанр: прозаПродолжительность: 0:22:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241065   (522192) от 15.08.2018
-
-VA - Amazing Vocal Sound - Endless Summer 10 (2018) [MP3|320 Kbps] <House, Progressive House, Trance, Future House>
+VA - The Very Best of Summer (2015) [MP3|320 кб/с]<Deep House, Chill Out>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522192.jpg" />
+  <img src="Z:/picture/008/save_picture_524122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afrojack x Jewelz & Sparks - One More Day (Nicky Romero Extended Remix)
-02. Alan Walker & K-391 feat. Julie Bergan & SEUNGRI - Ignite
-03. Andrew Rayel & HALIENE - In The Dark (Extended Mix)
-04. Anki & October Child feat. NEAVV - All Or Nothing (Extended Mix)(   Читать дальше...   )Жанр: House, Progressive House, Trance, Future HouseПродолжительность: 03:32:16
+01. Kaxamalka - You Take My Breath Away
+02. Aqua Mundi - Mindfulness
+03. Chiffre 100 - Skies
+04. Diario - Solar Eclipse(   Читать дальше...   )Жанр: Deep House, Chill OutПродолжительность: 02:27:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34917505CBB74E0B05EA0E00A29492ED74BD06C5
+magnet:?xt=urn:btih:DB796675278DEC6477F5EA2B82CC2D9B25D4FB69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,28 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240732   (522191) от 15.08.2018
+###  Публикация: 927797   (524121) от 14.08.2015
 
-Александр Чаковский | Год жизни. Дороги, которые мы выбираем (2018) [MP3]
+The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб/с]<Rock>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522191.jpg" />
+  <img src="Z:/picture/008/save_picture_524121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пафос современности, воспроизведение творческого духа нашей эпохи, острая постановка морально-этических проблем — таковы отличительные черты произведения Александра Чаковского — повести «Год жизни».
-Автор рассказывает о советских людях, мобилизующих все силы для выполнения исторических решений XX и XXI съездов КПСС.
-
-Послушать:Жанр: Советская классическая прозаПродолжительность: 18:29:44
+01.  Excitement (T. Johnston) (4:00)
+02.  Coke can changes (T. Johnston) (3:24)
+03.  Runaround ways (P. Simmons) (2:46)
+04.  Quicksilver princess (T. Johnston) (2:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6C8CCE9B46DD44F317AB4B51CB0DF26A9025B9B
+magnet:?xt=urn:btih:53FDDAD42CD9B4F34ECE7E3A0CF74C04910C6A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +364,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241161   (522190) от 15.08.2018
+###  Публикация: 927617   (524120) от 14.08.2015
 
-Александра Миронова | Подарки госпожи Метелицы (2018) [FB2]
+FileZilla 3.13.0 RC2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524120.jpg" />
+</div>
+
+
+###  Подробнее
+
+FileZilla - программа, предназначенная для загрузки и скачивания файлов с FTP серверов. FileZilla достаточно функциональна: набора ее функций должно хватить как профессионалам, так и простым пользователям. Поддерживаются протоколы: SOCKS4/5, HTTP1.1, SFTP (Secure File Transfer Protocol), SSL, GSS. Разработчики отдельно отмечают тот факт, что программа может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B794E3AAE092C757F661084E6109B18975FFC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927750   (524119) от 14.08.2015
+
+Chet Baker - Chet In Paris: The Complete Barclay Recordings Of Chet Baker (1955-1956) 4CD /1988, EmArcy/ [FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524119.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rondette [02:11]
+02. Mid-Forte [03:09]
+03. Sad Walk [04:15](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 03:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF87294BD0A18F6040E3ACC55A7F9496D0D80E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927683   (524118) от 14.08.2015
+
+Журнал | Вооруженные силы стран мира №101 (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F72F6CA7864A12DDC1FCA211D8D5A86CB30267F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927649   (524117) от 14.08.2015
+
+В теме. Девальвация юаня (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524117.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном выпуске программы "В теме" политолог Борис Блохин рассказывает о причинах девальвации национальной валюты Китая. Почему замедление китайской экономики способно самым серьезным образом изменить положение вещей в мировой экономике?Телекомпания: Москва ДовериеЖанр: Документальный, ТелепередачаПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9C080C2DEAAE283CDB26E699BCF7BCC55598C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927380   (524116) от 14.08.2015
+
+Создан новый электрооптический модулятор, имеющий в 100 раз меньшие размеры, чем другие подобные устройства
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_524116.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время огромные объемы информации передаются на очень высоких скоростях через оптоволоконные кабели в виде импульсов света. Для передачи их в таком виде электрические сигналы, которыми оперируют наши компьютеры и смартфоны, должны быть сначала преобразованы в оптические сигналы. Именно для этой цели и служат устройства, называемые электрооптическими модуляторами. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927788   (524115) от 14.08.2015
+
+The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 кб/с]<Post-Punk/New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Holidays In The Sun (3:32)
+02.  Problems (4:28)
+03.  No Feelings (3:23)
+04.  God Save The Queen (3:13)(   Читать дальше...   )Жанр: Post-Punk/New WaveПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144F82B5ED92FD1FA8B4A826A6FE9DC3F87DBC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927892   (524114) от 14.08.2015
+
+Фрэнк Заппа | Великий Вазу (1972) [FB2]
 
 >>Художественная литература
->>Современная поэзия и проза
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522190.jpg" />
+  <img src="Z:/picture/008/save_picture_524114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В аэропорту Франкфурта пожилой женщине становится плохо. Свидетельницами происшествия оказываются две сестры – успешная Диана и невезучая Лида. Но Диана, боясь опоздать на рейс, убегает, а Лида остается помочь. Спустя какое-то время обеим сестрам приходят посылки. Незнакомка решила наградить их «по справедливости» за те поступки, которые они совершили, и вскоре жизнь (   Читать дальше...   )Жанр: Легкая прозаФормат: FB2
+— Кто такой Великий Вазу?
+— Любой, состоящий в тайных ложах, с дурацкой шляпой на голове. — говорит Фрэнк и добавляет, — С самой здоровенной и дeбильнeйшей шляпой.Жанр: КонтркультураФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1028F32E0E6E559CEF51A1D1947279D436E4CD16
+magnet:?xt=urn:btih:4AB08183964CF3C87340C9984CDE6BD1DD0B93F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,57 +553,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240954   (522189) от 15.08.2018
+###  Публикация: 927782   (524113) от 14.08.2015
 
-Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Symphonic, Epic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Marching Towards The Mountain (4:33)
- 2. The Defeat Of The Drake (3:24)
- 3. The Dwarrowdelf (2:41)
- 4. Rohan Rides To The Battle (3:14)(   Читать дальше...   )Жанр: Medieval Neofolk, Instrumental, Symphonic, EpicПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E8C01FAFBAF2AEB2E77DAF28CC0927C0558C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313942   (522188) от 11.07.2019
-
-Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
+The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3|320 кб/с]<Rock, Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522188.jpg" />
+  <img src="Z:/picture/008/save_picture_524113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wozglas
-02. Dziewiatyj Czas
-03. Wieczernia
-04. Powieczerje(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:14
+01.  You're Gonna Miss Me (2:31)
+02.  Roller Coaster (5:07)
+03.  Splash 1 (Now I'm Home) (3:56)
+04.  Reverberation (Doubt) (2:51)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:11:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4E2A1DEB9095FD6DFCA9D10C388E1C1796D7D2E
+magnet:?xt=urn:btih:0387046A92E8A3FEB98D9B9D111E72085F6F28B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +582,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314002   (522187) от 11.07.2019
+###  Публикация: 927465   (524112) от 14.08.2015
 
-Theatre Of Tragedy - Remixed (2019) [MP3|320 Kbps] <Gothic Metal, Industrial Metal>
+Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepop | Electronic>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522187.jpg" />
+  <img src="Z:/picture/008/save_picture_524112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. And When He Falleth (Das Ich Remix - Remastered)
-02. Black as the Devil Painteth (Das Ich Remix - Remastered)
-03. Lorelei (Icon of Coil Remix - Remastered)
-04. Reverie (Current Remix - Remastered)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:13:17
+01. Relatively Perfect
+02. Kill 'Em All
+03. Self-Immolate
+04. Invincible(   Читать дальше...   )Тип издания: АльбомЖанр: Industrial Rock | Futurepop | ElectronicПродолжительность: 00:44:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99DD2FEE7D417391FF65E9AFE54F56386D2121F0
+magnet:?xt=urn:btih:871841BD86AF85D2E33E5DF02299F354171DE087
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,25 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313826   (522186) от 11.07.2019
+###  Публикация: 927566   (524111) от 14.08.2015
 
-Фёдор Достоевский | Золотые цитаты (2017) [PDF, DJVU, FB2]
+Stray Cats - Les Genies du Rock - Rockabilly Live (1994) [MP3|320 кб/с]<Rockabilly, Psychobilly>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522186.jpg" />
+  <img src="Z:/picture/008/save_picture_524111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Произведения Ф. М. Достоевского давно «разорваны» на цитаты. Мысли писателя навсегда вошли в копилку лучших афоризмов русских классиков. Однако всё чаще, и прежде всего в средствах массовой информации и в Интернете, публикуются «цитаты», приписываемые Фёдору Михайловичу. В данном сборнике предпринята попытка собрать самые яркие и наиболее значимые мысли автора, вложенные (   Читать дальше...   )Жанр: Литературно-художественное изданиеФормат: PDF, DJVU, FB2
+01.  Blast Off (2:58)
+02.  Runaway Boys (3:34)
+03.  Stray Cat Strut (4:36)
+04.  Rockabilly Rules O.K. (3:19)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 01:14:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C1C33548774D36D846D5DBD9B0100DA5E0230C14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,28 +640,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313863   (522185) от 11.07.2019
+###  Публикация: 927800   (524110) от 14.08.2015
 
-Alannah Myles - 6 Albums (1989-2014) [MP3|320 Kbps] <Rock, Pop Rock, Blues Rock>
+Wayne Shorter - Super Nova (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Fusion Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522185.jpg" />
+  <img src="Z:/picture/008/save_picture_524110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аланна Майлз (род. 25 декабря 1958, Торонто) - канадская певица. В 1989 году она выпустила одноимённый альбом. В 1990 сингл «Black Velvet» стал всемирным хитом и принёс ей «Грэмми».Список альбомов:
-1989 - Alannah Myles
-1992 - Rockinghorse
-1995 - A-Lan-Nah(   Читать дальше...   )Жанр: Rock, Pop Rock, Blues RockПродолжительность: 05:00:37
+01. Super Nova [04:53]
+02. Swee-Pea [04:38]
+03. Dindi [09:37]
+04. Water Babies [04:56](   Читать дальше...   )Жанр: Jazz, Post-Bop, Fusion JazzПродолжительность: 00:38:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6BAF1B52B99722BBBA6E0D2D6DCC0F3EC9B53FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,28 +669,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313749   (522184) от 11.07.2019
+###  Публикация: 927605   (524109) от 14.08.2015
 
-VA - Synthwave, Vol. 6 (2019) [MP3|320 Kbps] <Synthwave, Retrowave>
+FileZilla 3.12.0.2 Final + Portable [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522184.jpg" />
+  <img src="Z:/picture/008/save_picture_524109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. September 87 - Bad Dream Baby (5:15)
-02. Le Matos feat. Computer Magic - Cold Summer (3:24)
-03. Jessie Frye feat. Timecop1983 - Faded Memory (4:34)
-04. Magic Dance - When We Were Young (3:51)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:51:20
+FileZilla - программа, предназначенная для загрузки и скачивания файлов с FTP серверов. FileZilla достаточно функциональна: набора ее функций должно хватить как профессионалам, так и простым пользователям. Поддерживаются протоколы: SOCKS4/5, HTTP1.1, SFTP (Secure File Transfer Protocol), SSL, GSS. Разработчики отдельно отмечают тот факт, что программа может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:18721EF5523663311C5A586B3B9E2394DF3E5E55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,83 +695,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313917   (522183) от 11.07.2019
+###  Публикация: 927825   (524108) от 14.08.2015
 
-Arch Enemy - Covered in Blood (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Анатолий Вассерман. Открытым текстом (14.08.2015) SATRip
 
->>
->>
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522183.jpg" />
+  <img src="Z:/picture/008/save_picture_524108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shout (Tears for Fears)
-02. Back to Back (Pretty Maids)
-03. Shadow on the Wall (Mike Oldfield)
-04. Breaking the Law (Judas Priest)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:10:58
+Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:08:12
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313858   (522182) от 11.07.2019
-
-VA - Keep On Dancing: Pop Dance 90s (2019) [MP3|320 Kbps] <Pop, Dance, Eurodance>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. No Mercy - Missing
-002. Earlwood - Take Me Away
-003. Culture Beat - Got To Get It
-004. The Free - Born Crazy(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 10:13:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224985   (522181) от 11.07.2019
-
-Травма / Trauma (2014) WEB-DLRip (сезон 5, серии 1-12 из 12) Кинонота
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в травматологическом отделении частной клиники. Это особый мир — мир трагических происшествий, попыток убийств и неудачных самоубийств. Главная задача врачей — спасти пациенту жизнь любой ценой. И эта цена, порой, бывает очень высока — неустроенная личная жизнь, проблемы в семье, невыносимые отношения с пожилыми родителями. И как (   Читать дальше...   )Производство: Канада | Aetios ProductionЖанр: драмаРежиссер: Франсуа ЖинграАктеры: Изабель Рише, Жильбер Сикотт, Жан-Франсуа Пишетт, Джеймс Хайндмен, Ян Инглэнд, Кристиан Беджин, Паскаль Монпти, Максим Коте, Лоранс Лебёф и др.Перевод: Многоголосый закадровый, профессиональный (Кинонота)Субтитры: ОтсутствуютПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:FBCF7EC6655C48EF45BFDA6491591EEE32D0695F
 ```
 
 https://mybot314.ru/tekegram_catalog/

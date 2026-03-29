@@ -1,3 +1,174 @@
+###  Публикация: 1022707   (727237) от 03.06.2016
+
+Melody Gardot - Live at the Olympia Paris (2015) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление американской джазовой певицы,автора и композитора Мелоди Гардо (Melody Joy Gardot) на сцене L'Olympia Bruno Coquatrix в Париже 26-27.10.2015.1. Don't Misunderstand
+2. Same To You
+3. She Don t Know
+4. Bad News(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: МузыкальныйРежиссер: Thierry VilleneuveАктеры: Melody GardotПеревод: ОтсутствуетПродолжительность: 01:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E63D8CCBB9E998DB488CE71968C9B493B82C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128480   (727069) от 25.04.2017
+
+Джузеппе Верди - Аида / Giuseppe Verdi - Aida (2017) SATRip (2 части) (Teatro alla Scala) [IT / RU Sub]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный немецкий режиссер Петер Штайн предложил зрителям необычную версию одной из самых востребованных в Италии опер. По собственному признанию, Штайн стремился сделать из "Аиды" не привычное публике "яркое шоу", а тонкую психологическую драму."Перед нами классический любовный треугольник: две женщины любят одного мужчину. Все остальное (   Читать дальше...   )Производство: Россия, ГТРК "Культура", Театр Ла СкалаЖанр: Опера, драмаРежиссер: Петер ШтайнАктеры: Анита Рачвелишвили, Георгий Гангадзе, Кристина Льюис, Матти Салминен, Карло КоломбараСубтитры: РусскиеПродолжительность: 2 x ~ 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B318D41C0FF989A71E42E25D24AFDB8EDD74FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530909   (726607) от 13.02.2022
+
+Квартирник у Маргулиса. Максим Леонидов и Hippoband (13.02.2022) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Видение
+00:06:22 7 утра
+00:14:10 Питерские коты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, PopЯзык озвучки: РусскийПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B019A5748427BBF0587D4127C3898A347131AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530937   (726537) от 13.02.2022
+
+Квартирник у Маргулиса. Максим Леонидов и Hippoband (12.02.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Видение
+00:06:22 7 утра
+00:14:10 Питерские коты(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514093B3A3DB069414D531D3D254901812EDFA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284628   (726248) от 23.02.2019
+
+Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Delicate Sound of Thunder - видеофильм Уэйна Ишэма — съёмки концертов группы Pink Floyd, проходивших в рамках тура в поддержку альбома 1987 года A Momentary Lapse of Reason в Нью-Йорке («Nassau Veterans Memorial Coliseum») с 19 по 23 августа 1988 года и на площади перед Версальским дворцом (Place d’Armes, Château de Versailles) во Франции 21 и 22 июня 1988 года. (   Читать дальше...   )01. Shine On You Crazy Diamond (Intro)
+02. Signs Of Life
+03. Learning To Fly
+04. Sorrow(   Читать дальше...   )Производство: США, CBS/SONY Japan, Laserdisc Transfer HQЖанр: rонцерт, прогрессивный рок, арт-рокРежиссер: Уэйн ИшэмАктеры: Дэвид Гилмор, Ник Мейсон, Ричард РайтЯзык: АнглийскийПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFE1F1B25816437455191749D1062452058F179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667889   (725525) от 14.06.2013
+
+100 Gods of Rock (vol.2.) (2005) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audioslave - Your Time Has Come
+02. Him - Wings Of A Butterfly
+03. The Rolling Stones - Streets Of Love
+04. U2 - Sometimes You Can't Make It On Your Own(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 07:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199A65D1E56D3D07F7FD029BF040ED103CD8BA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398397   (724990) от 02.08.2020
 
 Коррозия Металла & Анна Сулла - Навстречу Зла (2014) WEBRip [H.264/1080p-LQ]
@@ -6,7 +177,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724990.jpg" />
+  <img src="Z:/picture/008/save_picture_724990.jpg" />
 </div>
 
 
@@ -33,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724749.jpg" />
+  <img src="Z:/picture/008/save_picture_724749.jpg" />
 </div>
 
 
@@ -59,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724425.jpg" />
+  <img src="Z:/picture/008/save_picture_724425.jpg" />
 </div>
 
 
@@ -88,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724087.jpg" />
+  <img src="Z:/picture/008/save_picture_724087.jpg" />
 </div>
 
 
@@ -114,7 +285,7 @@ Within Temptation - Mother Earth Tour (2002) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723956.jpg" />
+  <img src="Z:/picture/008/save_picture_723956.jpg" />
 </div>
 
 
@@ -140,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723735.jpg" />
+  <img src="Z:/picture/008/save_picture_723735.jpg" />
 </div>
 
 
@@ -168,7 +339,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723528.jpg" />
+  <img src="Z:/picture/008/save_picture_723528.jpg" />
 </div>
 
 
@@ -197,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723467.jpg" />
+  <img src="Z:/picture/008/save_picture_723467.jpg" />
 </div>
 
 
@@ -223,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722675.jpg" />
+  <img src="Z:/picture/008/save_picture_722675.jpg" />
 </div>
 
 
@@ -249,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722602.jpg" />
+  <img src="Z:/picture/008/save_picture_722602.jpg" />
 </div>
 
 
@@ -278,7 +449,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722600.jpg" />
+  <img src="Z:/picture/008/save_picture_722600.jpg" />
 </div>
 
 
@@ -307,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722584.jpg" />
+  <img src="Z:/picture/008/save_picture_722584.jpg" />
 </div>
 
 
@@ -333,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722476.jpg" />
+  <img src="Z:/picture/008/save_picture_722476.jpg" />
 </div>
 
 
@@ -362,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721725.jpg" />
+  <img src="Z:/picture/008/save_picture_721725.jpg" />
 </div>
 
 
@@ -391,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721613.jpg" />
+  <img src="Z:/picture/008/save_picture_721613.jpg" />
 </div>
 
 
@@ -420,7 +591,7 @@ Lisa Stansfield - Live In Birmingham '1990 (1990) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721393.jpg" />
+  <img src="Z:/picture/008/save_picture_721393.jpg" />
 </div>
 
 
@@ -450,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721372.jpg" />
+  <img src="Z:/picture/008/save_picture_721372.jpg" />
 </div>
 
 
@@ -476,7 +647,7 @@ Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721263.jpg" />
+  <img src="Z:/picture/008/save_picture_721263.jpg" />
 </div>
 
 
@@ -506,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721208.jpg" />
+  <img src="Z:/picture/008/save_picture_721208.jpg" />
 </div>
 
 
@@ -535,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720944.jpg" />
+  <img src="Z:/picture/008/save_picture_720944.jpg" />
 </div>
 
 
@@ -546,177 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D689C28DF199CFDE900305CF5428BEF4B81162CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285251   (720705) от 26.02.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
-01. Thunder - She's So Fine
-02. Sebastian Bach - Tunnelvision
-03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529D74141A97B571785F01820837DDD93263774B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531661   (720278) от 16.02.2022
-
-Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720278.jpg" />
-</div>
-
-
-###  Подробнее
-
-«PULSE» — видеоверсия концерта группы Pink Floyd, прошедшего 20 октября 1994-го года в Лондонском Earls Court. Концерт проходил в рамках тура в поддержку альбома The Division Bell. Музыка сопровождалась очень красочным шоу с применением огромного количества прожекторов и лазеров, двух больших надувных свиней, пролетающего над зрителями самолета, демонстрацией видеороликов (   Читать дальше...   )Shine On You Crazy Diamond - 0:10
-Learning to Fly - 13:23
-High Hopes - 19:04
-Take it Back - 27:17(   Читать дальше...   )Производство: Великобритания / Pyro SpectacularЖанр: RockРежиссер: Дэвид МалеСубтитры: ОтсутствуютПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFFDA3C95BC1001A41B6DFB754D7C2EEB0055EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327294   (720260) от 24.04.2011
-
-Музыкальный ринг на НТВ. Выпуск №19. Александр Маршал vs Вопли Видоплясова  (22.04.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DDB6C02C65B54815A184AE5AFEE2BDA1520748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892333   (719196) от 26.04.2015
-
-Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительный концерт первого самостоятельного тура Queen в 1974 году, который группа записала и сняла в том же году и месте. Концерт получил название в честь шоу, которое состоялось в лондонском заведении Rainbow.01. Procession
-02. Now I’m Here
-03. Ogre Battle
-04. Father To Son(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9033EDE478CFF4EEA34BDDEF58FA8F1520B1B910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890414   (719078) от 26.04.2015
-
-Большая Дискотека 80-х полная версия.(Потреково) (2014) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719078.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIII международный музыкальный фестиваль «Авторадио» - «Дискотека 80-х» - стал самым масштабным за всю историю. Тридцать легендарных исполнителей, музыка non-stop, слаженная работа звука и света, совершенно необычный видеоконтент - все это «Большая Дискотека 80-х»! Всеми любимые и неподвластные времени хиты исполнили Thomas Anders,C.C. Catch, Eruption, Silent Circle, (   Читать дальше...   )01. Авторадио представляет...
-02. Eruption - One way ticket
-03. Виктор Салтыков - Белая ночь
-04. Игорь Николаве - Такси, такси(   Читать дальше...   )Жанр: DiscoРежиссер: Герман СадченковАктеры: Eruption, Tomas Anders, Игорь Николав, Village people, Рома Жуков и т. д.Перевод: не требуетсяПродолжительность: 03:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46AC957ADFECD90DE2240E8122F8E02467CA3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669765   (717497) от 18.06.2013
-
-VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717497.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD.1.
-Продолжительность: 01:01:23 
-
-00. Intro(   Читать дальше...   )Жанр: Музыка, Hard RockПродолжительность: 02:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BE91100491833E1E75F5AFF0FA6BD4ECDF5252
 ```
 
 https://mybot314.ru/tekegram_catalog/

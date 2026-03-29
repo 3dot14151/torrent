@@ -1,3 +1,179 @@
+###  Публикация: 1398297   (736195) от 25.07.2020
+
+VA - The Official UK Top 40 Singles Chart 24.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry Feat MNEK - Head & Heart
+02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
+03. DaBaby Feat Roddy Ricch - ROCKSTAR
+04. Lady Gaga Feat Ariana Grande - Rain On Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D96B8C60F5F429FF86D5A3C97C20F0FABB412E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398235   (736184) от 25.07.2020
+
+VA - Music News vol.29 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736184.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daasha - Истерики (02:12)
+ 002. Mia Martina feat. 19 Mafia - Day Dreams (03:42)
+ 003. Mick Mazoo - I Say Sun (02:29)
+ 004. Mike Singer - 100Tausend (02:50)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85414F6A2364AEAB404DC6FBE99A1B2041F6BD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398204   (736161) от 25.07.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 24.07.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights (3:21)
+02. NRD1 - All Good Things (Come To An End) (3:27)
+03. Pascal Letoublon - Friendships (4:01)
+04. Мари Краймбрери - Пряталась в ванной (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C8504F070DDE73A29765DF411DAC19562C6F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398233   (736151) от 25.07.2020
+
+VA - Music News vol.28 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736151.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MONATIK & Вера Брежнева - ВЕЧЕРиНОЧКА (Shnaps & Kolya Funk Remix) (02:36)
+ 002. 2VINA - Манекен (02:22)
+ 003. Abik - Недоступная (02:49)
+ 004. Ahmed Shad feat. Rhalli - Малая (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6492D4C2E291C1E6AB64A7CA518132629925701A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787916   (735651) от 19.05.2014
+
+VA - The Official UK Top 40 Singles Chart (18-05-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_735651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+В нынешнем чате 8 новых исполнителей, в том числе жено-дядька Conchita Wurst. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Rita Ora - I Will Never Let You Down  (3:23)
+02. Mr. Probz - Waves  (3:28)
+03. John Legend - All Of Me  (4:30)
+04. Calvin Harris - Summer  (3:45)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F362C64EFA3B5F87AA96C5714E5091B16E928EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397796   (735550) от 26.07.2020
+
+VA - не Громкие новинки недели 75 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_735550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2VINA - Манекен (2:21)
+02. Ahmed Shad feat. Rhalli - Малая (2:42)
+03. Alina Goman - Лететь (2:49)
+04. Anet Fadeeva - Сладкий Мальчик (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA45451157A9944896F4E164A38B1B60E2C04E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528087   (735279) от 31.01.2022
 
 VA - Свежаки Зимы Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +182,7 @@ VA - Свежаки Зимы Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735279.jpg" />
+  <img src="Z:/picture/008/save_picture_735279.jpg" />
 </div>
 
 
@@ -35,7 +211,7 @@ VA - 100 Greatest Driving Songs (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734651.jpg" />
+  <img src="Z:/picture/008/save_picture_734651.jpg" />
 </div>
 
 
@@ -64,7 +240,7 @@ VA - 100 Greatest Songs Of The 90s (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734557.jpg" />
+  <img src="Z:/picture/008/save_picture_734557.jpg" />
 </div>
 
 
@@ -93,7 +269,7 @@ VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734449.jpg" />
+  <img src="Z:/picture/008/save_picture_734449.jpg" />
 </div>
 
 
@@ -122,7 +298,7 @@ VA - Tik Tok Треки выстрелили зимой 2022 [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734414.jpg" />
+  <img src="Z:/picture/008/save_picture_734414.jpg" />
 </div>
 
 
@@ -151,7 +327,7 @@ VA - Music News vol.30 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734270.jpg" />
+  <img src="Z:/picture/008/save_picture_734270.jpg" />
 </div>
 
 
@@ -180,7 +356,7 @@ VA - Love me as I love you (playlist for sex)(2020) 2CD [MP3|320 Kbps] <Easy Lis
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734229.jpg" />
+  <img src="Z:/picture/008/save_picture_734229.jpg" />
 </div>
 
 
@@ -207,7 +383,7 @@ VA - Country And Rock Blues Folk Songs (2022) [MP3|320 Kbps] <Country, Folk, Blu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733531.jpg" />
+  <img src="Z:/picture/008/save_picture_733531.jpg" />
 </div>
 
 
@@ -236,7 +412,7 @@ VA - не Громкие новинки недели 76 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733425.jpg" />
+  <img src="Z:/picture/005/save_picture_733425.jpg" />
 </div>
 
 
@@ -265,7 +441,7 @@ VA - Music News vol.164 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733092.jpg" />
+  <img src="Z:/picture/008/save_picture_733092.jpg" />
 </div>
 
 
@@ -294,7 +470,7 @@ VA - ЕвроХит Топ 40 Europa Plus 31.07.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732913.jpg" />
+  <img src="Z:/picture/008/save_picture_732913.jpg" />
 </div>
 
 
@@ -323,7 +499,7 @@ VA - Стёбный Кавер! (Забавные Кавер-Версии и П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732293.jpg" />
+  <img src="Z:/picture/008/save_picture_732293.jpg" />
 </div>
 
 
@@ -352,7 +528,7 @@ VA - Mega Dance Summer (2016) [MP3|320 кб/с] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731993.jpg" />
+  <img src="Z:/picture/008/save_picture_731993.jpg" />
 </div>
 
 
@@ -381,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731909.jpg" />
+  <img src="Z:/picture/008/save_picture_731909.jpg" />
 </div>
 
 
@@ -410,7 +586,7 @@ VA - Дискотека 2017 Dance Club Vol. 163 от NNNB (2017) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731347.jpg" />
+  <img src="Z:/picture/008/save_picture_731347.jpg" />
 </div>
 
 
@@ -439,7 +615,7 @@ VA - Стёбный Кавер! (Забавные Кавер-Версии и П�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731264.jpg" />
+  <img src="Z:/picture/008/save_picture_731264.jpg" />
 </div>
 
 
@@ -468,7 +644,7 @@ VA - New Music Releases Week 7 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731002.jpg" />
+  <img src="Z:/picture/008/save_picture_731002.jpg" />
 </div>
 
 
@@ -497,7 +673,7 @@ VA - Folk Collection (2017) [MP3|320 Kbps] <Folk Rock, Country, World>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730948.jpg" />
+  <img src="Z:/picture/008/save_picture_730948.jpg" />
 </div>
 
 
@@ -526,7 +702,7 @@ VA - Passion Dance Hit 90s (2016) [MP3|314-320 кб/с] <Electronic, Dance, Lati
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730945.jpg" />
+  <img src="Z:/picture/008/save_picture_730945.jpg" />
 </div>
 
 
@@ -555,7 +731,7 @@ VA - Italo Disco Hits Vol.13 (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730850.jpg" />
+  <img src="Z:/picture/008/save_picture_730850.jpg" />
 </div>
 
 
@@ -569,180 +745,6 @@ VA - Italo Disco Hits Vol.13 (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CBE446E6C2ADBBCE684032D63C1E472BD65F665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284218   (730052) от 20.02.2019
-
-VA - Beach Dance Classic Radio (2019) [MP3|320 Kbps] <Progressive, Deep, Techno House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730052.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Annibale Notaris - Hazy Bar Kal
-002. Emkii - Sunset Lover (Original Mix)
-003. Tim Dian - Hey (Original Mix)
-004. Charlie Cat - Funky Fuck(   Читать дальше...   )Жанр: Progressive, Deep, Techno HouseПродолжительность: 09:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FAF81F4BD6D03BE5F0A76697AE8F63922EDB3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127915   (729969) от 23.04.2017
-
-VA - Chillout Hits Vol.7 (2017) [MP3|320 Kbps] <Chillout, Chillstep, Balearic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vladimir Sterzer - Chill Out Piano  4:46
-02.  Dreamweavers - Lovers Dub (Re-Mastered)  7:00
-03.  Marga Sol - Since You Are Gone  4:40
-04.  Jex - You (Original Mix)  3:46(   Читать дальше...   )Жанр: Chillout, Chillstep, BalearicПродолжительность: 06:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26B904CA2854D44B4E019CA380ADA44F2CD9B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021961   (729874) от 01.06.2016
-
-VA - Килобитный взрыв хитов - 6 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Шатунова - Мечты Сбываются
-002. Anna Lidman - Quiet
-003. Марк Тишман - Пьяные Счастливые
-004. Tut Tut Child Feat. Holly Drummond - Fell Down(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5337627C0F73AD0C6D4130C872754A81788D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022054   (729872) от 01.06.2016
-
-VA - Летний Музыкайф (2016) [MP3|256 кб/с] <Pop, Dance, Rap
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yanix & Alexone - Опаснее Кобры
-02. Даша Столбова - Тату На Сердце
-03. Grimes - Flesh Without Blood
-04. Полина Смолова - Где-То Там(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874B5EE6972D8FA2BB94ADF85CE62713D33DEEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022215   (729768) от 01.06.2016
-
-VA - American Pop Rock Classics (2016) [MP3|320 кб/с] <Pop Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Sittin' On) The Dock Of The Bay - Otis Redding
-02. Go Your Own Way - Fleetwood Mac
-03. La Grange - ZZ Top
-04. For What It's Worth - Buffalo Springfield(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8160E1B147F2080A1F7874904F1575E77FC5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022020   (729757) от 01.06.2016
-
-VA - Дискотека бездна удовольствий 6 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729757.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Quest Pistols - Непохожие
-002. Dj Antonio Feat. Natasha Grineva - Last Kiss
-003. Faktor 2 - Над Москвой Гроза
-004. Dushia & Bel-Mondo - Change Me(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDD4727EE3B28FF5B8C4B5CBE32881675AE24A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

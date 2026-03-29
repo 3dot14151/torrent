@@ -6,7 +6,7 @@ Lethal Injektion - Remember Chester Bennington (2018) [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523654.jpg" />
+  <img src="Z:/picture/008/save_picture_523654.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Power Tale - Огненный бог марранов (2019) [MP3|320 Kbps] <М�
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523652.jpg" />
+  <img src="Z:/picture/008/save_picture_523652.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alda - Passage (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522576.jpg" />
+  <img src="Z:/picture/008/save_picture_522576.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522188.jpg" />
+  <img src="Z:/picture/008/save_picture_522188.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Theatre Of Tragedy - Remixed (2019) [MP3|320 Kbps] <Gothic Metal, Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522187.jpg" />
+  <img src="Z:/picture/008/save_picture_522187.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Final Light (Perturbator X Johannes Persson) - Final Light (2022) [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521957.jpg" />
+  <img src="Z:/picture/008/save_picture_521957.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521791.jpg" />
+  <img src="Z:/picture/008/save_picture_521791.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521779.jpg" />
+  <img src="Z:/picture/008/save_picture_521779.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Doro - Forever Warriors // Forever United (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521060.jpg" />
+  <img src="Z:/picture/008/save_picture_521060.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ In This Moment - Blood (2012) [MP3|320 кб/с]<Melodic Metalcore, Female Vocal 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521044.jpg" />
+  <img src="Z:/picture/008/save_picture_521044.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ad Patres - Scorn Aesthetics (2012) [MP3|192 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519400.jpg" />
+  <img src="Z:/picture/008/save_picture_519400.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Parasite Inc. - Dead And Alive (2018) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519075.jpg" />
+  <img src="Z:/picture/008/save_picture_519075.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Murder of My Sweet - Beth Out of Hell (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518492.jpg" />
+  <img src="Z:/picture/008/save_picture_518492.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Wolfheart - Shadow World (2015) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518487.jpg" />
+  <img src="Z:/picture/008/save_picture_518487.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Myrkur - M (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518477.jpg" />
+  <img src="Z:/picture/008/save_picture_518477.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Bongbongbeerwizards - Ampire (2022) [MP3|320 Kbps] <Drone, Doom, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517895.jpg" />
+  <img src="Z:/picture/008/save_picture_517895.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Lodestar - 2 Albums (2021-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517805.jpg" />
+  <img src="Z:/picture/008/save_picture_517805.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Conjurer - Páthos (2022) [MP3|320 Kbps] <Sludge, Doom Metal, Post-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517800.jpg" />
+  <img src="Z:/picture/008/save_picture_517800.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Khamyel - Loser With A Crown (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517798.jpg" />
+  <img src="Z:/picture/008/save_picture_517798.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Horizon Ignited - Towards The Dying Lands (2022) [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517795.jpg" />
+  <img src="Z:/picture/008/save_picture_517795.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Metallica - Rock in Vienna at Donauinsel Wien (2015) [MP3|320 кб/с]<Rock, Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516133.jpg" />
+  <img src="Z:/picture/008/save_picture_516133.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Bullet For My Valentine - Venom (2015) Best Buy Special Deluxe Edition [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516000.jpg" />
+  <img src="Z:/picture/008/save_picture_516000.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Eluveitie - The Early Years (2012) Compilation [MP3|320 кб/с]< Folk, Melodic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515678.jpg" />
+  <img src="Z:/picture/008/save_picture_515678.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Shah - Fire And Brimstone Collection (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515591.jpg" />
+  <img src="Z:/picture/008/save_picture_515591.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Ghost - Meliora (2015) Best Buy Exclusive [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515219.jpg" />
+  <img src="Z:/picture/008/save_picture_515219.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Sabaton - The Great War (2019) 3CD, Limited Edition [MP3|320 Kbps] <Power Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514776.jpg" />
+  <img src="Z:/picture/008/save_picture_514776.jpg" />
 </div>
 
 

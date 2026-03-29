@@ -6,7 +6,7 @@ Keymou 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302624.jpg" />
+  <img src="Z:/picture/008/save_picture_302624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DiskWarrior 4.2 Rev909 BootDVD (Alsoft)[English] (2009)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301881.jpg" />
+  <img src="Z:/picture/008/save_picture_301881.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CCleaner Pro 1.15.507 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300890.jpg" />
+  <img src="Z:/picture/008/save_picture_300890.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FoxTrot Professional Search 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300154.jpg" />
+  <img src="Z:/picture/008/save_picture_300154.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Cisdem WindowManager 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298954.jpg" />
+  <img src="Z:/picture/008/save_picture_298954.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Split Screen 3.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298887.jpg" />
+  <img src="Z:/picture/008/save_picture_298887.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dr. Cleaner Pro 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298617.jpg" />
+  <img src="Z:/picture/008/save_picture_298617.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ShredIt X 6.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297022.jpg" />
+  <img src="Z:/picture/008/save_picture_297022.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ iExplorer 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296795.jpg" />
+  <img src="Z:/picture/008/save_picture_296795.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Motion Weather 4K - Ultra HD 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295810.jpg" />
+  <img src="Z:/picture/008/save_picture_295810.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Paragon ExtFS for Mac 11.3.27 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294674.jpg" />
+  <img src="Z:/picture/008/save_picture_294674.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Roxio Toast Titanium 17 v17.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293327.jpg" />
+  <img src="Z:/picture/008/save_picture_293327.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dr. Antivirus Pro 3.2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291663.jpg" />
+  <img src="Z:/picture/008/save_picture_291663.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ NetSpot Wi-Fi Reporter 2.1.475 (473)  [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291599.jpg" />
+  <img src="Z:/picture/008/save_picture_291599.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Grabber : Screenshot Master 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288386.jpg" />
+  <img src="Z:/picture/008/save_picture_288386.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Espionage 3.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288016.jpg" />
+  <img src="Z:/picture/008/save_picture_288016.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ AudioSwitcher 2.99.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287881.jpg" />
+  <img src="Z:/picture/008/save_picture_287881.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Coolmuster Android Assistant 3.0.189 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287831.jpg" />
+  <img src="Z:/picture/008/save_picture_287831.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Digital Clock 3D 1.1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287829.jpg" />
+  <img src="Z:/picture/008/save_picture_287829.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Temp Monitor 1.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286446.jpg" />
+  <img src="Z:/picture/008/save_picture_286446.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dropshelf 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286230.jpg" />
+  <img src="Z:/picture/008/save_picture_286230.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Nimble Commander 1.2.2 (2450) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284230.jpg" />
+  <img src="Z:/picture/008/save_picture_284230.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ CrossOver 15.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283286.jpg" />
+  <img src="Z:/picture/008/save_picture_283286.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Copied 2.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280448.jpg" />
+  <img src="Z:/picture/008/save_picture_280448.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Barsoom 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279012.jpg" />
+  <img src="Z:/picture/008/save_picture_279012.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Lingon X 5.2.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277286.jpg" />
+  <img src="Z:/picture/008/save_picture_277286.jpg" />
 </div>
 
 

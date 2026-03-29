@@ -1,3 +1,90 @@
+###  Публикация: 1609757   (244751) от 04.02.2023
+
+Pantheon - Empire In Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244751.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Head on a Stick 04:58
+2. Man-Infestation 04:40
+3. Penetration of Maggots 04:19
+4. Absence of Light 04:55(   Читать дальше...   )Жанр: Black, Death, Thrash MetalПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F9FBCC194B2DB68261E5C4AF0CADD622822908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452122   (244748) от 05.03.2021
+
+Disturbed - The Lost Children (2011) Compilation [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell (4:15)
+02. A Welcome Burden (3:32)
+03. This Moment (3:06)
+04. Old Friend (3:35)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C963F1FAA03B37A5DD53ABE1AA4A0AED158EF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609698   (244745) от 04.02.2023
+
+Sanguisugabogg - Homicidal Ecstasy (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Market Vasectomy [00:02:56]
+02. Face Ripped Off (feat. Aaron Heard) [00:02:53]
+03. Pissed [00:03:18]
+04. Testicular Rot [00:04:24](   Читать дальше...   )Жанр: Death Metal, Brutal DeathПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CBD9D05BF77F1981046B0D0D2E9E128EEFB672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609707   (244715) от 04.02.2023
 
 Clouds Taste Satanic - 2 Albums (2021-2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -6,7 +93,7 @@ Clouds Taste Satanic - 2 Albums (2021-2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244715.jpg" />
+  <img src="Z:/picture/004/save_picture_244715.jpg" />
 </div>
 
 
@@ -33,7 +120,7 @@ Deconstruct - Ashen Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244686.jpg" />
+  <img src="Z:/picture/004/save_picture_244686.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ In-Quest - Epileptic (2004) [FLAC|Lossless|image + .cue] <Progressive Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244677.jpg" />
+  <img src="Z:/picture/004/save_picture_244677.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ Depleted - Failing (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244663.jpg" />
+  <img src="Z:/picture/004/save_picture_244663.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ Jason - Justiciero Arcaico (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244630.jpg" />
+  <img src="Z:/picture/004/save_picture_244630.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Mortuary Drape - Necromantic Doom Returns (2018) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244613.jpg" />
+  <img src="Z:/picture/004/save_picture_244613.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Gravecarver - Spectral Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244607.jpg" />
+  <img src="Z:/picture/004/save_picture_244607.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Last Union - Twelve (2019) Japan [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244597.jpg" />
+  <img src="Z:/picture/004/save_picture_244597.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Legion Of The Damned - The Poison Chalice (2023) EP [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244594.jpg" />
+  <img src="Z:/picture/004/save_picture_244594.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Nausea - World Struggle: Demos '88-'92 (2013) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244583.jpg" />
+  <img src="Z:/picture/004/save_picture_244583.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Baest - Necro Sapiens (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244577.jpg" />
+  <img src="Z:/picture/004/save_picture_244577.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Lord Belial - Kiss the Goat (1994) [WavPack|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244558.jpg" />
+  <img src="Z:/picture/004/save_picture_244558.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Diaspora - Pendulum (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244557.jpg" />
+  <img src="Z:/picture/004/save_picture_244557.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Screw - Angel Seed XXIII (1997) [APE|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244534.jpg" />
+  <img src="Z:/picture/004/save_picture_244534.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Jon Oliva's Pain - 'Tage Mahal (2004) Japan [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244521.jpg" />
+  <img src="Z:/picture/004/save_picture_244521.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Witch Piss - Witch Piss (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Slud
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244468.jpg" />
+  <img src="Z:/picture/004/save_picture_244468.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ XIV Dark Centuries - ...Den Ahnen Zum Grusse... (2003) [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244446.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ The Bronx Casket Co. - Hellectric (2005) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244437.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Teramaze - I Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244433.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Upsidedown Cross - 2 Albums (1991-1993) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244427.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Lethvm - Winterreise (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244426.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Celestial Shadows - The Tragedy of Calufrax (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244420.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244408.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B811DE2AFDCFEE260CB8FC74BE672C0DD5F3B016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532168   (244405) от 19.02.2022
-
-Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction To Milk Production
-02. Liars To Impale
-03. Legality Parts From Morality
-04. S.O.S(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A2E1BA9126F722D0AB273A38149A10082EC68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610225   (244404) от 07.02.2023
-
-Cadaver Shrine - Benighted Desecration (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Reverberation (04:45)
-02. And Death Crawls (04:42)
-03. Dragged Away (05:04)
-04. The Black Door (04:54)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E13165BBF4502119999AD27D7547C6653071FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532153   (244396) от 19.02.2022
-
-Nightrage - Abyss Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss Rising
-02. Swallow Me
-03. Nauseating Oblivion
-04. Dance Of Cerberus(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABE61E2D6017DA6982EB77E55AE310957A60D85
 ```
 
 https://mybot314.ru/tekegram_catalog/

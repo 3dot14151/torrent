@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862044   (1063068) от 
+
+Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бросьте вызов неизведанному, узнайте правду и спасите целый город. После того как по вине зловещего оккультиста население Токио исчезло без следа, город оказался во власти смертоносных потусторонних сил. Объедините силы с могучим потусторонним существом, которым движет жажда возмездия, овладейте целым арсеналом удивительных способностей, раскройте тайну исчезновения (   Читать дальше...   )Тип издания: RepackРазработчик: Tango GameworksЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C522B448718566C04C3FCABF818B07B8A5295898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860941   (1062274) от 
+
+BioShock Remastered (2016) [Ru] (Build 8552765) Repack seleZen
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062274.jpg" />
+</div>
+
+
+###  Подробнее
+
+BioShock - это приключенческий шутер от первого лица от создателей культового System Shock. События игры разворачиваются в середине двадцатого века, когда самолет главного героя внезапно терпит крушение над океаном. Главному герою удается выжить и заметить загадочный маяк, который стал его спасением.Тип издания: RepackРазработчик: 2K Marin, 2K China, Digital Extremes, 2K Australia, Blind SquirrelЖанр: Шутеры от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3D7C57147A3D83C52CF3116B8E6DFEAF891DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860945   (1062257) от 
+
+BioShock (2007) [Ru] (Build 11242) Repack seleZen
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062257.jpg" />
+</div>
+
+
+###  Подробнее
+
+События долгожданного новаторского «умного шутера» разворачиваются в Восторге - подводном городе будущего, где в конце 1940-х годов будто бы поселились люди, открывшие чудо-вещество. Принимая даже его небольшие дозы, средний человек проходил серию стремительных мутаций и буквально на глазах становился быстрее, сильнее, умнее.Тип издания: RepackРазработчик: 2K Boston, 2K Australia, Feral InteractiveЖанр: ШутерыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8C4C576D298471DBDE2DC82471B1EEEC435109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859768   (1061477) от 
 
 DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack HardwareMining [Premium Edition]
@@ -7,7 +85,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack HardwareMining
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061477.jpg" />
+  <img src="Z:/picture/005/save_picture_1061477.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061047.jpg" />
+  <img src="Z:/picture/005/save_picture_1061047.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ BioShock 2 (2010) [Ru] (Build 789537) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061021.jpg" />
+  <img src="Z:/picture/005/save_picture_1061021.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061020.jpg" />
+  <img src="Z:/picture/005/save_picture_1061020.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (20760608/dlc) Repack Wanterlude [Premium 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060939.jpg" />
+  <img src="Z:/picture/005/save_picture_1060939.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Premium E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060931.jpg" />
+  <img src="Z:/picture/005/save_picture_1060931.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060918.jpg" />
+  <img src="Z:/picture/005/save_picture_1060918.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Ready or Not (2023) [Ru/Multi] (112610/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060796.jpg" />
+  <img src="Z:/picture/005/save_picture_1060796.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (3.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060437.jpg" />
+  <img src="Z:/picture/009/save_picture_1060437.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.8.39/dlc) Repack W
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060436.jpg" />
+  <img src="Z:/picture/009/save_picture_1060436.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Thief (2014) [Ru/Multi] (1.7/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060433.jpg" />
+  <img src="Z:/picture/009/save_picture_1060433.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060431.jpg" />
+  <img src="Z:/picture/009/save_picture_1060431.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060429.jpg" />
+  <img src="Z:/picture/009/save_picture_1060429.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack FitGirl [VR, NoVR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059297.jpg" />
+  <img src="Z:/picture/005/save_picture_1059297.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ BioShock Infinite (2013) [Ru] (1.0.1643565/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059265.jpg" />
+  <img src="Z:/picture/005/save_picture_1059265.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ BioShock 2 Remastered (2016) [Ru] (Build 8552776) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059231.jpg" />
+  <img src="Z:/picture/005/save_picture_1059231.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Far Cry (2004) [Ru] (1.4) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058683.jpg" />
+  <img src="Z:/picture/005/save_picture_1058683.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Voidtrain (2023) [Ru/Multi] (1.05/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057952.jpg" />
+  <img src="Z:/picture/005/save_picture_1057952.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057674.jpg" />
+  <img src="Z:/picture/005/save_picture_1057674.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 11026049/dlc) Repack Wanterl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057473.jpg" />
+  <img src="Z:/picture/005/save_picture_1057473.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (1.0.3.0.01.020.001/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056598.jpg" />
+  <img src="Z:/picture/005/save_picture_1056598.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack HardwareMining [Go
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055969.jpg" />
+  <img src="Z:/picture/005/save_picture_1055969.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack Other s [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055832.jpg" />
+  <img src="Z:/picture/005/save_picture_1055832.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Resident Evil Village продолжает приключения Итана и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985D4E1784953EAF8C7D328390E7C5E9FF26CB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852074   (1055672) от 06.02.2026
-
-Gunfire Reborn (2021) [Ru/Multi] (21791900/dlc) Repack Necros
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gunfire Reborn - это приключенческая многоуровневая игра с элементами ролевой игры (RPG), Roguelite и шутера от первого лица (FPS). Игроки могут управлять героями, которые обладают различными способностями, чтобы исследовать разнообразный геймплей. На каждом уровне игроки получают случайный опыт. Этот опыт будет совершенно другим каждый раз, когда вы начнете игру (   Читать дальше...   )Тип издания: RepackРазработчик: Duoyi GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516F88F773F4DA27C57A8BA998B1A8B9857385A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851912   (1055563) от 04.02.2026
-
-Resident Evil Village (2021) [Ru/Multi] (Build 21519280/dlc) Repack Wanterlude [Gold Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil Village продолжает приключения Итана из семерки. Спрятанная в названии на постерах римская цифра намекает, что это не ответвление, а восьмая часть серии. В основной линейке это уже десятый по счету проект. Уинтерс смог сбежать из особняка каннибалов и спасти супругу Мию. Они убрались из американской глубинки и решили жить обычной жизнью. Однако через (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action, 3D, FPSЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04267DFB1C5BD256A752192CC39CD2886D17A3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852039   (1055491) от 05.02.2026
-
-Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack seleZen [Gold Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil Village продолжает приключения Итана из семерки. Спрятанная в названии на постерах римская цифра намекает, что это не ответвление, а восьмая часть серии. В основной линейке это уже десятый по счету проект. Уинтерс смог сбежать из особняка каннибалов и спасти супругу Мию. Они убрались из американской глубинки и решили жить обычной жизнью. Однако через (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4830A4E1FEEF5ED6B7BB8F36D8C084F849339C
 ```
 
 https://mybot314.ru/tekegram_catalog/

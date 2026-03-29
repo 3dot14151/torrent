@@ -1,3 +1,55 @@
+###  Публикация: 1562325   (511531) от 08.07.2022
+
+Рои Хен | Души (2021) [MP3, Анна Каменкова, Григорий Перель]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_511531.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я – лгун и пустозвон», с первых слов представляется вам рассказчик в романе «Души» израильского писателя Рои Хена. Но никто не может, утверждает он, рассказать про собственное детство – и не соврать. Как говорили во времена его детства: «Пусть будет ложь, но чтоб она сияла!» И через это сияние, сияние изысканных, изобретательных историй, душа рассказчика Гриши говорит (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Сергей ГойзманПродолжительность: 12:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB3DD8188DED2ED46AC0873AF834CBA5F360650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562339   (511494) от 08.07.2022
+
+Марк Леви | Между небом и землёй (2017) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_511494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня Марк Леви – один из самых популярных французских писателей, его книги переведены более чем на 40 языков и расходятся огромными тиражами. Первый же его роман "Между небом и землёй" поразил необычайным сюжетом. Однажды поздним вечером в квартире одинокого архитектора появляется красивая незнакомая девушка, которая оказывается… привидением, и только (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Римма ГенкинаПродолжительность: 05:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829DCA2EDAA4E0CA56B2B62B840EDF6DE5DCE72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315854   (510985) от 22.07.2019
 
 Алина Знаменская | Рябиновый мёд. Августина (2019) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510985.jpg" />
+  <img src="Z:/picture/008/save_picture_510985.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510932.jpg" />
+  <img src="Z:/picture/008/save_picture_510932.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510782.jpg" />
+  <img src="Z:/picture/008/save_picture_510782.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510767.jpg" />
+  <img src="Z:/picture/008/save_picture_510767.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509288.jpg" />
+  <img src="Z:/picture/008/save_picture_509288.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509118.jpg" />
+  <img src="Z:/picture/008/save_picture_509118.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508792.jpg" />
+  <img src="Z:/picture/008/save_picture_508792.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507906.jpg" />
+  <img src="Z:/picture/008/save_picture_507906.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507759.jpg" />
+  <img src="Z:/picture/008/save_picture_507759.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505389.jpg" />
+  <img src="Z:/picture/008/save_picture_505389.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505127.jpg" />
+  <img src="Z:/picture/008/save_picture_505127.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504471.jpg" />
+  <img src="Z:/picture/008/save_picture_504471.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504227.jpg" />
+  <img src="Z:/picture/008/save_picture_504227.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504222.jpg" />
+  <img src="Z:/picture/008/save_picture_504222.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503480.jpg" />
+  <img src="Z:/picture/008/save_picture_503480.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502395.jpg" />
+  <img src="Z:/picture/008/save_picture_502395.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501245.jpg" />
+  <img src="Z:/picture/008/save_picture_501245.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499405.jpg" />
+  <img src="Z:/picture/008/save_picture_499405.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499347.jpg" />
+  <img src="Z:/picture/008/save_picture_499347.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498617.jpg" />
+  <img src="Z:/picture/008/save_picture_498617.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497808.jpg" />
+  <img src="Z:/picture/008/save_picture_497808.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497806.jpg" />
+  <img src="Z:/picture/008/save_picture_497806.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496103.jpg" />
+  <img src="Z:/picture/008/save_picture_496103.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494914.jpg" />
+  <img src="Z:/picture/008/save_picture_494914.jpg" />
 </div>
 
 
@@ -630,62 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F26D583F6DD3AB43CE5162479022CFF187E063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318439   (494694) от 06.08.2019
-
-Дуглас Коупленд | Рабы Microsoft (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494694.jpg" />
-</div>
-
-
-###  Подробнее
-
-"""Компьютерные"" мальчики и девочки. Зануды-""яппи"", внезапно решившие покинуть безопасность ""родной корпорации"" и стать свободными.
-Но... что такое свобода?
-Есть ли она вообще?
-Есть ли она для ""рабов ""Майкрософта""?(   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4EDF5F8CC55D09FA81CE7AB5EF1072D797A61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935919   (494381) от 12.09.2015
-
-Вацлав Михальский | Храм согласия (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в русской литературе па страницах романа-эпопеи Вацлава Михальского «Весна и Карфагене» встретились Москва и Карфаген – Россия и Тунис, русские, арабы, французы. Они соединились в судьбах главных героинь романа Марии и Александры, дочерей адмирала Российского Императорского флота.
-"Храм Согласия, вероятно, возвышался на одном из холмов Карфагена, рядом (   Читать дальше...   )Жанр: РоманПродолжительность: 08:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14845E54471ECA39CE4FA23E4BF383611B85AF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

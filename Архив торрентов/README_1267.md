@@ -6,7 +6,7 @@ NetLimiter Pro 4.0.67.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768872.jpg" />
+  <img src="Z:/picture/008/save_picture_768872.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Device Info HW+ 4.26.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768855.jpg" />
+  <img src="Z:/picture/008/save_picture_768855.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768852.jpg" />
+  <img src="Z:/picture/008/save_picture_768852.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Twixl Publisher 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768816.jpg" />
+  <img src="Z:/picture/008/save_picture_768816.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Tomates - Time Management 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768813.jpg" />
+  <img src="Z:/picture/008/save_picture_768813.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Katy Hurt - Pieces Of Me (2017) [FLAC|Lossless|tracks] <Country, Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768809.jpg" />
+  <img src="Z:/picture/008/save_picture_768809.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768805.jpg" />
+  <img src="Z:/picture/008/save_picture_768805.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768802.jpg" />
+  <img src="Z:/picture/008/save_picture_768802.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Wondershare PDFelement 6 Pro 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768801.jpg" />
+  <img src="Z:/picture/008/save_picture_768801.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Divinyls - Temperamental (1988) [WavPack|192/24|image +.cue|Vinyl-Rip] <Pop Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768800.jpg" />
+  <img src="Z:/picture/008/save_picture_768800.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Microsoft Office Professional 2003 SP3 (2018.03) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768798.jpg" />
+  <img src="Z:/picture/008/save_picture_768798.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ R-Studio 8.5 Build 170237 Network Edition RePack (& Portable) by TryRooM  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768795.jpg" />
+  <img src="Z:/picture/008/save_picture_768795.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768790.jpg" />
+  <img src="Z:/picture/008/save_picture_768790.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6785.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768787.jpg" />
+  <img src="Z:/picture/008/save_picture_768787.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7194.5000 (2018.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768785.jpg" />
+  <img src="Z:/picture/008/save_picture_768785.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Microsoft Office 2007 SP3 Standard 12.0.6785.5000 (2018.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768784.jpg" />
+  <img src="Z:/picture/008/save_picture_768784.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Microsoft Office 2013 SP1 Standard 15.0.5015.1000 (2018.03) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768757.jpg" />
+  <img src="Z:/picture/008/save_picture_768757.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Soft Organizer 6.07 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768756.jpg" />
+  <img src="Z:/picture/008/save_picture_768756.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Display Driver Uninstaller 17.0.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768752.jpg" />
+  <img src="Z:/picture/008/save_picture_768752.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ GPU-Z 1.19.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768750.jpg" />
+  <img src="Z:/picture/008/save_picture_768750.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768744.jpg" />
+  <img src="Z:/picture/008/save_picture_768744.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768743.jpg" />
+  <img src="Z:/picture/008/save_picture_768743.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ De La Soul - And The Anonymous Nobody (2016) [FLAC|Lossless|tracks + .cue] <Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768740.jpg" />
+  <img src="Z:/picture/008/save_picture_768740.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Scanitto Pro 3.16.1 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768722.jpg" />
+  <img src="Z:/picture/008/save_picture_768722.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Internet Download Manager 6.28 Build 6 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768716.jpg" />
+  <img src="Z:/picture/008/save_picture_768716.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768692.jpg" />
+  <img src="Z:/picture/008/save_picture_768692.jpg" />
 </div>
 
 

@@ -1,3 +1,166 @@
+###  Публикация: 1599888   (159292) от 25.12.2022
+
+Квартирник у Маргулиса. Группа 7Б (24.12.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт рок-группы «7Б» на «Квартирнике». Официальным днем рождения коллектива считается 8 марта 2001 года. Дебютный альбом «Молодые ветра» мгновенно покорил множество музыкальных хит-парадов, практически все песни стали хитами, а композиция с одноименным названием стала своеобразной визитной карточкой группы. В гостях у Евгения Маргулиса участники группы (   Читать дальше...   )00:00:06  Я пришел, чтобы петь
+00:05:00  Осень
+00:12:08  Эльдорадо
+00:20:19  Владивосход(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676282   (158926) от 12.11.2023
+
+Елена Север. «Услышь меня» (2023) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт Елены Север. Это первый сольный концерт певицы, к которому она шла много лет, и одновременно удивительное шоу: сцена и весь зрительный зал с помощью мэппинговых технологий будут перевоплощаться в каждом номере.
+На сцене прозвучат как сольные композиции Елены Север, так и те, что она исполняет в дуэте с популярными артистами российской эстрады. Поздравить (   Читать дальше...   )01 - ЕЛЕНА СЕВЕР - С ума
+02 - ЕЛЕНА СЕВЕР - Услышь меня
+03 - ЕЛЕНА СЕВЕР и СТАС ПЬЕХА - О тебе
+04 - ЕЛЕНА СЕВЕР - Сны(   Читать дальше...   )Жанр: POPЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676183   (158901) от 12.11.2023
+
+IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: K-PopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594237   (158900) от 26.12.2022
+
+Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand made smoother]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphonic Terror - Live at Wacken - концертный альбом немецкой хэви металл группы Accept, записаный с симфоническим оркестром 2 августа 2017 года на фестивале Wacken Open Air. Выпущен 23 ноября 2018 года на Nuclear Blast.Производство: Nuclear BlastЖанр: Heavy MetalЯзык: АнглийскийПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5537F49EED0C6DC3B7EC209D893F7CE1D96A6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967169   (158654) от 20.12.2015
+
+Праздничный концерт ко Дню работника органов безопасности РФ (19.12.2015) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансляция из Государственного Кремлевского Дворца праздничного концерта к Дню работника органов безопасности Российской Федерации. Вступительное слово президента РФ В.В.ПутинаПроизводство: Россия, Первый каналЖанр: КонцертПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716916180A385232D7F50F05FC48BA05A03A4348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967254   (158448) от 21.12.2015
+
+ЛИГАЛАЙЗ - КАРАВАН (feat. Андрей Гризли, Ika & Art Force Crew) (2015) WEBRip[H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэпер Лигалайз, который намерен выпустить первый альбом после десятилетнего перерыва, опубликовал  живописное новое видео «Караван», где главным образом манифестируется собственно его возвращение.Производство: Россия, StarProЖанр: Русский РэпРежиссер: Константин ЧерепковПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966981   (158442) от 21.12.2015
 
 George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
@@ -6,7 +169,7 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158442.jpg" />
 </div>
 
 
@@ -35,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158423.jpg" />
 </div>
 
 
@@ -62,7 +225,7 @@ Madonna - The Confessions Tour (Live From London) (2006) HDTVRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_157818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_157818.jpg" />
 </div>
 
 
@@ -92,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157545.jpg" />
 </div>
 
 
@@ -118,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157421.jpg" />
 </div>
 
 
@@ -145,7 +308,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157346.jpg" />
 </div>
 
 
@@ -174,7 +337,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157289.jpg" />
 </div>
 
 
@@ -203,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157215.jpg" />
 </div>
 
 
@@ -229,7 +392,7 @@ Eisbrecher - Schock Live (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157124.jpg" />
 </div>
 
 
@@ -261,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157097.jpg" />
 </div>
 
 
@@ -290,7 +453,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157090.jpg" />
 </div>
 
 
@@ -316,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157054.jpg" />
 </div>
 
 
@@ -345,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156956.jpg" />
 </div>
 
 
@@ -372,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156808.jpg" />
 </div>
 
 
@@ -398,7 +561,7 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156800.jpg" />
+  <img src="Z:/picture/005/save_picture_156800.jpg" />
 </div>
 
 
@@ -433,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156609.jpg" />
 </div>
 
 
@@ -462,7 +625,7 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156516.jpg" />
+  <img src="Z:/picture/005/save_picture_156516.jpg" />
 </div>
 
 
@@ -497,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156504.jpg" />
 </div>
 
 
@@ -523,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156501.jpg" />
+  <img src="Z:/picture/005/save_picture_156501.jpg" />
 </div>
 
 
@@ -552,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156471.jpg" />
 </div>
 
 
@@ -566,174 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:911A2048810D8A79F79F9F87C8E1F519BF01509A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967705   (156383) от 23.12.2015
-
-Квартирник у Маргулиса. 1 выпуск. Чайф (2015) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный гитарист, вокалист и автор песен Евгений Маргулис приглашает к себе домой своих хороших друзей – знаменитых российских рок-музыкантов. Сегодня в теплой и душевной атмосфере участники группы Чайф исполнят свои самые известные и любимые песни, а заодно расскажут историю создания своих произведений. Дата эфира: 14.11.2015.01. Внеплановый концерт
-02. Время не ждёт
-03. Завяжи мне глаза
-04. Поменялся(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2293E213B1121D769E98FD4F811867C2740007BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432919   (156220) от 21.12.2020
-
-ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156220.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBA - The Winner Takes It AllЖанр: музыкальный клипПродолжительность: 00:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD95242E17C393C1EF50FA1552E26A4AEEA4B866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968068   (156189) от 23.12.2015
-
-Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия концерта, состоявшегося 1 мая 2015 года в зале Мегарон в Афинах.
-День основания Берлинского Филармонического оркестра (1 мая 1882 года) по давней традиции ежегодно отмечается большим концертом в одном из крупных европейских городов с богатыми культурными традициями.
-В 2015 году EUROPAKONZERT во второй раз (после 2004 года) состоялся в Афинах. Приглашенным (   Читать дальше...   )Gioacchino Antonio Rossini (1792-1868)
-- "Semiramide"
-  -- Overture
-Jean Sibelius (1865-1957)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BBA44BA073A50110C51512C4ACC766199F2BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853817   (155964) от 27.12.2014
-
-Весёлая хроника опасного путешествия / Argonavtebi (1986) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальный, лирический, комедияРежиссер: Евгений ГинзбургАктеры: Зураб Кипшидзе, Александр Абдулов, Лика Кавжарадзе, Сергей Шакуров, Теймураз Циклаури, Роман Рцхиладзе, Нугзар Квашали, Джемал Багашвили, Игорь Рух, Анатолий Калмыков, Вахтанг Татишвили, Александр Басилая, Анри Басилая, Валентин Манохин, Елена Степанова, Эльвира Зубкова, Леонид ЯрмольникПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10258E87F407242A638CFDB6DB8576EDB89DEBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588625   (155933) от 13.12.2012
-
-Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard RockРежиссер: Dick CarruthersПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968057   (155903) от 23.12.2015
-
-Старые песни о главном 3 (1997) HDTV [H.264 / 1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сборник любимых песен, исполняемых любимыми артистами.
-В этой части "Старых песен о главном" снова, спустя 25 лет, встречаются герои фильма "Иван Васильевич меняет профессию" - изобретатель машины времени Шурик Тимофеев и его жена Зина с бывшим управдомом Иваном Васильевичем Буншей и его супругой Ульяной Андреевной собираются вместе встречать (   Читать дальше...   )Производство: Россия, ОРТЖанр: МузыкальныйРежиссер: Василий ПичулАктеры: Солисты российской эстрадыПродолжительность: 02:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB132A60A6B40DB7076DDDCDC2B3637F0D2D2B29
 ```
 
 https://mybot314.ru/tekegram_catalog/

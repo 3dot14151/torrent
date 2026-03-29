@@ -1,3 +1,90 @@
+###  Публикация: 1522348   (760362) от 06.01.2022
+
+Inhibidor - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renacer del Tiempo
+02. Una Puta Vez
+03. Sabor a LibertadLucas Bravo
+04. Reina Madre (feat. Joel Bedetti)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6F2ED6E199371F60B5A725D93D4F68C75878BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522301   (758794) от 07.01.2022
+
+Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Descent (01:10)
+02. Slum Devil (04:30)
+03. Livin Rock (03:32)
+04. Mark Of Vengeance (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC0568760633E1AD7E598586036EDD80A99DFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522294   (758793) от 07.01.2022
+
+Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The American Dream
+02. The Heat And The Fire
+03. Away Too Long
+04. Hold Out(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB5CD3EAB7C801BD6EA856E22EF69E0C06B2A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522296   (758792) от 07.01.2022
 
 Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758792.jpg" />
+  <img src="Z:/picture/008/save_picture_758792.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758791.jpg" />
+  <img src="Z:/picture/008/save_picture_758791.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758790.jpg" />
+  <img src="Z:/picture/008/save_picture_758790.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Destruction - Live Attack (2021) 2xCD [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758782.jpg" />
+  <img src="Z:/picture/008/save_picture_758782.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Crossfire - See You In Hell (1983) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758660.jpg" />
+  <img src="Z:/picture/008/save_picture_758660.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Evildead - Annihilation Of Civilization (1989) [APE|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758526.jpg" />
+  <img src="Z:/picture/008/save_picture_758526.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Thorium - Ocean Of Blasphemy (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758218.jpg" />
+  <img src="Z:/picture/008/save_picture_758218.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Metal For The Masses: The Ninth Gate (2011) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757564.jpg" />
+  <img src="Z:/picture/005/save_picture_757564.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Mekong Delta - Tales of a Future Past (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757200.jpg" />
+  <img src="Z:/picture/008/save_picture_757200.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Red - Declaration (2020) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757108.jpg" />
+  <img src="Z:/picture/005/save_picture_757108.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ The Sabbathian - Latum Alterum (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757088.jpg" />
+  <img src="Z:/picture/008/save_picture_757088.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Leave The Dead - The Cicada King (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756885.jpg" />
+  <img src="Z:/picture/008/save_picture_756885.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Peter "Peavy" Wagner (Avenger, Rage, LMO, Refuge) - 39 Albums, 1 Box Set (1985-2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756773.jpg" />
+  <img src="Z:/picture/008/save_picture_756773.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Soulreaper - Life Erazer (2003) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756740.jpg" />
+  <img src="Z:/picture/008/save_picture_756740.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Destruction - Under Attack (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755735.jpg" />
+  <img src="Z:/picture/008/save_picture_755735.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Members Of God - Ten Talking Words (2011) [APE|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755163.jpg" />
+  <img src="Z:/picture/008/save_picture_755163.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Natron - Necrospective (2002) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754862.jpg" />
+  <img src="Z:/picture/008/save_picture_754862.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Paradise Lost - Symphony For The Lost (2015) 2CD, Special Edition, Live [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753812.jpg" />
+  <img src="Z:/picture/008/save_picture_753812.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Pantheist - Closer To God (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753620.jpg" />
+  <img src="Z:/picture/008/save_picture_753620.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Kryptos - Force Of Danger (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753401.jpg" />
+  <img src="Z:/picture/008/save_picture_753401.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Johansson & Speckmann - Sulphur Skies (2013) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753397.jpg" />
+  <img src="Z:/picture/008/save_picture_753397.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Illnath - Cast Into Fields Of Evil Pleasure (2003) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753149.jpg" />
+  <img src="Z:/picture/008/save_picture_753149.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Edge Of Paradise - Immortal Waltz (2015) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752268.jpg" />
+  <img src="Z:/picture/008/save_picture_752268.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Edge Of Paradise - Immortal Waltz (2015) [FLAC|Lossless|image + .cue] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B5BE77837AE55DDE24F1C4323FDBBD23C3E138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523480   (751669) от 11.01.2022
-
-Cryonic Temple - Blood, Guts & Glory (2003) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morphine Dreams
-02. Mercenaries Of Metal - The Quest Pt. I
-03. Inquisition - The Quest Pt. II
-04. Swords And Diamonds(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C44DFA9B9C8BF5B8035C8051EC49568D8CE21A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216258   (751462) от 30.03.2018
-
-Lowbrow - Victims at Play (1999) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flesh Parade
-02. Victims At Play
-03. Non Descript
-04. Done In(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7304DA6EE8CB2F1803288BA761D1AF56F9D14F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216256   (751365) от 30.03.2018
-
-13 Rituals - Rituals Of Punishment (2009) [APE|Lossless|image + .cue] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abatement
-02. Blackout
-03. Rituals Of Punishment
-04. Blackout (live)Жанр: DeathcoreПродолжительность: 00:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932800DC4D30FD0839D59EE1521929ECB030A512
 ```
 
 https://mybot314.ru/tekegram_catalog/

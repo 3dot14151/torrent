@@ -1,3 +1,140 @@
+###  Публикация: 1178902   (353556) от 29.10.2017
+
+DesiGN Brochures Templates 2.7 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brochures Templates for Pages - высококачественная коллекция из 255 оригинальных шаблонов для Apple Pages. Если Вы начинаете новый бизнес, организовываете мероприятие, или пытаетесь придать новый импульс Вашим проектам - Brochures Templates for Pages помогут Вам в Ваших начинаниях.
+
+Конструкции очень легко редактировать и адаптировать к Вашим потребностям, Вы можете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2017Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F3A4C2E9D18C10D15072B86427EF75418FF49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952793   (353440) от 02.11.2015
+
+Fake 1.8.10 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fake - веб-браузер для Mac OS X, который поможет автоматизировать процесс работы в интернете. В Fake есть библиотека готовых действий, которая отображается отдельным списком в окне.  Чтобы автоматизировать работу, необходимо перетащить нужные действия в главное окно программы, где они будут отображаться в виде списка. После того, как все действия добавлены в список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 января 2015Разработчик: Todd DitchendorfПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACB4D7298AAA0E1D8A0E0DA87622FE6533D4C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052477   (353295) от 29.10.2017
+
+Boxy: email client for "Inbox by Gmail" 2.0.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boxy первый неофициальный клиент для Gmail Входящие
+
+Boxy предоставляет возможности Входящие от Gmail, с удобством электронной почты клиента Mac. Это многофункциональный, быстрый и надежный, соответствует OS X и выглядит знакомо пользователям почтового ящика Gmail .
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 октября 2017Разработчик: Francesco Di Lorenzo & Fabrizio RinaldiПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815083A1709A12D69D756557C979D281A50D2164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577830   (352430) от 20.09.2022
+
+Nisus Writer Pro 3.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nisus Writer Pro Мощный мультиязычный текстовый редактор для Mac OS, предоставляющий пользователям широкий набор возможностей для работы с текстом. Помимо стандартных для текстового редактора функций, Nisus Writer Pro умеет работать с таблицами контента, добавлять закладки, индексировать, показывать номер строки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: ©2021 Nisus Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8F41FEB11C0AC6BDA54104C369160A43DF1701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072654   (352396) от 13.11.2016
+
+Runway 1.8.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Runway - элегантное приложение для UML Дизайна, которое является одновременно простым и мощным. Runway дает вам все наиболее важные функции, которые необходимы в построении диаграмм и дизайна векторных  инструментов, а также простой в использовании инструмент класса Диаграмма без всех дополнительного хлама.
+
+Runway отлично подходит для программистов и веб-дизайнеров, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: Todd Ditchendorf.Поддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BC675ED4A72D130EE802A64B466529701CB866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577946   (352321) от 20.09.2022
 
 Artstudio Pro 4.1.6 [En]
@@ -6,7 +143,7 @@ Artstudio Pro 4.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352321.jpg" />
+  <img src="Z:/picture/008/save_picture_352321.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ NetNewsWire 4.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352279.jpg" />
+  <img src="Z:/picture/008/save_picture_352279.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ DivX Pro 9 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352225.jpg" />
+  <img src="Z:/picture/005/save_picture_352225.jpg" />
 </div>
 
 
@@ -87,7 +224,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352198.jpg" />
+  <img src="Z:/picture/008/save_picture_352198.jpg" />
 </div>
 
 
@@ -113,7 +250,7 @@ PureBasic 6.00 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352190.jpg" />
+  <img src="Z:/picture/008/save_picture_352190.jpg" />
 </div>
 
 
@@ -139,7 +276,7 @@ FileMaker Pro 19 v.19.5.4.401 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352188.jpg" />
+  <img src="Z:/picture/008/save_picture_352188.jpg" />
 </div>
 
 
@@ -166,7 +303,7 @@ Xilisoft Video Converter Ultimate 7.3.0 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352101.jpg" />
+  <img src="Z:/picture/005/save_picture_352101.jpg" />
 </div>
 
 
@@ -192,7 +329,7 @@ Mirror for Sony TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351999.jpg" />
+  <img src="Z:/picture/008/save_picture_351999.jpg" />
 </div>
 
 
@@ -221,7 +358,7 @@ Artistry Photo Pro: Photo Edit 3.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351994.jpg" />
+  <img src="Z:/picture/008/save_picture_351994.jpg" />
 </div>
 
 
@@ -247,7 +384,7 @@ NotePlan - Markdown Calendar 1.6.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351895.jpg" />
+  <img src="Z:/picture/008/save_picture_351895.jpg" />
 </div>
 
 
@@ -274,7 +411,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351589.jpg" />
+  <img src="Z:/picture/008/save_picture_351589.jpg" />
 </div>
 
 
@@ -300,7 +437,7 @@ Forecast Bar - Weather + Radar 5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351559.jpg" />
+  <img src="Z:/picture/008/save_picture_351559.jpg" />
 </div>
 
 
@@ -327,7 +464,7 @@ Rectangle 0.36 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351483.jpg" />
+  <img src="Z:/picture/008/save_picture_351483.jpg" />
 </div>
 
 
@@ -353,7 +490,7 @@ KeePassXC 2.6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351482.jpg" />
+  <img src="Z:/picture/008/save_picture_351482.jpg" />
 </div>
 
 
@@ -379,7 +516,7 @@ DesiGN Flyers Templates 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351278.jpg" />
+  <img src="Z:/picture/008/save_picture_351278.jpg" />
 </div>
 
 
@@ -405,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351277.jpg" />
+  <img src="Z:/picture/008/save_picture_351277.jpg" />
 </div>
 
 
@@ -431,7 +568,7 @@ Archiver 3 v3.0.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351241.jpg" />
+  <img src="Z:/picture/008/save_picture_351241.jpg" />
 </div>
 
 
@@ -460,7 +597,7 @@ Boinx Mousepose 3.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351179.jpg" />
+  <img src="Z:/picture/008/save_picture_351179.jpg" />
 </div>
 
 
@@ -489,7 +626,7 @@ VirtualBox 6.1.16 for Mac v6.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350937.jpg" />
+  <img src="Z:/picture/008/save_picture_350937.jpg" />
 </div>
 
 
@@ -517,7 +654,7 @@ AppCleaner 3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350842.jpg" />
+  <img src="Z:/picture/008/save_picture_350842.jpg" />
 </div>
 
 
@@ -545,7 +682,7 @@ DxO ViewPoint 3 v.3.4.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350292.jpg" />
+  <img src="Z:/picture/008/save_picture_350292.jpg" />
 </div>
 
 
@@ -557,143 +694,6 @@ DxO ViewPoint — программное решение, посвященное 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8148196C7B09CB3D21B2A62970497263C3E6402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329040   (350283) от 06.10.2019
-
-MacCleanse 8 v8.0.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для комплексной очистки кэша, удаления лог-файлов и очистки системы от мусора. MacCleanse в считанные минуты проделает все операции, на которые бы потребовалось несколько часов ручной работы. Она умеет удалять приложения и неиспользуемые языковые пакеты, очищать кэш, удалять лог файлы и cookies, стирать историю посещенных веб-страниц, находить и удалять старые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB0D103255C27960F36C10AE4A5F3B408F32B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329051   (350276) от 06.10.2019
-
-Papers 3 v3.4.21 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Papers — персональный каталогизатор научных статей
-Каталогизация журнальных статей и публикаций — весьма нелегкая задача. Особенно это знают люди, ведущие журналистскую деятельность и научную работу. Немудрено, что для упрощения этой задачи очень хочется использовать компьютер.
-Отчасти тут хватит встроенных в OS X средств: поиск с помощью Spotlight, просмотр в стандартном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MekentosjПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4132BB488166472411552552E32387B8DBB2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329044   (350274) от 06.10.2019
-
-MarginNote 3 Pro v3.4.5 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делать аннотации и примечания к книгам, организовывать их в карты разума или быстро создавать карточки, чтобы быстрее запоминать их содержимое. MarginNote предлагает новый подход к чтению книг и созданию ярких, примечательных или аннотаций. Утилита отслеживает каждую запись и позволяет вам организовывать данные в карты разума или карточки.
-
-Независимо от вашей профессии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2019Разработчик: Sun MinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07C564EBCA4B5F3AFFDAC428C87C7D316BA310D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329055   (350158) от 06.10.2019
-
-Quiver 3.2.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quiver — это записная книжка, специально созданная для программиста.
-
-Основные возможности:
-• С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2019Разработчик: HappenApps, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA40290914A770A390FC8F7797FCFC0E4337851D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256884   (350031) от 24.10.2018
-
-Canary Mail - Encrypted Email 2.14 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF77A38968074A9E62E10E1DB5252D1FAABC12E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

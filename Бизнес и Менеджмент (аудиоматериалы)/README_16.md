@@ -1,3 +1,109 @@
+###  Публикация: 1717653   (59039) от 21.04.2024
+
+Алексей Марков | Хулиномика 4.0 хулиганская экономика (2024) [MP3, Максим Суслов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экономика – это очень скучно. Куча непонятны заумных слов и формул? Кто вам такое сказал? Экономика это интересно и просто! Вы просто не знаете, с каким соусом ее нужно подавать, на какой стороне пережевывать и долго ли жевать. Все базовые знания о ней и много больше вы получите из книги «Хулиномика», а также найдете немало интересных ответов на вопросы по типу: (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 13:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAACC2DBCEE392872C6E0C1E28B0B0627FB5AAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718244   (58676) от 24.04.2024
+
+Алена Мишурко | ПРОдвижение в Телеграме, ВКонтакте и не только (2022) [MP3, Дарья Павлова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига для тех, кто самостоятельно продвигает свой проект, и SMM-специалистов.
+Автор книги – Алена Мишурко, предприниматель, SMM-стратег, спикер на конференциях «Синергия», «Суровый Питерский SMM» и других бизнес-форумах, автор статей о маркетинге.
+Книга-практикум «ПРОдвижение в Телеграме, ВКонтакте и не только» – это 27 инструментов для роста продаж с пошаговыми (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига АСТПродолжительность: 06:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36418C86900D551FDFBFE023A5C1721487A95E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721409   (57282) от 07.05.2024
+
+Михаил Жуков | HeadHunter. Успех неизбежен (2024) [MP3, Кирилл Петров]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это Миша. Он теперь будет вместо меня. Он нормальный. Не переживайте». Так в 2008 г. создатель компании HeadHunter Юрий Вировец представил команде нового генерального директора Михаила Жукова. Последующие 15 лет Жуков делом доказывал, что не просто рядовой управленец, а блестящий лидер. Под его руководством сервис стал ведущей российской компанией интернет-рекрутмента. (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ПРОПродолжительность: 04:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ACB8DC673D3C732CBF5E0EB6310B23D0CC820B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723495   (56350) от 16.05.2024
+
+Филип Котлер | Маркетинг по Котлеру (2008) [MP3, Д. Жебелев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56350.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Маркетинг по Котлеру» — это полное руководство по маркетингу для менеджеров, основанное на опыте практической работы автора с такими корпоративными клиентами, как AT&T, General Electric, Ford, IBM, Michelin, Merck, DuPont и Bank of America. Благодаря этой глубокой и в то же время очень практичной книге вы быстро адаптируете свои знания и навыки к новым проблемам (   Читать дальше...   )Жанр: БизнесИздательство: Альпина Бизнес БуксПродолжительность: 05:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3965FA1CE5366230E305E059A076770050C5E8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723802   (56233) от 17.05.2024
 
 Эрика Стэнфорд | Лихая крипта (2022) [MP3, Джулия Киви]
@@ -6,7 +112,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56233.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55810.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55090.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54908.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54568.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54353.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54242.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53306.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52211.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52063.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52015.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51586.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ Harvard Business Review (HBR) | Личная эффективность (2020) [
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50440.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48477.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48068.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47963.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46909.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46831.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46409.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46191.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45561.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45289.jpg" />
 </div>
 
 
@@ -581,115 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3586607F4F718FBC79571426DD91A6F3B6822593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746232   (45126) от 30.08.2024
-
-Бен Хоровиц | Сложные решения (2021) [MP3, Павел Дягилев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бен Хоровиц, один из самых опытных и уважаемых предпринимателей в Кремниевой долине, делится своими рекомендациями по построению и развитию стартапов. Советы автора касаются сложнейших проблем, которые обычно не обсуждаются в бизнес-школах.
-Очень многие любят рассуждать о том, как здорово иметь свой бизнес. Единицы говорят о том, что это очень сложно. Бен Хоровиц (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 09:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FEF77F2E862323A180BF92AACADF04018BB0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748292   (44077) от 09.09.2024
-
-Петр Панда | Копирайтинг в Instagram (2021) [MP3, Дмитрий Пименов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый бестселлер от создателя убедительно‑позитивного стиля – П. Панды! Уникальный учебник по профессиональному копирайтингу в Instagram для компаний, копирайтеров, блогеров и личных брендов.
-– Какие слова и посты цепляют с первых строк?
-– Что нужно, чтобы писать продающий и информационный контент?
-– Как запоминаться и убеждать слушателя?Жанр: БизнесИздательство: Аудиокнига АСТПродолжительность: 11:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D15B9463E2DA59F56B3431ADBE8060DDF16E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748507   (44007) от 10.09.2024
-
-Александр Фридман | Пожиратели времени (2019) [MP3, Александр Шаронов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Консультант по организационному развитию Александр Фридман вот уже двадцать шесть лет помогает компаниям выстраивать и внедрять системы корпоративного управления.
-Если руководитель не способен успешно управлять своими подчиненными, скорей всего, он не умеет точно и эффективно управлять собой. Книга «Пожиратели времени» научит и тому, и другому. Вы узнаете, как делать (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРА, ЭКСМОПродолжительность: 07:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D23B05928724E143583B7FE5B8728F4394A064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748900   (43803) от 12.09.2024
-
-Шон Кови, Стивен Р. Кови | Семь навыков на каждый день (2023) [MP3, Андрей Барабанщиков]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день мы сталкиваемся со множеством проблем, которые требуют от нас принимать решения в условиях стресса и работать на пределе своих возможностей. Со временем такая нагрузка приводит к снижению мотивации, выгоранию и даже проблемам со здоровьем. Как не допустить морального и физического истощения, ведущего к потере личной эффективности? Поможет книга «Семь (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ПаблишерПродолжительность: 01:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A418BD96BB5B25CF59F21FD70D410385FB3351
 ```
 
 https://mybot314.ru/tekegram_catalog/

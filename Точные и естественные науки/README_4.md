@@ -1,3 +1,148 @@
+###  Публикация: 978495   (963431) от 23.01.2016
+
+Т. М. Воробьева (ред.) | Бельгия. Справочная карта (1980) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Бельгии с административным делением (масштаб 1:500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CA32469F618CCA07BA756F067FD0714B3511AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977865   (963370) от 23.01.2016
+
+Н. Н. Федотова, Т. А. Романова (ред.) | Бангладеш. Справочная карта (1979) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963370.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Бангладеш с административным делением (масштаб 1:1 000 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BAF8DF2A2563B15AD5C0A3AEC67FA6E93EAA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979214   (959686) от 26.01.2016
+
+В. Н. Пенькова, Д. А. Коваленко (ред.) | Бенин. Справочная карта (1986) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959686.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Бенина с административным делением (масштаб 1:1 000 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510BE457E4FB689ECA03E276538E42A72EEC9F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978818   (959661) от 26.01.2016
+
+А. Г. Чимшидова (ред.)| Бельгия. Справочная карта (2003) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959661.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Бельгии с административным делением (масштаб 1:500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF23220E8AB4BC9B9F9694301D5627C56EA0A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979841   (955834) от 29.01.2016
+
+К. И. Махрова, З. П. Пехова (ред.) | Бирма. Справочная карта (1983) [JPG]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Бирмы с административным делением (масштаб 1:2 000 000).
+2) Указатель географических названий в алфавитном порядке (утерян).
+3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F4D9A9FA8C4D70C2F17967BFA0ADE3A1A5665B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980220   (955790) от 29.01.2016
 
 З. П. Пехова, Д. А. Коваленко (ред.) | Бирма. Справочная карта (1986) [JPG, PDF]
@@ -6,7 +151,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955790.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954748.jpg" />
 </div>
 
 
@@ -61,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954505.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951398.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948267.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948104.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941880.jpg" />
 </div>
 
 
@@ -203,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941868.jpg" />
 </div>
 
 
@@ -232,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939247.jpg" />
 </div>
 
 
@@ -258,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938731.jpg" />
 </div>
 
 
@@ -287,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938584.jpg" />
 </div>
 
 
@@ -316,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938486.jpg" />
 </div>
 
 
@@ -345,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933758.jpg" />
 </div>
 
 
@@ -371,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933750.jpg" />
 </div>
 
 
@@ -397,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933746.jpg" />
 </div>
 
 
@@ -423,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933629.jpg" />
 </div>
 
 
@@ -449,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932416.jpg" />
 </div>
 
 
@@ -478,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932404.jpg" />
 </div>
 
 
@@ -507,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932334.jpg" />
 </div>
 
 
@@ -533,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932308.jpg" />
 </div>
 
 
@@ -562,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930713.jpg" />
 </div>
 
 
@@ -576,141 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B60C9949F51CE385FCB57ACEE44D11A17AE2E6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986172   (930553) от 14.02.2016
-
-Л. Н. Колосова (ред.) | Гватемала, Белиз, Сальвадор, Гондурас, Никарагуа. Справочная карта (1987) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930553.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта пяти государств — Гватемалы, Белиза, Сальвадора, Гондураса и Никарагуа с административным делением (масштаб 1:1 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7393B96E959ACEC2F6670B2542DC297051F703F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986590   (929270) от 15.02.2016
-
-И. И. Шмальгаузен | Вопросы дарвинизма: Неопубликованные работы (1990) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены статьи, заметки, выступления и рецензии И.И. Шмальгаузена в период дискуссии генетиков и эволюционистов с представителями «мичуринской» биологии (40-50-е годы). Даётся критический научный разбор лженаучных взглядов Т. Д. Лысенко и его сторонников по важным вопросам зволюционной теории и генетики: внутривидовая борьба, проблема целесообразности, (   Читать дальше...   )Жанр: История, биология, науковедение, естествознание, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B200B0FAF593DEDD99151EE92171C158C9536A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986582   (929174) от 15.02.2016
-
-И. И. Шмальгаузен | Происхождение наземных позвоночных (1964) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблема происхождения наземных позвоночных относится к наиболее сложным и интересным разделам филогении, затрагивающим многие общие вопросы эволюции. Это связано с тем, что в этом случае произошла чрезвычайно резкая смена сред обитания, которая не могла не привести к полной перестройке всей организации. Если учесть всю глубину этой перестройки, то возможность перехода (   Читать дальше...   )Жанр: История, биология, науковедение, естествознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200413E8224B9750515333348398F7420A435B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986563   (929166) от 15.02.2016
-
-Р. Л. Берг | Генетика и эволюция. Избранные труды (1993) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929166.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли статьи по вопросам генетических закономерностей эволюции, опубликованные с 1937 по 1972 г., и не публиковавшаяся ра­нее статья «Случайна или закономерна эволюция?». Все статьи прониза­ны идеей закономерного строения живого компонента биосферы. С пози­ций генетика автор рисует приспособительную эволюцию живых систем как восхождение по степеням прогресса, (   Читать дальше...   )Жанр: История, биология, науковедение, генетика, цитологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EA77DCE1FD35CCB4667D824F048B6695292547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986570   (929162) от 15.02.2016
-
-И. И. Шмальгаузен | Пути и закономерности эволюционного процесса (1983) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга включает монографию ведущего советского теоретика-эволюциониста «Пути и закономерности эволюционного процесса», а также три неопубли­кованные статьи, посвященные рассмотрению отдельных вопросов по той же тематике. Впервые эволюционный процесс представляется как самодвижущаяся, т. е. саморегулирующаяся, система.
-
-Предназначается биологам всех специальностей (   Читать дальше...   )Жанр: История, биология, науковедение, естествознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B302D6879C5DD005AD7FD949DE3970A75C33A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

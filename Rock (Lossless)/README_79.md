@@ -1,3 +1,148 @@
+###  Публикация: 1555473   (568904) от 04.06.2022
+
+Gene Clark - Collected (2021) Compilation [FLAC|Lossless|tracks + .cue] <Folk-Rock, Country-Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568904.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. I’ll Feel a Whole Lot Better  02:33
+02. I Knew I’d Want You   02:14
+03. Set You Free This Time   02:50(   Читать дальше...   )Жанр: Folk-Rock, Country-Rock, Pop-RockПродолжительность: 03:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F023032F50A0EBE61D417161370031D51DE2F1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922832   (568120) от 29.07.2015
+
+Joe Cocker - With A Little Help From My Friends (1969) Hybrid SACD, Limited Edition /2015, Audio Fidelity/ [FLAC|image + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeling Alright [4:16]
+02. Bye Bye Blackbird [3:31]
+03. Change In Louise [3:26]
+04. Marjorine [2:17](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367B287FAF5245D763E03F6F1C259E540DD56A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234633   (567961) от 07.07.2018
+
+Chris Smither - Happier Blue (1993) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Contemporary Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happier Blue (Chris Smither) 04:18
+02. Memphis in the Meantime (John Hiatt) 03:45
+03. The Devil's Real (Chris Smither) 04:59
+04. No More Cane on the Brazos / Mail Order Mystics (Traditional / Chris Smither) 06:07(   Читать дальше...   )Жанр: Folk-Rock, Contemporary BluesПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787C8C327B2680B5E229FE84A43C7A547B0C7FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234646   (567950) от 07.07.2018
+
+Ray Davies - Our Country: Americana Act II (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Country 03:16
+02. The Invaders (Spoken Word) 02:30
+03. Back in the Day 02:41
+04. Oklahoma U.S.A. 04:11(   Читать дальше...   )Жанр: Pop-Rock, Singer-SongwriterПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7B0BCE1C77539CBC6B41A4E38577A8214AAB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234657   (567873) от 07.07.2018
+
+Livin' Blues - Blue Breeze (1976) Limited Edition, Reissue, 1997, Pseudonym [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shylina (5:38)
+02. Back Stage (5:55)
+03. Midnight Blues (3:19)
+04. Pisces (1:27)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D7E7B3FD74393040EEC7079D4ACAB0B69F43E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044230   (567461) от 19.08.2016
 
 Amon Ra - We Never Said Good-Bye (2015) [FLAC|Lossless|image + .cue] <Neo Progressive>
@@ -6,7 +151,7 @@ Amon Ra - We Never Said Good-Bye (2015) [FLAC|Lossless|image + .cue] <Neo Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567461.jpg" />
+  <img src="Z:/picture/008/save_picture_567461.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Dan Patlansky - Introvertigo (2016) [FLAC|Lossless|tracks + .cue] <Modern Electr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567456.jpg" />
+  <img src="Z:/picture/008/save_picture_567456.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ B.J. Thomas - 20 Greatest Hits (1983) Compilation, 1990, FST Records [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567290.jpg" />
+  <img src="Z:/picture/008/save_picture_567290.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Dust Mothers - The Gates of Horn and Ivory (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567170.jpg" />
+  <img src="Z:/picture/008/save_picture_567170.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ ZED/ZERO - Welcome To The Multiverse (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567163.jpg" />
+  <img src="Z:/picture/008/save_picture_567163.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Dream Machine - Living the Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <70s Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567031.jpg" />
+  <img src="Z:/picture/008/save_picture_567031.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Airbag - A Day At The Beach (2020) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567030.jpg" />
+  <img src="Z:/picture/008/save_picture_567030.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ El Perro - Hair Of (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566881.jpg" />
+  <img src="Z:/picture/008/save_picture_566881.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Moreland & Arbuckle - Promised Land Or Bust (2016) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565651.jpg" />
+  <img src="Z:/picture/008/save_picture_565651.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Jim Suhler & Monkey Beat - Live at the Kessler (2016) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565563.jpg" />
+  <img src="Z:/picture/008/save_picture_565563.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Elephant Riders - Impure (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565358.jpg" />
+  <img src="Z:/picture/008/save_picture_565358.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Goodbye, Kings - The Cliché Of Falling Leaves (2022) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564869.jpg" />
+  <img src="Z:/picture/008/save_picture_564869.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564549.jpg" />
+  <img src="Z:/picture/008/save_picture_564549.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Rubytates - Renacemos (2015) [FLAC|Lossless|tracks + .cue] <Latin, Indie, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563835.jpg" />
+  <img src="Z:/picture/008/save_picture_563835.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Palace Of The King - Valles Marineris (2016) [FLAC|Lossless|tracks + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563834.jpg" />
+  <img src="Z:/picture/008/save_picture_563834.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Phiasco - Kessel (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, Stoner Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563368.jpg" />
+  <img src="Z:/picture/008/save_picture_563368.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ The Kelly Family - Very Best (1997) [FLAC|Lossless|image + .cue] <Folk Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562144.jpg" />
+  <img src="Z:/picture/008/save_picture_562144.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Black Mountain - Destroyer (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock, Sou
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561992.jpg" />
+  <img src="Z:/picture/008/save_picture_561992.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Stray Cats - 40 (2019) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561866.jpg" />
+  <img src="Z:/picture/008/save_picture_561866.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Crobot - Feel This (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561654.jpg" />
+  <img src="Z:/picture/008/save_picture_561654.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Stone Witch - Desert Oracle (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561647.jpg" />
+  <img src="Z:/picture/008/save_picture_561647.jpg" />
 </div>
 
 
@@ -600,157 +745,6 @@ Stone Witch - Desert Oracle (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19FD55401518AB9EB0946198164152E79D76EBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556193   (561525) от 08.06.2022
-
-Joe Bouchard (ex-Blue Oyster Cult) - American Rocker (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Way is The Highway (00:02:45)
-02 - In The Golden Age (00:03:44)
-03 - Deadly Kisses (00:04:04)
-04 - Love Out of Thin Air (00:04:03)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C0CD016BF1646AE9CB062CDDF1C58B1BE1D199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556154   (561524) от 08.06.2022
-
-Reeper - Rise of Chaos (2021) Deluxe Edition, 2022, Art Gates Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rebound (00:03:35)
-02 - Save Me (00:03:30)
-03 - Home (00:04:03)
-04 - Let It Go (00:03:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard, Desert, Stoner RockПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0A56A67D5B0B6A641A07BDB8477455624E3FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044833   (561395) от 22.08.2016
-
-Joe Satriani - Original Album Classic (1986 - 1998) 5CD Box set, 2008, Epic [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not of This Earth (4:04)
- 02. The Snake (4:43)
- 03. Rubina (5:57)
- 04. Memories (4:06)(   Читать дальше...   )Жанр: Rock, Hard Rock, InstrumentalПродолжительность: 04:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1604A9717B7EACEF918DF96B62F7F8A44909548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045184   (561392) от 22.08.2016
-
-Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 1990, Polydor [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Fantastic And The Brown Dirt Cowboy
-02. Tower Of Babel
-03. Bitter Fingers
-04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30278A4A5C4EA9C1C73628131A55989A13E14F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528782   (560619) от 03.08.2012
-
-Jimi Hendrix - Sir James Marshall - Gypsy On Cloud Nine (1986) 2LP [FLAC|Lossless]<Rock, Blues Rock, Psychedelic Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560619.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Further On Up The Road [01:57]
- A2. Astro Man [03:17]
- A3. The Things We Used To Do [07:01]
- A4. Once I Had A Woman [05:30]
- A5. Ezy Rider I (inst. jam) [03:58]
- B1. Ezy Rider II [08:37]
- B2. Message To Love (speed corrected) [05:05]
- B3. Captain Coconut (MLK Jam Cherokee Mist) [06:37]
- C1. Instrumental Jam (Ezy Rider Jam) [10:22]
- C2. Peace In Mississippi [07:35](   Читать дальше...   )Жанр: Rock, Blues Rock, Psychedelic Rock, Classic RockФормат: vinyl bootleg 2 L.P. setПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

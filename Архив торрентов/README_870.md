@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850150.jpg" />
+  <img src="Z:/picture/008/save_picture_850150.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850138.jpg" />
+  <img src="Z:/picture/008/save_picture_850138.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850128.jpg" />
+  <img src="Z:/picture/008/save_picture_850128.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mirillis Splash 2.0.3.0 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850123.jpg" />
+  <img src="Z:/picture/008/save_picture_850123.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850115.jpg" />
+  <img src="Z:/picture/008/save_picture_850115.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850113.jpg" />
+  <img src="Z:/picture/008/save_picture_850113.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850106.jpg" />
+  <img src="Z:/picture/008/save_picture_850106.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ GPU Caps Viewer 1.33.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850103.jpg" />
+  <img src="Z:/picture/008/save_picture_850103.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Jadakiss - Ignatius (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850095.jpg" />
+  <img src="Z:/picture/008/save_picture_850095.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Airy Pro 3.14.277 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850092.jpg" />
+  <img src="Z:/picture/008/save_picture_850092.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850091.jpg" />
+  <img src="Z:/picture/008/save_picture_850091.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ BestReminder v2020.04.22.22 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850087.jpg" />
+  <img src="Z:/picture/008/save_picture_850087.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wirecast Pro 13.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850083.jpg" />
+  <img src="Z:/picture/008/save_picture_850083.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MacBooster 8 Pro 8.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850081.jpg" />
+  <img src="Z:/picture/008/save_picture_850081.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ GeoGebra 6.0.578.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850080.jpg" />
+  <img src="Z:/picture/008/save_picture_850080.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Q-Dir 8.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850078.jpg" />
+  <img src="Z:/picture/008/save_picture_850078.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Vivaldi 3.0.1874.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850077.jpg" />
+  <img src="Z:/picture/008/save_picture_850077.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850072.jpg" />
+  <img src="Z:/picture/008/save_picture_850072.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850067.jpg" />
+  <img src="Z:/picture/008/save_picture_850067.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850056.jpg" />
+  <img src="Z:/picture/008/save_picture_850056.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Vit Registry Fix Pro 12.7 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850054.jpg" />
+  <img src="Z:/picture/008/save_picture_850054.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Forced Showdown (2016) [En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850051.jpg" />
+  <img src="Z:/picture/008/save_picture_850051.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ SLAIN! (2016) [En] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850047.jpg" />
+  <img src="Z:/picture/008/save_picture_850047.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850045.jpg" />
+  <img src="Z:/picture/008/save_picture_850045.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Ubuntu GamePack 14.04 [i386 + amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850038.jpg" />
+  <img src="Z:/picture/008/save_picture_850038.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Epistory - Typing Chronicles (2016) [Ru/Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850031.jpg" />
+  <img src="Z:/picture/008/save_picture_850031.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Blue Pilots Project - Reboot (2009) [FLAC|Lossless|image + .cue] <Ambient, Chill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706142.jpg" />
+  <img src="Z:/picture/008/save_picture_706142.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Ibiza Trance Volume One (2016) [MP3|320 кб/с] <Trance, Progressive House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706140.jpg" />
+  <img src="Z:/picture/008/save_picture_706140.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Forcefield - Forcefield (1987) 1990, Polydor [WavPack|Lossless|image + .cue] <Ha
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706138.jpg" />
+  <img src="Z:/picture/008/save_picture_706138.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706121.jpg" />
+  <img src="Z:/picture/008/save_picture_706121.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Steve Oda & Ty Burhoe - Peace - Music For Life (2018) [FLAC|Lossless|WEB-DL|trac
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706096.jpg" />
+  <img src="Z:/picture/008/save_picture_706096.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ K-Lite Codec Pack Update 14.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706095.jpg" />
+  <img src="Z:/picture/008/save_picture_706095.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Total Science - Fallen Angel / Not Again (2018) [MP3|320 Kbps] <Electronic, Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706085.jpg" />
+  <img src="Z:/picture/008/save_picture_706085.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Chromium 68.0.3399.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706084.jpg" />
+  <img src="Z:/picture/008/save_picture_706084.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Google Chrome 66.0.3359.117 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706083.jpg" />
+  <img src="Z:/picture/008/save_picture_706083.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ GreenCloud Printer Pro 7.8.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706081.jpg" />
+  <img src="Z:/picture/008/save_picture_706081.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Sketches Pro 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706064.jpg" />
+  <img src="Z:/picture/008/save_picture_706064.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706057.jpg" />
+  <img src="Z:/picture/008/save_picture_706057.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706042.jpg" />
+  <img src="Z:/picture/008/save_picture_706042.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ QQ Browser 10.0.972 Portable by Cento8 [Ru/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705992.jpg" />
+  <img src="Z:/picture/008/save_picture_705992.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Google Chrome 66.0.3359.117 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705989.jpg" />
+  <img src="Z:/picture/008/save_picture_705989.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705984.jpg" />
+  <img src="Z:/picture/008/save_picture_705984.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ YTD Video Downloader PRO 5.9.6 (20180315) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705983.jpg" />
+  <img src="Z:/picture/008/save_picture_705983.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705979.jpg" />
+  <img src="Z:/picture/008/save_picture_705979.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ oCam 280.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705974.jpg" />
+  <img src="Z:/picture/008/save_picture_705974.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ TG Pro (Temperature Gauge Pro) 2.9.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705970.jpg" />
+  <img src="Z:/picture/008/save_picture_705970.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Cafe del Mar - Sun Scapes (2015) [FLAC|Lossless|image + .cue] <Ambient, Lou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705967.jpg" />
+  <img src="Z:/picture/008/save_picture_705967.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Wavestar - Moonwind [2003 Reissue] (1987) [MP3|320 кб/с] <Electro, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705957.jpg" />
+  <img src="Z:/picture/008/save_picture_705957.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ SIV (System Information Viewer) 5.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705952.jpg" />
+  <img src="Z:/picture/008/save_picture_705952.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Opera 38.0.2220.31 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705951.jpg" />
+  <img src="Z:/picture/008/save_picture_705951.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705949.jpg" />
+  <img src="Z:/picture/008/save_picture_705949.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Wavestar - Out Of Time (1997) [MP3|320 кб/с] <Electronic, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705947.jpg" />
+  <img src="Z:/picture/008/save_picture_705947.jpg" />
 </div>
 
 

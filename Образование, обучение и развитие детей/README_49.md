@@ -1,3 +1,55 @@
+###  Публикация: 1060557   (454903) от 07.10.2016
+
+Антон Макаренко | Книга для родителей (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа классика отечественной педагогики Антона Семеновича Макаренко остается актуальной вне зависимости от времени. Остроумные, точные тексты вдохновляют уже многие поколения родителей. Автор размышляет над вечными вопросами воспитания: как привить детям доброту, уважение к старшим, чувство собственного достоинства, любовь к родине.Жанр: Воспитание детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE65B8C9D49273C5EDB72F8B0AA1DA393298901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389865   (454179) от 19.09.2011
+
+Николай Николаевич Плавильщиков | Занимательная энтомология [1990] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разнообразен мир природы, который так хорошо знал и любил известный популяризатор науки, доктор биологических наук Николай Николаевич Плавильщиков. В этой книге ученый-энтомолог рассказывает о том, как интересно наблюдать жизнь и повадки насекомых, живущих рядом с тобой: жучка трубковерта, слоника, плавунца, светлячка и других обитателей этого огромного мира живой (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E52C7404AE19D47F958E5F706A759BC84DE74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408689   (453784) от 13.09.2020
 
 Светлана Пятак | Ломоносовская школа. Читаю слова и предложения. Для одаренных детей 5-6 лет (2014) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453784.jpg" />
+  <img src="Z:/picture/008/save_picture_453784.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453613.jpg" />
+  <img src="Z:/picture/008/save_picture_453613.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453567.jpg" />
+  <img src="Z:/picture/008/save_picture_453567.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453418.jpg" />
+  <img src="Z:/picture/008/save_picture_453418.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453351.jpg" />
+  <img src="Z:/picture/008/save_picture_453351.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452678.jpg" />
+  <img src="Z:/picture/008/save_picture_452678.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452660.jpg" />
+  <img src="Z:/picture/008/save_picture_452660.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451627.jpg" />
+  <img src="Z:/picture/008/save_picture_451627.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451502.jpg" />
+  <img src="Z:/picture/008/save_picture_451502.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451307.jpg" />
+  <img src="Z:/picture/008/save_picture_451307.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449998.jpg" />
+  <img src="Z:/picture/008/save_picture_449998.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447207.jpg" />
+  <img src="Z:/picture/008/save_picture_447207.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447193.jpg" />
+  <img src="Z:/picture/008/save_picture_447193.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447121.jpg" />
+  <img src="Z:/picture/008/save_picture_447121.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447022.jpg" />
+  <img src="Z:/picture/008/save_picture_447022.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447009.jpg" />
+  <img src="Z:/picture/008/save_picture_447009.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446921.jpg" />
+  <img src="Z:/picture/008/save_picture_446921.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446476.jpg" />
+  <img src="Z:/picture/008/save_picture_446476.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446247.jpg" />
+  <img src="Z:/picture/008/save_picture_446247.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446193.jpg" />
+  <img src="Z:/picture/008/save_picture_446193.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446107.jpg" />
+  <img src="Z:/picture/008/save_picture_446107.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445246.jpg" />
+  <img src="Z:/picture/008/save_picture_445246.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444250.jpg" />
+  <img src="Z:/picture/008/save_picture_444250.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444240.jpg" />
+  <img src="Z:/picture/008/save_picture_444240.jpg" />
 </div>
 
 
@@ -635,62 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83EC6FBC15DED0AF385C4AE27969D956CD8747B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062127   (443892) от 12.10.2016
-
-Н.В. Абельмас | Занимательные игры и задания по математике и русскому языку для развития логического мышления (2005) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет воспитателям, учителям, родителям увлекательно и с пользой организовать свободное время детей младшего школьного возраста.
-
-В книге собран практический материал для занятий: головоломки со словами (шарады, кроссворды, ребусы, логогрифы, анаграммы, метаграммы, палиндромы и другие словесные задачи), вопросы на сообразительность, игры на внимательность, (   Читать дальше...   )Жанр: Обучение, развитиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45F877CBC575229EF55CD3DB73A309AC8EACD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944332   (442932) от 06.10.2015
-
-Виталий Ситников | Как написать сочинение. Для подготовки к ЕГЭ (2010) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442932.jpg" />
-</div>
-
-
-###  Подробнее
-
-правочник школьника – современное и самое полное учебное пособие, составленное по действующей базовой программе, утвержденной Министерством образования и науки РФ. Серия составлена и разработана опытными учителями московских школ и преподавателями МГУ им. М. В. Ломоносова.
-
-Издание, охватывающее все аспекты школьной программы, предназначено для школьников 4–11 классов, (   Читать дальше...   )Жанр: Образование, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA3D51FCD879B01FC0986CD46D8ACD289E66D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

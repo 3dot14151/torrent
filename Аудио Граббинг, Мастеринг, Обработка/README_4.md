@@ -1,3 +1,108 @@
+###  Публикация: 984955   (935271) от 11.02.2016
+
+Digital Audio Converter 2.6 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель Digital Audio Converter является преобразования аудио файлов из одного формата в другой по Вашему желанию и сохранения их на жестком диске. Следующие форматы аудио доступны для преобразования: WAV (PCM), OGG Vorbis, MP3, WMA, FLAC, APE, MPC, SPX, TTA, WV, AAC.
+Преобразования аудио файлов пользователю цифровой аудио конвертер найдете возможность указать частоту, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C020CB2C6BA1E60ADE7B7016E3A50BD8700BD7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754898   (931059) от 08.02.2014
+
+Visual MP3 Splitter & Joiner 8.2 Build 85 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual MP3 Splitter & Joiner - небольшая и удобная программа, предназначенная разделять и соединять WAV и MP3 файлы. Быстрая нарезка файлов без декомпрессии и потери качества. Для разделения файлов Вам нет необходимости выбирать вручную начальные и конечные точки фрагмента. Достаточно выбрать необходимую часть визуально, при помощи мыши - программа прорисовывает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134D53F671D103CD7527EFC0FC34064B3028AAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365967   (927113) от 09.03.2020
+
+SoundSpot - Union 1.0.3 VSTi, VSTi3, AAX (x86/x64) Repack by R2R + Union Expansion [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Union - это звуковой плагин волнового синтезатора нового поколения SoundSpot, обладающий уникальным волновым генератором, который позволяет создавать гармонически насыщенные волновые наборы из выходных сигналов основных генераторов Union. Этот метод часто используется лучшими мировыми звуковыми дизайнерами для создания насыщенных и глубоких звуков. Union позволяет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3022C100FFDAC68F0FBDF13CE1C5C802175BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489520   (925527) от 16.08.2021
+
+Trident Audio Developments - LTS Tiltration Plugin 1.0.0 VST3, AAX (x64) RePack by RET [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tiltration сочетает в себе недавно разработанный процессор сатурации, использующий 8-кратную цифровую передискретизацию для обеспечения достоверно смоделированного гармонического искажения Trident на любом источнике звука. На борту вы найдете двухступенчатый эквалайзер Tonelux Loudness и Tilt EQ для повышения гибкости. Кроме того, мы включаем переменные фильтры верхних (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F90076C886F9C497FBD70A0F9A86068A0489FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489922   (921739) от 18.08.2021
 
 Waves - Complete v12 (02.08.2021) VST, VST3, AAX, STANDALONE (x64) RePack by RET [En]
@@ -6,7 +111,7 @@ Waves - Complete v12 (02.08.2021) VST, VST3, AAX, STANDALONE (x64) RePack by RET
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921739.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ MAAT - thEQorange 2.1.3 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918961.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Algonaut - Atlas 2 2.0.2 STANDALONE, VSTi, VSTi3 (x64) RePack by RET [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907170.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Krotos - Concept 2.0.3 VSTi, VSTi3, AAX (x64) RePack by RET [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907153.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Solid State Logic - Native Channel Strip 2 1.0.0.36 VST, VST3, AAX (x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907056.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Steinberg Absolute 5 VSTi, VSTi3, AAX (x64) (Web Installer) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903908.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ Slate Digital - Virtual Mix Rack Complete 2.6.4.0 VST, VST3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896979.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ GiliSoft Audio Editor 2.2.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896594.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Abyssmedia Audio Converter Plus 6.6.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888876.jpg" />
+  <img src="Z:/picture/005/save_picture_888876.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Sonible - smart:reverb 1.0.1 VST, VST3, AAX (x64) RePack by RET [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884439.jpg" />
+  <img src="Z:/picture/005/save_picture_884439.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ TC Electronic - Finalizer 1.0.10 RePack by RET (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872453.jpg" />
+  <img src="Z:/picture/008/save_picture_872453.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Soft4Boost Any Audio Grabber 7.7.9.389 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868905.jpg" />
+  <img src="Z:/picture/008/save_picture_868905.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ Soft4Boost Any Audio Record 6.7.9.389 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868899.jpg" />
+  <img src="Z:/picture/008/save_picture_868899.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ ToonTrack - Superior Drummer 2.4.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857331.jpg" />
+  <img src="Z:/picture/008/save_picture_857331.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ Image-Line Synth-Plugins Bundle 09.2021 VSTi (x64/x86) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856037.jpg" />
+  <img src="Z:/picture/008/save_picture_856037.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ Native Instruments - Absynth 5 5.3.4 STANDALONE, VSTi, AAX (x64/x86) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855895.jpg" />
+  <img src="Z:/picture/008/save_picture_855895.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ Arturia - SQ80 V 1.0.0 STANDALONE, VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854287.jpg" />
+  <img src="Z:/picture/008/save_picture_854287.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ Physical Audio - Dual Spring Reverb 3.1.3 VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854284.jpg" />
+  <img src="Z:/picture/008/save_picture_854284.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ Physical Audio - Dynamic Plate Reverb 3.1.3 VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854279.jpg" />
+  <img src="Z:/picture/008/save_picture_854279.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ WXAudio - NANI Plugin 1.2.0 VST3 (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851156.jpg" />
+  <img src="Z:/picture/008/save_picture_851156.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ Synapse Audio - Obsession 1.1.1 VSTi, VSTi3, AAX, NKS (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849424.jpg" />
+  <img src="Z:/picture/008/save_picture_849424.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ Delta Sound Labs - Fold 1.1.0 VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847960.jpg" />
+  <img src="Z:/picture/008/save_picture_847960.jpg" />
 </div>
 
 
@@ -573,111 +678,6 @@ Fold - это плагин для создания звуковых эффект
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7EFF3898CA6CB9DA666DC7DB67D33BC1164EDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499526   (847673) от 02.10.2021
-
-Reason RE Synapse Audio Synths 09.2021 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из трёх инструментов(Obsession, The Legend и Antidote) от Synapse Audio для Reason Rack Extension.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6895726A0703B332C8F7B7BF5B594C24649C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499681   (847670) от 02.10.2021
-
-Reason RE Synapse Audio Effects 09.2021 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synapse Audio предлагает широкий выбор высококачественных эффект плагинов для расширения стойки, адаптированных для Reason.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C267160D0B81BF911EFA2827CAA2330C697292C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499580   (847669) от 02.10.2021
-
-Tracktion Software & Dawesome Music - Abyss 1.1.3 VSTi3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мрачный. Яркий. Органичный. Богатый. Вдохновляющий. Быстрый. Наглядный. Мистический. Модулирующий.
-Abyss - это визуальный синтезатор в котором представлены темные вибрирующие дроны, яркие кинематографические пэды и богатые развивающиеся текстуры. С Abyss вы мгновенно найдете вдохновение для своих музыкальных и звуковых проектов!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2C95D23906D4DD886B5E0C64AE3C3ED2297B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499494   (847582) от 02.10.2021
-
-Reason RE DNA Labs Aquios X4 1.0.2 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляните на рабочую станцию Aquios X4 ROM, основанную на сигналах, оснащенную легендарным звуковым банком, эйфорическими пэдами, безумно футуристическими пилами, модулированными клубными колокольчиками, достойными Голливуда струнными секциями, элегантными и первозданными фортепиано, гигантской кинематографической медью, великолепными ангельскими хорами, пугающими (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F913B594887C8E42CC60A4A7B85F565B6EAA926C
 ```
 
 https://mybot314.ru/tekegram_catalog/

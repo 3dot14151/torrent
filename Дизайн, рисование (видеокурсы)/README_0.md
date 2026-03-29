@@ -1,3 +1,29 @@
+###  Публикация: 1840873   (1047638) от 07.12.2025
+
+Академия Нолим, Максим Мазурин | Верстка на Тильде с нуля до pro (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1047638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический курс для веб-дизайнеров. Научитесь с нуля качественно верстать сайты с использованием современных принципов веб-дизайна, без знания программирования.Производство: Академия НолимЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 14:17:37Реклама: наложение на видео и в презентации (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161C6A0B26B0840885F88B3FD48BD8E13708C6DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840859   (1047578) от 07.12.2025
 
 Fashion Factory, Гузель Юзеева | Fashion-иллюстрация (2025) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ Fashion Factory, Гузель Юзеева | Fashion-иллюстрация (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047578.jpg" />
+  <img src="Z:/picture/008/save_picture_1047578.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gumroad, Mitch Leeuwe | Collection of drawing guides (2019-2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047340.jpg" />
+  <img src="Z:/picture/005/save_picture_1047340.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046603.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046588.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Knower School, Дмитрий Смирнов | Курс игровой граф�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045619.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045346.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044897.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044790.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Videosmile, Дмитрий Кузнецов | Супер Illustrator (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044779.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ Timesavervfx, Александр Ежов | Живые фото - Анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044667.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ Saharovigor, Анна Маратканова | Горный пейзаж с до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044409.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044370.jpg" />
 </div>
 
 
@@ -341,7 +367,7 @@ Breezzly, Анастасия Свеженцева | Веб-дизайн и ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044276.jpg" />
 </div>
 
 
@@ -369,7 +395,7 @@ CGBoost Academy, Martin Klekner | Пусковая площадка програ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044272.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ The Gnomon Workshop, Daniel Zeni | Создание модели в Zbrush то�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044266.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Udemy, Creativity Unleashed | Blender Character Creation Megacourse: Beginner to
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044181.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ SideFX, Nikola Damjanov | TheComplete A-Z Terrain Handbook:  ND edition (2022) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044111.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ CG Boost, Kevin Ramirez | Master Grease Pencil in Blender (2022) PCRec [AD] [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044105.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ FlippedNormals | Unreal Engine 5 - How to Create Professional Cinematics (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044099.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Stepik, Evgen Marfel | Веб-дизайн в Figma 2023 (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044095.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Udemy, Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043989.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Stepik, Evgen Marfel | Создание UI KIT в FIGMA. Делаем и про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043873.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Art-Kustova-school, Анастасия Кустова | Акварельный �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043211.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Michael Pavlovich | Zbrush for Ideation. Unit 04. Creation Technics. Forms (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043022.jpg" />
 </div>
 
 
@@ -670,7 +696,7 @@ Michael Pavlovich | Zbrush for Ideation Unit 01 The Basics (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042977.jpg" />
 </div>
 
 
@@ -681,32 +707,6 @@ Michael Pavlovich | Zbrush for Ideation Unit 01 The Basics (2018) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:863711751D95DA2E57720734F782F588F2549057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436787   (1042764) от 02.01.2021
-
-Steven Knipping | Applied Houdini Rigids VI (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего).Производство: CGcircuitЖанр: Создание видеоПродолжительность: 04:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBC6473EA4337B14AD39E497D46AFB6F6576172
 ```
 
 https://mybot314.ru/tekegram_catalog/

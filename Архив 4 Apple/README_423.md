@@ -1,3 +1,109 @@
+###  Публикация: 1417558   (358408) от 20.10.2020
+
+NAMO 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358408.jpg" />
+</div>
+
+
+###  Подробнее
+
+NAMO - это приложение, которое помогает запустить локальный DNS-сервер на вашем Mac. Вам не обязательно быть профессионалом в области сетевых технологий: простой пользовательский интерфейс позволяет любому человеку установить и настроить сервер под macOS в течение нескольких минут.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: MAMP GmbHПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3110BE255AEF24F482720E9D72CD1635FAC49D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417413   (358264) от 20.10.2020
+
+Reeder 5 v5.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа чтения новостей для Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: Silvio RizziПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14138ED772DA46D49822F225B10F914BF26C35A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417420   (358257) от 20.10.2020
+
+MacBooster 8 Pro 8.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358257.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacBooster поможет настроить и ускорить работу macOS. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: IObitПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5784DD28DBAB6A84DF5E537092BA4812DA42CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328927   (358175) от 02.10.2019
+
+Maxon Cinema 4D R20.026 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+CINEMA 4D Studio – это самое лучшее, что MAXON может предложить профессиональным 3D-художникам. Если вы профессионально работаете с 3D-графикой и вы хотите быстро и с легкостью достичь потрясающего результата, то это - ваш выбор.
+Обладая всей функциональностью пакетов CINEMA 4D Prime, Visualize, и Broadcast, CINEMA 4D Studio включает в себя также прогрессивные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: MAXON Computer GmbHПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7528B5AED382DAB92D8AA5EE4817688B3F9975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417501   (358074) от 20.10.2020
 
 Sketch 69.1 [En]
@@ -6,7 +112,7 @@ Sketch 69.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358074.jpg" />
+  <img src="Z:/picture/008/save_picture_358074.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Transmit 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357979.jpg" />
+  <img src="Z:/picture/008/save_picture_357979.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357859.jpg" />
+  <img src="Z:/picture/008/save_picture_357859.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Remotix VNC, RDP & NEAR 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357856.jpg" />
+  <img src="Z:/picture/008/save_picture_357856.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Zoc Terminal 7.26.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357813.jpg" />
+  <img src="Z:/picture/008/save_picture_357813.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Adobe InDesign CC 2018 v13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357765.jpg" />
+  <img src="Z:/picture/008/save_picture_357765.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357652.jpg" />
+  <img src="Z:/picture/008/save_picture_357652.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Adobe Zii СС2018 Universal Patcher 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357637.jpg" />
+  <img src="Z:/picture/008/save_picture_357637.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Paragon NTFS for Mac 14.0.543 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357416.jpg" />
+  <img src="Z:/picture/008/save_picture_357416.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Kaspersky Virus Scanner 8.1.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357154.jpg" />
+  <img src="Z:/picture/005/save_picture_357154.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ File Juicer 4.97 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357033.jpg" />
+  <img src="Z:/picture/008/save_picture_357033.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ Aiseesoft Mac FoneTrans 9.1.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356892.jpg" />
+  <img src="Z:/picture/008/save_picture_356892.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ AirMail Pro 5 v.5.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356890.jpg" />
+  <img src="Z:/picture/008/save_picture_356890.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356827.jpg" />
+  <img src="Z:/picture/008/save_picture_356827.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ Wondershare Filmora 11 v.11.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356767.jpg" />
+  <img src="Z:/picture/008/save_picture_356767.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ Sip Pro 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356037.jpg" />
+  <img src="Z:/picture/008/save_picture_356037.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ GoodTask 2.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356035.jpg" />
+  <img src="Z:/picture/008/save_picture_356035.jpg" />
 </div>
 
 
@@ -464,7 +570,7 @@ Grids for Instagram 4.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355935.jpg" />
+  <img src="Z:/picture/008/save_picture_355935.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ Piezo 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355908.jpg" />
+  <img src="Z:/picture/008/save_picture_355908.jpg" />
 </div>
 
 
@@ -522,7 +628,7 @@ IconJar 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355905.jpg" />
+  <img src="Z:/picture/008/save_picture_355905.jpg" />
 </div>
 
 
@@ -551,7 +657,7 @@ DupeZap 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355904.jpg" />
+  <img src="Z:/picture/008/save_picture_355904.jpg" />
 </div>
 
 
@@ -580,7 +686,7 @@ DropDMG 3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355903.jpg" />
+  <img src="Z:/picture/008/save_picture_355903.jpg" />
 </div>
 
 
@@ -592,117 +698,6 @@ DropDMG 3.6 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0698987BF455E0918570A829979CD5E91FB990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417688   (355898) от 21.10.2020
-
-Duplicate File Finder Pro 6.9  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355898.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrimeFile - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Drag & drop столько папок, сколько вы хотите, и нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатов файлов по категориям: изображения, видео, музыки, архивы, документы и др.. Это очень легко, чтобы увидеть, сколько места занимает каждый файл.
-
-В Pro версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B64AC433912FFA3271A431965C0C59757F799F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417754   (355895) от 21.10.2020
-
-DxO PhotoLab 4 ELITE Edition 4.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3506B2386618BF3F22015466C6F6179DC5556F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417719   (355893) от 21.10.2020
-
-Disk Expert Pro 3 v3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Expert - приложени позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
-
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные DMG-образы и сетевые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA8130C7E776F05DFE34F8884172747605D11C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417749   (355760) от 21.10.2020
-
-4K Stogram Pro for Mac 3.1.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355760.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CCC2E1903464EB5000D916BB6CEA5595AE7FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

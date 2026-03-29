@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1861694   (1062759) от 
+
+NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракон Комодо захватывал наше воображение более века, но мы только сейчас раскрываем некоторые из его самых невероятных секретов.Производство: США | Yellow Border Production Services, National GeographicЖанр: документальный, природаРежиссер: Джефф ЛакПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEDE87967A4F01BE5776F9CF221E63D072C1D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861042   (1062196) от 
+
+NG. Озеро Танганьика. Голубое сердце Африки / Lake Tanganyika: Africa's Blue Heart (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озеро Танганьика, одно из крупнейших озер на земле, сочетает в себе два разных, но одинаково волшебных мира: нетронутую пустыню вдоль берегов, домом для шимпанзе, слонов и антилоп и впечатляюще разнообразной подводной вселенной. Озеро во многом схоже с океаном: великолепные закаты, периодические штормы с ужасающими волнами и воды, полные сардин, разноцветных рыб, (   Читать дальше...   )Производство: Австрия, Германия, Cosmos Factory, OFR, ZDFЖанр: документальный, природа, фауна, флораРежиссер: Харальд ПокизерУчастники: Отто Клеменс, Томас ЕйхорнПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473FC91865C84E83CE1FC6332A894324F8020177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860522   (1061956) от 
+
+NG. Фашистский лагерь смерти. Большой побег / Nazi Death Camp: The Great Escape (2014) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нацистский лагерь смерти в Собиборе был создан для массового уничтожения евреев. 14 октября 1943 года, заключенные устроили в нем самое крупное и успешное восстание во Второй мировой войне. Из 600 заключенных, удалось убежать трёмстам. Около пятидесяти из них пережили войну, и из них только горстка все еще жива. Они раскрывают правдивую историю этого восстания и (   Читать дальше...   )Производство: Великобритания / Darlow Smithson ProductionsЖанр: документальный, история, ВОВ, реконструкцияРежиссер: Хэрвард ПэллингУчастники: Эрик Мейерс, Андреас Беккет, Георг НиколлоффПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E2ABF115CEDD03BDEDCFCA3345A63CE21BEEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856410   (1058853) от 28.02.2026
 
 NG. Намибия - убежище гигантов / Namibia: Sanctuary of Giants (2016) WEB-DL [H.264/1080p]
@@ -7,7 +85,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058853.jpg" />
+  <img src="Z:/picture/005/save_picture_1058853.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055954.jpg" />
+  <img src="Z:/picture/005/save_picture_1055954.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055484.jpg" />
+  <img src="Z:/picture/005/save_picture_1055484.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052942.jpg" />
+  <img src="Z:/picture/005/save_picture_1052942.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052936.jpg" />
+  <img src="Z:/picture/005/save_picture_1052936.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052150.jpg" />
+  <img src="Z:/picture/005/save_picture_1052150.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051867.jpg" />
+  <img src="Z:/picture/005/save_picture_1051867.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051861.jpg" />
+  <img src="Z:/picture/005/save_picture_1051861.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050282.jpg" />
+  <img src="Z:/picture/005/save_picture_1050282.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049941.jpg" />
+  <img src="Z:/picture/005/save_picture_1049941.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047621.jpg" />
+  <img src="Z:/picture/008/save_picture_1047621.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046846.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046779.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046778.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046693.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043536.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041850.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ NG: Самые страшные стихийные бедствия: Извер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040275.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ NG. Опасные встречи / Dangerous Encounters (2006-2011) DVDRip (24 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039091.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036125.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035824.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034739.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026201.jpg" />
 </div>
 
 
@@ -590,85 +668,6 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C76FF86149D6765E7D69E1563ED18492B7A6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452873   (1025357) от 20.03.2021
-
-Расследования авиакатастроф. Спецвыпуски / Air Crash Investigation (2021) HDTV [H.264/1080i] (1-10 серии из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Двуголосый профессиональныйПродолжительность: серии по ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116D977811891B97A352B02A53B7334917AC3D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159308   (1024828) от 23.03.2021
-
-NGW: Удивительные большероты / Incredible Gulpers (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024828.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дикой природе можно встретить большеротых существ, они без проблем могут проглотить еду целиком и зачастую живьём.
-Они все разных форм и размеров. Но у них есть две общие черты: гигантская пасть и чудовищный аппетит. Это - животные большероты. У одних обжор есть зубы, а другим они ни к чему. Завидущие глаза и ненасытные утробы не знакомы с правилами столового этикета. (   Читать дальше...   )Производство: США, Earth Touch and SN/SI Networks L.L.CЖанр: Документальный, природа, флора, фаунаРежиссер: Ванесса ЛукасПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459445   (1022909) от 03.04.2021
-
-NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [H.264/1080i] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные мощные суперкары - это удивительный симбиоз искусства и науки. Сериал "Производство суперкаров" познакомит вас с процессом их производства, проникнув за кулисы нескольких из самых легендарных автомобильных брендов, чтобы вы смогли узнать секреты инжиниринга и ключевые решения, которые способствовали успеху этих технологических чудес на рынке.Производство: США, Cry Havoc Productions Inc.Жанр: Документальный, суперкары, технологии.Перевод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1CA17E93A40E211D6CBCD3846D5254088E3C5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

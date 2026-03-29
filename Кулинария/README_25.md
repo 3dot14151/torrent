@@ -1,3 +1,29 @@
+###  Публикация: 1281712   (749701) от 09.02.2019
+
+Владимир Давыдов и др. | Лучшие американские пиццы (2019) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все любят пиццу! И любят о ней говорить, ведь пицца – это самое продаваемое в мире блюдо. В книге "Лучшие пиццы Америки" Владимир Давыдов с соавторами описали тесто и пиццы в регионах Америки – от Детройта до Чикаго, от Нью-Йорка до Калифорнии, со всеми возможными вариантами соусов, сыров, ингредиентов и топпингов. Из 5 млрд. пицц 3 млрд. в год выпекаются (   Читать дальше...   )Жанр: Кулинария, Малый бизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875B8E80F3E17E18A34DC358A8A4C17E2BCCDE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281720   (749699) от 09.02.2019
 
 Эркин Тузмухамедов | Бухло (2018) [FB2]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749699.jpg" />
+  <img src="Z:/picture/008/save_picture_749699.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747980.jpg" />
+  <img src="Z:/picture/008/save_picture_747980.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747967.jpg" />
+  <img src="Z:/picture/008/save_picture_747967.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747958.jpg" />
+  <img src="Z:/picture/008/save_picture_747958.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747774.jpg" />
+  <img src="Z:/picture/008/save_picture_747774.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747558.jpg" />
+  <img src="Z:/picture/008/save_picture_747558.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746405.jpg" />
+  <img src="Z:/picture/008/save_picture_746405.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746223.jpg" />
+  <img src="Z:/picture/008/save_picture_746223.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744897.jpg" />
+  <img src="Z:/picture/008/save_picture_744897.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744614.jpg" />
+  <img src="Z:/picture/005/save_picture_744614.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743501.jpg" />
+  <img src="Z:/picture/008/save_picture_743501.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743328.jpg" />
+  <img src="Z:/picture/008/save_picture_743328.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742561.jpg" />
+  <img src="Z:/picture/008/save_picture_742561.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741604.jpg" />
+  <img src="Z:/picture/008/save_picture_741604.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739761.jpg" />
+  <img src="Z:/picture/008/save_picture_739761.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738707.jpg" />
+  <img src="Z:/picture/008/save_picture_738707.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738667.jpg" />
+  <img src="Z:/picture/008/save_picture_738667.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Avedzovg | Кулинарная книга дока "Пельмешки без �
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737202.jpg" />
+  <img src="Z:/picture/008/save_picture_737202.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736841.jpg" />
+  <img src="Z:/picture/008/save_picture_736841.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731853.jpg" />
+  <img src="Z:/picture/008/save_picture_731853.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731736.jpg" />
+  <img src="Z:/picture/008/save_picture_731736.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731616.jpg" />
+  <img src="Z:/picture/008/save_picture_731616.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730627.jpg" />
+  <img src="Z:/picture/008/save_picture_730627.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728713.jpg" />
+  <img src="Z:/picture/008/save_picture_728713.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728638.jpg" />
+  <img src="Z:/picture/008/save_picture_728638.jpg" />
 </div>
 
 
@@ -658,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FAAB1D5820410AA92032C9CBAE1A84D4F7A5F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023226   (725729) от 04.06.2016
-
-Джин Стоун | Вилки вместо ножей. Простой путь к здоровью (2016) [EPUB]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство по здоровому питанию от ведущих экспертов.
-Какое простое изменение может защитить вас от проблем с сердцем, диабета и рака? Ученые и исследователи, занимавшиеся знаменитым проектом "Вилки против ножей", нашли свой ответ - цельная, непереработанная и растительная пища может спасти вашу жизнь.
-К такому выводу пришли эксперты, среди (   Читать дальше...   )Жанр: Кулинария, ЗдоровьеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CACDC0F205ECB4F681199C067D77F931CBD066
 ```
 
 https://mybot314.ru/tekegram_catalog/

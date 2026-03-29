@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705177.jpg" />
+  <img src="Z:/picture/008/save_picture_705177.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705175.jpg" />
+  <img src="Z:/picture/008/save_picture_705175.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sumatra PDF 3.4.14276 Pre-release + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705174.jpg" />
+  <img src="Z:/picture/008/save_picture_705174.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Zortam Mp3 Media Studio Pro 29.25 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705170.jpg" />
+  <img src="Z:/picture/008/save_picture_705170.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CrystalDiskMark 4.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705167.jpg" />
+  <img src="Z:/picture/008/save_picture_705167.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hallo northern sky 4.2.3 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705166.jpg" />
+  <img src="Z:/picture/008/save_picture_705166.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ant Download Manager Pro 2.6.1 Build 80894 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705157.jpg" />
+  <img src="Z:/picture/008/save_picture_705157.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Opera GX 83.0.4254.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705155.jpg" />
+  <img src="Z:/picture/008/save_picture_705155.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ K-Lite Codec Pack 15.6.8 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705147.jpg" />
+  <img src="Z:/picture/008/save_picture_705147.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Reg Organizer 8.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705140.jpg" />
+  <img src="Z:/picture/008/save_picture_705140.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Reg Organizer 8.52 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705138.jpg" />
+  <img src="Z:/picture/008/save_picture_705138.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cyberfox 52.1.2 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705116.jpg" />
+  <img src="Z:/picture/008/save_picture_705116.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Serial 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705105.jpg" />
+  <img src="Z:/picture/008/save_picture_705105.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PhotoSweeper X 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705095.jpg" />
+  <img src="Z:/picture/008/save_picture_705095.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Notepad++ 7.6.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705057.jpg" />
+  <img src="Z:/picture/008/save_picture_705057.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ XnConvert 1.80 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705056.jpg" />
+  <img src="Z:/picture/008/save_picture_705056.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705042.jpg" />
+  <img src="Z:/picture/008/save_picture_705042.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ MediaInfo 20.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705041.jpg" />
+  <img src="Z:/picture/008/save_picture_705041.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Nox App Player 6.6.1.2000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705040.jpg" />
+  <img src="Z:/picture/008/save_picture_705040.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705036.jpg" />
+  <img src="Z:/picture/008/save_picture_705036.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Adobe Acrobat Reader DC 2020.012.20041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705035.jpg" />
+  <img src="Z:/picture/008/save_picture_705035.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Foxit PhantomPDF Business 10.0.1.35811 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705027.jpg" />
+  <img src="Z:/picture/008/save_picture_705027.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705016.jpg" />
+  <img src="Z:/picture/008/save_picture_705016.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705015.jpg" />
+  <img src="Z:/picture/008/save_picture_705015.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705014.jpg" />
+  <img src="Z:/picture/008/save_picture_705014.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Skype 8.81.0.268 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705007.jpg" />
+  <img src="Z:/picture/008/save_picture_705007.jpg" />
 </div>
 
 

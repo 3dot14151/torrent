@@ -1,3 +1,81 @@
+###  Публикация: 918489   (571677) от 27.07.2015
+
+Шинэндоа / Shenandoah (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место и время действия: Вирджиния в эпоху Гражданской войны. Герой фильма отказывается поддерживать конфедератов, он против рабства, однако не хочет становиться и на сторону северян, так как совершенно не приемлет войны. Когда его сын попадает в плен, Стюарт отправляется на поиски мальчика. Теперь он собственными глазами видит ужасы войны и в результате вынужден (   Читать дальше...   )Производство: США / Universal PicturesЖанр: Драма, Вестерн, ВоенныйРежиссер: Эндрю В. МакЛагленАктеры: Джеймс Стюарт, Даг МакКлёр, Гленн Корбетт, Патрик Уэйн, Розмари Форсайт, Филлип Элфорд, Кэтрин Росс, Чарльз Робинсон, Джим МакМуллан, Тим МакИнтайрПеревод: Многоголосый закадровый, Петербург 5-й КаналСубтитры: ОтсутствуютПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E32D27E19CF2AEED5429F21547FA6BC65D79699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916715   (571634) от 27.07.2015
+
+Великий Уолдо Пеппер / The Great Waldo Pepper (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесшабашный Уолдо Пеппер, лётчик-ас Первой мировой войны, зарабатывает на жизнь выступлениями на авиашоу. Но однажды он встречает в небе своего старого противника — немецкого пилота Эрнста Кесслера…Производство: СШАЖанр: Приключения, драмаРежиссер: Джордж Рой ХиллАктеры: Роберт Редфорд, Бо Свенсон, Бо Брандин, Сьюзен Сарандон, Эдвард Херрманн, Филип Бранс, Родерик Кук, Келли Джина Питерс, Марго Киддер, Скотт Ньюман, Джеймс Н. Харрелл, Джо Биллингс, Джек Мэннинг, Лоуренс П. Кэйси, Арт ШолльПеревод: Профессиональный многоголосыйПродолжительность: 01:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0550E1556FBD9BA9ACCEC02511D0F09CFB237A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918368   (571428) от 27.07.2015
+
+Орел или Решка / Pari e dispari (1978) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571428.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как лейтенанта Джонни Фирпо лишает победы спортивная мафия, подстроив поломку мотора скутера, терпению командования военно-морских сил приходит конец. Джонни посылают разобраться с игорной мафией, проникшей во все спортивные мероприятия во Флориде. И неоценимую помощь в этом деле ему окажет его брат Чарли...Производство: ИталияЖанр: Комедия, криминалРежиссер: Серджио КорбуччиАктеры: Теренс Хилл, Бад Спенсер, Лучано Катеначчи, Мариса Лаурито, Ким МакКэй, Сальваторе Боргезе, Джерри Лестер, Вуди Вудбери, Карло Реали, Риккардо ПиццутиПеревод: Профессиональный многоголосыйПродолжительность: 01:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BF66CA65CBB473B6CC145CD2255031BBC00955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916739   (571338) от 27.07.2015
 
 Дикарь / Le sauvage (1975) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571338.jpg" />
+  <img src="Z:/picture/008/save_picture_571338.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571128.jpg" />
+  <img src="Z:/picture/008/save_picture_571128.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570615.jpg" />
+  <img src="Z:/picture/008/save_picture_570615.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570212.jpg" />
+  <img src="Z:/picture/008/save_picture_570212.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570042.jpg" />
+  <img src="Z:/picture/008/save_picture_570042.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569750.jpg" />
+  <img src="Z:/picture/008/save_picture_569750.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569192.jpg" />
+  <img src="Z:/picture/008/save_picture_569192.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568766.jpg" />
+  <img src="Z:/picture/008/save_picture_568766.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568737.jpg" />
+  <img src="Z:/picture/008/save_picture_568737.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568059.jpg" />
+  <img src="Z:/picture/008/save_picture_568059.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568024.jpg" />
+  <img src="Z:/picture/008/save_picture_568024.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567977.jpg" />
+  <img src="Z:/picture/008/save_picture_567977.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567796.jpg" />
+  <img src="Z:/picture/008/save_picture_567796.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567677.jpg" />
+  <img src="Z:/picture/008/save_picture_567677.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567100.jpg" />
+  <img src="Z:/picture/008/save_picture_567100.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566930.jpg" />
+  <img src="Z:/picture/008/save_picture_566930.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566856.jpg" />
+  <img src="Z:/picture/008/save_picture_566856.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566603.jpg" />
+  <img src="Z:/picture/008/save_picture_566603.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566365.jpg" />
+  <img src="Z:/picture/008/save_picture_566365.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566132.jpg" />
+  <img src="Z:/picture/008/save_picture_566132.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565151.jpg" />
+  <img src="Z:/picture/008/save_picture_565151.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564739.jpg" />
+  <img src="Z:/picture/008/save_picture_564739.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564395.jpg" />
+  <img src="Z:/picture/008/save_picture_564395.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD3DC6D39AEDDCFC2ECA871DEEF82F4927EEC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 813312   (563175) от 18.08.2014
-
-Зовите меня 'О'! / Ho! (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автогонщик Франсуа Олен, по вине которого погибает его друг, бросает мир спорта и уходит в гангстеры. Его ценят за умение водить машину, но не любят и считают чужаком…Производство: Франция, Италия / Cocinor, Filmsonor S.A., Les Films Marceau, Mega FilmЖанр: БоевикРежиссер: Робер ЭнрикоАктеры: Жан-Поль Бельмондо, Джоанна Шимкус, Раймон Бюссьер, Поль Кроше, Стефан Фей, Алан Мотте, Тони Таффен, Андре Вебер, Жан-Пьер Бертран, Эрманно КазановаПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF3A2840C11BB1A437A148BD7F8DDC90E4A98C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150721   (563147) от 24.07.2017
-
-Как хорошо жить / Che gioia vivere (1961) DVDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия, начало 1920-х годов. Улисс Чекконато, демобилизовавшийся из армии, ищет работу. Предложение фашистской организации он отвергает. Судьба сводит Улисса с анархистски настроенным семейством Фоссати, где его внимание привлекает красавица Франка…Производство: Италия, ФранцияЖанр: КомедияРежиссер: Рене КлеманАктеры: Ален Делон, Барбара Ласс, Джино Черви, Рино Морелли, Карло Пизакане, Паоло Стоппа, Диди Перего, Нанда Примавера, Уго ТоньяцциПеревод: Профессиональный многоголосый (5-ый канал СПБ)Субтитры: ОтсутствуютПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA2AF49F7E5D3373035F2086B9A3AC02E90AD6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043272   (563114) от 21.08.2016
-
-Долгая дуэль / The Long Duel (1967) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатые годы, правление Британской империи в Индии. Полицейский Юнг обязан поддерживать порядок и закон Британии на своем участке. В тоже время он симпатизирует освободительной борьбе индусов. По долгу службы ему необходимо разобраться с индускими повстанцами и их предводителем Султаном…Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: Боевик, Драма, ПриключенияРежиссер: Кен ЭннакинАктеры: Юл Бриннер, Тревор Ховард, Гарри Эндрюс, Эндрю Кир, Шарлотта Рэмплинг, Вирджиния Норт, Лоуренс Нэйсмит, Морис Денэм, Имоджен Хассалл, Пол ХардвикПеревод: Многоголосый закадровыйПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54346AE254164580DD9D7DAB7A35A626E4076271
 ```
 
 https://mybot314.ru/tekegram_catalog/

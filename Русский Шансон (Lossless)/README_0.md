@@ -6,7 +6,7 @@ VA - Русская 30-ка хитов 18 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049270.jpg" />
+  <img src="Z:/picture/008/save_picture_1049270.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Сентиментальный шансон, Часть 3 (2025) [FLAC|Loss
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049268.jpg" />
+  <img src="Z:/picture/008/save_picture_1049268.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Шансон премьера 2025 декабрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049266.jpg" />
+  <img src="Z:/picture/008/save_picture_1049266.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vir Varius Projects - Небо в решку: Русский шансон #1 (20
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049264.jpg" />
+  <img src="Z:/picture/008/save_picture_1049264.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vir Varius Projects - Околесица: Русский шансон #2 (2025) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049263.jpg" />
+  <img src="Z:/picture/008/save_picture_1049263.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049097.jpg" />
+  <img src="Z:/picture/008/save_picture_1049097.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Лучшие хиты шансона в машину (2025) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047686.jpg" />
+  <img src="Z:/picture/008/save_picture_1047686.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Новогодний шансон 2026 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047685.jpg" />
+  <img src="Z:/picture/008/save_picture_1047685.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Сентиментальный шансон, Часть 2 (2025) [FLAC|Loss
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047684.jpg" />
+  <img src="Z:/picture/008/save_picture_1047684.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 50 песен радио шансон, Часть 8 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047021.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Новые хитовые песни 2025, Часть 11 (2025) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047017.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Шансон премьера 2025 октябрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047014.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Шансон премьера 2025 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047011.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - На волне любимого радио шансон (2005) 2 CD [FLAC|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041833.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037181.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036970.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Песни нашего времени 4 (2005) [FLAC|Lossless|tracks + .cu
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033281.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Шоферской 12 (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033279.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032746.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Шансонный хит 3 (2003) [FLAC|Lossless|tracks + .cue]<Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031377.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Криминальная Россия 3 (2001) [FLAC|Lossless|tracks + .cue
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031373.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Новое поколение русского шансона (2003) [FLAC|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031371.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Шансонная осень (2002) [FLAC|Lossless|tracks + .cue]<Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031356.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030664.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029720.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029580.jpg" />
 </div>
 
 

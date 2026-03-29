@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861950   (1062696) от 
+
+TutorPlace, Ильяc Азимов | Шахматы с нуля (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите овладеть шахматами и научиться выигрывать? Курс для начинающих, который охватывает все ключевые аспекты: от правил игры до хитрых тактик и стратегий!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 04:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211AACCE3872A31C865359D12C5DC726A90174BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859443   (1061294) от 
 
 Синхронизация, Вячеслав Дубынин | Как работает иммунитет (2020) PCRec [AD] [RU]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061294.jpg" />
+  <img src="Z:/picture/005/save_picture_1061294.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060892.jpg" />
+  <img src="Z:/picture/005/save_picture_1060892.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ vabrain, Вячеслав Дубынин | Нейромедиаторы радо
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060555.jpg" />
+  <img src="Z:/picture/005/save_picture_1060555.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ vabrain, Вячеслав Дубынин | Уровни любви: от ген�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060554.jpg" />
+  <img src="Z:/picture/005/save_picture_1060554.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060553.jpg" />
+  <img src="Z:/picture/005/save_picture_1060553.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ vabrain, Вячеслав Дубынин | Нейрофизиология при
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060552.jpg" />
+  <img src="Z:/picture/005/save_picture_1060552.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060549.jpg" />
+  <img src="Z:/picture/005/save_picture_1060549.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ vabrain, Вячеслав Дубынин | Физиология здоровог
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060548.jpg" />
+  <img src="Z:/picture/005/save_picture_1060548.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060206.jpg" />
+  <img src="Z:/picture/009/save_picture_1060206.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060203.jpg" />
+  <img src="Z:/picture/009/save_picture_1060203.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059682.jpg" />
+  <img src="Z:/picture/005/save_picture_1059682.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ TutorPlace, Юлия Подорова | Тренировки для рельеф
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058954.jpg" />
+  <img src="Z:/picture/005/save_picture_1058954.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ TutorPlace, Ксения Шушарина | Сам себе тренер (2025) 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058940.jpg" />
+  <img src="Z:/picture/005/save_picture_1058940.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048050.jpg" />
+  <img src="Z:/picture/008/save_picture_1048050.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030546.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030542.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027817.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026566.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026492.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Udemy, Orsi Yoga Pilates | Home and Travel Fitness Workout  (2021) PCRec [En / E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023236.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008778.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994629.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988316.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985186.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985154.jpg" />
 </div>
 
 
@@ -659,40 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615647   (975772) от 09.02.2013
-
-А. Ковтик | Бокс. Уроки профессионала для начинающих [2008] DVDRip[H264]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бокс – это сложный и опасный вид спортивных единоборств. Он требует от бойца физической силы и выносливости, превосходной реакции и координации, отточенной техники. Навыки боксера оказываются чрезвычайно эффективными и в экстремальных ситуациях, когда необходимо постоять за себя, за своих близких, за справедливость.
-Уроки ведет Александр Ковтик – мастер спорта международного класса, судья международной категории, тренер высшей категории. Достиг значительных высот в профессиональном боксе, кикбоксинге, муай тай, сань да: провел 157 боев, в 139 из них одержал победу. Чемпион Европы, трехкратный чемпион СНГ, шестикратный чемпион Беларуси. Автор более 40 публикаций по методике обучения спортивным единоборствам.
-На DVD представлены уроки:
-Все виды ударов.
-Все виды защиты
-Связки и серии
-Бой с тенью
-Работа в парах
-Работа в парах и на снарядахЖанр: СпортПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9618114D9633841AA8AEBE11C8E72F62E3BE2A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

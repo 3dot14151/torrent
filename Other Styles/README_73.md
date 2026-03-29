@@ -1,3 +1,61 @@
+###  Публикация: 1137708   (666721) от 27.05.2017
+
+Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song To Kama (6:34)
+02. Sounds From India (Part Two) (0:53)
+03. Song To Artha (4:18)
+04. Samprayoguika (6:41)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70493478237333FFE48FCCA5B42B287B2D90957B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133256   (666593) от 27.05.2017
+
+VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpenter Brut - Time to Wake Up (1:09)
+02. Danger - 6.24 (4:22)
+03. Carpenter Brut - Enraged (4:58)
+04. Waveshaper - A Picture in Motion (3:23)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3402937E59E1C4FCA72F8759BC596502A4E8184B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137630   (666578) от 27.05.2017
 
 VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -6,7 +64,7 @@ VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666578.jpg" />
+  <img src="Z:/picture/008/save_picture_666578.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666501.jpg" />
+  <img src="Z:/picture/008/save_picture_666501.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666500.jpg" />
+  <img src="Z:/picture/008/save_picture_666500.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666466.jpg" />
+  <img src="Z:/picture/008/save_picture_666466.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666227.jpg" />
+  <img src="Z:/picture/005/save_picture_666227.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666103.jpg" />
+  <img src="Z:/picture/005/save_picture_666103.jpg" />
 </div>
 
 
@@ -191,7 +249,7 @@ Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666012.jpg" />
+  <img src="Z:/picture/008/save_picture_666012.jpg" />
 </div>
 
 
@@ -220,7 +278,7 @@ Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666008.jpg" />
+  <img src="Z:/picture/008/save_picture_666008.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665421.jpg" />
+  <img src="Z:/picture/008/save_picture_665421.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664684.jpg" />
+  <img src="Z:/picture/008/save_picture_664684.jpg" />
 </div>
 
 
@@ -306,7 +364,7 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664342.jpg" />
+  <img src="Z:/picture/008/save_picture_664342.jpg" />
 </div>
 
 
@@ -335,7 +393,7 @@ The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664194.jpg" />
+  <img src="Z:/picture/008/save_picture_664194.jpg" />
 </div>
 
 
@@ -364,7 +422,7 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663350.jpg" />
+  <img src="Z:/picture/008/save_picture_663350.jpg" />
 </div>
 
 
@@ -393,7 +451,7 @@ VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661293.jpg" />
+  <img src="Z:/picture/008/save_picture_661293.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661291.jpg" />
+  <img src="Z:/picture/008/save_picture_661291.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660499.jpg" />
+  <img src="Z:/picture/008/save_picture_660499.jpg" />
 </div>
 
 
@@ -486,7 +544,7 @@ John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <So
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660008.jpg" />
+  <img src="Z:/picture/008/save_picture_660008.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660006.jpg" />
+  <img src="Z:/picture/008/save_picture_660006.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659910.jpg" />
+  <img src="Z:/picture/008/save_picture_659910.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659611.jpg" />
+  <img src="Z:/picture/008/save_picture_659611.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659283.jpg" />
+  <img src="Z:/picture/008/save_picture_659283.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659214.jpg" />
+  <img src="Z:/picture/008/save_picture_659214.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659194.jpg" />
+  <img src="Z:/picture/008/save_picture_659194.jpg" />
 </div>
 
 
@@ -695,7 +753,7 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659118.jpg" />
+  <img src="Z:/picture/005/save_picture_659118.jpg" />
 </div>
 
 
@@ -712,70 +770,6 @@ Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Pos
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514537   (658151) от 24.06.2012
-
-Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Francisco Tárrega ( 1852 - 1909 )
-01. Capricho Arabe (Serenata) [05:25]
-02. Preludio No. 1 D-Moll/In D Minor [01:06]
-03. Endecha (Klage/Lament) [01:02]
-04. Oremus [00:48]
-05. Preludio No. 6 H-Moll/In B Minor [00:46]
-06. Preludio No. 2 A-Moll/In a Minor [01:43]
-07. Preludio No. 5 E-Dur/In E Major [01:32]
-08. Preludio No. 13 A-Moll/In a Minor [00:53]
-09. Lagrima (Preludio) [01:43](   Читать дальше...   )1992Жанр: Classical GuitarФормат: CDПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139770   (658112) от 04.06.2017
-
-Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossless|tracks] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stones (4:36)
-02 - Go Be Love (4:09)
-03 - Not Dead Yet (3:59)
-04 - Temperance (4:13)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6C55B26F7A890A4E4CA0E5B7AB0ADAEF03DA2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

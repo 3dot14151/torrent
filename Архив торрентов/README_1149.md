@@ -6,7 +6,7 @@ Topaz Gigapixel AI 5.7.1 RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790157.jpg" />
+  <img src="Z:/picture/008/save_picture_790157.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Exiland Backup Standard 6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790141.jpg" />
+  <img src="Z:/picture/008/save_picture_790141.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MiniTool Power Data Recovery 10.1 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790118.jpg" />
+  <img src="Z:/picture/008/save_picture_790118.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Converter 22.1.0 Premium RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790115.jpg" />
+  <img src="Z:/picture/008/save_picture_790115.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Raekwon - Only Built 4 Cuban Linx (1995) [FLAC|Lossless|tracks + .cue] <Rap, Hip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790088.jpg" />
+  <img src="Z:/picture/008/save_picture_790088.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MassTube Plus 12.9.8.366 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790079.jpg" />
+  <img src="Z:/picture/008/save_picture_790079.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ultra Mood - Jump Dancer (Kick Edit) (2020) [FLAC|Lossless|WEB-DL|tracks] <Hards
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790077.jpg" />
+  <img src="Z:/picture/008/save_picture_790077.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ AMA Supercross Championship: Salt Lake City (04.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790065.jpg" />
+  <img src="Z:/picture/008/save_picture_790065.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ GPU Caps Viewer 1.45.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790060.jpg" />
+  <img src="Z:/picture/008/save_picture_790060.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ MP3jam 1.1.5.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790049.jpg" />
+  <img src="Z:/picture/008/save_picture_790049.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mozilla Thunderbird 68.9.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790042.jpg" />
+  <img src="Z:/picture/008/save_picture_790042.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Google Chrome 83.0.4103.97 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790033.jpg" />
+  <img src="Z:/picture/008/save_picture_790033.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Blender 2.83 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790032.jpg" />
+  <img src="Z:/picture/008/save_picture_790032.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Norton Power Eraser 5.3.0.90 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790027.jpg" />
+  <img src="Z:/picture/008/save_picture_790027.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ YouTube By Click Premium 2.2.130 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790025.jpg" />
+  <img src="Z:/picture/008/save_picture_790025.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Topaz Gigapixel AI 4.9.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790021.jpg" />
+  <img src="Z:/picture/008/save_picture_790021.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790008.jpg" />
+  <img src="Z:/picture/008/save_picture_790008.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ IObit Driver Booster Pro 7.5.0.750 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789997.jpg" />
+  <img src="Z:/picture/008/save_picture_789997.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ O&O ShutUp10 1.8.1411.240 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789994.jpg" />
+  <img src="Z:/picture/008/save_picture_789994.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789978.jpg" />
+  <img src="Z:/picture/008/save_picture_789978.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BELOFF 2020.06 Lite [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789969.jpg" />
+  <img src="Z:/picture/008/save_picture_789969.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789961.jpg" />
+  <img src="Z:/picture/008/save_picture_789961.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789951.jpg" />
+  <img src="Z:/picture/008/save_picture_789951.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ RAC - Structures (1996) Warp Records [FLAC|Lossless|tracks+.cue] <Electro, IDM, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789948.jpg" />
+  <img src="Z:/picture/008/save_picture_789948.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Orson Hentschel - Facades (2018) Denovali Records [FLAC|Lossless|WEB-DL|tracks] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789947.jpg" />
+  <img src="Z:/picture/008/save_picture_789947.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - 10 Years of Label (2018) Simphonic Silence Inside [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789939.jpg" />
+  <img src="Z:/picture/008/save_picture_789939.jpg" />
 </div>
 
 

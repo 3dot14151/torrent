@@ -6,7 +6,7 @@ Q-Pow! - We're Only Here For The Party! (2000) [FLAC|Lossless|tracks] <Electroni
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848611.jpg" />
+  <img src="Z:/picture/008/save_picture_848611.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Boney M. - Ultimate 2.0 (2011) [FLAC|Lossless]<Disco, Euro-Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845262.jpg" />
+  <img src="Z:/picture/008/save_picture_845262.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839619.jpg" />
+  <img src="Z:/picture/008/save_picture_839619.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Pet Shop Boys - Pandemonium (2010) [FLAC|Lossless]<SynthPop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825290.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ ATB - THE DJ EP (VOL. 01) (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Elec
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811837.jpg" />
+  <img src="Z:/picture/008/save_picture_811837.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Cerrone - X-XEX (1993) [FLAC|Lossless|image + .cue] <House, Ambient>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808818.jpg" />
+  <img src="Z:/picture/008/save_picture_808818.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Captain Hollywood Project - Love Is Not Sex (1993) [FLAC|Lossless|tracks + .cue]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791207.jpg" />
+  <img src="Z:/picture/008/save_picture_791207.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ A-Teens - The ABBA Generation (1999) [FLAC|Lossless|image + .cue] <Pop, Europop,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778807.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - NRJ Hit Music Only [3CD] (2016) [FLAC|Lossless|tracks] <Pop, RnB, Indie>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777840.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ E-Type - Russian Lullaby (1998) [FLAC|Lossless|image + .cue] <Eurodance, Euro-Ho
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771622.jpg" />
+  <img src="Z:/picture/008/save_picture_771622.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761376.jpg" />
+  <img src="Z:/picture/008/save_picture_761376.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756235.jpg" />
+  <img src="Z:/picture/005/save_picture_756235.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Суперхиты дискотеки 90-х... продолжение (2011
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756234.jpg" />
+  <img src="Z:/picture/005/save_picture_756234.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Aqua - Millenium Hits (2000) [FLAC|Lossless|image + .cue] <Europop, Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746413.jpg" />
+  <img src="Z:/picture/008/save_picture_746413.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Dream Dance Vol. 92 (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735325.jpg" />
+  <img src="Z:/picture/008/save_picture_735325.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Syn
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730137.jpg" />
+  <img src="Z:/picture/005/save_picture_730137.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synt
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696202.jpg" />
+  <img src="Z:/picture/008/save_picture_696202.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657845.jpg" />
+  <img src="Z:/picture/005/save_picture_657845.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656748.jpg" />
+  <img src="Z:/picture/008/save_picture_656748.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, E
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656743.jpg" />
+  <img src="Z:/picture/008/save_picture_656743.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ O-Zone - DiscO-Zone (2004) [FLAC|Lossless|tracks + .cue] <Europop, Euro-House, D
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653904.jpg" />
+  <img src="Z:/picture/008/save_picture_653904.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Alex Christensen & The Berlin Orchestra - Classical 90s Dance 2 (2018) [FLAC|Los
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652414.jpg" />
+  <img src="Z:/picture/008/save_picture_652414.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Odyssey - Love Train (1994) [FLAC|Lossless|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649333.jpg" />
+  <img src="Z:/picture/008/save_picture_649333.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - N'Dance Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648186.jpg" />
+  <img src="Z:/picture/008/save_picture_648186.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - N'Dance Vol. 2 (Mixed by Global Deejays) (2005) [APE|Lossless|image + .cue]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648184.jpg" />
+  <img src="Z:/picture/008/save_picture_648184.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Whigfield - Whigfield (1995) [APE|Lossless|image + .cue] <Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647624.jpg" />
+  <img src="Z:/picture/008/save_picture_647624.jpg" />
 </div>
 
 

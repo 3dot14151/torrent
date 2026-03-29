@@ -1,3 +1,29 @@
+###  Публикация: 941946   (458229) от 29.09.2015
+
+Борис Ивантер | Веселое звено (1930) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш дневник особенный. Если бы все звенья и отряды вели такие дневники, то из них получилась бы громадная библиотека самых интересных приключений, изобретений и происшествий. Нам кажется, что все ребята с охотой читали бы такие дневники потому, что это было бы, во первых, занятно, во вторых, полезнодля собственного звена или отряда.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223BF61056CA7F989BF73B3B1C57384D9DCDCB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941956   (458223) от 29.09.2015
 
 К. Соколов | Сенька-большевик (1927) [DJVU]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458223.jpg" />
+  <img src="Z:/picture/008/save_picture_458223.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458044.jpg" />
+  <img src="Z:/picture/008/save_picture_458044.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457964.jpg" />
+  <img src="Z:/picture/008/save_picture_457964.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457941.jpg" />
+  <img src="Z:/picture/008/save_picture_457941.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457930.jpg" />
+  <img src="Z:/picture/008/save_picture_457930.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457740.jpg" />
+  <img src="Z:/picture/008/save_picture_457740.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457730.jpg" />
+  <img src="Z:/picture/008/save_picture_457730.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457623.jpg" />
+  <img src="Z:/picture/008/save_picture_457623.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457140.jpg" />
+  <img src="Z:/picture/008/save_picture_457140.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457138.jpg" />
+  <img src="Z:/picture/008/save_picture_457138.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456757.jpg" />
+  <img src="Z:/picture/008/save_picture_456757.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456124.jpg" />
+  <img src="Z:/picture/008/save_picture_456124.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456123.jpg" />
+  <img src="Z:/picture/008/save_picture_456123.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456118.jpg" />
+  <img src="Z:/picture/008/save_picture_456118.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456093.jpg" />
+  <img src="Z:/picture/008/save_picture_456093.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456087.jpg" />
+  <img src="Z:/picture/008/save_picture_456087.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456086.jpg" />
+  <img src="Z:/picture/008/save_picture_456086.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456085.jpg" />
+  <img src="Z:/picture/008/save_picture_456085.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456084.jpg" />
+  <img src="Z:/picture/008/save_picture_456084.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456018.jpg" />
+  <img src="Z:/picture/008/save_picture_456018.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456007.jpg" />
+  <img src="Z:/picture/008/save_picture_456007.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455818.jpg" />
+  <img src="Z:/picture/008/save_picture_455818.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455130.jpg" />
+  <img src="Z:/picture/008/save_picture_455130.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455129.jpg" />
+  <img src="Z:/picture/008/save_picture_455129.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454075.jpg" />
+  <img src="Z:/picture/008/save_picture_454075.jpg" />
 </div>
 
 
@@ -672,33 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A0683519B95BDB20FCA77BFF8CE4AABBFFB4827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408762   (454018) от 13.09.2020
-
-Эльдар Сафин | Ктулху Питерский (2017) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе на Неве теперь царствует вылезшее из море гигантское существо, снабженное щупальцами. Уничтожить его невозможно, а вдруг можно договориться? И сделать подарок…
-Рассказ получил второе место в осенней «Рваной грелке» 2017 года.Жанр: Детская литература/ФантастикаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14554352FE345421A603B43377C81E8557E35F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

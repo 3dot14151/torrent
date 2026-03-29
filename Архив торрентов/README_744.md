@@ -6,7 +6,7 @@ BBC. Horizon: Мы инопланетяне / We are the Aliens (2006) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884264.jpg" />
+  <img src="Z:/picture/005/save_picture_884264.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884259.jpg" />
+  <img src="Z:/picture/005/save_picture_884259.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinCatalog 2020.5.1.623 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884257.jpg" />
+  <img src="Z:/picture/005/save_picture_884257.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884248.jpg" />
+  <img src="Z:/picture/008/save_picture_884248.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884247.jpg" />
+  <img src="Z:/picture/005/save_picture_884247.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Exif Pilot 6.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884246.jpg" />
+  <img src="Z:/picture/005/save_picture_884246.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884216.jpg" />
+  <img src="Z:/picture/005/save_picture_884216.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MAGIX Movie Studio 18.1.0.24 Suite (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884195.jpg" />
+  <img src="Z:/picture/005/save_picture_884195.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Norton Security with Backup 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884189.jpg" />
+  <img src="Z:/picture/005/save_picture_884189.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bandicam 5.3.0.1879 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884183.jpg" />
+  <img src="Z:/picture/005/save_picture_884183.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884171.jpg" />
+  <img src="Z:/picture/008/save_picture_884171.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884170.jpg" />
+  <img src="Z:/picture/008/save_picture_884170.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884151.jpg" />
+  <img src="Z:/picture/005/save_picture_884151.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884135.jpg" />
+  <img src="Z:/picture/005/save_picture_884135.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884129.jpg" />
+  <img src="Z:/picture/005/save_picture_884129.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Native Instruments - Kontakt 6.6.1 STANDALONE, VSTi, VSTi3, AAX (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884119.jpg" />
+  <img src="Z:/picture/005/save_picture_884119.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884117.jpg" />
+  <img src="Z:/picture/005/save_picture_884117.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VSO ConvertXToDVD 6.0.0.29 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884114.jpg" />
+  <img src="Z:/picture/005/save_picture_884114.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Skype 7.21.32.100 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884111.jpg" />
+  <img src="Z:/picture/005/save_picture_884111.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Avidemux 2.6.12 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884103.jpg" />
+  <img src="Z:/picture/005/save_picture_884103.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Black Sun Empire & State Of Mind - The Violent Five EP (2016) [MP3|320 кб/с] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884101.jpg" />
+  <img src="Z:/picture/005/save_picture_884101.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Norton Security 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884098.jpg" />
+  <img src="Z:/picture/005/save_picture_884098.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884090.jpg" />
+  <img src="Z:/picture/008/save_picture_884090.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Norton 360 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884063.jpg" />
+  <img src="Z:/picture/005/save_picture_884063.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Norton AntiVirus 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884057.jpg" />
+  <img src="Z:/picture/005/save_picture_884057.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Internet Download Manager 6.25 Build 14 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884032.jpg" />
+  <img src="Z:/picture/005/save_picture_884032.jpg" />
 </div>
 
 

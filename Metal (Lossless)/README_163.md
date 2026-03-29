@@ -1,3 +1,90 @@
+###  Публикация: 1572247   (421208) от 27.08.2022
+
+Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Baphomet
+2.	The Devil's Son
+3.	Swinefever - Regent of Pigs
+4.	Apophis - Black Dragon(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5C33F47A58CFDB7ECDE293DDB08B374690B10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412081   (420797) от 28.09.2020
+
+Neurogenic - Ouroboric Stagnation (2016) [WavPack|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Absorption Of Oblivion (2:22)
+02 - Subdural Breeding (featuring Brian Forgue) (2:18)
+03 - Immersion (featuring Dave Suzuki) (2:33)
+04 - Warden Domain (2:04)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EB12C687F59E07F92DE3CA427DEE31FEB33631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412083   (420796) от 28.09.2020
+
+Raven - ExtermiNation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro/Destroy All Monsters
+02 - Tomorrow
+03 - Its Not What You Got
+04 - Fight(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAAE3DCBAAFBA90B83E62C056D619411D63D12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412091   (420788) от 28.09.2020
 
 Shaman - Reason (2005) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Shaman - Reason (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420788.jpg" />
+  <img src="Z:/picture/008/save_picture_420788.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Shaman - Origins (2010) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420786.jpg" />
+  <img src="Z:/picture/008/save_picture_420786.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Shaman - RituAlive (2004) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420776.jpg" />
+  <img src="Z:/picture/008/save_picture_420776.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Memoira - 3 Albums (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420774.jpg" />
+  <img src="Z:/picture/008/save_picture_420774.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Shaman - Immortal (2007) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420643.jpg" />
+  <img src="Z:/picture/008/save_picture_420643.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Frigoris - ...in Stille (2020) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420637.jpg" />
+  <img src="Z:/picture/008/save_picture_420637.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Shaman - Ritual (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420634.jpg" />
+  <img src="Z:/picture/008/save_picture_420634.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Black Mark Tribute (1997) [FLAC|Lossless|image + .cue] <Thrash Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420402.jpg" />
+  <img src="Z:/picture/008/save_picture_420402.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Blackend - The Black Metal Compilation Vol. 2 (1996) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420401.jpg" />
+  <img src="Z:/picture/008/save_picture_420401.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Blackend - The Black Metal Compilation Vol. 3 (1997) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420282.jpg" />
+  <img src="Z:/picture/008/save_picture_420282.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Black Mark Tribute Vol. II (1998) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420279.jpg" />
+  <img src="Z:/picture/008/save_picture_420279.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Within Temptation - Интервью с Шарон ден Адель на рад
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420255.jpg" />
+  <img src="Z:/picture/008/save_picture_420255.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Whorion - The Reign Of The 7th Sector (2015) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420227.jpg" />
+  <img src="Z:/picture/008/save_picture_420227.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420201.jpg" />
+  <img src="Z:/picture/008/save_picture_420201.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male an
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419100.jpg" />
+  <img src="Z:/picture/008/save_picture_419100.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kataklysm - Unconquered (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418358.jpg" />
+  <img src="Z:/picture/008/save_picture_418358.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Memento Mori - Songs For The Apocalypse Vol IV (1997) Reissue, 2019, Black Mark 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417256.jpg" />
+  <img src="Z:/picture/008/save_picture_417256.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417122.jpg" />
+  <img src="Z:/picture/008/save_picture_417122.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Lindemann - Steh auf (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416534.jpg" />
+  <img src="Z:/picture/008/save_picture_416534.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Sunuthar - Us Auter Zyt (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416197.jpg" />
+  <img src="Z:/picture/008/save_picture_416197.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Rezn - Chaotic Divine (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416194.jpg" />
+  <img src="Z:/picture/008/save_picture_416194.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Marche Funebre - Einderlicht (2020) [FLAC|Lossless|image + .cue] <Doom Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416191.jpg" />
+  <img src="Z:/picture/008/save_picture_416191.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Stryper - Even The Devil Believes (2020) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416032.jpg" />
+  <img src="Z:/picture/008/save_picture_416032.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Stryper - Even The Devil Believes (2020) [FLAC|Lossless|image + .cue] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31BD09DE8C379D968CDFA918305C4DCC22633ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251356   (415613) от 02.10.2018
-
-VA - Blackend - The Black Metal Compilation Vol. 4 (1999) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415613.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Witchery - Witchery (3:04)
-02. Myrkskog - A Poignant Scenario Of Death (5:28)
-03. Usurper - Dismal Wings Of Terror (4:40)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5031FD2C9239C9D06F28080564A1C729ABEBB7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251648   (415424) от 02.10.2018
-
-Crematory - Oblivion (2018) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expectation (1:27)
-02. Salvation (4:36)
-03. Ghost of the Past (3:59)
-04. Until the Dawn (4:36)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000E93EEF5AF89CEE774D0575954B052929C67BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251506   (415420) от 02.10.2018
-
-Stratovarius - Enigma: Intermission II (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415420.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Enigma (4:21)
-2. Hunter (3:30)
-3. Hallowed (5:53)
-4. Burn Me Down (3:43)(   Читать дальше...   )Жанр: Melodic Power Metal, Symphonic MetalПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA395E3F49423B7C14B4B83571ED8C3BE2D502BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Another Side Of Fancy, Part One (2013) [AAC|~353 Kbps]<Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440953.jpg" />
+  <img src="Z:/picture/008/save_picture_440953.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440949.jpg" />
+  <img src="Z:/picture/008/save_picture_440949.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Epica - The Quantum Enigma (B-Sides) (2020) [AAC|~337 Kbps]<Rock, Symphonic Rock
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440877.jpg" />
+  <img src="Z:/picture/008/save_picture_440877.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Another Side Of Fancy, Megamix (2020) [AAC|~350 Kbps]<Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440872.jpg" />
+  <img src="Z:/picture/008/save_picture_440872.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alicia Keys - Alicia (2020) [AAC|~289 Kbps]<Funk / Soul, Pop, Rhythm & Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440590.jpg" />
+  <img src="Z:/picture/008/save_picture_440590.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Yello - Point (2020) [AAC|~338 Kbps]<Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440589.jpg" />
+  <img src="Z:/picture/008/save_picture_440589.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) [AAC|~346 Kbps]<Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440457.jpg" />
+  <img src="Z:/picture/008/save_picture_440457.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440082.jpg" />
+  <img src="Z:/picture/008/save_picture_440082.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439920.jpg" />
+  <img src="Z:/picture/008/save_picture_439920.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439462.jpg" />
+  <img src="Z:/picture/008/save_picture_439462.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439156.jpg" />
+  <img src="Z:/picture/008/save_picture_439156.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438776.jpg" />
+  <img src="Z:/picture/008/save_picture_438776.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Café del Mar XXVI - Vol. 26 (2020) [AAC|~346 Kbps]<Electronic, Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438561.jpg" />
+  <img src="Z:/picture/008/save_picture_438561.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Ozzy Osbourne - Blizzard Of Ozz (40th Anniversary Expanded Edition) (2020) [AAC|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438546.jpg" />
+  <img src="Z:/picture/008/save_picture_438546.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Parov Stelar - Voodoo Sonic 2 (2020) [AAC|~311 Kbps]<Electro, Swing>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438512.jpg" />
+  <img src="Z:/picture/008/save_picture_438512.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Parov Stelar - Voodoo Sonic (The Trilogy Part 1/3) (2019) [AAC|~323 Kbps]<Electr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438498.jpg" />
+  <img src="Z:/picture/008/save_picture_438498.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Parov Stelar - Voodoo Sonic 3 (2020) [AAC|~302 Kbps]<Electro, Swing>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438425.jpg" />
+  <img src="Z:/picture/008/save_picture_438425.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438423.jpg" />
+  <img src="Z:/picture/008/save_picture_438423.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437717.jpg" />
+  <img src="Z:/picture/008/save_picture_437717.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437580.jpg" />
+  <img src="Z:/picture/008/save_picture_437580.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437329.jpg" />
+  <img src="Z:/picture/008/save_picture_437329.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437147.jpg" />
+  <img src="Z:/picture/008/save_picture_437147.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436050.jpg" />
+  <img src="Z:/picture/008/save_picture_436050.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435895.jpg" />
+  <img src="Z:/picture/008/save_picture_435895.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435682.jpg" />
+  <img src="Z:/picture/008/save_picture_435682.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435665.jpg" />
+  <img src="Z:/picture/008/save_picture_435665.jpg" />
 </div>
 
 

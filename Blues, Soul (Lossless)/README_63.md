@@ -1,3 +1,234 @@
+###  Публикация: 1243317   (493972) от 26.08.2018
+
+Cafe R&B - 4 Albums (1998 - 2012) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock, Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cafe R&B родом из Южной Калифорнии. Вокалистка "Roach" известна в начале 80ых по коллективу "Roach and the White Boys". Критики отмечают ее потрясающий хардроковый вокал и сравнивают с такими звездами, как Etta James, Tina Turner и Aretha Franklin. Продюсер, гитарист и муж Roach пишет оригинальный материал для группы. Вдохновленные Howlin (   Читать дальше...   )1998 - Black & White
+2002 - Blues and all the Rest
+2005 - Very LiveЖанр: Modern Electric, Blues-Rock, Rhythm & BluesПродолжительность: 04:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F87CD726022B96A9AC4451EA17CE599FF1CDFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158344   (493823) от 15.08.2017
+
+Harrison Kennedy - This Is From Here (2015) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walkin' Or Ridin'   (03:29) 
+02.  Shake The Hand   (04:18) 
+03.  Falling Down   (03:28) 
+04.  Jimmy Lee   (03:42) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14313543235CEDEC1E793E8DCDEFA461F02A6264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158376   (493716) от 15.08.2017
+
+Aynsley Lister - Equilibrium (2009) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soul   (04:08) 
+02.  Time's Up   (03:09) 
+03.  What's It All About   (06:00) 
+04.  Forever   (04:19) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56463EAD7A432CC747E4A79E19C2A6DBF7D249B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273258   (493029) от 25.08.2020
+
+Neal Black - 10 Albums (1993 - 2020) [FLAC|Lossless|image + .cue|tracks + .cue] <Texas Boogie Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neal Black начал свою карьеру в Нью-Йорке в 1993 году с тяжелого и мощного блюза, заглядывающего в heavy rock 1970-х годов, он нашел свой корневой звук, который включает в себя особый звук гитары Dobro. У Neal Black глубокий, хриплый, очень каменистый и мощный голос. Его игра столь же ослепительна, как на электрической гитаре, так и акустической. Он вернется в свой (   Читать дальше...   )Список альбомов:
+1993 Neal Black & The Healers - Neal Black + The Healers
+1994 Neal Black & The Healers - Black Power
+2000 Neal Black & The Healers - Gone Back To TexasЖанр: Texas Boogie BluesПродолжительность: 09:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D041AECF73C9C5A33EA1E1A47B7A3CF8F7D52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565569   (492679) от 24.07.2022
+
+Hurricane Dave and the Storm Chasers - Blooze Blowdown (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarzan and Jane (3:12)
+02. Claire / Starbright (7:18)
+03. Blooze Blowdown (6:37)
+04. I Want to Get to Heaven / I Never Admit Defeat (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB6988FBD35CE9C0A52960D7DFB2AF135ED933C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565567   (492602) от 24.07.2022
+
+Dr. Jules - Ever Forward (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Hard to Be a Bluesman (3:56)
+02. Hypochondriac (4:20)
+03. Dead Manatee (3:00)
+04. I'm a Cop (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D72E14B77BF5B8328301869F7722377438E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565566   (492600) от 24.07.2022
+
+Dave Thomas - Road to the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road to the Blues (3:33)
+02. The Lady's Not for Turning (3:10)
+03. Eye on the Money (3:15)
+04. Another Girl (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639539D7872B41559E074C5E2C23BF314495318D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565559   (492594) от 24.07.2022
+
+Babaux and the Peacemakers - Lucky 13 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wide Open Horizon (4:27)
+02. Blame It on Me (4:06)
+03. Early Grave (5:28)
+04. I've Been There Too (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A77AC73262AE29A92D32B78782C7C3C6C486C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565571   (492593) от 24.07.2022
 
 Lauren Glick - Lush (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +237,7 @@ Lauren Glick - Lush (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492593.jpg" />
+  <img src="Z:/picture/008/save_picture_492593.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Los Skeletone Blues - Existential Blues (More Vibraslap) (2022) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492591.jpg" />
+  <img src="Z:/picture/008/save_picture_492591.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ VA - Screaming And Crying: 75 Masterpieces By 35 Blues Guitar Heroes (2012) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491241.jpg" />
+  <img src="Z:/picture/008/save_picture_491241.jpg" />
 </div>
 
 
@@ -99,7 +330,7 @@ Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490427.jpg" />
+  <img src="Z:/picture/008/save_picture_490427.jpg" />
 </div>
 
 
@@ -128,7 +359,7 @@ Stef Burns - World, Universe, Infinity (2008) [APE|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490359.jpg" />
+  <img src="Z:/picture/008/save_picture_490359.jpg" />
 </div>
 
 
@@ -157,7 +388,7 @@ Adriana Evans - El Camino (2007) Expansion Records [FLAC|Lossless|tracks + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488011.jpg" />
+  <img src="Z:/picture/008/save_picture_488011.jpg" />
 </div>
 
 
@@ -186,7 +417,7 @@ Billy The Kid & The Regulators - I Can't Change (2015) [FLAC|image+.cue]<Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487942.jpg" />
+  <img src="Z:/picture/008/save_picture_487942.jpg" />
 </div>
 
 
@@ -215,7 +446,7 @@ Adriana Evans - Walking With The Night (2010) Expansion Records [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486141.jpg" />
+  <img src="Z:/picture/008/save_picture_486141.jpg" />
 </div>
 
 
@@ -244,7 +475,7 @@ Magic Red - 4 Альбома (2003 - 2011) [FLAC|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486113.jpg" />
+  <img src="Z:/picture/008/save_picture_486113.jpg" />
 </div>
 
 
@@ -273,7 +504,7 @@ Blues Trio - This Train (1994) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485264.jpg" />
+  <img src="Z:/picture/008/save_picture_485264.jpg" />
 </div>
 
 
@@ -307,7 +538,7 @@ Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483342.jpg" />
+  <img src="Z:/picture/008/save_picture_483342.jpg" />
 </div>
 
 
@@ -342,7 +573,7 @@ BlueShot - Crack the Seal (2006) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483338.jpg" />
+  <img src="Z:/picture/008/save_picture_483338.jpg" />
 </div>
 
 
@@ -377,7 +608,7 @@ Bo Weavil - Split-Up Blues (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483123.jpg" />
+  <img src="Z:/picture/008/save_picture_483123.jpg" />
 </div>
 
 
@@ -412,7 +643,7 @@ Bob Brozman and His Thieves of Sleep - Blues 'Round the Bend (1995) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483122.jpg" />
+  <img src="Z:/picture/008/save_picture_483122.jpg" />
 </div>
 
 
@@ -447,7 +678,7 @@ Paul Camilleri - One Step Closer (2011) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482000.jpg" />
+  <img src="Z:/picture/008/save_picture_482000.jpg" />
 </div>
 
 
@@ -476,7 +707,7 @@ Claude Hay - Roller Coaster (2016) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481984.jpg" />
+  <img src="Z:/picture/008/save_picture_481984.jpg" />
 </div>
 
 
@@ -505,7 +736,7 @@ Tommy Z - Sometimes (2013) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481690.jpg" />
+  <img src="Z:/picture/008/save_picture_481690.jpg" />
 </div>
 
 
@@ -534,7 +765,7 @@ Luiz Camporez - Standart Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480558.jpg" />
+  <img src="Z:/picture/008/save_picture_480558.jpg" />
 </div>
 
 
@@ -548,238 +779,6 @@ Luiz Camporez - Standart Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2D5F159C99519B3BAA1A80A0B2CDFAA331904F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566667   (480557) от 30.07.2022
-
-Lars Kutschke - While We're Here (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Morning (4:32)
-02. I Want My Baby Back (4:51)
-03. Denise And The Nephew (6:08)
-04. Hummingbird (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA90308580A7D2FCCBF0704E1EA3998897FECCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566664   (480550) от 30.07.2022
-
-Jaya Blues Band - Pesta (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown Blues (3:32)
-02. Painted Angels (4:34)
-03. Another Way (5:39)
-04. Pesta (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745DFDFDC1609F4A1482DB7798B67A2CFDC7224C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566671   (480546) от 30.07.2022
-
-Lyle Odjick and The Northern Steam - Through the Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery Train (1:56)
-02. Cut Me Loose (3:25)
-03. Leaving Trunk (4:14)
-04. I Wanna Hold You (6:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC36AD8C481C49CFC421E98825575CCB6A219BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566677   (480544) от 30.07.2022
-
-Pierce - The Slide Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishful Blues (3:43)
-02. Foolin' (3:24)
-03. Make it Right (3:34)
-04. Adore Me (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE98E10CA1E8637AA1E605AFFFB7EED72922EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566686   (480437) от 30.07.2022
-
-Satch Wakefield - The Covid Years_ Part1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back of my Mind (3:53)
-02. Can't Catch My Breath (3:27)
-03. Say Your Peace (4:48)
-04. Good Man (2:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C923952534FB14F0526B194D04681D015A79F48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566674   (480436) от 30.07.2022
-
-Nick Evans Mowery - Owners and Pickers (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tired Ole Man Blues (3:16)
-02. My Whole World (3:50)
-03. Owners and Pickers (3:12)
-04. Sing Your Song (2:13)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0178CBB52ED20E507E2212F8FE0FAF60C34033E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566683   (480435) от 30.07.2022
-
-Ryan Lee Crosby - Winter Hill Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Leaving (3:23)
-02. Winter Hill Blues (3:33)
-03. Down so Long (3:39)
-04. Eight Years Gone (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1114C323B3103DBE4D9B7BEC44E09EAF3EC4AC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566673   (480433) от 30.07.2022
-
-Mike Stevens - Breathe In The World, Breathe Out Mu (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Little Bird (3:59)
-02. Watermelon Pie (2:50)
-03. Livin' In Sarnia (6:52)
-04. Orange Blossom Special (2:39)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E377E99FD933D253B3E7537472E7CF75255803F
 ```
 
 https://mybot314.ru/tekegram_catalog/

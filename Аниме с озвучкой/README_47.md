@@ -1,3 +1,30 @@
+###  Публикация: 1581547   (159678) от 23.12.2022
+
+Время ниндзя | Shinobi no Ittoki [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иттоки Сакураба был обычным парнем, пока однажды его жизнь не перевернулась вверх дном! Однажды, он узнаёт, что является девятнадцатым наследником известного клана ниндзя — Ига. Им противостоит клан Кога, который хочет отнять жизнь у Иттоки. И теперь ему необходимо стать сильнее, чтобы защитить не только себя, но и всю свою деревню. Для этого он поступает в академию (   Читать дальше...   )Производство: Япония / Студия TroycaЖанр: Экшен, приключенияРежиссер: Ватанабэ СюЯзык озвучки: Русский многоголосый закадровый, Японский
+- Amikiri, Anzen, Sharon (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5D64601CF7A5F92D1DB5BB348A1A66E82FA492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599586   (159513) от 24.12.2022
 
 Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватки. Прикосновение небес [2017-2020, Movie, 3 из 3] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +33,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159513.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159119.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159046.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158783.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Donten ni Warau / Laughing Under the Clouds / Смех под облаками [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158138.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157986.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157427.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156386.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156319.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156185.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156172.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156161.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155680.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154836.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154540.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154501.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154466.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153381.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153351.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153344.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152818.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152654.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152651.jpg" />
 </div>
 
 
@@ -649,32 +676,6 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B5F7A16BB48E7B6E0CFEFE4C591BEEA4AD6968B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825483   (152141) от 17.10.2025
-
-Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshine After the Rain | Моя сэмпай парень? (фильм) [2025, Movie] BDRip 1080p HEVC 10-bit raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-продолжение основного сериала. Макото и Рюдзи уже решили свои проблемы и смирились со своей участью. Но вот у Саки судьба еще не решена и осталась только её очередь разобраться со своими проблемами и выбрать свою сторону. Как в семейном плане, так и в любовном...Производство: Project No.9Жанр: комeдия, ромaнтикаРежиссер: Янаги СинсукэПеревод: CrunchyRoll | JPBDЯзык озвучки: Японский, Английский и РусскийСубтитры: Русские (Полные и Надписи), Английские (Полные и Надписи) | ЯпонскиеПродолжительность: 82 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BC3B82BA26EA3008A9A9BB47C7C5A5DCAD92F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

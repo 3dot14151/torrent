@@ -1,3 +1,90 @@
+###  Публикация: 1642954   (233096) от 29.06.2023
+
+Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gethsemane Effect (7:09)
+02. You'll Never See the Sun Again (9:20)
+03. A Song of Possession (5:52)
+04. The Ritual of Descent (12:42)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E718320E6DDAEB58541DEF859D9F96DABB33D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539610   (233080) от 27.03.2022
+
+Mount Saturn - O, Great Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_233080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Astraya (00:06:10)
+02 - Sword First (00:06:48)
+03 - Sandcrosser (00:09:25)
+04 - The Knowing (00:08:15)(   Читать дальше...   )Жанр: Psychedelic Stoner, Doom MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1462E6A25E8F768046BD5E37C074D5D413F970EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634805   (233072) от 22.05.2023
+
+Livin'Evil - Prayers and Torments (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_233072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Tree Of Evil (01:05)
+02 - Another Preacher Of Satan (07:18)
+03 - Behind The Light (04:49)
+04 - Through The Night (08:31)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA7B41ACA1CA1D8A9E442A40D829E450EF0BA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539617   (233071) от 27.03.2022
 
 Crystal Viper - The Last Axeman (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Crystal Viper - The Last Axeman (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233071.jpg" />
+  <img src="Z:/picture/005/save_picture_233071.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233070.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Hammerstar - Hammerstar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233061.jpg" />
+  <img src="Z:/picture/005/save_picture_233061.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Mammoth Weed Wizard Bastard - The Harvest (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233049.jpg" />
+  <img src="Z:/picture/005/save_picture_233049.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Defiled Embrace - Whispers of the Forest (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233044.jpg" />
+  <img src="Z:/picture/005/save_picture_233044.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Akilla - The Gods Have Spoken (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233030.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Non Est Deus - Impious (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233028.jpg" />
+  <img src="Z:/picture/004/save_picture_233028.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Dreadnought - The Endless (2022) [FLAC|Lossless|WEB-DL|tracks] <post-metal, doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233019.jpg" />
+  <img src="Z:/picture/005/save_picture_233019.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232995.jpg" />
+  <img src="Z:/picture/004/save_picture_232995.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Rellik - Killer (2002) Compilation [FLAC|Lossless|image + .cue] <Power, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232938.jpg" />
+  <img src="Z:/picture/005/save_picture_232938.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Tension Rising - The Last Judgement (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232927.jpg" />
+  <img src="Z:/picture/005/save_picture_232927.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Repression - Prevalence of Pain (1992) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232906.jpg" />
+  <img src="Z:/picture/005/save_picture_232906.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Andadarius - Urbi Et Orbi (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232894.jpg" />
+  <img src="Z:/picture/005/save_picture_232894.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ A Pretext to Human Suffering - Endless Cycle of Suffering (2023) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232891.jpg" />
+  <img src="Z:/picture/004/save_picture_232891.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Disconnected - We Are Disconnected (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232890.jpg" />
+  <img src="Z:/picture/005/save_picture_232890.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Oak Pantheon - The Absence (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232884.jpg" />
+  <img src="Z:/picture/005/save_picture_232884.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Ancestry - Revelations (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232879.jpg" />
+  <img src="Z:/picture/004/save_picture_232879.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Avalanch - El Dilema De Los Dioses (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232866.jpg" />
+  <img src="Z:/picture/004/save_picture_232866.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Speedwhore - The Future Is Now (2015) [FLAC|Lossless|image + .cue] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232847.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Hellwitch - Annihilational Intercention (2023) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232843.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Anguish Force - Atzwang (2012) [FLAC|Lossless|image + .cue] <Heavy, Power, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232840.jpg" />
+  <img src="Z:/picture/004/save_picture_232840.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Speedwhore - Visions of a Parallel World (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232827.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Ancestry - Transitions (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232826.jpg" />
+  <img src="Z:/picture/004/save_picture_232826.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Ancestry - Transitions (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31A28DDF9701BCA8703302764C210FB4E83FA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645515   (232821) от 09.07.2023
-
-Spiritus Mortis - The Great Seal (2022) [FLAC|Lossless|WEB-DL|tracks] <Traditional Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puputan (04:49)
-02. Death´s Charioteer (06:13)
-03. Martyrdom Operation (04:59)
-04. Skoptsy (05:48)(   Читать дальше...   )Жанр: Traditional Doom MetalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B5F7152C4CED9AA5A0C4B48789F24E7E46D0BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645285   (232811) от 09.07.2023
-
-Thunderforge - Vanquish The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light the Forge (01:37)
-02. All or Nothing (05:00)
-03. Someday (04:17)
-04. G.O.T.A.W. (03:51)(   Читать дальше...   )Жанр: Heavy, Power-MetalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DF89C9682EB8D4070779DDA68EFFE77C130E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606374   (232809) от 22.01.2023
-
-The Acacia Strain - Death Is The Only Mortal (2012) [FLAC|Lossless|image + .cue] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doomblade
-02. Our Lady Of Perpetual Sorrow
-03. Go To Sleep
-04. Brain Death(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B6A7F62BD2BC2965347F7278CDE6E0539344EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

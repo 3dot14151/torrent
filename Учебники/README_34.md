@@ -1,3 +1,55 @@
+###  Публикация: 1129499   (720441) от 29.04.2017
+
+О.А. Козадеров, А.В. Введенский | Современные химические источники тока (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены основы теории электрохимической энергоконверсии, а также описаны принципы работы, базовые конструкции и физико-химические особенности функционирования современных химических источников тока: солевых и щелочных гальванических элементов с цинковым или литиевым анодом; свинцово-кислотных, никельметаллогидридных, литий-ионных вторичных элементов и аккумуляторов (   Читать дальше...   )Жанр: Химия, электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC6B4426518E3C17246B49C3C395ABD71003132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 229577   (720407) от 26.02.2019
+
+Дрофа | Школьная программа в таблицах и формулах [1998] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720407.jpg" />
+</div>
+
+
+###  Подробнее
+
+В справочнике представлен в обобщенном виде теоретический материал по предметам школьного курса. Табличная форма позволяет наглядно представить основные положения школьной программы, способствует формированию и развитию мыслительных навыков, навыков логического анализа. Правила не преподносятся в готовом виде, но выводятся логическим путем из предлагаемой таблицы. (   Читать дальше...   )Жанр: Образование, справочное издание.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45955A18E2F8EB6C0798CA6CCFBA6BA8D77F60CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023183   (719593) от 07.06.2016
 
 Ю.М. Ерохин | Химия (2013) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719593.jpg" />
+  <img src="Z:/picture/008/save_picture_719593.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718608.jpg" />
+  <img src="Z:/picture/008/save_picture_718608.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718378.jpg" />
+  <img src="Z:/picture/008/save_picture_718378.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714444.jpg" />
+  <img src="Z:/picture/008/save_picture_714444.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714406.jpg" />
+  <img src="Z:/picture/008/save_picture_714406.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714127.jpg" />
+  <img src="Z:/picture/008/save_picture_714127.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713797.jpg" />
+  <img src="Z:/picture/008/save_picture_713797.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713694.jpg" />
+  <img src="Z:/picture/008/save_picture_713694.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713552.jpg" />
+  <img src="Z:/picture/008/save_picture_713552.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713544.jpg" />
+  <img src="Z:/picture/008/save_picture_713544.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713458.jpg" />
+  <img src="Z:/picture/008/save_picture_713458.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713392.jpg" />
+  <img src="Z:/picture/008/save_picture_713392.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713366.jpg" />
+  <img src="Z:/picture/008/save_picture_713366.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712476.jpg" />
+  <img src="Z:/picture/008/save_picture_712476.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712475.jpg" />
+  <img src="Z:/picture/008/save_picture_712475.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712471.jpg" />
+  <img src="Z:/picture/008/save_picture_712471.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712065.jpg" />
+  <img src="Z:/picture/008/save_picture_712065.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712061.jpg" />
+  <img src="Z:/picture/008/save_picture_712061.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711955.jpg" />
+  <img src="Z:/picture/008/save_picture_711955.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711882.jpg" />
+  <img src="Z:/picture/008/save_picture_711882.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711881.jpg" />
+  <img src="Z:/picture/008/save_picture_711881.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711870.jpg" />
+  <img src="Z:/picture/008/save_picture_711870.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710812.jpg" />
+  <img src="Z:/picture/008/save_picture_710812.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710708.jpg" />
+  <img src="Z:/picture/008/save_picture_710708.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C51BCFDF0D90DF11AB1B995A0DC785F24B5DBF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532829   (710579) от 21.02.2022
-
-О.С. Вадутов | Электроника. Математические основы обработки сигналов (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник состоит из теоретической части и практикума. В первой части изложены методы спектрального анализа сигналов на основе гармонических функций, функций Лагерра и Уолша. Рассмотрены характеристики и методы расчета классических фильтров Баттерворта и Чебышева. Даны основы методов описания и преобразования дискретных сигналов. Рассмотрены принципы построения рекурсивных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B904824837028CF7719C30E85DD02C50089843A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532798   (710422) от 21.02.2022
-
-Н.Р. Полуэктова | Разработка веб-приложений (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс содержит теоретический материал и комплект практических работ, позволяющих изучить современные подходы, технологии и инструменты, используемые при разработке web-приложений. Среди них: принципы организации сети Интернет; базовый язык разметки web-страниц HTML, технологии описания стилей этих страниц СSS; технологии браузерного программирования на основе языка (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB73E7DF7B4EB9899CB1B214121D51440256C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

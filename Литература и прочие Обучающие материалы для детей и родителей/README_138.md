@@ -1,3 +1,136 @@
+###  Публикация: 1204788   (784271) от 07.02.2018
+
+Юрий Ревич | Азбука электроники (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784271.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге читатель знакомится с основой современной электроники – микроконтроллерами на примере популярной любительской платформы Arduino. Начиная с простых схем, управляющих свечением светодиода, читатель постепенно переходит к более сложным устройствам: бытовой автоматике, часам и измерительным приборам, элементам конструкции механических устройств. Последовательно (   Читать дальше...   )Жанр: Радиоэлектроника, Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F767865116DE93BF8AAE49ADA25EB53869EE8C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389487   (784191) от 11.06.2020
+
+БУКВА-ЛЕНД | Раскраска-пропись. Изучаю формы и фигуры (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраска пропись «Изучаю формы и фигуры» — отличный вариант для тех родителей, которые привыкли окружать своего малыша только лучшими и качественными вещами. За такой книжкой ваш ребёнок проведёт время с пользой и удовольствием, узнает много нового и интересного.Жанр: РаскраскаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4550961AC388B225BD992C099634E54977F636ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389704   (783946) от 12.06.2020
+
+Т. Чижевская, Л. Гирская | Тишкин огород (1991) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как объяснить ребёнку «Почему поросята, домашние взрослые свиньи и дикие кабаны роют землю?» В интересной и сказочной форме это объясняется в детской книжке Татьяны Чижевской «Тишкин огород».Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16677E13ABC6F5163DC096D37BC4C6B92569B68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389929   (783834) от 12.06.2020
+
+Эл Свейгарт | Программируй в Minecraft. Строй выше, выращивай быстрее, копай глубже и автоматизируй всю скучную работу! (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для всех любителей игры Minecraft от автора мировых бестселлеров-самоучителей по программированию Эла Свейгарта. Благодаря своему многолетнему опыту, Свейгарт умеет в увлекательной игровой форме подать даже самую непростую информацию и заинтересовать даже тех маленьких читателей, которых чтение не интересует. Самая популярная у детей во всем мире игра станет (   Читать дальше...   )Жанр: Программирование и электроника для детейПеревод: Михаил РайтманФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D02467EC48244C964162563EA98949F685C9243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205397   (783768) от 09.02.2018
+
+Марина Дробкова | Техноведьма [3 книги] (2016-2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня девочка Аня Пчёлкина, со смешным прозвищем – Насекомое, живет в интернате на загадочном острове Светлоярск. И всё бы ничего, но она загадочное техно – с помощью свиста и пения, умеющая управлять механизмами.
+- Имперский марш (2016)
+- Правило четырёх (2016)
+- Мастер дверей (2017)Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB3310B647F56FABBE7851605741B113852354C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205344   (783766) от 09.02.2018
 
 Алла Вологжанина | Трилунье [3 книги] (2016-2017) [FB2]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783766.jpg" />
 </div>
 
 
@@ -35,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783747.jpg" />
 </div>
 
 
@@ -61,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783676.jpg" />
+  <img src="Z:/picture/008/save_picture_783676.jpg" />
 </div>
 
 
@@ -87,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783339.jpg" />
+  <img src="Z:/picture/008/save_picture_783339.jpg" />
 </div>
 
 
@@ -114,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783337.jpg" />
+  <img src="Z:/picture/008/save_picture_783337.jpg" />
 </div>
 
 
@@ -142,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783317.jpg" />
+  <img src="Z:/picture/008/save_picture_783317.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782975.jpg" />
+  <img src="Z:/picture/008/save_picture_782975.jpg" />
 </div>
 
 
@@ -194,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782963.jpg" />
+  <img src="Z:/picture/008/save_picture_782963.jpg" />
 </div>
 
 
@@ -220,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782959.jpg" />
+  <img src="Z:/picture/008/save_picture_782959.jpg" />
 </div>
 
 
@@ -246,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782942.jpg" />
+  <img src="Z:/picture/008/save_picture_782942.jpg" />
 </div>
 
 
@@ -274,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782485.jpg" />
+  <img src="Z:/picture/008/save_picture_782485.jpg" />
 </div>
 
 
@@ -300,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782471.jpg" />
+  <img src="Z:/picture/008/save_picture_782471.jpg" />
 </div>
 
 
@@ -329,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782353.jpg" />
 </div>
 
 
@@ -355,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782145.jpg" />
 </div>
 
 
@@ -381,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782141.jpg" />
 </div>
 
 
@@ -407,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782129.jpg" />
 </div>
 
 
@@ -433,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782102.jpg" />
 </div>
 
 
@@ -459,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782062.jpg" />
 </div>
 
 
@@ -485,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781790.jpg" />
 </div>
 
 
@@ -512,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781776.jpg" />
 </div>
 
 
@@ -541,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781775.jpg" />
 </div>
 
 
@@ -552,139 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8C2E9529D7D82D5A53FC01F3A59083E9FA7106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206832   (781678) от 15.02.2018
-
-Подшивка журналов | Для малюток [36 журналов] (1894, 1897, 1901) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячное приложение к иллюстрированному журналу для детей "Игрушечка"Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB71427EE7158BD96CCFCADE93DB2383F82398CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391306   (781380) от 19.06.2020
-
-Дарья Ермакович | Хочу всё знать. Большая детская энциклопедия (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание – уникальная энциклопедия для юных эрудитов. На страницах этой книги любознательный читатель найдет самую полезную, очень интересную, а где-то даже невероятную информацию из различных областей знаний.
-Энциклопедия прекрасно иллюстрирована, отличается доступным и увлекательным изложением.
-Для младшего и среднего школьного возраста.Жанр: Познавательная и развивающая литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22671C1055B94392B57F73899A722F42490EC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207308   (780612) от 18.02.2018
-
-Александр Копыленко | Секрет (1936) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780612.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данный сборник вошли детские рассказы украинского писателя А. Копыленко.
-Книга предназначена для детей младшего возраста.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8420F7787245F4D2B69E8D922C68EA1FE16B63EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207467   (780609) от 18.02.2018
-
-Мария Вериго | В лесу (1910) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о природе для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABBC1A884D4B993811957738D5FA09AEA8BB4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207465   (780600) от 18.02.2018
-
-Е. Кухнова (пер.) | Шведские сказки (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC9E35B5CFD45C7FFE53C1A23AE6F30E8426A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

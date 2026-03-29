@@ -1,3 +1,174 @@
+###  Публикация: 1056786   (478922) от 26.09.2016
+
+David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление британского rock музыканта, автора и исполнителя, мультиинструменталиста и музыкального продюсера Дэвида Гилмора в польском Вроцлаве в июне 25, 201601. 5 A.M.
+02. Rattle That Lock
+03. Faces of Stone
+04. Wish You Were Here(   Читать дальше...   )Производство: Польша|TVP2Жанр: Progressive rock, Psychedelic rockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBAAF3817A8D8BA2CADA1E4F03C28A5584F0263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546313   (478713) от 13.09.2012
+
+Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546179   (478696) от 13.09.2012
+
+Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384818   (478526) от 08.09.2011
+
+DJ VJ Magrao Videomix Volume 10 (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
+02 - Adele - Rolling In The Deep
+03 - Rihanna - California King Bed
+04 - Flo Rida & Akon - Who Dat Girl
+05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
+06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
+07 - Far East Movement - Rocketeer
+08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
+09 - Katy Perry - Last Friday Night (TGIF)
+10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701115   (478384) от 17.09.2013
+
+Madonna: The MDNA Tour (2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgin Mary (Intro)
+02. Girl Gone Wild
+03. Revolver
+04. Gang Bang(   Читать дальше...   )Производство: США, Live Nation Global TouringЖанр: Pop, DanceРежиссер: Дэнни ТуллПеревод: ОригиналЯзык субтитров: ОтсутствуютПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A36D0773D737057B167CEBF879C419C3A7DDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546445   (478379) от 13.09.2012
+
+Nikita - Avocado (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3891EBD25A857B1D40A0311D48E3853EC23D6AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701187   (478306) от 17.09.2013
 
 Би-2 и Симфонический оркестр МВД России. Реки любви. Концерт в Crocus City Hall (2012) HDTV [H.264/1080i]
@@ -6,7 +177,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478306.jpg" />
+  <img src="Z:/picture/008/save_picture_478306.jpg" />
 </div>
 
 
@@ -37,7 +208,7 @@ PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478280.jpg" />
+  <img src="Z:/picture/008/save_picture_478280.jpg" />
 </div>
 
 
@@ -63,7 +234,7 @@ Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478211.jpg" />
+  <img src="Z:/picture/008/save_picture_478211.jpg" />
 </div>
 
 
@@ -89,7 +260,7 @@ The Prodigy / Live World's On Fire (2011) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478124.jpg" />
+  <img src="Z:/picture/008/save_picture_478124.jpg" />
 </div>
 
 
@@ -115,7 +286,7 @@ Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477535.jpg" />
+  <img src="Z:/picture/008/save_picture_477535.jpg" />
 </div>
 
 
@@ -144,7 +315,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477258.jpg" />
+  <img src="Z:/picture/008/save_picture_477258.jpg" />
 </div>
 
 
@@ -170,7 +341,7 @@ Skillet - Awake & Live (2013) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477210.jpg" />
+  <img src="Z:/picture/008/save_picture_477210.jpg" />
 </div>
 
 
@@ -199,7 +370,7 @@ Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Cust
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476660.jpg" />
+  <img src="Z:/picture/008/save_picture_476660.jpg" />
 </div>
 
 
@@ -229,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476649.jpg" />
+  <img src="Z:/picture/008/save_picture_476649.jpg" />
 </div>
 
 
@@ -255,7 +426,7 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476335.jpg" />
+  <img src="Z:/picture/008/save_picture_476335.jpg" />
 </div>
 
 
@@ -284,7 +455,7 @@ Frank Sinatra – A Man and His Music Part II (1966) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476138.jpg" />
+  <img src="Z:/picture/008/save_picture_476138.jpg" />
 </div>
 
 
@@ -313,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475841.jpg" />
+  <img src="Z:/picture/008/save_picture_475841.jpg" />
 </div>
 
 
@@ -340,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475826.jpg" />
+  <img src="Z:/picture/008/save_picture_475826.jpg" />
 </div>
 
 
@@ -366,7 +537,7 @@ Dio - Singles Box Set (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473970.jpg" />
+  <img src="Z:/picture/008/save_picture_473970.jpg" />
 </div>
 
 
@@ -395,7 +566,7 @@ Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473769.jpg" />
+  <img src="Z:/picture/008/save_picture_473769.jpg" />
 </div>
 
 
@@ -425,7 +596,7 @@ Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473727.jpg" />
+  <img src="Z:/picture/008/save_picture_473727.jpg" />
 </div>
 
 
@@ -451,7 +622,7 @@ Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473647.jpg" />
+  <img src="Z:/picture/008/save_picture_473647.jpg" />
 </div>
 
 
@@ -480,7 +651,7 @@ VA - Осенний марафон № 192 /  Видеоклипы (Сборни
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473086.jpg" />
+  <img src="Z:/picture/008/save_picture_473086.jpg" />
 </div>
 
 
@@ -509,7 +680,7 @@ Uriah Heep-The Magician's Birthday Party (2001) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472811.jpg" />
+  <img src="Z:/picture/008/save_picture_472811.jpg" />
 </div>
 
 
@@ -540,7 +711,7 @@ Metallica - Live at Rock in Rio (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472795.jpg" />
+  <img src="Z:/picture/008/save_picture_472795.jpg" />
 </div>
 
 
@@ -554,175 +725,6 @@ Metallica — американская метал-группа, образова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:895E5FCFFCB252407FE3C85BC463DD4AA724E0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702050   (472731) от 20.09.2013
-
-Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Iron Man
-02. Black Sabbath - Paranoid
-03. Eric Burdon & War - Paint It Black-Medley
-04. Eric Burdon & War - Spill The Wine(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701921   (472726) от 20.09.2013
-
-Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Black Sabbath
-02. Rare Bird - Sympathy
-03. Blodwyn Pig - See My Way
-02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406371   (472536) от 04.09.2020
-
-Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Def Leppard - британская рок-группа из Шеффилда, Йоркшир, Англия, образована в 1977 году. Их стилевая манера с годами претерпела ряд изменений, двигаясь от хард-рока к глэм-металу. Def Leppard дебютировали как NWOBHM-группа с альбомом "On Through the Night" в 1980 году. Пик популярности этой группы пришёлся на 1984-89 годы, когда вышли их платиновые альбомы (   Читать дальше...   )Производство: Великобритания / Eagle Rock EntertainmentЖанр: hard rock, glam metal, heavy metal, pop rockАктеры: Def Leppard, Джо Эллиотт, Фил Коллен, Вивиан Кэмпбелл, Рик Сэвидж, Рик АлленПеревод: ОтсутствуетПродолжительность: 01:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27988AA32CA2EB79E6AD73018ACB1F971C1F94C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547677   (471962) от 16.09.2012
-
-Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386346   (471949) от 11.09.2011
-
-Deadmau5 - Live @ Earl's Court (2011) [Progressive House / Minimal Trance / Techno] DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Deadmau5 18 декабря 2010 года в Лондоне, Earl's Court, собравшее 19 000 фанатов мауса и любителей электронной музыки. Грандиозная атмосфера, яркие спецэффекты, треки из последнего альбома мауса "4x4=12", выступление с LED mau5head и mau5cube, а также использование сенсорного микшера "Holodesk".01. Deadmau5 - Limit break
-02. Some Chords
-03. The Reward Is Cheese (feat. Jelo)
-04. Bad Selection(   Читать дальше...   )Производство: Ultra Records (США)Жанр: House, Trance, Progressive, Electro, DubstepПродолжительность: 01:57:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546008   (471732) от 16.09.2012
-
-Scorpions - Life In Wacken (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wacken Open Air – крупнейший в мире летний фестиваль тяжелой музыки, проходящий под открытым небом. Это грандиозное трехдневное событие проходит ежегодно в первые выходные августа в местечке Вакен (Германия, район Гамбурга).
-Вы сможете увидеть полное выступление, прощальное выступление группы «Scorpions», одной из 60 групп выступавших на heavy-metal фестивале Wacken (   Читать дальше...   )01. Make It Real
-02. Is There Anybody There?
-03. The Zoo
-* Interview(   Читать дальше...   )Жанр: Концерт, RockСубтитры: ВшитыПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

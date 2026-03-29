@@ -1,3 +1,67 @@
+###  Публикация: 1352952   (993230) от 16.01.2020
+
+VA - Best tracks of Transitions by John Digweed on Kiss 100. 2008 Volume 5 Compiled by Firstlast (2020) [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carl Craig - At Les (1997) (5:12)
+02. Unknown Artist - Unknown Track (2008-01-27 Pedro Puentes) (2:28)
+03. Radiohead - Nude (Chris Fortier 40oz remix) (7:18)
+04. NUfrequency - Go That Deep (Charles Webster Remix) (6:13)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F982CF00C19CFC06BB86A75C4080727606F33C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608666   (992902) от 26.01.2013
+
+VA - Best of Euphoric Emotions Vol.11 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Thrillseekers - Song For Sendai (original mix)
+002. Sean Tyas - Banshee (Original Mix)
+003. Rex Mundi - When The Sun Is Rising (Original Mix)
+004. Orjan Nilsen - Go Fast! (Original Mix)
+005. Space RockerZ & Tania Zygar - Puzzle Piece (Daniel Heatcliff's Farewell Remix)
+006. Pobsky & Paul Atkinson - Locked Out (Original)
+007. Reminder & Cathy Burton - Love To Hold (Original Mix)
+008. Timur Shafiev feat. Dasha - Thank You (Dallaz Project remix)
+009. Tucandeo - Galatea (Original)
+010. Roger Shah & Sian Kosheen - Hide U (Pumpin' Island Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38C38C2B810EEC1B66179272426D93ABCE7B41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353171   (992680) от 17.01.2020
 
 VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
@@ -6,7 +70,7 @@ VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992680.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992679.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992627.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991306.jpg" />
 </div>
 
 
@@ -124,7 +188,7 @@ VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991304.jpg" />
 </div>
 
 
@@ -159,7 +223,7 @@ VA - In Da Club Vol.69 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991295.jpg" />
 </div>
 
 
@@ -194,7 +258,7 @@ VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991293.jpg" />
 </div>
 
 
@@ -229,7 +293,7 @@ VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991292.jpg" />
 </div>
 
 
@@ -259,7 +323,7 @@ VA - Club Dubstep №23 - ERROR (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991289.jpg" />
 </div>
 
 
@@ -291,7 +355,7 @@ VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991288.jpg" />
 </div>
 
 
@@ -326,7 +390,7 @@ VA - Top50: Tracks Deep House Ver.16 (2019) [MP3|320 Kbps] <House, Deep House, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991268.jpg" />
 </div>
 
 
@@ -355,7 +419,7 @@ VA - Лучшие Trance треки Ver.12 (2019) [MP3|320 Kbps] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991267.jpg" />
 </div>
 
 
@@ -384,7 +448,7 @@ VA - Rise Up DnB Mixtape (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990800.jpg" />
 </div>
 
 
@@ -413,7 +477,7 @@ VA - Record Super Chart 621 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990738.jpg" />
 </div>
 
 
@@ -442,7 +506,7 @@ VA - Beatport Tech House: January Pack #02 (2020) [MP3|320 Kbps] <Tech, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990733.jpg" />
 </div>
 
 
@@ -471,7 +535,7 @@ VA - Vocal House: Club Edition (2020) [MP3|320 Kbps] <Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990732.jpg" />
 </div>
 
 
@@ -500,7 +564,7 @@ VA - Chillout: Supreme Relaxation (2020) [MP3|320 Kbps] <Chillout, Ambient, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990697.jpg" />
 </div>
 
 
@@ -529,7 +593,7 @@ VA - Exotic Wafture #33 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990638.jpg" />
 </div>
 
 
@@ -564,7 +628,7 @@ VA - Club Dubstep №26 - Club Dubstep №26 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990590.jpg" />
 </div>
 
 
@@ -595,7 +659,7 @@ VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990574.jpg" />
 </div>
 
 
@@ -630,7 +694,7 @@ VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990509.jpg" />
 </div>
 
 
@@ -665,7 +729,7 @@ VA - Armada Beach Festival-Argentina 2013 (25-01-2013) [MP3| ~166-182 кб/с]<T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990507.jpg" />
 </div>
 
 
@@ -691,7 +755,7 @@ VA - Winter House Party: Deep Edition (2020) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990416.jpg" />
 </div>
 
 
@@ -720,7 +784,7 @@ VA - Everybody Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990368.jpg" />
 </div>
 
 
@@ -734,70 +798,6 @@ VA - Everybody Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F416763487B066123BA7972AB47B6CA3C33CEAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610500   (990337) от 29.01.2013
-
-VA - Club Dubstep №27 (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Lurkin - You (Original Mix)
-02. Teriszega - Rapture by DJ Poet & Chebacca ft. Ms Madison (Teriszega Remix)
-03. The Temper Trap - Fader (Jakwob Remix)
-04. Tijani - Breathe Out (Prod. Great Skies)
-05. Twistex - Million Eyes
-06. VEVA - H.E.R. (TOER Remix)
-07. Zedd - Spectrum (Anarchy & System Remix)
-08. Zomboy - Hoedown
-09. Angus and Julia Stone - Draw Your Swords (Alpha Data Remix)
-10. Dirt Monkey - Go feat.Steptech (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77862CDC5C603E32F130EA66AE6DD3C20B7EC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353961   (989891) от 20.01.2020
-
-VA - Cosmospace House (2020) [MP3|320 Kbps] <Progressive, Deep, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mowgly3 M3 - Suenan Los Tambores
-02. Stazam - Sonido Espacial
-03. Flo Monghy - Unidentified
-04. Pilato - Cosmic Horizon (Original Mix)(   Читать дальше...   )Жанр: Progressive, Deep, Electro HouseПродолжительность: 07:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC4809D65E1D13F0E33BBFFB511AFBAC704FDEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

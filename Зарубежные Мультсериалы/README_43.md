@@ -1,3 +1,55 @@
+###  Публикация: 1269942   (216512) от 16.12.2018
+
+Новое шоу Дятла Вуди / The New Woody Woodpecker Show (1999-2000) DVBRip [H.264] (Сезоны 1-3, Серий 53 из 53)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вуди Вудпекер, самый известный в мире забавный дятел, возвращается. И вместе с ним - его заразительный смех и компания его уморительных друзей. Они участвуют в девяти новых фантастически увлекательных мультипликационных историях.Производство: СШАЖанр: Приключения, КомедияРежиссер: Джефф Нимой, Чарльз ШнайдерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 53x ~00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8353A03984E86AA7020DD5C42D7384E7031FE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514267   (216167) от 03.12.2021
+
+Аватар: Легенда об Аанге / Avatar: The Last Airbender (2005-2008) BDRip [H.265/1080p] [10-bit] (сезон 1-3, серии 1-61 из 61) Арт Дубляж
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и Огненная нация. Представители каждого народа обладают способностями управления своей стихией и именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами и сохранении мирового (   Читать дальше...   )Производство: США / Nickelodeon Animation StudiosЖанр: мультфильм, фэнтези, боевикРежиссер: Джанкарло Вольпе, Этан Сполдинг, Лорен МакмалленАктеры: Ди Брэдли Бейкер, Зак Тайлер, Мэй Уитман, Джек Де Сена, Данте Баско, Джесси Флауер, Мако, Грэй Гриффин, Андре Сольюццо, Крикет Ли и др.Перевод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6D2949A7AE14185E92FFCC509112D0E18CA69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285785   (215576) от 07.12.2019
 
 Разочарование / Disenchantment (2018-2019) WEB-DL [H.264/720p-LQ] (сезон 1-2, серии 1-20 из 20) [MVO] NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215576.jpg" />
+  <img src="Z:/picture/005/save_picture_215576.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215565.jpg" />
+  <img src="Z:/picture/005/save_picture_215565.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215350.jpg" />
+  <img src="Z:/picture/005/save_picture_215350.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_214271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214271.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214158.jpg" />
+  <img src="Z:/picture/005/save_picture_214158.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214029.jpg" />
+  <img src="Z:/picture/005/save_picture_214029.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213223.jpg" />
+  <img src="Z:/picture/005/save_picture_213223.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213096.jpg" />
+  <img src="Z:/picture/005/save_picture_213096.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212889.jpg" />
+  <img src="Z:/picture/005/save_picture_212889.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212887.jpg" />
+  <img src="Z:/picture/005/save_picture_212887.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212661.jpg" />
+  <img src="Z:/picture/005/save_picture_212661.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212311.jpg" />
+  <img src="Z:/picture/005/save_picture_212311.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211478.jpg" />
+  <img src="Z:/picture/005/save_picture_211478.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210720.jpg" />
+  <img src="Z:/picture/005/save_picture_210720.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210012.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209573.jpg" />
+  <img src="Z:/picture/005/save_picture_209573.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209318.jpg" />
+  <img src="Z:/picture/005/save_picture_209318.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208776.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208629.jpg" />
+  <img src="Z:/picture/005/save_picture_208629.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208311.jpg" />
+  <img src="Z:/picture/005/save_picture_208311.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207692.jpg" />
+  <img src="Z:/picture/005/save_picture_207692.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207620.jpg" />
+  <img src="Z:/picture/005/save_picture_207620.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207613.jpg" />
+  <img src="Z:/picture/005/save_picture_207613.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207610.jpg" />
+  <img src="Z:/picture/005/save_picture_207610.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B56411A849B5CD85A33B295C870DEBA0FAC181AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611412   (207609) от 11.02.2023
-
-Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/720p] (сезон 2, серии 1-12 из 12) HDrezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джин, Алисия Чан, Young HellerПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (SDH)Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C046AC721E5F13E8A4613862D852F60DAAB5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611582   (207581) от 12.02.2023
-
-Велма / Velma (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) RuDub
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207581.jpg" />
-</div>
-
-
-###  Подробнее
-
-О жизни главной умницы корпорации «Тайна» Велмы Динкли до её встречи со Скуби и компанией.Производство: США / Warner Bros. AnimationЖанр: мультфильм, комедия, криминал, детектив, приключенияРежиссер: Энн Уокер Фаррелл, Meg Waldow, Cal RamseyПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536E1413DD301B28501FBBBFAE26E1AC135B5FFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

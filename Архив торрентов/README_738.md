@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885677.jpg" />
+  <img src="Z:/picture/005/save_picture_885677.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885672.jpg" />
+  <img src="Z:/picture/005/save_picture_885672.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows and Office ISO Download Tool 4.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885671.jpg" />
+  <img src="Z:/picture/005/save_picture_885671.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mirror for Samsung TV 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885666.jpg" />
+  <img src="Z:/picture/005/save_picture_885666.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mirror for Philips TV 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885661.jpg" />
+  <img src="Z:/picture/005/save_picture_885661.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Avast Clear 21.7.6523.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885652.jpg" />
+  <img src="Z:/picture/005/save_picture_885652.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VMware Fusion Professional 7.1.1 (2498930) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885649.jpg" />
+  <img src="Z:/picture/005/save_picture_885649.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885648.jpg" />
+  <img src="Z:/picture/005/save_picture_885648.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ O&O ShutUp10 1.3.1356 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885647.jpg" />
+  <img src="Z:/picture/005/save_picture_885647.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885639.jpg" />
+  <img src="Z:/picture/005/save_picture_885639.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ URL Manager Pro 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885638.jpg" />
+  <img src="Z:/picture/005/save_picture_885638.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MovieSherlock 6.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885630.jpg" />
+  <img src="Z:/picture/005/save_picture_885630.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Bookends 13.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885608.jpg" />
+  <img src="Z:/picture/005/save_picture_885608.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_885606.jpg" />
+  <img src="Z:/picture/008/save_picture_885606.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ iScreen Recorder 3.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885598.jpg" />
+  <img src="Z:/picture/005/save_picture_885598.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ FileMenu Tools 7.2 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885577.jpg" />
+  <img src="Z:/picture/005/save_picture_885577.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ YoWindow Unlimited Edition 4 Build 102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885569.jpg" />
+  <img src="Z:/picture/005/save_picture_885569.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885568.jpg" />
+  <img src="Z:/picture/005/save_picture_885568.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ KLS Backup 2015 Professional 8.4.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885567.jpg" />
+  <img src="Z:/picture/005/save_picture_885567.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ ZD Soft Screen Recorder 10.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885558.jpg" />
+  <img src="Z:/picture/005/save_picture_885558.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Uninstall Tool 3.5.2 Build 5556 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885539.jpg" />
+  <img src="Z:/picture/005/save_picture_885539.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Depeche Mode - Where's The Revolution (2017) Single [FLAC|Lossless|WEB-DL|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885538.jpg" />
+  <img src="Z:/picture/005/save_picture_885538.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ PrefEdit 4.4 (build 200401) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885537.jpg" />
+  <img src="Z:/picture/005/save_picture_885537.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VMware Workstation 11.1.0 Build 2496824 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885525.jpg" />
+  <img src="Z:/picture/005/save_picture_885525.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.9926 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885487.jpg" />
+  <img src="Z:/picture/005/save_picture_885487.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_885485.jpg" />
+  <img src="Z:/picture/008/save_picture_885485.jpg" />
 </div>
 
 
